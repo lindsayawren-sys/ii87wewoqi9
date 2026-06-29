@@ -1,46 +1,56 @@
-# 【早盘三分钟】6月2日华宝基金ETF早知道
+# 端午假期广深港高铁预计运送跨境旅客53.9万人次
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-责任编辑：常福强
+中新网深圳6月18日电 (索有为 马鑫宇 岳千琳)2026年端午假期铁路运输期限自6月18日启动，至6月22日结束。据深圳铁路部门预计，广深港高铁预计运送跨境旅客53.9万人次，同比增幅26.8%。 据深圳铁路相关负责人介绍，今年端午假期广深港高铁跨境客流呈现“探亲流、旅游流、商务流”三流叠加的特点，香港居民北上观看龙舟赛事、体验端午民俗，内地居民到香港休闲度假、购物消费的需求
 
 ## 正文
 
-责任编辑：常福强
+中新网深圳6月18日电 (索有为 马鑫宇 岳千琳)2026年端午假期铁路运输期限自6月18日启动，至6月22日结束。
+
+据深圳铁路部门预计，广深港高铁预计运送跨境旅客53.9万人次，同比增幅26.8%。
+
+据深圳铁路相关负责人介绍，今年端午假期广深港高铁跨境客流呈现“探亲流、旅游流、商务流”三流叠加的特点，香港居民北上观看龙舟赛事、体验端午民俗，内地居民到香港休闲度假、购物消费的需求集中释放。
+
+从客流预测来看，节前出行高峰将出现在6月18日，节后客流高峰则集中于6月21日。
+
+假期中段，双向客流高位运行且相对均衡，反映出粤港澳大湾区“同城化”趋势愈发明显。
+
+单日跨境客流高峰预计将出现在端午节当日(6月19日)，有望突破13万人次，将刷新端午假期单日历史峰值。
+
+面对高位运行的跨境出行需求，深圳铁路科学调配运力，全力保障旅客顺畅出行。
+
+深圳铁路在满图运营的基础上，精准增加跨境运能供给。
 
 ## 相关推荐
 
-- 2026-06-29 17:21 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 17:24 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 16:56 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 17:13 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 17:21 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 17:10 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 16:54 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 17:21 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 17:04 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 17:08 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 17:20 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 17:14 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 17:18 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 17:21 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 17:03 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 17:26 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 17:17 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 17:19 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 17:20 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 17:08 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 17:04 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 17:28 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 17:22 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 17:13 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:54 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/47945.shtml)
-- 2026-06-29 17:06 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/590581715.shtml)
-- 2026-06-29 16:56 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/759588738.shtml)
-- 2026-06-29 17:09 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/2134259.shtml)
-- 2026-06-29 17:00 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/79567355880.shtml)
-- 2026-06-29 17:15 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/55903044.shtml)
-- 2026-06-29 16:55 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/640329586462.shtml)
-- 2026-06-29 17:10 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/93808810656.shtml)
-- 2026-06-29 17:19 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/58884.shtml)
-- 2026-06-29 17:16 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/109829519.shtml)
-- 2026-06-29 17:12 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/47032441563.shtml)
-- 2026-06-29 17:05 - [爱很美味](http://www.blog.minike.top/Article/details/4907750405.shtml)
-- 2026-06-29 17:01 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/43155472.shtml)
-- 2026-06-29 17:06 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/306100098.shtml)
-- 2026-06-29 17:16 - [恋与深空发放补偿未得到玩家认可](https://www.share.minike.top/Article/details/809836082.shtml)
+- 2026-06-29 17:15 - [扬名立万](http://www.share.minike.top/Article/details/47721.shtml)
+- 2026-06-29 17:09 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/718684469634.shtml)
+- 2026-06-29 17:16 - [普京介绍前线战事](https://www.share.minike.top/Article/details/3803299241.shtml)
+- 2026-06-29 17:17 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/4956012.shtml)
+- 2026-06-29 17:25 - [省市招考专家解读山西高考志愿政策](http://www.share.minike.top/Article/details/4461717.shtml)
+- 2026-06-29 17:12 - [《贺子珍》](http://www.blog.minike.top/Article/details/01125038.shtml)
+- 2026-06-29 17:01 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/985795623.shtml)
+- 2026-06-29 17:16 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/634806169460.shtml)
+- 2026-06-29 17:03 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/3129557760.shtml)
+- 2026-06-29 17:15 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/2793229353.shtml)
+- 2026-06-29 17:14 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/68857895.shtml)
+- 2026-06-29 17:16 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/032978704.shtml)
+- 2026-06-29 17:08 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/562829911.shtml)
+- 2026-06-29 17:25 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/105654170292.shtml)
+- 2026-06-29 17:29 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/669519998.shtml)

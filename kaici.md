@@ -1,59 +1,59 @@
-# 20余位海外华教从业者河南温县习练太极拳
+# 锚定产业升级方向投资机会 华商新动力混合A近3年涨超123%
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-日本加速推进修宪进程须引起警惕王楚钦任中国乒乓男队队长 马龙12年任期结束美国股市密集亮起预警红灯打击网络侵权盗版 四部门启动“剑网2026”专项行动特朗普怒斥内塔尼亚胡：对以色列升级黎巴嫩局势表示“强烈不满”重启第三次，天涯打赢复活赛了吗？周末戒咖啡，为何会引发头疼？专家解读汽车产业链集体押注机器人 一场从“车”到“人”的战略卡位充电宝3C认证新规来了！教你一眼认出“新国标”
+当前市场风格频繁轮动，在市场风格快速轮动的环境中保持定力、锚定产业趋势的基金经理，其价值正在凸显。华商基金刘力紧跟时代步伐，深耕产业升级方向投资机会。他管理的华商新动力混合基金截至2026年5月31日近1、3、5年业绩均大幅超越同期业绩比较基准，提升了持有人的投资获得感。 据基金评价机构数据显示，截至2026年5月31日，华商新动力混合基金（A类：001723；C类：01792
 
 ## 正文
 
-日本加速推进修宪进程须引起警惕王楚钦任中国乒乓男队队长 马龙12年任期结束美国股市密集亮起预警红灯打击网络侵权盗版 四部门启动“剑网2026”专项行动特朗普怒斥内塔尼亚胡：对以色列升级黎巴嫩局势表示“强烈不满”重启第三次，天涯打赢复活赛了吗？
+当前市场风格频繁轮动，在市场风格快速轮动的环境中保持定力、锚定产业趋势的基金经理，其价值正在凸显。
 
-周末戒咖啡，为何会引发头疼？
+华商基金刘力紧跟时代步伐，深耕产业升级方向投资机会。
 
-专家解读汽车产业链集体押注机器人 一场从“车”到“人”的战略卡位充电宝3C认证新规来了！
+他管理的华商新动力混合基金截至2026年5月31日近1、3、5年业绩均大幅超越同期业绩比较基准，提升了持有人的投资获得感。
 
-教你一眼认出“新国标”产品→网暴抗洪救灾村干部“戴金耳环” 相关网民被行政处罚一碗剩米饭 吃进ICU！
+据基金评价机构数据显示，截至2026年5月31日，华商新动力混合基金（A类：001723；C类：017927）近1年、3年、5年分别位居同类排名前10%、前7%及前12%（详见下表）。
 
-夏季慎吃剩饭 远离“炒饭综合征”从侨批看中国中新网评：大字吸睛小字免责？
+华商新动力混合基金同类排名 截至2026年5月31日，华商新动力混合A近1年净值增长率达122.81%；近3年净值增长率为123.75%，超越同期业绩比较基准59个百分点；拉长至近5年，华商新动力混合A净值增长率为81.56%，领先了业绩比较基准65个百分点，展现出在复杂市场环境下较强的结构性机会把握能力（详见下表）。
 
-对虚假“第一”就该较真到底日本在野党批高市政府推动修宪扩军：背离民众真实诉求除了《给阿嬷的情书》，这些涉侨电影也值得一看！
+华商新动力混合基金业绩表现 刘力 华商新动力混合基金经理 华商科创创业精选混合等基金经理 刘力为北京大学微电子学与固体电子学硕士，自2016年7月加入华商基金，是华商基金自主培养的一名成长投资中生代基金经理，现任华商新动力混合、华商科创创业精选混合基金等基金经理。
 
-质量差、退费难、价格高......租赁手机小心暗藏玄机日本启动第20次核污染水排海 排放量约7800吨领取失业保险金期间，城乡居民医疗保险受影响吗？
+他始终以“投资长坡厚雪的赛道中符合产业趋势的优秀企业，立志于在长周期获得可持续回报”为核心投资理念，方法论上淡化择时，注重行业比较与个股筛选。
 
-人社部回应钓鱼佬夜钓顺手救下2名落水少年高铁穿麦浪，皖北麦收正当时直击无人机实战化作战训练现场“最美天山公路”独库公路恢复通车新疆喀什：走进“西域之西”的人文风情轰鸣阵阵！
+刘力在华商新动力混合基金定期报告中表示，一月份（市场）单边上涨，二月份整体呈现震荡且波动放大的态势，三月份超预期的地缘冲突引发指数连续下跌。
 
 ## 相关推荐
 
-- 2026-06-29 17:15 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 17:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 17:09 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 17:23 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 17:19 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 17:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-29 16:55 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 17:18 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 17:17 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 17:19 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 17:19 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 17:04 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 17:08 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 17:21 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 17:26 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 17:22 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 17:22 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 17:14 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 17:23 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 17:28 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 17:17 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 17:15 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 17:17 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 17:20 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 17:26 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 17:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:23 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/4200089.shtml)
-- 2026-06-29 16:59 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/77201744577.shtml)
-- 2026-06-29 17:04 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/515075171.shtml)
-- 2026-06-29 16:59 - [首个靠AI躺赢的国家](https://www.blog.minike.top/Article/details/122402423824.shtml)
-- 2026-06-29 16:55 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/668472554.shtml)
-- 2026-06-29 17:08 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/85353157273.shtml)
-- 2026-06-29 17:20 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/086257479.shtml)
-- 2026-06-29 17:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/9476871500.shtml)
-- 2026-06-29 17:12 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/67524709.shtml)
-- 2026-06-29 17:03 - [啊啊啊](https://www.share.minike.top/Article/details/6320523.shtml)
-- 2026-06-29 17:18 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/31685490278.shtml)
-- 2026-06-29 17:05 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/5990652245.shtml)
-- 2026-06-29 17:16 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/185404183089.shtml)
-- 2026-06-29 17:18 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/066738.shtml)
-- 2026-06-29 17:14 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/52605.shtml)
+- 2026-06-29 17:26 - [TTG KSG](http://www.share.kurohicncr.top/Article/details/06797.shtml)
+- 2026-06-29 17:10 - [极限挑战第一季](https://www.blog.minike.top/Article/details/87939341904.shtml)
+- 2026-06-29 17:00 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/3680594.shtml)
+- 2026-06-29 17:22 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/79080544811.shtml)
+- 2026-06-29 17:24 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/998097777692.shtml)
+- 2026-06-29 17:01 - [扬名立万](http://www.share.minike.top/Article/details/94634.shtml)
+- 2026-06-29 17:13 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/08345.shtml)
+- 2026-06-29 17:00 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/0296331.shtml)
+- 2026-06-29 17:25 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.minike.top/Article/details/5424599758.shtml)
+- 2026-06-29 17:16 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/06706070.shtml)
+- 2026-06-29 17:17 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/26872758.shtml)
+- 2026-06-29 17:20 - [欧盟为什么越来越倾向贸易保护](https://www.blog.kurohicncr.top/Article/details/71597654540.shtml)
+- 2026-06-29 17:08 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/654396.shtml)
+- 2026-06-29 17:06 - [7款商保创新药“转道”](https://www.blog.minike.top/Article/details/2062295334.shtml)
+- 2026-06-29 17:01 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/3895955241.shtml)

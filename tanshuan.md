@@ -1,61 +1,57 @@
-# 新一代商业大火箭首飞成功！航空航天ETF华泰柏瑞、通用航空ETF华泰柏瑞助力低位布局商业航天赛道长期机遇
+# （机遇澳门）小城大作为，澳门奏响高质量发展“交响曲”
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-近期全球商业航天板块情绪整体偏弱，受海外火箭发射事故、市场流传SpaceX估值下调等负面消息影响，行业板块出现阶段性调整。但从产业基本面来看，随着海外利空传闻落地澄清、国内技术成果集中落地、低空经济监管体系持续完善，赛道中长期配置价值仍然受到资金关注。 人气产品——航空航天ETF华泰柏瑞（563380）、通用航空ETF华泰柏瑞（563320）在近期震荡行情中仍吸引资金关注，5月
+中新社澳门6月18日电 题：小城大作为，澳门奏响高质量发展“交响曲” 中新社记者 郑嘉伟 2026年是国家“十五五”规划开局之年，澳门“三五”规划同步跟进。记者连日来采访澳门各界人士，感受这座中国南海之滨的小城展现“大作为”，以多重旋律奏响高质量发展的“交响曲”。 旋律一：四大工程引领经济适度多元跑出“加速度”如何实质性推动经济适度多元发展是澳门“三五”规划时期必须应对的新挑战
 
 ## 正文
 
-近期全球商业航天板块情绪整体偏弱，受海外火箭发射事故、市场流传SpaceX估值下调等负面消息影响，行业板块出现阶段性调整。
+中新社澳门6月18日电 题：小城大作为，澳门奏响高质量发展“交响曲” 中新社记者 郑嘉伟 2026年是国家“十五五”规划开局之年，澳门“三五”规划同步跟进。
 
-但从产业基本面来看，随着海外利空传闻落地澄清、国内技术成果集中落地、低空经济监管体系持续完善，赛道中长期配置价值仍然受到资金关注。
+记者连日来采访澳门各界人士，感受这座中国南海之滨的小城展现“大作为”，以多重旋律奏响高质量发展的“交响曲”。
 
-人气产品——航空航天ETF华泰柏瑞（563380）、通用航空ETF华泰柏瑞（563320）在近期震荡行情中仍吸引资金关注，5月以来的19个工作日中分别有16日、14日获资金增持，助推最新基金规模分别达9.13亿元、2.18亿元，流动性优势较突出。
+旋律一：四大工程引领经济适度多元跑出“加速度”如何实质性推动经济适度多元发展是澳门“三五”规划时期必须应对的新挑战，也是施政工作的重中之重。
 
-海外航天资本市场情绪已迎来明显修复。
+为实现这一目标，澳门正集中资源推进四大战略性工程：澳琴国际教育(大学)城、澳门国际综合旅游文化区、珠江西岸国际航空运输枢纽和澳门科技研发产业园。
 
-针对此前市场热议的SpaceX下调IPO目标估值传闻，马斯克已正式予以否认，有效打消了市场疑虑，行业对这家全球商业航天龙头的上市预期有望再度回归乐观。
+澳门特区行政长官岑浩辉表示，四大工程项目将逐步构建起从研发空间、资本支持、人才集聚到国际合作的完整产业生态，为澳门经济适度多元发展提供坚实支撑。
 
-作为史上体量顶级的航天IPO标的，SpaceX万亿级估值预期持续为全球商业航天赛道重塑价值体系，也有望为国内相关产业链带来情绪与估值层面的提振。
+“本地中小企业也要积极把握四大工程项目带来的发展机遇，提升自身服务和应变能力，积极转型升级。
 
-与之形成呼应的是，国内商业航天硬核技术实现新突破，产业商业化、规模化进程提速。
+” 此外，澳门将于今年内设立政府引导基金，预期规模为200亿澳门元，借此汇集和引导社会资本培育新兴产业，推动本地产业升级转型，支持经济适度多元发展。
 
-6月1日，长征十二号乙新型商业运载火箭首飞成功，将千帆星座组网卫星送入预定轨道，全面验证了技术方案与工程可靠性，标志着该型号火箭正式具备商用发射能力。
+旋律二：高水平对外开放桥头堡提质升级 不久前中国—葡语国家央行数字货币发展与跨境创新应用高端研讨会在澳门举行，与会方同意鼓励在双边贸易中更多使用人民币计价结算，促进跨境支付系统多样化和自主选择。
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 17:00 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 17:13 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 17:19 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 17:07 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 17:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 16:58 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 17:10 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 17:05 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 17:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 16:55 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 16:57 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 17:16 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 16:57 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 17:10 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 17:28 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 17:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 17:00 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 17:15 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 17:29 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 17:04 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 17:22 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 17:27 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 17:13 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 17:14 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 17:02 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:01 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/5880718.shtml)
-- 2026-06-29 17:21 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/2009326.shtml)
-- 2026-06-29 17:15 - [TFING全员黑西装](http://www.share.minike.top/Article/details/3958086.shtml)
-- 2026-06-29 17:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/617323655.shtml)
-- 2026-06-29 17:04 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/59558181.shtml)
-- 2026-06-29 16:56 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/371797886.shtml)
-- 2026-06-29 17:18 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/6150158594.shtml)
-- 2026-06-29 17:09 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/574112363.shtml)
-- 2026-06-29 17:12 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/740908202.shtml)
-- 2026-06-29 17:20 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/954130.shtml)
-- 2026-06-29 17:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/73474682118.shtml)
-- 2026-06-29 16:59 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/14745.shtml)
-- 2026-06-29 17:20 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.minike.top/Article/details/740463.shtml)
-- 2026-06-29 17:01 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/35248366752.shtml)
-- 2026-06-29 17:21 - [四川地震前夕 街头电线上站满燕子](https://www.share.minike.top/Article/details/56570053.shtml)
+- 2026-06-29 17:21 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/318323.shtml)
+- 2026-06-29 17:22 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/01633954614.shtml)
+- 2026-06-29 17:00 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/20387.shtml)
+- 2026-06-29 17:23 - [周生如故](https://www.blog.minike.top/Article/details/09615375237.shtml)
+- 2026-06-29 17:23 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/07188100.shtml)
+- 2026-06-29 17:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/552362319223.shtml)
+- 2026-06-29 17:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/54561816929.shtml)
+- 2026-06-29 17:27 - [博主：美航母沦为毒品集散窝点](https://www.share.minike.top/Article/details/056575904.shtml)
+- 2026-06-29 17:13 - [5万块的威力](https://www.share.minike.top/Article/details/9422893.shtml)
+- 2026-06-29 17:27 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/91826840283.shtml)
+- 2026-06-29 17:02 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/11221597398.shtml)
+- 2026-06-29 17:16 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/480084.shtml)
+- 2026-06-29 17:20 - [和周杰伦在演唱会合唱了](http://www.share.minike.top/Article/details/76906914.shtml)
+- 2026-06-29 17:18 - [南昌市委书记调整](https://www.share.minike.top/Article/details/9616855900.shtml)
+- 2026-06-29 17:03 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/5810623007.shtml)

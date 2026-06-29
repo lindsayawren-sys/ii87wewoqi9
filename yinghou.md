@@ -1,46 +1,58 @@
-# 伊朗媒体称：伊朗暂停同美对话 计划封锁霍尔木兹海峡
+# 基金投资盈在这款工具上：实时估值+AI选基，新浪财经APP重塑基金投资体验
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 10:13 来源：央视新闻 责任编辑：【王祎】
+2026年的基金市场，已正式迈入“万基时代”。根据中基协公布的数据，截至2026年4月底，境内公募基金产品总数已达1.41万只，资产净值合计39.36万亿元，再创历史新高。然而，基金数量越多，投资者面临的挑战反而越大——尤其是在“看净值”和“选好基”这两件事上。 合规大年，主流平台集体“熄灯” 2026年堪称基金行业的“合规大年”。自1月底起，蚂蚁财富、天天基金、同花顺等主流第
 
 ## 正文
 
-发布时间：2026年06月02日 10:13 来源：央视新闻 责任编辑：【王祎】
+2026年的基金市场，已正式迈入“万基时代”。
+
+根据中基协公布的数据，截至2026年4月底，境内公募基金产品总数已达1.41万只，资产净值合计39.36万亿元，再创历史新高。
+
+然而，基金数量越多，投资者面临的挑战反而越大——尤其是在“看净值”和“选好基”这两件事上。
+
+合规大年，主流平台集体“熄灯” 2026年堪称基金行业的“合规大年”。
+
+自1月底起，蚂蚁财富、天天基金、同花顺等主流第三方平台相继下线了“基金实时估值”功能。
+
+监管要求下架的核心理由很明确：此类基于滞后季报持仓的盘中推算，与实际净值的平均偏离度高达0.8%，极端情况甚至突破3%。
+
+季报只披露前十大重仓股，且滞后多达15个工作日以上，基金经理在此期间可能早已调仓。
+
+深圳证监局更明确指出“模拟估值不可靠，持仓披露非实时”。
 
 ## 相关推荐
 
-- 2026-06-29 17:00 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 17:09 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 17:21 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 17:06 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 17:13 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 17:18 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 17:20 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 17:14 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 16:58 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 17:13 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 17:09 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 17:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-29 16:54 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 17:10 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 17:08 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 17:05 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 17:15 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 17:15 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 17:05 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 17:27 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 17:07 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 17:07 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 17:28 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 17:17 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 17:19 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 17:26 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:08 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/286003.shtml)
-- 2026-06-29 17:13 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/61254876241.shtml)
-- 2026-06-29 17:18 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/3893934808.shtml)
-- 2026-06-29 17:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/56779373864.shtml)
-- 2026-06-29 17:12 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/13339076.shtml)
-- 2026-06-29 17:07 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/59453814572.shtml)
-- 2026-06-29 17:12 - [天柱山回应网红打卡树枝被砍](http://www.blog.kurohicncr.top/Article/details/01753920924.shtml)
-- 2026-06-29 17:13 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/8181158.shtml)
-- 2026-06-29 17:04 - [驻日美军航母沦为“毒窝”](http://www.blog.kurohicncr.top/Article/details/430204418966.shtml)
-- 2026-06-29 17:19 - [税务总局披露5起合规申报个税案例](http://www.share.kurohicncr.top/Article/details/10352262731.shtml)
-- 2026-06-29 17:15 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.kurohicncr.top/Article/details/763398831551.shtml)
-- 2026-06-29 17:09 - [AG 宫斗](https://www.blog.minike.top/Article/details/4361134.shtml)
-- 2026-06-29 17:01 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/265368.shtml)
-- 2026-06-29 16:54 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/848805.shtml)
-- 2026-06-29 17:21 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/124140.shtml)
+- 2026-06-29 17:18 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/86027473629.shtml)
+- 2026-06-29 17:07 - [四川地震前夕 街头电线上站满燕子](http://www.blog.minike.top/Article/details/49681.shtml)
+- 2026-06-29 17:26 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/572961884573.shtml)
+- 2026-06-29 17:16 - [税务总局披露5起合规申报个税案例](https://www.share.kurohicncr.top/Article/details/284287.shtml)
+- 2026-06-29 17:06 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.minike.top/Article/details/8246958531.shtml)
+- 2026-06-29 17:25 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/81629.shtml)
+- 2026-06-29 17:15 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/0652304776.shtml)
+- 2026-06-29 17:07 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/41233869.shtml)
+- 2026-06-29 17:01 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/285836049.shtml)
+- 2026-06-29 17:07 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/3697338917.shtml)
+- 2026-06-29 17:01 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/440129079216.shtml)
+- 2026-06-29 17:08 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/289574510.shtml)
+- 2026-06-29 17:18 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/785095384096.shtml)
+- 2026-06-29 17:02 - [和周杰伦在演唱会合唱了](http://www.blog.kurohicncr.top/Article/details/20198.shtml)
+- 2026-06-29 17:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/98645.shtml)

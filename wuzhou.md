@@ -1,57 +1,58 @@
-# 月涨超160%后主动拆概念，宝鼎科技澄清未接触英伟达 | 长三角资本局
+# 事关网贷，首期7条举措出炉！蚂蚁科技、腾讯、抖音等：严格执行
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 AI供应链传闻退潮时，宝鼎科技（维权）选择把市场最想听的故事逐项拆开。 5月31日，宝鼎科技发布股票交易异常波动公告称，近日公司关注到网络平台出现公司产品已纳入英伟达供应链体系认证等市场传闻。公司明确表示，相关信息不属实，截至目前公司未与英伟达有过接触，也未与其开展任何形式的业务合作。 这份澄清公告写得相当具体。宝鼎科技称，公司覆铜板产品主要是FR-4
+来源：金融时报 近年来，互联网贷款业务快速增长，有效提升了小额信贷服务的便利性和可得性，在服务实体经济、助力居民消费等方面发挥了积极作用。与此同时，行业也出现无序扩张、息费不透明、综合融资成本偏高、投诉快速增长等问题。 为更好发挥行业自律对行政监管的支撑作用，6月17日，中国互联网金融协会官方微信公众号宣布，中国互联网金融协会互联网贷款自律工作委员会筹备组制定了“践行金融为民理
 
 ## 正文
 
-文|新浪财经上海站 十里 AI供应链传闻退潮时，宝鼎科技（维权）选择把市场最想听的故事逐项拆开。
+来源：金融时报 近年来，互联网贷款业务快速增长，有效提升了小额信贷服务的便利性和可得性，在服务实体经济、助力居民消费等方面发挥了积极作用。
 
-5月31日，宝鼎科技发布股票交易异常波动公告称，近日公司关注到网络平台出现公司产品已纳入英伟达供应链体系认证等市场传闻。
+与此同时，行业也出现无序扩张、息费不透明、综合融资成本偏高、投诉快速增长等问题。
 
-公司明确表示，相关信息不属实，截至目前公司未与英伟达有过接触，也未与其开展任何形式的业务合作。
+为更好发挥行业自律对行政监管的支撑作用，6月17日，中国互联网金融协会官方微信公众号宣布，中国互联网金融协会互联网贷款自律工作委员会筹备组制定了“践行金融为民理念，引领互联网贷款行业健康发展”系列举措。
 
-这份澄清公告写得相当具体。
+实际上，金融管理部门始终坚持规范与发展并重，持续完善互联网贷款监管制度体系，先后出台一系列监管规定，全面压实金融机构主体责任、规范合作机构行为、强化消费者保护。
 
-宝鼎科技称，公司覆铜板产品主要是FR-4及复合板等常规产品，不存在AI覆铜板产品，未发现应用于AI服务器及算力领域；高速覆铜板M7、M9没有销售、订单和收入；超低轮廓HVLP铜箔尚处客户认证阶段，2026年一季度实现营业收入约10万元，占比仅0.01%。
+2025年以来，金融管理部门聚焦助贷业务、息费管理等重点领域实施精准治理，成效显著，综合融资成本显著下行，“过度借贷”“以贷养贷”等行为得到有效遏制，金融消费者权益保护水平大幅提升。
 
-与此同时，公司还提示，2025年度覆铜板及铜箔业务净利润为-1850.99万元。
+《金融时报》记者了解到，为进一步支持配合金融管理部门的相关工作，更好发挥行业自律对行政监管的支撑作用，中国互联网金融协会在认真研究、广泛调研的基础上，经第二届理事会第五次会议审议通过，将设立“互联网贷款自律工作委员会”（简称工作委员会），承担自律管理工作职责。
 
-这意味着，市场此前围绕英伟达、AI服务器、高速覆铜板、HVLP铜箔形成的想象，在上市公司公告里几乎都找不到现实订单支撑。
+同时，根据工作委员会组建工作需要，综合考虑当前行业关键矛盾、业内主要关切，以及相关工作的复杂性、重要性和紧迫性，现阶段先聚焦互联网助贷业务领域，成立工作委员会筹备组推进相关工作。
 
-更值得注意的是，宝鼎科技近期股价已明显脱离常规基本面交易节奏。
+本次发布的首期举措共7条，包括对新市民、灵活就业人员、“两司两员”、小微企业、个体工商户、农户、脱贫人口等群体进行力所能及的帮扶，给予更优惠的贷款条件；建立纾困机制，加大纾困投入，全体参与机构每年纾困投入合计不低于15亿元；用好异常信息共享系统，防范相关黑灰产影响等。
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 17:12 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 17:18 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 17:23 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 17:04 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 16:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 16:59 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 17:04 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 17:14 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 16:56 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 16:54 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 17:02 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 17:00 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 17:11 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 17:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 17:09 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 17:01 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 17:24 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 17:18 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 17:10 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 17:24 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 17:24 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 17:01 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:00 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/829859276624.shtml)
-- 2026-06-29 17:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/89578.shtml)
-- 2026-06-29 17:09 - [南昌市委书记调整](https://www.blog.minike.top/Article/details/4768700781.shtml)
-- 2026-06-29 16:56 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/888888.shtml)
-- 2026-06-29 17:14 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/62922273337.shtml)
-- 2026-06-29 16:57 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/420877.shtml)
-- 2026-06-29 17:09 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/6032701815.shtml)
-- 2026-06-29 17:14 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/47769214.shtml)
-- 2026-06-29 16:57 - [周生如故](http://www.share.kurohicncr.top/Article/details/38955.shtml)
-- 2026-06-29 17:19 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/3632251925.shtml)
-- 2026-06-29 17:15 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/95012460765.shtml)
-- 2026-06-29 17:09 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/055805.shtml)
-- 2026-06-29 16:56 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/67459039583.shtml)
-- 2026-06-29 17:09 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/767972154848.shtml)
-- 2026-06-29 17:07 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/53588978.shtml)
+- 2026-06-29 17:06 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/59967.shtml)
+- 2026-06-29 17:11 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.minike.top/Article/details/00018805761.shtml)
+- 2026-06-29 17:12 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/17856.shtml)
+- 2026-06-29 17:25 - [一见倾心](http://www.share.minike.top/Article/details/65907.shtml)
+- 2026-06-29 17:09 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/70999.shtml)
+- 2026-06-29 17:17 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/967920.shtml)
+- 2026-06-29 17:04 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.kurohicncr.top/Article/details/976730344.shtml)
+- 2026-06-29 17:28 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/02766722.shtml)
+- 2026-06-29 17:07 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/332795622.shtml)
+- 2026-06-29 17:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/660278.shtml)
+- 2026-06-29 17:23 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/4369272.shtml)
+- 2026-06-29 17:20 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/764905358221.shtml)
+- 2026-06-29 17:23 - [花万元相亲对象是50元雇的演员](https://www.share.kurohicncr.top/Article/details/2290198.shtml)
+- 2026-06-29 17:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/6454503402.shtml)
+- 2026-06-29 17:05 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/31909586690.shtml)

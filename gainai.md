@@ -1,56 +1,58 @@
-# 人人租IPO遭遇证监会六连问：股权操作被质疑 多次违规被点名
+# 上任一周，钉钉新CEO陈宇森宣布组织调整
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-来源：新经济观察团 饱受市场争议的知名租机平台人人租，赴港IPO之路突生波折。 2026年5月29日，证监会披露《境外发行上市备案补充材料要求》，退回人人租运营主体广州研趣信息科技股份有限公司招股书，要求企业针对股权沿革、财务真实性、境外业务、合规运作、股份权利状态等六大核心事项进行补充举证、自查说明。 具体来看： 其中前三项问询指向人人租的股权和资本运作问题。 首先是‌股权合
+6月18日消息，90后技术极客陈宇森接任钉钉CEO一周后，首次在内部发出全员信，宣布一系列组织调整，他在信中的落款为 “宇森 悟空事业部CEO”。 具体调整如下：成立核心平台业务部，负责钉钉等一系列核心业务，由朱鸿负责，向陈宇森汇报；整合悟空与MuleRun两个团队，成立新的悟空团队，由束骏亮负责，向陈宇森汇报。 将直销、电销、服务商、售前、交付、客户成功团队全面整合，成立客户
 
 ## 正文
 
-来源：新经济观察团 饱受市场争议的知名租机平台人人租，赴港IPO之路突生波折。
+6月18日消息，90后技术极客陈宇森接任钉钉CEO一周后，首次在内部发出全员信，宣布一系列组织调整，他在信中的落款为 “宇森 悟空事业部CEO”。
 
-2026年5月29日，证监会披露《境外发行上市备案补充材料要求》，退回人人租运营主体广州研趣信息科技股份有限公司招股书，要求企业针对股权沿革、财务真实性、境外业务、合规运作、股份权利状态等六大核心事项进行补充举证、自查说明。
+具体调整如下：成立核心平台业务部，负责钉钉等一系列核心业务，由朱鸿负责，向陈宇森汇报；整合悟空与MuleRun两个团队，成立新的悟空团队，由束骏亮负责，向陈宇森汇报。
 
-具体来看： 其中前三项问询指向人人租的股权和资本运作问题。
+将直销、电销、服务商、售前、交付、客户成功团队全面整合，成立客户发展部，由杨猛负责，向陈宇森汇报；成立市场部，由李昕瑜负责，向陈宇森汇报。
 
-首先是‌股权合规性‌：需说明历次增资/股权转让定价依据、实缴出资情况、是否存在抽逃出资或瑕疵，并出具合法合规结论；其次是‌新增股东合理性‌：近12个月新增股东入股价格差异原因及是否存在利益输送；第三是‌股权激励合规‌：股权激励计划实施是否合法合规、有无利益输送。
+此外，还成立公司信息技术部，负责优化迭代公司各业务系统，让一切系统易于被Agent使用，由邓悟负责，向陈宇森汇报。
 
-从公司实际资本操作来看，2025年5月人人租完成D轮融资，大华银行旗下ACIF V和ACIF （US） V合计出资约1.08亿元，仅认购研趣信息19.73万元注册资本。
+其中，“悟空”是阿里巴巴发布的全球首个企业级AI原生工作平台，MuleRun（骡子快跑）是全场景接入、多模态原生、企业级资产联动的Al原生智能工作空间。
 
-折算下来，外部投资者以每1元注册资本约547元的超高溢价入股，估值溢价水平远超行业常规逻辑。
+陈宇森生于1992年，是年少成名的技术极客，也是技术型连续创业者，入选福布斯亚洲“30 Under 30”榜单。
 
-与之形成鲜明对比的是，2026年1月公司完成无募资股本扩容，通过股份溢价资本化方式，将注册资本从238万元大幅增至1500万元，本次增资仅为内部股本结构调整，未引入任何外部新资金。
+他曾在国内外顶级计算机赛事中屡获冠军，22岁时创办的网络安全公司长亭科技被阿里云收购。
 
-证监会要求解释D轮融资定价的合理性，显然是在质疑激进的溢价背后，是否存在未披露的抽屉协议或利益输送安排？
+作为一名兼具技术实力与商业判断力的年轻管理者，他2025年在阿里云内部创业，带领研发了MuleRun。
 
 ## 相关推荐
 
-- 2026-06-29 16:57 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 17:18 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 16:59 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 16:55 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 17:06 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 17:21 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 17:10 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 16:55 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 17:23 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 17:10 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 17:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 17:23 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 17:14 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 17:24 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 17:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 17:12 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 17:05 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 17:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 17:15 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 17:12 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 17:19 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 17:15 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:08 - [驻日美军航母沦为“毒窝”](https://www.share.minike.top/Article/details/892856.shtml)
-- 2026-06-29 17:21 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/151443929.shtml)
-- 2026-06-29 17:12 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/94353.shtml)
-- 2026-06-29 17:06 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/5621508.shtml)
-- 2026-06-29 16:54 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/016763.shtml)
-- 2026-06-29 17:11 - [95后小伙突然确诊癌症 医生提醒](https://www.share.minike.top/Article/details/972428383.shtml)
-- 2026-06-29 17:12 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/08976724.shtml)
-- 2026-06-29 17:16 - [世界杯上那些封神的门将](https://www.blog.minike.top/Article/details/621723000736.shtml)
-- 2026-06-29 17:00 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/37809631.shtml)
-- 2026-06-29 17:06 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/56421266486.shtml)
-- 2026-06-29 17:18 - [疑似吴建豪老婆正脸照](http://www.blog.minike.top/Article/details/908769768550.shtml)
-- 2026-06-29 17:05 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/419500209794.shtml)
-- 2026-06-29 17:22 - [世界杯1/16决赛对阵出炉](http://www.blog.minike.top/Article/details/80295758.shtml)
-- 2026-06-29 17:13 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/1401216.shtml)
-- 2026-06-29 17:12 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/32299.shtml)
+- 2026-06-29 17:04 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/5051856.shtml)
+- 2026-06-29 17:06 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/311247743.shtml)
+- 2026-06-29 17:14 - [周生如故](http://www.share.kurohicncr.top/Article/details/40134700249.shtml)
+- 2026-06-29 17:18 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/313326605095.shtml)
+- 2026-06-29 17:05 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/1156051334.shtml)
+- 2026-06-29 17:15 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/9831080866.shtml)
+- 2026-06-29 17:15 - [请回答王牌2019](http://www.share.minike.top/Article/details/4509701715.shtml)
+- 2026-06-29 17:03 - [恋与深空发放补偿未得到玩家认可](http://www.blog.kurohicncr.top/Article/details/89207.shtml)
+- 2026-06-29 17:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/191551421826.shtml)
+- 2026-06-29 17:06 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.kurohicncr.top/Article/details/36982.shtml)
+- 2026-06-29 17:06 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/59841.shtml)
+- 2026-06-29 17:01 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/827002439241.shtml)
+- 2026-06-29 17:25 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/385771727330.shtml)
+- 2026-06-29 17:27 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/5436255.shtml)
+- 2026-06-29 17:02 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/919939903185.shtml)

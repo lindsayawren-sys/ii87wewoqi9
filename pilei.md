@@ -1,56 +1,56 @@
-# 台湾媒体人参访郑州“竖屏”片场：两岸协作推出更多优质作品
+# 它是餐桌上的“天然抗生素” 夏天这样吃正合适
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新社郑州6月2日电 题：台湾媒体人参访郑州“竖屏”片场：两岸协作推出更多优质作品 作者 李百加 走出仿真“法庭”，好似身处20世纪60年代居民起居室内。医院、写字楼、豪华宴会厅……河南郑州大志影视基地里，十数造景首尾相连，步移景异。“沉浸感太强了。”台湾青年导演邱庆龄一路拍摄时说。 5月27日至6月2日，“相约中原·豫见精彩”2026年海峡两岸记者联合采访活动在河南郑州、洛阳
+鱼腥草 又名折耳根 被民间誉为“天然抗生素” 有助于消炎、抗菌、解毒 消暑、治疗肺部疾病 推荐用法：两杯代茶饮+一道凉菜 一起来看看吧～ 01 “天然抗生素”鱼腥草 鱼腥草又名折耳根。新鲜鱼腥草叶子的总黄酮含量比较高，有助于抗氧化、清热；鱼腥草的根茎则含有挥发油，抗菌消炎作用更突出，所以它也被民间誉为“天然抗生素”，具有养生保健、防病治病的双重作用。 丨清热解毒、抑菌： 鱼腥草
 
 ## 正文
 
-中新社郑州6月2日电 题：台湾媒体人参访郑州“竖屏”片场：两岸协作推出更多优质作品 作者 李百加 走出仿真“法庭”，好似身处20世纪60年代居民起居室内。
+鱼腥草 又名折耳根 被民间誉为“天然抗生素” 有助于消炎、抗菌、解毒 消暑、治疗肺部疾病 推荐用法：两杯代茶饮+一道凉菜 一起来看看吧～ 01 “天然抗生素”鱼腥草 鱼腥草又名折耳根。
 
-医院、写字楼、豪华宴会厅……河南郑州大志影视基地里，十数造景首尾相连，步移景异。
+新鲜鱼腥草叶子的总黄酮含量比较高，有助于抗氧化、清热；鱼腥草的根茎则含有挥发油，抗菌消炎作用更突出，所以它也被民间誉为“天然抗生素”，具有养生保健、防病治病的双重作用。
 
-“沉浸感太强了。
+丨清热解毒、抑菌： 鱼腥草具有清热解毒的功效，是历代治疗肺痈或者肺脓肿的主要药物，可以散热毒痈肿。
 
-”台湾青年导演邱庆龄一路拍摄时说。
+现代药理学研究发现，鱼腥草的主要成分鱼腥草素，对金黄色葡萄球菌、肺炎球菌等多种细菌，均有不同程度的抑制作用。
 
-5月27日至6月2日，“相约中原·豫见精彩”2026年海峡两岸记者联合采访活动在河南郑州、洛阳、开封等地举行。
+能增强白细胞吞噬能力，提高机体免疫力。
 
-采访团走进大志影视基地，近距离观察大陆微短剧产业的发展生态。
+目前临床使用鱼腥草制剂治疗扁桃体炎、大叶性肺炎、急性支气管炎以及肠炎、腹泻、尿路感染等疾病。
 
-近年来，以节奏快、反转强、情绪浓烈为特点的大陆微短剧迅速崛起，在台湾掀起观看热潮。
+丨夏季食用帮助消暑： 鱼腥草性微寒，除了有良好的清热解毒作用，还具有清暑消疮的作用。
 
-梅花媒体集团“爱传媒”副总编辑陈素贞表示，微短剧已成为不少台湾民众的日常消遣，“很多朋友追看‘霸总’‘婆媳’等题材短剧，轻松解压”。
+夏季天气炎热时食用新鲜的鱼腥草，能清火消暑、解毒防病，尤其适合体质偏热、夏季容易上火、喉咙痛的人群。
 
 ## 相关推荐
 
-- 2026-06-29 17:04 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 17:05 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 17:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 17:19 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 17:14 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 17:00 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 17:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 17:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 17:20 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 16:54 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 17:18 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 17:25 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 17:11 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 17:04 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 17:09 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 17:26 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 17:20 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 17:10 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 17:01 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 17:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:04 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/36344617730.shtml)
-- 2026-06-29 16:58 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.minike.top/Article/details/7368579091.shtml)
-- 2026-06-29 16:56 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/867067018446.shtml)
-- 2026-06-29 17:03 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/14720991.shtml)
-- 2026-06-29 17:09 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.minike.top/Article/details/7252286.shtml)
-- 2026-06-29 17:14 - [男孩复读一年减重20斤涨分111分](http://www.blog.kurohicncr.top/Article/details/989408.shtml)
-- 2026-06-29 17:12 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/0817114.shtml)
-- 2026-06-29 17:15 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/6549595373.shtml)
-- 2026-06-29 17:00 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.minike.top/Article/details/05834.shtml)
-- 2026-06-29 17:01 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/70218790557.shtml)
-- 2026-06-29 17:08 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/6385483792.shtml)
-- 2026-06-29 16:59 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/36564.shtml)
-- 2026-06-29 17:23 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/509758693.shtml)
-- 2026-06-29 17:18 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/326253672.shtml)
-- 2026-06-29 17:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/439661071.shtml)
+- 2026-06-29 17:18 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/58954858.shtml)
+- 2026-06-29 17:01 - [7款商保创新药“转道”](https://www.share.kurohicncr.top/Article/details/3213126903.shtml)
+- 2026-06-29 17:28 - [勇敢的心第二部](https://www.share.minike.top/Article/details/09802.shtml)
+- 2026-06-29 17:29 - [海口塔吊事故处罚结果公布](http://www.blog.minike.top/Article/details/54209.shtml)
+- 2026-06-29 17:21 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/37946.shtml)
+- 2026-06-29 17:19 - [美人鱼](https://www.blog.minike.top/Article/details/99576267.shtml)
+- 2026-06-29 17:25 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/56578.shtml)
+- 2026-06-29 17:07 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/23895582279.shtml)
+- 2026-06-29 17:11 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/94616.shtml)
+- 2026-06-29 17:24 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/90229681952.shtml)
+- 2026-06-29 17:07 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.kurohicncr.top/Article/details/390144.shtml)
+- 2026-06-29 17:12 - [NBA交易](https://www.share.minike.top/Article/details/455008586503.shtml)
+- 2026-06-29 17:29 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/94083.shtml)
+- 2026-06-29 17:07 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/8847402.shtml)
+- 2026-06-29 17:22 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/193616.shtml)

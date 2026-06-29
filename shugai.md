@@ -1,46 +1,56 @@
-# 老挝人革党中央总书记、国家主席通伦抵达杭州开始访华
+# 13岁女孩被大伯起诉争房产 未检检察官这样守护少年的她
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-老挝人革党中央总书记、国家主席通伦今天(6月2日)抵达浙江杭州，开始对中国进行为期五天的国事访问。 (总台央视记者 赵晶 杨小刚)
+法治在线丨13岁女孩被大伯起诉争房产 未检检察官这样守护少年的她 今年是未成年人检察工作创建40周年。40年前，全国第一个“少年起诉组”在上海诞生，这标志着中国未成年人检察制度正式起步。40年来，未检的职能从单一的刑事案件办理，逐步拓展为覆盖刑事、民事、行政、公益诉讼的"四大检察"综合保护。接下来，我们就从上海一名13岁女孩“小花”的经历说起。两年前，小花面临一场民事官司，因为
 
 ## 正文
 
-老挝人革党中央总书记、国家主席通伦今天(6月2日)抵达浙江杭州，开始对中国进行为期五天的国事访问。
+法治在线丨13岁女孩被大伯起诉争房产 未检检察官这样守护少年的她 今年是未成年人检察工作创建40周年。
 
-(总台央视记者 赵晶 杨小刚)
+40年前，全国第一个“少年起诉组”在上海诞生，这标志着中国未成年人检察制度正式起步。
+
+40年来，未检的职能从单一的刑事案件办理，逐步拓展为覆盖刑事、民事、行政、公益诉讼的"四大检察"综合保护。
+
+接下来，我们就从上海一名13岁女孩“小花”的经历说起。
+
+两年前，小花面临一场民事官司，因为爷爷的遗产继承，她被大伯起诉。
+
+在这桩家事纠纷中，直观体现出未检工作对未成年人权益的全面保障，来看事件的整个经过。
+
+家庭变故连连 13岁女孩又陷居住困境 几年前，小花的父母离异，她跟着父亲和爷爷一起生活。
+
+后来，父亲和爷爷先后去世，母亲的经济条件也不好，小花的生活陷入了困境，而在这时，身在国外的大伯却提出，要收回小花和爷爷此前居住的那套房屋，不让小花住，在协商无果后，双方对簿公堂，当时年仅13岁的小花从未打过官司，于是她来到上海市虹口区未成年人司法保护中心，找到未检检察官求助。
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 17:03 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 17:06 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 17:21 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 17:01 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 17:16 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 17:19 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 16:55 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 17:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 17:19 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 17:16 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 17:22 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 17:07 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 17:13 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 17:08 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 17:02 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 17:26 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 17:13 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 17:00 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 17:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 17:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 17:27 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:55 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/45399091.shtml)
-- 2026-06-29 16:54 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/3163942869.shtml)
-- 2026-06-29 17:18 - [李在镕：计划将光州作为芯片生产基地](http://www.share.kurohicncr.top/Article/details/75519794.shtml)
-- 2026-06-29 16:59 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/45498944.shtml)
-- 2026-06-29 17:19 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/1700543308.shtml)
-- 2026-06-29 17:11 - [美人鱼](https://www.blog.minike.top/Article/details/8297992.shtml)
-- 2026-06-29 17:16 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/10326.shtml)
-- 2026-06-29 17:03 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/705287.shtml)
-- 2026-06-29 17:10 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/255592.shtml)
-- 2026-06-29 16:59 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/16562.shtml)
-- 2026-06-29 17:01 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/3782294.shtml)
-- 2026-06-29 17:09 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/96110374.shtml)
-- 2026-06-29 16:56 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/7330128947.shtml)
-- 2026-06-29 16:55 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.kurohicncr.top/Article/details/64821057.shtml)
-- 2026-06-29 16:54 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/67615833.shtml)
+- 2026-06-29 17:17 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/765502430330.shtml)
+- 2026-06-29 17:00 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/56034100.shtml)
+- 2026-06-29 17:17 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/51418167082.shtml)
+- 2026-06-29 17:08 - [抓特务票房破亿](https://www.share.minike.top/Article/details/066381612943.shtml)
+- 2026-06-29 17:06 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/015591.shtml)
+- 2026-06-29 17:02 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/812230565989.shtml)
+- 2026-06-29 17:08 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/268895701855.shtml)
+- 2026-06-29 17:23 - [四川地震前夕 街头电线上站满燕子](https://www.share.minike.top/Article/details/95573.shtml)
+- 2026-06-29 17:15 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/3765205607.shtml)
+- 2026-06-29 17:29 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/782471.shtml)
+- 2026-06-29 17:02 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/97368705.shtml)
+- 2026-06-29 17:01 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/9172045.shtml)
+- 2026-06-29 17:05 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/581667.shtml)
+- 2026-06-29 17:18 - [世界杯看到肖战了](http://www.share.minike.top/Article/details/1455985729.shtml)
+- 2026-06-29 17:00 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/44412231.shtml)

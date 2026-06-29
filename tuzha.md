@@ -1,47 +1,57 @@
-# 新型水上运动安全指南：落水后别慌 先漂浮再呼救
+# 国家医保局通报用人单位未及时发放生育津贴典型案例
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 10:35 来源：央视新闻 责任编辑：【王祎】
+中新网6月17日电 据国家医保局微信公众号消息，近期，国家医保局通过信访渠道收到“云南省昭通市彝良县人民医院女职工生育津贴申领超一年未发放”的网民留言，立即启动快核快反。经彝良县医保部门核实，留言人为彝良县人民医院职工，正常参加职工基本医疗保险及生育保险，2025年5月19日，彝良县人民医院向彝良县医保局提交留言人的生育津贴报销材料，2025年5月23日，彝良县医保局将留言人的
 
 ## 正文
 
-发布时间：2026年06月02日 10:35 来源：央视新闻 责任编辑：【王祎】
+中新网6月17日电 据国家医保局微信公众号消息，近期，国家医保局通过信访渠道收到“云南省昭通市彝良县人民医院女职工生育津贴申领超一年未发放”的网民留言，立即启动快核快反。
+
+经彝良县医保部门核实，留言人为彝良县人民医院职工，正常参加职工基本医疗保险及生育保险，2025年5月19日，彝良县人民医院向彝良县医保局提交留言人的生育津贴报销材料，2025年5月23日，彝良县医保局将留言人的生育津贴25158.87元全额拨付至彝良县人民医院医保代管资金专户，但医院未及时发放。
+
+同时，核查中发现，彝良县人民医院还存在未及时足额发放其他12人生育津贴问题。
+
+经医保部门督促指导，该院已于2026年4月9日将13人生育津贴共计200672.7元(其中留言人25158.87元)全额发放至职工个人。
+
+为更好维护参保人合法权益，自2025年起，国家医保局支持引导有条件的地方将生育保险生育津贴按程序直接发放给参保人。
+
+截至目前，全国31个省份和新疆生产建设兵团基本实现生育津贴直接发放至个人。
+
+国家医保局提醒，如发现所在单位或企业对生育津贴存在截留克扣、未及时发放等情况，请及时向当地医保部门反映。
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 17:12 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 17:18 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 17:17 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 16:58 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 17:15 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 17:15 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 17:13 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 17:06 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 17:06 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 16:56 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 17:16 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 17:12 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 17:17 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 16:57 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 17:03 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 17:15 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 17:21 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 17:10 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 17:13 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 17:09 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 17:05 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 17:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 17:17 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 17:17 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 17:29 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 17:03 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 17:17 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:57 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.minike.top/Article/details/42777064.shtml)
-- 2026-06-29 17:08 - [范志毅看好日本淘汰巴西](https://www.share.minike.top/Article/details/183594222.shtml)
-- 2026-06-29 17:01 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/56476332827.shtml)
-- 2026-06-29 17:08 - [沙丘](http://www.share.kurohicncr.top/Article/details/67376534325.shtml)
-- 2026-06-29 17:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/2448179.shtml)
-- 2026-06-29 17:09 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/31005289908.shtml)
-- 2026-06-29 17:04 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/94611.shtml)
-- 2026-06-29 17:03 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/4832846567.shtml)
-- 2026-06-29 17:05 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/6174712.shtml)
-- 2026-06-29 17:17 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/38843.shtml)
-- 2026-06-29 17:22 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/13835.shtml)
-- 2026-06-29 17:19 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/1760794799.shtml)
-- 2026-06-29 16:55 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.minike.top/Article/details/24731454.shtml)
-- 2026-06-29 17:18 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/17328.shtml)
-- 2026-06-29 17:09 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/693108149821.shtml)
+- 2026-06-29 17:27 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/35047.shtml)
+- 2026-06-29 17:06 - [7款商保创新药“转道”](https://www.share.minike.top/Article/details/031235.shtml)
+- 2026-06-29 17:04 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/816260.shtml)
+- 2026-06-29 17:22 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/62238322.shtml)
+- 2026-06-29 17:25 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/018454290.shtml)
+- 2026-06-29 17:11 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/966712367249.shtml)
+- 2026-06-29 17:06 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/971306807.shtml)
+- 2026-06-29 17:00 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/4727125913.shtml)
+- 2026-06-29 17:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/336331.shtml)
+- 2026-06-29 17:11 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/6342238.shtml)
+- 2026-06-29 17:22 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/3723471.shtml)
+- 2026-06-29 17:04 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/831236.shtml)
+- 2026-06-29 17:20 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/458528789503.shtml)
+- 2026-06-29 17:17 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/1067819.shtml)
+- 2026-06-29 17:16 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/0558305.shtml)

@@ -1,56 +1,48 @@
-# 挪威海上油气工人拟罢工，8%从业者参与
+# 重口粽子来袭！网友：差点我就戒粽子了
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-挪威油气行业工会数据显示，若国家调解的工资谈判失败，近8%的挪威海上油气工人计划于6月5日起罢工。 代表油气行业参与谈判的挪威海上工业协会发言人表示，目前尚无法评估潜在罢工对油气田产量的影响。 涉及的三家工会共有约8100名从事石油生产的成员。若谈判破裂，其中617人将参与首轮罢工，并可根据情况逐步升级行动。 组织此次罢工的工会包括Styrke、Lederne和Safe。工人们
+发布时间：2026年06月18日 17:11 来源：中国新闻网 端午节临近，各地网友又来整活了！蛤蟆粽、意面蛋包粽、鱼粽子等奇葩粽子纷纷上场。网友笑称，差点我就戒粽子了。(制作 侯诗蕊） 责任编辑：【罗攀】
 
 ## 正文
 
-挪威油气行业工会数据显示，若国家调解的工资谈判失败，近8%的挪威海上油气工人计划于6月5日起罢工。
+发布时间：2026年06月18日 17:11 来源：中国新闻网 端午节临近，各地网友又来整活了！
 
-代表油气行业参与谈判的挪威海上工业协会发言人表示，目前尚无法评估潜在罢工对油气田产量的影响。
+蛤蟆粽、意面蛋包粽、鱼粽子等奇葩粽子纷纷上场。
 
-涉及的三家工会共有约8100名从事石油生产的成员。
+网友笑称，差点我就戒粽子了。
 
-若谈判破裂，其中617人将参与首轮罢工，并可根据情况逐步升级行动。
-
-组织此次罢工的工会包括Styrke、Lederne和Safe。
-
-工人们要求薪资涨幅超过通胀率并对合同进行其他调整，但未透露具体诉求。
-
-挪威油气公司与三家工会的谈判覆盖了该国海上油气设施的大部分工人。
-
-若未能达成协议，可能导致产量削减。
+(制作 侯诗蕊） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 17:07 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 16:59 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 17:18 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 16:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 16:55 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 17:14 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 17:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 17:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 16:57 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 17:20 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 17:21 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 17:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 17:01 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 17:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 17:28 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 17:25 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 17:17 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 17:20 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 17:16 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 17:14 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:10 - [一生一世](https://www.blog.minike.top/Article/details/563336156506.shtml)
-- 2026-06-29 17:17 - [绘画区你赢了](http://www.share.minike.top/Article/details/835897273996.shtml)
-- 2026-06-29 17:05 - [女心理师](http://www.blog.minike.top/Article/details/6671784263.shtml)
-- 2026-06-29 17:08 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/715313741329.shtml)
-- 2026-06-29 17:21 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/293590.shtml)
-- 2026-06-29 17:05 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/47163.shtml)
-- 2026-06-29 17:04 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/313655791402.shtml)
-- 2026-06-29 17:00 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/5636992.shtml)
-- 2026-06-29 17:01 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/06963289.shtml)
-- 2026-06-29 16:57 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.minike.top/Article/details/4493715.shtml)
-- 2026-06-29 17:20 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/19000863326.shtml)
-- 2026-06-29 17:20 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.minike.top/Article/details/455531050.shtml)
-- 2026-06-29 17:20 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/567812079979.shtml)
-- 2026-06-29 17:07 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/79569.shtml)
-- 2026-06-29 17:15 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/6112137062.shtml)
+- 2026-06-29 17:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/07267781.shtml)
+- 2026-06-29 17:10 - [7款商保创新药“转道”](https://www.blog.minike.top/Article/details/445379946.shtml)
+- 2026-06-29 17:01 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/49481336025.shtml)
+- 2026-06-29 17:08 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/310011583.shtml)
+- 2026-06-29 17:09 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/6409036.shtml)
+- 2026-06-29 17:08 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.kurohicncr.top/Article/details/20358914.shtml)
+- 2026-06-29 17:19 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/5539700037.shtml)
+- 2026-06-29 17:22 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/9624101135.shtml)
+- 2026-06-29 17:06 - [王俊凯命名方式](http://www.share.minike.top/Article/details/83590.shtml)
+- 2026-06-29 17:04 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/53666304249.shtml)
+- 2026-06-29 17:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/8624332.shtml)
+- 2026-06-29 17:17 - [T1 KC](http://www.share.kurohicncr.top/Article/details/670991636.shtml)
+- 2026-06-29 17:02 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/14934.shtml)
+- 2026-06-29 17:23 - [啊啊啊](http://www.blog.minike.top/Article/details/272040500.shtml)
+- 2026-06-29 17:22 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/121484539.shtml)

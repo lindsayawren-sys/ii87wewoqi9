@@ -1,48 +1,52 @@
-# 东贝集团：累计回购股份872.20万股
+# 驻欧盟使团发言人就欧盟新一轮对俄制裁新增制裁中方企业答记者问
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-证券日报网讯6月1日，东贝集团发布公告称，2026年5月，公司通过集中竞价交易方式已累计回购股份84.84万股，占公司总股本的比例为0.1365%，购买的最高价为5.90元/股、最低价为5.88元/股，支付的金额为499.9608万元(不含交易费用)。截至2026年5月底，公司已累计回购股份872.20万股，占公司总股本的比例为1.4031%，购买的最高价为7.98元/股、最低
+中新网6月17日电 据中国驻欧盟使团网站消息，驻欧盟使团发言人就欧盟新一轮对俄制裁新增制裁中方企业答记者问。 记者问：6月15日，欧盟公布新一轮对俄罗斯制裁方案，新增制裁4家中方企业。中方对此有何评论？ 发言人称，欧方不顾中方坚决反对和多次严正交涉，在对俄罗斯制裁中新增制裁中方企业，中方对此强烈不满、坚决反对，并再次向欧方提出了严正交涉。 发言人强调，中国在乌克兰危机问题上一贯
 
 ## 正文
 
-证券日报网讯6月1日，东贝集团发布公告称，2026年5月，公司通过集中竞价交易方式已累计回购股份84.84万股，占公司总股本的比例为0.1365%，购买的最高价为5.90元/股、最低价为5.88元/股，支付的金额为499.9608万元(不含交易费用)。
+中新网6月17日电 据中国驻欧盟使团网站消息，驻欧盟使团发言人就欧盟新一轮对俄制裁新增制裁中方企业答记者问。
 
-截至2026年5月底，公司已累计回购股份872.20万股，占公司总股本的比例为1.4031%，购买的最高价为7.98元/股、最低价为5.85元/股，已支付的总金额为5，743.2792万元(不含交易费用)。
+记者问：6月15日，欧盟公布新一轮对俄罗斯制裁方案，新增制裁4家中方企业。
+
+中方对此有何评论？
+
+发言人称，欧方不顾中方坚决反对和多次严正交涉，在对俄罗斯制裁中新增制裁中方企业，中方对此强烈不满、坚决反对，并再次向欧方提出了严正交涉。
+
+发言人强调，中国在乌克兰危机问题上一贯秉持客观公正立场，致力于劝和促谈，为推动政治解决乌克兰危机发挥建设性作用。
+
+中方坚决反对欧方在乌克兰危机问题上对中方甩锅推责、污蔑抹黑，坚决反对没有联合国安理会授权、缺乏国际法依据的非法单边制裁，将采取一切必要措施，坚定维护中方企业正当权益。
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 16:55 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 16:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 17:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 17:16 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 17:07 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 17:20 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 17:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 17:03 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 17:17 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 17:05 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 17:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 17:09 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 17:00 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 17:00 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 17:00 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 17:02 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 17:25 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 17:19 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 17:23 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 17:05 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 17:15 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 17:10 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 17:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:54 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/42015258.shtml)
-- 2026-06-29 17:10 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/97676315.shtml)
-- 2026-06-29 17:02 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/3257227560.shtml)
-- 2026-06-29 17:07 - [抓特务票房破亿](http://www.blog.minike.top/Article/details/57176.shtml)
-- 2026-06-29 17:10 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/144368.shtml)
-- 2026-06-29 17:19 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.minike.top/Article/details/35013312185.shtml)
-- 2026-06-29 17:23 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/50051939.shtml)
-- 2026-06-29 17:08 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/053910391604.shtml)
-- 2026-06-29 17:14 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/87294.shtml)
-- 2026-06-29 17:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/631235898.shtml)
-- 2026-06-29 17:24 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/195526.shtml)
-- 2026-06-29 17:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/537031496195.shtml)
-- 2026-06-29 17:19 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.kurohicncr.top/Article/details/11402858.shtml)
-- 2026-06-29 16:57 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/81593531.shtml)
-- 2026-06-29 16:54 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/06153.shtml)
+- 2026-06-29 17:07 - [机器人学校开学了](http://www.share.kurohicncr.top/Article/details/1278529.shtml)
+- 2026-06-29 17:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/21703472.shtml)
+- 2026-06-29 17:00 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/419459659.shtml)
+- 2026-06-29 17:20 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/33145483.shtml)
+- 2026-06-29 17:17 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/17081826.shtml)
+- 2026-06-29 17:07 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/609073912443.shtml)
+- 2026-06-29 17:10 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/1297988580.shtml)
+- 2026-06-29 17:01 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/150839373.shtml)
+- 2026-06-29 17:05 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/062497.shtml)
+- 2026-06-29 17:15 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.kurohicncr.top/Article/details/959430650985.shtml)
+- 2026-06-29 17:19 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/895096658341.shtml)
+- 2026-06-29 17:03 - [黄金也扛不住了](https://www.share.minike.top/Article/details/52245897685.shtml)
+- 2026-06-29 17:24 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/91766.shtml)
+- 2026-06-29 17:21 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/348584796757.shtml)
+- 2026-06-29 17:17 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/32738548.shtml)

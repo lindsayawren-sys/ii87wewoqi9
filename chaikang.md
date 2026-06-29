@@ -1,60 +1,55 @@
-# 人类首次实现原位“全肝+双肾”联合异种移植
+# 大肠面线、深坑臭豆腐、香葱肉卷……这些台湾小吃亮相北京市集
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新社南宁6月1日电 (张广权 刘海文)广西医科大学第二附属医院6月1日介绍，该院移植医学研究所孙煦勇团队成功将猪的完整肝脏和双肾同时移植到同一人体内。这是人类首次成功实现原位“全肝+双肾”基因编辑猪到人的异种移植。受体为一名53岁脑死亡男性，经家属同意手术。供体器官来自广西巴马基因编辑猪，因其脏器尺寸、解剖结构与关键生理代谢指标和人类高度相似，被认为是当前最具临床转化应用的异
+发布时间：2026年06月17日 17:10 来源：中国新闻网 “美丽乡村·洽洽GO”六月市集6月16日在北京开市，三十多家台湾小吃摊集中亮相。现场既有大肠包小肠、蚵仔煎、大肠面线等传统小吃，也有香葱肉卷等“新式创造”。 来自桃园市的摊主徐惠美带着徒弟姚坤廷一同出摊，一人卖面线，一人卖铜锣烧和鸡蛋仔。徐惠美介绍了加入“山珍海味”的大肠面线，她希望更多台湾青年能来大陆看看，“大陆
 
 ## 正文
 
-中新社南宁6月1日电 (张广权 刘海文)广西医科大学第二附属医院6月1日介绍，该院移植医学研究所孙煦勇团队成功将猪的完整肝脏和双肾同时移植到同一人体内。
+发布时间：2026年06月17日 17:10 来源：中国新闻网 “美丽乡村·洽洽GO”六月市集6月16日在北京开市，三十多家台湾小吃摊集中亮相。
 
-这是人类首次成功实现原位“全肝+双肾”基因编辑猪到人的异种移植。
+现场既有大肠包小肠、蚵仔煎、大肠面线等传统小吃，也有香葱肉卷等“新式创造”。
 
-受体为一名53岁脑死亡男性，经家属同意手术。
+来自桃园市的摊主徐惠美带着徒弟姚坤廷一同出摊，一人卖面线，一人卖铜锣烧和鸡蛋仔。
 
-供体器官来自广西巴马基因编辑猪，因其脏器尺寸、解剖结构与关键生理代谢指标和人类高度相似，被认为是当前最具临床转化应用的异种器官供体之一。
+徐惠美介绍了加入“山珍海味”的大肠面线，她希望更多台湾青年能来大陆看看，“大陆市场很大，创业机会也比较多”。
 
-为避免超急性排斥反应，研究人员对供体猪的6个基因进行了编辑：敲除3个易引发免疫排斥的猪基因，同时转入3个人类基因，以改善凝血和免疫相容性。
-
-手术采用“原位肝肾联合移植孙氏术式”，通过单一切口，同期完成肝脏与双侧肾脏的原位替换。
-
-移植后不到24小时，猪肝已分泌胆汁，两枚猪肾也开始工作，受体的血肌酐水平逐渐恢复正常。
-
-该研究团队称，这项研究首次证明基因编辑猪的多个器官能够在人体内同时发挥功能，标志着多器官异种移植进入实质性临床探索阶段，为解决器官短缺问题迈出关键一步。
+(姜姿屹 张杨彬 制作 王佳琪） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 16:58 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 17:01 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 17:21 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 17:01 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 17:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 17:12 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 17:01 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-29 17:14 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 17:12 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 17:17 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 17:13 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 17:00 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 17:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 17:21 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 17:23 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 17:23 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 17:07 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 17:11 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 17:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 17:00 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 17:10 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 17:14 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 17:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 17:28 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 17:02 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 17:18 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 17:14 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 17:25 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:22 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/044837188532.shtml)
-- 2026-06-29 17:15 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/60558949.shtml)
-- 2026-06-29 17:12 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/055393.shtml)
-- 2026-06-29 17:08 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/8445870.shtml)
-- 2026-06-29 17:11 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/06265823.shtml)
-- 2026-06-29 17:02 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.kurohicncr.top/Article/details/21355.shtml)
-- 2026-06-29 17:01 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/96846227.shtml)
-- 2026-06-29 17:13 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/808784.shtml)
-- 2026-06-29 17:15 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/361434787591.shtml)
-- 2026-06-29 17:05 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/684996318.shtml)
-- 2026-06-29 17:21 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/346191.shtml)
-- 2026-06-29 17:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/35195.shtml)
-- 2026-06-29 17:15 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/33031.shtml)
-- 2026-06-29 16:55 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/99501837561.shtml)
-- 2026-06-29 17:23 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/454905.shtml)
+- 2026-06-29 17:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/1862051423.shtml)
+- 2026-06-29 17:06 - [未成年少女长期吸毒导致卧床不起](http://www.blog.minike.top/Article/details/480691.shtml)
+- 2026-06-29 17:25 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/75703208984.shtml)
+- 2026-06-29 17:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/61481869891.shtml)
+- 2026-06-29 17:04 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/42231317.shtml)
+- 2026-06-29 17:23 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/07072500772.shtml)
+- 2026-06-29 17:27 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/13836.shtml)
+- 2026-06-29 17:26 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/012353562.shtml)
+- 2026-06-29 17:19 - [《贺子珍》](https://www.blog.minike.top/Article/details/99204466443.shtml)
+- 2026-06-29 17:24 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/288963.shtml)
+- 2026-06-29 17:22 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/2601355567.shtml)
+- 2026-06-29 17:02 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/7855648.shtml)
+- 2026-06-29 17:19 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/860882681595.shtml)
+- 2026-06-29 17:27 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/5914700777.shtml)
+- 2026-06-29 17:16 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/531525382.shtml)

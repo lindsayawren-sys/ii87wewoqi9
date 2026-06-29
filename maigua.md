@@ -1,58 +1,56 @@
-# 国家统计局：中国经济总量接近世界第三至第七大经济体之和
+# 密集公告！PCB、电子布牛股，股价重挫
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新社北京6月2日电 (记者 王恩博)中国国家统计局2日公布的“十四五”经济社会发展成就系列报告表示，中国经济总量已接近世界第三至第七大经济体总量之和，过去5年中国是世界经济增长的最大“贡献者”和最强“稳定锚”。根据报告，“十四五”时期，中国国内生产总值(GDP)实现“四连跳”，先后迈上110万亿元(人民币，下同)、120万亿元、130万亿元、140万亿元的新台阶，累计增量超过
+专题：市场虽有短期反复，但中长期向上趋势未改 今天早盘，多只来自PCB（印制电路板）、玻璃基板、MLCC（多层陶瓷电容器）、电子布等板块的大牛股集合竞价大跌，凌玮科技集合竞价一度跌超8%。截至9：57，山东玻纤跌停，旗滨集团、泰坦股份等个股大跌。 图片来源：同花顺 Wind数据显示，6月17日晚（截至23点），77家A股上市公司发布股票交易异常波动或股票交易风险提示公告。 具体
 
 ## 正文
 
-中新社北京6月2日电 (记者 王恩博)中国国家统计局2日公布的“十四五”经济社会发展成就系列报告表示，中国经济总量已接近世界第三至第七大经济体总量之和，过去5年中国是世界经济增长的最大“贡献者”和最强“稳定锚”。
+专题：市场虽有短期反复，但中长期向上趋势未改 今天早盘，多只来自PCB（印制电路板）、玻璃基板、MLCC（多层陶瓷电容器）、电子布等板块的大牛股集合竞价大跌，凌玮科技集合竞价一度跌超8%。
 
-根据报告，“十四五”时期，中国国内生产总值(GDP)实现“四连跳”，先后迈上110万亿元(人民币，下同)、120万亿元、130万亿元、140万亿元的新台阶，累计增量超过36万亿元，相当于世界第三大经济体一年的经济总量。
+截至9：57，山东玻纤跌停，旗滨集团、泰坦股份等个股大跌。
 
-2025年，中国经济总量达140.2万亿元，接近世界第三至第七大经济体总量之和。
+图片来源：同花顺 Wind数据显示，6月17日晚（截至23点），77家A股上市公司发布股票交易异常波动或股票交易风险提示公告。
 
-从增速看，“十四五”时期，中国经济年均增长5.4%，明显高于全球3.7%左右的增长水平，在世界主要经济体中位居前列。
+具体看，宏和科技公告称，公司经营业绩受宏观经济周期、产业政策、下游应用领域需求波动、竞争格局、原材料价格波动、产能扩建进展等多方面因素的影响，且电子布行业持续在进行技术的更新迭代，公司需持续保持产品的核心竞争力并满足客户需求，若下游应用领域需求增长放缓或公司产品竞争力不及预期，公司可能会出现销售增幅放缓、市场份额提升不及预期的情形；公司目前正在积极进行产能扩建以满足客户需求，但若产线建设进度及产能释放不及预期，则会对公司盈利能力的提升产生不利影响。
 
-中国人均GDP从2020年的10632美元升至2025年的13953美元，连续3年超过1.3万美元。
+公告还表示，公司子公司黄石宏和电子材料科技有限公司（简称“黄石子公司”）产线扩建、产能投放以及最终实施落地需要时间，并且产能建设需要投入较大的资金，实际产线扩建、产能投放节奏以及最终是否可以实施落地仍存在较大的不确定性。
 
-报告援引世界银行的数据称，2021年中国人均国民总收入(GNI)为12220美元，首次超过世界平均水平，较世界平均水平高25.9美元。
+且黄石子公司扩产计划与公司本次发行H股并上市的进度、银行融资等资本需求相关，前述融资事项的申请及审批进度及最终是否可以实施仍存在较大的不确定性，敬请各位投资者注意公司扩产及落地风险。
 
-2024年中国人均GNI达13660美元，较2020年增长27.2%。
+山东玻纤公告称，公司股价短期涨幅较大，显著高于上证指数涨幅，存在市场情绪过热、非理性炒作风险，后续可能存在快速下跌的风险。
 
-在世界银行公布的人均GNI排名中，2024年中国排名第76位(共计201个经济体)，跃居中等偏上收入国家首位。
+当前公司生产经营正常，公司暂没有电子布产品，敬请广大投资者注意投资风险。
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 17:19 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 17:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 17:17 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 17:21 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 17:15 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 16:56 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 16:54 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 17:11 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 17:06 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 17:00 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 16:58 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 17:02 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 17:28 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 17:08 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 17:29 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 17:05 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 17:03 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 17:03 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 17:26 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 17:15 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 17:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:03 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/017817043353.shtml)
-- 2026-06-29 17:15 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/451446373960.shtml)
-- 2026-06-29 16:55 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/816660.shtml)
-- 2026-06-29 17:03 - [急先锋](http://www.share.minike.top/Article/details/63509557009.shtml)
-- 2026-06-29 17:19 - [周生如故](https://www.blog.kurohicncr.top/Article/details/49668.shtml)
-- 2026-06-29 17:19 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/06893955.shtml)
-- 2026-06-29 17:12 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/93626.shtml)
-- 2026-06-29 17:08 - [请回答王牌2019](https://www.blog.minike.top/Article/details/5424029822.shtml)
-- 2026-06-29 16:58 - [花万元相亲对象是50元雇的演员](http://www.blog.minike.top/Article/details/51303.shtml)
-- 2026-06-29 17:18 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/13634.shtml)
-- 2026-06-29 17:20 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/986648.shtml)
-- 2026-06-29 16:54 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/92434705896.shtml)
-- 2026-06-29 17:02 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/66072049891.shtml)
-- 2026-06-29 16:59 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/361553674269.shtml)
-- 2026-06-29 17:08 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/561746077.shtml)
+- 2026-06-29 17:22 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/24458616102.shtml)
+- 2026-06-29 17:02 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/40697922.shtml)
+- 2026-06-29 17:22 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/8498840160.shtml)
+- 2026-06-29 17:27 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/08608907.shtml)
+- 2026-06-29 17:09 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/951942.shtml)
+- 2026-06-29 17:04 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/831396535.shtml)
+- 2026-06-29 17:01 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/725027612.shtml)
+- 2026-06-29 17:28 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/0852315.shtml)
+- 2026-06-29 17:17 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/150500307.shtml)
+- 2026-06-29 17:02 - [网友飞机上偶遇肖战](http://www.blog.minike.top/Article/details/0642340.shtml)
+- 2026-06-29 17:10 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/56007787.shtml)
+- 2026-06-29 17:10 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/701122.shtml)
+- 2026-06-29 17:29 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/882114246137.shtml)
+- 2026-06-29 17:26 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/5617679843.shtml)
+- 2026-06-29 17:22 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/5781361.shtml)

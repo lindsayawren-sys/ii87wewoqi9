@@ -1,57 +1,49 @@
-# 高通CEO安蒙：AI词元需求至2030年将增长40倍
+# 中通快递-W于6月17日耗资约499.55万美元回购约22.32万股
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-高通公司股价周一尾盘下跌逾7%，但CEO克里斯蒂亚诺·安蒙在Computex 2026开幕主题演讲中释放的AI增长预期，为市场提供了中长期乐观指引。安蒙预测，到2030年，AI词元生成量将从当前的317亿个/10秒跃升至约1.27万亿个/10秒，增幅近40倍。 安蒙在演讲中明确将2026年定义为“智能体之年”，标志着AI从被动响应指令的工具，进化为能够自主规划、推理和执行任务的
+中通快递-W（02057）公布，2026年6月17日耗资约499.55万美元回购约22.32万股股份。责任编辑：卢昱君
 
 ## 正文
 
-高通公司股价周一尾盘下跌逾7%，但CEO克里斯蒂亚诺·安蒙在Computex 2026开幕主题演讲中释放的AI增长预期，为市场提供了中长期乐观指引。
+中通快递-W（02057）公布，2026年6月17日耗资约499.55万美元回购约22.32万股股份。
 
-安蒙预测，到2030年，AI词元生成量将从当前的317亿个/10秒跃升至约1.27万亿个/10秒，增幅近40倍。
-
-安蒙在演讲中明确将2026年定义为“智能体之年”，标志着AI从被动响应指令的工具，进化为能够自主规划、推理和执行任务的智能伙伴。
-
-安蒙指出：“今天的设备并不是为智能体设计的。
-
-现有设备大多是围绕‘用户主动操作’设计的，当使用者与AI智能体同时操作同一台设备时，功耗与延迟会成为更大的工程挑战。
-
-” 他强调，智能体需要持续在后台运行，保留上下文，跨多个系统协调任务，并以机器速度与软件交互。
-
-这将对CPU、NPU和GPU的协同设计提出全新要求——高通在移动领域积累的低功耗计算能力，正成为其在智能体时代最核心的优势。
-
-面对AI词元需求的指数级增长，安蒙提出“计算连续体”战略，即构建覆盖从耳机内不足2毫瓦连接到数据中心千瓦级系统的完整算力光谱。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 17:00 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 17:01 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 17:21 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 16:58 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 17:00 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 16:56 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 17:08 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 17:06 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 17:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 17:20 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 17:20 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 17:13 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 17:12 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 17:17 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 17:03 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 17:11 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 17:18 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 17:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 17:08 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 17:01 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 17:04 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 17:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 17:26 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 17:29 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 17:25 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:57 - [当我回母校教书](https://www.share.minike.top/Article/details/53093885.shtml)
-- 2026-06-29 17:12 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/0210349.shtml)
-- 2026-06-29 17:11 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/93684783545.shtml)
-- 2026-06-29 17:22 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/38585.shtml)
-- 2026-06-29 17:08 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/37054.shtml)
-- 2026-06-29 17:03 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/93260525.shtml)
-- 2026-06-29 17:11 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/781110939265.shtml)
-- 2026-06-29 17:15 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/116738944658.shtml)
-- 2026-06-29 17:04 - [爱很美味](https://www.share.kurohicncr.top/Article/details/00858164.shtml)
-- 2026-06-29 17:23 - [重度抑郁女孩没钱去做心理咨询](https://www.share.kurohicncr.top/Article/details/33168.shtml)
-- 2026-06-29 17:19 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/0889781.shtml)
-- 2026-06-29 17:12 - [7款商保创新药“转道”](https://www.blog.minike.top/Article/details/5977520.shtml)
-- 2026-06-29 17:05 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.minike.top/Article/details/82796873.shtml)
-- 2026-06-29 17:07 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/316241533798.shtml)
-- 2026-06-29 17:16 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/289158089.shtml)
+- 2026-06-29 17:27 - [美人鱼](https://www.share.kurohicncr.top/Article/details/54390482590.shtml)
+- 2026-06-29 17:10 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/42189393544.shtml)
+- 2026-06-29 17:11 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/9255259.shtml)
+- 2026-06-29 17:27 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/78878911165.shtml)
+- 2026-06-29 17:28 - [中国空间站为什么要升级扩容](http://www.share.minike.top/Article/details/327993355.shtml)
+- 2026-06-29 17:06 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/373234.shtml)
+- 2026-06-29 17:27 - [天价门票抬高美加墨世界杯观赛门槛](http://www.share.kurohicncr.top/Article/details/71011.shtml)
+- 2026-06-29 17:26 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/97665383986.shtml)
+- 2026-06-29 17:29 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/0237023174.shtml)
+- 2026-06-29 17:02 - [范志毅看好日本淘汰巴西](https://www.blog.kurohicncr.top/Article/details/956945.shtml)
+- 2026-06-29 17:00 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/7509870122.shtml)
+- 2026-06-29 17:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/11734192473.shtml)
+- 2026-06-29 17:12 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/46903.shtml)
+- 2026-06-29 17:01 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/17288402436.shtml)
+- 2026-06-29 17:22 - [普京承认俄出现燃料危机](https://www.blog.minike.top/Article/details/952830.shtml)

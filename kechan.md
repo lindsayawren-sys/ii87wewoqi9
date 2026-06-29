@@ -1,59 +1,57 @@
-# 宇树科技回应联手英伟达：H2 Plus人形机器人下半年上市
+# 散户热情降温，SpaceX上市后的历史性涨势正失去部分动能
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新社杭州6月2日电 (郭其钰)英伟达与宇树科技联合发布新一代人形机器人参考设计H2 Plus(下称“H2 Plus”)，宇树科技市场部总监黄嘉玮2日接受中新社等媒体采访时透露，该产品将于今年下半年正式上市，其核心特点是搭载了英伟达高性能算力平台，旨在为人形机器人打造更强大的“智能大脑”。 黄嘉玮表示，宇树科技与英伟达6月1日联合推出H2 Plus，这款产品最显著的提升在于算力
+SpaceX现跌近4%。此前三天则经历了一轮惊人的大涨，在前三个交易日内，股价被推高至较其IPO发行价高出近50%的水平。 该股股价开始下跌，或许是因为散户狂热的需求浪潮终于开始消退。此前，普通交易员争相买入这家火箭公司股票的买单热潮堪称史无前例。 在过去三个交易日里，散户买进的SpaceX股票数量，与他们买进的英伟达、Alphabet、亚马逊、微软、Meta、景顺QQQ Tr
 
 ## 正文
 
-中新社杭州6月2日电 (郭其钰)英伟达与宇树科技联合发布新一代人形机器人参考设计H2 Plus(下称“H2 Plus”)，宇树科技市场部总监黄嘉玮2日接受中新社等媒体采访时透露，该产品将于今年下半年正式上市，其核心特点是搭载了英伟达高性能算力平台，旨在为人形机器人打造更强大的“智能大脑”。
+SpaceX现跌近4%。
 
-黄嘉玮表示，宇树科技与英伟达6月1日联合推出H2 Plus，这款产品最显著的提升在于算力性能。
+此前三天则经历了一轮惊人的大涨，在前三个交易日内，股价被推高至较其IPO发行价高出近50%的水平。
 
-宇树科技官网介绍，H2 Plus在设计上结合了宇树H2人形机器人、用于灵巧操作的Sharpa五指手、用于先进推理与控制的NVIDIA Jetson Thor平台，以及全新的NVIDIA Isaac GR00T开发平台。
+该股股价开始下跌，或许是因为散户狂热的需求浪潮终于开始消退。
 
-其中NVIDIA Isaac GR00T开发平台由英伟达开发推出，该平台涵盖从数据采集与生成到机器人模型评估与部署的完整流程，助力开发者加速人形机器人开发工作流程。
+此前，普通交易员争相买入这家火箭公司股票的买单热潮堪称史无前例。
 
-“基于英伟达的算力平台，我们希望推动人形机器人整个行业进步。
+在过去三个交易日里，散户买进的SpaceX股票数量，与他们买进的英伟达、Alphabet、亚马逊、微软、Meta、景顺QQQ Trust交易所交易基金以及道富SPDR标普500指数ETF的合计数量大致相当。
 
-”黄嘉玮表示，宇树科技期待相关数据能真正应用于未来算力平台的迭代，从而让人形机器人的“智能大脑”更加智能，这也是该企业持续发力的方向。
+Vanda的分析师写道：“我们已经找不到足够的溢美之词来形容散户对SpaceX的热情了。
 
-宇树科技创始人兼首席执行官王兴兴对此表示，H2 Plus将宇树的人形机器人与NVIDIA Jetson Thor和NVIDIA Isaac GR00T开发平台相结合，为团队提供了一个经过验证的起点，用于开发机器人技能并将其应用于实际场景。
+” 经历今天的行情后，SpaceX的市值已回落至亚马逊之下。
 
-英伟达首席执行官黄仁勋6月1日在GTC台北大会上宣布与宇树科技合作。
+该公司目前是美国第六大上市公司。
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 17:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 17:18 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 17:22 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 17:04 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 17:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 16:54 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 16:57 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 17:12 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 17:10 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 17:06 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 17:17 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 17:06 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 17:16 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 17:17 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 17:05 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 17:05 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 17:02 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 17:11 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 17:10 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 17:08 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 17:00 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 17:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 17:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:05 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/6887995.shtml)
-- 2026-06-29 17:01 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.kurohicncr.top/Article/details/452922.shtml)
-- 2026-06-29 17:17 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/99363436.shtml)
-- 2026-06-29 16:59 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/44850062.shtml)
-- 2026-06-29 17:12 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/7309579.shtml)
-- 2026-06-29 17:03 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/72999012877.shtml)
-- 2026-06-29 17:10 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/6345370987.shtml)
-- 2026-06-29 17:18 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/008206.shtml)
-- 2026-06-29 16:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/318254040.shtml)
-- 2026-06-29 17:01 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/2807801.shtml)
-- 2026-06-29 17:01 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/98253.shtml)
-- 2026-06-29 16:58 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.kurohicncr.top/Article/details/75799.shtml)
-- 2026-06-29 16:58 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/57237326214.shtml)
-- 2026-06-29 17:05 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/65903678302.shtml)
-- 2026-06-29 17:17 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/73531995814.shtml)
+- 2026-06-29 17:22 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/07966569226.shtml)
+- 2026-06-29 17:15 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/25706837.shtml)
+- 2026-06-29 17:21 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/83937712398.shtml)
+- 2026-06-29 17:23 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/38267640744.shtml)
+- 2026-06-29 17:26 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/041460216.shtml)
+- 2026-06-29 17:29 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/6394289.shtml)
+- 2026-06-29 17:01 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/198210887.shtml)
+- 2026-06-29 17:05 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/38442096009.shtml)
+- 2026-06-29 17:05 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/1780024.shtml)
+- 2026-06-29 17:23 - [撒旦的腋窝是什么比喻](https://www.share.kurohicncr.top/Article/details/16044983521.shtml)
+- 2026-06-29 17:06 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/82787978947.shtml)
+- 2026-06-29 17:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/93383507812.shtml)
+- 2026-06-29 17:20 - [倪春青跨市履新苏州市委组织部部长](http://www.share.minike.top/Article/details/03024658.shtml)
+- 2026-06-29 17:24 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/302012927222.shtml)
+- 2026-06-29 17:02 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/1756612569.shtml)

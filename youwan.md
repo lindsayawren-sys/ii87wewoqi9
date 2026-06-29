@@ -1,61 +1,58 @@
-# 中国著名飞机空气动力学家顾诵芬逝世 享年96岁
+# 熊猫中心2026年首对双胞胎大熊猫幼崽诞生
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新社沈阳6月1日电 航空工业沈阳所6月1日发布讣告称，中国科学院院士、中国工程院院士、中国著名飞机空气动力学家顾诵芬，因病医治无效，于5月31日在北京逝世，享年96岁。 顾诵芬1930年2月出生于江苏苏州。他曾任航空工业沈阳飞机设计研究所所长，中国航空工业集团公司科学技术委员会副主任、高级顾问，中国航空研究院副院长、名誉院长。1991年当选中国科学院院士(学部委员)、1994
+中新网6月18日电 据中国大熊猫保护研究中心微信公众号消息，6月10日上午，熊猫中心大熊猫“芊芊”在雅安基地产下双胞胎幼崽，这是今年熊猫中心圈养大熊猫种群产下的首对双胞胎大熊猫幼崽。 “双胞胎幼崽均为雄性，目前发育良好，眼睛、耳朵、四肢、肩带开始变黑，叫声洪亮，经检查身体健康。其中一只幼崽由熊猫母兽哺育，另一只幼崽由人工育幼团队照顾，两只幼崽将轮流交换到母亲身边。大熊猫生单胎和
 
 ## 正文
 
-中新社沈阳6月1日电 航空工业沈阳所6月1日发布讣告称，中国科学院院士、中国工程院院士、中国著名飞机空气动力学家顾诵芬，因病医治无效，于5月31日在北京逝世，享年96岁。
+中新网6月18日电 据中国大熊猫保护研究中心微信公众号消息，6月10日上午，熊猫中心大熊猫“芊芊”在雅安基地产下双胞胎幼崽，这是今年熊猫中心圈养大熊猫种群产下的首对双胞胎大熊猫幼崽。
 
-顾诵芬1930年2月出生于江苏苏州。
+“双胞胎幼崽均为雄性，目前发育良好，眼睛、耳朵、四肢、肩带开始变黑，叫声洪亮，经检查身体健康。
 
-他曾任航空工业沈阳飞机设计研究所所长，中国航空工业集团公司科学技术委员会副主任、高级顾问，中国航空研究院副院长、名誉院长。
+其中一只幼崽由熊猫母兽哺育，另一只幼崽由人工育幼团队照顾，两只幼崽将轮流交换到母亲身边。
 
-1991年当选中国科学院院士(学部委员)、1994年当选中国工程院院士。
+大熊猫生单胎和双胞胎的概率各占约50%。
 
-讣告称，顾诵芬始终致力于推动中国航空科技事业的发展，创新设计多型飞机气动布局，建立新中国飞机空气动力学设计体系。
+在生单胎的情况下，通常由母兽独立照顾幼崽；而在生双胞胎的情况下，为最大限度保障幼崽的成活与健康成长，我们采取‘母兽哺育一只、人工育幼一只’的饲养方式。
 
-他主持研制的歼8、歼8II超声速歼击机，开创中国自主研制歼击机的先河。
+长期监测数据显示，大熊猫母兽同时哺育两只幼崽并都成活的案例极低。
 
-他建立了中国歼击机研制体系，为航空武器装备跨代升级发展作出巨大贡献。
+”熊猫中心雅安基地副主任李果6月18日介绍道。
 
-他培养了大批院士、专家等领军人才，极大地支撑了中国航空武器装备型号研制。
+大熊猫“芊芊”出生于2006年9月11日，今年2月上旬在熊猫中心卧龙神树坪基地完成自然交配，当月底转移至雅安基地。
 
 ## 相关推荐
 
-- 2026-06-29 17:11 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 17:01 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 17:15 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 17:23 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 17:22 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 17:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 17:19 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 16:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 17:07 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 17:07 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 17:17 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 17:10 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 17:09 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 17:13 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 17:06 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 17:14 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 17:25 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 17:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 17:11 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 17:06 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 17:06 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 17:24 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 17:16 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 17:17 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 17:00 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 17:18 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 17:23 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:55 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/62577525769.shtml)
-- 2026-06-29 16:57 - [王楚钦首轮赢下国乒德比](http://www.share.minike.top/Article/details/35803732229.shtml)
-- 2026-06-29 17:12 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/94896.shtml)
-- 2026-06-29 17:06 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/2416063594.shtml)
-- 2026-06-29 16:54 - [范志毅看好日本淘汰巴西](https://www.share.kurohicncr.top/Article/details/72152039635.shtml)
-- 2026-06-29 17:21 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.minike.top/Article/details/551493681330.shtml)
-- 2026-06-29 17:19 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/930863.shtml)
-- 2026-06-29 17:22 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/3720776.shtml)
-- 2026-06-29 17:05 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/2511572.shtml)
-- 2026-06-29 17:20 - [12所大学更正招生目录](https://www.share.kurohicncr.top/Article/details/07696107472.shtml)
-- 2026-06-29 17:09 - [花万元相亲对象是50元雇的演员](https://www.blog.kurohicncr.top/Article/details/558460218.shtml)
-- 2026-06-29 16:58 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/929055849.shtml)
-- 2026-06-29 16:54 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/336166754399.shtml)
-- 2026-06-29 17:17 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/4506929.shtml)
-- 2026-06-29 17:01 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/5413894.shtml)
+- 2026-06-29 17:09 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/68367816525.shtml)
+- 2026-06-29 17:02 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/9740934894.shtml)
+- 2026-06-29 17:27 - [AG 宫斗](https://www.blog.minike.top/Article/details/315507.shtml)
+- 2026-06-29 17:14 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/4965022.shtml)
+- 2026-06-29 17:27 - [美国大满贯首日国乒主力均取胜](https://www.share.kurohicncr.top/Article/details/294695348.shtml)
+- 2026-06-29 17:17 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/147256938698.shtml)
+- 2026-06-29 17:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/895354837.shtml)
+- 2026-06-29 17:11 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/19509991.shtml)
+- 2026-06-29 17:10 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/00544406.shtml)
+- 2026-06-29 17:26 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/32840196.shtml)
+- 2026-06-29 17:14 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/9575547212.shtml)
+- 2026-06-29 17:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/09221751.shtml)
+- 2026-06-29 17:00 - [抓特务票房破亿](http://www.share.kurohicncr.top/Article/details/622518294.shtml)
+- 2026-06-29 17:24 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/52975741.shtml)
+- 2026-06-29 17:18 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.kurohicncr.top/Article/details/84101.shtml)

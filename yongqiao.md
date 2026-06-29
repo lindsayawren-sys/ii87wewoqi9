@@ -1,44 +1,60 @@
-# 英首相称英最大铁路运营商收归国有
+# 英国5月通胀率意外持稳于2.8% 支持央行采取观望策略
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 10:41 来源：央视综合 责任编辑：【王祎】
+英国5月通胀率出人意料地保持稳定，表明即使在美伊达成和平协议推动能源价格大跌之前，价格压力就已比担心的要小。 英国国家统计局周三公布，消费者价格指数（CPI）同比上涨2.8%，涨幅与4月持平，低于经济学家预期的3%。 统计局表示，食品和非酒精饮料价格抑制了整体通胀。不过服务业通胀攀升至3.7%，高于预期。 这些数据似乎支持英国央行部分决策者所倾向的观望策略，该行本周将召开政策会
 
 ## 正文
 
-发布时间：2026年06月02日 10:41 来源：央视综合 责任编辑：【王祎】
+英国5月通胀率出人意料地保持稳定，表明即使在美伊达成和平协议推动能源价格大跌之前，价格压力就已比担心的要小。
+
+英国国家统计局周三公布，消费者价格指数（CPI）同比上涨2.8%，涨幅与4月持平，低于经济学家预期的3%。
+
+统计局表示，食品和非酒精饮料价格抑制了整体通胀。
+
+不过服务业通胀攀升至3.7%，高于预期。
+
+这些数据似乎支持英国央行部分决策者所倾向的观望策略，该行本周将召开政策会议。
+
+市场预期英国央行周四将维持利率在3.75%不变，中东冲突结束及霍尔木兹海峡重开的前景令交易员开始质疑是否还有必要加息。
+
+目前市场预期只会加息一次。
+
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 17:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 17:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 17:00 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 17:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 17:09 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 16:57 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 17:12 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 17:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 17:17 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 16:54 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 16:55 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 17:17 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 17:17 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 17:14 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 17:23 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 17:12 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 17:10 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 17:27 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 17:16 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 17:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 17:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 17:17 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 17:19 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 17:13 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 17:02 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 17:00 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:18 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/506533.shtml)
-- 2026-06-29 17:00 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/261918189736.shtml)
-- 2026-06-29 17:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/2978025.shtml)
-- 2026-06-29 16:58 - [广东一地发现极危植物新物种](https://www.share.kurohicncr.top/Article/details/529563.shtml)
-- 2026-06-29 17:19 - [广东一地发现极危植物新物种](http://www.share.kurohicncr.top/Article/details/089407283.shtml)
-- 2026-06-29 17:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/28883705336.shtml)
-- 2026-06-29 17:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/8526751.shtml)
-- 2026-06-29 17:19 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/298573.shtml)
-- 2026-06-29 17:04 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/11945697697.shtml)
-- 2026-06-29 17:22 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/891570.shtml)
-- 2026-06-29 16:58 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/66117.shtml)
-- 2026-06-29 16:59 - [葛军谈AI时代理科生出路](https://www.share.minike.top/Article/details/5420487513.shtml)
-- 2026-06-29 17:18 - [世界杯1/16决赛对阵出炉](https://www.blog.kurohicncr.top/Article/details/4753369064.shtml)
-- 2026-06-29 17:20 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/071847356.shtml)
-- 2026-06-29 17:05 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/32340892.shtml)
+- 2026-06-29 17:28 - [急先锋](http://www.blog.minike.top/Article/details/169700015.shtml)
+- 2026-06-29 17:15 - [爱很美味](https://www.blog.minike.top/Article/details/385194796.shtml)
+- 2026-06-29 17:16 - [王曼昱被突如其来的话筒逗笑了](https://www.share.minike.top/Article/details/3804960343.shtml)
+- 2026-06-29 17:06 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/25362504.shtml)
+- 2026-06-29 17:03 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/27138729.shtml)
+- 2026-06-29 17:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/5314167.shtml)
+- 2026-06-29 17:15 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/195616.shtml)
+- 2026-06-29 17:26 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/0527754.shtml)
+- 2026-06-29 17:07 - [抓特务票房破亿](https://www.share.minike.top/Article/details/30300388.shtml)
+- 2026-06-29 17:24 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/66865438.shtml)
+- 2026-06-29 17:00 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/7156744.shtml)
+- 2026-06-29 17:20 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/714933545898.shtml)
+- 2026-06-29 17:25 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/0036787500.shtml)
+- 2026-06-29 17:00 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/86911933.shtml)
+- 2026-06-29 17:24 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/648183378.shtml)

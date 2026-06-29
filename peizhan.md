@@ -1,56 +1,44 @@
-# 陈文清访问哈萨克斯坦
+# 直击武警抗洪抢险实战化演练
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-新华社阿斯塔纳6月1日电(记者张继业)中共中央政治局委员、中央政法委书记陈文清5月29日至6月1日访问哈萨克斯坦。访问期间，陈文清分别会见哈萨克斯坦安全会议秘书努尔达乌列托夫和阿拉木图市长萨特巴尔德等。 陈文清表示，在习近平主席和托卡耶夫总统的战略引领下，中哈两国政治互信持续深化，各领域交往合作日益密切，高质量共建“一带一路”取得丰硕成果，中哈关系不断实现跨越式发展。中哈两国是
+发布时间：2026年06月17日 16:47 来源：中国新闻网 近日，武警广西总队北海支队在驻地水域组织抗洪抢险实战化演练，旨在提升部队应急响应与协同能力，为下步遂行防汛任务提供有力支撑。(作者：周巡、熊阳光、刘坚） 责任编辑：【魏聪聪】
 
 ## 正文
 
-新华社阿斯塔纳6月1日电(记者张继业)中共中央政治局委员、中央政法委书记陈文清5月29日至6月1日访问哈萨克斯坦。
+发布时间：2026年06月17日 16:47 来源：中国新闻网 近日，武警广西总队北海支队在驻地水域组织抗洪抢险实战化演练，旨在提升部队应急响应与协同能力，为下步遂行防汛任务提供有力支撑。
 
-访问期间，陈文清分别会见哈萨克斯坦安全会议秘书努尔达乌列托夫和阿拉木图市长萨特巴尔德等。
-
-陈文清表示，在习近平主席和托卡耶夫总统的战略引领下，中哈两国政治互信持续深化，各领域交往合作日益密切，高质量共建“一带一路”取得丰硕成果，中哈关系不断实现跨越式发展。
-
-中哈两国是山水相连的友好邻邦、唇齿相依的永久全面战略伙伴，都处在各自发展振兴的关键阶段。
-
-中方愿与哈方齐心协力全方位推进执法安全合作，维护两国和平安宁，以多元化人文交流夯实中哈友好根基，更好造福两国人民。
-
-哈方高度评价两国合作成果，赞赏中方在解决国际安全问题上发挥的重要作用，表示哈方将持续巩固中哈友好，愿同中方一道深化执法安全及各领域务实合作，推动两国永久全面战略伙伴关系不断向前发展。
+(作者：周巡、熊阳光、刘坚） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 17:02 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 17:08 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 17:13 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 16:59 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 17:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 17:00 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 17:16 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 16:59 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 17:06 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 16:55 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 16:58 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 17:07 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 17:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 17:01 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 17:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 17:22 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 17:25 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 17:28 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 17:00 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 17:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 17:11 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 17:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 17:09 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 17:13 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:15 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/73419200.shtml)
-- 2026-06-29 17:09 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/418002053963.shtml)
-- 2026-06-29 16:59 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/5033655.shtml)
-- 2026-06-29 16:54 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/103613322277.shtml)
-- 2026-06-29 16:58 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/02738391.shtml)
-- 2026-06-29 17:04 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/87915727.shtml)
-- 2026-06-29 17:09 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.kurohicncr.top/Article/details/91223619.shtml)
-- 2026-06-29 16:59 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/769854318.shtml)
-- 2026-06-29 17:23 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/20274631814.shtml)
-- 2026-06-29 17:16 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/29081.shtml)
-- 2026-06-29 17:11 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/298528828115.shtml)
-- 2026-06-29 17:21 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/89949646058.shtml)
-- 2026-06-29 16:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/89111576.shtml)
-- 2026-06-29 17:02 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/942745959127.shtml)
-- 2026-06-29 17:23 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/97178463.shtml)
+- 2026-06-29 17:22 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/28380.shtml)
+- 2026-06-29 17:00 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/57336772.shtml)
+- 2026-06-29 17:18 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/61445800857.shtml)
+- 2026-06-29 17:07 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/4906465424.shtml)
+- 2026-06-29 17:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/319223.shtml)
+- 2026-06-29 17:07 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/2347312506.shtml)
+- 2026-06-29 17:00 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/538104.shtml)
+- 2026-06-29 17:27 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/809341.shtml)
+- 2026-06-29 17:09 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/01162986.shtml)
+- 2026-06-29 17:28 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/00888.shtml)
+- 2026-06-29 17:22 - [我和我的家乡](https://www.blog.minike.top/Article/details/901396709.shtml)
+- 2026-06-29 17:25 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/97876796801.shtml)
+- 2026-06-29 17:05 - [斗破苍穹](https://www.share.minike.top/Article/details/89541196.shtml)
+- 2026-06-29 17:14 - [机器人学校开学了](http://www.blog.minike.top/Article/details/16207202964.shtml)
+- 2026-06-29 17:02 - [绘画区你赢了](https://www.share.minike.top/Article/details/968127.shtml)

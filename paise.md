@@ -1,57 +1,56 @@
-# 霍尼韦尔旗下昆腾拟扩大美股IPO规模，目标估值达143亿美元
+# 从东南亚走向非洲 长沙工程机械展全球化布局再提速
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-霍尼韦尔旗下量子计算公司 昆腾（Quantinuum） 计划扩大美国首次公开募股（IPO）规模，目标最高估值达 143 亿美元，足见投资者对量子计算领域的高涨热情。 这家总部位于美国科罗拉多州布鲁姆菲尔德的企业于周一宣布，本次拟发行 2650 万股股票，发行价区间定为每股 53 至 55 美元，最高募资 14.6 亿美元。 公司此前规划为发行约 2110 万股，发行价每股 45
+中新网长沙6月18日电 (易丹)继深耕东南亚市场后，长沙国际工程机械展海外版图再向非洲大陆延伸。17日，2026长沙国际工程机械展览会非洲分展在肯尼亚内罗毕启幕。 据了解，本次展会斩获丰硕经贸成果，签约总金额达1.894亿美元，合作领域覆盖工程机械采购、新能源车辆推广、智能设备协作等多个赛道，助力湘企工程机械产业深度扎根非洲新兴市场。 本届非洲分展展览面积达1.5万平方米，设立
 
 ## 正文
 
-霍尼韦尔旗下量子计算公司 昆腾（Quantinuum） 计划扩大美国首次公开募股（IPO）规模，目标最高估值达 143 亿美元，足见投资者对量子计算领域的高涨热情。
+中新网长沙6月18日电 (易丹)继深耕东南亚市场后，长沙国际工程机械展海外版图再向非洲大陆延伸。
 
-这家总部位于美国科罗拉多州布鲁姆菲尔德的企业于周一宣布，本次拟发行 2650 万股股票，发行价区间定为每股 53 至 55 美元，最高募资 14.6 亿美元。
+17日，2026长沙国际工程机械展览会非洲分展在肯尼亚内罗毕启幕。
 
-公司此前规划为发行约 2110 万股，发行价每股 45 至 50 美元，最高募资 10.5 亿美元。
+据了解，本次展会斩获丰硕经贸成果，签约总金额达1.894亿美元，合作领域覆盖工程机械采购、新能源车辆推广、智能设备协作等多个赛道，助力湘企工程机械产业深度扎根非洲新兴市场。
 
-多家企业借当前向好的市场环境推进上市，赶在太空探索技术公司（SpaceX）重磅 IPO 前完成募资，美股 6 月 IPO 市场开局火热。
+本届非洲分展展览面积达1.5万平方米，设立多个专业化细分展区，吸引海内外300余家企业集中参展。
 
-本周共有七家来自国防、能源等领域的企业将确定发行价。
+徐工、三一重工、中联重科等中国工程机械龙头企业悉数亮相，结合非洲本土化使用场景带来定制化升级产品，精准匹配当地基建发展需求。
 
-摩根大通与摩根士丹利担任本次 IPO 的联席主承销商。
+针对非洲高温、高沙尘、复杂路况及特殊燃油条件等地域特点，参展企业对展品性能进行专项优化升级。
 
-昆腾预计于本周四在纳斯达克交易所挂牌上市，股票代码为QNT。
+其中，徐工携7台主力设备参展，重点强化设备防尘、散热与动力性能，适配非洲野外复杂作业环境；三一重工展出4款核心装备，在作业效率、节能降耗、长时间连续运转等方面优势突出；中联重科推出10款定制化产品，覆盖土方、起重、农机等多个品类，依托一机多用的灵活特性，适配非洲不同规模工程施工与农业生产场景。
 
-责任编辑：郭明煜
+长沙国际工程机械展自2023年启动海外布局以来，持续践行“深耕周边、辐射全球”的拓展路径，此前已在马来西亚吉隆坡连续举办三届东南亚分展，累计展览面积超3万平方米，吸引360余家企业参展，拉动销售额突破20亿元，成为中国工程机械企业开拓东南亚市场的重要桥梁。
 
 ## 相关推荐
 
-- 2026-06-29 17:01 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 17:20 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 17:01 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 17:04 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 17:09 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 17:13 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 17:19 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 17:03 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 17:14 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 17:23 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 17:21 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 17:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 17:27 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 17:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 17:22 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 17:00 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 17:15 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 17:16 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 17:22 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 17:14 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 17:09 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:19 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/241286914358.shtml)
-- 2026-06-29 17:21 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/95770874.shtml)
-- 2026-06-29 16:57 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/27859151961.shtml)
-- 2026-06-29 17:12 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/13361.shtml)
-- 2026-06-29 17:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/80592.shtml)
-- 2026-06-29 17:12 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/116319259.shtml)
-- 2026-06-29 16:57 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/892237692515.shtml)
-- 2026-06-29 17:20 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/223406576173.shtml)
-- 2026-06-29 16:55 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/2458271.shtml)
-- 2026-06-29 17:17 - [未成年少女长期吸毒导致卧床不起](https://www.blog.minike.top/Article/details/63936.shtml)
-- 2026-06-29 17:06 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/10786893.shtml)
-- 2026-06-29 17:02 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/05916016.shtml)
-- 2026-06-29 17:18 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/7793122502.shtml)
-- 2026-06-29 17:11 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/096091888.shtml)
-- 2026-06-29 17:08 - [2026年，如果你有100万，你会怎么投资？](http://www.share.minike.top/Article/details/25882.shtml)
+- 2026-06-29 17:20 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/297997942.shtml)
+- 2026-06-29 17:14 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/31640896.shtml)
+- 2026-06-29 17:21 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/883264933265.shtml)
+- 2026-06-29 17:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/25047117080.shtml)
+- 2026-06-29 17:11 - [省市招考专家解读山西高考志愿政策](http://www.share.minike.top/Article/details/57086330530.shtml)
+- 2026-06-29 17:14 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.kurohicncr.top/Article/details/18872168.shtml)
+- 2026-06-29 17:14 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/01110209395.shtml)
+- 2026-06-29 17:01 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/88920457398.shtml)
+- 2026-06-29 17:13 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/845799673.shtml)
+- 2026-06-29 17:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/947698.shtml)
+- 2026-06-29 17:19 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/9674561.shtml)
+- 2026-06-29 17:09 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/50176689.shtml)
+- 2026-06-29 17:00 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/706947.shtml)
+- 2026-06-29 17:05 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/443800.shtml)
+- 2026-06-29 17:16 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/81962.shtml)

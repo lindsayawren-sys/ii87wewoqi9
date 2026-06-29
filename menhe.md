@@ -1,53 +1,61 @@
-# 福建连江养殖海鲜大量上市 填补休渔期空缺
+# 中新健康｜交割手续难完成， 派林生物“易主”中国生物告吹
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 20:56 来源：中国新闻网 眼下，正值休渔期，市场上野捕的海鲜比较稀缺，在福建省连江县，渔民们利用塑胶渔排、网箱在海上养殖的的30多种鱼类和贝类海鲜正大量上市， 在一定程度上填补了休渔期海鲜供应的不足。 养殖户告诉记者，休渔期这段时间深海网箱养殖的鱼类销量比较好，除了供应福州本地，还卖到广东、广西等省外市场，因其口感鲜美，深受市场欢迎，批发价
+中新网北京6月18日电(记者 赵方园)筹划近一年，交易对价约47亿元的派林生物“易主”事项，最终以失败告终。 6月17日晚间，派林生物发布公告称，控股股东胜帮英豪与中国生物技术股份有限公司(下称“中国生物”)之间的21.03%股份控制权转让交易正式终止。这场自2025年启动、历时近一年的血制品行业重磅并购案，在“临门一脚”之际戛然而止。 回溯交易历程，全程波折不断。 2025年
 
 ## 正文
 
-发布时间：2026年06月01日 20:56 来源：中国新闻网 眼下，正值休渔期，市场上野捕的海鲜比较稀缺，在福建省连江县，渔民们利用塑胶渔排、网箱在海上养殖的的30多种鱼类和贝类海鲜正大量上市， 在一定程度上填补了休渔期海鲜供应的不足。
+中新网北京6月18日电(记者 赵方园)筹划近一年，交易对价约47亿元的派林生物“易主”事项，最终以失败告终。
 
-养殖户告诉记者，休渔期这段时间深海网箱养殖的鱼类销量比较好，除了供应福州本地，还卖到广东、广西等省外市场，因其口感鲜美，深受市场欢迎，批发价格较往年来说相对实惠，为每斤20元至30元不等。
+6月17日晚间，派林生物发布公告称，控股股东胜帮英豪与中国生物技术股份有限公司(下称“中国生物”)之间的21.03%股份控制权转让交易正式终止。
 
-据悉，为填补休渔期间的海味“空白”，养殖户们一般采用错峰投苗的方式，在每年三、四月份把鱼苗投放到网箱中，让鱼儿在近乎野生的海洋生态环境中成长，在休渔期可达上市标准。
+这场自2025年启动、历时近一年的血制品行业重磅并购案，在“临门一脚”之际戛然而止。
 
-(吴晟炜 吴其法) 【同期】连江奇达村海鱼养殖户 吴忠 我们养的海鱼吃的都是冰冻的小杂鱼，养出来的肉质跟野生的没什么区别。
+回溯交易历程，全程波折不断。
 
-现在是休渔期，野捕的海鱼比较缺少，所以说我们这种鱼比较受欢迎，我们养的品种有十几种，总数量有50万斤，在休渔期准备给它销售完成。
+2025年6月，派林生物公告披露，大股东胜帮英豪计划向中国生物转让其持有的21.03%公司股份，这笔股权交易总价约46.99亿元，对应每股转让价格23.51元。
 
-责任编辑：【叶攀】
+倘若交易顺利完成，上市公司控制权将发生变更，国药集团将成为派林生物新的实际控制人。
+
+彼时，业内普遍看好这起收购，早已手握天坛生物和卫光生物的国药集团，若再将派林生物纳入麾下，其在血液制品领域的行业地位和产能规模将进一步增强，有望形成更强大的龙头效应。
+
+就在市场等待6月30日倒计时之际，6月17日，双方却提前宣布“分手”。
 
 ## 相关推荐
 
-- 2026-06-29 17:20 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 17:21 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 17:13 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 17:04 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 16:58 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 16:56 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 17:12 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 17:21 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 17:09 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 17:05 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 17:15 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 17:27 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 17:27 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 17:13 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 17:04 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 17:08 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 17:20 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 17:22 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 17:07 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 17:19 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 17:05 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 17:14 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 17:09 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 17:26 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 17:24 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 17:27 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:06 - [千与千寻](http://www.share.minike.top/Article/details/5410764716.shtml)
-- 2026-06-29 17:07 - [扬名立万](https://www.share.minike.top/Article/details/55528834.shtml)
-- 2026-06-29 17:19 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/73102876703.shtml)
-- 2026-06-29 16:55 - [德云色预测世界杯16强](https://www.share.kurohicncr.top/Article/details/775923.shtml)
-- 2026-06-29 17:21 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/13957359.shtml)
-- 2026-06-29 16:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/58331098981.shtml)
-- 2026-06-29 17:23 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.minike.top/Article/details/63192.shtml)
-- 2026-06-29 17:18 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/55100603.shtml)
-- 2026-06-29 17:07 - [朱必达辞去湖南人大常委会委员职务](https://www.share.minike.top/Article/details/0992288669.shtml)
-- 2026-06-29 17:13 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/03793.shtml)
-- 2026-06-29 17:21 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/1849528767.shtml)
-- 2026-06-29 17:15 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/803468979.shtml)
-- 2026-06-29 17:18 - [恋与深空发放补偿未得到玩家认可](https://www.share.minike.top/Article/details/26501086.shtml)
-- 2026-06-29 16:59 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/3544254.shtml)
-- 2026-06-29 17:11 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/56534.shtml)
+- 2026-06-29 17:24 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/663944121145.shtml)
+- 2026-06-29 17:28 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/068577919.shtml)
+- 2026-06-29 17:09 - [当我回母校教书](https://www.blog.minike.top/Article/details/770956746912.shtml)
+- 2026-06-29 17:11 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/4607214684.shtml)
+- 2026-06-29 17:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/433070963546.shtml)
+- 2026-06-29 17:08 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/29081913.shtml)
+- 2026-06-29 17:07 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/436596.shtml)
+- 2026-06-29 17:17 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/47073.shtml)
+- 2026-06-29 17:15 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/35850346324.shtml)
+- 2026-06-29 17:25 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.kurohicncr.top/Article/details/371797.shtml)
+- 2026-06-29 17:15 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/746294596.shtml)
+- 2026-06-29 17:05 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/70223465074.shtml)
+- 2026-06-29 17:12 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/5878882.shtml)
+- 2026-06-29 17:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/357246609.shtml)
+- 2026-06-29 17:27 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/786705.shtml)

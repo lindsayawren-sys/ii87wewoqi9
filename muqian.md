@@ -1,61 +1,56 @@
-# 自6月12日起暂停存量客户中国境内新开仓、加仓！老虎国际最新通知
+# 特朗普：若伊朗协议未能达成，很喜欢把责任推给万斯的想法
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】老虎国际：自6月12日起，暂停存量投资者账户在中国境内所有品种的新开仓、加仓交易 中国基金报记者 孙越 继中国证监会等八部门联合整治非法跨境证券业务后，老虎国际率先发布调整通知：自6月12日起，暂停存量投资者账户在中国境内所有品种的新开仓、加仓交易，仅支持卖出、平仓操作。 老虎国际
+美国总统特朗普周三表示，如果旨在结束与伊朗战争的协议未能达成，他很喜欢把责任推给副总统万斯的想法。 特朗普在法国埃维昂莱班举行的七国集团（G7）峰会上对记者表示，他可能会留在欧洲签署与伊朗的谅解备忘录，但也可能不会留下。 总统似乎暗示，这份备忘录可能无法促成一项与伊朗彻底结束冲突的协议，从而为他带来良好的政治形象。 “这只是一份谅解备忘录，”特朗普说。“这很重要，但这可能不是那
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美国总统特朗普周三表示，如果旨在结束与伊朗战争的协议未能达成，他很喜欢把责任推给副总统万斯的想法。
 
-来源：中国基金报 【导读】老虎国际：自6月12日起，暂停存量投资者账户在中国境内所有品种的新开仓、加仓交易 中国基金报记者 孙越 继中国证监会等八部门联合整治非法跨境证券业务后，老虎国际率先发布调整通知：自6月12日起，暂停存量投资者账户在中国境内所有品种的新开仓、加仓交易，仅支持卖出、平仓操作。
+特朗普在法国埃维昂莱班举行的七国集团（G7）峰会上对记者表示，他可能会留在欧洲签署与伊朗的谅解备忘录，但也可能不会留下。
 
-老虎国际最新调整： 自6月12日起暂停存量客户境内新开仓、加仓 此次通知显示，为落实2年集中整治期的行业监管要求，推动跨境证券业务规范发展，老虎国际将对存量投资者账户在中国境内的服务进行相应调整。
+总统似乎暗示，这份备忘录可能无法促成一项与伊朗彻底结束冲突的协议，从而为他带来良好的政治形象。
 
-自北京时间2026年6月12日起，针对在境内交易服务，暂停股票等所有品种的新开仓、加仓交易，仅支持卖出、平仓操作；针对在境内资金划转服务，暂停资金转入，转出功能保持正常，全力保障客户资金安全。
+“这只是一份谅解备忘录，”特朗普说。
 
-老虎国际表示，本次调整不会影响为存量投资者在境外提供服务，也不影响全体客户现有资产安全，客户可正常查询账户、持有及卖出已有持仓。
+“这很重要，但这可能不是那种应该由我来签署的文件。
 
-5月22日，中国证监会等八部门联合印发《综合整治非法跨境证券期货基金经营活动实施方案》。
+” 特朗普关于万斯的这番言论出现在他与记者举行的新闻发布会的最后，当时他将最后一个提问机会给了福克斯新闻的记者彼得·杜西（Peter Doocy）。
 
-“总体要求是经过2年集中整治，全面取缔境外证券期货基金经营机构非法跨境经营活动”，目标是“坚决取缔非法、稳妥清理存量”。
+杜西问道：“为什么不留下来参加这场伊朗和平协议的签字仪式呢？
 
-根据方案，集中整治期内，禁止境外机构为存量投资者在境内非法提供买入交易、转入资金等服务，只允许单向卖出交易并转出资金。
+” 特朗普回答：“我可能会。
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 17:04 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 17:01 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 16:59 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 17:16 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 17:16 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 17:19 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 17:13 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 17:10 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 17:05 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 16:54 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 17:09 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 17:00 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 16:54 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 16:54 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 17:27 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 17:28 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 17:25 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 17:06 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 17:19 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 17:04 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 17:09 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 17:12 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 17:10 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 17:10 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:01 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/33743737.shtml)
-- 2026-06-29 17:11 - [驻日美军航母沦为“毒窝”](http://www.share.minike.top/Article/details/4952666469.shtml)
-- 2026-06-29 17:06 - [和周杰伦在演唱会合唱了](https://www.share.minike.top/Article/details/1664984558.shtml)
-- 2026-06-29 17:17 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/381747146.shtml)
-- 2026-06-29 17:07 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/364961.shtml)
-- 2026-06-29 17:06 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/640666.shtml)
-- 2026-06-29 17:07 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/6982465571.shtml)
-- 2026-06-29 17:18 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/1054525633.shtml)
-- 2026-06-29 16:55 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/201444.shtml)
-- 2026-06-29 17:09 - [扫黑风暴](http://www.blog.minike.top/Article/details/70986429.shtml)
-- 2026-06-29 17:23 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/52929.shtml)
-- 2026-06-29 16:57 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/22837687.shtml)
-- 2026-06-29 16:57 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/978220885812.shtml)
-- 2026-06-29 17:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/94231772517.shtml)
-- 2026-06-29 17:22 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/914045532.shtml)
+- 2026-06-29 17:08 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/94016324.shtml)
+- 2026-06-29 17:02 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/54547443379.shtml)
+- 2026-06-29 17:24 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/495790791521.shtml)
+- 2026-06-29 17:13 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/277606.shtml)
+- 2026-06-29 17:08 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/73983.shtml)
+- 2026-06-29 17:05 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/36783932.shtml)
+- 2026-06-29 17:23 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/9242850.shtml)
+- 2026-06-29 17:06 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/45120661049.shtml)
+- 2026-06-29 17:28 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/060404491.shtml)
+- 2026-06-29 17:08 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/515424.shtml)
+- 2026-06-29 17:22 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/6084038.shtml)
+- 2026-06-29 17:10 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/65728.shtml)
+- 2026-06-29 17:16 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/39063.shtml)
+- 2026-06-29 17:16 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/7212793.shtml)
+- 2026-06-29 17:03 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.minike.top/Article/details/28217972.shtml)

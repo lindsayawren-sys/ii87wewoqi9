@@ -1,61 +1,59 @@
-# 上海资管新政落地：2030年规模目标55万亿，提升人民币资产全球配置
+# AI全新风险：难以预判的政府监管政策
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-推动REITs纳入沪港通标的、探索人民币外汇期货试点、算力期货首次写入文件…… 6月1日，《关于深化上海全球资产管理中心建设的若干意见》（下称《若干意见》）正式落地实施。文件提出，到2030年，上海资产管理规模达到55万亿元，占全国比重提升至三分之一左右，并进一步强化人民币资产全球配置与风险管理功能。 据上海市委金融办常务副主任周小全在2日举行的通气会上介绍，本次新政立足上海全
+投资人工智能行业，从来不是胆小者能涉足的领域。抛开数据中心巨额投入、市场需求前景不明等风险，政府突如其来的监管政策随时可能彻底颠覆行业格局。典型案例便是：上周末特朗普政府向 Anthropic 发出监管警告，未经许可，任何外籍人员（包括企业内部外籍员工）均不得访问该公司最新一代 AI 大模型。 尽管本次监管指令仅针对正与美方陷入博弈的 Anthropic，但其他 AI 企业都担
 
 ## 正文
 
-推动REITs纳入沪港通标的、探索人民币外汇期货试点、算力期货首次写入文件…… 6月1日，《关于深化上海全球资产管理中心建设的若干意见》（下称《若干意见》）正式落地实施。
+投资人工智能行业，从来不是胆小者能涉足的领域。
 
-文件提出，到2030年，上海资产管理规模达到55万亿元，占全国比重提升至三分之一左右，并进一步强化人民币资产全球配置与风险管理功能。
+抛开数据中心巨额投入、市场需求前景不明等风险，政府突如其来的监管政策随时可能彻底颠覆行业格局。
 
-据上海市委金融办常务副主任周小全在2日举行的通气会上介绍，本次新政立足上海全球资产管理中心建设基础和优势，聚焦服务“提升人民币资产全球配置与风险管理功能”的总体目标，统筹推进境内、境外两个市场双向循环，重点围绕金融市场体系建设、资产管理机构服务能力、产品与服务创新三个层面加强推进，着眼法治信用、风险防范、人才集聚、市区联动四个维度加强保障，扎实落地金融“五篇大文章”。
+典型案例便是：上周末特朗普政府向 Anthropic 发出监管警告，未经许可，任何外籍人员（包括企业内部外籍员工）均不得访问该公司最新一代 AI 大模型。
 
-这是2021年上海启动全球资管中心建设后，又一份具有顶层设计意义的纲领性文件。
+尽管本次监管指令仅针对正与美方陷入博弈的 Anthropic，但其他 AI 企业都担忧，此举会成为行业监管的恶劣先例。
 
-与此前侧重机构集聚和规模扩张不同，此轮政策更强调跨境配置、风险管理、金融基础设施以及人民币资产国际化能力建设。
+正如本刊今日独家报道，OpenAI 高管周六向内部员工致信表示，公司已向美国政府明确表态：人工智能研发需要汇聚全球顶尖人才，这也是美国能够领跑 AI 赛道的核心根基。
 
-业内人士表示，在全球资本流动格局重塑、人民币国际化提速以及居民财富管理需求升级背景下，上海全球资产管理中心建设正在从“规模扩张阶段”迈向“功能提升阶段”，其核心竞争力已从机构数量和管理规模，转向全球资源配置能力和资产定价能力。
+美国政府大量外籍科研人员参与前沿 AI 研发，确实存在合理的国家安全顾虑（此前多篇报道提及，美国大量 AI 顶尖研究者均为海外出生）。
 
-从“规模中心”转向“配置中心” 过去五年，上海全球资产管理中心建设已取得明显进展。
+但本届政府本身对外来移民并不友好，外界很难厘清，此番限制外籍人员参与 AI 研发的政策，究竟源于国家安全考量，还是移民政策的延伸。
 
-官方数据显示，上海资管总规模占全国比重从不足1/4提高到目前的约30%；保险资管规模占全国约五成，公募基金规模占全国约四成，私募基金管理规模居全国首位。
+但显而易见的是，该政策或将拖累美国人工智能产业发展，这也是 OpenAI 极力反对的核心原因。
 
 ## 相关推荐
 
-- 2026-06-29 17:01 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 17:02 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 17:04 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 16:58 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 17:22 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 17:16 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 17:19 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 17:07 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 17:20 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 17:02 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 17:04 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 17:17 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 17:03 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 17:12 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 17:05 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 17:25 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 17:20 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 17:21 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 17:18 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 17:27 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 17:17 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 17:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 17:07 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 17:15 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 17:21 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 17:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 17:03 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 17:02 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:14 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/9969214040.shtml)
-- 2026-06-29 16:55 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/38606101.shtml)
-- 2026-06-29 17:03 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/53821144200.shtml)
-- 2026-06-29 17:14 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/8743127.shtml)
-- 2026-06-29 16:57 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/74974930.shtml)
-- 2026-06-29 17:10 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/8061091.shtml)
-- 2026-06-29 17:00 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/52571821953.shtml)
-- 2026-06-29 17:19 - [当地回应林区违规放羊遭豹啃食](http://www.share.kurohicncr.top/Article/details/0614908.shtml)
-- 2026-06-29 16:55 - [绘画区你赢了](http://www.share.minike.top/Article/details/429118200.shtml)
-- 2026-06-29 17:20 - [第一炉香](https://www.blog.minike.top/Article/details/3827973.shtml)
-- 2026-06-29 17:00 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/3916756.shtml)
-- 2026-06-29 17:21 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/0266390.shtml)
-- 2026-06-29 17:23 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/49646.shtml)
-- 2026-06-29 17:20 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/7138746.shtml)
-- 2026-06-29 17:11 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/33659594.shtml)
+- 2026-06-29 17:28 - [抓特务票房破亿](http://www.share.minike.top/Article/details/84189.shtml)
+- 2026-06-29 17:08 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/08319395242.shtml)
+- 2026-06-29 17:00 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/05324945390.shtml)
+- 2026-06-29 17:22 - [花万元相亲对象是50元雇的演员](https://www.blog.minike.top/Article/details/774303.shtml)
+- 2026-06-29 17:27 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/8983140175.shtml)
+- 2026-06-29 17:09 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/957822486903.shtml)
+- 2026-06-29 17:19 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/92341204610.shtml)
+- 2026-06-29 17:11 - [沙丘](http://www.share.kurohicncr.top/Article/details/7120986.shtml)
+- 2026-06-29 17:10 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/5998770464.shtml)
+- 2026-06-29 17:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/40135157094.shtml)
+- 2026-06-29 17:00 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/4404969157.shtml)
+- 2026-06-29 17:16 - [花万元相亲对象是50元雇的演员](https://www.blog.minike.top/Article/details/191956483.shtml)
+- 2026-06-29 17:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/20729.shtml)
+- 2026-06-29 17:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/9345607.shtml)
+- 2026-06-29 17:27 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/9520051.shtml)

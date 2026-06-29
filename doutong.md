@@ -1,57 +1,46 @@
-# AI压缩谣言“生命周期”，事实核查仍需多方共守
+# 视频 | 证监会主席吴清：目前A股科技板块市值占比超过3成
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-网络谣言的治理，长期以来遵循一条“事后追惩”的惯性轨道：举报、核实、辟谣、删帖。这条链条的时间刻度是“天”甚至“周”，而谣言的传播速度以秒计。时间差本身，就是风险的放大器。抖音AI求真大模型的上线，让我看到了一种方法论层面的探索——它试图重新定义谣言治理的时间尺度。从“发现后处置”到“发现即管控”，响应时间从“天”压缩到“小时”，这不只是效率提升，更是工作方式的转变——把管控关
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：宋雅芳
 
 ## 正文
 
-网络谣言的治理，长期以来遵循一条“事后追惩”的惯性轨道：举报、核实、辟谣、删帖。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这条链条的时间刻度是“天”甚至“周”，而谣言的传播速度以秒计。
-
-时间差本身，就是风险的放大器。
-
-抖音AI求真大模型的上线，让我看到了一种方法论层面的探索——它试图重新定义谣言治理的时间尺度。
-
-从“发现后处置”到“发现即管控”，响应时间从“天”压缩到“小时”，这不只是效率提升，更是工作方式的转变——把管控关口往前移，变被动应对为主动介入。
-
-全年谣言曝光量下降90%，这个数字的意义不在于大小，而在于它证明了一件事：当技术足够敏锐，谣言的“生命周期”可以被系统性压缩。
-
-更值得关注的是，这套系统在技术架构上体现了一种“审慎的智能”。
-
-它做了两件事：一是建立权威信源分级机制，中央新闻单位、政务发布平台为最高优先级，自媒体内容可信度较低——AI求真，首先要回答“向谁求真”；二是设置双重过滤，谣言领域大模型负责判断“什么样的内容看起来像谣言”，谣言风险过滤模块负责判断“这里面哪些真正具有公共风险”，两道把关，互为冗余。
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 17:10 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 17:10 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 17:21 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 17:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 17:14 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 16:57 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 17:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 17:06 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 17:17 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 17:10 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 17:19 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 17:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 17:23 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 17:19 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 17:25 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 17:14 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 17:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 17:23 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 17:24 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 17:12 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 17:08 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 17:15 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 17:22 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:12 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/32020.shtml)
-- 2026-06-29 17:23 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/763517.shtml)
-- 2026-06-29 17:19 - [税务总局披露5起合规申报个税案例](https://www.share.kurohicncr.top/Article/details/35755896749.shtml)
-- 2026-06-29 17:17 - [一生一世](http://www.blog.kurohicncr.top/Article/details/307343920213.shtml)
-- 2026-06-29 17:04 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/748968102.shtml)
-- 2026-06-29 16:58 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/98603990308.shtml)
-- 2026-06-29 17:06 - [7款商保创新药“转道”](http://www.share.kurohicncr.top/Article/details/6543832128.shtml)
-- 2026-06-29 17:07 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/6634221919.shtml)
-- 2026-06-29 17:21 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/11766.shtml)
-- 2026-06-29 17:17 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/108084465.shtml)
-- 2026-06-29 17:16 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/1061545732.shtml)
-- 2026-06-29 17:08 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/670994608.shtml)
-- 2026-06-29 17:11 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/1181522286.shtml)
-- 2026-06-29 16:59 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/2601868.shtml)
-- 2026-06-29 17:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/60856593649.shtml)
+- 2026-06-29 17:21 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/403900.shtml)
+- 2026-06-29 17:19 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/404539977.shtml)
+- 2026-06-29 17:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/16857984.shtml)
+- 2026-06-29 17:10 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/240520495000.shtml)
+- 2026-06-29 17:27 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/551884.shtml)
+- 2026-06-29 17:08 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/68526.shtml)
+- 2026-06-29 17:02 - [毒液2](https://www.share.kurohicncr.top/Article/details/068158588.shtml)
+- 2026-06-29 17:05 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/4950777051.shtml)
+- 2026-06-29 17:11 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/5607375466.shtml)
+- 2026-06-29 17:25 - [小娘惹](http://www.blog.minike.top/Article/details/88357.shtml)
+- 2026-06-29 17:23 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/696977426255.shtml)
+- 2026-06-29 17:11 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.kurohicncr.top/Article/details/1349995.shtml)
+- 2026-06-29 17:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/24780472624.shtml)
+- 2026-06-29 17:24 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/023897880245.shtml)
+- 2026-06-29 17:17 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/81212241258.shtml)

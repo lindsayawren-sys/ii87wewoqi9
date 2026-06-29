@@ -1,59 +1,60 @@
-# 谨防公共场所财物被盗！中国驻爱尔兰大使馆发布提醒
+# 泛大西洋投资据悉洽谈领投快手旗下可灵AI首轮融资
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新网6月2日电 据中国驻爱尔兰大使馆微信公众号消息，近期，中国驻爱尔兰使馆陆续接到多名在爱中国公民，特别是留学生求助，反映在爱公共场所遭遇财物被盗案件，丢失钱包、身份证件、银行卡及现金等重要财物。其中，城市公共交通、休闲公园、旅游景点、酒吧等人员密集区域为盗窃案件高发地段。使馆特此发布安全提醒，警示大家提高防范意识，做好公共场所安全防护。强化出行防范，筑牢安全防线 一是妥善保
+据知情人士称，快手科技正与泛大西洋投资商讨由后者领投其视频人工智能AI部门的首轮融资，寻求在首次公开招股（IPO）之前锁定一家美国主要投资者的支持。 据知情人士透露，可灵AI计划以180亿美元的投资后估值，筹集超过20亿美元资金。他们说，这家中国公司最初曾与投资者讨论过200亿美元的目标，但为了迎合市场需求，最终下调了预期。知情人士表示，可灵AI已引起其他一些专注于亚洲投资公司
 
 ## 正文
 
-中新网6月2日电 据中国驻爱尔兰大使馆微信公众号消息，近期，中国驻爱尔兰使馆陆续接到多名在爱中国公民，特别是留学生求助，反映在爱公共场所遭遇财物被盗案件，丢失钱包、身份证件、银行卡及现金等重要财物。
+据知情人士称，快手科技正与泛大西洋投资商讨由后者领投其视频人工智能AI部门的首轮融资，寻求在首次公开招股（IPO）之前锁定一家美国主要投资者的支持。
 
-其中，城市公共交通、休闲公园、旅游景点、酒吧等人员密集区域为盗窃案件高发地段。
+据知情人士透露，可灵AI计划以180亿美元的投资后估值，筹集超过20亿美元资金。
 
-使馆特此发布安全提醒，警示大家提高防范意识，做好公共场所安全防护。
+他们说，这家中国公司最初曾与投资者讨论过200亿美元的目标，但为了迎合市场需求，最终下调了预期。
 
-强化出行防范，筑牢安全防线 一是妥善保管随身财物。
+知情人士表示，可灵AI已引起其他一些专注于亚洲投资公司的初步兴趣。
 
-日常出行、游玩、休闲期间，务必时刻绷紧安全弦，不随身携带大量现金。
+由于涉及私人谈话，知情人士要求匿名。
 
-身份证件、银行卡、钱包、手机等贵重物品统一贴身存放，优先选择内侧口袋、防盗包收纳，严禁放置在背包外侧口袋、外露裤袋等易扒窃位置。
+知情人士称，谈判仍处于早期阶段，无法保证最终会按现有条款达成协议。
 
-在乘坐公共交通、逛景点、游园、泡吧时，切勿随意摆弄、展示手机、钱包等贵重物品，避免暴露财物，吸引不法分子注意。
+如果协议最终达成，这将是泛大西洋投资在中国竞争激烈的生成式AI领域一次罕见的投资。
 
-二是警惕陌生人员及异常情况。
+而且当前正值北京和华盛顿围绕这项新兴技术而关系高度紧张之际。
 
 ## 相关推荐
 
-- 2026-06-29 17:05 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 17:00 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 16:59 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 17:05 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 16:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 17:01 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 17:14 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 17:08 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 17:00 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 16:55 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 17:11 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 17:17 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 17:09 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 17:20 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 17:00 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 17:07 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 17:08 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 17:15 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 17:27 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 17:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 17:02 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 17:04 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 17:16 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 17:09 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 17:21 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 17:07 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 17:25 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:11 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/593836866203.shtml)
-- 2026-06-29 17:23 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/82091517.shtml)
-- 2026-06-29 16:58 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/720731.shtml)
-- 2026-06-29 16:54 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/4069011433.shtml)
-- 2026-06-29 17:06 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/589551989041.shtml)
-- 2026-06-29 16:56 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/321480873.shtml)
-- 2026-06-29 17:23 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/9537310.shtml)
-- 2026-06-29 17:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/9679348.shtml)
-- 2026-06-29 17:07 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/7815004.shtml)
-- 2026-06-29 17:08 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/334672479523.shtml)
-- 2026-06-29 17:12 - [欧盟为什么越来越倾向贸易保护](http://www.blog.kurohicncr.top/Article/details/861645062.shtml)
-- 2026-06-29 17:11 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/13219761359.shtml)
-- 2026-06-29 17:21 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/4173559.shtml)
-- 2026-06-29 17:03 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/2926336.shtml)
-- 2026-06-29 17:12 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/29445603005.shtml)
+- 2026-06-29 17:07 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/918781714.shtml)
+- 2026-06-29 17:11 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/30288.shtml)
+- 2026-06-29 17:18 - [爱很美味](http://www.share.minike.top/Article/details/61104.shtml)
+- 2026-06-29 17:03 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/36791223019.shtml)
+- 2026-06-29 17:27 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/811202139.shtml)
+- 2026-06-29 17:11 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/0910854654.shtml)
+- 2026-06-29 17:28 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/950559636.shtml)
+- 2026-06-29 17:20 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.kurohicncr.top/Article/details/242207.shtml)
+- 2026-06-29 17:07 - [扫黑风暴](https://www.blog.minike.top/Article/details/85017.shtml)
+- 2026-06-29 17:26 - [业内：全球市场迎来结构性投资窗口](http://www.share.kurohicncr.top/Article/details/727806.shtml)
+- 2026-06-29 17:27 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/284391.shtml)
+- 2026-06-29 17:24 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/9568171292.shtml)
+- 2026-06-29 17:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/0458825.shtml)
+- 2026-06-29 17:28 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/747002781.shtml)
+- 2026-06-29 17:21 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/596018.shtml)

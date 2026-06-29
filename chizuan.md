@@ -1,56 +1,59 @@
-# 前任美联储主席鲍威尔：美联储正遭遇一场 “压力测试”
+# 吴清：主动拥抱新一轮科技革命和产业变革 持续增强资本市场制度包容性、适应性
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-鲍威尔表示，美国联邦储备委员会正处于一场“压力测试”的煎熬之中，这场测试威胁着全球最大经济体的实力与稳定。他称特朗普试图解雇央行官员的行为，正在破坏法治原则。 鲍威尔上周结束八年主席任期、重回美联储理事一职。周日在波士顿，他发表讲话称，美联储“与美国许多其他机构一样……正在经历一场压力测试”。 “如果任何一届政府能找到借口，因政策分歧罢免美联储官员，那么未来的政府也会照做。”鲍
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，我们将坚持稳中求进、提质增效，坚持在防风险、强监管的基础上加快促进高质量发展，以改革破难题，以创新增活力，着力做好科技金融这篇大文章，更好推动科技创新和产业创新深度融合，更好服务中国式现代化
 
 ## 正文
 
-鲍威尔表示，美国联邦储备委员会正处于一场“压力测试”的煎熬之中，这场测试威胁着全球最大经济体的实力与稳定。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-他称特朗普试图解雇央行官员的行为，正在破坏法治原则。
+6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，我们将坚持稳中求进、提质增效，坚持在防风险、强监管的基础上加快促进高质量发展，以改革破难题，以创新增活力，着力做好科技金融这篇大文章，更好推动科技创新和产业创新深度融合，更好服务中国式现代化和金融强国建设。
 
-鲍威尔上周结束八年主席任期、重回美联储理事一职。
+（一）持续深化“两创板”改革。
 
-周日在波士顿，他发表讲话称，美联储“与美国许多其他机构一样……正在经历一场压力测试”。
+科创板和创业板是资本市场服务新质生产力发展的重要平台，随着近年来板块改革纵深推进，“两创板”的规模、功能和影响力持续增强，目前上市公司数量合计超过2000家、总市值超过35万亿元，在新能源、集成电路、生物医药、高端装备制造等领域形成了集聚效应。
 
-“如果任何一届政府能找到借口，因政策分歧罢免美联储官员，那么未来的政府也会照做。
+近期，科创板方面将抓紧推出2项改革措施。
 
-”鲍威尔在领取本年度约翰・肯尼迪“勇气楷模奖”时补充道。
+一是扩大第五套标准适用范围至人工智能领域，积极支持优质人工智能大模型企业上市。
 
-“公众将不再相信，央行的决策只会基于全体美国人的最大利益。
+二是落实发展未来产业战略部署，支持量子科技、生物制造、具身智能等更多领域“硬科技”企业在科创板上市。
 
-美联储的公信力将荡然无存。
+同时，有序推进深化创业板改革，加大对新型消费和现代服务业的支持力度，更好服务成长型创新创业企业发展。
 
 ## 相关推荐
 
-- 2026-06-29 17:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 17:14 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 17:00 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 17:15 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 17:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 17:02 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 16:56 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 17:12 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 17:08 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 17:02 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 17:27 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 17:22 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 17:24 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 17:16 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 17:02 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 17:15 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 17:00 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 17:24 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 17:21 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 17:10 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 17:09 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 17:24 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 17:17 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:13 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/7155059821.shtml)
-- 2026-06-29 17:06 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/665944.shtml)
-- 2026-06-29 17:00 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/9113351.shtml)
-- 2026-06-29 17:05 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/02920265603.shtml)
-- 2026-06-29 17:15 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/66705219506.shtml)
-- 2026-06-29 17:00 - [送你一朵小红花](https://www.blog.minike.top/Article/details/27531576867.shtml)
-- 2026-06-29 17:18 - [普京承认俄出现燃料危机](https://www.share.kurohicncr.top/Article/details/781245.shtml)
-- 2026-06-29 17:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/157086871.shtml)
-- 2026-06-29 17:01 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/35368427709.shtml)
-- 2026-06-29 17:20 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/523724.shtml)
-- 2026-06-29 17:13 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.kurohicncr.top/Article/details/25724148064.shtml)
-- 2026-06-29 17:14 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/9095519.shtml)
-- 2026-06-29 17:23 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/5810615508.shtml)
-- 2026-06-29 16:58 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/43705.shtml)
-- 2026-06-29 17:18 - [四川地震前夕 街头电线上站满燕子](http://www.blog.kurohicncr.top/Article/details/64703120326.shtml)
+- 2026-06-29 17:00 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/44311803.shtml)
+- 2026-06-29 17:08 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/51563524.shtml)
+- 2026-06-29 17:05 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/619568.shtml)
+- 2026-06-29 17:25 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.minike.top/Article/details/7605911.shtml)
+- 2026-06-29 17:27 - [沙丘](http://www.blog.minike.top/Article/details/385620773161.shtml)
+- 2026-06-29 17:25 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/185206045803.shtml)
+- 2026-06-29 17:01 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/77170.shtml)
+- 2026-06-29 17:21 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/3578163.shtml)
+- 2026-06-29 17:26 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/13338674.shtml)
+- 2026-06-29 17:03 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/0042186.shtml)
+- 2026-06-29 17:17 - [网友飞机上偶遇肖战](https://www.blog.minike.top/Article/details/1877200.shtml)
+- 2026-06-29 17:19 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/414607422556.shtml)
+- 2026-06-29 17:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/5877613101.shtml)
+- 2026-06-29 17:28 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/583642387.shtml)
+- 2026-06-29 17:18 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/38157.shtml)

@@ -1,53 +1,56 @@
-# 泽连斯基的幕僚长：乌克兰已准备好接受与俄罗斯维持前线现状
+# 国台办：民进党当局对日菲严重侵权行径卑躬屈膝 已沦为民族败类
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-乌克兰准备接受与俄罗斯维持前线现状，乌克兰总统泽连斯基的幕僚长Kyrylo Budanov在基辅表示。 他称，乌克兰不会把顿巴斯让给俄罗斯，由美国斡旋的乌克兰与俄罗斯和平谈判只是暂停，而不是陷入停滞。 Budanov预计特朗普的特使将访问乌克兰，但未提供具体时间。责任编辑：李桐
+6月17日，国务院台办举行例行新闻发布会。有记者问：大陆在台湾东部海域开展海上交通专项执法行动，民进党当局称，大陆无权以任何理由对台湾东部海域主张执法权。请问发言人对此有何评论？ 发言人陈斌华表示，世界上只有一个中国，台湾是中国一部分，日菲宣布的拟划界海域位于台湾岛以东，中国在上述海域拥有专属经济区和大陆架。日菲绕开中国擅自启动所谓“划界谈判”严重违反国际法和国际关系基本准则，
 
 ## 正文
 
-乌克兰准备接受与俄罗斯维持前线现状，乌克兰总统泽连斯基的幕僚长Kyrylo Budanov在基辅表示。
+6月17日，国务院台办举行例行新闻发布会。
 
-他称，乌克兰不会把顿巴斯让给俄罗斯，由美国斡旋的乌克兰与俄罗斯和平谈判只是暂停，而不是陷入停滞。
+有记者问：大陆在台湾东部海域开展海上交通专项执法行动，民进党当局称，大陆无权以任何理由对台湾东部海域主张执法权。
 
-Budanov预计特朗普的特使将访问乌克兰，但未提供具体时间。
+请问发言人对此有何评论？
 
-责任编辑：李桐
+发言人陈斌华表示，世界上只有一个中国，台湾是中国一部分，日菲宣布的拟划界海域位于台湾岛以东，中国在上述海域拥有专属经济区和大陆架。
+
+日菲绕开中国擅自启动所谓“划界谈判”严重违反国际法和国际关系基本准则，严重侵害中国海洋权益，完全非法无效。
+
+大陆海警在台湾岛以东海域依法开展执法巡查，是针对日菲严重侵犯中国领土主权和海域权益采取的必要行动，并将继续加强对有关海域的管控。
+
+民进党当局对日菲的严重侵权行径卑躬屈膝，出卖民族利益，沦为民族败类，已经遭到包括台湾同胞在内的两岸同胞的反对和唾弃，其企图升高两岸对立的做法说法，不过是在转移压力欺骗民众。
+
+(总台央视记者 张雪松 赵超逸)
 
 ## 相关推荐
 
-- 2026-06-29 17:21 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 17:08 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 17:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 17:04 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 17:04 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 17:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 17:13 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 17:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 17:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 17:03 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 17:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 17:15 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 17:10 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 17:09 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 17:09 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 17:21 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 17:29 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 17:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 17:10 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 17:17 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 17:20 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 17:12 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 17:00 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 17:12 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 17:15 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:17 - [恋与深空 731](https://www.share.minike.top/Article/details/8551805300.shtml)
-- 2026-06-29 17:23 - [扬名立万](http://www.share.kurohicncr.top/Article/details/39686.shtml)
-- 2026-06-29 17:01 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/480512.shtml)
-- 2026-06-29 17:22 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/582465695390.shtml)
-- 2026-06-29 17:01 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/2156714.shtml)
-- 2026-06-29 17:06 - [斛珠夫人](https://www.blog.minike.top/Article/details/51159.shtml)
-- 2026-06-29 16:59 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/1532282250.shtml)
-- 2026-06-29 17:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/341322.shtml)
-- 2026-06-29 17:10 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/62205710383.shtml)
-- 2026-06-29 17:19 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/644511.shtml)
-- 2026-06-29 17:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/325076.shtml)
-- 2026-06-29 17:23 - [挪威王储妃长子2次强奸被判4年](http://www.share.minike.top/Article/details/87824315.shtml)
-- 2026-06-29 17:13 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/7769138.shtml)
-- 2026-06-29 17:07 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/720243045378.shtml)
-- 2026-06-29 17:09 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/32615.shtml)
+- 2026-06-29 17:08 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/369305.shtml)
+- 2026-06-29 17:28 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/59985258680.shtml)
+- 2026-06-29 17:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/585176.shtml)
+- 2026-06-29 17:14 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/156532.shtml)
+- 2026-06-29 17:22 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/99468217473.shtml)
+- 2026-06-29 17:15 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/34081524.shtml)
+- 2026-06-29 17:11 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/144170678.shtml)
+- 2026-06-29 17:16 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/764152478.shtml)
+- 2026-06-29 17:08 - [扬名立万](https://www.blog.minike.top/Article/details/8550342.shtml)
+- 2026-06-29 17:08 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/023300.shtml)
+- 2026-06-29 17:12 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/301957333.shtml)
+- 2026-06-29 17:16 - [货车司机雨中帮交警挪树获表扬](https://www.share.kurohicncr.top/Article/details/90575.shtml)
+- 2026-06-29 17:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/2596551.shtml)
+- 2026-06-29 17:23 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/520002825181.shtml)
+- 2026-06-29 17:27 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.kurohicncr.top/Article/details/823676.shtml)

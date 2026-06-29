@@ -1,59 +1,61 @@
-# ASCO2026：中国创新药数据高光亮眼，为什么股价全线下跌？逻辑在变化
+# 美国未宣布延长俄罗斯石油制裁豁免，是否重启制裁尚不明朗
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-美国中部时间5月29日至6月2日，被誉为全球肿瘤学界“奥斯卡”的2026年美国临床肿瘤学会（ASCO）年会正在芝加哥如火如荼地举行。大会以“转化医学的科学与实践：改善全球癌症患者预后”为主题，依旧汇聚了全球顶尖肿瘤学者，集中展示年度最具突破性的研究成果。中国创新药在本届年会上迎来了有史以来最亮眼的表现，真正成为ASCO的领衔主角之一。官方数据显示，中国学者主导的研究共有95项入
+美国财政部周三并未宣布延长针对俄罗斯海运原油的制裁豁免——该豁免已于午夜到期——但特朗普及政府官员均未说明，这是否意味着相关制裁将重新实施。 在与伊朗发生冲突期间，特朗普政府曾豁免对俄罗斯石油的制裁，以帮助脆弱经济体应对能源危机。随着华盛顿与德黑兰达成结束对伊制裁的谅解备忘录，中东石油得以重新进入全球市场，这一情况可能发生变化。 周三，特朗普对美国是否会重新对俄罗斯实施制裁未置
 
 ## 正文
 
-美国中部时间5月29日至6月2日，被誉为全球肿瘤学界“奥斯卡”的2026年美国临床肿瘤学会（ASCO）年会正在芝加哥如火如荼地举行。
+美国财政部周三并未宣布延长针对俄罗斯海运原油的制裁豁免——该豁免已于午夜到期——但特朗普及政府官员均未说明，这是否意味着相关制裁将重新实施。
 
-大会以“转化医学的科学与实践：改善全球癌症患者预后”为主题，依旧汇聚了全球顶尖肿瘤学者，集中展示年度最具突破性的研究成果。
+在与伊朗发生冲突期间，特朗普政府曾豁免对俄罗斯石油的制裁，以帮助脆弱经济体应对能源危机。
 
-中国创新药在本届年会上迎来了有史以来最亮眼的表现，真正成为ASCO的领衔主角之一。
+随着华盛顿与德黑兰达成结束对伊制裁的谅解备忘录，中东石油得以重新进入全球市场，这一情况可能发生变化。
 
-官方数据显示，中国学者主导的研究共有95项入选口头报告、快速口头报告、临床科学研讨会及继续教育专场等重要环节，较2024年的48项、2025年的72项再创新高。
+周三，特朗普对美国是否会重新对俄罗斯实施制裁未置可否。
 
-其中，12项研究入选代表全球肿瘤学领域最高水平的最新突破摘要（Late-Breaking Abstract——LBA）环节，占本届大会全部63项LBA的近五分之一。
+“我们正在考虑这个问题。
 
-全球肿瘤药物的下一个主战场将聚焦于多特异性抗体、下一代ADC及细胞基因疗法；中国企业在这波浪潮中已从“跟跑者”跃升为全球创新核心力量。
+我们正在观察油价会降到什么程度，它真的在暴跌，”他在法国举行的七国集团（G7）峰会上对记者说。
 
-这一发展趋势在本届ASCO大会上得到了充分印证。
+周二，特朗普暗示，美国可以通过终止豁免来重新实施制裁。
 
-尤其是在多特异性抗体及下一代ADC领域，中国创新药的引领性优势已保持数年。
+“我们很快就能做到这一点，因为石油现在正从中东源源不断地流出，”他说。
 
 ## 相关推荐
 
-- 2026-06-29 17:20 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 17:17 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 17:21 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 17:19 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 17:23 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 17:20 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 17:17 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 17:05 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 17:08 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 16:54 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 17:12 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 16:54 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 16:59 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 17:27 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 17:15 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 17:17 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 17:18 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 17:23 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 17:27 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 17:04 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 17:03 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 17:11 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 17:06 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 17:25 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 17:17 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 17:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 17:24 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 17:28 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:06 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/440680548888.shtml)
-- 2026-06-29 17:03 - [时光音乐会](http://www.share.minike.top/Article/details/5216869.shtml)
-- 2026-06-29 17:16 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/74498644.shtml)
-- 2026-06-29 17:00 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/883475786822.shtml)
-- 2026-06-29 17:04 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/314823.shtml)
-- 2026-06-29 16:59 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/1039993.shtml)
-- 2026-06-29 17:16 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/266925.shtml)
-- 2026-06-29 17:02 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/2841240.shtml)
-- 2026-06-29 17:23 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/461723345473.shtml)
-- 2026-06-29 16:55 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/79633.shtml)
-- 2026-06-29 16:57 - [恋与深空 731](https://www.share.kurohicncr.top/Article/details/219643.shtml)
-- 2026-06-29 17:05 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/219223427.shtml)
-- 2026-06-29 17:19 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/65824.shtml)
-- 2026-06-29 17:04 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/159423.shtml)
-- 2026-06-29 17:07 - [倪春青跨市履新苏州市委组织部部长](http://www.blog.minike.top/Article/details/07217.shtml)
+- 2026-06-29 17:22 - [天道](https://www.share.kurohicncr.top/Article/details/633412716.shtml)
+- 2026-06-29 17:08 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/9923965987.shtml)
+- 2026-06-29 17:06 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/22066.shtml)
+- 2026-06-29 17:09 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/34737793.shtml)
+- 2026-06-29 17:12 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/74307.shtml)
+- 2026-06-29 17:25 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/9427397862.shtml)
+- 2026-06-29 17:18 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/249099.shtml)
+- 2026-06-29 17:05 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/7648521089.shtml)
+- 2026-06-29 17:14 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/90543410657.shtml)
+- 2026-06-29 17:21 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/42830.shtml)
+- 2026-06-29 17:26 - [NBA交易](https://www.share.minike.top/Article/details/200866823062.shtml)
+- 2026-06-29 17:18 - [美人鱼](http://www.share.kurohicncr.top/Article/details/03365661084.shtml)
+- 2026-06-29 17:04 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/79806195.shtml)
+- 2026-06-29 17:03 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.kurohicncr.top/Article/details/028007043283.shtml)
+- 2026-06-29 17:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/33369422974.shtml)

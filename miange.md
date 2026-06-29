@@ -1,56 +1,58 @@
-# SpaceX要求压低IPO承销费率 但华尔街投行仍有望分食5亿美元收入
+# 达巍：美国全球制度霸权走向终结
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-马斯克旗下SpaceX正在与经手其IPO的华尔街投行谈判，希望支付极低的费率。不过，即便收费标准大幅压低，负责此次上市的银行仍有望从这场创纪录的IPO中获得约5亿美元收入。 马斯克旗下这家航天与人工智能集团计划于本月进行IPO，目标募资规模750亿美元，据知情人士透露，目前该公司正争取将承销费率压低至0.75%以下。尽管这一费率远低于通常水平，但仍将成为这些负责安排此次IPO的
+中新网北京6月18日电(记者 王莹 孔任远)清华大学战略与安全研究中心主任、国际关系学系教授达巍17日在北京表示，美国全球领导力正面临“崩溃的时刻”，特朗普政府以“掀桌子”的方式主动拆解既有多边制度框架，美国的全球制度霸权走向终结。 当日，中国人民大学区域国别研究院(重阳金融研究院)、中国人民大学全球领导力学院共同举办“区域国别学与全球领导力系列讲座”第六场活动，达巍就“中美的
 
 ## 正文
 
-马斯克旗下SpaceX正在与经手其IPO的华尔街投行谈判，希望支付极低的费率。
+中新网北京6月18日电(记者 王莹 孔任远)清华大学战略与安全研究中心主任、国际关系学系教授达巍17日在北京表示，美国全球领导力正面临“崩溃的时刻”，特朗普政府以“掀桌子”的方式主动拆解既有多边制度框架，美国的全球制度霸权走向终结。
 
-不过，即便收费标准大幅压低，负责此次上市的银行仍有望从这场创纪录的IPO中获得约5亿美元收入。
+当日，中国人民大学区域国别研究院(重阳金融研究院)、中国人民大学全球领导力学院共同举办“区域国别学与全球领导力系列讲座”第六场活动，达巍就“中美的全球领导力兴衰与区域国别研究”作专题分享。
 
-马斯克旗下这家航天与人工智能集团计划于本月进行IPO，目标募资规模750亿美元，据知情人士透露，目前该公司正争取将承销费率压低至0.75%以下。
+达巍指出，美国从1890年成为世界第一大经济体到真正建立全球霸权，历经半个世纪波折，形成单极霸权支撑下的自由主义多边体系。
 
-尽管这一费率远低于通常水平，但仍将成为这些负责安排此次IPO的华尔街银行历史上最赚钱的上市项目之一。
+近年来，伴随美国国内左右翼民粹主义同步兴起，特朗普政府反对过去自由主义国际秩序及多边主义传统，主动拆解美国构建的制度主义霸权。
 
-作为本次IPO的牵头行，高盛集团和摩根士丹利预计将从承销费用中获得比其他21家参与券商更大的份额。
+他强调，如今美国领导力的实现方式从制度主导转向强制与交易优先。
 
-知情人士表示，上述数字仅反映SpaceX支付的基础承销费用，并未包含可能额外发放的奖励性费用。
+关于中国全球领导力，达巍指出，当前，中国的对外实践始终在自主性与世界性两股力量的互动中探索前行。
 
-由于讨论尚未公开信息，知情人士要求匿名。
+一方面，自主性脉络强调主权优先、独立自主，坚持反霸权反干涉，推动国际关系多极化；另一方面，世界性脉络则体现为融入全球体系、贡献全球发展、推动全球治理改革的积极姿态。
 
-投资银行通常会对IPO收取4%至7%的承销费用，而此类IPO的募资规模平均不到10亿美元。
+他指出，中国的全球影响力拓展走出了一条不同于美国霸权的全新路径，即以主权平等为基础，以发展合作为核心抓手，以“结伴不结盟”的伙伴关系网络为依托，反对任何一国垄断全球领导权。
 
 ## 相关推荐
 
-- 2026-06-29 16:59 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 17:13 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 17:17 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 17:12 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 17:03 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 17:20 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 17:07 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 17:17 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 16:59 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 17:01 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 17:11 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 17:28 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 17:24 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 17:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 17:23 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 17:10 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 17:23 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 17:00 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 17:17 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 17:18 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 17:09 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 17:17 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:22 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/21277.shtml)
-- 2026-06-29 17:05 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/38178.shtml)
-- 2026-06-29 16:55 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/407816966249.shtml)
-- 2026-06-29 17:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/965230772069.shtml)
-- 2026-06-29 16:59 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/1012481182.shtml)
-- 2026-06-29 17:07 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/9880088239.shtml)
-- 2026-06-29 16:59 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/54484317.shtml)
-- 2026-06-29 17:14 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/811520.shtml)
-- 2026-06-29 17:05 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/94511136860.shtml)
-- 2026-06-29 16:57 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/38323.shtml)
-- 2026-06-29 16:59 - [男孩复读一年减重20斤涨分111分](http://www.blog.kurohicncr.top/Article/details/07836697085.shtml)
-- 2026-06-29 17:05 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/433723635.shtml)
-- 2026-06-29 17:14 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/05602.shtml)
-- 2026-06-29 17:19 - [我和我的家乡](http://www.blog.minike.top/Article/details/2878334857.shtml)
-- 2026-06-29 17:07 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/15578.shtml)
+- 2026-06-29 17:05 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/948181951486.shtml)
+- 2026-06-29 17:21 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/52596792825.shtml)
+- 2026-06-29 17:02 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/111990761705.shtml)
+- 2026-06-29 17:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/129992073.shtml)
+- 2026-06-29 17:05 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/5673294.shtml)
+- 2026-06-29 17:06 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/363805.shtml)
+- 2026-06-29 17:03 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/50482.shtml)
+- 2026-06-29 17:14 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/002367.shtml)
+- 2026-06-29 17:21 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/266986184.shtml)
+- 2026-06-29 17:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/8599942.shtml)
+- 2026-06-29 17:24 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/449457332170.shtml)
+- 2026-06-29 17:22 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/940985172.shtml)
+- 2026-06-29 17:24 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/4807239792.shtml)
+- 2026-06-29 17:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/307060.shtml)
+- 2026-06-29 17:02 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/76648246.shtml)

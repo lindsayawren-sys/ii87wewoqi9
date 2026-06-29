@@ -1,57 +1,60 @@
-# 义乌（苏溪）国际枢纽港集装箱到发量累计超20万标箱
+# 美国主导海事安全机构：伊美达成协议后，霍尔木兹海峡威胁等级下调
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新社义乌6月2日电 (董易鑫 骆泽明)6月2日，一列海铁联运班列从位于浙江的义乌(苏溪)国际枢纽港海关监管区驶出，标志着该港自2025年6月27日启用至今，集装箱到发量累计超20万标箱。 义乌(苏溪)国际枢纽港是宁波舟山港“第六港区”的核心载体，相当于除宁波舟山港本港在五大集装箱港区以外建设的一个内陆港区，主要到发义乌至宁波舟山港的海铁联运班列。 上述模式下，义乌出口货物的相
+核心要点 由美国牵头的海军联盟本周向航运企业发布通知表示，随着伊美相关协议落地，途经霍尔木兹海峡的船舶面临的安全威胁有所缓解。 联合海事信息中心在周二发布的安全通告中，将霍尔木兹海峡的航运威胁等级从最高的 “严重” 下调至 “较高”。该海事安全机构总部位于巴林，主要负责统筹协调中东地区盟国海军力量与商船的海上安保工作。 该机构同时提醒航运企业：船舶航行该海峡期间，遭遇袭击的可能
 
 ## 正文
 
-中新社义乌6月2日电 (董易鑫 骆泽明)6月2日，一列海铁联运班列从位于浙江的义乌(苏溪)国际枢纽港海关监管区驶出，标志着该港自2025年6月27日启用至今，集装箱到发量累计超20万标箱。
+核心要点 由美国牵头的海军联盟本周向航运企业发布通知表示，随着伊美相关协议落地，途经霍尔木兹海峡的船舶面临的安全威胁有所缓解。
 
-义乌(苏溪)国际枢纽港是宁波舟山港“第六港区”的核心载体，相当于除宁波舟山港本港在五大集装箱港区以外建设的一个内陆港区，主要到发义乌至宁波舟山港的海铁联运班列。
+联合海事信息中心在周二发布的安全通告中，将霍尔木兹海峡的航运威胁等级从最高的 “严重” 下调至 “较高”。
 
-上述模式下，义乌出口货物的相关手续可就地办理，进入义乌(苏溪)国际枢纽港视同进入宁波舟山港，通关时间明显缩短，运输效率进一步提升。
+该海事安全机构总部位于巴林，主要负责统筹协调中东地区盟国海军力量与商船的海上安保工作。
 
-目前，义乌(苏溪)国际枢纽港每日约6对海铁联运班列循环运行，结合有人、无人驾驶平板运输车构建了全链智能化作业模式，是中国国内首座获批的混行模式自动驾驶试验铁路场站。
+该机构同时提醒航运企业：船舶航行该海峡期间，遭遇袭击的可能性依旧很高；水雷威胁并未消除，所有进出海峡的航道都需要保持高度警惕。
 
-据悉，2004年，浙江首次提出在宁波舟山港发展多式联运，拉开该省铁水联运序幕。
+联合海事信息中心称，美伊协议公布后，伊朗革命卫队的行动趋于平稳，不再频繁出现过激举动，美国海军仍在该区域执行维稳巡航监管任务。
 
-如今，义乌至宁波舟山港的海铁联运线路是浙江运量最大的海铁联运线路。
+数据机构克普勒的数据显示，美伊周日官宣协议后，霍尔木兹海峡油轮通行量并未显著上涨；周二当天仅有 6 艘油轮、13 艘各类商船途经该海峡。
 
-(完)
+而冲突爆发前，每日有超百艘船舶经由霍尔木兹海峡通航。
+
+联合海事信息中心在周二的通告中表示：当前霍尔木兹海峡的船舶通行量依旧远低于战前水平。
 
 ## 相关推荐
 
-- 2026-06-29 17:21 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 17:16 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 17:10 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 17:12 - [机器人学校开学了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 16:59 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 17:12 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 16:59 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 17:09 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 17:03 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 17:16 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 17:03 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 16:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 17:06 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 17:27 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 17:22 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 17:06 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 17:05 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 17:02 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 17:20 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 17:15 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 17:10 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 17:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 17:11 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 17:16 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 17:28 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 17:18 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 17:03 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:13 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/6312965686.shtml)
-- 2026-06-29 17:13 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/845167667066.shtml)
-- 2026-06-29 17:06 - [恋与深空失控领地](https://www.blog.minike.top/Article/details/639667866.shtml)
-- 2026-06-29 17:10 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/535492458.shtml)
-- 2026-06-29 17:09 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/701331773240.shtml)
-- 2026-06-29 16:54 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/2235369332.shtml)
-- 2026-06-29 17:01 - [端午节加班工资应该怎么算](https://www.blog.minike.top/Article/details/904857829078.shtml)
-- 2026-06-29 17:14 - [人形机器人](https://www.blog.kurohicncr.top/Article/details/527952621.shtml)
-- 2026-06-29 17:16 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/83663864497.shtml)
-- 2026-06-29 16:54 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/454168493789.shtml)
-- 2026-06-29 17:15 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/91772.shtml)
-- 2026-06-29 16:58 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/01200152.shtml)
-- 2026-06-29 17:17 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/1284598524.shtml)
-- 2026-06-29 17:18 - [疑似吴建豪老婆正脸照](http://www.blog.kurohicncr.top/Article/details/2711311935.shtml)
-- 2026-06-29 17:15 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/376222276247.shtml)
+- 2026-06-29 17:13 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/31179365226.shtml)
+- 2026-06-29 17:17 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/44486960492.shtml)
+- 2026-06-29 17:12 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/036342.shtml)
+- 2026-06-29 17:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/09863.shtml)
+- 2026-06-29 17:16 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/0934136406.shtml)
+- 2026-06-29 17:19 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/367277.shtml)
+- 2026-06-29 17:09 - [龟梨和也田中美奈实结婚](https://www.share.minike.top/Article/details/33908.shtml)
+- 2026-06-29 17:27 - [天柱山回应网红打卡树枝被砍](https://www.share.kurohicncr.top/Article/details/61543.shtml)
+- 2026-06-29 17:25 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/73059.shtml)
+- 2026-06-29 17:00 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/74224.shtml)
+- 2026-06-29 17:11 - [送你一朵小红花](http://www.blog.minike.top/Article/details/972092910279.shtml)
+- 2026-06-29 17:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/89143207.shtml)
+- 2026-06-29 17:06 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/5416593272.shtml)
+- 2026-06-29 17:21 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/649602.shtml)
+- 2026-06-29 17:13 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/271236696860.shtml)

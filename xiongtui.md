@@ -1,58 +1,57 @@
-# 世界旅游城市联合会“会员之家”在京揭牌
+# 航天环宇发生21笔大宗交易 合计成交4501.10万元
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电 (记者 陈杭 徐婧)2026世界旅游城市联合会北京香山旅游峰会期间，世界旅游城市联合会“会员之家”揭牌暨峰会嘉宾参观活动在北京举行。 “会员之家”是世界旅游城市联合会首度落地的实体化会员服务平台，也是联合会深耕会员服务、凝聚行业力量的重要举措，更为全球会员单位打造出一座“永不落幕的国际交往会客厅”。 该空间集会员单位品牌展览展示、专业会晤、交流互动、商务洽
+航天环宇6月17日大宗交易平台共发生21笔成交，合计成交量97.85万股，成交金额4501.10万元。成交价格均为46.00元，相对今日收盘价折价13.53%。从参与大宗交易营业部来看，机构专用席位共出现在15笔成交的买方或卖方营业部中，合计成交金额为3001.50万元，净买入3001.50万元。进一步统计，近3个月内该股累计发生36笔大宗交易，合计成交金额为8008.37万元
 
 ## 正文
 
-中新网北京6月2日电 (记者 陈杭 徐婧)2026世界旅游城市联合会北京香山旅游峰会期间，世界旅游城市联合会“会员之家”揭牌暨峰会嘉宾参观活动在北京举行。
+航天环宇6月17日大宗交易平台共发生21笔成交，合计成交量97.85万股，成交金额4501.10万元。
 
-“会员之家”是世界旅游城市联合会首度落地的实体化会员服务平台，也是联合会深耕会员服务、凝聚行业力量的重要举措，更为全球会员单位打造出一座“永不落幕的国际交往会客厅”。
+成交价格均为46.00元，相对今日收盘价折价13.53%。
 
-该空间集会员单位品牌展览展示、专业会晤、交流互动、商务洽谈等八大功能于一体。
+从参与大宗交易营业部来看，机构专用席位共出现在15笔成交的买方或卖方营业部中，合计成交金额为3001.50万元，净买入3001.50万元。
 
-其中，展示区依托品牌联合展、多媒体交互屏、文化体验角等多元形式，集中呈现各会员单位的优质文旅资源与发展成果；会议区配备专业多语种同传系统及全套现代化会务设备，可承接行业论坛、投资洽谈、会员沙龙等各类专业活动。
+进一步统计，近3个月内该股累计发生36笔大宗交易，合计成交金额为8008.37万元。
 
-依托“会员之家”，各会员单位的资源展示不再局限于峰会集中亮相，实现了常态化长效呈现。
+证券时报·数据宝统计显示，航天环宇今日收盘价为53.20元，上涨1.08%，日换手率为1.51%，成交额为3.28亿元，全天主力资金净流出637.53万元，近5日该股累计上涨0.40%，近5日资金合计净流出2.41亿元。
 
-来访人士可随时了解全球会员城市的最新动态与特色资源，会员之间也拥有了常态化交流互动、促成合作的全新窗口。
+两融数据显示，该股最新融资余额为2.38亿元，近5日减少6449.14万元，降幅为21.33%。
 
-揭牌仪式现场，多位城市代表纷纷表达深化合作的美好愿景。
+据天眼查APP显示，湖南航天环宇通信科技股份有限公司成立于2000年03月10日，注册资本40688万人民币。
 
-西班牙塞维利亚副市长安吉拉·莫雷诺表示，“会员之家”让联合会的伙伴们从盛会相聚变为日常联结，为全球旅游城市实现资源共享赋予了实实在在的价值。
+（数据宝）6月17日航天环宇大宗交易一览注：本文系新闻报道，不构成投资建议，股市有风险，投资需谨慎。
 
 ## 相关推荐
 
-- 2026-06-29 16:57 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 16:54 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 16:54 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 16:59 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 17:15 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 17:19 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 17:17 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 17:14 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 17:17 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 16:55 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 17:22 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 16:59 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 17:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 17:17 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 17:20 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 17:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 17:02 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 17:09 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 17:23 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 17:15 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 17:14 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 17:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 17:17 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:57 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/41569192.shtml)
-- 2026-06-29 17:12 - [T1 KC](http://www.blog.kurohicncr.top/Article/details/3224306220.shtml)
-- 2026-06-29 17:17 - [业内：全球市场迎来结构性投资窗口](http://www.blog.kurohicncr.top/Article/details/7245019.shtml)
-- 2026-06-29 17:13 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/4225133.shtml)
-- 2026-06-29 17:00 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/94828964564.shtml)
-- 2026-06-29 17:01 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/6023476.shtml)
-- 2026-06-29 17:01 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/0693498.shtml)
-- 2026-06-29 16:59 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/22222685166.shtml)
-- 2026-06-29 17:04 - [医院大厅放钢琴是形式主义吗](http://www.share.kurohicncr.top/Article/details/551329373.shtml)
-- 2026-06-29 17:18 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/429914734878.shtml)
-- 2026-06-29 17:18 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.minike.top/Article/details/652194120.shtml)
-- 2026-06-29 17:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/20282131.shtml)
-- 2026-06-29 17:06 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/50102.shtml)
-- 2026-06-29 17:17 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/25226973.shtml)
-- 2026-06-29 17:23 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/492179.shtml)
+- 2026-06-29 17:22 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/405228836.shtml)
+- 2026-06-29 17:01 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/0872366.shtml)
+- 2026-06-29 17:09 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/137626.shtml)
+- 2026-06-29 17:07 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.minike.top/Article/details/57746527364.shtml)
+- 2026-06-29 17:20 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/08548.shtml)
+- 2026-06-29 17:10 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/5941199.shtml)
+- 2026-06-29 17:01 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/658102.shtml)
+- 2026-06-29 17:03 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/18825069.shtml)
+- 2026-06-29 17:10 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/73574.shtml)
+- 2026-06-29 17:14 - [端午节加班工资应该怎么算](http://www.share.kurohicncr.top/Article/details/3518909.shtml)
+- 2026-06-29 17:11 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/95336.shtml)
+- 2026-06-29 17:27 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/452806742.shtml)
+- 2026-06-29 17:10 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/950456820.shtml)
+- 2026-06-29 17:27 - [网友飞机上偶遇肖战](https://www.blog.minike.top/Article/details/51185191677.shtml)
+- 2026-06-29 17:10 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/9241809.shtml)

@@ -1,51 +1,55 @@
-# 2026“一带一路”华侨华人合作发展大会在成都举行
+# 外交部：敦促七国集团切实遵守市场经济规则
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 18:20 来源：中国新闻网 6月2日，由中国侨联、四川省人民政府、重庆市人民政府共同主办的2026“一带一路”华侨华人合作发展大会在成都开幕，来自全球120个国家和地区的近700人参会。本次大会以“汇聚侨界力量谱写丝路新篇”为主题，旨在充分发挥华侨华人独特优势，推动侨界人才、技术、资金与国内产业、贸易、科技、文化资源深度对接。 大会期间，还将
+6月18日，外交部发言人林剑主持例行记者会。有记者就七国集团对中方稀土出口表态提问。 林剑表示，中方维护关键矿产安全的意愿没有变化。同时，各方都有责任并发挥建设性作用。我们敦促七国集团切实遵守市场经济规则，停止以小圈子破坏金融秩序。 (总台央视记者 赵超逸 王晨)
 
 ## 正文
 
-发布时间：2026年06月02日 18:20 来源：中国新闻网 6月2日，由中国侨联、四川省人民政府、重庆市人民政府共同主办的2026“一带一路”华侨华人合作发展大会在成都开幕，来自全球120个国家和地区的近700人参会。
+6月18日，外交部发言人林剑主持例行记者会。
 
-本次大会以“汇聚侨界力量谱写丝路新篇”为主题，旨在充分发挥华侨华人独特优势，推动侨界人才、技术、资金与国内产业、贸易、科技、文化资源深度对接。
+有记者就七国集团对中方稀土出口表态提问。
 
-大会期间，还将举行4场专题活动。
+林剑表示，中方维护关键矿产安全的意愿没有变化。
 
-专场活动结束后，部分参会嘉宾还将赴四川、重庆、新疆相关线路参访。
+同时，各方都有责任并发挥建设性作用。
 
-陈选斌 杨予頔 四川成都报道 责任编辑：【叶攀】
+我们敦促七国集团切实遵守市场经济规则，停止以小圈子破坏金融秩序。
+
+(总台央视记者 赵超逸 王晨)
 
 ## 相关推荐
 
-- 2026-06-29 17:21 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 17:05 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 17:12 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 17:20 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 16:56 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 17:12 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 17:15 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 17:22 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 17:20 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 16:54 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 16:54 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 17:29 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 17:19 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 17:25 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 17:29 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 17:15 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 17:27 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 17:04 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 17:02 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 17:06 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 17:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 17:00 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 17:20 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 17:05 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:22 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/349892607.shtml)
-- 2026-06-29 17:09 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/66107.shtml)
-- 2026-06-29 17:00 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/86983479.shtml)
-- 2026-06-29 17:13 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/7539251.shtml)
-- 2026-06-29 17:08 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/02270.shtml)
-- 2026-06-29 16:55 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.kurohicncr.top/Article/details/52286524.shtml)
-- 2026-06-29 17:07 - [周生如故](http://www.share.minike.top/Article/details/773112.shtml)
-- 2026-06-29 17:20 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/376335529204.shtml)
-- 2026-06-29 16:57 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/088681.shtml)
-- 2026-06-29 17:23 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/34073478125.shtml)
-- 2026-06-29 17:01 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/1383669.shtml)
-- 2026-06-29 17:09 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/0676431644.shtml)
-- 2026-06-29 17:04 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/29373097013.shtml)
-- 2026-06-29 16:58 - [范志毅看好日本淘汰巴西](https://www.blog.kurohicncr.top/Article/details/30563.shtml)
-- 2026-06-29 17:17 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/765039.shtml)
+- 2026-06-29 17:25 - [疑似吴建豪老婆正脸照](http://www.blog.minike.top/Article/details/15366566.shtml)
+- 2026-06-29 17:16 - [美的空调 卡bug](https://www.share.minike.top/Article/details/4359912.shtml)
+- 2026-06-29 17:17 - [夏天被这些虫子咬了可能致命](http://www.blog.minike.top/Article/details/601999.shtml)
+- 2026-06-29 17:08 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.minike.top/Article/details/830636861988.shtml)
+- 2026-06-29 17:21 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/038085929467.shtml)
+- 2026-06-29 17:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/0732108827.shtml)
+- 2026-06-29 17:04 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/842238.shtml)
+- 2026-06-29 17:02 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/42566.shtml)
+- 2026-06-29 17:19 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/2952679092.shtml)
+- 2026-06-29 17:11 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/7346213.shtml)
+- 2026-06-29 17:19 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/9885145.shtml)
+- 2026-06-29 17:25 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/84151.shtml)
+- 2026-06-29 17:28 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/15834739039.shtml)
+- 2026-06-29 17:06 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/5532606795.shtml)
+- 2026-06-29 17:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/941695503193.shtml)

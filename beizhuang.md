@@ -1,58 +1,45 @@
-# 全国19家乡村画童美术馆联动展出百幅优秀少儿画作
+# 国际油价16日大幅下跌
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新网广州6月1日电 (记者 程景伟)“十九馆联动润童心 盛世榴芳传温情”——全国19家乡村画童美术馆同步联动暨《盛世榴芳》主题发布会，6月1日在位于广州的广东省立中山图书馆启幕。 分布在全国11个省(自治区)的19家乡村画童美术馆实现同步联动，集中展出百幅优秀少儿画作。 依托数字化技术打造的全新美育线上阵地——《盛世榴芳》袁桂扬·画童云展厅正式上线。数字化展览打破时空限制，既
+发布时间：2026年06月17日 10:51 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网广州6月1日电 (记者 程景伟)“十九馆联动润童心 盛世榴芳传温情”——全国19家乡村画童美术馆同步联动暨《盛世榴芳》主题发布会，6月1日在位于广州的广东省立中山图书馆启幕。
-
-分布在全国11个省(自治区)的19家乡村画童美术馆实现同步联动，集中展出百幅优秀少儿画作。
-
-依托数字化技术打造的全新美育线上阵地——《盛世榴芳》袁桂扬·画童云展厅正式上线。
-
-数字化展览打破时空限制，既方便民众云端观展，也为少儿艺术作品搭建了展示、交流平台。
-
-活动现场举行《“盛世榴芳耀中华”主题绘本》新书首发仪式。
-
-岭南美术出版社副总编辑陈积旺宣布同步发起“童心润童心”青少年绘本填色优秀作品征集活动。
-
-“盛世榴芳公益艺术角”项目也正式启动。
-
-项目创办人袁桂扬为广州图书馆、广州少年儿童图书馆等首批合作公共文化单位授牌。
+发布时间：2026年06月17日 10:51 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 17:10 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 17:21 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 16:54 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 17:06 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 17:11 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 17:06 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 17:17 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 17:17 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 17:07 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 16:59 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 17:10 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 17:03 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 17:08 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 17:28 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 17:01 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 17:19 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 17:29 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 17:29 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 17:19 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 17:23 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 17:17 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 17:15 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 17:29 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 17:03 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:21 - [端午节加班工资应该怎么算](http://www.share.minike.top/Article/details/51583704756.shtml)
-- 2026-06-29 17:18 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/3418752009.shtml)
-- 2026-06-29 16:58 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/2883947.shtml)
-- 2026-06-29 17:11 - [7款商保创新药“转道”](https://www.blog.minike.top/Article/details/960008281.shtml)
-- 2026-06-29 17:07 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/201046221349.shtml)
-- 2026-06-29 16:56 - [倪春青跨市履新苏州市委组织部部长](http://www.share.minike.top/Article/details/218539860983.shtml)
-- 2026-06-29 17:22 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/8643454851.shtml)
-- 2026-06-29 16:59 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/49418468.shtml)
-- 2026-06-29 17:22 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/762064046954.shtml)
-- 2026-06-29 17:14 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/97910.shtml)
-- 2026-06-29 17:13 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/411360.shtml)
-- 2026-06-29 17:11 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/45292611.shtml)
-- 2026-06-29 17:23 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/9612706962.shtml)
-- 2026-06-29 16:58 - [税务总局披露5起合规申报个税案例](http://www.blog.kurohicncr.top/Article/details/873145.shtml)
-- 2026-06-29 17:06 - [博主：全球股市进入“AI极端共振”](http://www.blog.kurohicncr.top/Article/details/416805585748.shtml)
+- 2026-06-29 17:22 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/7667068239.shtml)
+- 2026-06-29 17:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/51825784.shtml)
+- 2026-06-29 17:13 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/344003353129.shtml)
+- 2026-06-29 17:11 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/678384.shtml)
+- 2026-06-29 17:17 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/2107807802.shtml)
+- 2026-06-29 17:01 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/96809461916.shtml)
+- 2026-06-29 17:18 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/073903757243.shtml)
+- 2026-06-29 17:08 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/3781745114.shtml)
+- 2026-06-29 17:06 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/71023.shtml)
+- 2026-06-29 17:11 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/87770559330.shtml)
+- 2026-06-29 17:16 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.minike.top/Article/details/9469225856.shtml)
+- 2026-06-29 17:28 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/945094585398.shtml)
+- 2026-06-29 17:15 - [朱必达辞去湖南人大常委会委员职务](http://www.share.kurohicncr.top/Article/details/98812772.shtml)
+- 2026-06-29 17:09 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/3151624931.shtml)
+- 2026-06-29 17:25 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/768418.shtml)

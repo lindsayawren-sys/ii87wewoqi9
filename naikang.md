@@ -1,57 +1,55 @@
-# 刚果（金）暴发埃博拉疫情 外交部：此时此刻中国医疗队就在当地坚守
+# 新疆阜康文物展山西展出：“希腊风”带柄铜镜见证丝路交融
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新网北京6月1日电 (记者 黄钰钦 谢雁冰)中国外交部发言人林剑6月1日主持例行记者会。 有记者提问：近期，刚果(金)暴发新一轮埃博拉疫情。世界卫生组织和非洲疾控中心呼吁国际社会积极支持非洲抗疫。请问中方采取了哪些措施支持非方应对本轮埃博拉疫情？ 林剑：中非是风雨同舟、患难与共的好兄弟，我们对当前刚果(金)暴发新一轮埃博拉疫情感同身受。王毅外长近日在纽约主持联合国安理会高级别
+发布时间：2026年06月17日 13:47 来源：中国新闻网 6月16日，“明月出天山——新疆阜康历史文物展”在山西博物院开展。展览汇集石器、陶器、青铜器、玻璃器、瓷器等近180件珍贵文物，时间跨度从新石器时代直至清代，串联起天山北麓6000年的文明长卷。 阜康位于博格达峰北麓，毗邻天山天池，是丝绸之路北道的必经之地。展柜中，一件“希腊风”带柄铜镜格外引人注目。它下方有一个长
 
 ## 正文
 
-中新网北京6月1日电 (记者 黄钰钦 谢雁冰)中国外交部发言人林剑6月1日主持例行记者会。
+发布时间：2026年06月17日 13:47 来源：中国新闻网 6月16日，“明月出天山——新疆阜康历史文物展”在山西博物院开展。
 
-有记者提问：近期，刚果(金)暴发新一轮埃博拉疫情。
+展览汇集石器、陶器、青铜器、玻璃器、瓷器等近180件珍贵文物，时间跨度从新石器时代直至清代，串联起天山北麓6000年的文明长卷。
 
-世界卫生组织和非洲疾控中心呼吁国际社会积极支持非洲抗疫。
+阜康位于博格达峰北麓，毗邻天山天池，是丝绸之路北道的必经之地。
 
-请问中方采取了哪些措施支持非方应对本轮埃博拉疫情？
+展柜中，一件“希腊风”带柄铜镜格外引人注目。
 
-林剑：中非是风雨同舟、患难与共的好兄弟，我们对当前刚果(金)暴发新一轮埃博拉疫情感同身受。
+它下方有一个长柄，背面刻有希腊罗马风格的勇士形象，柄上饰以植物纹样，印证了丝绸之路不仅是商品通道，更是文化交融的纽带。
 
-王毅外长近日在纽约主持联合国安理会高级别会议时表示，在重大公共危机面前，中国千里驰援。
-
-继2015年全力支持西非三国抗击埃博拉疫情之后，中国将向近期暴发埃博拉疫情的刚果(金)等积极提供帮助。
-
-为此，中国政府决定向刚果(金)提供紧急人道主义援助，并专门派遣医疗专家组赴刚提供医疗服务和帮助。
+(记者 王惠琳) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 17:05 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 17:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 17:00 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 17:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 17:11 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 17:19 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 17:22 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 17:13 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 16:58 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 17:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 16:59 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 17:15 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 17:25 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 17:18 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 17:17 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 17:16 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 17:15 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 17:21 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 17:15 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 17:06 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 17:15 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 17:18 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 17:07 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 17:05 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:02 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/180054706.shtml)
-- 2026-06-29 17:21 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/4187261997.shtml)
-- 2026-06-29 17:21 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/5943017117.shtml)
-- 2026-06-29 16:55 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/3450169.shtml)
-- 2026-06-29 17:21 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/23646.shtml)
-- 2026-06-29 17:03 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/705736.shtml)
-- 2026-06-29 17:17 - [乔家的儿女](http://www.share.minike.top/Article/details/81714.shtml)
-- 2026-06-29 16:58 - [恋与深空 731](https://www.blog.minike.top/Article/details/653964000.shtml)
-- 2026-06-29 17:17 - [NBA交易](https://www.blog.minike.top/Article/details/8564281291.shtml)
-- 2026-06-29 16:59 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/55168930422.shtml)
-- 2026-06-29 17:03 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/34977204656.shtml)
-- 2026-06-29 17:16 - [波兰创该国高温纪录](https://www.share.kurohicncr.top/Article/details/6143661717.shtml)
-- 2026-06-29 17:01 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/213226035816.shtml)
-- 2026-06-29 17:10 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/1969687.shtml)
-- 2026-06-29 17:20 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/766886.shtml)
+- 2026-06-29 17:28 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/280640836318.shtml)
+- 2026-06-29 17:14 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/10099801347.shtml)
+- 2026-06-29 17:15 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/47647.shtml)
+- 2026-06-29 17:19 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/53294609641.shtml)
+- 2026-06-29 17:03 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/814218.shtml)
+- 2026-06-29 17:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/1670301482.shtml)
+- 2026-06-29 17:07 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/121542827.shtml)
+- 2026-06-29 17:12 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/30012.shtml)
+- 2026-06-29 17:14 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/21807124702.shtml)
+- 2026-06-29 17:17 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/189514637787.shtml)
+- 2026-06-29 17:22 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/4179173.shtml)
+- 2026-06-29 17:00 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/50994101.shtml)
+- 2026-06-29 17:13 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/97258676590.shtml)
+- 2026-06-29 17:26 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/323912651.shtml)
+- 2026-06-29 17:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/99661486238.shtml)

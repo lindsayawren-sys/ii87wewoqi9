@@ -1,58 +1,58 @@
-# 第十一次中英战略对话在北京举行
+# 文旅融合智造赋能 浙江“万企兴万村”行动绘新篇
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-2026年6月2日，中共中央政治局委员、外交部长王毅在北京同英国外交大臣库珀举行第十一次中英战略对话。 王毅表示，今年初，斯塔默首相成功访华，两国领导人就中英发展长期稳定的全面战略伙伴关系达成重要共识。这一新定位反映了两国关系的历史逻辑，符合各自发展的现实需要，也构画了长久可期的共赢愿景。当前，双方各领域交往合作全面恢复，逐步进入正轨，值得倍加珍惜。我们要进一步沟通对表，落实好
+中新网台州6月17日电(蓝伊旎)6月16日，浙江省“万企兴万村”行动推进会在浙江台州召开，会上发布了第四批浙江省“万企兴万村”行动省级实验项目，共计35个，覆盖智能制造、文旅融合、生态赋能等多元领域。 近年来，浙江各地因地制宜、多方协同，培育了一批接地气、有实效、可复制的村企共富项目，探索出了多元化的民企兴村方法路径。 截至目前，浙商累计落地“万企兴万村”帮扶项目5368个，结
 
 ## 正文
 
-2026年6月2日，中共中央政治局委员、外交部长王毅在北京同英国外交大臣库珀举行第十一次中英战略对话。
+中新网台州6月17日电(蓝伊旎)6月16日，浙江省“万企兴万村”行动推进会在浙江台州召开，会上发布了第四批浙江省“万企兴万村”行动省级实验项目，共计35个，覆盖智能制造、文旅融合、生态赋能等多元领域。
 
-王毅表示，今年初，斯塔默首相成功访华，两国领导人就中英发展长期稳定的全面战略伙伴关系达成重要共识。
+近年来，浙江各地因地制宜、多方协同，培育了一批接地气、有实效、可复制的村企共富项目，探索出了多元化的民企兴村方法路径。
 
-这一新定位反映了两国关系的历史逻辑，符合各自发展的现实需要，也构画了长久可期的共赢愿景。
+截至目前，浙商累计落地“万企兴万村”帮扶项目5368个，结对帮扶村3442个；建成“共富工坊”2200余家，吸纳农村剩余劳动力10.9万人、低收入农户1.4万人。
 
-当前，双方各领域交往合作全面恢复，逐步进入正轨，值得倍加珍惜。
+“十五五”开局起步，“万企兴万村”行动已全面进入常态化、长效化推进新阶段。
 
-我们要进一步沟通对表，落实好两国领导人重要共识，锚定长期稳定的中英全面战略伙伴关系这一定位，加强高层交往，推动形成更多务实可见的成果，为促进世界和平稳定、繁荣发展作出中英两国的贡献，为这个动荡不安的世界注入更多确定性。
+浙江省工商联相关负责人表示，要主动融入“缩差共富”工作体系，目标上聚焦强村富民，区域上聚焦山区海岛县，重心上聚焦“相对薄弱镇村”，机制上注重协同联动。
 
-王毅表示，中国改革开放40多年历史证明，开放带来进步，封闭只会倒退。
+接下去，浙江将推动“万企兴万村”行动提质增效，本次发布的第四批省级实验项目涵盖诸暨山上陶家零碳共富乡村综合体项目、宁波江丰电子“红芯植物工厂”智能制造赋能乡村振兴项目、宁波华东城集团“红山谷”生态共富项目等，涵盖多类兴村路径。
 
-中方坚持高质量发展，坚持高水平开放。
+据悉，推进会期间，与会代表考察了临海市江南·溪望谷“沿溪乡村共富示范带”、东塍彩灯共富产业带等“万企兴万村”行动项目，有关企业参加了临海特色产业考察。
 
-“十五五”规划纲要既是中国自身的发展规划，也是面向世界的机遇清单，与英国的现代产业战略高度契合，双方可以抓住机遇，双向奔赴，相互成就。
+会议期间还举行了台州市“万企兴万村”行动项目及惠农产品展示。
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 17:08 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 17:22 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 17:01 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 17:15 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 16:56 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 16:56 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 17:02 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 16:54 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 16:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 16:56 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 17:01 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 17:06 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 17:06 - [T1零封KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 17:10 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 17:25 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 17:13 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 17:06 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 17:28 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 17:01 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-29 17:07 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 17:27 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 17:05 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 17:26 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:17 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.minike.top/Article/details/72786011451.shtml)
-- 2026-06-29 17:06 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/686505.shtml)
-- 2026-06-29 17:19 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/39474985010.shtml)
-- 2026-06-29 17:13 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/6008561.shtml)
-- 2026-06-29 17:04 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/637307285.shtml)
-- 2026-06-29 17:07 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/515188.shtml)
-- 2026-06-29 17:10 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/220890.shtml)
-- 2026-06-29 17:07 - [南昌市委书记调整](https://www.share.minike.top/Article/details/378420.shtml)
-- 2026-06-29 17:13 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/404142422274.shtml)
-- 2026-06-29 17:04 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/685453.shtml)
-- 2026-06-29 17:11 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/247952221151.shtml)
-- 2026-06-29 17:03 - [众星恭喜吴建豪](http://www.blog.minike.top/Article/details/93838155854.shtml)
-- 2026-06-29 16:58 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/2177911520.shtml)
-- 2026-06-29 17:18 - [货车司机雨中帮交警挪树获表扬](https://www.share.kurohicncr.top/Article/details/8277195.shtml)
-- 2026-06-29 17:05 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/9075807047.shtml)
+- 2026-06-29 17:18 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/358597.shtml)
+- 2026-06-29 17:19 - [20年前的周杰伦](http://www.share.minike.top/Article/details/15727444972.shtml)
+- 2026-06-29 17:24 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/8174308095.shtml)
+- 2026-06-29 17:12 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/45785767.shtml)
+- 2026-06-29 17:11 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/5836229.shtml)
+- 2026-06-29 17:17 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/69206.shtml)
+- 2026-06-29 17:19 - [葛军谈AI时代理科生出路](http://www.blog.kurohicncr.top/Article/details/01568.shtml)
+- 2026-06-29 17:26 - [世界杯十大帅哥必吃榜](https://www.blog.minike.top/Article/details/12475.shtml)
+- 2026-06-29 17:02 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/5650206.shtml)
+- 2026-06-29 17:17 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/678053.shtml)
+- 2026-06-29 17:11 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/2098904703.shtml)
+- 2026-06-29 17:26 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/44713.shtml)
+- 2026-06-29 17:19 - [四川地震前夕 街头电线上站满燕子](http://www.share.kurohicncr.top/Article/details/761445306013.shtml)
+- 2026-06-29 17:25 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/352247062005.shtml)
+- 2026-06-29 17:08 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/028825865.shtml)

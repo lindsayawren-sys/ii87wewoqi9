@@ -1,56 +1,61 @@
-# 约旦连续展开小麦与大麦国际招标
+# 一文读懂|美联储主席沃什首秀 抛弃前瞻指引 淡化点阵图 改革美联储成立特别工作组 承诺坚守2%通胀底线
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-欧洲贸易商周二透露，约旦国家粮食采购机构当天在国际招标中成功购入约6万吨硬质铣磨小麦，以强化该国粮食战略储备。 据业内人士透露，这批小麦最终由保加利亚贸易商Buildcom中标，交易价格估计为每吨276.00美元（C&F，含成本及运费），货源地可在多个指定产区中选择，预计将于今年8月下半月发运。除中标企业外，包括CHS（报价每吨278.80美元）、Ameropa（报价每吨280
+专题：美联储维持利率不变，精简声明以移除降息偏向 北京时间6月18日凌晨2：00美联储宣布，继续将联邦基金利率目标区间维持在3.5%至3.75%之间不变。这一今年连续第四次维持利率不变的决定符合市场普遍预期。 在会后声明中，官员们表示通胀仍然偏高，重申将实现价格稳定。他们继续将经济增长描述为“稳健”。官员们还表示，生产率增长和资本投资表现强劲。此次政策声明的篇幅较前几次更为精简
 
 ## 正文
 
-欧洲贸易商周二透露，约旦国家粮食采购机构当天在国际招标中成功购入约6万吨硬质铣磨小麦，以强化该国粮食战略储备。
+专题：美联储维持利率不变，精简声明以移除降息偏向 北京时间6月18日凌晨2：00美联储宣布，继续将联邦基金利率目标区间维持在3.5%至3.75%之间不变。
 
-据业内人士透露，这批小麦最终由保加利亚贸易商Buildcom中标，交易价格估计为每吨276.00美元（C&F，含成本及运费），货源地可在多个指定产区中选择，预计将于今年8月下半月发运。
+这一今年连续第四次维持利率不变的决定符合市场普遍预期。
 
-除中标企业外，包括CHS（报价每吨278.80美元）、Ameropa（报价每吨280.60美元）以及路易达孚（Dreyfus，报价每吨282.00美元）在内的多家跨国粮商也参与了此次竞标。
+在会后声明中，官员们表示通胀仍然偏高，重申将实现价格稳定。
 
-交易商指出，约旦预计将在未来几天内发布新一轮国际招标，计划再采购12万吨小麦，该标案预计将于6月9日截标。
+他们继续将经济增长描述为“稳健”。
 
-此外，为满足国内畜牧业的饲料需求，约旦官方还同步发布了另一项独立招标，计划采购12万吨饲用大麦。
+官员们还表示，生产率增长和资本投资表现强劲。
 
-该项大麦招标的竞价递交截止时间定于本周三。
+此次政策声明的篇幅较前几次更为精简。
 
-责任编辑：龙运翔
+考虑到沃什曾承诺改革美联储沟通策略，这种简洁风格可能预示未来的一种变化。
+
+决策者们对3月公布的经济预测进行了多项调整，对今年通胀率的预测中值从2.7%上调至3.6%，对2026年核心通胀率的预测从2.7%上调至3.3%。
 
 ## 相关推荐
 
-- 2026-06-29 17:21 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 17:08 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 17:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 17:03 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 16:55 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 17:20 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 17:20 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 16:54 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 17:01 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 17:07 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 17:12 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 17:08 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 17:26 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 17:14 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 17:19 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 17:24 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 17:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 17:13 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 17:28 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 17:17 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 17:28 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 17:24 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 17:03 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 17:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 17:09 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 17:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 17:08 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/2430501754.shtml)
-- 2026-06-29 17:19 - [大疆7月15日起涨价？公司回应](http://www.blog.minike.top/Article/details/440386.shtml)
-- 2026-06-29 16:55 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/427964888.shtml)
-- 2026-06-29 16:59 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/27122004834.shtml)
-- 2026-06-29 16:56 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/49852655.shtml)
-- 2026-06-29 17:01 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/76798103.shtml)
-- 2026-06-29 17:11 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/775952588.shtml)
-- 2026-06-29 17:03 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/482818.shtml)
-- 2026-06-29 17:18 - [极限挑战第一季](https://www.share.minike.top/Article/details/910544818.shtml)
-- 2026-06-29 16:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/0515925.shtml)
-- 2026-06-29 17:21 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/1949151389.shtml)
-- 2026-06-29 17:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/6852749041.shtml)
-- 2026-06-29 17:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/0740239.shtml)
-- 2026-06-29 17:11 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/21018.shtml)
-- 2026-06-29 17:06 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/59204963.shtml)
+- 2026-06-29 17:09 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/515644521669.shtml)
+- 2026-06-29 17:29 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/7127450.shtml)
+- 2026-06-29 17:28 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/84309.shtml)
+- 2026-06-29 17:02 - [小说《无悔追踪》翻红](http://www.share.minike.top/Article/details/307873970287.shtml)
+- 2026-06-29 17:10 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/920076606.shtml)
+- 2026-06-29 17:26 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/20991924.shtml)
+- 2026-06-29 17:18 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/8564296.shtml)
+- 2026-06-29 17:07 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/7853137459.shtml)
+- 2026-06-29 17:08 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/73244954700.shtml)
+- 2026-06-29 17:21 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.minike.top/Article/details/532771539988.shtml)
+- 2026-06-29 17:00 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/7549154.shtml)
+- 2026-06-29 17:25 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/115451759718.shtml)
+- 2026-06-29 17:07 - [省市招考专家解读山西高考志愿政策](https://www.blog.minike.top/Article/details/50209.shtml)
+- 2026-06-29 17:13 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/038928210.shtml)
+- 2026-06-29 17:27 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/15721.shtml)

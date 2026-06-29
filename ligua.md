@@ -1,60 +1,61 @@
-# 中联部部长刘海星会见巴西外长维埃拉
+# 十项措施对接签约会受两岸民众欢迎 国台办：让更多同胞共享其惠
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新社北京6月2日电 6月2日，中共中央对外联络部部长刘海星在北京会见巴西外长维埃拉。 刘海星表示，在习近平主席和卢拉总统的战略引领和亲自推动下，中巴关系实现从全面战略伙伴到命运共同体的里程碑式跨越，正处于历史最好时期。两国合作具有超越双边范畴的战略性和全球性影响，树立了全球南方团结自强的典范。党际交往是中巴关系的重要组成部分，为巩固双方政治互信、引领双边关系发展发挥了重要作用
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。有记者问：在海峡论坛期间，举办了十项促进两岸交流合作的政策措施对接签约会，受到两岸民众欢迎和好评。请介绍有关情况。 发言人陈斌华表示，十项促进两岸交流合作的政策措施对接签约会13日在厦门举行。大陆企业与来自台湾多地的企业和商会协会进行签约，采购台湾台东、云林、南投等县市凤梨释迦、文旦柚、茶叶等农渔产品。来自两岸的120余
 
 ## 正文
 
-中新社北京6月2日电 6月2日，中共中央对外联络部部长刘海星在北京会见巴西外长维埃拉。
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。
 
-刘海星表示，在习近平主席和卢拉总统的战略引领和亲自推动下，中巴关系实现从全面战略伙伴到命运共同体的里程碑式跨越，正处于历史最好时期。
+有记者问：在海峡论坛期间，举办了十项促进两岸交流合作的政策措施对接签约会，受到两岸民众欢迎和好评。
 
-两国合作具有超越双边范畴的战略性和全球性影响，树立了全球南方团结自强的典范。
+请介绍有关情况。
 
-党际交往是中巴关系的重要组成部分，为巩固双方政治互信、引领双边关系发展发挥了重要作用。
+发言人陈斌华表示，十项促进两岸交流合作的政策措施对接签约会13日在厦门举行。
 
-中国共产党愿同巴各政党落实好两国元首重要共识，加强政治对话，深化理念互鉴，通过“政党+”平台促进各领域交流合作，携手助力中巴命运共同体建设。
+大陆企业与来自台湾多地的企业和商会协会进行签约，采购台湾台东、云林、南投等县市凤梨释迦、文旦柚、茶叶等农渔产品。
 
-刘海星并介绍了当前中国共产党正在开展的树立和践行正确政绩观学习教育有关情况。
+来自两岸的120余名嘉宾参加对接会。
 
-维埃拉表示，近年来，两国元首共同将巴中关系提升到命运共同体的新高度，为双方巩固政治互信、深化团结协作提供了重要战略指引。
+参加签约会的台湾业者表示，十项措施让岛内农渔民获得实实在在的两岸和平红利，希望两岸通过善意对话沟通，推动更多更好成果不断落地。
 
-双边关系稳定性、可预期性进一步提升，成为当今世界国与国关系的典范。
+陈斌华指出，今后，国台办将进一步推动十项措施落实落细，坚持以交流融合增进民生福祉，争取让两岸更多同胞同获其利、共享其惠。
 
 ## 相关推荐
 
-- 2026-06-29 17:00 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 17:06 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 17:07 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 17:09 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 17:08 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 17:02 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 16:57 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 17:03 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 17:17 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 17:17 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 16:58 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 17:08 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 17:07 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 17:11 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 17:09 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 17:04 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 17:05 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 17:27 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 17:09 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 17:03 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 17:18 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 17:05 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 17:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 17:06 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 17:19 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 17:20 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 17:07 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 17:18 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 17:16 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:01 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/380363.shtml)
-- 2026-06-29 16:59 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/995991322018.shtml)
-- 2026-06-29 17:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/39666042.shtml)
-- 2026-06-29 17:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/406136.shtml)
-- 2026-06-29 16:58 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/920352293.shtml)
-- 2026-06-29 17:06 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/902252187458.shtml)
-- 2026-06-29 17:12 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/28467.shtml)
-- 2026-06-29 17:18 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/5044167140.shtml)
-- 2026-06-29 17:21 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/70898986702.shtml)
-- 2026-06-29 17:05 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/616105007470.shtml)
-- 2026-06-29 17:06 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.minike.top/Article/details/3954277901.shtml)
-- 2026-06-29 17:06 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/184997.shtml)
-- 2026-06-29 17:07 - [网友飞机上偶遇肖战](http://www.blog.minike.top/Article/details/0776204.shtml)
-- 2026-06-29 16:58 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/77933466.shtml)
-- 2026-06-29 17:00 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/359603.shtml)
+- 2026-06-29 17:13 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.minike.top/Article/details/3905190.shtml)
+- 2026-06-29 17:24 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/709313.shtml)
+- 2026-06-29 17:09 - [工作靠AI算不算职场作弊](http://www.share.kurohicncr.top/Article/details/5805771.shtml)
+- 2026-06-29 17:29 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/28651.shtml)
+- 2026-06-29 17:04 - [《贺子珍》](https://www.blog.minike.top/Article/details/915754.shtml)
+- 2026-06-29 17:25 - [蔚来回应车漆洗车时被冲掉](https://www.share.minike.top/Article/details/535327463.shtml)
+- 2026-06-29 17:14 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/2952194.shtml)
+- 2026-06-29 17:06 - [《贺子珍》](http://www.blog.minike.top/Article/details/179705126.shtml)
+- 2026-06-29 17:12 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/3662492603.shtml)
+- 2026-06-29 17:09 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/560534.shtml)
+- 2026-06-29 17:12 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.minike.top/Article/details/9842097580.shtml)
+- 2026-06-29 17:03 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/2734615745.shtml)
+- 2026-06-29 17:20 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/86920972774.shtml)
+- 2026-06-29 17:12 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/2866126.shtml)
+- 2026-06-29 17:27 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/334919635153.shtml)

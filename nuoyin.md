@@ -1,61 +1,58 @@
-# 花游世界冠军呙俐和孩子们一起过“六一”
+# 中国央行：今年熊猫债发行规模有望创新高
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电 “它是不服输的顽强拼搏，是共进退的团结协作，更是不断创新、为国争光的担当。”面对眼前的孩子们，花游世界冠军呙俐阐释了自己对中华体育精神的理解。 “六一”国际儿童节当天，“中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动走进北京市西城区顺城街第一小学。呙俐与师生共度节日，传递中华体育精神的深刻内涵，鼓励同学们带着坚持与团结的力量，在追梦路上全
+中新社北京6月18日电 (陶思阅)据中国央行18日消息，今年前5月，熊猫债发行1365亿元人民币，占去年总量的74%，全年发行规模有望创新高。 熊猫债是指外国政府、国际开发机构、大型跨国机构等境外主体在境内发行的人民币债券。随着更多市场主体愿意使用人民币，熊猫债发行热度显著上升。 熊猫债市场发展初期，出海中资企业和国际开发机构是主要发行主体。近年来，纯外方的国际主流机构成为重要
 
 ## 正文
 
-中新网北京6月2日电 “它是不服输的顽强拼搏，是共进退的团结协作，更是不断创新、为国争光的担当。
+中新社北京6月18日电 (陶思阅)据中国央行18日消息，今年前5月，熊猫债发行1365亿元人民币，占去年总量的74%，全年发行规模有望创新高。
 
-”面对眼前的孩子们，花游世界冠军呙俐阐释了自己对中华体育精神的理解。
+熊猫债是指外国政府、国际开发机构、大型跨国机构等境外主体在境内发行的人民币债券。
 
-“六一”国际儿童节当天，“中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动走进北京市西城区顺城街第一小学。
+随着更多市场主体愿意使用人民币，熊猫债发行热度显著上升。
 
-呙俐与师生共度节日，传递中华体育精神的深刻内涵，鼓励同学们带着坚持与团结的力量，在追梦路上全力奔跑。
+熊猫债市场发展初期，出海中资企业和国际开发机构是主要发行主体。
 
-在“中华体育精神大讲堂”环节，呙俐讲述了自己的成长故事。
+近年来，纯外方的国际主流机构成为重要发行力量。
 
-8岁时，她因性格外向、爆发力强被花游教练选中，曾因身高不占优势在“起跑线”上就处于劣势，但她凭着一股韧劲，每天加练体能、反复打磨动作，一个托举重复几十遍，一个表情练习上百次，被队友们称为“拼命三郎”。
+目前，发行主体覆盖波兰、葡萄牙、埃及、匈牙利等主权机构，亚洲开发银行、亚洲基础设施投资银行等国际开发机构，德意志银行、摩根士丹利、大华银行等国际大型金融机构，奔驰、拜耳等跨国企业。
 
-2017年布达佩斯世锦赛，呙俐与队友携手挑战中国队此前从未夺冠的集体自由组合项目。
+数据显示，2026年一季度熊猫债累计成交1675亿元，同比增长93%，参与交易的机构大幅增加，市场活跃度明显提升。
 
-她们对着录像抠每一个细节，最终以96.1000分的成绩夺得冠军。
+同时，熊猫债发展面临的风险总体可控。
 
 ## 相关推荐
 
-- 2026-06-29 17:11 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 16:56 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 17:12 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 17:04 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 16:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 17:09 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 16:55 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 17:08 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 16:58 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 17:07 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 16:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 16:58 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 17:23 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 17:01 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 16:59 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 17:02 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 17:01 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 17:24 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 17:01 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 17:05 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 17:11 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 17:09 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 17:10 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 17:20 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 17:28 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 17:19 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 17:23 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:15 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/15926.shtml)
-- 2026-06-29 16:54 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/3563301.shtml)
-- 2026-06-29 17:10 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/664153.shtml)
-- 2026-06-29 17:00 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/071833.shtml)
-- 2026-06-29 17:02 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/77724.shtml)
-- 2026-06-29 17:04 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/7307117.shtml)
-- 2026-06-29 17:01 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/1664276.shtml)
-- 2026-06-29 17:01 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/56895556.shtml)
-- 2026-06-29 17:21 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/53554318654.shtml)
-- 2026-06-29 17:17 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/328147512028.shtml)
-- 2026-06-29 17:15 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/2433406165.shtml)
-- 2026-06-29 17:09 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/65725022.shtml)
-- 2026-06-29 17:23 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/9561470.shtml)
-- 2026-06-29 17:11 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/688520.shtml)
-- 2026-06-29 17:19 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/936197140326.shtml)
+- 2026-06-29 17:27 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/4230243388.shtml)
+- 2026-06-29 17:07 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/6731728.shtml)
+- 2026-06-29 17:13 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.minike.top/Article/details/93745.shtml)
+- 2026-06-29 17:23 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/505292.shtml)
+- 2026-06-29 17:28 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/913203668.shtml)
+- 2026-06-29 17:02 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/47117.shtml)
+- 2026-06-29 17:08 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/7535291188.shtml)
+- 2026-06-29 17:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/227129904.shtml)
+- 2026-06-29 17:29 - [王曼昱被突如其来的话筒逗笑了](http://www.share.kurohicncr.top/Article/details/58303.shtml)
+- 2026-06-29 17:19 - [端午节加班工资应该怎么算](http://www.blog.kurohicncr.top/Article/details/99623791.shtml)
+- 2026-06-29 17:15 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/796969033869.shtml)
+- 2026-06-29 17:26 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/957412.shtml)
+- 2026-06-29 17:26 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/34398.shtml)
+- 2026-06-29 17:21 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/37510.shtml)
+- 2026-06-29 17:06 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/1830030254.shtml)

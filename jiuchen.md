@@ -1,60 +1,56 @@
-# 小朋友高铁列车上过“六一”
+# 龙净环保两度顶格回购股份，耗资2.1亿元规划新一期员工持股计划
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新网评：大字吸睛小字免责？对虚假“第一”就该较真到底日本在野党批高市政府推动修宪扩军：背离民众真实诉求除了《给阿嬷的情书》，这些涉侨电影也值得一看！质量差、退费难、价格高......租赁手机小心暗藏玄机日本启动第20次核污染水排海 排放量约7800吨领取失业保险金期间，城乡居民医疗保险受影响吗？人社部回应“鞠萍姐姐”正式退休，网友：我的童年毕业了带娃出行怎么购票乘车？攻略来了
+每经记者|吴永久 张宛 每经编辑|何建川 今年以来，环保装备龙头龙净环保持续加码回购股份，短短两个半月火速完成两期股份顶格回购，合计耗资2.1亿元回购千万股本，全部专项用于员工持股计划。而前期员工持股计划解锁期满浮盈已近乎翻倍。公司新一期员工持股计划是否已有规划？为何2024年员工持股计划与往期方案差异较大？《每日经济新闻》记者（下称“记者”）就此展开探究。 6月17日，龙净环
 
 ## 正文
 
-中新网评：大字吸睛小字免责？
+每经记者|吴永久 张宛 每经编辑|何建川 今年以来，环保装备龙头龙净环保持续加码回购股份，短短两个半月火速完成两期股份顶格回购，合计耗资2.1亿元回购千万股本，全部专项用于员工持股计划。
 
-对虚假“第一”就该较真到底日本在野党批高市政府推动修宪扩军：背离民众真实诉求除了《给阿嬷的情书》，这些涉侨电影也值得一看！
+而前期员工持股计划解锁期满浮盈已近乎翻倍。
 
-质量差、退费难、价格高......租赁手机小心暗藏玄机日本启动第20次核污染水排海 排放量约7800吨领取失业保险金期间，城乡居民医疗保险受影响吗？
+公司新一期员工持股计划是否已有规划？
 
-人社部回应“鞠萍姐姐”正式退休，网友：我的童年毕业了带娃出行怎么购票乘车？
+为何2024年员工持股计划与往期方案差异较大？
 
-攻略来了！
+《每日经济新闻》记者（下称“记者”）就此展开探究。
 
-让别国文物回家，西方博物馆们敢回答这个问题吗？
+6月17日，龙净环保宣布本年度第二期回购方案实施完毕，本次回购原于6月9日披露，公司拟使用自有资金回购0.7亿元~1亿元股份，用于实施员工持股计划。
 
-这些不起眼的习惯 可能让你的血脂“直线上升”中东战火纷飞，这些孩子没有儿童节事关幼儿园食品安全！
+本次回购执行效率极高，公告当日即启动买入，仅6个交易日便于6月16日全额完成累计回购595.38万股，总支付金额1亿元，回购均价约16.8元/股，顶格用完回购额度。
 
-新规6月1日起施行大巴黎卫冕！
+本轮回购落地前，本年度首期回购刚于6月初收官。
 
 ## 相关推荐
 
-- 2026-06-29 17:20 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 17:19 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 17:03 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 17:03 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 17:21 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 17:20 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 17:18 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 17:06 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 17:08 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 17:00 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 17:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 17:14 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 17:17 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 17:00 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 17:01 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 17:10 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 17:29 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 17:09 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 17:25 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 17:02 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 17:26 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 17:22 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 17:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 17:02 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/78283473488.shtml)
-- 2026-06-29 17:06 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/965786823845.shtml)
-- 2026-06-29 17:13 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/758930976204.shtml)
-- 2026-06-29 17:11 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/995335.shtml)
-- 2026-06-29 16:58 - [金刚川](https://www.blog.kurohicncr.top/Article/details/70223769.shtml)
-- 2026-06-29 17:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/249048.shtml)
-- 2026-06-29 17:02 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/9925946585.shtml)
-- 2026-06-29 17:00 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/155846303.shtml)
-- 2026-06-29 16:57 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/875984176027.shtml)
-- 2026-06-29 17:08 - [沉睡花园](http://www.share.minike.top/Article/details/837662132119.shtml)
-- 2026-06-29 17:06 - [首尔商铺禁止洪明甫入内](http://www.blog.minike.top/Article/details/027461109.shtml)
-- 2026-06-29 17:12 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/92599394977.shtml)
-- 2026-06-29 16:59 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.kurohicncr.top/Article/details/04431792.shtml)
-- 2026-06-29 17:09 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/474755.shtml)
-- 2026-06-29 16:59 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/9456431601.shtml)
+- 2026-06-29 17:06 - [王安宇尊重田曦薇的一切选择](https://www.blog.kurohicncr.top/Article/details/8880244.shtml)
+- 2026-06-29 17:00 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/691324.shtml)
+- 2026-06-29 17:07 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/6315864475.shtml)
+- 2026-06-29 17:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/181404812.shtml)
+- 2026-06-29 17:27 - [世界杯上那些封神的门将](http://www.blog.minike.top/Article/details/5178914.shtml)
+- 2026-06-29 17:06 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/1779429.shtml)
+- 2026-06-29 17:25 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/7578971938.shtml)
+- 2026-06-29 17:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/214199341.shtml)
+- 2026-06-29 17:08 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/8092080.shtml)
+- 2026-06-29 17:12 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/077045832.shtml)
+- 2026-06-29 17:07 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/5740746.shtml)
+- 2026-06-29 17:12 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/83359441.shtml)
+- 2026-06-29 17:06 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/73023524662.shtml)
+- 2026-06-29 17:10 - [滾石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/140351429057.shtml)
+- 2026-06-29 17:04 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/74110277.shtml)

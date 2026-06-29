@@ -1,50 +1,59 @@
-# 机器人跳起“国风舞” 黑龙江30所高校师生竞技多元智能应用场景
+# 普华永道将亮相第四届链博会 聚焦AI赋能供应链新生态
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 12:45 来源：中国新闻网 5月31日，第二十八届中国机器人及人工智能大赛黑龙江赛区暨第九届黑龙江省机器人及人工智能大赛线下决赛在哈尔滨石油学院拉开帷幕。来自黑龙江省30所高校的448支团队、1700余名师生线下参赛，336支团队同步参加线上选拔。 据悉，大赛已正式列入中国高等教育学会《全国普通高等学校学科竞赛排行榜》，涵盖创新赛、应用赛、挑
+北京，2026年6月18日——第四届中国国际供应链促进博览会(链博会)将于6月22日在北京盛大开幕。作为连续两年参展的“链博老友”，普华永道今年将以“AI加速赛道”为核心展示主题，全面呈现如何通过人工智能技术，破解供应链协同效率不足、技术转化难等核心痛点，助力全球供应链迈向智能经济新形态。普华永道中国主席兼首席执行官何睦宁(Hemione Hudson)表示：“我们感到非常荣幸
 
 ## 正文
 
-发布时间：2026年06月01日 12:45 来源：中国新闻网 5月31日，第二十八届中国机器人及人工智能大赛黑龙江赛区暨第九届黑龙江省机器人及人工智能大赛线下决赛在哈尔滨石油学院拉开帷幕。
+北京，2026年6月18日——第四届中国国际供应链促进博览会(链博会)将于6月22日在北京盛大开幕。
 
-来自黑龙江省30所高校的448支团队、1700余名师生线下参赛，336支团队同步参加线上选拔。
+作为连续两年参展的“链博老友”，普华永道今年将以“AI加速赛道”为核心展示主题，全面呈现如何通过人工智能技术，破解供应链协同效率不足、技术转化难等核心痛点，助力全球供应链迈向智能经济新形态。
 
-据悉，大赛已正式列入中国高等教育学会《全国普通高等学校学科竞赛排行榜》，涵盖创新赛、应用赛、挑战赛三大类，包括人工智能创新赛、全地形协同机器人、智能产线应用场景等多项赛项。
+普华永道中国主席兼首席执行官何睦宁(Hemione Hudson)表示：“我们感到非常荣幸再次参加链博会。
 
-其中，机器人舞蹈赛环节中，多所高校的机器人身着汉服、行拱手礼、打起太极，别具韵味的“国风舞”点燃全场热情。
+链博会不仅是展示前沿成果的窗口，更是推动全球产业链深度合作的催化剂。
 
-(记者 刘璐 制作 田德雨） 责任编辑：【张燕玲】
+今年，我们聚焦AI，展示普华永道如何通过专业服务，将人工智能从概念转化为驱动供应链韧性、效率与可持续发展的核心引擎。
+
+我们期待与全球伙伴共同探索智能经济下的无限可能。
+
+” 本届链博会上，普华永道将打造“智能经济新形态= f(生态×认知×应用)”的方程式展台，以“AI加速赛道”为核心场景，按产业进化逻辑分为“强健发展底座”、“扩大AI市场应用”和“深化人机协同”三大赛段，全面展示从AI基础设施到行业应用，再到人机共生的完整创新链条。
+
+展会期间，普华永道将重磅发布《乘智而上，向新而行：普华永道全球人工智能效能研究中国报告》。
 
 ## 相关推荐
 
-- 2026-06-29 17:02 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 17:00 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 17:02 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 17:11 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 17:03 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 17:16 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 17:03 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 17:02 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 17:13 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 17:14 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 17:07 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 17:13 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 17:05 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 17:16 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 17:06 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 17:00 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 17:15 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 17:06 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 17:17 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 17:14 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 17:24 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 17:00 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 17:27 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:01 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/11405.shtml)
-- 2026-06-29 16:55 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/8403879.shtml)
-- 2026-06-29 17:23 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/748059.shtml)
-- 2026-06-29 17:07 - [货车司机雨中帮交警挪树获表扬](https://www.share.minike.top/Article/details/90089362.shtml)
-- 2026-06-29 17:19 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/65781.shtml)
-- 2026-06-29 17:04 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/56009622.shtml)
-- 2026-06-29 17:11 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/984322513.shtml)
-- 2026-06-29 17:10 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/32607.shtml)
-- 2026-06-29 16:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/419336472016.shtml)
-- 2026-06-29 17:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/484429530276.shtml)
-- 2026-06-29 17:17 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/25466.shtml)
-- 2026-06-29 17:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/5728403.shtml)
-- 2026-06-29 17:05 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/20607741.shtml)
-- 2026-06-29 16:55 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/909858675465.shtml)
-- 2026-06-29 17:21 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/313355452.shtml)
+- 2026-06-29 17:05 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/49222406790.shtml)
+- 2026-06-29 17:11 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/4280357747.shtml)
+- 2026-06-29 17:26 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/09708400097.shtml)
+- 2026-06-29 17:12 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/29101849293.shtml)
+- 2026-06-29 17:19 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/75721907793.shtml)
+- 2026-06-29 17:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/32967520180.shtml)
+- 2026-06-29 17:13 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/7951836.shtml)
+- 2026-06-29 17:19 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/717679274504.shtml)
+- 2026-06-29 17:18 - [东方风云榜红毯](https://www.blog.minike.top/Article/details/704737443161.shtml)
+- 2026-06-29 17:13 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/7754130064.shtml)
+- 2026-06-29 17:12 - [TTG KSG](http://www.share.minike.top/Article/details/599476244773.shtml)
+- 2026-06-29 17:29 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/693272068.shtml)
+- 2026-06-29 17:10 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/3527174.shtml)
+- 2026-06-29 17:00 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/9169357787.shtml)
+- 2026-06-29 17:14 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/2431837.shtml)

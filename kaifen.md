@@ -1,53 +1,57 @@
-# 王伟中、包钢会见华为公司高级副总裁任树录
+# 光大期货：6月18日软商品日报
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-人民财讯6月2日电，据内蒙古新闻网，6月2日，自治区党委书记、人大常委会主任王伟中，自治区党委副书记、自治区人民政府主席包钢在呼和浩特会见华为技术有限公司高级副总裁、常务监事任树录一行。 王伟中说，希望华为公司进一步深化与内蒙古的战略合作，加快推进华为云数据中心项目建设，聚焦绿色算力、人工智能、科技创新、数据交易等领域扩大产业布局、加大投资力度，推动产业链、创新链、供应链、人才
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西农业部周三公布的数据显示，5月下半月，巴西中南部糖产量为219万吨，较上年同期下降24.8%。5月下半月，甘蔗压榨量下降12.9%，至4，123万吨，而乙醇产量则增长1.8%，至21亿升。现货报价方面，广西制糖集团报价区间5270~5390元/吨，部分下调10元/吨；云南制糖集团报
 
 ## 正文
 
-人民财讯6月2日电，据内蒙古新闻网，6月2日，自治区党委书记、人大常委会主任王伟中，自治区党委副书记、自治区人民政府主席包钢在呼和浩特会见华为技术有限公司高级副总裁、常务监事任树录一行。
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西农业部周三公布的数据显示，5月下半月，巴西中南部糖产量为219万吨，较上年同期下降24.8%。
 
-王伟中说，希望华为公司进一步深化与内蒙古的战略合作，加快推进华为云数据中心项目建设，聚焦绿色算力、人工智能、科技创新、数据交易等领域扩大产业布局、加大投资力度，推动产业链、创新链、供应链、人才链深度融合，助力自治区加快培育新质生产力、推动高质量发展。
+5月下半月，甘蔗压榨量下降12.9%，至4，123万吨，而乙醇产量则增长1.8%，至21亿升。
 
-今年是内蒙古营商环境质量提升年，我们将持续打造一流营商环境，为包括华为公司在内的各类企业投资兴业提供更优服务、创造更好条件。
+现货报价方面，广西制糖集团报价区间5270~5390元/吨，部分下调10元/吨；云南制糖集团报价5090~5140元/吨，涨跌持平；加工糖厂主流报价区间为5660~6050元/吨，部分下调10~20元/吨。
 
-任树录表示，华为公司十分看好内蒙古在算力领域的发展潜力，下一步将持续加大在和林格尔、乌兰察布等重点区域的布局和投入，深度参与“绿电—算力—模型—产业”全链条建设，不仅要做算力的提供者，更要做产业链的“黏合剂”，与自治区一道把内蒙古打造成为服务全国、辐射欧亚的世界级绿色智算枢纽。
+原糖从两个月低点反弹，未来继续关注巴西生产进度及天气对收割进度的影响。
 
-责任编辑：刘万里 SF014
+17日国内期价迎来久违的反弹，主力合约减仓小幅上行。
+
+未来期价上有高库存压制，下有厄尔尼诺强度上升，减产担忧加剧作为支撑，期价延续震荡走势。
+
+关注进口数据。
+
+棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周三，ICE美棉上涨2.6%，报收79.77美分/磅，郑棉主力合约环比上涨1.52%，报收16005元/吨，主力合约持仓环比下降20666手至56.88万手，棉花3128B现货价格指数17190元/吨，较前一日上涨240元/吨。
 
 ## 相关推荐
 
-- 2026-06-29 17:05 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 16:57 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 17:04 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 17:01 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 17:17 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 17:21 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 17:02 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 17:15 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 17:15 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 17:09 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 17:22 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 17:15 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 17:17 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 17:26 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 17:06 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 17:08 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 17:23 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 17:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 17:20 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 17:25 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 17:02 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 17:04 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 17:26 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 17:11 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:10 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/14652647.shtml)
-- 2026-06-29 16:56 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/29456234.shtml)
-- 2026-06-29 17:01 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/93859563434.shtml)
-- 2026-06-29 16:59 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/090500.shtml)
-- 2026-06-29 17:03 - [众星恭喜吴建豪](https://www.blog.kurohicncr.top/Article/details/0158620752.shtml)
-- 2026-06-29 17:23 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/551268973.shtml)
-- 2026-06-29 16:57 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/7489529613.shtml)
-- 2026-06-29 17:22 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/77499980.shtml)
-- 2026-06-29 17:05 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/14344208009.shtml)
-- 2026-06-29 17:06 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/5428849.shtml)
-- 2026-06-29 17:19 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/0448981896.shtml)
-- 2026-06-29 17:05 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/732520.shtml)
-- 2026-06-29 17:04 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/9155845858.shtml)
-- 2026-06-29 17:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/3140381969.shtml)
-- 2026-06-29 16:58 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/958405.shtml)
+- 2026-06-29 17:25 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/853043347511.shtml)
+- 2026-06-29 17:01 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/62394360638.shtml)
+- 2026-06-29 17:12 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/14263098592.shtml)
+- 2026-06-29 17:27 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/31558.shtml)
+- 2026-06-29 17:11 - [驻日美军航母沦为“毒窝”](http://www.share.minike.top/Article/details/54863345561.shtml)
+- 2026-06-29 17:18 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/641231579.shtml)
+- 2026-06-29 17:22 - [NBA交易](http://www.share.kurohicncr.top/Article/details/513985167998.shtml)
+- 2026-06-29 17:25 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/45185762442.shtml)
+- 2026-06-29 17:05 - [美国大满贯首日国乒主力均取胜](http://www.share.minike.top/Article/details/17940.shtml)
+- 2026-06-29 17:05 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/703823.shtml)
+- 2026-06-29 17:10 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/2572998.shtml)
+- 2026-06-29 17:13 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/4719655.shtml)
+- 2026-06-29 17:01 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/6340389790.shtml)
+- 2026-06-29 17:22 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/5504618.shtml)
+- 2026-06-29 17:22 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/8198046869.shtml)

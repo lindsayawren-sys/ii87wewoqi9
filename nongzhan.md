@@ -1,47 +1,60 @@
-# 内蒙古医科大学党委书记赵云山接受审查调查
+# 618大促刚买完就降价，商家该不该退差价
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新网6月2日电 据内蒙古自治区纪委监委消息：内蒙古医科大学党委书记赵云山涉嫌严重违纪违法，目前正接受内蒙古自治区纪委监委纪律审查和监察调查。
+一年一度的618大促正在如火如荼地进行中，各大电商平台争相推出“百亿补贴”“限时秒杀”“预售付定金”等促销活动，不少消费者趁此机会集中下单。然而，大促期间的消费纠纷 【下载黑猫投诉客户端】也如约而至，其中最让人头疼的莫过于——刚下单第二天，商品就降价了。 在黑猫投诉等平台上，关于“价保不兑现”的投诉近期明显增多。有消费者反映，618预热期间花3000多元买了一台空调，两天后同款
 
 ## 正文
 
-中新网6月2日电 据内蒙古自治区纪委监委消息：内蒙古医科大学党委书记赵云山涉嫌严重违纪违法，目前正接受内蒙古自治区纪委监委纪律审查和监察调查。
+一年一度的618大促正在如火如荼地进行中，各大电商平台争相推出“百亿补贴”“限时秒杀”“预售付定金”等促销活动，不少消费者趁此机会集中下单。
+
+然而，大促期间的消费纠纷 【下载黑猫投诉客户端】也如约而至，其中最让人头疼的莫过于——刚下单第二天，商品就降价了。
+
+在黑猫投诉等平台上，关于“价保不兑现”的投诉近期明显增多。
+
+有消费者反映，618预热期间花3000多元买了一台空调，两天后同款商品直接降价400元，联系客服申请价保却被以“活动商品不参与价保”为由拒绝。
+
+还有消费者表示，商家承诺“买贵退差价”，但实际退款时以各种计算口径克扣金额，最终只退了十几块钱。
+
+价保是商家的承诺，不是法定义务 首先要明确一点：价保（价格保护）是商家自愿推出的增值服务，并非法律强制要求。
+
+如果商家在商品页面明确标注了“价保30天”“买贵补差”等承诺，那就构成了合同的一部分，商家必须按约履行。
+
+但如果商家没有做出任何价保承诺，消费者下单即表示认可当时的成交价格，后续商品降价，从法律上讲，消费者无权要求退还差价。
 
 ## 相关推荐
 
-- 2026-06-29 17:10 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 17:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 17:08 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 17:14 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 17:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 17:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 17:06 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 16:54 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 17:11 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 16:55 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 17:08 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 17:11 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 17:12 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 16:56 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 17:21 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 17:27 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 17:08 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 17:14 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 17:08 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 17:07 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 17:24 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 17:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 17:07 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 17:29 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 17:05 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 17:25 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 17:00 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 17:27 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 17:25 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/87564233.shtml)
-- 2026-06-29 17:09 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/36031.shtml)
-- 2026-06-29 17:22 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/7469637.shtml)
-- 2026-06-29 17:08 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/4116316091.shtml)
-- 2026-06-29 17:04 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/73867580825.shtml)
-- 2026-06-29 17:16 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/600423.shtml)
-- 2026-06-29 17:15 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.minike.top/Article/details/7563675031.shtml)
-- 2026-06-29 17:16 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/7146327.shtml)
-- 2026-06-29 17:10 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/4935773.shtml)
-- 2026-06-29 17:20 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/748380422.shtml)
-- 2026-06-29 17:03 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/06619.shtml)
-- 2026-06-29 17:07 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/6278957197.shtml)
-- 2026-06-29 17:01 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/678575724.shtml)
-- 2026-06-29 16:56 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/82257445.shtml)
-- 2026-06-29 16:57 - [极限挑战第一季](https://www.share.minike.top/Article/details/87056658008.shtml)
+- 2026-06-29 17:04 - [差点没看懂白鹿丞磊这段意识流](https://www.share.kurohicncr.top/Article/details/04408.shtml)
+- 2026-06-29 17:27 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/747215.shtml)
+- 2026-06-29 17:07 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.kurohicncr.top/Article/details/22817321.shtml)
+- 2026-06-29 17:21 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/2227927220.shtml)
+- 2026-06-29 17:17 - [欧盟为什么越来越倾向贸易保护](https://www.share.minike.top/Article/details/2361965.shtml)
+- 2026-06-29 17:01 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/833736182066.shtml)
+- 2026-06-29 17:06 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/85872694642.shtml)
+- 2026-06-29 17:17 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/5994994014.shtml)
+- 2026-06-29 17:20 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/67663130.shtml)
+- 2026-06-29 17:12 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/591001.shtml)
+- 2026-06-29 17:15 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/054692460353.shtml)
+- 2026-06-29 17:28 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/25285701.shtml)
+- 2026-06-29 17:22 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/2296980816.shtml)
+- 2026-06-29 17:28 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/269851.shtml)
+- 2026-06-29 17:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/05042513.shtml)

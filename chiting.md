@@ -1,60 +1,57 @@
-# 铀能源公司将于6月9日发布2026财年第三季度业绩
+# 以宣讲传精神 以史脉聚同心——九三学社青岛市委会强化社史宣教推动主题教育走深走实
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-铀能源公司（Uranium Energy Corp，UEC）周二宣布，将于6月9日股市开盘前发布2026财年第三季度运营及财务业绩。公司管理层将于当天美国东部时间上午11时召开电话会议，对业绩进行解读。会议直播及会后回放可通过公司官网投资者关系页面获取。 本次财报发布正值公司多项战略布局加速落地的关键期。在第二季度，铀能源以每磅101美元的价格售出20万磅铀，较当季现货均价溢价
+一场直击心灵的科学家精神宣讲，让九三学社 “爱国、民主、科学”的精神底色更加鲜明。 6月12日，九三王选关怀基金会、《民主与科学》杂志社、九三学社青岛市委会联合在青岛市民主党派机关五楼多功能厅举办科学家精神公益宣讲。北京大学王选计算机研究所副研究员、王选纪念室主任丛中笑作《科学报国的最美奋斗者 ——“当代毕昇”王选》专题讲座，各民主党派代表、社市委会各级负责人共120余人参与。
 
 ## 正文
 
-铀能源公司（Uranium Energy Corp，UEC）周二宣布，将于6月9日股市开盘前发布2026财年第三季度运营及财务业绩。
+一场直击心灵的科学家精神宣讲，让九三学社 “爱国、民主、科学”的精神底色更加鲜明。
 
-公司管理层将于当天美国东部时间上午11时召开电话会议，对业绩进行解读。
+6月12日，九三王选关怀基金会、《民主与科学》杂志社、九三学社青岛市委会联合在青岛市民主党派机关五楼多功能厅举办科学家精神公益宣讲。
 
-会议直播及会后回放可通过公司官网投资者关系页面获取。
+北京大学王选计算机研究所副研究员、王选纪念室主任丛中笑作《科学报国的最美奋斗者 ——“当代毕昇”王选》专题讲座，各民主党派代表、社市委会各级负责人共120余人参与。
 
-本次财报发布正值公司多项战略布局加速落地的关键期。
+此次活动既是社市委会深化“参政为公、实干为民”主题教育的扎实行动，也是推进社史宣传教育落地见效的具体实践。
 
-在第二季度，铀能源以每磅101美元的价格售出20万磅铀，较当季现货均价溢价超过25%，实现营收2020万美元，毛利润约1000万美元。
+长期以来，九三学社青岛市委会坚持把社史学习贯穿主题教育全过程，紧扣四个“注重”统筹发力，持续推动社史学习教育常态化、阵地化、品牌化发展；通过以史育人、固本培元夯实思想根基，有力推动主题教育走深走实、见行见效，先后荣获社中央“2023-2024 年全国社史研究工作先进集体” 等多项荣誉。
 
-截至季末，公司持有8.18亿美元流动资产，库存铀约145.6万磅，且为零债务状态。
+注重培育人才，建强专业研究队伍。
 
-运营方面，公司在德克萨斯州的Burke Hollow项目建设已完工，成为美国最新的原地浸出回收铀矿，正等待监管批准后投产。
+社市委会持续挖掘、吸纳政治素养高、业务能力强的社员投身社史研究，搭建梯次人才队伍。
 
-怀俄明州的Christensen Ranch设施新增了四个集管房，自复产以来已累计产出244，321磅铀。
+2017年设立社史研究办公室；2019年成立全国地市级九三组织首个社史研究中心，现有研究员29名、顾问1名，其中包含2名社中央社史研究中心研究员。
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 17:16 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 17:23 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 17:21 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 17:00 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 16:56 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 17:12 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 17:08 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 17:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 17:21 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 17:23 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 17:09 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 17:17 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 17:19 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 17:21 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 17:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 17:18 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 17:25 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 17:10 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 17:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 17:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 17:24 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 17:27 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 17:23 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 17:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:13 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/0293634.shtml)
-- 2026-06-29 17:07 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/235540078884.shtml)
-- 2026-06-29 17:02 - [BB大王横店拍戏](http://www.share.kurohicncr.top/Article/details/2508719623.shtml)
-- 2026-06-29 17:19 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/76297209.shtml)
-- 2026-06-29 17:11 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/26440.shtml)
-- 2026-06-29 16:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/206681.shtml)
-- 2026-06-29 17:20 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/33843704393.shtml)
-- 2026-06-29 17:14 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/09378930.shtml)
-- 2026-06-29 16:57 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/957078289752.shtml)
-- 2026-06-29 16:58 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/9434667985.shtml)
-- 2026-06-29 17:15 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/49211479591.shtml)
-- 2026-06-29 16:59 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/377455146505.shtml)
-- 2026-06-29 17:11 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/7933611.shtml)
-- 2026-06-29 17:15 - [速度与激情9](http://www.blog.minike.top/Article/details/92802986791.shtml)
-- 2026-06-29 17:18 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/64805286.shtml)
+- 2026-06-29 17:24 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/53153096.shtml)
+- 2026-06-29 17:12 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.minike.top/Article/details/867307990.shtml)
+- 2026-06-29 17:18 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/14055691.shtml)
+- 2026-06-29 17:25 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/2171055555.shtml)
+- 2026-06-29 17:00 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/512964487.shtml)
+- 2026-06-29 17:05 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/34721.shtml)
+- 2026-06-29 17:11 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/15007.shtml)
+- 2026-06-29 17:28 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/98804506652.shtml)
+- 2026-06-29 17:00 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/662600.shtml)
+- 2026-06-29 17:08 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/836566387.shtml)
+- 2026-06-29 17:29 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/00712120398.shtml)
+- 2026-06-29 17:24 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/166503.shtml)
+- 2026-06-29 17:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/97094.shtml)
+- 2026-06-29 17:30 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/146122894175.shtml)
+- 2026-06-29 17:02 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/1485267.shtml)

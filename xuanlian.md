@@ -1,60 +1,61 @@
-# 教育部等八部门联合开展“国聘行动”
+# 青藏集团公司管内列车逐步恢复通行 加开临客补齐运力
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新网6月2日电 据教育部网站消息，为充分发挥国有企业就业引领作用和民营企业在稳就业中的重要作用，日前，教育部、人社部、国务院国资委等八部门印发通知，于5月至12月联合开展“国聘行动”，全力促进2026届高校毕业生和2024、2025届离校未就业毕业生等重点群体尽早就业。一是深入挖潜拓展就业岗位。加力落实各项稳就业、促就业支持政策，聚焦就业带动能力强、岗位规模增长较快的制造业、
+中新网西宁6月17日电(祁增蓓)17日，记者从中国铁路青藏集团有限公司(以下简称“青藏集团公司”)获悉，青海省海西州大柴旦行委发生6.3级地震后，并伴有多次余震，波及青藏集团公司管内格库铁路、敦煌铁路、青藏铁路部分区段。截至记者发稿，当地铁路部门已稳妥处置震后运输险情，逐步恢复列车通行，并加开临客补齐运力。 地震发生后，青藏集团公司第一时间启动Ⅰ级应急响应，紧急扣停青藏铁路西格
 
 ## 正文
 
-中新网6月2日电 据教育部网站消息，为充分发挥国有企业就业引领作用和民营企业在稳就业中的重要作用，日前，教育部、人社部、国务院国资委等八部门印发通知，于5月至12月联合开展“国聘行动”，全力促进2026届高校毕业生和2024、2025届离校未就业毕业生等重点群体尽早就业。
+中新网西宁6月17日电(祁增蓓)17日，记者从中国铁路青藏集团有限公司(以下简称“青藏集团公司”)获悉，青海省海西州大柴旦行委发生6.3级地震后，并伴有多次余震，波及青藏集团公司管内格库铁路、敦煌铁路、青藏铁路部分区段。
 
-一是深入挖潜拓展就业岗位。
+截至记者发稿，当地铁路部门已稳妥处置震后运输险情，逐步恢复列车通行，并加开临客补齐运力。
 
-加力落实各项稳就业、促就业支持政策，聚焦就业带动能力强、岗位规模增长较快的制造业、服务业等重点产业领域，开发更多有利于发挥毕业生所学所长的就业岗位。
+地震发生后，青藏集团公司第一时间启动Ⅰ级应急响应，紧急扣停青藏铁路西格段区间7列在途旅客列车，并集结工务、电务、供电等近千名铁路职工，对沿线车站、线路、桥梁、隧道、供电信号设备开展拉网式排查，紧盯余震、山体落石、滑坡等次生灾害风险，严守行车安全底线。
 
-鼓励结合“十五五”规划和城市产业发展，组织优质企业开展以“国聘行动+城市产业专场”为主题的招聘活动，带动更多用人主体参与促就业。
+同时，全方位做好旅客服务保障：西宁客运段落实晚点列车餐食、饮水供应及旅客安抚工作；格尔木、德令哈等车站值守重点区域疏导客流，及时发布行车信息，有序疏导旅客转移至站前广场候车。
 
-强化数字赋能，鼓励公共就业服务平台、高校就业平台和“国聘行动”平台互联互通，推进线上线下一体服务，为高校毕业生等重点群体提供更多优质就业岗位。
+针对震后当地大风阴雨天气，德令哈车站联动地方搭建防雨安置设施。
 
-二是集中发布就业信息。
+西宁站增开退票窗口，召集120名休班职工返岗，已为3000余名旅客办理退改签业务，并联动地方部门完成4000余名滞留旅客转运安置。
 
-建立岗位归集发布机制，加大岗位搜集力度，组织动员用人单位依法依规发布用人需求，明确招聘条件和招聘人数，在国家大学生就业服务平台等线上平台设置活动专栏，集中发布岗位信息，持续举办各类行业性、区域性专场招聘活动，为用人单位招聘、毕业生求职提供精准的岗位匹配推送服务。
+在完成线路安全排查后，此前震后扣停的在途列车已逐步恢复运行。
 
-三是开展“国聘行动+”联合宣传活动。
+为弥补地震带来的运力缺口，青藏集团公司于6月17日加开西宁至拉萨Z9807次、Z9809次、Z9811次临时列车，6月18日加开拉萨至西宁Z9808次、Z9810次临时列车，降低地震对民众出行影响。
 
 ## 相关推荐
 
-- 2026-06-29 17:01 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 17:05 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 17:09 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 16:55 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 17:19 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 17:23 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 17:17 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 16:56 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 17:01 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 17:02 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 17:17 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 17:22 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 16:56 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 16:57 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 17:26 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 17:20 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 17:18 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 17:05 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 17:25 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 17:12 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 17:18 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 17:27 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 17:12 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 17:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 17:01 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 17:13 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 17:15 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 17:23 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 17:28 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:02 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/746038.shtml)
-- 2026-06-29 17:22 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/408721478.shtml)
-- 2026-06-29 17:03 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/6060913.shtml)
-- 2026-06-29 17:08 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/060959.shtml)
-- 2026-06-29 17:14 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/963032761093.shtml)
-- 2026-06-29 17:20 - [业内：全球市场迎来结构性投资窗口](http://www.blog.kurohicncr.top/Article/details/737331303460.shtml)
-- 2026-06-29 16:54 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/61671072.shtml)
-- 2026-06-29 17:13 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/29507.shtml)
-- 2026-06-29 17:07 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/523390.shtml)
-- 2026-06-29 16:56 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/9310887.shtml)
-- 2026-06-29 17:03 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/0257787529.shtml)
-- 2026-06-29 17:04 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/6779837.shtml)
-- 2026-06-29 17:04 - [首尔商铺禁止洪明甫入内](https://www.share.kurohicncr.top/Article/details/4198218816.shtml)
-- 2026-06-29 17:15 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/05014375.shtml)
-- 2026-06-29 17:23 - [差点没看懂白鹿丞磊这段意识流](https://www.share.kurohicncr.top/Article/details/879564066521.shtml)
+- 2026-06-29 17:27 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/8490615.shtml)
+- 2026-06-29 17:26 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/178749.shtml)
+- 2026-06-29 17:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/643187143622.shtml)
+- 2026-06-29 17:02 - [女心理师](http://www.share.minike.top/Article/details/347606628932.shtml)
+- 2026-06-29 17:24 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/2306430974.shtml)
+- 2026-06-29 17:15 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/630385605.shtml)
+- 2026-06-29 17:19 - [范志毅看好日本淘汰巴西](https://www.blog.minike.top/Article/details/533782.shtml)
+- 2026-06-29 17:09 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/8383223482.shtml)
+- 2026-06-29 17:24 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/2617057.shtml)
+- 2026-06-29 17:21 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/32393246.shtml)
+- 2026-06-29 17:28 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/756567469049.shtml)
+- 2026-06-29 17:22 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/922436.shtml)
+- 2026-06-29 17:28 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/8264347.shtml)
+- 2026-06-29 17:12 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/42598887519.shtml)
+- 2026-06-29 17:19 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/12437.shtml)

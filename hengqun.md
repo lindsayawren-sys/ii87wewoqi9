@@ -1,61 +1,57 @@
-# 华泰期货：安全监管全面强化，焦煤昨日盘中触及涨停
+# 中国联塑午前涨近4% 与天怀数智达成战略合作进军AI算力领域
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-市场分析 期现货方面：昨日双焦期货领涨黑色，焦煤盘中触及涨停，原料市场情绪继续偏强，各地区煤价纷纷涨价，沁源煤矿事故推动山西全面强化安全监管，当地煤矿虽陆续复产，但复产程度远弱于预期，焦煤供应缺口持续存在。焦炭已启动第五轮涨价，每吨上调50-55元。 供需与逻辑：焦炭方面，上周铁水产量持续升高，钢厂对于原料采购积极性较强，加上成本端支持较强，短期焦炭供需结构持续偏紧。本次山西煤
+中国联塑（02128）盘中涨超5%，截至发稿，股价上涨3.50%，现报4.44港元，成交额2952.42万港元。 6月16日，中国联塑集团旗下的联塑算力设施供应有限公司与浙江天怀数智科技有限公司在香港签订战略合作协议。此次合作，双方在AIDC 项目建设过程中，将优先使用联塑相关产品及解决方案。此外，双方将共同开拓海外AIDC市场。联塑利用海外生产基地布局及国际客户网络，浙江天怀
 
 ## 正文
 
-市场分析 期现货方面：昨日双焦期货领涨黑色，焦煤盘中触及涨停，原料市场情绪继续偏强，各地区煤价纷纷涨价，沁源煤矿事故推动山西全面强化安全监管，当地煤矿虽陆续复产，但复产程度远弱于预期，焦煤供应缺口持续存在。
+中国联塑（02128）盘中涨超5%，截至发稿，股价上涨3.50%，现报4.44港元，成交额2952.42万港元。
 
-焦炭已启动第五轮涨价，每吨上调50-55元。
+6月16日，中国联塑集团旗下的联塑算力设施供应有限公司与浙江天怀数智科技有限公司在香港签订战略合作协议。
 
-供需与逻辑：焦炭方面，上周铁水产量持续升高，钢厂对于原料采购积极性较强，加上成本端支持较强，短期焦炭供需结构持续偏紧。
+此次合作，双方在AIDC 项目建设过程中，将优先使用联塑相关产品及解决方案。
 
-本次山西煤矿事故带来持续性影响，区域安全整治加码，高瓦斯、煤与瓦斯突出矿井与民营中小煤矿成为监管重点，行业生产端约束加剧。
+此外，双方将共同开拓海外AIDC市场。
 
-焦煤短期供给量将受制于安监强度与整治周期，中长期供给格局则由表外产能清理进度主导。
+联塑利用海外生产基地布局及国际客户网络，浙江天怀数智利用技术服务能力及产业资源，合作推进“一带一路”沿线国家及东南亚地区的算力中心项目。
 
-综合判断，焦煤焦炭市场短期供需格局趋紧，市场预计延续偏强运行。
+公司指出，通过合作，双方致力于构建“资本+产业”、“资源+技术”深度融合的战略合作模式，共同推进国内外AIDC智算中心项目的落地与运营，实现联塑产品及业务进军AI算力领域并进行深入布局，拓宽产品应用领域。
 
-焦煤方面：震荡 焦炭方面：震荡 跨品种：无 跨期：无 期现：无 期权：无 风险 宏观政策、钢厂利润、焦化利润、煤炭供给、基差风险等。
-
-投资咨询业务资格： 证监许可【2011】1289号 免责声明： 本报告基于本公司认为可靠的、已公开的信息编制，但本公司对该等信息的准确性及完整性不作任何保证。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:11 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 17:17 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 17:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 17:09 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 17:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 16:59 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 16:57 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 17:01 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 17:07 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 17:21 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 16:58 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 17:16 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 17:10 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 17:14 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 17:05 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 17:22 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 17:19 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 17:20 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 17:20 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 17:24 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 17:07 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 17:15 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 17:10 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 17:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 17:15 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 17:11 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 17:00 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 17:12 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:14 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/35803384.shtml)
-- 2026-06-29 17:09 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/160742136.shtml)
-- 2026-06-29 17:22 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/6225882.shtml)
-- 2026-06-29 17:03 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/84861432682.shtml)
-- 2026-06-29 16:59 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/2086401752.shtml)
-- 2026-06-29 17:02 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/073552941586.shtml)
-- 2026-06-29 17:03 - [博主：美航母沦为毒品集散窝点](http://www.share.kurohicncr.top/Article/details/330383829.shtml)
-- 2026-06-29 17:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/51102348314.shtml)
-- 2026-06-29 16:58 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/77418963.shtml)
-- 2026-06-29 17:12 - [沙丘](https://www.share.minike.top/Article/details/486300.shtml)
-- 2026-06-29 17:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/539023502.shtml)
-- 2026-06-29 17:13 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/835360207550.shtml)
-- 2026-06-29 17:11 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/41223831899.shtml)
-- 2026-06-29 17:23 - [时光音乐会](https://www.blog.minike.top/Article/details/0075626432.shtml)
-- 2026-06-29 17:17 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/447177968795.shtml)
+- 2026-06-29 17:06 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/4043058.shtml)
+- 2026-06-29 17:28 - [日本偶像龟梨和也宣布结婚](http://www.blog.kurohicncr.top/Article/details/732138828.shtml)
+- 2026-06-29 17:17 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/4113786.shtml)
+- 2026-06-29 17:20 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/51125.shtml)
+- 2026-06-29 17:18 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/989152760048.shtml)
+- 2026-06-29 17:13 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/901313772420.shtml)
+- 2026-06-29 17:08 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/3018301.shtml)
+- 2026-06-29 17:18 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/517100.shtml)
+- 2026-06-29 17:29 - [急先锋](https://www.blog.kurohicncr.top/Article/details/90653753746.shtml)
+- 2026-06-29 17:20 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/291921.shtml)
+- 2026-06-29 17:18 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/868106.shtml)
+- 2026-06-29 17:04 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/188893.shtml)
+- 2026-06-29 17:02 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/818752.shtml)
+- 2026-06-29 17:26 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/4340074.shtml)
+- 2026-06-29 17:07 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/800316.shtml)

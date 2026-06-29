@@ -1,42 +1,50 @@
-# 《供水条例》正式施行
+# 吴清：社保、保险、年金等中长期资金持有A股流通市值增长85%
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 09:57 来源：央视新闻 责任编辑：【王祎】
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，着力增强资本市场内在稳定性。筑牢风险防波堤、防浪堤，会同人民银行创新性推出两项结构性货币政策工具，支持中央汇金发挥类“平准基金”作用，持续加强战略性力量储备和稳市机制建设。 同时，中央金融办与证监会和各有关方面发布中长期资金入市指导意见及实施方案，建立健全长周期
 
 ## 正文
 
-发布时间：2026年06月02日 09:57 来源：央视新闻 责任编辑：【王祎】
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，着力增强资本市场内在稳定性。
+
+筑牢风险防波堤、防浪堤，会同人民银行创新性推出两项结构性货币政策工具，支持中央汇金发挥类“平准基金”作用，持续加强战略性力量储备和稳市机制建设。
+
+同时，中央金融办与证监会和各有关方面发布中长期资金入市指导意见及实施方案，建立健全长周期考核、保险资金长期股票投资试点等制度机制，大力推进公募基金改革。
+
+两年多来，社保、保险、年金等中长期资金持有A股流通市值增长85%，净买入A股约1.3万亿元，长期投资力量持续壮大。
+
+责任编辑：常福强
 
 ## 相关推荐
 
-- 2026-06-29 17:08 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 16:54 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 17:21 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 16:54 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 17:11 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 16:54 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 16:58 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 17:23 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 17:21 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 17:22 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 17:17 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 17:03 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 17:04 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 17:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 17:25 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 17:17 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 17:22 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 17:28 - [恋与深空 731](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 17:17 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 17:06 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:23 - [范志毅看好日本淘汰巴西](https://www.share.kurohicncr.top/Article/details/29061.shtml)
-- 2026-06-29 17:14 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/53233.shtml)
-- 2026-06-29 17:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/358817573433.shtml)
-- 2026-06-29 17:13 - [范志毅看好日本淘汰巴西](https://www.blog.minike.top/Article/details/21429217456.shtml)
-- 2026-06-29 17:07 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/63834370315.shtml)
-- 2026-06-29 17:01 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/743838.shtml)
-- 2026-06-29 16:58 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/6353566807.shtml)
-- 2026-06-29 17:02 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/578170224.shtml)
-- 2026-06-29 16:57 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/011136412546.shtml)
-- 2026-06-29 17:18 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/44784.shtml)
-- 2026-06-29 16:59 - [博主：美航母沦为毒品集散窝点](http://www.blog.minike.top/Article/details/648827.shtml)
-- 2026-06-29 17:16 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/3037604.shtml)
-- 2026-06-29 17:23 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/312980.shtml)
-- 2026-06-29 17:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/840300.shtml)
-- 2026-06-29 17:17 - [金刚川](https://www.share.kurohicncr.top/Article/details/8125123924.shtml)
+- 2026-06-29 17:16 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/64241.shtml)
+- 2026-06-29 17:19 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/005074790.shtml)
+- 2026-06-29 17:12 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/557895.shtml)
+- 2026-06-29 17:16 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/011012460066.shtml)
+- 2026-06-29 17:02 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/39550.shtml)
+- 2026-06-29 17:22 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/50233392887.shtml)
+- 2026-06-29 17:28 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/29978500217.shtml)
+- 2026-06-29 17:27 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/199097590022.shtml)
+- 2026-06-29 17:04 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/33590022268.shtml)
+- 2026-06-29 17:04 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/39217.shtml)
+- 2026-06-29 17:18 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/2870313.shtml)
+- 2026-06-29 17:15 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/35920.shtml)
+- 2026-06-29 17:12 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/391184038.shtml)
+- 2026-06-29 17:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/441309.shtml)
+- 2026-06-29 17:18 - [美国大满贯首日国乒主力均取胜](https://www.blog.kurohicncr.top/Article/details/18906.shtml)

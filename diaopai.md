@@ -1,57 +1,56 @@
-# 6月2日美股成交额前20：英伟达再次进军PC芯片市场
+# 四川眉山：全球首个高精度碳星座“天鉴星座”正式发布
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-周一美股成交额第1名美光收高6.56%，成交470.18亿美元。美光科技股价周一延续涨势，此前Raymond James将该股目标价从530美元大幅上调至1100美元，维持“跑赢大盘”评级，理由是AI驱动的强劲内存需求及持续紧张的供应格局。 Raymond James的新目标价意味着较美光5月29日收盘价971美元约有13%的上涨空间。该股在过去12个月中飙升超过800%，市值
+中新网眉山6月17日电 (记者 刘忠俊)记者17日从四川省眉山市举行的第四届眉山市卫星应用产业发展大会上获悉，全球首个高精度碳星座“天鉴星座”正式启动建设，首颗卫星“天鉴一号”同步亮相。 据了解，“天鉴星座”由南京航空航天大学牵头、环天智慧科技股份有限公司(以下简称“环天智慧”)联合研发，补齐当前全球碳监测领域多项技术短板，标志着中国商业遥感星座在双碳专项监测领域实现重大突破，
 
 ## 正文
 
-周一美股成交额第1名美光收高6.56%，成交470.18亿美元。
+中新网眉山6月17日电 (记者 刘忠俊)记者17日从四川省眉山市举行的第四届眉山市卫星应用产业发展大会上获悉，全球首个高精度碳星座“天鉴星座”正式启动建设，首颗卫星“天鉴一号”同步亮相。
 
-美光科技股价周一延续涨势，此前Raymond James将该股目标价从530美元大幅上调至1100美元，维持“跑赢大盘”评级，理由是AI驱动的强劲内存需求及持续紧张的供应格局。
+据了解，“天鉴星座”由南京航空航天大学牵头、环天智慧科技股份有限公司(以下简称“环天智慧”)联合研发，补齐当前全球碳监测领域多项技术短板，标志着中国商业遥感星座在双碳专项监测领域实现重大突破，中国自主化碳监测体系建设迈入全新发展阶段。
 
-Raymond James的新目标价意味着较美光5月29日收盘价971美元约有13%的上涨空间。
+环天智慧相关负责人表示，当前全球通用碳监测模式存在明显短板。
 
-该股在过去12个月中飙升超过800%，市值已突破1万亿美元。
+以业内技术领先的美国OCO-2卫星为例，该卫星空间分辨率为1.29×2.25公里，重访周期16天，核心数据产品延迟时长最长达3个月，存在观测频次不足、空间分辨率偏低、数据处理及传输链路冗长等问题，难以适配精细化碳管理、实时排放管控、市场化碳交易等多元应用需求，行业发展亟需全新技术方案破局，“天鉴星座”针对性攻克了上述行业痛点。
 
-此轮上调紧随一波分析师调高目标价的浪潮——瑞银给出了华尔街最高目标价1625美元，Susquehanna将目标价从600美元上调至1750美元，DA Davidson上调至1500美元，瑞穗证券也将其目标价上调至1150美元。
+相较于现有主流碳监测卫星，“天鉴星座”完成多项核心技术优化。
 
-分析师指出，AI基础设施支出正推动对高带宽内存和先进DRAM的结构性需求。
+星座可实现重点区域每日重访，观测频次较OCO-2卫星提升16倍，能够动态捕捉区域碳排放、碳汇数据变化，快速排查并锁定异常排放源头；卫星空间分辨率提升13倍，可精准识别产业园区边界、能源设施运行工况、城市内部碳排放差异，兼顾宏观区域碳普查与微观点位精准监测，破解行业碳监测“看不清、测不准”的长期痛点；数据处理与传输层面，星座将核心XCO₂产品产出时效，从传统月度级压缩至分钟级，实现碳排放数据实时、动态、可追溯。
 
-美光已售罄2026年全部HBM4供应，客户长期协议的兴趣日益浓厚。
+2025年，南京航空航天大学与环天智慧共建联合实验室，依托校企长效协同机制，攻坚突破多源遥感数据融合、碳排放智能解译等多项关键核心技术，为卫星在轨稳定运行、碳监测数据精准测算夯实技术根基。
 
-瑞穗分析师Vijay Rakesh在与美光高管会面后重申，AI驱动的强劲内存需求是推动2026至2027年市场供应紧张的核心因素。
+此次“天鉴星座”项目落地，是校企合作、产学研深度融合的标杆成果，项目整合校企双方优势资源，依托高校前沿科研技术赋能企业商业遥感体系，实现技术研发与产业落地无缝对接。
 
 ## 相关推荐
 
-- 2026-06-29 17:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 17:06 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 17:21 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 17:12 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 16:59 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 17:15 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 16:55 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 17:19 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 16:59 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 17:06 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 17:00 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 17:12 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 17:23 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 17:25 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 17:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 17:13 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 17:17 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 17:14 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 17:07 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 17:02 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 17:16 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:05 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/8824479510.shtml)
-- 2026-06-29 17:19 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/252996495.shtml)
-- 2026-06-29 17:09 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/7415732.shtml)
-- 2026-06-29 17:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/84778.shtml)
-- 2026-06-29 17:11 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/23296995.shtml)
-- 2026-06-29 17:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/0191870663.shtml)
-- 2026-06-29 17:04 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/59589987019.shtml)
-- 2026-06-29 17:10 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/876295.shtml)
-- 2026-06-29 16:59 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/108677460926.shtml)
-- 2026-06-29 17:03 - [世界杯看到肖战了](http://www.share.minike.top/Article/details/691029092.shtml)
-- 2026-06-29 17:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/6750851958.shtml)
-- 2026-06-29 17:02 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/835908.shtml)
-- 2026-06-29 16:55 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.minike.top/Article/details/3396701514.shtml)
-- 2026-06-29 17:03 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/89648.shtml)
-- 2026-06-29 17:00 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/0491116.shtml)
+- 2026-06-29 17:28 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/537112012417.shtml)
+- 2026-06-29 17:18 - [BB大王横店拍戏](http://www.blog.kurohicncr.top/Article/details/06697624.shtml)
+- 2026-06-29 17:00 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/187488623946.shtml)
+- 2026-06-29 17:19 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/47890.shtml)
+- 2026-06-29 17:14 - [叠纸](https://www.share.kurohicncr.top/Article/details/589929.shtml)
+- 2026-06-29 17:10 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/76676.shtml)
+- 2026-06-29 17:21 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/9468433637.shtml)
+- 2026-06-29 17:26 - [挪威王储妃长子2次强奸被判4年](https://www.share.minike.top/Article/details/3027618.shtml)
+- 2026-06-29 17:21 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/4570496344.shtml)
+- 2026-06-29 17:01 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/011067706.shtml)
+- 2026-06-29 17:19 - [急先锋](http://www.blog.minike.top/Article/details/14167510573.shtml)
+- 2026-06-29 17:00 - [时光音乐会](http://www.share.minike.top/Article/details/542020.shtml)
+- 2026-06-29 17:11 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/940515.shtml)
+- 2026-06-29 17:26 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/01425528444.shtml)
+- 2026-06-29 17:20 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/26466768013.shtml)

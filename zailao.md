@@ -1,57 +1,53 @@
-# 多重利好共振，港股AI应用狂飙！美图大涨24%，金蝶国际涨超20%，港股互联网ETF华宝（513770）放量冲高3%
+# 中国驻菲律宾使馆推动三佳钢铁厂被扣70名中国公民全部获释
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-6月1日，AI应用方向飙升，美图公司大涨24%，金蝶国际涨超20%，迈富时、中国儒意、金山云、金山软件等涨幅居前；互联网龙头方面，美团-W绩前涨超6%，腾讯控股、阿里巴巴-W、小米集团-W涨超2%。 聚焦港股AI核心工具，重仓互联网龙头的港股互联网ETF华宝（513770）午后二度攀升，场内价格现涨3.23%，实时成交额7.57亿元，已超前一日全天成交额。 政策面上，6月1日，
+中新网6月18日电 据中国驻菲律宾使馆微信公众号消息，中国驻菲律宾使馆高度重视东米萨米斯省三佳钢铁厂70名中国公民被菲方查扣案。继推动64名中国公民于5月28日获释后，使馆持续敦促菲方加快在押6人的身份核查程序，要求其依法公正快速处理，切实维护中国公民合法权益。使馆还派员探视在押人员给予关心帮助，并协助安排庭审翻译。5月29日和6月3日又分别有两人获释，最后两人先后于6月15日
 
 ## 正文
 
-6月1日，AI应用方向飙升，美图公司大涨24%，金蝶国际涨超20%，迈富时、中国儒意、金山云、金山软件等涨幅居前；互联网龙头方面，美团-W绩前涨超6%，腾讯控股、阿里巴巴-W、小米集团-W涨超2%。
+中新网6月18日电 据中国驻菲律宾使馆微信公众号消息，中国驻菲律宾使馆高度重视东米萨米斯省三佳钢铁厂70名中国公民被菲方查扣案。
 
-聚焦港股AI核心工具，重仓互联网龙头的港股互联网ETF华宝（513770）午后二度攀升，场内价格现涨3.23%，实时成交额7.57亿元，已超前一日全天成交额。
+继推动64名中国公民于5月28日获释后，使馆持续敦促菲方加快在押6人的身份核查程序，要求其依法公正快速处理，切实维护中国公民合法权益。
 
-政策面上，6月1日，上海市人民政府办公厅印发《上海市服务业发展“十五五”规划》。
+使馆还派员探视在押人员给予关心帮助，并协助安排庭审翻译。
 
-其中提出，AI软件技术及服务，大力发展生成式人工智能技术，聚焦人脸和图像识别、增强现实/虚拟现实（AR/VR）技术、智能交通、智慧物流、在线教育、能源等领域，打造AI软件技术及服务产业集群。
+5月29日和6月3日又分别有两人获释，最后两人先后于6月15日与17日获释。
 
-海外映射方面，Snowflake、MongoDB、Okta、ServiceNow、Datadog等软件巨头集中发布财报，业绩与指引全面超预期。
-
-当前市场对软件行业前景的悲观预期已有所缓解，全球软件股的投资情绪正在逐渐回暖，资金重新关注具备真实AI落地能力的优质企业。
-
-分析人士指出，AI应用软件正在从“有没有AI”进入“谁真正拥有用户和场景”的阶段，更多具备成熟工作流编排能力、垂直行业Know-how和数据闭环，且能通过业绩持续证明商业价值的公司将获得市场更多关注。
-
-港股互联网板块有望迅速跟进了这波“AI赋能软件”的重新定价行情。
+至此，该案被扣的70名中国公民已全部恢复自由。
 
 ## 相关推荐
 
-- 2026-06-29 17:02 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 17:14 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 17:05 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 17:00 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 17:17 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 17:09 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 17:20 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 17:20 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 16:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 17:07 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 17:11 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 17:16 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 17:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 17:09 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 17:12 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 17:11 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 17:02 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 17:26 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 17:07 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 17:13 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 17:29 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 17:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 17:08 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 17:00 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:54 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/08043262600.shtml)
-- 2026-06-29 17:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/316351501.shtml)
-- 2026-06-29 16:58 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/47697925709.shtml)
-- 2026-06-29 16:55 - [欧盟为什么越来越倾向贸易保护](http://www.share.minike.top/Article/details/39824416.shtml)
-- 2026-06-29 17:14 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/10320.shtml)
-- 2026-06-29 16:59 - [叠纸](https://www.blog.minike.top/Article/details/486408891956.shtml)
-- 2026-06-29 17:04 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/551021289548.shtml)
-- 2026-06-29 17:17 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/578129801106.shtml)
-- 2026-06-29 17:12 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/835665.shtml)
-- 2026-06-29 16:59 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/270711417808.shtml)
-- 2026-06-29 17:13 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/20069602344.shtml)
-- 2026-06-29 16:57 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/4578464.shtml)
-- 2026-06-29 17:02 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/866562987704.shtml)
-- 2026-06-29 17:22 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/23316550938.shtml)
-- 2026-06-29 17:06 - [网友飞机上偶遇肖战](http://www.blog.kurohicncr.top/Article/details/655687.shtml)
+- 2026-06-29 17:06 - [流金岁月](https://www.blog.minike.top/Article/details/0327770728.shtml)
+- 2026-06-29 17:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/534620798663.shtml)
+- 2026-06-29 17:11 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/027652.shtml)
+- 2026-06-29 17:19 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/563632013848.shtml)
+- 2026-06-29 17:14 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/04060.shtml)
+- 2026-06-29 17:15 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/054014.shtml)
+- 2026-06-29 17:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/566316246686.shtml)
+- 2026-06-29 17:19 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/35843157.shtml)
+- 2026-06-29 17:30 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/5515786134.shtml)
+- 2026-06-29 17:21 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/756919.shtml)
+- 2026-06-29 17:15 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/141559.shtml)
+- 2026-06-29 17:05 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/3194758.shtml)
+- 2026-06-29 17:28 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/63798400.shtml)
+- 2026-06-29 17:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/12778093.shtml)
+- 2026-06-29 17:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/25461.shtml)

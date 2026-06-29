@@ -1,56 +1,59 @@
-# 台州援疆干部变身“多面手” 援疆答卷里书写“浙疆情”
+# 广东预计端午假期期间车流压力集中在粤港澳大湾区
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐6月1日电 (卿朋)从东海之滨到天山南麓，跨越4000公里。2023年4月，邱焕嵛作为浙江省台州市援疆干部，来到新疆生产建设兵团第一师阿拉尔市。三年间，他从主抓工业的基层干部，转变为能搞宣传、善抓文化、会做产业、心系民生的援疆“多面手”，交出一份扎实的答卷。 “万里行”：从台州到阿拉尔 2023年3月的一个午后，邱焕嵛接到援疆任务。他当即答应：“能为边疆发展出一份
+中新网广州6月17日电 (记者 蔡敏婕)广东省交通运输厅17日预计，今年端午假期期间车流压力主要集中在粤港澳大湾区，小型客车占比较高，其中，港珠澳大桥日均车流量约2.3万车次，同比增长42.48%。 2026年端午假期期间(6月19日至21日，共计3天)，广东省交通运输厅预计高速公路车流整体保持高位运行，主要以旅游度假、探亲访友等中短途出行为主，全省总体出行流量轻微增长。 广东
 
 ## 正文
 
-中新网乌鲁木齐6月1日电 (卿朋)从东海之滨到天山南麓，跨越4000公里。
+中新网广州6月17日电 (记者 蔡敏婕)广东省交通运输厅17日预计，今年端午假期期间车流压力主要集中在粤港澳大湾区，小型客车占比较高，其中，港珠澳大桥日均车流量约2.3万车次，同比增长42.48%。
 
-2023年4月，邱焕嵛作为浙江省台州市援疆干部，来到新疆生产建设兵团第一师阿拉尔市。
+2026年端午假期期间(6月19日至21日，共计3天)，广东省交通运输厅预计高速公路车流整体保持高位运行，主要以旅游度假、探亲访友等中短途出行为主，全省总体出行流量轻微增长。
 
-三年间，他从主抓工业的基层干部，转变为能搞宣传、善抓文化、会做产业、心系民生的援疆“多面手”，交出一份扎实的答卷。
+广东省交通运输厅预计2026年端午假期日均车流量约885万车次，同比增长约1.94%。
 
-“万里行”：从台州到阿拉尔 2023年3月的一个午后，邱焕嵛接到援疆任务。
+其中，虎门大桥日均车流量约11.92万车次；南沙大桥日均车流量约14.25万车次；黄埔大桥日均车流量约13.4万车次，同比增长0.73%；深中通道日均车流量约13.62万车次，同比增长11.05%。
 
-他当即答应：“能为边疆发展出一份力，绝不能错过。
+广东省交通运输厅预计假期前一天(6月18日)出行需求最为旺盛，假期结束后一天(6月22日)通行需求逐步回归常态。
 
-”从接到通知到出发，不到一周。
+广东交通集团认为，端午假期期间公众出行以返乡探亲、短途自驾为主。
 
-他白天交接工作，晚上查阅阿拉尔的气候、产业、风土人情，笔记本记满密密麻麻的要点。
+但“请到广东过端午”系列活动正在全面推广，各地赛龙舟、包粽子等民俗活动氛围浓郁，将激发公众节日出游需求。
 
-4月19日，他正式到任台州市援疆指挥部综合信息组组长、办公室副主任，并在第一师阿拉尔市人社局挂职。
+广州、深圳等大城市周边高速公路及通往热门景区、龙舟赛场的路段仍可能出现阶段性拥堵。
 
 ## 相关推荐
 
-- 2026-06-29 17:12 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 17:07 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 17:00 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 17:00 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 17:10 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 17:09 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 16:58 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 17:14 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 17:04 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-29 17:10 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 17:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 17:01 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 17:21 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 17:25 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 17:02 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 17:16 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 17:05 - [驻日美军航母沦为“毒窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 17:00 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 17:25 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 17:25 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 17:16 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 17:26 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 17:22 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/65592.shtml)
-- 2026-06-29 16:58 - [欧盟为什么越来越倾向贸易保护](https://www.blog.kurohicncr.top/Article/details/62350.shtml)
-- 2026-06-29 17:20 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/03475.shtml)
-- 2026-06-29 17:00 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/06948723281.shtml)
-- 2026-06-29 17:10 - [林昀儒不敌17岁小将止步首轮](https://www.share.minike.top/Article/details/96320592831.shtml)
-- 2026-06-29 17:15 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/940426859638.shtml)
-- 2026-06-29 16:59 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/68059769.shtml)
-- 2026-06-29 17:10 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/187889335.shtml)
-- 2026-06-29 16:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/88539118.shtml)
-- 2026-06-29 17:16 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/755813761.shtml)
-- 2026-06-29 16:54 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/55935.shtml)
-- 2026-06-29 17:15 - [T1零封KC MSI](http://www.share.minike.top/Article/details/0925625265.shtml)
-- 2026-06-29 17:00 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/264981.shtml)
-- 2026-06-29 17:00 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/805298399.shtml)
-- 2026-06-29 17:18 - [南昌市委书记调整](http://www.share.minike.top/Article/details/1030558.shtml)
+- 2026-06-29 17:22 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/79681824571.shtml)
+- 2026-06-29 17:13 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/690072424.shtml)
+- 2026-06-29 17:08 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/436267.shtml)
+- 2026-06-29 17:28 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/254260755.shtml)
+- 2026-06-29 17:01 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/0031886537.shtml)
+- 2026-06-29 17:12 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/46646018.shtml)
+- 2026-06-29 17:28 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/874311399523.shtml)
+- 2026-06-29 17:24 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/823133382122.shtml)
+- 2026-06-29 17:00 - [欧洲人驾车200公里抢购中国空调](https://www.share.kurohicncr.top/Article/details/271973867.shtml)
+- 2026-06-29 17:20 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.kurohicncr.top/Article/details/07743.shtml)
+- 2026-06-29 17:05 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.kurohicncr.top/Article/details/935933162670.shtml)
+- 2026-06-29 17:08 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/79215.shtml)
+- 2026-06-29 17:11 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/057682427770.shtml)
+- 2026-06-29 17:24 - [网友飞机上偶遇肖战](http://www.share.kurohicncr.top/Article/details/96160941.shtml)
+- 2026-06-29 17:29 - [博主：美航母沦为毒品集散窝点](http://www.blog.kurohicncr.top/Article/details/55765.shtml)

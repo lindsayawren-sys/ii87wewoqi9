@@ -1,60 +1,58 @@
-# 上海：做好算力期货研发准备
+# 无人装备上岗 津门智造提速
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：清华金融评论 6月2日，上海市人民政府办公厅发布《关于深化上海全球资产管理中心建设的若干意见》（以下简称《意见》）的通知。明确做好电力期货、算力期货研发准备，稳步拓展航运指数期货产品线，研发更多代表新质生产力发展方向的新型期货品种。推动科创50、深证100、创业板股指期货和期权、国债期权等产品上市。支
+原标题：活力中国调研行丨无人装备上岗 津门智造提速 科技日报记者 侯萌 赵卫华 没有司机，数万集装箱如何高效转运？不见焊工，精密焊缝如何保质完成？走进天津的码头与工厂，答案就藏在一台台智能装备之中。无人值守、远程操控、人机协作，一系列新技术、新模式，让传统产业焕发全新生机。 6月16日，科技日报记者跟随2026年“活力中国调研行”天津主题采访活动来到天津港，探访这座全球首个“智
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+原标题：活力中国调研行丨无人装备上岗 津门智造提速 科技日报记者 侯萌 赵卫华 没有司机，数万集装箱如何高效转运？
 
-来源：清华金融评论 6月2日，上海市人民政府办公厅发布《关于深化上海全球资产管理中心建设的若干意见》（以下简称《意见》）的通知。
+不见焊工，精密焊缝如何保质完成？
 
-明确做好电力期货、算力期货研发准备，稳步拓展航运指数期货产品线，研发更多代表新质生产力发展方向的新型期货品种。
+走进天津的码头与工厂，答案就藏在一台台智能装备之中。
 
-推动科创50、深证100、创业板股指期货和期权、国债期权等产品上市。
+无人值守、远程操控、人机协作，一系列新技术、新模式，让传统产业焕发全新生机。
 
-支持公募基金从重规模向重投资者回报转型，推出更多指数基金、浮动费率基金等创新产品。
+6月16日，科技日报记者跟随2026年“活力中国调研行”天津主题采访活动来到天津港，探访这座全球首个“智慧零碳”码头。
 
-《意见》明确，力争到2030年，上海资产管理规模达55万亿元，全国占比达1/3。
+该码头于2021年10月建成投用，依托全流程自动化码头作业，综合运营水平位居全球智慧港口前列。
 
-《意见》明确的重点任务包括： 一是支持科创属性突出的科技型企业上市、并购，提高权益资产科技含量与资产质量。
+放眼整个港区，人工智能运输机器人ART往来穿梭、有序作业。
 
-加快推出液化天然气期货和期权，做好电力期货、算力期货研发准备，稳步拓展航运指数期货产品线，研发更多代表新质生产力发展方向的新型期货品种。
+全国劳动模范、全国技术能手、天津港第一港埠有限公司拖头队副队长成卫东站在现场介绍：“咱们眼前这些ART机器人，和传统拖车完全不一样，取消了独立车头，导航、液压、动力所有控制系统全部整合在车身内部。
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 17:23 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 17:13 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 17:23 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 16:55 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 17:04 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 17:01 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 17:19 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 16:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 16:58 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 16:59 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 17:20 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 17:17 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 17:22 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 17:03 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 17:05 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 17:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 17:12 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 17:29 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 17:27 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 17:02 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 17:19 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 17:04 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 17:26 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 17:03 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 17:20 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:07 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/5264199045.shtml)
-- 2026-06-29 17:01 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/902780549054.shtml)
-- 2026-06-29 16:55 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/47254628446.shtml)
-- 2026-06-29 17:20 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/3805805.shtml)
-- 2026-06-29 17:10 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/25406.shtml)
-- 2026-06-29 17:05 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/00486196.shtml)
-- 2026-06-29 17:08 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/084146588.shtml)
-- 2026-06-29 16:59 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/459667.shtml)
-- 2026-06-29 17:17 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/8992329918.shtml)
-- 2026-06-29 17:17 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/6193371.shtml)
-- 2026-06-29 17:12 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/96865291.shtml)
-- 2026-06-29 17:20 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/517509016546.shtml)
-- 2026-06-29 17:01 - [业内：全球市场迎来结构性投资窗口](http://www.blog.kurohicncr.top/Article/details/40935.shtml)
-- 2026-06-29 17:23 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/612860106525.shtml)
-- 2026-06-29 17:06 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/847532.shtml)
+- 2026-06-29 17:09 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/0817017.shtml)
+- 2026-06-29 17:03 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.kurohicncr.top/Article/details/472543013014.shtml)
+- 2026-06-29 17:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/81225623.shtml)
+- 2026-06-29 17:03 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/722631897.shtml)
+- 2026-06-29 17:22 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.kurohicncr.top/Article/details/1284646537.shtml)
+- 2026-06-29 17:03 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/36993162209.shtml)
+- 2026-06-29 17:05 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/4175081526.shtml)
+- 2026-06-29 17:07 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/326857272715.shtml)
+- 2026-06-29 17:16 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/124907040.shtml)
+- 2026-06-29 17:09 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/89465179329.shtml)
+- 2026-06-29 17:03 - [看大国重器“云端穿针引线”](https://www.blog.minike.top/Article/details/727577504247.shtml)
+- 2026-06-29 17:21 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/64887781504.shtml)
+- 2026-06-29 17:08 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.minike.top/Article/details/619716.shtml)
+- 2026-06-29 17:12 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/53887705843.shtml)
+- 2026-06-29 17:06 - [T1零封KC MSI](http://www.share.minike.top/Article/details/7967649.shtml)

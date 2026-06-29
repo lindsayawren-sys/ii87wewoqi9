@@ -1,59 +1,57 @@
-# ATFX:美伊信号矛盾让市场不安 黄金跌超1%后继续承压
+# 见证历史，A股市值前十，5只科技股
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 6月2日，ATFX：由于美国和伊朗释放出相互矛盾的信号，市场担忧美伊停火协议延长不如此前预期的乐观，通胀担忧的加剧继续推升美联储年内加息预期，债券收益率和美元走强，拖累黄金价格在6月开局下跌超过1%，今早亚市盘中延续承压。昨日原油价格大幅反弹，加剧了通胀担忧，这可能导致各国央行提高利率以抑制不断上涨的价格压力。 在霍尔木兹海峡附近冲突再度升级的背景下
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！A股市值榜结构性巨变。 A股市值版图迎来历史性重塑，科技力量30多年来首次占据半壁江山。截至2026年6月18日收盘，A股市值前十强中，科技股独占5席，彻底打破了传统金融与能源巨头长期霸榜的格局。 回溯A股历史，科技股集体跻身市值前十的盛况，仅在1993年以前、全市场仅有10多只股票的初创阶段出现过。因此，
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 6月2日，ATFX：由于美国和伊朗释放出相互矛盾的信号，市场担忧美伊停火协议延长不如此前预期的乐观，通胀担忧的加剧继续推升美联储年内加息预期，债券收益率和美元走强，拖累黄金价格在6月开局下跌超过1%，今早亚市盘中延续承压。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-昨日原油价格大幅反弹，加剧了通胀担忧，这可能导致各国央行提高利率以抑制不断上涨的价格压力。
+A股市值榜结构性巨变。
 
-在霍尔木兹海峡附近冲突再度升级的背景下，美国总统特朗普表示，与伊朗的谈判正在“快速推进”，以此回应德黑兰此前暂停外交斡旋并彻底。
+A股市值版图迎来历史性重塑，科技力量30多年来首次占据半壁江山。
 
-据彭社报道，特朗普和以色列总理本雅明·内塔尼亚乌对有关黎巴嫩战事的通话也给出了不同的说法，这凸显了围绕结束这场冲突的谈判的混乱局面。
+截至2026年6月18日收盘，A股市值前十强中，科技股独占5席，彻底打破了传统金融与能源巨头长期霸榜的格局。
 
-这场冲突引发了全球能源危机，如今已进入第四个月。
+回溯A股历史，科技股集体跻身市值前十的盛况，仅在1993年以前、全市场仅有10多只股票的初创阶段出现过。
 
-机构指出，即便达成潜在协议，能源市场供应仍可能保持紧张，价格也将得到支撑。
+因此，在当前拥有数千家上市公司的成熟市场中，5只科技股同时挺进前十，堪称史无前例的历史性突破。
 
-这表明，此前对贵金属市场构成压力的宏观经济逆风因素仍将持续存在。
+从具体数据来看，这5只科技巨头分别是宁德时代、工业富联、中际旭创、寒武纪和新易盛。
 
-虽然黄金通常被视为对冲通胀的工具，但在高利率环境下，由于黄金不产生收益，其吸引力往往会减弱。
+其中，宁德时代A股市值超过1.7万亿元，位居A股市值第三；工业富联A股市值超过1.54万亿元，位居第五；中际旭创A股市值超过1.52万亿元，位居第六；寒武纪市值超过9400亿元，位居第九；新易盛A股市值超过8100亿元，位居第十。
 
 ## 相关推荐
 
-- 2026-06-29 16:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 17:09 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 17:10 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 17:06 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 16:54 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 17:10 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 16:59 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 17:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 17:23 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 16:55 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-29 17:03 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 17:05 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 16:58 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 17:10 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 17:24 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 17:05 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 17:17 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 17:13 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 17:16 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 17:29 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 17:12 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 17:22 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 17:15 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 17:10 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:55 - [新能源车能当外接空调用吗](https://www.share.kurohicncr.top/Article/details/01298.shtml)
-- 2026-06-29 17:18 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/17524.shtml)
-- 2026-06-29 17:21 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/2925106047.shtml)
-- 2026-06-29 17:16 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/76698808322.shtml)
-- 2026-06-29 16:55 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.minike.top/Article/details/36400.shtml)
-- 2026-06-29 17:04 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/2097973182.shtml)
-- 2026-06-29 17:07 - [男孩复读一年减重20斤涨分111分](http://www.share.minike.top/Article/details/392125.shtml)
-- 2026-06-29 17:14 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/33958827545.shtml)
-- 2026-06-29 17:15 - [永远有话聊的原因](http://www.blog.kurohicncr.top/Article/details/3555843.shtml)
-- 2026-06-29 17:04 - [扫黑风暴](https://www.blog.minike.top/Article/details/26498265432.shtml)
-- 2026-06-29 17:06 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/635631469947.shtml)
-- 2026-06-29 17:08 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/113878276184.shtml)
-- 2026-06-29 17:06 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/408358.shtml)
-- 2026-06-29 17:19 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/68984417.shtml)
-- 2026-06-29 17:15 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/077582442999.shtml)
+- 2026-06-29 17:05 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/83480.shtml)
+- 2026-06-29 17:08 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/52991.shtml)
+- 2026-06-29 17:26 - [王安宇尊重田曦薇的一切选择](https://www.blog.kurohicncr.top/Article/details/499549235.shtml)
+- 2026-06-29 17:08 - [送你一朵小红花](http://www.share.minike.top/Article/details/2719431.shtml)
+- 2026-06-29 17:09 - [流金岁月](https://www.share.minike.top/Article/details/4485525396.shtml)
+- 2026-06-29 17:18 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/23547400.shtml)
+- 2026-06-29 17:01 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/077619197.shtml)
+- 2026-06-29 17:24 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/68999.shtml)
+- 2026-06-29 17:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/27919105.shtml)
+- 2026-06-29 17:00 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/190132422.shtml)
+- 2026-06-29 17:22 - [赵今麦时隔五年再演李诗情](http://www.share.minike.top/Article/details/030439.shtml)
+- 2026-06-29 17:05 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/18470.shtml)
+- 2026-06-29 17:03 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/691835551.shtml)
+- 2026-06-29 17:11 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/5383627.shtml)
+- 2026-06-29 17:15 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/74494.shtml)

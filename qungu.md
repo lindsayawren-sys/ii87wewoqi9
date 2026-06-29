@@ -1,57 +1,57 @@
-# 贵州给古建筑做“生物病害专项体检”
+# 中核钛白（钛能化学，002145）股民索赔案持续推进
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新网贵阳6月1日电 (应腾 周燕玲)记者1日从贵州省文物保护研究中心了解到，该省日前已完成文物保护单位生物病害危害普查，共为63个国保、15个省保做了“生物病害专项体检”。 中国古建筑普遍以木构架为主体，对生物侵害极为敏感。从生态环境上看，贵州是天然虫害的“培养皿”，全省92.5%的面积为山地丘陵，年平均湿度达80%，是白蚁、木蜂、天牛等“吃木大户”的“快乐老家”。 本次普查
+上海久诚律师事务所股票索赔律师许峰律提示，中核钛白（钛能化学（维权），002145）投资者索赔案还在持续推进，前期部分案件已向法院提交立案，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律师专栏） 2024年4月30日，中核钛白公告公司实际控制人王泽龙先生收到证监会下发的《行政处罚决定书》，经查明，2022年7月，中核华原钛白股份有限公司非
 
 ## 正文
 
-中新网贵阳6月1日电 (应腾 周燕玲)记者1日从贵州省文物保护研究中心了解到，该省日前已完成文物保护单位生物病害危害普查，共为63个国保、15个省保做了“生物病害专项体检”。
+上海久诚律师事务所股票索赔律师许峰律提示，中核钛白（钛能化学（维权），002145）投资者索赔案还在持续推进，前期部分案件已向法院提交立案，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-中国古建筑普遍以木构架为主体，对生物侵害极为敏感。
+（许峰律师专栏） 2024年4月30日，中核钛白公告公司实际控制人王泽龙先生收到证监会下发的《行政处罚决定书》，经查明，2022年7月，中核华原钛白股份有限公司非公开发行A股股票申请获得中国证监会发审委审核通过。
 
-从生态环境上看，贵州是天然虫害的“培养皿”，全省92.5%的面积为山地丘陵，年平均湿度达80%，是白蚁、木蜂、天牛等“吃木大户”的“快乐老家”。
+2022年7月至8月，中信中证向中核钛白实际控制人王泽龙推荐定增多空方案。
 
-本次普查由贵州省文物局牵头，贵州省文物事业发展中心、贵州省文物保护研究中心联合中国林科院木材工业研究所、清华大学、贵州大学组建“技术天团”，共派出3支专家领衔的田野调查队，近30名队员奔赴贵州九个市(州)进行调查。
+根据方案，“客户通过场外衍生品交易台直接实现定增多空套利，提前结算收益，无需等待六个月的锁定期，通常一个多月时间即可回笼资金和收益”。
 
-以国保、省保木结构古建为主，涵盖近现代建筑，对古寺庙、传统民居、风雨桥、鼓楼、古粮仓、红色革命遗址等进行全覆盖排查。
+王泽龙未将自己通过相关交易安排实际参与非公开发行的信息告知上市公司。
 
-调查队通过仪器+人工双排查，通过三维扫描仪记录木构件典型病害三维影像，并记录受损木构件病害种类、位置和扩散范围，共收集100余件建筑维修替换的残损木构件标本，并逐一建档，以此评估现有维修措施的有效性。
+2023年2月24日、3月3日，中核钛白公告非公开发行A股股票相关发行情况报告书，称本次非公开发行对象不存在发行人实际控制人通过直接或间接形式参与本次发行认购的情形。
 
-对木建构的古建来说，“看着完好”往往是最大的错觉，内里可能上演着一场持久的，涵盖白蚁、蠹虫、木蜂、天牛的组团“啃老”大战。
+专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，综合以上违法事实，根据证券法规定，在2023年2月8日到2024年4月13日之间买入中核钛白股票，并且在2024年4月13日后卖出或继续持有股票的投资者，目前还可发起索赔。
 
-在贵州黄平县飞云崖，一根被白蚁侵蚀的大木梁外表尚存，内里却早已危如累卵，存在突发坍塌风险。
+（中核钛白维权入口） （本文由许峰律师供稿，不代表新浪财经立场。
 
 ## 相关推荐
 
-- 2026-06-29 17:07 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 17:18 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 17:22 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 17:10 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 17:17 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 17:14 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 17:13 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 17:07 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 17:22 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 17:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 16:56 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 17:06 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 17:07 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 17:00 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 17:17 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 17:29 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 17:20 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 17:14 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 17:21 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 17:28 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 17:10 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 17:13 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:19 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/546525298.shtml)
-- 2026-06-29 17:02 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.minike.top/Article/details/93785985581.shtml)
-- 2026-06-29 17:18 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/95411653.shtml)
-- 2026-06-29 17:18 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.blog.kurohicncr.top/Article/details/642273913.shtml)
-- 2026-06-29 16:58 - [首尔商铺禁止洪明甫入内](https://www.share.minike.top/Article/details/009951.shtml)
-- 2026-06-29 17:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/875698931327.shtml)
-- 2026-06-29 16:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/4393261.shtml)
-- 2026-06-29 17:07 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/9635065.shtml)
-- 2026-06-29 17:19 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/36948618.shtml)
-- 2026-06-29 17:07 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/712027.shtml)
-- 2026-06-29 17:01 - [徐昕暂不参加NBA夏季联赛](http://www.share.kurohicncr.top/Article/details/21522704349.shtml)
-- 2026-06-29 17:18 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/55664250775.shtml)
-- 2026-06-29 17:17 - [TLAW vs DCG MSI](https://www.blog.minike.top/Article/details/643575.shtml)
-- 2026-06-29 17:00 - [黄金也扛不住了](https://www.share.minike.top/Article/details/68977096677.shtml)
-- 2026-06-29 16:57 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/65960.shtml)
+- 2026-06-29 17:23 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/00368342.shtml)
+- 2026-06-29 17:19 - [周生如故](https://www.share.minike.top/Article/details/147767953.shtml)
+- 2026-06-29 17:15 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/648623.shtml)
+- 2026-06-29 17:21 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/625875.shtml)
+- 2026-06-29 17:20 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/6514645.shtml)
+- 2026-06-29 17:22 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/24072829834.shtml)
+- 2026-06-29 17:01 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/739995611.shtml)
+- 2026-06-29 17:13 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/12018735036.shtml)
+- 2026-06-29 17:11 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/44010.shtml)
+- 2026-06-29 17:18 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/00061588.shtml)
+- 2026-06-29 17:24 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/4989812.shtml)
+- 2026-06-29 17:16 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/109537634218.shtml)
+- 2026-06-29 17:24 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/26355644196.shtml)
+- 2026-06-29 17:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/941525.shtml)
+- 2026-06-29 17:29 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/75173.shtml)

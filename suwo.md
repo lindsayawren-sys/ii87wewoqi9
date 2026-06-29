@@ -1,56 +1,61 @@
-# 美国放宽三代制冷剂使用！锂电、氟化工齐涨，华宝基金化工ETF（516020）上探2.88%！机构：行业底部企稳向上
+# 沪市ETF财富管理基地行（四川成都 西部基地站）圆满举行！
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-化工板块今日（6月1日）强势反攻！反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速冲高，盘中场内价格最高涨幅达到2.88%，而后略有回落，截至收盘，涨1.61%。 成份股方面，氟化工、锂电、民爆用品等板块涨幅居前。截至收盘，巨化股份涨停，星源材质涨7.65%，三美股份、易普力、圣泉集团等多股涨超6%。 资金面上，基础化工板块获主力资金大举加码。数据显示，截至收盘，
+2026年6月11日至12日，由上海证券交易所与华夏基金联合主办的“沪市ETF财富管理基地行”系列活动在四川圆满落幕。活动首日落地上交所西部基地（成都），次日走进上证180ETF成分股东方电气（德阳），共吸引个人投资者及机构投资者近百人次参与，通过“理念赋能+实地调研”的双轨模式，深度解码财富管理新趋势与硬科技产业投资逻辑。 在成都西部基地专场活动中，上交所讲师系统阐释了家庭财
 
 ## 正文
 
-化工板块今日（6月1日）强势反攻！
+2026年6月11日至12日，由上海证券交易所与华夏基金联合主办的“沪市ETF财富管理基地行”系列活动在四川圆满落幕。
 
-反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速冲高，盘中场内价格最高涨幅达到2.88%，而后略有回落，截至收盘，涨1.61%。
+活动首日落地上交所西部基地（成都），次日走进上证180ETF成分股东方电气（德阳），共吸引个人投资者及机构投资者近百人次参与，通过“理念赋能+实地调研”的双轨模式，深度解码财富管理新趋势与硬科技产业投资逻辑。
 
-成份股方面，氟化工、锂电、民爆用品等板块涨幅居前。
+在成都西部基地专场活动中，上交所讲师系统阐释了家庭财富管理的核心逻辑：财富管理的终点不是“赚最多”，而是实现人生各阶段的“确定性”。
 
-截至收盘，巨化股份涨停，星源材质涨7.65%，三美股份、易普力、圣泉集团等多股涨超6%。
+ETF正成为财富管理的“标准件”，低成本、高透明、分散风险的特性，让它成为普通投资者穿越周期的最优工具，投资不是追求“最好的”单一产品，二是构建“最合适”的工具组合，同时分享了保值防守、稳健配置、进取成长等三类针对当前市场环境的适配策略。
 
-资金面上，基础化工板块获主力资金大举加码。
+华夏基金策略分析师在会上分享了2026年下半年权益市场最新研判，认为科技成长仍是主线，但短期波动加大需谨慎，流动性是核心变量。
 
-数据显示，截至收盘，基础化工板块单日获主力资金净流入69.66亿元，净流入额在30个中信一级行业中高居首位。
+上半年ETF资金净流出态势，杠杆资金与机构行为明显分化，科技产业趋势未改，AI算力、半导体、光通信等硬件需求持续超预期，Scaling Law仍驱动行业非线性增长。
 
-消息面上，近日，美国特朗普政府宣布废止并修正拜登政府时期制冷、空调领域的严苛管控法规。
+建议采取“大跌敢买、大涨不追”的策略，耐心等待科技板块估值回归合理区间，同时关注霍尔木兹海峡通航后，能源与高端制造的阶段性修复机会。
 
-美国环境保护署正式敲定《2023年技术转型规则》修订内容，延长三代制冷剂的合规使用期限，放宽相关使用限制。
+6月12日，邀请各类客户约50人走进上证180ETF成分股——东方电气，参观德阳厂区，并与上市公司交流公司业务、行业发展情况等。
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 17:11 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 16:57 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 17:18 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 17:14 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 17:00 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 17:06 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 17:00 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 17:02 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 17:05 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 17:10 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 17:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 17:12 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 17:18 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 17:07 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 17:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 17:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 17:22 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 17:29 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 17:10 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 17:08 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 17:29 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 17:14 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 17:06 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 17:02 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:15 - [普京承认俄出现燃料危机](http://www.blog.minike.top/Article/details/988713.shtml)
-- 2026-06-29 16:54 - [沙丘](https://www.blog.kurohicncr.top/Article/details/973205.shtml)
-- 2026-06-29 17:08 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/962127536960.shtml)
-- 2026-06-29 17:00 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/13243.shtml)
-- 2026-06-29 17:12 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/918715.shtml)
-- 2026-06-29 17:11 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/536914984.shtml)
-- 2026-06-29 16:55 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/800385369716.shtml)
-- 2026-06-29 17:09 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/95625256.shtml)
-- 2026-06-29 17:13 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/509515.shtml)
-- 2026-06-29 17:03 - [医院大厅放钢琴是形式主义吗](https://www.share.kurohicncr.top/Article/details/79147.shtml)
-- 2026-06-29 17:22 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.minike.top/Article/details/5514123009.shtml)
-- 2026-06-29 17:08 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/020382323884.shtml)
-- 2026-06-29 17:19 - [扬名立万](https://www.blog.minike.top/Article/details/7494675487.shtml)
-- 2026-06-29 17:04 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/09604258.shtml)
-- 2026-06-29 17:13 - [周生如故](http://www.share.minike.top/Article/details/7973281.shtml)
+- 2026-06-29 17:03 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/205513480706.shtml)
+- 2026-06-29 17:01 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/18724060167.shtml)
+- 2026-06-29 17:03 - [沙丘](http://www.blog.kurohicncr.top/Article/details/99905755.shtml)
+- 2026-06-29 17:15 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.kurohicncr.top/Article/details/7665206669.shtml)
+- 2026-06-29 17:09 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/995799238.shtml)
+- 2026-06-29 17:07 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/7263755.shtml)
+- 2026-06-29 17:28 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/2202442779.shtml)
+- 2026-06-29 17:23 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/8955348067.shtml)
+- 2026-06-29 17:24 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.kurohicncr.top/Article/details/56123.shtml)
+- 2026-06-29 17:20 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/18662218411.shtml)
+- 2026-06-29 17:00 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/00859989.shtml)
+- 2026-06-29 17:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/69563.shtml)
+- 2026-06-29 17:15 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/79863.shtml)
+- 2026-06-29 17:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/0055993.shtml)
+- 2026-06-29 17:21 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/5426364263.shtml)

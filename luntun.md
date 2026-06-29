@@ -1,59 +1,52 @@
-# Karyopharm将邀专家解读骨髓纤维化III期SENTRY试验结果
+# 人工智能实验室Odyssey融资3.1亿美元 估值14.5亿美元
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-Karyopharm Therapeutics Inc．今日宣布，将于美国东部时间6月2日下午2：00召开投资者电话会议，详细解读selinexor联合ruxolitinib治疗骨髓纤维化的III期SENTRY试验结果。 此次电话会议将由公司高级管理团队主持，并特邀西奈山伊坎医学院医学教授、血液癌症与骨髓疾病卓越中心主任、SENTRY试验首席研究员John Mascarenha
+人工智能实验室Odyssey周三表示，已完成一轮3.1亿美元的融资，此轮融资后估值达14.5亿美元。 本轮B轮融资由Natural Capital领投，亚马逊、AMD Ventures、GV、EQT、IQT等机构跟投。 “过去几年，我们在规模化、交互性、多模态和物理精度方面取得了重大突破，该领域目前正以极快的速度发展，”Odyssey联合创始人兼首席执行官卡梅伦（Oliver
 
 ## 正文
 
-Karyopharm Therapeutics Inc．今日宣布，将于美国东部时间6月2日下午2：00召开投资者电话会议，详细解读selinexor联合ruxolitinib治疗骨髓纤维化的III期SENTRY试验结果。
+人工智能实验室Odyssey周三表示，已完成一轮3.1亿美元的融资，此轮融资后估值达14.5亿美元。
 
-此次电话会议将由公司高级管理团队主持，并特邀西奈山伊坎医学院医学教授、血液癌症与骨髓疾病卓越中心主任、SENTRY试验首席研究员John Mascarenhas博士作为主讲嘉宾。
+本轮B轮融资由Natural Capital领投，亚马逊、AMD Ventures、GV、EQT、IQT等机构跟投。
 
-会议将在Mascarenhas博士于2026年美国临床肿瘤学会年会上口头报告试验结果之后举行。
+“过去几年，我们在规模化、交互性、多模态和物理精度方面取得了重大突破，该领域目前正以极快的速度发展，”Odyssey联合创始人兼首席执行官卡梅伦（Oliver Cameron）表示。
 
-据ASCO官网信息，该口头报告定于美国东部时间6月2日上午9：45至12：45进行，摘要编号为LBA6500。
+Odyssey 是一家人工智能实验室，致力于构建能够学习预测并与外界互动的系统。
 
-投资者可拨打（800）836-8184（美国国内）或（646）357-8785（国际）接入电话会议，公司官网投资者关系板块将同步提供音频直播及相关幻灯片，会议结束后约两小时可收听录音回放。
-
-SENTRY试验（XPORT-MF-034）是一项随机、双盲、安慰剂对照的III期研究，共入组353例JAK抑制剂初治的骨髓纤维化患者。
-
-结果显示，试验达到首个主要终点：selinexor联合治疗组50%的患者在第24周达到脾脏体积缩小≥35%，而ruxolitinib单药组为28%（单侧p
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 17:21 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 16:55 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 17:03 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 16:57 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 17:11 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 17:10 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 17:05 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 17:07 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 17:15 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 17:07 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 17:14 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 17:03 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 17:05 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 17:17 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 17:10 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 17:24 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 17:19 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 17:11 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 17:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 17:22 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 17:07 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 17:05 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 17:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 17:17 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 17:17 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 17:00 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 17:04 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:17 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.minike.top/Article/details/579983.shtml)
-- 2026-06-29 17:18 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/51078874.shtml)
-- 2026-06-29 17:22 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/979529399884.shtml)
-- 2026-06-29 17:07 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/14992976319.shtml)
-- 2026-06-29 17:10 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/71543004526.shtml)
-- 2026-06-29 17:17 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/78107.shtml)
-- 2026-06-29 16:57 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/33199.shtml)
-- 2026-06-29 16:58 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.minike.top/Article/details/72558871854.shtml)
-- 2026-06-29 17:03 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/028352.shtml)
-- 2026-06-29 17:13 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.minike.top/Article/details/61870747.shtml)
-- 2026-06-29 17:18 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/715797.shtml)
-- 2026-06-29 17:19 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/45549.shtml)
-- 2026-06-29 17:06 - [世界杯十大帅哥必吃榜](https://www.share.minike.top/Article/details/446998844.shtml)
-- 2026-06-29 17:15 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/08613216.shtml)
-- 2026-06-29 17:08 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/804232651.shtml)
+- 2026-06-29 17:06 - [中国创新药股价要反攻了吗](http://www.share.minike.top/Article/details/9961431.shtml)
+- 2026-06-29 17:26 - [世界杯十大帅哥必吃榜](https://www.share.kurohicncr.top/Article/details/631416.shtml)
+- 2026-06-29 17:16 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/55799137228.shtml)
+- 2026-06-29 17:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/089187.shtml)
+- 2026-06-29 17:13 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/642566255486.shtml)
+- 2026-06-29 17:28 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/748262828305.shtml)
+- 2026-06-29 17:24 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/439631.shtml)
+- 2026-06-29 17:25 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/90087.shtml)
+- 2026-06-29 17:08 - [王安宇尊重田曦薇的一切选择](https://www.share.minike.top/Article/details/8526442.shtml)
+- 2026-06-29 17:02 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/5119289.shtml)
+- 2026-06-29 17:23 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/32842347574.shtml)
+- 2026-06-29 17:21 - [美人鱼](http://www.blog.minike.top/Article/details/43165.shtml)
+- 2026-06-29 17:11 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/276285266.shtml)
+- 2026-06-29 17:17 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/08340.shtml)
+- 2026-06-29 17:24 - [普京介绍前线战事](http://www.blog.minike.top/Article/details/210072.shtml)

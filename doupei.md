@@ -1,60 +1,51 @@
-# 中国—东盟人工智能创新合作研修班启动
+# 高层建筑起火是向上跑还是向下跑？国家消防救援局回应
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新网南宁6月2日电(黄令妍 韦天聪)6月1日，由广西国际博览事务局(中国—东盟博览会秘书处)承办的中国—东盟人工智能创新合作研修班在南宁启动。来自文莱、柬埔寨、老挝、马来西亚、泰国5个东盟国家的28名学员跨越山海，共同开启人工智能创新合作的学习之旅。 中国—东盟博览会秘书处秘书长王继才表示，当前，人工智能正以前所未有的速度重塑产业格局，重构经济形态，也为中国—东盟合作注入新动
+发布时间：2026年06月17日 13:26 来源：中国新闻网 国家消防救援局6月17日上午举行例行新闻发布会，国家消防救援局新闻发言人、消防监督司副司长王天瑞在会上介绍，一般高层住宅楼梯间多为封闭楼梯间和防烟楼梯间，理论上进入这些区域，无论向上还是向下都应该是安全的。但可惜的是，多数小区楼梯间堆放杂物、防火门损坏等问题比较突出，原来的“生命通道”有可能就成为了“死亡陷阱”。所
 
 ## 正文
 
-中新网南宁6月2日电(黄令妍 韦天聪)6月1日，由广西国际博览事务局(中国—东盟博览会秘书处)承办的中国—东盟人工智能创新合作研修班在南宁启动。
+发布时间：2026年06月17日 13:26 来源：中国新闻网 国家消防救援局6月17日上午举行例行新闻发布会，国家消防救援局新闻发言人、消防监督司副司长王天瑞在会上介绍，一般高层住宅楼梯间多为封闭楼梯间和防烟楼梯间，理论上进入这些区域，无论向上还是向下都应该是安全的。
 
-来自文莱、柬埔寨、老挝、马来西亚、泰国5个东盟国家的28名学员跨越山海，共同开启人工智能创新合作的学习之旅。
+但可惜的是，多数小区楼梯间堆放杂物、防火门损坏等问题比较突出，原来的“生命通道”有可能就成为了“死亡陷阱”。
 
-中国—东盟博览会秘书处秘书长王继才表示，当前，人工智能正以前所未有的速度重塑产业格局，重构经济形态，也为中国—东盟合作注入新动力。
+所以从家里向外逃生时，一定要冷静，如果判断火灾在自家住宅的上面，这个时候在烟气不大的情况下，可以快速向下逃生；如果判断火灾在自家住宅下面，且自家离屋顶比较近，并且确保楼梯是通屋顶的，可以优先选择向上逃生。
 
-中国—东盟自贸区3.0版即将实施，双方人工智能合作前景广阔。
-
-中国—东盟博览会已举办22届，搭建双边合作的重要平台，也开展了一系列面向东盟的研修培训项目，包括中国—东盟青年领军者成长计划研修班、中国—东盟农产品电商贸易研修班、中国—东盟东部增长区电子商务(新业态)研修班等，受到东盟国家参训学员的广泛好评。
-
-老挝科技与通信部国家信息中心副主任瓦拉赛·达拉莱作为学员代表发言。
-
-他表示，人工智能已经成为推动全球发展的变革力量，中国引领人工智能研究、创新和应用场景落地，东盟各国正致力于将AI技术融入各行各业。
-
-此次研修班项目为东盟国家提供了绝佳平台，让各国学员更好地学习中国的先进经验、交流心得，有助于整体提升东盟国家人工智能运用能力。
+(记者 刘世炯） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 17:02 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 16:59 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 17:04 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 16:55 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 17:11 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 17:14 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 17:14 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 17:01 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 16:55 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 17:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 17:22 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 16:55 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 17:03 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 17:11 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 17:19 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 17:09 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 17:25 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 17:00 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 17:20 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 17:14 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 17:13 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 17:29 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 17:19 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 17:19 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 17:15 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 17:19 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 17:10 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:55 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/06491808816.shtml)
-- 2026-06-29 17:18 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/28572781.shtml)
-- 2026-06-29 17:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/82302546976.shtml)
-- 2026-06-29 16:56 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/069885369.shtml)
-- 2026-06-29 17:05 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/2972187.shtml)
-- 2026-06-29 17:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/926657350.shtml)
-- 2026-06-29 16:56 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/77482.shtml)
-- 2026-06-29 17:02 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/383308501703.shtml)
-- 2026-06-29 17:18 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/667693.shtml)
-- 2026-06-29 17:19 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/376231595.shtml)
-- 2026-06-29 17:23 - [南昌市委书记调整](https://www.blog.minike.top/Article/details/98518111816.shtml)
-- 2026-06-29 17:14 - [王楚钦首轮赢下国乒德比](http://www.blog.minike.top/Article/details/62948.shtml)
-- 2026-06-29 17:17 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/33065817042.shtml)
-- 2026-06-29 16:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/5214604.shtml)
-- 2026-06-29 17:06 - [世界杯1/16决赛对阵出炉](http://www.share.minike.top/Article/details/782855407.shtml)
+- 2026-06-29 17:13 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/27297.shtml)
+- 2026-06-29 17:03 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/9918958962.shtml)
+- 2026-06-29 17:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/100692132621.shtml)
+- 2026-06-29 17:24 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/121270.shtml)
+- 2026-06-29 17:26 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/681394.shtml)
+- 2026-06-29 17:09 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/746707593.shtml)
+- 2026-06-29 17:00 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/5112067.shtml)
+- 2026-06-29 17:29 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/759541.shtml)
+- 2026-06-29 17:18 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.kurohicncr.top/Article/details/43242539853.shtml)
+- 2026-06-29 17:18 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/045303687202.shtml)
+- 2026-06-29 17:07 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/63487443.shtml)
+- 2026-06-29 17:20 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/5846426776.shtml)
+- 2026-06-29 17:27 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/51875716.shtml)
+- 2026-06-29 17:02 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/90495.shtml)
+- 2026-06-29 17:09 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/93190647.shtml)

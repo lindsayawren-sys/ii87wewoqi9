@@ -1,61 +1,47 @@
-# 柠季拟收购哈根达斯中国门店业务 茶饮“后浪”能否唤醒冰淇淋“旧贵”？
+# 新疆：高速货车散落价值15万元货物 巡逻交警及时处置
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-一则消息在消费投资圈激起涟漪。 2026年5月28日，国内新茶饮品牌柠季被曝正在洽谈收购通用磨坊旗下哈根达斯在中国的门店业务，双方“已经谈了大半年”，或最快于本周内签署相关文件。一个是诞生仅五年、凭借手打柠檬茶在Z世代中快速走红的国货新势力；一个是入华三十年、曾以“爱她，就带她去吃哈根达斯”红遍大江南北的美国冰淇淋鼻祖。这场“蛇吞象”式的潜在并购，在看似戏剧化的商业故事背后，蕴
+发布时间：2026年06月17日 12:02 来源：中国新闻网 近日，新疆生产建设兵团第十二师乌鲁木齐垦区公安局交警大队民辅警在G30连霍高速巡逻时，发现一辆货车装载饮料在高速道路上发生倾斜，车上饮料散落，执勤人员立即开展现场警戒、救援及交通管控，联合救援力量清理散落货物。经过半个多小时处置，挽回经济损失15万余元。(作者：刘露露 康宏德) 责任编辑：【魏聪聪】
 
 ## 正文
 
-一则消息在消费投资圈激起涟漪。
+发布时间：2026年06月17日 12:02 来源：中国新闻网 近日，新疆生产建设兵团第十二师乌鲁木齐垦区公安局交警大队民辅警在G30连霍高速巡逻时，发现一辆货车装载饮料在高速道路上发生倾斜，车上饮料散落，执勤人员立即开展现场警戒、救援及交通管控，联合救援力量清理散落货物。
 
-2026年5月28日，国内新茶饮品牌柠季被曝正在洽谈收购通用磨坊旗下哈根达斯在中国的门店业务，双方“已经谈了大半年”，或最快于本周内签署相关文件。
+经过半个多小时处置，挽回经济损失15万余元。
 
-一个是诞生仅五年、凭借手打柠檬茶在Z世代中快速走红的国货新势力；一个是入华三十年、曾以“爱她，就带她去吃哈根达斯”红遍大江南北的美国冰淇淋鼻祖。
-
-这场“蛇吞象”式的潜在并购，在看似戏剧化的商业故事背后，蕴含着深刻的结构性动因：一个强势崛起的本土品牌在寻求品牌跃迁与品类突围，一个日渐疲态的国际巨头在加速剥离非核心资产。
-
-柠季的“狩猎”逻辑：品类延展、品牌跃迁与渠道卡位 要理解柠季为何可能向哈根达斯伸出橄榄枝，需要先梳理这家年轻品牌的来路。
-
-柠季2021年2月在长沙一个仅三平方米的店面起步，次年便完成数亿元A+轮融资，投资方集齐了字节跳动、顺为资本和腾讯三大明星资本。
-
-即使在2025年国内茶饮市场整体承压的背景下，柠季整体GMV（总成交额）依旧同比增长了20%，门店日均营业额提升12%，外卖月均收入增长率达到了63%。
-
-在一个被普遍认为“格局已定”的赛道中，柠季用柠檬茶单品的差异化路线，硬生生撕开了一道口子。
+(作者：刘露露 康宏德) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 17:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 17:15 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 17:09 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 16:55 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 17:08 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 17:20 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 17:10 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 17:21 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 17:04 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 17:14 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 16:55 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 17:11 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 17:09 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 16:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 16:55 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 17:11 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 17:06 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 17:07 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 17:16 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 17:10 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 17:08 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 17:23 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 17:16 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 17:03 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 17:11 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 17:21 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:01 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/705347.shtml)
-- 2026-06-29 17:02 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/37256025.shtml)
-- 2026-06-29 17:02 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/26219589707.shtml)
-- 2026-06-29 17:17 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/526778116364.shtml)
-- 2026-06-29 16:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/057514188.shtml)
-- 2026-06-29 17:01 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/47603622.shtml)
-- 2026-06-29 17:18 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/31780039.shtml)
-- 2026-06-29 17:10 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/1980710.shtml)
-- 2026-06-29 16:57 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/81206335.shtml)
-- 2026-06-29 17:20 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/20096.shtml)
-- 2026-06-29 17:02 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/830313977.shtml)
-- 2026-06-29 17:04 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/67749199.shtml)
-- 2026-06-29 17:13 - [人形机器人](https://www.blog.minike.top/Article/details/516565887.shtml)
-- 2026-06-29 17:12 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/99079654.shtml)
-- 2026-06-29 17:10 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/753077999.shtml)
+- 2026-06-29 17:23 - [天道](https://www.blog.minike.top/Article/details/273801483.shtml)
+- 2026-06-29 17:21 - [广东一地发现极危植物新物种](https://www.share.kurohicncr.top/Article/details/40329487183.shtml)
+- 2026-06-29 17:03 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/3881672170.shtml)
+- 2026-06-29 17:17 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/28376583.shtml)
+- 2026-06-29 17:11 - [斛珠夫人](http://www.share.minike.top/Article/details/872481.shtml)
+- 2026-06-29 17:18 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/9189024.shtml)
+- 2026-06-29 17:22 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/69806908.shtml)
+- 2026-06-29 17:18 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/86975740975.shtml)
+- 2026-06-29 17:03 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/427552035187.shtml)
+- 2026-06-29 17:17 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/92474590090.shtml)
+- 2026-06-29 17:27 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/627729813.shtml)
+- 2026-06-29 17:21 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/33322.shtml)
+- 2026-06-29 17:27 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/698283219314.shtml)
+- 2026-06-29 17:09 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/37158498163.shtml)
+- 2026-06-29 17:14 - [恋与深空各大应用商店评分](http://www.share.kurohicncr.top/Article/details/07403585880.shtml)

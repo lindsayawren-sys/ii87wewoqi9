@@ -1,56 +1,59 @@
-# 外交部：反对《纽约时报》为台湾当局散布“台独”分裂谬论提供平台
+# 百余位海归英才武汉热议OPC发展机遇
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新网北京6月1日电 (记者 黄钰钦)中国外交部发言人林剑6月1日主持例行记者会。 有记者就中方注销一名《纽约时报》记者居留许可一事提问。 林剑：《纽约时报》为台湾当局散布“台独”分裂谬论提供平台，并公然将中国台湾地区称为“国家”，严重违反一个中国原则和中美三个联合公报，向“台独”分裂势力发出严重错误信号。中方对此坚决反对，《纽约时报》理应纠正错误，而不是不知悔改，一意孤行。
+中新社武汉6月17日电 (武一力 徐喆 周凡)2026年鸿鹄海归城际科创联盟大会17日在武汉举行，百余位海归英才齐聚一堂，热议“一人公司”(One Person Company，简称“OPC”)发展新机遇。 2026年2月，武汉出台人工智能OPC专项扶持政策，从算力补贴、人才安居、场地扶持等维度赋能单人创业。截至今年5月底，武汉已落地建成30个OPC生态社区，汇聚AI类OPC市
 
 ## 正文
 
-中新网北京6月1日电 (记者 黄钰钦)中国外交部发言人林剑6月1日主持例行记者会。
+中新社武汉6月17日电 (武一力 徐喆 周凡)2026年鸿鹄海归城际科创联盟大会17日在武汉举行，百余位海归英才齐聚一堂，热议“一人公司”(One Person Company，简称“OPC”)发展新机遇。
 
-有记者就中方注销一名《纽约时报》记者居留许可一事提问。
+2026年2月，武汉出台人工智能OPC专项扶持政策，从算力补贴、人才安居、场地扶持等维度赋能单人创业。
 
-林剑：《纽约时报》为台湾当局散布“台独”分裂谬论提供平台，并公然将中国台湾地区称为“国家”，严重违反一个中国原则和中美三个联合公报，向“台独”分裂势力发出严重错误信号。
+截至今年5月底，武汉已落地建成30个OPC生态社区，汇聚AI类OPC市场主体400余家，覆盖AI智能体研发、数字文创、智能招聘、跨境数智服务等细分领域。
 
-中方对此坚决反对，《纽约时报》理应纠正错误，而不是不知悔改，一意孤行。
+“对于年轻海归来说，OPC这种轻量化创业模式减少了试错成本，让我们更有勇气踏出创业的脚步。
 
-你刚才提到的这位记者在华常驻期间有确凿的骗访记录，违反外国常驻新闻机构和外国记者采访条例，中方依法依规注销其居留许可。
+”在武汉创业的“90后”海归罗弼文说，“我的公司员工比高峰期缩减了大约三分之二，但业务量增长很快，产品卖到了美国、日本、新加坡等国家。
 
-我们注意到美方以所谓“对等”为由，对在美合法工作的新华社记者进行政治打压，中方对此坚决反对。
+” 合肥市欧美同学会副会长李波认为，OPC创业模式虽处于起步阶段，但通过平台与社区的串联，能使分散的个体“抱团取暖”、融入当地，互相补齐资源与能力短板，形成上下游联动的产业协同效应，完成资源整合与价值放大。
 
-中美媒体问题的是非曲直、来龙去脉一清二楚，根源是美方单方面挑起事端，将媒体问题政治化。
+他建议海归创业者在“稳住底盘”的前提下，积极拥抱多元创业生态。
 
-中方始终为外国记者在华采访工作和生活提供便利，近年来中方显示灵活，为不少美国记者来华采访提供签证便利，而中方记者申请赴美采访却鲜获批准。
+活动现场，杭州、成都、武汉、深圳、宁波、长沙、合肥同步发布海归人才创新创业服务平台。
 
 ## 相关推荐
 
-- 2026-06-29 16:59 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 17:10 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 17:17 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 17:13 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 17:15 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 17:06 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 17:11 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 17:13 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 16:57 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 17:17 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 17:09 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 17:09 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 17:19 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 17:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 17:14 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 17:22 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 17:02 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 17:09 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 17:07 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 17:06 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 17:24 - [驻日美军航母沦为“毒窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 17:18 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 17:22 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:09 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/1911204.shtml)
-- 2026-06-29 17:22 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/98944992378.shtml)
-- 2026-06-29 17:22 - [高市早苗口齿不清被质疑醉酒](http://www.share.minike.top/Article/details/554310.shtml)
-- 2026-06-29 17:20 - [撒旦的腋窝是什么比喻](https://www.share.kurohicncr.top/Article/details/30680.shtml)
-- 2026-06-29 17:12 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/48463.shtml)
-- 2026-06-29 17:05 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/10557.shtml)
-- 2026-06-29 17:08 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/987294774674.shtml)
-- 2026-06-29 16:57 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/23113765.shtml)
-- 2026-06-29 17:05 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/88113194.shtml)
-- 2026-06-29 16:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/26880675.shtml)
-- 2026-06-29 17:17 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/09878663256.shtml)
-- 2026-06-29 17:13 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/013139532.shtml)
-- 2026-06-29 17:09 - [挪威王储妃长子2次强奸被判4年](https://www.blog.kurohicncr.top/Article/details/2844350.shtml)
-- 2026-06-29 17:23 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/5655090.shtml)
-- 2026-06-29 17:00 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/9177606.shtml)
+- 2026-06-29 17:16 - [沙丘](https://www.share.minike.top/Article/details/74804859.shtml)
+- 2026-06-29 17:17 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/95851.shtml)
+- 2026-06-29 17:12 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/8816747615.shtml)
+- 2026-06-29 17:24 - [青春环游记第三季](https://www.blog.minike.top/Article/details/321864912.shtml)
+- 2026-06-29 17:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/1075356.shtml)
+- 2026-06-29 17:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/2156990.shtml)
+- 2026-06-29 17:23 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/46503621.shtml)
+- 2026-06-29 17:16 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.kurohicncr.top/Article/details/273942.shtml)
+- 2026-06-29 17:22 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/7759526960.shtml)
+- 2026-06-29 17:04 - [逆天祖国人](https://www.share.minike.top/Article/details/72153202.shtml)
+- 2026-06-29 17:28 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.kurohicncr.top/Article/details/20220779.shtml)
+- 2026-06-29 17:07 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/174646.shtml)
+- 2026-06-29 17:26 - [95后小伙突然确诊癌症 医生提醒](http://www.share.kurohicncr.top/Article/details/77753525203.shtml)
+- 2026-06-29 17:26 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/805120662.shtml)
+- 2026-06-29 17:00 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/1000324906.shtml)

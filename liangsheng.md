@@ -1,56 +1,54 @@
-# “东北超”大连首个主场赛事将启 辽宁43个景区供球迷游客免费畅玩一周
+# 朱鹤新：全球创新资本配置中国动能增强，中国也为全球提供更多耐心资本
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新网大连6月1日电 (记者 杨毅)记者6月1日从大连市文旅局获悉，为迎接6月20日“东北超”大连队首个主场赛事，大连联合丹东、锦州、营口、朝阳、盘锦、葫芦岛六市，推出球迷游客专属文旅惠民活动，邀八方宾客观赛事、游辽宁、赏风光。本次全域免费畅游活动为期一周，活动时间为6月15日至6月21日。活动期间，球迷游客只要凭观赛票根和有效身份证件，即可免费畅游大连和辽宁其他六市43个景区
+6月17日，在2026陆家嘴论坛上，国家外汇管理局局长朱鹤新表示，中国坚持全方位开放合作，依托跨境资本双向流动，创新生态、产业能力和金融服务与全球高效联通，与各国共享发展红利。一方面，全球创新资本配置中国的动能增强。从共享“中国制造”的成本与规模优势，向共建“中国创造”的科技和产业生态跃升。另一方面，中国正在为全球提供更多耐心资本，有力带动东道国产业发展，为全球产供链韧性提供支
 
 ## 正文
 
-中新网大连6月1日电 (记者 杨毅)记者6月1日从大连市文旅局获悉，为迎接6月20日“东北超”大连队首个主场赛事，大连联合丹东、锦州、营口、朝阳、盘锦、葫芦岛六市，推出球迷游客专属文旅惠民活动，邀八方宾客观赛事、游辽宁、赏风光。
+6月17日，在2026陆家嘴论坛上，国家外汇管理局局长朱鹤新表示，中国坚持全方位开放合作，依托跨境资本双向流动，创新生态、产业能力和金融服务与全球高效联通，与各国共享发展红利。
 
-本次全域免费畅游活动为期一周，活动时间为6月15日至6月21日。
+一方面，全球创新资本配置中国的动能增强。
 
-活动期间，球迷游客只要凭观赛票根和有效身份证件，即可免费畅游大连和辽宁其他六市43个景区。
+从共享“中国制造”的成本与规模优势，向共建“中国创造”的科技和产业生态跃升。
 
-与此同时，上海市、江苏省、山东烟台市、西藏那曲市、新疆塔城地区、兵团第八师、兵团第九师、湖北宜昌兴山县、重庆奉节县等辽宁及大连和其他六市对口合作省市的市民，将和“东北超”参赛四省区的老乡们一样，无需赛事门票、无任何消费门槛，身份证=通行证，同享上述惠民活动。
+另一方面，中国正在为全球提供更多耐心资本，有力带动东道国产业发展，为全球产供链韧性提供支撑。
 
-这43家景区全部是各城市的网红流量担当，包括大连森林动物园、金石滩国家滨海地质公园；丹东虎山长城、凤凰山景区；营口望儿山风景区、辽宁团山国家级海洋公园；盘锦红海滩风景廊道、鼎翔生态旅游区；葫芦岛兴城古城景区、九门口长城景区；锦州义县奉国寺景区、笔架山景区；朝阳牛河梁国家遗址公园、辽宁朝阳鸟化石国家地址公园景区等。
+此外，在中国与全球双向互动中，人民币金融纽带功能持续拓展，也为跨境资本流动创造了更加稳定、可预期的金融条件。
 
-另外，大连圣亚海洋世界、大连海昌发现王国主题公园、金石滩山海奇幻谷、世界音乐文化博物馆等景区景点还有专属优惠政策。
-
-(完)
+（第一财经记者 林洁琛）(本文来自第一财经)
 
 ## 相关推荐
 
-- 2026-06-29 16:56 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 17:14 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 17:12 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 17:18 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 17:22 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 17:04 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 17:14 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 17:20 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 17:07 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 16:56 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 17:11 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 17:22 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 17:12 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 17:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 17:29 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 17:15 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 17:06 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 17:17 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 17:19 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 17:29 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 17:19 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 17:02 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 17:09 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 17:24 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:08 - [新能源车能当外接空调用吗](https://www.blog.kurohicncr.top/Article/details/8501030.shtml)
-- 2026-06-29 17:16 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/276224.shtml)
-- 2026-06-29 17:03 - [日本偶像龟梨和也宣布结婚](https://www.share.kurohicncr.top/Article/details/152568.shtml)
-- 2026-06-29 17:20 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/96009.shtml)
-- 2026-06-29 17:14 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/1466745.shtml)
-- 2026-06-29 17:09 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/884369644402.shtml)
-- 2026-06-29 17:04 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/3036366.shtml)
-- 2026-06-29 17:15 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/54249452.shtml)
-- 2026-06-29 17:03 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/388229257.shtml)
-- 2026-06-29 17:11 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/536420703167.shtml)
-- 2026-06-29 17:23 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/503597630197.shtml)
-- 2026-06-29 16:55 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/09408.shtml)
-- 2026-06-29 17:04 - [12所大学更正招生目录](http://www.blog.minike.top/Article/details/63850379936.shtml)
-- 2026-06-29 17:24 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/2992890.shtml)
-- 2026-06-29 16:56 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/163085482059.shtml)
+- 2026-06-29 17:08 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/27738120581.shtml)
+- 2026-06-29 17:01 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/422226.shtml)
+- 2026-06-29 17:06 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/225230331.shtml)
+- 2026-06-29 17:20 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.minike.top/Article/details/5842965.shtml)
+- 2026-06-29 17:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/54425218249.shtml)
+- 2026-06-29 17:01 - [四川地震前夕 街头电线上站满燕子](http://www.blog.kurohicncr.top/Article/details/0049532905.shtml)
+- 2026-06-29 17:03 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/796270425.shtml)
+- 2026-06-29 17:25 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/90878249205.shtml)
+- 2026-06-29 17:28 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/01158.shtml)
+- 2026-06-29 17:18 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.kurohicncr.top/Article/details/236743.shtml)
+- 2026-06-29 17:22 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/64568907.shtml)
+- 2026-06-29 17:07 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/35157455.shtml)
+- 2026-06-29 17:03 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/15389113902.shtml)
+- 2026-06-29 17:00 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/229381091745.shtml)
+- 2026-06-29 17:14 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/893944.shtml)

@@ -1,52 +1,56 @@
-# 谷歌与澳洲电信Telstra合作，共建澳大利亚光纤及海底光缆网络
+# 湖北石首：昔日“龙须沟” 今朝成“新宠”
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-谷歌与澳大利亚电信Telstra于周二官宣一项网络共享合作协议：谷歌将租用Telstra新建光纤网络的线路资源，同时可接入由谷歌出资建设、连通澳大利亚与美国、日本及太平洋岛国的海底光缆。 合作细则如下： 谷歌选定澳洲电信及其全新光纤网络Aura，以此夯实自身在澳大利亚的人工智能算力基建。 谷歌将租用澳洲电信Aura跨城暗光纤资源。 依托本次合作，澳洲电信也能获得额外海底光缆带宽
+发布时间：2026年06月17日 22:26 来源：中国新闻网 6月17日，湖北省石首市中心城区渠道截污及生态修复工程全面完工，标志着由石首市委市政府统筹谋划、长江生态环保集团牵头实施、中交二航局承建的石首市中心城区水环境综合治理PPP项目(一期工程)取得阶段性成效。昔日被当地居民称为“龙须沟”的水渠，如今已蜕变为“水下有草、岸边有树、四季有景”的生态廊道。 四年奋战，成效斐然
 
 ## 正文
 
-谷歌与澳大利亚电信Telstra于周二官宣一项网络共享合作协议：谷歌将租用Telstra新建光纤网络的线路资源，同时可接入由谷歌出资建设、连通澳大利亚与美国、日本及太平洋岛国的海底光缆。
+发布时间：2026年06月17日 22:26 来源：中国新闻网 6月17日，湖北省石首市中心城区渠道截污及生态修复工程全面完工，标志着由石首市委市政府统筹谋划、长江生态环保集团牵头实施、中交二航局承建的石首市中心城区水环境综合治理PPP项目(一期工程)取得阶段性成效。
 
-合作细则如下： 谷歌选定澳洲电信及其全新光纤网络Aura，以此夯实自身在澳大利亚的人工智能算力基建。
+昔日被当地居民称为“龙须沟”的水渠，如今已蜕变为“水下有草、岸边有树、四季有景”的生态廊道。
 
-谷歌将租用澳洲电信Aura跨城暗光纤资源。
+四年奋战，成效斐然。
 
-依托本次合作，澳洲电信也能获得额外海底光缆带宽，满足云计算与AI应用日益增长的流量需求。
+项目累计清除淤泥18余万立方米，改造升级雨污管网31.32公里，新建及修复绿化景观8.76万平方米，成功打通官田湖、显扬湖、山底湖三大淤塞内湖，全面疏通城市水系“经络网”。
 
-双方在联合声明中表示，本次网络资源互通能够降低网络宕机风险，保障数据传输持续、安全。
+该项目不仅实现了“治污”与“添景”的双重目标，更显著改善了石首中心城区水生态环境，为长江荆江段流域治理提供了可复制、可推广的实践样本。
 
-责任编辑：何云
+下一步，项目将持续巩固水体治理成效，擦亮“鄂南明珠”生态底色，全力服务长江经济带高质量发展，切实把生态治理成果转化为群众可感知、可享受的民生福祉。
+
+(完) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 17:06 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 17:22 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 17:02 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 17:17 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 16:59 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 17:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 17:13 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 17:22 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 17:22 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 17:12 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 17:04 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 17:18 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 17:26 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 17:17 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 17:10 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 17:06 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 17:26 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 17:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 17:10 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 17:05 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 17:00 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 17:27 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:22 - [税务总局披露5起合规申报个税案例](https://www.blog.minike.top/Article/details/09144776455.shtml)
-- 2026-06-29 17:02 - [斛珠夫人](http://www.share.minike.top/Article/details/18094242.shtml)
-- 2026-06-29 17:03 - [黄金也扛不住了](http://www.share.minike.top/Article/details/47005.shtml)
-- 2026-06-29 17:10 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/475807049.shtml)
-- 2026-06-29 16:58 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/275023607.shtml)
-- 2026-06-29 17:15 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/140968458964.shtml)
-- 2026-06-29 17:05 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/964161042266.shtml)
-- 2026-06-29 17:09 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/0838777626.shtml)
-- 2026-06-29 17:08 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/729692638287.shtml)
-- 2026-06-29 17:17 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/93437.shtml)
-- 2026-06-29 17:01 - [起风了](https://www.blog.minike.top/Article/details/54564862.shtml)
-- 2026-06-29 17:06 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/89125925.shtml)
-- 2026-06-29 17:17 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/004634874.shtml)
-- 2026-06-29 16:57 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/6920866952.shtml)
-- 2026-06-29 17:21 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/541826.shtml)
+- 2026-06-29 17:12 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/40982399.shtml)
+- 2026-06-29 17:15 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/13470981337.shtml)
+- 2026-06-29 17:12 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/85518880.shtml)
+- 2026-06-29 17:04 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/16935905546.shtml)
+- 2026-06-29 17:07 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/331115038630.shtml)
+- 2026-06-29 17:17 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/16612050622.shtml)
+- 2026-06-29 17:03 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/00162.shtml)
+- 2026-06-29 17:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/281817784526.shtml)
+- 2026-06-29 17:22 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/886392852.shtml)
+- 2026-06-29 17:24 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/03683445748.shtml)
+- 2026-06-29 17:14 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/563989126.shtml)
+- 2026-06-29 17:14 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/732584974597.shtml)
+- 2026-06-29 17:14 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/08188797002.shtml)
+- 2026-06-29 17:21 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/8980321.shtml)
+- 2026-06-29 17:12 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/2966865466.shtml)

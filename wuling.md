@@ -1,59 +1,58 @@
-# 漫步厦门集美大社，触摸一座城的精神根脉
+# 眼见为实！大开眼界！台湾同胞走访凉山 嘴巴都没合起来过
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-中新网厦门6月2日电(记者 王诗尧)在福建厦门，有一处独特的地方，它的名字本身就是一个美好的祝愿——“集美”。 日前，“潮起厦门 e鹭向新”2026年网络全媒体厦门行成功举办，来自全国的网络媒体代表团走进集美大社实地采风，感受这个将自然生态与人文之美、历史底蕴与青春活力融于一体的“美好生活”样本。 作为厦门跨岛发展的重要区域，集美区因山海相依、人文荟萃而闻名。从宋元时期的滨海村
+发布时间：2026年06月17日 13:36 来源：中国新闻网 作为台湾姑娘、四川媳妇，宓欣怡在成都创业十几年。紧跟乡村振兴的浪潮，她选择落脚风光物产兼备的四川凉山。宓欣怡凭借当地原生态鲜果优势，逐步打造出成熟的产运销体系，让凉山特色鲜果走出深山，奔赴更广阔的市场。“现在我儿子自己都可以说我妈妈是做乡村振兴的！”宓欣怡提起儿子对她的肯定，一脸自豪。在大陆打拼的日子里，“农林22
 
 ## 正文
 
-中新网厦门6月2日电(记者 王诗尧)在福建厦门，有一处独特的地方，它的名字本身就是一个美好的祝愿——“集美”。
+发布时间：2026年06月17日 13:36 来源：中国新闻网 作为台湾姑娘、四川媳妇，宓欣怡在成都创业十几年。
 
-日前，“潮起厦门 e鹭向新”2026年网络全媒体厦门行成功举办，来自全国的网络媒体代表团走进集美大社实地采风，感受这个将自然生态与人文之美、历史底蕴与青春活力融于一体的“美好生活”样本。
+紧跟乡村振兴的浪潮，她选择落脚风光物产兼备的四川凉山。
 
-作为厦门跨岛发展的重要区域，集美区因山海相依、人文荟萃而闻名。
+宓欣怡凭借当地原生态鲜果优势，逐步打造出成熟的产运销体系，让凉山特色鲜果走出深山，奔赴更广阔的市场。
 
-从宋元时期的滨海村落，到如今焕发新活力的文化社区，集美大社的发展轨迹，折射着集美这片土地的历史积淀与时代脉动。
+“现在我儿子自己都可以说我妈妈是做乡村振兴的！
 
-集美之美：山海相拥的人文沃土 “集美”二字，本身就蕴含着独特的文化意蕴。
+”宓欣怡提起儿子对她的肯定，一脸自豪。
 
-“集”为隹与木的组合，寓意百鸟归林、万物共生；“美”则有羊大为美之说，象征和谐丰饶、生活幸福。
+在大陆打拼的日子里，“农林22条”“川台70条”等惠台政策，让宓欣怡感受到十足的温暖与便利。
 
-集美不仅拥有山、湖、海相融的自然生态之美，更承载着人与自然和谐共处、人与人和睦相待的社会文明之美。
+她希望架起两岸连心桥，鼓励更多台湾青年来到大陆，开辟属于自己的天地。
 
-集美后方是一座绵延数百平方公里的长条山脉，向海边分出五条支脉，如五条游龙奔腾入海，形成杏林湾、马銮湾等独特海湾景观，共同簇拥着海中的宝珠屿，被南宋理学家朱熹形象地概括为“五龙抢珠”。
+责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 17:23 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 17:01 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 17:10 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 16:54 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 16:55 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 17:21 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 17:21 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 17:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 17:07 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 17:02 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 17:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-29 16:57 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 17:14 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 17:28 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 17:25 - [人形机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 17:15 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 17:28 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 17:19 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 17:04 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 17:16 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 17:23 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 17:14 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 17:02 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 17:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:04 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/5089941.shtml)
-- 2026-06-29 17:19 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/68319488.shtml)
-- 2026-06-29 17:15 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/994276720.shtml)
-- 2026-06-29 16:57 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/02704411221.shtml)
-- 2026-06-29 17:06 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/730674348.shtml)
-- 2026-06-29 17:23 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/551571614753.shtml)
-- 2026-06-29 17:09 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/549408.shtml)
-- 2026-06-29 16:57 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/096965779857.shtml)
-- 2026-06-29 17:10 - [美人鱼](http://www.share.kurohicncr.top/Article/details/51612661.shtml)
-- 2026-06-29 16:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/38770.shtml)
-- 2026-06-29 17:03 - [世界杯上那些封神的门将](http://www.blog.kurohicncr.top/Article/details/620572373148.shtml)
-- 2026-06-29 17:04 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/7282623316.shtml)
-- 2026-06-29 17:11 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/1553995549.shtml)
-- 2026-06-29 17:12 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.minike.top/Article/details/12608.shtml)
-- 2026-06-29 17:13 - [毒液2](http://www.share.minike.top/Article/details/9848809.shtml)
+- 2026-06-29 17:18 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/93795942.shtml)
+- 2026-06-29 17:13 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/53165873.shtml)
+- 2026-06-29 17:27 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/26741.shtml)
+- 2026-06-29 17:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/991103950259.shtml)
+- 2026-06-29 17:05 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/24198.shtml)
+- 2026-06-29 17:08 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/338268.shtml)
+- 2026-06-29 17:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/09884955758.shtml)
+- 2026-06-29 17:18 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/12762.shtml)
+- 2026-06-29 17:13 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/9754496772.shtml)
+- 2026-06-29 17:25 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/67640.shtml)
+- 2026-06-29 17:13 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/9060612303.shtml)
+- 2026-06-29 17:27 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/18151758127.shtml)
+- 2026-06-29 17:01 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/32924.shtml)
+- 2026-06-29 17:00 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/39767042.shtml)
+- 2026-06-29 17:02 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/564871.shtml)

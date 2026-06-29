@@ -1,57 +1,56 @@
-# 江苏、广西、湖南、山东等地多家银行补贴微信支付提现
+# 陈志犯罪集团重要骨干成员刘忍被从柬埔寨押解回国
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-上证报中国证券网讯（记者 温婷） 从传统的赠送米面油，到补贴“立减金”或提现手续费，银行贴着微信等支付通道搞营销的路子越走越宽。 近期，江苏长江商业银行、广西农商联合银行、湖南衡南农商银行、永兴农商银行、山东东港农商银行等多地城农商行密集官宣微信零钱提现手续费补贴、减免政策，用户将微信零钱提现至该行借记卡可享受手续费抵扣、全额减免等专属福利。 但细读要求不难发现，这些活动从参与
+新华社北京6月17日电（记者李明辉）记者6月17日从公安部获悉，近日，在柬埔寨有关部门大力支持下，公安部派出工作组，成功将陈志犯罪集团重要骨干成员刘忍从柬埔寨金边押解回国。这是中柬执法合作取得的又一战果。 经查，2016年，陈志指挥刘忍等人在柬埔寨创立金贝集团，运营多个网络赌博平台，对我境内公民大肆招赌吸赌。2020年以来，金贝集团在柬埔寨经营电诈园区，大肆实施电信网络诈骗犯罪
 
 ## 正文
 
-上证报中国证券网讯（记者 温婷） 从传统的赠送米面油，到补贴“立减金”或提现手续费，银行贴着微信等支付通道搞营销的路子越走越宽。
+新华社北京6月17日电（记者李明辉）记者6月17日从公安部获悉，近日，在柬埔寨有关部门大力支持下，公安部派出工作组，成功将陈志犯罪集团重要骨干成员刘忍从柬埔寨金边押解回国。
 
-近期，江苏长江商业银行、广西农商联合银行、湖南衡南农商银行、永兴农商银行、山东东港农商银行等多地城农商行密集官宣微信零钱提现手续费补贴、减免政策，用户将微信零钱提现至该行借记卡可享受手续费抵扣、全额减免等专属福利。
+这是中柬执法合作取得的又一战果。
 
-但细读要求不难发现，这些活动从参与方式到补贴额度，都有不少限制，且活动集中于地方农商行，这是中小银行花式揽客的套路，还是负债端压力下的出路？
+经查，2016年，陈志指挥刘忍等人在柬埔寨创立金贝集团，运营多个网络赌博平台，对我境内公民大肆招赌吸赌。
 
-怎么补？
+2020年以来，金贝集团在柬埔寨经营电诈园区，大肆实施电信网络诈骗犯罪，涉案金额特别巨大。
 
-微信零钱提现至银行卡，手续费常常让人“肉疼”。
+此外，刘忍还涉嫌非法拘禁、故意伤害等严重暴力犯罪。
 
-按照今年1月最新公布的收费规则，微信官方零钱提现免费额度为，同一身份证名下所有微信账号终身共享累计1000元免费提现额度，超出后按提现金额的0.1%收取服务费，单笔最低收费自2026年1月起调整为0.01元（原0.1元）。
+目前，刘忍已被依法采取强制措施，相关案件正在进一步侦办中。
 
-看到有银行愿意补贴“微信提现手续费”，家住上海的张女士有些动心，但仔细研究补贴规则后，她犹豫了。
-
-首先，你必须有一张活动银行的借记卡，但目前参与补贴的银行多为地方农商行。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 17:14 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 17:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 17:21 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 17:12 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 17:16 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 17:03 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 17:11 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 17:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 17:09 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 16:56 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 17:08 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 17:03 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 17:07 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 17:15 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 17:12 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 17:06 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 17:12 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 17:03 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 17:24 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 17:07 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 17:15 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 17:19 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 17:06 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:14 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/614541771420.shtml)
-- 2026-06-29 17:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/9299650186.shtml)
-- 2026-06-29 17:06 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/30399748.shtml)
-- 2026-06-29 17:17 - [乔家的儿女](http://www.blog.minike.top/Article/details/5210720.shtml)
-- 2026-06-29 16:58 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/75306.shtml)
-- 2026-06-29 16:55 - [未成年少女长期吸毒导致卧床不起](https://www.blog.minike.top/Article/details/141462971439.shtml)
-- 2026-06-29 17:16 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/87690613.shtml)
-- 2026-06-29 17:09 - [20年前的周杰伦](http://www.blog.kurohicncr.top/Article/details/1536824491.shtml)
-- 2026-06-29 16:58 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/536890.shtml)
-- 2026-06-29 16:56 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/848355.shtml)
-- 2026-06-29 17:08 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/376429099874.shtml)
-- 2026-06-29 17:19 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/93717624268.shtml)
-- 2026-06-29 17:18 - [恋与深空发放补偿未得到玩家认可](http://www.blog.minike.top/Article/details/516112877557.shtml)
-- 2026-06-29 17:21 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/94666798.shtml)
-- 2026-06-29 17:19 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/577840057.shtml)
+- 2026-06-29 17:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/651966525.shtml)
+- 2026-06-29 17:28 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/4482273204.shtml)
+- 2026-06-29 17:12 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/98601.shtml)
+- 2026-06-29 17:05 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/62262.shtml)
+- 2026-06-29 17:26 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/0940098143.shtml)
+- 2026-06-29 17:03 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/811153.shtml)
+- 2026-06-29 17:01 - [《贺子珍》](http://www.share.minike.top/Article/details/84643469.shtml)
+- 2026-06-29 17:04 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/806023734.shtml)
+- 2026-06-29 17:05 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/382795.shtml)
+- 2026-06-29 17:03 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/4472567421.shtml)
+- 2026-06-29 17:02 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/404374.shtml)
+- 2026-06-29 17:05 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/3654744244.shtml)
+- 2026-06-29 17:18 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/86596460.shtml)
+- 2026-06-29 17:28 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/92564513.shtml)
+- 2026-06-29 17:17 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/882012299521.shtml)

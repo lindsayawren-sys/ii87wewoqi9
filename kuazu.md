@@ -1,57 +1,58 @@
-# 酒价内参6月2日价格发布：精品茅台下跌5元
+# 今日，资金逃离“老登”股，股民：我心态崩了
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月2日整体再度走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日下跌14元，将将守住9900元关口。市场在前一日明显反弹后再现显著分化，终端交投情绪整体仍偏谨慎，中腰部产品古井贡古20与青花郎的跌幅较重，而昨日这两款
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】资金逃离“老登”股 中国基金报记者 泰勒 大家好啊，今天的市场，依旧是科技，科技，还是科技！资金不断逃离“老登”股。一起看看怎么回事。 6月18日，上证指数震荡，创业板指数以及科创指数大涨，均刷新了历史新高。截至收盘，沪指跌0.43%，深成指涨0.94%，创业板指涨2.05%，科创
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月2日整体再度走弱。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日下跌14元，将将守住9900元关口。
+来源：中国基金报 【导读】资金逃离“老登”股 中国基金报记者 泰勒 大家好啊，今天的市场，依旧是科技，科技，还是科技！
 
-市场在前一日明显反弹后再现显著分化，终端交投情绪整体仍偏谨慎，中腰部产品古井贡古20与青花郎的跌幅较重，而昨日这两款酒品均为大涨。
+资金不断逃离“老登”股。
 
-今日白酒市场11大单品三涨六跌两平，输家占据明显上风。
+一起看看怎么回事。
 
-上涨方面，习酒君品的涨幅居前，上涨7元/瓶，两连阳快速走出月内低点；飞天茅台上涨3元/瓶，成功固守1735元一线；国窖1573上涨2元/瓶。
+6月18日，上证指数震荡，创业板指数以及科创指数大涨，均刷新了历史新高。
 
-下跌方面，古井贡古20与青花郎跌幅居前，均下跌6元/瓶，前者仍囿于月内低点附近，后者再度失守700元关口；精品茅台下跌5元/瓶；五粮液普五八代下跌4元/瓶；洋河梦之蓝M6+下跌3元/瓶，回吐昨日全部涨幅，再度失守600元大关；水晶剑南春下跌2元/瓶，亦尽失昨日涨幅。
+截至收盘，沪指跌0.43%，深成指涨0.94%，创业板指涨2.05%，科创50指数涨近4%！
 
-五粮液1618与青花汾20的价格环比保持不变，后者平近一个月最低价纪录。
+市场共2023只个股上涨（其中101只个股涨停），3395只个股下跌。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+半导体产业链再度走强，晶升股份、裕太微等涨停，寒武纪涨超14%、创新高。
 
 ## 相关推荐
 
-- 2026-06-29 16:58 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 16:59 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 17:09 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 16:59 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 17:17 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 16:55 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 16:54 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 17:00 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 17:00 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 17:03 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 17:15 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 17:11 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 17:25 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 17:07 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 17:01 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 17:18 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 17:01 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 17:08 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 17:08 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 17:22 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 17:12 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 17:12 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 17:01 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:59 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/28164609760.shtml)
-- 2026-06-29 17:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/397941025883.shtml)
-- 2026-06-29 16:55 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/7473063.shtml)
-- 2026-06-29 17:04 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/8034836563.shtml)
-- 2026-06-29 17:04 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/3685392.shtml)
-- 2026-06-29 17:22 - [12所大学更正招生目录](http://www.share.minike.top/Article/details/9349747701.shtml)
-- 2026-06-29 16:56 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/88656.shtml)
-- 2026-06-29 17:21 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/420576889.shtml)
-- 2026-06-29 16:58 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/812458181.shtml)
-- 2026-06-29 17:07 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/05456565.shtml)
-- 2026-06-29 17:13 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/0908606802.shtml)
-- 2026-06-29 17:11 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/6711943517.shtml)
-- 2026-06-29 17:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/305502.shtml)
-- 2026-06-29 17:22 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/6159380059.shtml)
-- 2026-06-29 16:58 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/1471450.shtml)
+- 2026-06-29 17:16 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/56991.shtml)
+- 2026-06-29 17:04 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/7365617.shtml)
+- 2026-06-29 17:22 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/2653302.shtml)
+- 2026-06-29 17:29 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/58320020.shtml)
+- 2026-06-29 17:03 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/928047909.shtml)
+- 2026-06-29 17:03 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/983918882149.shtml)
+- 2026-06-29 17:21 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/576073981.shtml)
+- 2026-06-29 17:25 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/185365.shtml)
+- 2026-06-29 17:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/94298.shtml)
+- 2026-06-29 17:12 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/06205043.shtml)
+- 2026-06-29 17:00 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/987989967502.shtml)
+- 2026-06-29 17:04 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/053819416.shtml)
+- 2026-06-29 17:02 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/819551.shtml)
+- 2026-06-29 17:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/78037872.shtml)
+- 2026-06-29 17:06 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/056349133.shtml)

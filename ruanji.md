@@ -1,61 +1,60 @@
-# 充电宝3C认证新规来了！教你一眼认出“新国标”产品→
+# 央行研究局王信：密切关注稳定币对国际货币体系、跨境支付的影响 完善监管规则
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-充电宝是人们日常出行的“标配”，然而，在享受便利的同时，千万别忽略它的安全风险，小心充电宝“秒变”火源。 长时间充电 充电宝突然起火 5月24日，广西梧州市藤县居民住宅内突发惊险一幕，充电宝在长时间充电时突然自燃，火花四溅，迅速引燃周边放置的易燃杂物。 明火持续燃烧，短短数分钟内，客厅大面积墙面被浓烟熏黑，木质家具、软装布料被烧毁。所幸住户及时发现，一边扑救一边拨打119火警电
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 上证报中国证券网讯（记者 张骄）6月17日，中国人民银行研究局（参事室）局长（主任）王信在2026陆家嘴论坛上谈及全球金融治理改革与合作时表示，下一步，各方需进一步保障国际支付体系的安全、中立、高效，央行之间的支付系统，推动零售支付系统进一步加强互联互通。审慎稳健探索新支付工具的潜力，密切关注稳定币对国际货币体系、跨
 
 ## 正文
 
-充电宝是人们日常出行的“标配”，然而，在享受便利的同时，千万别忽略它的安全风险，小心充电宝“秒变”火源。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 上证报中国证券网讯（记者 张骄）6月17日，中国人民银行研究局（参事室）局长（主任）王信在2026陆家嘴论坛上谈及全球金融治理改革与合作时表示，下一步，各方需进一步保障国际支付体系的安全、中立、高效，央行之间的支付系统，推动零售支付系统进一步加强互联互通。
 
-长时间充电 充电宝突然起火 5月24日，广西梧州市藤县居民住宅内突发惊险一幕，充电宝在长时间充电时突然自燃，火花四溅，迅速引燃周边放置的易燃杂物。
+审慎稳健探索新支付工具的潜力，密切关注稳定币对国际货币体系、跨境支付的影响，完善监管规则，促进国际支付更加包容、高效、韧性，才能更好支持可持续发展和世界经济的增长。
 
-明火持续燃烧，短短数分钟内，客厅大面积墙面被浓烟熏黑，木质家具、软装布料被烧毁。
+谈及跨境支付体系，王信表示，可持续发展离不开大量跨境投融资活动，亟需高效、多元的支付系统作为重要的基础设施。
 
-所幸住户及时发现，一边扑救一边拨打119火警电话求助，火势得到控制，未造成人员伤亡。
+“我们还要关注一些新的方面，比如稳定币是否会在跨境支付里发挥更重要的作用？
 
-铁路车站 充电宝冒烟烧成火球 近日，在福建厦门北站，一名旅客准备上车时，背包里的充电宝突然自燃，冒出滚滚白烟，火势猛烈。
+下一步相关监管、国际协调合作方面怎样进行？
 
-铁路公安乘警发现后，立即取来灭火器处置，明火被及时扑灭，旅客和周边人员没有受伤。
+还有央行数字货币跨境使用方面的前景，都需要加强相关政策的合作与协调。
 
-近年来，充电宝冒烟、自燃、召回等事件时有发生，引发不少人对充电宝使用安全的担忧。
+”王信说。
 
-但别急，充电宝新国标、新版CCC认证实施规则已上线，将为充电宝安全保驾护航。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 17:06 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 17:19 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 16:57 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 17:09 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 17:06 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 17:21 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 17:20 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 17:00 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 17:21 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 17:22 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 17:23 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 17:09 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 17:16 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 16:59 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 17:05 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 17:25 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 17:24 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 17:13 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 17:05 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 17:16 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 17:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 17:26 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 17:17 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 17:19 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 17:28 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 17:08 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 17:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 17:29 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 17:23 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:01 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/8794626.shtml)
-- 2026-06-29 17:16 - [速度与激情9](https://www.share.minike.top/Article/details/038739.shtml)
-- 2026-06-29 17:00 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/12203669357.shtml)
-- 2026-06-29 17:19 - [夏天被这些虫子咬了可能致命](http://www.blog.minike.top/Article/details/9709803.shtml)
-- 2026-06-29 16:54 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/036625719514.shtml)
-- 2026-06-29 17:03 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/247772905.shtml)
-- 2026-06-29 17:04 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/87852.shtml)
-- 2026-06-29 17:16 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/968261187472.shtml)
-- 2026-06-29 16:59 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/3608390416.shtml)
-- 2026-06-29 17:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/502759622.shtml)
-- 2026-06-29 17:14 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/98778.shtml)
-- 2026-06-29 17:13 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/622084458229.shtml)
-- 2026-06-29 17:19 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/38140448607.shtml)
-- 2026-06-29 17:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/467606.shtml)
-- 2026-06-29 16:58 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/484603.shtml)
+- 2026-06-29 17:28 - [东方风云榜红毯](http://www.share.minike.top/Article/details/7325515894.shtml)
+- 2026-06-29 17:28 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/499603894.shtml)
+- 2026-06-29 17:16 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/8520210388.shtml)
+- 2026-06-29 17:14 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/53804423.shtml)
+- 2026-06-29 17:03 - [12所大学更正招生目录](http://www.blog.minike.top/Article/details/67089022.shtml)
+- 2026-06-29 17:21 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/0158336.shtml)
+- 2026-06-29 17:13 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/302787.shtml)
+- 2026-06-29 17:14 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.minike.top/Article/details/14745239.shtml)
+- 2026-06-29 17:05 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/740273275118.shtml)
+- 2026-06-29 17:09 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.minike.top/Article/details/24394.shtml)
+- 2026-06-29 17:06 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/97694189537.shtml)
+- 2026-06-29 17:05 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/689133966.shtml)
+- 2026-06-29 17:06 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/97309379.shtml)
+- 2026-06-29 17:20 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/478460248.shtml)
+- 2026-06-29 17:29 - [金牌调解](http://www.share.kurohicncr.top/Article/details/193323.shtml)

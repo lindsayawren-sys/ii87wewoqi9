@@ -1,51 +1,54 @@
-# 贵州高坡乡：这些孩子用苗语唱响强军战歌
+# 方星海：内地一批量化机构已比肩国际一流 建议香港着力吸引其落户
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 17:33 来源：中国新闻网 六一儿童节前夕，贵州省贵阳市花溪区人武部走进高坡乡杉坪民族小学开展助学兴教活动。身着苗族服饰的同学们齐聚操场，用苗语唱响《强军战歌》，以嘹亮歌声抒发爱国情怀，展现新时代苗族少年儿童的昂扬风貌。(作者：赵丽娜、肖阳、姚天宝） 责任编辑：【魏聪聪】
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，中国证券监督管理委员会原副主席、中国金融学会副会长方星海表示，香港一直致力于吸引国际机构投资者落户。与此同时，内地机构投资者近年发展迅速，一批量化投资机构成长得很好、管理能力强，技术水平提升快，与国际上最好的量化机构相比也不逊色。他了解到，这些机构非常愿意在香港拓展业务，既可在香港
 
 ## 正文
 
-发布时间：2026年06月01日 17:33 来源：中国新闻网 六一儿童节前夕，贵州省贵阳市花溪区人武部走进高坡乡杉坪民族小学开展助学兴教活动。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，中国证券监督管理委员会原副主席、中国金融学会副会长方星海表示，香港一直致力于吸引国际机构投资者落户。
 
-身着苗族服饰的同学们齐聚操场，用苗语唱响《强军战歌》，以嘹亮歌声抒发爱国情怀，展现新时代苗族少年儿童的昂扬风貌。
+与此同时，内地机构投资者近年发展迅速，一批量化投资机构成长得很好、管理能力强，技术水平提升快，与国际上最好的量化机构相比也不逊色。
 
-(作者：赵丽娜、肖阳、姚天宝） 责任编辑：【魏聪聪】
+他了解到，这些机构非常愿意在香港拓展业务，既可在香港市场交易，也可通过“两通”交易内地的产品。
+
+他建议，香港金融管理部门应着力吸引内地量化机构落户香港，香港、上海、深圳可以联合运作，对吸引更多国际资金投资香港和内地都将起到很好的作用。
+
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 17:07 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 17:09 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 17:06 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 16:58 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 17:20 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 17:05 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 17:05 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 17:05 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 17:17 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 17:16 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 17:15 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 17:09 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 17:08 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 16:54 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 17:07 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 17:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 17:07 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 17:05 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 17:08 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 17:03 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 17:00 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 17:11 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 17:17 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 17:28 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 17:09 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 17:20 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 17:10 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 17:15 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 17:10 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:12 - [第一炉香](https://www.share.minike.top/Article/details/64427.shtml)
-- 2026-06-29 17:08 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/65317.shtml)
-- 2026-06-29 17:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/87183.shtml)
-- 2026-06-29 17:12 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/823906799490.shtml)
-- 2026-06-29 17:22 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/7197894.shtml)
-- 2026-06-29 16:54 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/36134140.shtml)
-- 2026-06-29 17:07 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/03336133.shtml)
-- 2026-06-29 17:20 - [《贺子珍》](http://www.blog.minike.top/Article/details/825424.shtml)
-- 2026-06-29 17:04 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.kurohicncr.top/Article/details/050218.shtml)
-- 2026-06-29 17:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/298479705.shtml)
-- 2026-06-29 17:20 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/82580.shtml)
-- 2026-06-29 17:01 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/8264998.shtml)
-- 2026-06-29 17:07 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/4158595353.shtml)
-- 2026-06-29 17:14 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/868680.shtml)
-- 2026-06-29 17:05 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/084626028.shtml)
+- 2026-06-29 17:08 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/68207.shtml)
+- 2026-06-29 17:15 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/6686804.shtml)
+- 2026-06-29 17:05 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/932469099.shtml)
+- 2026-06-29 17:18 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/309251830.shtml)
+- 2026-06-29 17:18 - [毒液2](http://www.share.minike.top/Article/details/7737355.shtml)
+- 2026-06-29 17:05 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/06781888209.shtml)
+- 2026-06-29 17:13 - [舒行钢任湖南省交通运输厅厅长](https://www.share.minike.top/Article/details/53108808.shtml)
+- 2026-06-29 17:25 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/26987914.shtml)
+- 2026-06-29 17:02 - [金牌调解](https://www.blog.minike.top/Article/details/57510535243.shtml)
+- 2026-06-29 17:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/881404473035.shtml)
+- 2026-06-29 17:13 - [金牌调解](https://www.share.minike.top/Article/details/67488695.shtml)
+- 2026-06-29 17:15 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/0541548600.shtml)
+- 2026-06-29 17:06 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/1317697.shtml)
+- 2026-06-29 17:17 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/086129299548.shtml)
+- 2026-06-29 17:16 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/405799832220.shtml)

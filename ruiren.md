@@ -1,51 +1,57 @@
-# 外交部：日方近期一系列错误言行 国际社会必须高度警惕
+# 港片扎堆上海电影节 王英伟：香港文化特质和深厚积累要发挥出来
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-6月1日，外交部发言人林剑主持例行记者会。有记者就日防卫大臣在近日香格里拉对话会上的有关言论提问。 林剑表示，日本军国主义曾在二战期间犯下滔天罪行，给亚洲邻国造成深重灾难。日方近期一系列错误言行，威胁地区的和平稳定，国际社会必须高度警惕，共同防范和坚决遏制“新型军国主义”。 (总台央视记者 黄达 赵超逸)
+发布时间：2026年06月17日 12:42 来源：中国新闻网 在第28届上海国际电影节举行期间，香港电影发展局主席王英伟接受中新社记者专访时表示，香港有很多不可复制的文化特质和深厚积累。中西文化交融、世界潮流汇聚，是其文化特色；香港电影底蕴深厚，拥有很好的导演、摄影、美术和音乐人才。但如何将这些优势发挥出来，是需要思考的课题。王英伟认为，香港与内地文化一脉相承，这种亲近感会让
 
 ## 正文
 
-6月1日，外交部发言人林剑主持例行记者会。
+发布时间：2026年06月17日 12:42 来源：中国新闻网 在第28届上海国际电影节举行期间，香港电影发展局主席王英伟接受中新社记者专访时表示，香港有很多不可复制的文化特质和深厚积累。
 
-有记者就日防卫大臣在近日香格里拉对话会上的有关言论提问。
+中西文化交融、世界潮流汇聚，是其文化特色；香港电影底蕴深厚，拥有很好的导演、摄影、美术和音乐人才。
 
-林剑表示，日本军国主义曾在二战期间犯下滔天罪行，给亚洲邻国造成深重灾难。
+但如何将这些优势发挥出来，是需要思考的课题。
 
-日方近期一系列错误言行，威胁地区的和平稳定，国际社会必须高度警惕，共同防范和坚决遏制“新型军国主义”。
+王英伟认为，香港与内地文化一脉相承，这种亲近感会让两地电影人更好合作。
 
-(总台央视记者 黄达 赵超逸)
+内地导演和演员更懂内地文化和观众需求，而香港则是电影“走出去”的枢纽，香港电影人拥有自身独特的视角，以及成熟的技术。
+
+“两地的合作，我相信有非常多的空间。
+
+”(缪璐 娄瀚锟) 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-29 17:14 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 17:01 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 17:23 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 17:07 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 17:00 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 16:55 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 17:15 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 17:10 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 17:07 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 16:59 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 17:04 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 17:27 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 17:21 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 17:13 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 17:26 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 17:18 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 17:22 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 17:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 17:08 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 17:09 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 17:01 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 17:00 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 17:06 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 17:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:16 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/09703060.shtml)
-- 2026-06-29 17:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/825600.shtml)
-- 2026-06-29 17:22 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/2929419965.shtml)
-- 2026-06-29 16:59 - [端午节加班工资应该怎么算](https://www.share.kurohicncr.top/Article/details/1919411672.shtml)
-- 2026-06-29 17:09 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/19232530363.shtml)
-- 2026-06-29 17:04 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/7253505.shtml)
-- 2026-06-29 17:13 - [AG 宫斗](http://www.share.minike.top/Article/details/5384358150.shtml)
-- 2026-06-29 16:59 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/305215.shtml)
-- 2026-06-29 17:00 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/78169880876.shtml)
-- 2026-06-29 17:11 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/32654386.shtml)
-- 2026-06-29 16:54 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/7616642.shtml)
-- 2026-06-29 17:19 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/175961.shtml)
-- 2026-06-29 16:59 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/277288.shtml)
-- 2026-06-29 17:03 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/315171.shtml)
-- 2026-06-29 17:16 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/1189216265.shtml)
+- 2026-06-29 17:12 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/543749.shtml)
+- 2026-06-29 17:03 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/261065.shtml)
+- 2026-06-29 17:24 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/76374186599.shtml)
+- 2026-06-29 17:28 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/1047668533.shtml)
+- 2026-06-29 17:01 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/923453.shtml)
+- 2026-06-29 17:03 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/7312248.shtml)
+- 2026-06-29 17:00 - [世界杯上那些封神的门将](https://www.blog.minike.top/Article/details/3226871552.shtml)
+- 2026-06-29 17:07 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/31265930604.shtml)
+- 2026-06-29 17:02 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/311821568.shtml)
+- 2026-06-29 17:13 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/1939988625.shtml)
+- 2026-06-29 17:13 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/687562.shtml)
+- 2026-06-29 17:04 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/92085474081.shtml)
+- 2026-06-29 17:02 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/8492294845.shtml)
+- 2026-06-29 17:03 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/877455334726.shtml)
+- 2026-06-29 17:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/294757258.shtml)

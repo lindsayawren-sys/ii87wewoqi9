@@ -1,60 +1,56 @@
-# 2026年股市具备互联网泡沫时期所没有的关键要素
+# 上海证券交易所理事长邱勇： 更大力度支持科技创新
 
-> 更新时间：2026-06-29 17:24:02 UTC+8
+> 更新时间：2026-06-29 17:30:03 UTC+8
 
 ## 摘要
 
-如今的市场热潮，与上世纪 90 年代末、21 世纪初互联网泡沫破裂前的行情存在一个核心差异：上市公司的整体质量截然不同。 当下市场并未出现大批基本面孱弱、毫无盈利前景的劣质企业扎堆上市的狂热景象。 市场数据分析 高盛策略师本・斯奈德发布最新数据称，今年太空探索技术公司、奥普恩 AI 等重磅企业即将登陆资本市场，而 2026 年迄今，美股已完成 40 宗 IPO 交易，募资总额达
+本报记者 吴晓璐 6月17日，上海证券交易所理事长邱勇在2026陆家嘴论坛上表示，更好发挥资本市场支持科技创新的功能，首先要把握科技创新发展规律，持续提升资本市场制度的包容性、适应性，更好支持科技创新；其次要立足中国实践，持续深化改革。 在2026陆家嘴论坛开幕式上，中国证监会主席吴清就下一步资本市场改革提出了一揽子举措。邱勇表示，上交所将承担起责任和使命，多措并举推动一系列改
 
 ## 正文
 
-如今的市场热潮，与上世纪 90 年代末、21 世纪初互联网泡沫破裂前的行情存在一个核心差异：上市公司的整体质量截然不同。
+本报记者 吴晓璐 6月17日，上海证券交易所理事长邱勇在2026陆家嘴论坛上表示，更好发挥资本市场支持科技创新的功能，首先要把握科技创新发展规律，持续提升资本市场制度的包容性、适应性，更好支持科技创新；其次要立足中国实践，持续深化改革。
 
-当下市场并未出现大批基本面孱弱、毫无盈利前景的劣质企业扎堆上市的狂热景象。
+在2026陆家嘴论坛开幕式上，中国证监会主席吴清就下一步资本市场改革提出了一揽子举措。
 
-市场数据分析 高盛策略师本・斯奈德发布最新数据称，今年太空探索技术公司、奥普恩 AI 等重磅企业即将登陆资本市场，而 2026 年迄今，美股已完成 40 宗 IPO 交易，募资总额达 280 亿美元。
+邱勇表示，上交所将承担起责任和使命，多措并举推动一系列改革。
 
-斯奈德表示：“以往股市处于高位时，往往伴随着 IPO 发行井喷。
+一是精准高效防控风险，夯实资本市场稳定发展的基础。
 
-但按照当前节奏，今年全年 IPO 数量仅会达到 100 宗，与历史年均水平持平。
+加强风险监测和预警预判，全力做好稳市工作，及时推动逆周期调节手段机制落地，提升风险的应对能力。
 
-反观 2021 年，全年 IPO 数量超 250 宗；1999 年更是接近 400 宗。
+督促和引导上市公司提升质量、治理水平和回报投资者。
 
-” 他同时将 2026 年美股 IPO 募资总额预期，从 1600 亿美元上调至 2250 亿美元。
+健全预期管理机制，加强宣传引导，努力凝聚市场共识，为深化改革营造良好的环境。
 
-斯奈德补充道：“若将增发及其他股权融资计算在内，今年企业股权融资总规模预计达 6750 亿美元。
+二是依法从严监管，维护市场公平秩序。
 
 ## 相关推荐
 
-- 2026-06-29 17:07 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 17:17 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 17:00 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 17:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 16:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 17:21 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 17:00 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 17:20 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 17:02 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 17:19 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 17:10 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 17:15 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 16:55 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 17:23 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 17:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 17:00 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 17:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 17:21 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 17:19 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 17:10 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 17:19 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 17:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 17:06 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 17:17 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:01 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/464812.shtml)
-- 2026-06-29 17:18 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/8081267.shtml)
-- 2026-06-29 17:03 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/0835333.shtml)
-- 2026-06-29 17:19 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/73851756.shtml)
-- 2026-06-29 17:04 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/7479500.shtml)
-- 2026-06-29 17:07 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/38866863.shtml)
-- 2026-06-29 17:09 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/2695426.shtml)
-- 2026-06-29 16:54 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/793519.shtml)
-- 2026-06-29 16:58 - [海口塔吊事故处罚结果公布](https://www.blog.kurohicncr.top/Article/details/23168.shtml)
-- 2026-06-29 17:14 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.kurohicncr.top/Article/details/38395427086.shtml)
-- 2026-06-29 17:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/00470013633.shtml)
-- 2026-06-29 16:58 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/0689311465.shtml)
-- 2026-06-29 17:05 - [周生如故](https://www.blog.kurohicncr.top/Article/details/711911.shtml)
-- 2026-06-29 17:14 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/609252650529.shtml)
-- 2026-06-29 16:56 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/67877056.shtml)
+- 2026-06-29 17:12 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/35404.shtml)
+- 2026-06-29 17:08 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/08343692.shtml)
+- 2026-06-29 17:05 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.kurohicncr.top/Article/details/36432997416.shtml)
+- 2026-06-29 17:11 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/785825580.shtml)
+- 2026-06-29 17:01 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/520989995.shtml)
+- 2026-06-29 17:14 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/31429680116.shtml)
+- 2026-06-29 17:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/27588247.shtml)
+- 2026-06-29 17:15 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/0942339272.shtml)
+- 2026-06-29 17:22 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/78702876968.shtml)
+- 2026-06-29 17:01 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/741695.shtml)
+- 2026-06-29 17:24 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/503916649660.shtml)
+- 2026-06-29 17:23 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/40046374.shtml)
+- 2026-06-29 17:09 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/284185.shtml)
+- 2026-06-29 17:11 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/311127.shtml)
+- 2026-06-29 17:09 - [7款商保创新药“转道”](https://www.blog.kurohicncr.top/Article/details/592577894010.shtml)
