@@ -1,59 +1,59 @@
-# 600111，章建平出手，一季度新进持股超34亿元！最新业绩超预期公司曝光（附名单）
+# 险企抢滩居家养老赛道
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-多只大牛股业绩超预期。4月28日晚间，北方稀土（600111）发布2026年一季报，公司第一季度营收为118.59亿元，同比增长27.69%；净利润为9.18亿元，同比增长113.12%。值得注意的是，公司一季报前十大流通股东显示，章建平新进公司前十大流通股东，持股7225.44万股，占总股本比例为2%。以季末股价计算，持股市值达到34.45亿元。目前，章建平一季度持有4只个股
+当前我国老龄化进程持续深化，“9073”养老格局已然成型，即90%老年人选择居家养老、7%依托社区养老、3%入住机构养老。让广大长者在熟悉的居家环境中实现老有所养、老有所安、老有所乐，成为破解社会养老难题、保障民生福祉的抓手，也催生出规模庞大、潜力十足的居家养老蓝海市场。庞大的民生刚需与产业缺口，持续吸引金融机构入局。6月3日，北京商报记者注意到，近期百年人寿、中国太保、太平人
 
 ## 正文
 
-多只大牛股业绩超预期。
+当前我国老龄化进程持续深化，“9073”养老格局已然成型，即90%老年人选择居家养老、7%依托社区养老、3%入住机构养老。
 
-4月28日晚间，北方稀土（600111）发布2026年一季报，公司第一季度营收为118.59亿元，同比增长27.69%；净利润为9.18亿元，同比增长113.12%。
+让广大长者在熟悉的居家环境中实现老有所养、老有所安、老有所乐，成为破解社会养老难题、保障民生福祉的抓手，也催生出规模庞大、潜力十足的居家养老蓝海市场。
 
-值得注意的是，公司一季报前十大流通股东显示，章建平新进公司前十大流通股东，持股7225.44万股，占总股本比例为2%。
+庞大的民生刚需与产业缺口，持续吸引金融机构入局。
 
-以季末股价计算，持股市值达到34.45亿元。
+6月3日，北京商报记者注意到，近期百年人寿、中国太保、太平人寿等险企相继发布居家养老服务项目。
 
-目前，章建平一季度持有4只个股，分别为北方稀土、东材科技、西部材料和四川黄金，除东材科技为加仓股，其他三只均为一季度新进。
+通过打通资金与服务闭环，保险业正以支付方与资源整合方的双重身份升级养老供给链，针对老人居家的核心服务需求，聚焦医疗、照护、居住等维度提供服务。
 
-最新业绩超预期公司曝光据证券时报·数据宝统计，截至4月28日，已公布2026年一季报的上市公司中，券商研报明确给予“季报超预期”评价的公司有89家。
+20余家险企加速布局探索 居家养老正成为保险机构布局养老服务的新焦点与价值增长点。
 
-数据显示，这些业绩超预期的公司中，接近八成总市值超过100亿元，其中更是不乏宁德时代、贵州茅台、中国移动等21家千亿市值巨头。
+6月3日，北京商报记者注意到，近期百年人寿推出了“悦居守护·百年百福居”居家养老解决方案。
 
-这些行业领军企业正凭借其强劲的成长动能，重塑产业估值逻辑，并引导资本向高质量发展的核心赛道加速集聚。
+据介绍，百年百福居的核心，是百年人寿创新推出的“五心四全三管家”，其中，就医管家、照护管家、安全管家能够解决健康、照护、安全三大痛点。
 
 ## 相关推荐
 
-- 2026-06-30 05:29 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 05:44 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 05:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 05:23 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 05:23 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 05:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 05:28 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 05:43 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 05:47 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 05:28 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 05:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 05:20 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 05:31 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 05:44 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 05:26 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 05:46 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-30 05:45 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 05:50 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 05:34 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 05:45 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 05:41 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 05:32 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 05:46 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 05:31 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 05:40 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 05:31 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/192683873.shtml)
-- 2026-06-30 05:35 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/945545288.shtml)
-- 2026-06-30 05:44 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/7368481721.shtml)
-- 2026-06-30 05:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/65785199.shtml)
-- 2026-06-30 05:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/913508.shtml)
-- 2026-06-30 05:43 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/586055869667.shtml)
-- 2026-06-30 05:33 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/53601602.shtml)
-- 2026-06-30 05:33 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/039514.shtml)
-- 2026-06-30 05:21 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/590685805.shtml)
-- 2026-06-30 05:41 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/047460484.shtml)
-- 2026-06-30 05:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/7917329.shtml)
-- 2026-06-30 05:40 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/8607020.shtml)
-- 2026-06-30 05:19 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/9272344757.shtml)
-- 2026-06-30 05:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/901926.shtml)
-- 2026-06-30 05:20 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/693538430647.shtml)
+- 2026-06-30 05:29 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/58373322.shtml)
+- 2026-06-30 05:44 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/946691323163.shtml)
+- 2026-06-30 05:42 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/42375.shtml)
+- 2026-06-30 05:49 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/36078475935.shtml)
+- 2026-06-30 05:36 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/4887426942.shtml)
+- 2026-06-30 05:34 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/1896973.shtml)
+- 2026-06-30 05:31 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/81842005769.shtml)
+- 2026-06-30 05:42 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/349424411.shtml)
+- 2026-06-30 05:41 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/89184.shtml)
+- 2026-06-30 05:31 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/3881218.shtml)
+- 2026-06-30 05:24 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/4988115.shtml)
+- 2026-06-30 05:30 - [《共患难》](https://www.blog.minike.top/Article/details/66910.shtml)
+- 2026-06-30 05:53 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/58109635160.shtml)
+- 2026-06-30 05:42 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/90412635.shtml)
+- 2026-06-30 05:28 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/724938.shtml)

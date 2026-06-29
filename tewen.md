@@ -1,61 +1,61 @@
-# 美伊突传大消息，特朗普发声
+# 北京脑机接口临床转化加速推进
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-特朗普称同伊朗的谈判正通过电话进行 美国总统特朗普29日表示，美国同伊朗正在通过电话进行谈判，同时强调伊朗方面必须明确承诺彻底放弃核武器。 特朗普当天在白宫椭圆形办公室对媒体说，美伊一直在进行对话，现在通过电话进行沟通，“不再像以前那样，每次想看一份文件都要飞18个小时去开会”。他说，这种方式非常便捷，“我打个电话，或让我的人去打，15分钟内就能知道答案”，但“我向来更倾向于面
+中新网北京6月2日电 (赵方园)“要打破学科壁垒，坚持让基础研究贴近临床、工程技术服务病患。”近日，在2026年“临床脑机接口”学科交叉博士后学术交流活动上，首都医科大学宣武医院院长赵国光如是说。 赵国光介绍，宣武医院长期深耕医工交叉赛道，在临床脑机接口领域走出了一条从源头技术攻关到器械合规上市的全链条创新之路。他表示，未来医院将持续加码脑机接口学科建设，完善博士后全周期培养体
 
 ## 正文
 
-特朗普称同伊朗的谈判正通过电话进行 美国总统特朗普29日表示，美国同伊朗正在通过电话进行谈判，同时强调伊朗方面必须明确承诺彻底放弃核武器。
+中新网北京6月2日电 (赵方园)“要打破学科壁垒，坚持让基础研究贴近临床、工程技术服务病患。
 
-特朗普当天在白宫椭圆形办公室对媒体说，美伊一直在进行对话，现在通过电话进行沟通，“不再像以前那样，每次想看一份文件都要飞18个小时去开会”。
+”近日，在2026年“临床脑机接口”学科交叉博士后学术交流活动上，首都医科大学宣武医院院长赵国光如是说。
 
-他说，这种方式非常便捷，“我打个电话，或让我的人去打，15分钟内就能知道答案”，但“我向来更倾向于面对面交流”。
+赵国光介绍，宣武医院长期深耕医工交叉赛道，在临床脑机接口领域走出了一条从源头技术攻关到器械合规上市的全链条创新之路。
 
-特朗普说，目前双方谈判已经取得一些进展，但问题是伊朗方面所做让步是否能满足美方要求。
+他表示，未来医院将持续加码脑机接口学科建设，完善博士后全周期培养体系，全方位护航青年人才成长，推动更多可落地、可普惠的医疗新技术早日造福患者。
 
-“目前而言，除非他们明确承诺彻底放弃核武器，否则双方绝无可能达成任何协议。
+2026年“临床脑机接口”学科交叉博士后学术交流活动由全国博士后管委会办公室、人力资源社会保障部留学人员和专家服务中心、中国博士后科学基金会共同指导，北京市人力资源和社会保障局主办，首都医科大学宣武医院承办，汇聚了国内脑科学、人工智能及临床医学领域的多位顶尖院士与青年学者。
 
-” 伊朗日前经由巴基斯坦向美国提出一份新谈判方案。
+会上，中国工程院院士吉训明强调，大脑在人类探索自然、维护机体健康及应对衰老过程中起着决定性作用，而脑机接口技术既是人类征服神经系统疾病的重要手段，更是迈向更高生活质量的关键一步。
 
-据媒体披露，方案提议分三阶段渐进展开谈判：第一阶段谈结束战争，第二阶段聚焦霍尔木兹海峡通航，第三阶段涉及伊朗核问题。
+他表示，当前，我国已将脑科学与类脑智能纳入国家战略性新兴产业领域，通过加大科研投入与强化协同攻关，推动基础研究向临床应用加速迈进。
 
-白宫新闻秘书莱维特27日证实，特朗普当天召集国家安全团队讨论伊朗提出的新方案。
+中国科学院院士赵继宗指出，北京市已构建起脑机接口全链条研发体系。
 
 ## 相关推荐
 
-- 2026-06-30 05:40 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 05:33 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 05:47 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 05:21 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 05:47 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 05:20 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 05:43 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 05:46 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 05:36 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 05:31 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 05:20 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 05:41 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 05:21 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 05:41 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 05:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 05:24 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 05:50 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 05:52 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-30 05:32 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 05:26 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 05:44 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 05:25 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 05:48 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 05:43 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 05:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 05:53 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 05:34 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 05:36 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 05:38 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 05:26 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/46659731532.shtml)
-- 2026-06-30 05:26 - [一生一世](http://www.share.kurohicncr.top/Article/details/944373.shtml)
-- 2026-06-30 05:37 - [小娘惹](http://www.share.kurohicncr.top/Article/details/2994550600.shtml)
-- 2026-06-30 05:38 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/029921780.shtml)
-- 2026-06-30 05:24 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/5185986.shtml)
-- 2026-06-30 05:26 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/39779865.shtml)
-- 2026-06-30 05:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/657803.shtml)
-- 2026-06-30 05:20 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/21678463.shtml)
-- 2026-06-30 05:27 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/1815793.shtml)
-- 2026-06-30 05:44 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/46432.shtml)
-- 2026-06-30 05:32 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/63605143.shtml)
-- 2026-06-30 05:26 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/125503418331.shtml)
-- 2026-06-30 05:46 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/1143466895.shtml)
-- 2026-06-30 05:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/2936766.shtml)
-- 2026-06-30 05:34 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/53856.shtml)
+- 2026-06-30 05:53 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/48149029968.shtml)
+- 2026-06-30 05:32 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/2433212.shtml)
+- 2026-06-30 05:48 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/88553638625.shtml)
+- 2026-06-30 05:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/65807309.shtml)
+- 2026-06-30 05:46 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/101231418.shtml)
+- 2026-06-30 05:25 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/92815.shtml)
+- 2026-06-30 05:47 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/50175985076.shtml)
+- 2026-06-30 05:40 - [沉睡花园](http://www.blog.minike.top/Article/details/489358081.shtml)
+- 2026-06-30 05:51 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/0844665.shtml)
+- 2026-06-30 05:27 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/96304265115.shtml)
+- 2026-06-30 05:39 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/43342423.shtml)
+- 2026-06-30 05:35 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/2993769.shtml)
+- 2026-06-30 05:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/72259.shtml)
+- 2026-06-30 05:47 - [一见倾心](https://www.share.kurohicncr.top/Article/details/8781004841.shtml)
+- 2026-06-30 05:44 - [蔚来车主罚站](https://www.share.minike.top/Article/details/076185.shtml)

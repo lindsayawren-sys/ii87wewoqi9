@@ -1,51 +1,57 @@
-# 市场监管总局：对明星带货虚假宣传依法追究责任
+# 云南向海图强 加速富宁港建设将与平陆运河同步投入使用
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 18:12 来源：中国新闻网 4月29日，记者在市场监管总局食品安全专题新闻发布会上获悉，市场监管总局近日正式印发《关于开展网络食品销售虚假宣传专项整治行动的通知》，从现在起在全国范围内开展为期半年的专项整治行动。市场监管总局食品安全总监孙会川表示，此次专项整治将彰显最严监管，坚决处罚到人：对违法行为负有直接责任的企业法定代表人、主要负责人、直
+中新网昆明6月4日电 (罗婕)云南省文山壮族苗族自治州人民政府州长马忠俊3日在云南省“开局起步‘十五五’”主题系列新闻发布会·文山专场上向媒体透露，该州的富宁港将于年内建成，并与平陆运河同步投入使用，使之成为云南出海最近的“黄金港口”。与此同时，与文山州毗邻的广西壮族自治区传来消息：平陆运河今日全线通水。 作为新中国成立以来第一条通江达海的大运河，平陆运河全长134.2公里，预
 
 ## 正文
 
-发布时间：2026年04月29日 18:12 来源：中国新闻网 4月29日，记者在市场监管总局食品安全专题新闻发布会上获悉，市场监管总局近日正式印发《关于开展网络食品销售虚假宣传专项整治行动的通知》，从现在起在全国范围内开展为期半年的专项整治行动。
+中新网昆明6月4日电 (罗婕)云南省文山壮族苗族自治州人民政府州长马忠俊3日在云南省“开局起步‘十五五’”主题系列新闻发布会·文山专场上向媒体透露，该州的富宁港将于年内建成，并与平陆运河同步投入使用，使之成为云南出海最近的“黄金港口”。
 
-市场监管总局食品安全总监孙会川表示，此次专项整治将彰显最严监管，坚决处罚到人：对违法行为负有直接责任的企业法定代表人、主要负责人、直接责任人，依法实施个人罚款和从业禁止；对明星带货、网络主播、运营团队等实施虚假宣传的，坚持一案多查，依法追究法律责任。
+与此同时，与文山州毗邻的广西壮族自治区传来消息：平陆运河今日全线通水。
 
-责任编辑：【岳川】
+作为新中国成立以来第一条通江达海的大运河，平陆运河全长134.2公里，预计于今年9月通航。
+
+届时，平陆运河将联通珠江水系与北部湾，为中国西南地区货物提供一条运距最短、最经济、最便捷的出海通道，比经由广州港出海，缩短内河航程在560公里以上。
+
+沿珠江水系溯流而上，位于云南“东大门”的文山州富宁县剥隘镇的“珠江第一港”——富宁港的建设进入冲刺阶段。
+
+富宁港是云南规划建设的最大内陆港口，其建成后与平陆运河“牵手联动”，将为云南新增一条更为便捷的水运通道，加快“通江达海”的脚步。
+
+富宁港建设不仅是文山州主动融入西部陆海新通道建设的重要举措，还将为当地产业发展注入新动能。
+
+近年来，文山州全力打造云南“绿色铝谷”核心区，大宗货物“公铁水”联运需求旺盛，富宁港建成后，与各港口通道联动潜力巨大。
 
 ## 相关推荐
 
-- 2026-06-30 05:28 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 05:41 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 05:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 05:28 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 05:38 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 05:34 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 05:21 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 05:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 05:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 05:41 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-30 05:25 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 05:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 05:22 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 05:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 05:47 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 05:30 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 05:49 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 05:43 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 05:31 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 05:25 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 05:31 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 05:28 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 05:38 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 05:46 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 05:24 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 05:27 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/48915366559.shtml)
-- 2026-06-30 05:27 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/5335908597.shtml)
-- 2026-06-30 05:32 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/346915518594.shtml)
-- 2026-06-30 05:41 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/3893409575.shtml)
-- 2026-06-30 05:43 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/9797674.shtml)
-- 2026-06-30 05:47 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/5662314.shtml)
-- 2026-06-30 05:37 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/775033327644.shtml)
-- 2026-06-30 05:41 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/81007987.shtml)
-- 2026-06-30 05:46 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/53261560.shtml)
-- 2026-06-30 05:26 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/2107500152.shtml)
-- 2026-06-30 05:46 - [日本进球](https://www.share.kurohicncr.top/Article/details/750820.shtml)
-- 2026-06-30 05:47 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/7607876848.shtml)
-- 2026-06-30 05:19 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/19576241.shtml)
-- 2026-06-30 05:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/038493.shtml)
-- 2026-06-30 05:32 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/7685859614.shtml)
+- 2026-06-30 05:37 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/42356614.shtml)
+- 2026-06-30 05:36 - [周生如故](https://www.share.kurohicncr.top/Article/details/780396396465.shtml)
+- 2026-06-30 05:40 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/976776988.shtml)
+- 2026-06-30 05:26 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/24813.shtml)
+- 2026-06-30 05:28 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/671124790.shtml)
+- 2026-06-30 05:24 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/2640768517.shtml)
+- 2026-06-30 05:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/68858038.shtml)
+- 2026-06-30 05:25 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/9992851.shtml)
+- 2026-06-30 05:26 - [日本进球](https://www.blog.minike.top/Article/details/43806938215.shtml)
+- 2026-06-30 05:41 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/060519.shtml)
+- 2026-06-30 05:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/28935353.shtml)
+- 2026-06-30 05:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/582026498.shtml)
+- 2026-06-30 05:47 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/602067035.shtml)
+- 2026-06-30 05:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/0477300.shtml)
+- 2026-06-30 05:32 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/275024.shtml)

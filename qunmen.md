@@ -1,54 +1,56 @@
-# 世界艺术与科技对话曲艺分会场交流活动在山东举办
+# 中信建投期货：6月4日能化早报
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 近日，世界艺术与科技对话曲艺分会场交流活动在山东艺术学院举办。应中国曲艺家协会和山东艺术学院邀请，来自希腊、葡萄牙、意大利、斯洛文尼亚等5个国家的专家学者以及部分地方曲协、高校曲艺专业和曲艺院团等50余位中外嘉宾汇聚一堂，围绕“融合共生——传统说唱艺术与现代科技的协同演化”主题展开深入研讨。 交流活动中，徐青峰、姜昆、蒋慧明、李伟建、曼纽埃尔·哈尔篷、梅特卡
+橡胶：波动剧烈 周三，国产全乳胶 18200/吨，环比上日持平；泰国 20 号混合胶 17830 元/吨，环比上日持平。 原料端：昨日泰国皇后诞辰节假日，原料市场休市；云南胶水报收 16.7 元/公斤，环比上日持平；海南胶水报收 16.6 元/公斤，环比上日上涨 0.1 元/公斤。 截至 2026 年 5 月 31 日，中国天然橡胶社会库存 126.92 万吨，环比下降 2.5
 
 ## 正文
 
-中新网4月29日电 近日，世界艺术与科技对话曲艺分会场交流活动在山东艺术学院举办。
+橡胶：波动剧烈 周三，国产全乳胶 18200/吨，环比上日持平；泰国 20 号混合胶 17830 元/吨，环比上日持平。
 
-应中国曲艺家协会和山东艺术学院邀请，来自希腊、葡萄牙、意大利、斯洛文尼亚等5个国家的专家学者以及部分地方曲协、高校曲艺专业和曲艺院团等50余位中外嘉宾汇聚一堂，围绕“融合共生——传统说唱艺术与现代科技的协同演化”主题展开深入研讨。
+原料端：昨日泰国皇后诞辰节假日，原料市场休市；云南胶水报收 16.7 元/公斤，环比上日持平；海南胶水报收 16.6 元/公斤，环比上日上涨 0.1 元/公斤。
 
-交流活动中，徐青峰、姜昆、蒋慧明、李伟建、曼纽埃尔·哈尔篷、梅特卡·洛卡、莫妮卡·贝泽加托、谈欣、王文清、邓斯博等10位中外专家分别从科技与说唱艺术创作、科技与美学、科技与艺术教育和传承等角度，以“感知重塑：数字时代艺术院校的新美学使命”“科技与人：谁更能深入人心？
+截至 2026 年 5 月 31 日，中国天然橡胶社会库存 126.92 万吨，环比下降 2.56 万吨，降幅 1.97%。
 
-”“从口头传承到数字化学习：斯洛文尼亚民间故事在语言教育中的应用”“中国曲艺与科技融合发展之路”等为题作主旨发言。
+中国深色胶社会总库存为 86.93 万吨，环比降 2.7%。
 
-在专题研讨阶段，意大利青年汉学家范狄(Dario Famularo)、美国纽约伯克利音乐学院希腊籍助理教授埃里尼·托尔内萨基、鲍震培、高博文、贾振鑫、田海龙、周壮、庄丽芬等中外专家学者、艺术家就说唱艺术的现代转化、舞台嬗变、科技与艺术教育和传承等开展交流。
+其中青岛现货库存降2.61%；云南降 1.38%；越南 10 降 1.61%；NR 库存小计降 10.51%。
 
-活动期间，由曲艺名家和山东艺术学院2026届毕业生联袂上演的“闳美山艺”专场演出在山东艺术学院大剧院上演，9个经过巧妙编排、融合了现代舞台科技的节目陆续登场，为与会的中外专家学者呈现一场艺术与科技融合的视听盛宴。
+中国浅色胶社会总库存为 39.99 万吨，环比降 0.35%。
 
-(完)
+其中老全乳胶环比降 0.5%，3L 环比降 11.85%，RU 库存小计增加 3.16%。
+
+观点：近期，泰国等东南亚主产区迎来较为持续的降水，预计前期高温少雨对胶树的影响逐步缓解，随着科特迪瓦的主雨季结束，预计全球产量上量的时间点不会出现超预期的延后。
 
 ## 相关推荐
 
-- 2026-06-30 05:19 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 05:32 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-30 05:43 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 05:31 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 05:28 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 05:28 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 05:25 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 05:20 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 05:38 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 05:40 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 05:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 05:41 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 05:42 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 05:29 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 05:36 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 05:41 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 05:28 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 05:32 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 05:35 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 05:51 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:27 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/782778.shtml)
-- 2026-06-30 05:19 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/15835954.shtml)
-- 2026-06-30 05:20 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/42374341226.shtml)
-- 2026-06-30 05:24 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/05710.shtml)
-- 2026-06-30 05:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/24232614.shtml)
-- 2026-06-30 05:42 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/09055559.shtml)
-- 2026-06-30 05:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/2107102.shtml)
-- 2026-06-30 05:26 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/40530979767.shtml)
-- 2026-06-30 05:23 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/8206727.shtml)
-- 2026-06-30 05:46 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/9805881.shtml)
-- 2026-06-30 05:31 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/1683900020.shtml)
-- 2026-06-30 05:24 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/419380.shtml)
-- 2026-06-30 05:25 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/373969738190.shtml)
-- 2026-06-30 05:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/332333839664.shtml)
-- 2026-06-30 05:29 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/99331.shtml)
+- 2026-06-30 05:46 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/85017777.shtml)
+- 2026-06-30 05:42 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/437256311392.shtml)
+- 2026-06-30 05:52 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/268213776.shtml)
+- 2026-06-30 05:51 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/25581491079.shtml)
+- 2026-06-30 05:29 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/551306894279.shtml)
+- 2026-06-30 05:31 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/22501886803.shtml)
+- 2026-06-30 05:46 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/5809408.shtml)
+- 2026-06-30 05:28 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/7347903763.shtml)
+- 2026-06-30 05:32 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/012807.shtml)
+- 2026-06-30 05:29 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/268722.shtml)
+- 2026-06-30 05:33 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/885849192.shtml)
+- 2026-06-30 05:27 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/62618141.shtml)
+- 2026-06-30 05:24 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/313580625060.shtml)
+- 2026-06-30 05:45 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/35154.shtml)
+- 2026-06-30 05:31 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/254923765762.shtml)

@@ -1,56 +1,61 @@
-# 国台办：和平统一是台湾经济发展的空前良机和最大底气
+# 午后，生变！特朗普，关税又来了
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-4月29日，国务院台办举行例行新闻发布会。有记者问，国务院台办发言人在之前发布会上已分别阐释了和平统一后台湾“七个更好”中的三个“更好”，受到两岸舆论高度关注。请问发言人对“和平统一后，有强大祖国做后盾，台湾经济发展会更好”有何阐释？发言人陈斌华答问表示，“十四五”时期大陆经济总量实现新跃升，国内生产总值跃上140万亿元新台阶，年均增长5.4%， 在全球主要经济当中位居前列。科
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】市场冲高回落，特朗普关税又来了 中国基金报记者 泰勒 大家好啊，今天的市场，略微有些戏剧化。 盘中创业板指数跟科创50指数在光通信板块以及半导体板块的带领下，均大涨约4%，但在午后开盘不久，就开始持续跳水，一度几乎抹去了所有涨幅，但所幸尾盘“V”了回来，保住了一定的涨幅。 一起看看
 
 ## 正文
 
-4月29日，国务院台办举行例行新闻发布会。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-有记者问，国务院台办发言人在之前发布会上已分别阐释了和平统一后台湾“七个更好”中的三个“更好”，受到两岸舆论高度关注。
+来源：中国基金报 【导读】市场冲高回落，特朗普关税又来了 中国基金报记者 泰勒 大家好啊，今天的市场，略微有些戏剧化。
 
-请问发言人对“和平统一后，有强大祖国做后盾，台湾经济发展会更好”有何阐释？
+盘中创业板指数跟科创50指数在光通信板块以及半导体板块的带领下，均大涨约4%，但在午后开盘不久，就开始持续跳水，一度几乎抹去了所有涨幅，但所幸尾盘“V”了回来，保住了一定的涨幅。
 
-发言人陈斌华答问表示，“十四五”时期大陆经济总量实现新跃升，国内生产总值跃上140万亿元新台阶，年均增长5.4%， 在全球主要经济当中位居前列。
+一起看看怎么回事。
 
-科技和产业创新取得新突破，改革开放迈出新步伐，民生福祉达到新水平。
+午后生变 6月3日，市场全天冲高回落，创业板指一度站上4200点。
 
-“十五五”规划纲要为建设现代化产业体系、加快高水平科技自立自强、建设强大国内市场、加快构建高水平社会主义市场经济体制、扩大高水平对外开放等方面作出战略部署。
+截至收盘，沪指涨0.22%，深成指涨0.73%，创业板指涨1.65%。
 
-今年是“十五五”开局之年，尽管外部环境更加复杂严峻，一季度大陆经济开局良好，国内生产总值增长5%，在全球主要经济体中继续名列前茅，主要宏观指标增速提升，新动能快速成长，新质生产力稳步发展。
+市场共1713只个股上涨，81只个股涨停，3727只个股下跌。
 
-大陆经济发展具有强劲动能和充沛活力，稳中向好、长期向好的基本面没有变，也不会变。
+CPO、光纤概念股延续强势，天洋新材3连板，亨通光电2连板，中际旭创、新易盛、天孚通信股价均创新高。
 
 ## 相关推荐
 
-- 2026-06-30 05:32 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 05:41 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-30 05:23 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-30 05:46 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 05:32 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 05:28 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 05:45 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 05:32 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 05:36 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 05:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 05:34 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 05:51 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 05:24 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 05:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 05:35 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 05:31 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 05:41 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 05:39 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 05:47 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 05:50 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 05:51 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 05:28 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 05:45 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 05:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 05:36 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:21 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/4978907462.shtml)
-- 2026-06-30 05:24 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/587468189.shtml)
-- 2026-06-30 05:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/670390.shtml)
-- 2026-06-30 05:28 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/57034663181.shtml)
-- 2026-06-30 05:31 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/00432492.shtml)
-- 2026-06-30 05:43 - [《贺子珍》](http://www.share.minike.top/Article/details/649552.shtml)
-- 2026-06-30 05:33 - [扬名立万](http://www.blog.minike.top/Article/details/27209.shtml)
-- 2026-06-30 05:34 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/86202457.shtml)
-- 2026-06-30 05:45 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/82725.shtml)
-- 2026-06-30 05:27 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/776461663477.shtml)
-- 2026-06-30 05:25 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/18080866.shtml)
-- 2026-06-30 05:32 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/33205299.shtml)
-- 2026-06-30 05:33 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/55729746838.shtml)
-- 2026-06-30 05:27 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/004250991.shtml)
-- 2026-06-30 05:47 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/650760.shtml)
+- 2026-06-30 05:51 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/637714029.shtml)
+- 2026-06-30 05:42 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/924414242.shtml)
+- 2026-06-30 05:49 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/014834249474.shtml)
+- 2026-06-30 05:37 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/31911903.shtml)
+- 2026-06-30 05:43 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/98255482085.shtml)
+- 2026-06-30 05:26 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/321971.shtml)
+- 2026-06-30 05:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/4131339.shtml)
+- 2026-06-30 05:27 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/188315751.shtml)
+- 2026-06-30 05:38 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/1819506.shtml)
+- 2026-06-30 05:38 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/508264.shtml)
+- 2026-06-30 05:25 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/3711181.shtml)
+- 2026-06-30 05:25 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/276386477.shtml)
+- 2026-06-30 05:42 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/20153997.shtml)
+- 2026-06-30 05:43 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/55066.shtml)
+- 2026-06-30 05:25 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/90213496.shtml)

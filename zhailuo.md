@@ -1,58 +1,59 @@
-# 中东局势动荡，石油巨头重新看好加拿大能源
+# 内衣热销推动维密业绩扭亏回暖
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-随着中东冲突持续扰乱全球能源市场，加拿大油气产区正重新赢得国际石油巨头的青睐。壳牌公司以164亿美元收购ARC资源公司的交易，成为这一趋势最明确的信号。 据知情人士透露，道达尔能源、康菲石油、Equinor和BP等巨头近期均在重新评估加拿大的潜在收购目标。多家公司已要求投行拟定合理的收购标的清单。 这标志着长达十年的外资撤离趋势发生逆转。此前，受管道运能不足、环保压力等因素影响
+专题：聚焦美股2026年第一季度财报 内容摘要 维多利亚的秘密一季度销售额大涨 15%，上调全年业绩预期。 维多利亚的秘密（股票：VSCO，跌幅 1.27%）依靠文胸产品留住顾客，消费者在选购内衣后顺带采购其他品类商品。 这家内衣零售商一季度营收同比大涨 15%，同步上调全年销售指引。 截至 5 月 2 日的第一财季，公司净销售额由去年同期 13.5 亿美元增至15.6 亿美元
 
 ## 正文
 
-随着中东冲突持续扰乱全球能源市场，加拿大油气产区正重新赢得国际石油巨头的青睐。
+专题：聚焦美股2026年第一季度财报 内容摘要 维多利亚的秘密一季度销售额大涨 15%，上调全年业绩预期。
 
-壳牌公司以164亿美元收购ARC资源公司的交易，成为这一趋势最明确的信号。
+维多利亚的秘密（股票：VSCO，跌幅 1.27%）依靠文胸产品留住顾客，消费者在选购内衣后顺带采购其他品类商品。
 
-据知情人士透露，道达尔能源、康菲石油、Equinor和BP等巨头近期均在重新评估加拿大的潜在收购目标。
+这家内衣零售商一季度营收同比大涨 15%，同步上调全年销售指引。
 
-多家公司已要求投行拟定合理的收购标的清单。
+截至 5 月 2 日的第一财季，公司净销售额由去年同期 13.5 亿美元增至15.6 亿美元；剔除新开门店与闭店影响的同店销售额同比上涨 13%。
 
-这标志着长达十年的外资撤离趋势发生逆转。
+旗下拥有面向年轻群体副线品牌 PINK 的维密，当期成功扭亏：实现净利润 4770 万美元，折合稀释后每股收益 0.56 美元；去年同期亏损 170 万美元、每股亏损 0.02 美元。
 
-此前，受管道运能不足、环保压力等因素影响，多家国际能源巨头曾部分或完全退出加拿大市场。
+营收与盈利双双超出华尔街分析师及公司此前给出的业绩指引。
 
-如今，情况已发生根本性改变。
+执掌维密改革复苏进程的首席执行官希拉里・苏珀表示：“公司转型步入正轨。
 
-新任总理马克·卡尼对油气行业持更为友好的态度，承诺推动产业发展并放宽部分气候法规。
+” 苏珀称本轮业绩增长全系多品类普涨，但核心驱动力来自文胸业务；品牌接连推出新款裹布钢圈文胸等舒适化新品，力图重新巩固自身在内衣赛道的龙头地位。
 
 ## 相关推荐
 
-- 2026-06-30 05:25 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 05:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 05:20 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 05:37 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 05:25 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 05:41 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 05:30 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 05:19 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 05:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 05:45 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 05:21 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 05:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 05:27 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 05:37 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 05:49 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 05:44 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 05:27 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 05:42 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 05:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 05:30 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 05:25 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 05:41 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 05:46 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 05:31 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 05:34 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/49066477.shtml)
-- 2026-06-30 05:42 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/806027015.shtml)
-- 2026-06-30 05:41 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/5945363238.shtml)
-- 2026-06-30 05:24 - [千与千寻](https://www.blog.minike.top/Article/details/711950619.shtml)
-- 2026-06-30 05:27 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/7789580494.shtml)
-- 2026-06-30 05:42 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/79445449.shtml)
-- 2026-06-30 05:41 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/83774604708.shtml)
-- 2026-06-30 05:21 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/89879769167.shtml)
-- 2026-06-30 05:23 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/179362619543.shtml)
-- 2026-06-30 05:37 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/12059462138.shtml)
-- 2026-06-30 05:23 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/077773515946.shtml)
-- 2026-06-30 05:23 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/38463696609.shtml)
-- 2026-06-30 05:41 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/431728466.shtml)
-- 2026-06-30 05:39 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/60454.shtml)
-- 2026-06-30 05:42 - [爱很美味](http://www.share.minike.top/Article/details/516995005.shtml)
+- 2026-06-30 05:34 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/438048.shtml)
+- 2026-06-30 05:26 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/25681282.shtml)
+- 2026-06-30 05:24 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/763693099432.shtml)
+- 2026-06-30 05:40 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/81929564.shtml)
+- 2026-06-30 05:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/418718023989.shtml)
+- 2026-06-30 05:53 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/35624825878.shtml)
+- 2026-06-30 05:52 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/20956579292.shtml)
+- 2026-06-30 05:37 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/6673530231.shtml)
+- 2026-06-30 05:46 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/712729821.shtml)
+- 2026-06-30 05:36 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/5423579683.shtml)
+- 2026-06-30 05:40 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/87351.shtml)
+- 2026-06-30 05:51 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/9869072443.shtml)
+- 2026-06-30 05:39 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/59100989621.shtml)
+- 2026-06-30 05:30 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/6946889566.shtml)
+- 2026-06-30 05:27 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/69129011.shtml)

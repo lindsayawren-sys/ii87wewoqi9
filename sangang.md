@@ -1,56 +1,59 @@
-# 鲍威尔最后一举一动可能带有鹰派色彩
+# 苹果同意在拖延已久的印度反垄断案件中提交在印经营财务数据
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-来源：汇通网 汇通财经APP讯——周三（4月29日），在今日的联邦公开市场委员会（FOMC）声明发布之前，美元走势似乎有所好转。这一势头在一定程度上得益于美国股市出现的波动。预计鲍威尔的最后一次新闻发布会不会引发太大动荡。不过，鉴于海湾地区局势毫无进展，鲍威尔可能会采取更为强硬的立场。与此同时，今天大型科技公司的财报集中发布，对外汇市场的影响或许不亚于甚至超过美联储的表态。 美
+印度反垄断机构的裁决文件显示，苹果已同意向该监管机构提交其印度业务财务报表。此案此前已裁定苹果存在滥用市场支配地位行为，苹果此举让这起久拖未决的案件距离最终处罚裁定再进一步。 该案是苹果在印度遭遇的关注度最高的监管纠纷。印度是苹果重点开拓的增长市场，苹果正快速扩大印度地区的 iPhone 代工产能。调研机构 Counterpoint 数据显示，iPhone 在印度智能手机市场份
 
 ## 正文
 
-来源：汇通网 汇通财经APP讯——周三（4月29日），在今日的联邦公开市场委员会（FOMC）声明发布之前，美元走势似乎有所好转。
+印度反垄断机构的裁决文件显示，苹果已同意向该监管机构提交其印度业务财务报表。
 
-这一势头在一定程度上得益于美国股市出现的波动。
+此案此前已裁定苹果存在滥用市场支配地位行为，苹果此举让这起久拖未决的案件距离最终处罚裁定再进一步。
 
-预计鲍威尔的最后一次新闻发布会不会引发太大动荡。
+该案是苹果在印度遭遇的关注度最高的监管纠纷。
 
-不过，鉴于海湾地区局势毫无进展，鲍威尔可能会采取更为强硬的立场。
+印度是苹果重点开拓的增长市场，苹果正快速扩大印度地区的 iPhone 代工产能。
 
-与此同时，今天大型科技公司的财报集中发布，对外汇市场的影响或许不亚于甚至超过美联储的表态。
+调研机构 Counterpoint 数据显示，iPhone 在印度智能手机市场份额从五年前的 2% 攀升至如今的 9%。
 
-美元：可能有上行风险 过去的24小时内，美元有所回升。
+路透查阅了印度竞争委员会（CCI）一份非公开裁定文书，文件显示苹果已于上月应允提交印度板块财务数据 —— 监管机构核算罚金通常需要该类材料。
 
-虽然市场对美伊谈判缺乏进展存有忧虑，但这似乎并非主要驱动力。
+文书记载，苹果代理律师在 5 月 21 日听证会上申请最后延期至 6 月 25 日，专项递交印度属地财务资料，印度竞争委员会审议后批准了该项延期申请。
 
-事实上，伊朗与美国之间的冲突自今年2月底以来持续升温，霍尔木兹海峡封锁已致使布伦特原油价格飙升至每桶111美元附近，全球能源供应格局遭受严重冲击。
+印度竞争委员会 2024 年出具调查结论：苹果在 iPhone 应用市场滥用支配地位。
 
 ## 相关推荐
 
-- 2026-06-30 05:37 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 05:33 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 05:22 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 05:39 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 05:30 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 05:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 05:45 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 05:21 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 05:35 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 05:20 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 05:44 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 05:36 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 05:46 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 05:27 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 05:38 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-30 05:31 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 05:41 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 05:25 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 05:52 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 05:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 05:30 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 05:37 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 05:53 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:40 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/52235.shtml)
-- 2026-06-30 05:45 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/2220199095.shtml)
-- 2026-06-30 05:47 - [女心理师](https://www.blog.kurohicncr.top/Article/details/529962530384.shtml)
-- 2026-06-30 05:28 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/5711594881.shtml)
-- 2026-06-30 05:43 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/98982838.shtml)
-- 2026-06-30 05:25 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/06179210609.shtml)
-- 2026-06-30 05:43 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/24466943264.shtml)
-- 2026-06-30 05:27 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/85953.shtml)
-- 2026-06-30 05:36 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/38842108.shtml)
-- 2026-06-30 05:18 - [TOP Prada](http://www.share.minike.top/Article/details/60895549.shtml)
-- 2026-06-30 05:35 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/869591.shtml)
-- 2026-06-30 05:22 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/61845668825.shtml)
-- 2026-06-30 05:42 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/838813150103.shtml)
-- 2026-06-30 05:43 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/54990.shtml)
-- 2026-06-30 05:33 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/218877814.shtml)
+- 2026-06-30 05:30 - [毒液2](https://www.blog.minike.top/Article/details/421424.shtml)
+- 2026-06-30 05:44 - [一见倾心](http://www.blog.minike.top/Article/details/029113954.shtml)
+- 2026-06-30 05:31 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/94188.shtml)
+- 2026-06-30 05:27 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/5150639333.shtml)
+- 2026-06-30 05:30 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/413585.shtml)
+- 2026-06-30 05:39 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/39995848.shtml)
+- 2026-06-30 05:36 - [蔚来车主罚站](https://www.share.minike.top/Article/details/38543.shtml)
+- 2026-06-30 05:37 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/129111551.shtml)
+- 2026-06-30 05:25 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/469544.shtml)
+- 2026-06-30 05:44 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/5156926125.shtml)
+- 2026-06-30 05:39 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/25833171371.shtml)
+- 2026-06-30 05:26 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/1031619.shtml)
+- 2026-06-30 05:49 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/10008.shtml)
+- 2026-06-30 05:41 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/547164.shtml)
+- 2026-06-30 05:48 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/4483987966.shtml)

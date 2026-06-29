@@ -1,58 +1,58 @@
-# 中新报道有反馈丨国家医保局就连锁药店骗保问题共检查定点机构1536家
+# 黑芝麻因信披违法违规面临证监会罚款，适格股民可索赔损失！
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网北京4月29日电(赵方园 佟奕萱) 记者28日从国家医保局获悉，针对中国新闻网《暗访连锁药店骗保手段：串药、改方、平账一条龙》报道中反映的定点医药机构串换药品违规使用个人账户问题，国家医保局派出专项检查组对涉事机构开展深入检查，并指导湖南、河南省市医保部门举一反三、扩面检查。共检查定点机构1536家，其中湖南省怀化、衡阳、邵阳、株洲4市共检查1352家机构，河南郑州检查定
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月30日，南方黑芝麻（维权）集团股份有限公司发布《关于收到 的公告》，因黑芝麻未按规定披露关联方非经营性资金占用行为，广西证监局决定对黑芝麻及相关责任人给予行政处罚。 陈宇霞律师在此提醒，凡在2023年01月01日至2026年04月24日之间买入黑芝麻股票，且在2026年04月25日之后继续持有或卖出亏损的投资者，均
 
 ## 正文
 
-中新网北京4月29日电(赵方园 佟奕萱) 记者28日从国家医保局获悉，针对中国新闻网《暗访连锁药店骗保手段：串药、改方、平账一条龙》报道中反映的定点医药机构串换药品违规使用个人账户问题，国家医保局派出专项检查组对涉事机构开展深入检查，并指导湖南、河南省市医保部门举一反三、扩面检查。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月30日，南方黑芝麻（维权）集团股份有限公司发布《关于收到 的公告》，因黑芝麻未按规定披露关联方非经营性资金占用行为，广西证监局决定对黑芝麻及相关责任人给予行政处罚。
 
-共检查定点机构1536家，其中湖南省怀化、衡阳、邵阳、株洲4市共检查1352家机构，河南郑州检查定点药店184家。
+陈宇霞律师在此提醒，凡在2023年01月01日至2026年04月24日之间买入黑芝麻股票，且在2026年04月25日之后继续持有或卖出亏损的投资者，均有权向黑芝麻索赔相关损失。
 
-此次检查中发现，涉事药店违法违规问题主要集中在个人账户资金使用方面，存在通过串换药品的方式将非医保支付的药品、化妆品、日用品、保健品等使用医保个账结算。
+（具体索赔条件以法院认定的为准）。
 
-这些机构为躲避监管，套用上传的追溯码为该店已通过自费渠道销售过的医保药品追溯码。
+（黑芝麻维权入口） 违法事实 广西证监局经调查认定，黑芝麻存在如下违法事实： 2023 年，黑芝麻的子公司广西南方食养工厂有限公司（2023年12月更名为南方黑芝麻（广西）健康粮仓工厂有限公司）通过预付第三方公司账款等方式转出资金，部分款项最终被黑芝麻关联方非经营性占用，非经营性资金占用累计发生18，592.64 万元，占最近一期经审计净资产的 7.51%。
 
-店员提前留存自费购买药品的追溯码图片，当其他参保人想用个人账户支付化妆品、日用品、保健品等非医疗支出时，店员就违规使用提前储存的自费药品追溯码，扫码上传至医保系统。
+黑芝麻未及时履行信息披露义务，也未在 2023年年度报告中披露上述事项，构成重大遗漏。
 
-通过自费药品追溯码替换套用的方式完成串换。
+黑芝麻未及时披露关联方非经营性资金占用行为，涉嫌违反《证券法》第七十八条第一款、第八十条第一款及第二款第三项的规定，构成《证券法》第一百九十七条第一款所述违法行为。
 
-同时，通过增补药品项目、篡改消费总价的方式，合并成参保人使用个人支付的购药小票，将实际选购的商品串换成药品或医疗器械，并使用个账支付；支付完成后，再对小票内额外添加的药品做退费处理，以此平抵账目。
+黑芝麻2023年年度报告存在重大遗漏的行为，涉嫌违反《证券法》第七十八条第二款的规定，构成《证券法》第一百九十七条第二款所述违法行为。
 
-既实现进销存的平账，医保系统里也仅显示一次追溯码记录，手段十分隐蔽。
+索赔相关 按照相关法律法规的规定，上市公司证券虚假陈述，给投资人造成的投资损失，应当负赔偿责任。
 
 ## 相关推荐
 
-- 2026-06-30 05:21 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 05:47 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 05:42 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 05:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 05:29 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 05:46 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 05:20 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 05:46 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 05:18 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 05:44 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 05:29 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 05:28 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 05:41 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 05:47 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 05:46 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 05:34 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 05:46 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 05:40 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 05:46 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 05:39 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 05:32 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 05:26 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 05:40 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 05:29 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:26 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/95296948.shtml)
-- 2026-06-30 05:46 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/961609061995.shtml)
-- 2026-06-30 05:18 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/2834777.shtml)
-- 2026-06-30 05:41 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/5596531.shtml)
-- 2026-06-30 05:26 - [巴西扳平比分](https://www.blog.minike.top/Article/details/04335.shtml)
-- 2026-06-30 05:46 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/023065820.shtml)
-- 2026-06-30 05:29 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/69528.shtml)
-- 2026-06-30 05:43 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/721875462.shtml)
-- 2026-06-30 05:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/52575389.shtml)
-- 2026-06-30 05:20 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/811283.shtml)
-- 2026-06-30 05:20 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/24127.shtml)
-- 2026-06-30 05:40 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/326819363.shtml)
-- 2026-06-30 05:40 - [明星大侦探第四季](http://www.share.minike.top/Article/details/719222.shtml)
-- 2026-06-30 05:24 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/1013980.shtml)
-- 2026-06-30 05:33 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/7848761227.shtml)
+- 2026-06-30 05:26 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/24885861722.shtml)
+- 2026-06-30 05:25 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/77585819071.shtml)
+- 2026-06-30 05:42 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/678295967.shtml)
+- 2026-06-30 05:36 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/83513559.shtml)
+- 2026-06-30 05:34 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/092992308.shtml)
+- 2026-06-30 05:47 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/011087.shtml)
+- 2026-06-30 05:35 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/900607713.shtml)
+- 2026-06-30 05:27 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/899878.shtml)
+- 2026-06-30 05:39 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/7404104542.shtml)
+- 2026-06-30 05:27 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/2343096189.shtml)
+- 2026-06-30 05:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/941031057493.shtml)
+- 2026-06-30 05:39 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/1791825.shtml)
+- 2026-06-30 05:24 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/92753223.shtml)
+- 2026-06-30 05:52 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/3542076758.shtml)
+- 2026-06-30 05:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/90972807808.shtml)

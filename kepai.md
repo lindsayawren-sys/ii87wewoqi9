@@ -1,48 +1,60 @@
-# 找钢集团-W遭MPC II L.P.减持32.4万股 每股作价1港元
+# 寻味定安：千年柴火粽的“古法”与“新味”
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，4月27日，MPC II L.P．减持找钢集团-W（06676）32.4万股，每股作价1港元，总金额为32.4万港元。减持后最新持股数目约为6147.20万股，最新持股比例为6.98%。责任编辑：卢昱君
+中新网海南定安6月3日电 题：寻味定安：千年柴火粽的“古法”与“新味” 记者 王晓斌 李宇凡 在海南定安，传承近千年的柴火粽正经历一场工业化与市场化的双重改造：一边是柴火灶里持续十多个小时的慢蒸，一边是真空包装机与高温灭菌线的快速流转；一边是端午节期间订单激增的生产高峰，一边是企业普遍践行的全年常态化供应。这种“古法+现代”的生产模式、节令高峰+全年供应的产业形态，让定安粽子成
 
 ## 正文
 
-香港联交所最新资料显示，4月27日，MPC II L.P．减持找钢集团-W（06676）32.4万股，每股作价1港元，总金额为32.4万港元。
+中新网海南定安6月3日电 题：寻味定安：千年柴火粽的“古法”与“新味” 记者 王晓斌 李宇凡 在海南定安，传承近千年的柴火粽正经历一场工业化与市场化的双重改造：一边是柴火灶里持续十多个小时的慢蒸，一边是真空包装机与高温灭菌线的快速流转；一边是端午节期间订单激增的生产高峰，一边是企业普遍践行的全年常态化供应。
 
-减持后最新持股数目约为6147.20万股，最新持股比例为6.98%。
+这种“古法+现代”的生产模式、节令高峰+全年供应的产业形态，让定安粽子成为一张能随时享用的“海南美食名片”。
 
-责任编辑：卢昱君
+在海南的粽子版图上，定安粽子是一个绕不开的名字，与儋州洛基粽、澄迈瑞溪粽并称“海南三大名粽”。
+
+定安粽子的历史可追溯至元代。
+
+当地流传一则旧事：元文宗图帖睦尔早年贬居海南定安时，一位姑娘以本地黑猪肉和咸蛋黄裹以粽叶相赠，皇子食后大悦。
+
+数百年后，这份味道不仅没有被遗忘，反而越来越深入人心。
+
+2014年“定安粽子”获国家地理标志证明商标，2023年“定安粽子烹制技艺”列入海南省省级非物质文化遗产代表性项目名录。
+
+名气归名气，真正让定安粽子在市场立住脚的，是一个最朴素的理由：好吃。
 
 ## 相关推荐
 
-- 2026-06-30 05:32 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 05:47 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 05:28 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 05:42 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 05:37 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 05:18 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 05:26 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 05:18 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 05:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 05:38 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 05:44 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 05:38 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 05:33 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 05:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 05:30 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 05:32 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 05:39 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 05:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 05:25 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 05:48 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 05:47 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 05:25 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 05:33 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 05:26 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 05:48 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 05:25 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:39 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/27207011.shtml)
-- 2026-06-30 05:43 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/8218274253.shtml)
-- 2026-06-30 05:30 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/2116596.shtml)
-- 2026-06-30 05:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/04451752101.shtml)
-- 2026-06-30 05:33 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/286094032.shtml)
-- 2026-06-30 05:33 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/14457430.shtml)
-- 2026-06-30 05:32 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/677382537559.shtml)
-- 2026-06-30 05:37 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/266648.shtml)
-- 2026-06-30 05:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/957082709.shtml)
-- 2026-06-30 05:33 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/349002875.shtml)
-- 2026-06-30 05:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/12530099650.shtml)
-- 2026-06-30 05:39 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/649942094.shtml)
-- 2026-06-30 05:26 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/53820547.shtml)
-- 2026-06-30 05:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/68827.shtml)
-- 2026-06-30 05:20 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/460786.shtml)
+- 2026-06-30 05:39 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/17552.shtml)
+- 2026-06-30 05:41 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/44049020.shtml)
+- 2026-06-30 05:43 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/155871673.shtml)
+- 2026-06-30 05:27 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/79403.shtml)
+- 2026-06-30 05:40 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/96784.shtml)
+- 2026-06-30 05:35 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/14835802750.shtml)
+- 2026-06-30 05:28 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/74009.shtml)
+- 2026-06-30 05:41 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/77250440407.shtml)
+- 2026-06-30 05:28 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/5297796525.shtml)
+- 2026-06-30 05:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/18870344.shtml)
+- 2026-06-30 05:33 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/44301200.shtml)
+- 2026-06-30 05:40 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/95008844.shtml)
+- 2026-06-30 05:45 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/613611167031.shtml)
+- 2026-06-30 05:25 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/4343760.shtml)
+- 2026-06-30 05:40 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/6281455.shtml)

@@ -1,58 +1,50 @@
-# “五一”将至，你会来一场非遗之旅吗
+# 国台办：民进党当局抹黑大陆应用软件到了反科技反时代地步
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-“五一”将至，你会来一场非遗之旅吗 非遗旅行三大吸引力：原真活态文化、东方造物美学、亲手制作 “非遗体验在不断拓展我的认知边界。”王萌萌到贵州安顺体验当地服饰时，一度以为那是少数民族服装，被当地人立刻纠正：“这是600年前的明代汉族传统服饰——屯堡服饰。”这彻底打破了她对汉服的固有印象。 当旅行不再满足于走马观花、热门打卡，越来越多年轻人开始把目光投向传统非遗。亲手做一件蜡染、
+发布时间：2026年06月03日 12:13 来源：中国新闻网 6月3日，国务院台办举行例行新闻发布会。有记者问，近日，民进党当局称高德地图、哔哩哔哩、爱奇艺等大陆研制应用软件均存在实施行为监测、截取系统信息等风险，提醒台湾民众提高警觉。请问对此有何评论？ 发言人朱凤莲答问表示，民进党当局出于“反中抗中”的险恶用心，不断对大陆科技产品、应用软件等恶意抹黑污蔑，百般阻挠台湾民众使
 
 ## 正文
 
-“五一”将至，你会来一场非遗之旅吗 非遗旅行三大吸引力：原真活态文化、东方造物美学、亲手制作 “非遗体验在不断拓展我的认知边界。
+发布时间：2026年06月03日 12:13 来源：中国新闻网 6月3日，国务院台办举行例行新闻发布会。
 
-”王萌萌到贵州安顺体验当地服饰时，一度以为那是少数民族服装，被当地人立刻纠正：“这是600年前的明代汉族传统服饰——屯堡服饰。
+有记者问，近日，民进党当局称高德地图、哔哩哔哩、爱奇艺等大陆研制应用软件均存在实施行为监测、截取系统信息等风险，提醒台湾民众提高警觉。
 
-”这彻底打破了她对汉服的固有印象。
+请问对此有何评论？
 
-当旅行不再满足于走马观花、热门打卡，越来越多年轻人开始把目光投向传统非遗。
+发言人朱凤莲答问表示，民进党当局出于“反中抗中”的险恶用心，不断对大陆科技产品、应用软件等恶意抹黑污蔑，百般阻挠台湾民众使用，到了反科技、反时代的地步，只会让越来越多的台湾民众反感和唾弃。
 
-亲手做一件蜡染、给傩面涂上喜欢的色彩、捏制一只瓦猫……一场非遗之旅，正在成为年轻人解锁深度旅行的新方式。
-
-近日，中国青年报社社会调查中心联合问卷网(wenjuan.com)，对1333名年轻人进行的一项调查显示，82.5%的受访青年会为了体验一项传统非遗不远千里奔赴，且受访女性、受访95后热情相对更高。
-
-体验原真活态文化、欣赏东方造物美学、亲手体验制作过程是非遗旅行对年轻人的三大吸引力。
-
-82.5%受访青年愿为一项非遗奔赴千里 95后热情最高 和偏爱热门景点的游客不同，艺术系在读研究生王萌萌总爱去一些小众目的地，只为寻找最本真质朴的非遗踪迹。
+(记者 迟瀚宇 制作 徐妙巧） 责任编辑：【张燕玲】
 
 ## 相关推荐
 
-- 2026-06-30 05:44 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 05:35 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 05:39 - [月亮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 05:33 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 05:20 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 05:47 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 05:45 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 05:39 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 05:46 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 05:45 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 05:24 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-30 05:46 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 05:35 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 05:29 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 05:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 05:48 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 05:40 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 05:47 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 05:30 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 05:50 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 05:40 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 05:35 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:31 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/56641.shtml)
-- 2026-06-30 05:25 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/86104481386.shtml)
-- 2026-06-30 05:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/1216146984.shtml)
-- 2026-06-30 05:27 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/99189778.shtml)
-- 2026-06-30 05:42 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/8317786.shtml)
-- 2026-06-30 05:34 - [日本领先巴西](https://www.share.minike.top/Article/details/88057.shtml)
-- 2026-06-30 05:32 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/58329818.shtml)
-- 2026-06-30 05:40 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/689088668012.shtml)
-- 2026-06-30 05:41 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/34399639945.shtml)
-- 2026-06-30 05:29 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/78567857945.shtml)
-- 2026-06-30 05:38 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/535033453015.shtml)
-- 2026-06-30 05:18 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/77046979872.shtml)
-- 2026-06-30 05:38 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/02087948.shtml)
-- 2026-06-30 05:38 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/0635388519.shtml)
-- 2026-06-30 05:24 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/85368453035.shtml)
+- 2026-06-30 05:42 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/605791676.shtml)
+- 2026-06-30 05:40 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/01969.shtml)
+- 2026-06-30 05:24 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/365553140302.shtml)
+- 2026-06-30 05:37 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/036883393814.shtml)
+- 2026-06-30 05:27 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/632699027400.shtml)
+- 2026-06-30 05:48 - [《共患难》](https://www.share.minike.top/Article/details/67356921.shtml)
+- 2026-06-30 05:40 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/120879854692.shtml)
+- 2026-06-30 05:36 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/528910.shtml)
+- 2026-06-30 05:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/5676139.shtml)
+- 2026-06-30 05:52 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/668657503876.shtml)
+- 2026-06-30 05:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/8401090332.shtml)
+- 2026-06-30 05:31 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/91243925.shtml)
+- 2026-06-30 05:31 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/61705.shtml)
+- 2026-06-30 05:46 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/589175823.shtml)
+- 2026-06-30 05:46 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/2553277.shtml)

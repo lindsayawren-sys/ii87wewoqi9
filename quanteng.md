@@ -1,61 +1,60 @@
-# 博时市场点评4月29日：沪指站上4100点，创业板涨超2.5%
+# 国投策略林荣雄：AI投资下半场“守大光买光圈”，存储与AI应用成关键赛道
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-🌟【博时市场点评4月29日】沪指站上4100点，创业板涨超2.5% 📝每日观点 🎈今日沪深三大指数上涨，沪指站上4100点，创业板指涨超2.5%，两市成交较昨日放量至近2.61万亿。海外方面，阿联酋宣布自5月1日起退出OPEC，这件事对市场的意义，不只是少了一个成员国，而是OPEC内部约束力和未来配额协调机制的可信度受到挑战；伊朗提出三阶段谈判框架，涉及停火、霍尔木兹海峡管理及
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！AI还能涨多久？站在6月的关键窗口，市场将延续高位震荡，还是迎来风格切换？面对高波动与强分歧，投资者应如何锚定主线？6月3日，新浪证券对话国投证券策略研究首席分析师林荣雄，为投资者前瞻解读>>视频直播 林荣雄认为，当前AI行情正从“大光”向“光圈”扩散，投资者应守住产业关键环节，同时积极布局存储和AI应用等
 
 ## 正文
 
-🌟【博时市场点评4月29日】沪指站上4100点，创业板涨超2.5% 📝每日观点 🎈今日沪深三大指数上涨，沪指站上4100点，创业板指涨超2.5%，两市成交较昨日放量至近2.61万亿。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-海外方面，阿联酋宣布自5月1日起退出OPEC，这件事对市场的意义，不只是少了一个成员国，而是OPEC内部约束力和未来配额协调机制的可信度受到挑战；伊朗提出三阶段谈判框架，涉及停火、霍尔木兹海峡管理及核问题，这意味着中东局势对资产价格的影响，从“线性升级”转向“高位反复”；在此情况下，市场对两种情景同时定价。
+AI还能涨多久？
 
-国内方面，昨日中央政治局召开会议，按以往惯例，若非出现重大变化，每年4月末的政治局会议与前一年的中央经济工作会议精神基本一致，今年也是如此，但对一季度的情况略有调整。
+站在6月的关键窗口，市场将延续高位震荡，还是迎来风格切换？
 
-一季度主要经济指标好于预期，经济起步有力，显示了强大的韧性和活力，在此情况下，财政和货币政策大概率延续此前力度，进一步宽松的必要性不高。
+面对高波动与强分歧，投资者应如何锚定主线？
 
-目前国内权益市场的核心问题是业绩验证能否支撑前期估值扩张，短期或继续呈现“指数震荡、结构轮动”的路径，结构上或可关注“红利底仓+景气成长”的哑铃配置。
+6月3日，新浪证券对话国投证券策略研究首席分析师林荣雄，为投资者前瞻解读>>视频直播 林荣雄认为，当前AI行情正从“大光”向“光圈”扩散，投资者应守住产业关键环节，同时积极布局存储和AI应用等供需缺口方向。
 
-🔥消息面 🎈4月28日，阿联酋宣布自5月1日起退出石油输出国组织（OPEC）及“OPEC+”机制，结束近60年成员国身份。
+林荣雄将科技投资的演绎路径归纳为四个阶段：当爆款产品出现时，市场应聚焦巨头；当巨头开启巨额资本开支时，市场应转向基础设施；当产业链形成后，市场应锁定产业链关键环节；最后则是供需缺口，上游看涨价、下游看放量。
 
-阿联酋能源部称，退出决定基于国家利益，旨在更有效地满足国际市场需求，并将逐步提高石油产量。
+以新能源车为例，特斯拉Model S作为爆款催生了对特斯拉本身的炒作；特斯拉进入国内并大规模资本开支后，充电桩、电网设备等基础设施成为焦点；产业链成熟后，锂电池等关键环节主导行情；最终，上游锂矿因涨价逻辑、下游汽车零部件因放量逻辑接棒演绎。
 
-阿联酋计划到2027年将产能从约340万桶/日提升至500万桶/日。
+将这一框架套用到当前的AI产业趋势中，林荣雄认为，ChatGPT作为爆款出现时，市场应找巨头——这对应2023年的行情；随后巨头进行巨额资本开支，算力作为基础设施成为主线，这一阶段已充分演绎；产业链形成后，AI芯片作为关键环节受到关注，国内代表公司包括中芯国际、寒武纪等；而目前正在进入第四阶段——供需缺口，其中上游涨价对应存储（类似于锂矿），下游放量对应AI应用（类似于汽车零部件）。
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 05:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 05:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 05:31 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 05:43 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 05:21 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 05:26 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 05:31 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 05:37 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 05:38 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 05:27 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 05:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 05:36 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 05:46 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 05:37 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 05:45 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 05:28 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 05:51 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 05:38 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 05:34 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 05:24 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 05:28 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 05:35 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 05:32 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 05:29 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 05:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 05:53 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 05:51 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 05:26 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/691265.shtml)
-- 2026-06-30 05:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/40445386663.shtml)
-- 2026-06-30 05:23 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/8207898801.shtml)
-- 2026-06-30 05:23 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/1719480.shtml)
-- 2026-06-30 05:47 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/983552.shtml)
-- 2026-06-30 05:34 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/310243866265.shtml)
-- 2026-06-30 05:29 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/64886271.shtml)
-- 2026-06-30 05:22 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/70985586540.shtml)
-- 2026-06-30 05:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/90146566664.shtml)
-- 2026-06-30 05:31 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/5116398.shtml)
-- 2026-06-30 05:44 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/949240872750.shtml)
-- 2026-06-30 05:19 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/733797.shtml)
-- 2026-06-30 05:46 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/623020732933.shtml)
-- 2026-06-30 05:20 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/5450456.shtml)
-- 2026-06-30 05:34 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/77606.shtml)
+- 2026-06-30 05:49 - [流金岁月](http://www.share.kurohicncr.top/Article/details/05615207357.shtml)
+- 2026-06-30 05:32 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/363454937728.shtml)
+- 2026-06-30 05:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/8944957.shtml)
+- 2026-06-30 05:29 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/1175156.shtml)
+- 2026-06-30 05:40 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/5729799.shtml)
+- 2026-06-30 05:37 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/651726.shtml)
+- 2026-06-30 05:32 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/38958469.shtml)
+- 2026-06-30 05:40 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/2984107550.shtml)
+- 2026-06-30 05:53 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/86216065566.shtml)
+- 2026-06-30 05:42 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/8129875606.shtml)
+- 2026-06-30 05:29 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/15585.shtml)
+- 2026-06-30 05:48 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/442787641575.shtml)
+- 2026-06-30 05:32 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/4636221224.shtml)
+- 2026-06-30 05:25 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/8503904.shtml)
+- 2026-06-30 05:53 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/3963066.shtml)

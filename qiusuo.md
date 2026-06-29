@@ -1,55 +1,44 @@
-# 微软营收同比增18% 利润同比增20% 云计算与AI驱动业绩增长
+# 亚马逊Prime会员落地南非，月费不足4美元
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 微软公司今日公布了截至2026年3月31日的第三季度业绩，与上一财年同期相比： 营收为829亿美元，同比增长18%（按固定汇率计算增长15%） 营业利润为384亿美元，同比增长20%（按固定汇率计算增长16%） 净利润：按照美国通用会计准则（GAAP）计算为318亿美元，同比增长23%；非GAAP口径（剔除OpenAI投资影响）为317.9
+电商巨头亚马逊公司于周三宣布，在南非正式上线付费 Prime 会员服务，会员每月资费 59 南非兰特（折合 3.61 美元）、年费 399 兰特，可享受极速配送及影音内容权益。 相关详情如下： （汇率：1 美元 = 16.3249 南非兰特）责任编辑：郭明煜
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 微软公司今日公布了截至2026年3月31日的第三季度业绩，与上一财年同期相比： 营收为829亿美元，同比增长18%（按固定汇率计算增长15%） 营业利润为384亿美元，同比增长20%（按固定汇率计算增长16%） 净利润：按照美国通用会计准则（GAAP）计算为318亿美元，同比增长23%；非GAAP口径（剔除OpenAI投资影响）为317.9亿美元，同比增长20%（按固定汇率计算增长18%） 稀释每股收益：GAAP口径为4.27美元，同比增长23%；非GAAP口径为4.27美元，同比增长21%（按固定汇率计算增长18%） 注：非GAAP结果剔除OpenAI投资影响，详见下文非GAAP定义。
+电商巨头亚马逊公司于周三宣布，在南非正式上线付费 Prime 会员服务，会员每月资费 59 南非兰特（折合 3.61 美元）、年费 399 兰特，可享受极速配送及影音内容权益。
 
-高管引言： 微软董事长兼首席执行官萨提亚·纳德拉表示：“我们专注于提供云和AI基础设施及解决方案，赋能每个企业在代理计算时代实现成果最大化。
-
-我们的AI业务年化收入已超过370亿美元，同比增长123%。
-
-” 执行副总裁兼首席财务官艾米·胡德表示：“我们在营收、营业利润和每股收益方面均超出预期，反映了强劲的执行力以及微软云不断增长的需求。
-
-” GAAP与非GAAP调整表（第三季度） *调整项为OpenAI投资的影响。
-
-业务亮点： 微软云营收为545亿美元，同比增长29%（按固定汇率计算增长25%） 商业剩余履约义务为6270亿美元，同比增长99% 分板块业绩： 生产力和业务流程板块 营收350亿美元，同比增长17%（按固定汇率计算增长13%） Microsoft 365商业云营收同比增长19%（按固定汇率计算增长15%） Microsoft 365消费者云营收同比增长33%（按固定汇率计算增长29%） LinkedIn营收同比增长12%（按固定汇率计算增长9%） Dynamics 365营收同比增长22%（按固定汇率计算增长17%） 智能云板块 营收347亿美元，同比增长30%（按固定汇率计算增长28%） Azure和其他云服务营收同比增长40%（按固定汇率计算增长39%） 更个人计算板块 营收132亿美元，同比下降1%（按固定汇率计算下降3%） Windows
-
-责任编辑：李桐
+相关详情如下： （汇率：1 美元 = 16.3249 南非兰特）责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 05:25 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 05:19 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-30 05:40 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 05:32 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 05:44 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 05:26 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 05:25 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 05:39 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 05:21 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 05:20 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 05:19 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 05:51 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 05:53 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 05:42 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 05:41 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 05:40 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 05:37 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 05:38 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 05:36 - [日本16强魔咒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 05:25 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-30 05:26 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:22 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/9387192434.shtml)
-- 2026-06-30 05:45 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/0396643328.shtml)
-- 2026-06-30 05:23 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/08574.shtml)
-- 2026-06-30 05:46 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/173471.shtml)
-- 2026-06-30 05:31 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/6744581601.shtml)
-- 2026-06-30 05:37 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/393574088.shtml)
-- 2026-06-30 05:33 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/71226.shtml)
-- 2026-06-30 05:28 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/123193946.shtml)
-- 2026-06-30 05:29 - [世界杯](https://www.blog.minike.top/Article/details/610482023342.shtml)
-- 2026-06-30 05:36 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/47364.shtml)
-- 2026-06-30 05:34 - [极限挑战第一季](http://www.share.minike.top/Article/details/5038314055.shtml)
-- 2026-06-30 05:18 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/841693.shtml)
-- 2026-06-30 05:42 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/9487936486.shtml)
-- 2026-06-30 05:27 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/3707839.shtml)
-- 2026-06-30 05:26 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/09166609.shtml)
+- 2026-06-30 05:26 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/75191914879.shtml)
+- 2026-06-30 05:37 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/045365713.shtml)
+- 2026-06-30 05:46 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/67491853265.shtml)
+- 2026-06-30 05:44 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/5357805.shtml)
+- 2026-06-30 05:45 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/99722645.shtml)
+- 2026-06-30 05:36 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/6021186012.shtml)
+- 2026-06-30 05:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/48774348.shtml)
+- 2026-06-30 05:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/48530102768.shtml)
+- 2026-06-30 05:47 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/800685355.shtml)
+- 2026-06-30 05:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/539596704218.shtml)
+- 2026-06-30 05:25 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/669887808193.shtml)
+- 2026-06-30 05:53 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/126205.shtml)
+- 2026-06-30 05:50 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/3892742.shtml)
+- 2026-06-30 05:33 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/581731.shtml)
+- 2026-06-30 05:32 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/359696852.shtml)

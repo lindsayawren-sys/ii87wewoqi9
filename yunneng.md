@@ -1,50 +1,58 @@
-# 中国平安：一季度归母净利润250亿元，同比下降7.4%
+# 多地省长密集下矿
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-4月28日金融一线消息，中国平安公告称，2026年第一季度，集团实现归属于母公司股东的营运利润407.80亿元，同比增长7.6%；截至2026年3月31日，集团归属于母公司股东权益10，183.10亿元，较年初增长1.8%。第一季度营业收入2385亿元，同比下滑7.1%；归属于母公司股东的净利润250亿元，同比下降7.4%。 责任编辑：王馨茹
+今年6月是全国第25个“安全生产月”。6月1日，山西省委副书记、省长卢东亮换上矿工服，穿戴好下井装备，进入太原古交市马兰矿井下巷道。马兰矿是一处煤与瓦斯突出矿井。 此时，距“5·22”特别重大瓦斯爆炸事故刚过去10天。5月22日19时29分，山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸，截至目前事故已造成82人遇难、2人失联、128人受伤。 事故发生后，国务院成立事故调查组。
 
 ## 正文
 
-4月28日金融一线消息，中国平安公告称，2026年第一季度，集团实现归属于母公司股东的营运利润407.80亿元，同比增长7.6%；截至2026年3月31日，集团归属于母公司股东权益10，183.10亿元，较年初增长1.8%。
+今年6月是全国第25个“安全生产月”。
 
-第一季度营业收入2385亿元，同比下滑7.1%；归属于母公司股东的净利润250亿元，同比下降7.4%。
+6月1日，山西省委副书记、省长卢东亮换上矿工服，穿戴好下井装备，进入太原古交市马兰矿井下巷道。
 
-责任编辑：王馨茹
+马兰矿是一处煤与瓦斯突出矿井。
+
+此时，距“5·22”特别重大瓦斯爆炸事故刚过去10天。
+
+5月22日19时29分，山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸，截至目前事故已造成82人遇难、2人失联、128人受伤。
+
+事故发生后，国务院成立事故调查组。
+
+最高人民检察院决定挂牌督办，要求查清查透事故原因及属地管理、行业监管、企业责任，依法严厉惩处。
+
+连日来，辽宁、湖南、山西、安徽等多地省长密集下矿，深入一线督导检查安全生产工作。
 
 ## 相关推荐
 
-- 2026-06-30 05:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 05:21 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 05:18 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 05:35 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-30 05:20 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 05:31 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 05:39 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 05:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 05:20 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 05:28 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 05:22 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 05:46 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 05:34 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 05:25 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 05:41 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 05:31 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 05:54 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 05:32 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 05:39 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 05:46 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 05:31 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 05:24 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 05:49 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 05:41 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 05:43 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 05:46 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:30 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/740685558.shtml)
-- 2026-06-30 05:20 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/72571316.shtml)
-- 2026-06-30 05:19 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/479633568884.shtml)
-- 2026-06-30 05:20 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/37582522411.shtml)
-- 2026-06-30 05:35 - [TOP Prada](https://www.blog.minike.top/Article/details/8936011094.shtml)
-- 2026-06-30 05:37 - [急先锋](http://www.blog.kurohicncr.top/Article/details/8731251.shtml)
-- 2026-06-30 05:34 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/52572104733.shtml)
-- 2026-06-30 05:32 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/27869382.shtml)
-- 2026-06-30 05:24 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/54485916104.shtml)
-- 2026-06-30 05:33 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/9908211.shtml)
-- 2026-06-30 05:28 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/415582348205.shtml)
-- 2026-06-30 05:26 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/14980961.shtml)
-- 2026-06-30 05:29 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/0623923.shtml)
-- 2026-06-30 05:45 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/2705034.shtml)
-- 2026-06-30 05:24 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/89292.shtml)
+- 2026-06-30 05:52 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/01086.shtml)
+- 2026-06-30 05:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/82764.shtml)
+- 2026-06-30 05:34 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/13838105.shtml)
+- 2026-06-30 05:46 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/35926750.shtml)
+- 2026-06-30 05:27 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/0350008.shtml)
+- 2026-06-30 05:40 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/02940.shtml)
+- 2026-06-30 05:35 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/245034.shtml)
+- 2026-06-30 05:44 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/43740.shtml)
+- 2026-06-30 05:30 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/29264330.shtml)
+- 2026-06-30 05:50 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/37601.shtml)
+- 2026-06-30 05:30 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/891431.shtml)
+- 2026-06-30 05:33 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/42970986.shtml)
+- 2026-06-30 05:52 - [逃狱兄弟](http://www.share.minike.top/Article/details/1122174765.shtml)
+- 2026-06-30 05:44 - [沙丘](http://www.blog.minike.top/Article/details/83046718.shtml)
+- 2026-06-30 05:43 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/1439860201.shtml)

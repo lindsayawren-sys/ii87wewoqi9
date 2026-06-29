@@ -1,53 +1,57 @@
-# 粤预计今年“五一”假期日均车流量同比增长约10.39%
+# 财经早报：特朗普称美伊协议可能在本周末达成，A股再次登上新闻联播丨2026年6月4日
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网广州4月28日电 (记者 蔡敏婕)广东省交通运输厅28日发布消息称，预计今年“五一”期间高速公路车流整体保持高位运行，主要以旅游度假、探亲访友等中短途出行为主，全省总体出行流量将明显增长，车流压力主要集中在大湾区，小型客车占比较高。今年“五一”假期(5月1日至5日，共计5天)期间实施七座及以下小型客车免收通行费政策。 广东交通部门预计今年“五一”假期日均车流量约1012.
+【重磅】全球迎来“芯片牛”！别再错过，立即开户跟进>> 【头条要闻】 特朗普称美伊协议可能在本周末达成 当地时间3日，美国总统特朗普在白宫说，美国同伊朗的谈判进展顺利，协议可能在本周末达成。 特朗普说：“我听说谈判本身进行得非常顺利，实际上是相当顺利……如果真能达成协议，那可能会在这个周末揭晓。” 在被问及伊朗对科威特的最新袭击发生后，美国与伊朗停火协议是否仍然生效时，特朗普说
 
 ## 正文
 
-中新网广州4月28日电 (记者 蔡敏婕)广东省交通运输厅28日发布消息称，预计今年“五一”期间高速公路车流整体保持高位运行，主要以旅游度假、探亲访友等中短途出行为主，全省总体出行流量将明显增长，车流压力主要集中在大湾区，小型客车占比较高。
+【重磅】全球迎来“芯片牛”！
 
-今年“五一”假期(5月1日至5日，共计5天)期间实施七座及以下小型客车免收通行费政策。
+别再错过，立即开户跟进>> 【头条要闻】 特朗普称美伊协议可能在本周末达成 当地时间3日，美国总统特朗普在白宫说，美国同伊朗的谈判进展顺利，协议可能在本周末达成。
 
-广东交通部门预计今年“五一”假期日均车流量约1012.33万车次，同比增长约10.39%。
+特朗普说：“我听说谈判本身进行得非常顺利，实际上是相当顺利……如果真能达成协议，那可能会在这个周末揭晓。
 
-其中，港珠澳大桥日均车流量约2.5万车次，同比增长6.67%；虎门大桥日均车流量约15.48万车次，同比下降1.04%；南沙大桥日均车流量约20.16万车次，同比增长3.77%；黄埔大桥日均车流量约18.8万车次，同比增长4.95%；深中通道日均车流量约17.67万车次，同比增长6.57%。
+” 在被问及伊朗对科威特的最新袭击发生后，美国与伊朗停火协议是否仍然生效时，特朗普说，“凡事皆有因”，美军在前两天夜里对伊朗进行了相当猛烈的打击，“所以有些事情发生是有原因的，而且这种原因通常多少说得通”。
 
-广东交通部门预计假期第一天(5月1日)出行需求最为旺盛，假期结束后一天(5月6日)通行需求逐步回归常态。
+他还说，伊朗此次举动“算不上什么大事”，并称“我们已经掌控了局势，并迅速将其扼杀在了萌芽状态”。
 
-(完)
+伊朗称在阿曼湾打击一艘美驱逐舰 美军否认 当地时间3日，美军中央司令部在社交媒体发文，否认伊朗有关“在阿曼湾对一艘美军驱逐舰发动打击”的说法，称“美国海上军事力量目前仍在安全、畅通无阻地进行飞行、航行及各项行动。
+
+” 当天早些时候，伊朗军方发表声明称，伊朗海军刚刚在阿曼湾对一艘美军驱逐舰发动打击，针对设于该舰、对伊朗实施敌对行动的指挥控制中心。
+
+伊朗最高领袖批准：成立霍尔木兹海峡问题工作组 据伊朗方面3日消息，伊朗伊斯兰议会副议长阿里·尼克扎德表示，伊朗外交部已获伊朗最高领袖穆杰塔巴·哈梅内伊批准，成立霍尔木兹海峡问题工作组。
 
 ## 相关推荐
 
-- 2026-06-30 05:34 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 05:18 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 05:29 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-30 05:22 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 05:29 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 05:43 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 05:21 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 05:24 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 05:35 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 05:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 05:42 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 05:50 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 05:42 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 05:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 05:29 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 05:34 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 05:50 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 05:49 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 05:38 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 05:34 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 05:25 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 05:35 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:30 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/3218866.shtml)
-- 2026-06-30 05:24 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/711651344.shtml)
-- 2026-06-30 05:24 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/557361589286.shtml)
-- 2026-06-30 05:31 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/48507926.shtml)
-- 2026-06-30 05:30 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/4116556.shtml)
-- 2026-06-30 05:31 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/608141326.shtml)
-- 2026-06-30 05:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/957960766.shtml)
-- 2026-06-30 05:27 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/446748088529.shtml)
-- 2026-06-30 05:33 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/680687083450.shtml)
-- 2026-06-30 05:24 - [千与千寻](http://www.blog.minike.top/Article/details/46825870.shtml)
-- 2026-06-30 05:24 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/489566194.shtml)
-- 2026-06-30 05:22 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/4099365.shtml)
-- 2026-06-30 05:29 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/1419312.shtml)
-- 2026-06-30 05:23 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/34313483.shtml)
-- 2026-06-30 05:31 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/9159692601.shtml)
+- 2026-06-30 05:47 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/50645834691.shtml)
+- 2026-06-30 05:36 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/166682.shtml)
+- 2026-06-30 05:45 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/769164.shtml)
+- 2026-06-30 05:35 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/48706877576.shtml)
+- 2026-06-30 05:49 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/70661585.shtml)
+- 2026-06-30 05:44 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/794026826.shtml)
+- 2026-06-30 05:40 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/357784331427.shtml)
+- 2026-06-30 05:35 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/95909865.shtml)
+- 2026-06-30 05:42 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/95541025.shtml)
+- 2026-06-30 05:52 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/041846882.shtml)
+- 2026-06-30 05:35 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/626485637.shtml)
+- 2026-06-30 05:43 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/059743233178.shtml)
+- 2026-06-30 05:35 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/5987306.shtml)
+- 2026-06-30 05:47 - [点菜也要教吗](http://www.share.minike.top/Article/details/9491778.shtml)
+- 2026-06-30 05:26 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/8203255466.shtml)

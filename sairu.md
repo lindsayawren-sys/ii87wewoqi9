@@ -1,56 +1,59 @@
-# 380亿美元天价罚单之后，谁是下一个苹果？
+# 韩国举行第九届地方选举
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网北京4月29日电 从被追缴巨额税款的大众汽车，到深陷合规纠纷的亚马逊，再到遭遇税收指控的起亚汽车，印度对外资的“收割”早已屡见不鲜。而此次苹果遭遇的380亿美元天价罚单，更成为了一场系统性围猎的里程碑——印度对跨国巨头的收割愈发肆无忌惮。当背靠美国、实力雄厚的苹果都难以在规则的随意变动中全身而退，一个尖锐的问题浮出水面：380亿美元天价罚单之后，谁会成为下一个被瞄准的“苹
+中新社首尔6月3日电 (记者 金旭)韩国第九届地方选举和国会议员补选于当地时间3日6时开启正式投票。 本届选举投票时间为6时至18时。选民将投票选出全国道、市、郡、区等各级政府负责人，以及教育监和地方议员等。同时将补选14名国会议员。 据韩国中央选举管理委员会初步统计显示，全国共有约4465万选民可参与此次投票。选举结果预计于4日凌晨揭晓。 韩联社分析称，本届选举是李在明政府成
 
 ## 正文
 
-中新网北京4月29日电 从被追缴巨额税款的大众汽车，到深陷合规纠纷的亚马逊，再到遭遇税收指控的起亚汽车，印度对外资的“收割”早已屡见不鲜。
+中新社首尔6月3日电 (记者 金旭)韩国第九届地方选举和国会议员补选于当地时间3日6时开启正式投票。
 
-而此次苹果遭遇的380亿美元天价罚单，更成为了一场系统性围猎的里程碑——印度对跨国巨头的收割愈发肆无忌惮。
+本届选举投票时间为6时至18时。
 
-当背靠美国、实力雄厚的苹果都难以在规则的随意变动中全身而退，一个尖锐的问题浮出水面：380亿美元天价罚单之后，谁会成为下一个被瞄准的“苹果”？
+选民将投票选出全国道、市、郡、区等各级政府负责人，以及教育监和地方议员等。
 
-科技领域，三星、小米等智能手机巨头首当其冲。
+同时将补选14名国会议员。
 
-作为全球智能手机市场的核心玩家，三星与小米在印度的布局深度丝毫不逊色于苹果。
+据韩国中央选举管理委员会初步统计显示，全国共有约4465万选民可参与此次投票。
 
-据全球权威科技调研机构 IDC、Counterpoint统计数据显示，2025年三星与小米合计占据印度智能手机市场近27%的份额；其中三星市场占有率约15%，小米占比约12%，两项数据均稳步高于苹果9%的市场份额。
+选举结果预计于4日凌晨揭晓。
 
-与苹果一样，它们均投入巨额资金在印度布局生产线、搭建供应链，深度绑定“印度制造”战略。
+韩联社分析称，本届选举是李在明政府成立以来首次在全国范围内举行的选举，被视为2年后进行的国会议员选举等今后政治走向的重要风向标。
 
-更值得警惕的是，据印度竞争委员会(CCI)2024年9月发布的反垄断调查报告显示，CCI早已对三星、小米等头部手机厂商启动反垄断调查。
+“事前投票”已于5月29日至30日进行。
 
 ## 相关推荐
 
-- 2026-06-30 05:43 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 05:35 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 05:21 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 05:29 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 05:24 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 05:19 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 05:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 05:30 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 05:31 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 05:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 05:44 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 05:42 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 05:30 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 05:45 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 05:51 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 05:33 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 05:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 05:50 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 05:38 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 05:31 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 05:51 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 05:36 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 05:48 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:27 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/9361998694.shtml)
-- 2026-06-30 05:41 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/865748.shtml)
-- 2026-06-30 05:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/574867669389.shtml)
-- 2026-06-30 05:27 - [月亮](http://www.share.kurohicncr.top/Article/details/0578993.shtml)
-- 2026-06-30 05:18 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/603260604871.shtml)
-- 2026-06-30 05:34 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/713150512.shtml)
-- 2026-06-30 05:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/821737586081.shtml)
-- 2026-06-30 05:33 - [明星大侦探第四季](http://www.share.minike.top/Article/details/527461453.shtml)
-- 2026-06-30 05:22 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/12958583368.shtml)
-- 2026-06-30 05:25 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/657112.shtml)
-- 2026-06-30 05:35 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/7746195354.shtml)
-- 2026-06-30 05:46 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/60472402319.shtml)
-- 2026-06-30 05:26 - [速度与激情9](https://www.blog.minike.top/Article/details/3981938.shtml)
-- 2026-06-30 05:46 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/708107163.shtml)
-- 2026-06-30 05:20 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/19353755182.shtml)
+- 2026-06-30 05:51 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/98214523539.shtml)
+- 2026-06-30 05:41 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/21521.shtml)
+- 2026-06-30 05:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/787848702379.shtml)
+- 2026-06-30 05:28 - [我和我的家乡](https://www.share.minike.top/Article/details/0563365.shtml)
+- 2026-06-30 05:43 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/63917.shtml)
+- 2026-06-30 05:39 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/3405828207.shtml)
+- 2026-06-30 05:29 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/037133770091.shtml)
+- 2026-06-30 05:25 - [扬名立万](https://www.blog.minike.top/Article/details/12731080883.shtml)
+- 2026-06-30 05:53 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/365352.shtml)
+- 2026-06-30 05:50 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/83551178955.shtml)
+- 2026-06-30 05:35 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/324470827.shtml)
+- 2026-06-30 05:37 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/331214.shtml)
+- 2026-06-30 05:43 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/162085047929.shtml)
+- 2026-06-30 05:29 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/1442802.shtml)
+- 2026-06-30 05:32 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/2386898.shtml)

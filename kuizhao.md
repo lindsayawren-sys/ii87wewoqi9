@@ -1,56 +1,47 @@
-# 新疆首位登顶珠峰女性：从雪山之巅到登山文化“守护者”
+# “走进泰国-泰国营商环境、优惠政策及投资机遇”投资推介会
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐4月29日电 (胡嘉琛)在新疆乌鲁木齐县南山脚下，有一座名为“麦子庄园”的民宿。它的主人，是新疆首位成功登顶珠穆朗玛峰的女性——麦子(本名马丽娅姆)。她用二十余年的时间，完成了从户外探险者到登山文化“守护者”的转型。 珠峰玫瑰：两次问鼎世界之巅 马丽娅姆的登山履历，写满了坚韧与勇气。她曾是一名中医护士，2005年起，以登山队随行队医身份进入乌鲁木齐市登山探险协会从
+活动简介 为深化中泰经贸合作，助力中国企业把握泰国投资机遇，搭建高效务实的跨境投资对接平台，泰国投资促进委员会北京办事处、中国国际贸易促进委员会商事法律服务中心联合举办“走进泰国——泰国营商环境、优惠政策及投资机遇”投资推介会。 本次活动依托2026中国国际供应链博览会(CISCE) 举办，聚焦泰国投资政策、优势产业、金融服务、园区基建及法律合规等核心内容，邀请泰国官方机构、金
 
 ## 正文
 
-中新网乌鲁木齐4月29日电 (胡嘉琛)在新疆乌鲁木齐县南山脚下，有一座名为“麦子庄园”的民宿。
+活动简介 为深化中泰经贸合作，助力中国企业把握泰国投资机遇，搭建高效务实的跨境投资对接平台，泰国投资促进委员会北京办事处、中国国际贸易促进委员会商事法律服务中心联合举办“走进泰国——泰国营商环境、优惠政策及投资机遇”投资推介会。
 
-它的主人，是新疆首位成功登顶珠穆朗玛峰的女性——麦子(本名马丽娅姆)。
+本次活动依托2026中国国际供应链博览会(CISCE) 举办，聚焦泰国投资政策、优势产业、金融服务、园区基建及法律合规等核心内容，邀请泰国官方机构、金融机构、产业园区及专业服务机构代表权威解读，为企业赴泰投资提供全流程指引与实务支持。
 
-她用二十余年的时间，完成了从户外探险者到登山文化“守护者”的转型。
-
-珠峰玫瑰：两次问鼎世界之巅 马丽娅姆的登山履历，写满了坚韧与勇气。
-
-她曾是一名中医护士，2005年起，以登山队随行队医身份进入乌鲁木齐市登山探险协会从事后勤服务，投身高海拔登山事业。
-
-此后，她从后勤走到前线。
-
-“攀登珠峰，是人类对自然的探索，更是意志的磨砺。
-
-”马丽娅姆说，每一次攀登都是与极限的对话。
+活动日程12:45-13:15 嘉宾签到入场 第一部分 致辞环节 13:15-13:20 演讲嘉宾介绍 13:20-13:30 泰国投资促进委员会领导发表致辞 13:30-13:40 中国贸促会领导发表致辞 第二部分 主题分享 13:40-14:00 泰国投资促进委员会(BOI)北京办事处主任陈安先生 《泰国投资促进政策及机遇领域》 14:00-14:20 中国工商银行(泰国)股份有限公司高级营销经理冰雪女士 《跨境投资一站式金融解决方案 》 14:20-14:40 泰国304工业园招商投资总监赵大鲲先生 《适配中国投资的综合产业基建体系》 14:40-14:50 中国国际贸易促进委员会商事法律服务中心王岱凌女士 《投资者赴泰投资必备须知》 14:50-15:00 问答互动环节 来源：中国国际贸易促进委员会网站
 
 ## 相关推荐
 
-- 2026-06-30 05:18 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 05:25 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 05:29 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 05:26 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 05:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 05:38 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 05:24 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 05:20 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 05:47 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 05:43 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 05:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 05:40 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 05:41 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 05:30 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 05:53 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 05:40 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 05:26 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 05:53 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 05:49 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 05:45 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 05:39 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/051635.shtml)
-- 2026-06-30 05:28 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/0595623041.shtml)
-- 2026-06-30 05:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/51742529002.shtml)
-- 2026-06-30 05:37 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/457288.shtml)
-- 2026-06-30 05:18 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/23498.shtml)
-- 2026-06-30 05:20 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/474928573.shtml)
-- 2026-06-30 05:40 - [乔家的儿女](http://www.share.minike.top/Article/details/69116731.shtml)
-- 2026-06-30 05:18 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/70199141481.shtml)
-- 2026-06-30 05:18 - [青春环游记第三季](http://www.blog.minike.top/Article/details/272487859.shtml)
-- 2026-06-30 05:21 - [张凌赫 客串](http://www.blog.minike.top/Article/details/33837977.shtml)
-- 2026-06-30 05:19 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/0769186309.shtml)
-- 2026-06-30 05:37 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/335070.shtml)
-- 2026-06-30 05:28 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/36898869.shtml)
-- 2026-06-30 05:39 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/57867240645.shtml)
-- 2026-06-30 05:20 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/784887125911.shtml)
+- 2026-06-30 05:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/5423494422.shtml)
+- 2026-06-30 05:36 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/2497435.shtml)
+- 2026-06-30 05:49 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/9346478.shtml)
+- 2026-06-30 05:45 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/4267535.shtml)
+- 2026-06-30 05:33 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/9292783292.shtml)
+- 2026-06-30 05:41 - [第一炉香](http://www.share.kurohicncr.top/Article/details/517947.shtml)
+- 2026-06-30 05:51 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/73240868218.shtml)
+- 2026-06-30 05:26 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/4826101626.shtml)
+- 2026-06-30 05:50 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/09833241.shtml)
+- 2026-06-30 05:37 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/121081372248.shtml)
+- 2026-06-30 05:41 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/10535210.shtml)
+- 2026-06-30 05:32 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/5174899.shtml)
+- 2026-06-30 05:49 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/62493125.shtml)
+- 2026-06-30 05:39 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/397083.shtml)
+- 2026-06-30 05:47 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/74424143293.shtml)

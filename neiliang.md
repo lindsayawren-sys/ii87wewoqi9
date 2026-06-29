@@ -1,56 +1,53 @@
-# “十四五”期间 福建省共处理新就业形态劳动争议案件2604件
+# 中国人民银行副行长陶玲出席中国互联网金融协会成立十周年工作座谈会
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网福州4月29日电 (郑江洛)29日，福建省人力资源和社会保障厅副厅长洪长春在福州召开的新闻发布会上披露，“十四五”期间，全省共处理新就业形态劳动争议案件2604件，涉及劳动者3265人，涉案金额1.53亿元(人民币，下同)。据统计，厦门、泉州、漳州、福州案件数分别为1404件、583件、135件、134件，涉案人数分别为1628人、932人、160人、134人，涉案金额分
+近日，中国互联网金融协会召开成立十周年工作座谈会。中国人民银行党委委员、副行长陶玲出席会议并讲话。 陶玲指出，十年来，中国人民银行以习近平新时代中国特色社会主义思想为指导，认真落实党中央国务院决策部署，推动中国互联网金融协会走中国特色金融发展之路，以强监管、防风险、促发展为主线，敦促互联网金融行业深刻汲取风险教训，强化金融运行规律认识，依法合规经营，全面接受金融监管。下一步，中
 
 ## 正文
 
-中新网福州4月29日电 (郑江洛)29日，福建省人力资源和社会保障厅副厅长洪长春在福州召开的新闻发布会上披露，“十四五”期间，全省共处理新就业形态劳动争议案件2604件，涉及劳动者3265人，涉案金额1.53亿元(人民币，下同)。
+近日，中国互联网金融协会召开成立十周年工作座谈会。
 
-据统计，厦门、泉州、漳州、福州案件数分别为1404件、583件、135件、134件，涉案人数分别为1628人、932人、160人、134人，涉案金额分别为7056万元、3278万元、1079万元、842万元。
+中国人民银行党委委员、副行长陶玲出席会议并讲话。
 
-“上述四个地市案件总数占全省八成以上，反映出全省新就业形态劳动争议主要集中在沿海地区，尤其是厦门、泉州两地比较突出。
+陶玲指出，十年来，中国人民银行以习近平新时代中国特色社会主义思想为指导，认真落实党中央国务院决策部署，推动中国互联网金融协会走中国特色金融发展之路，以强监管、防风险、促发展为主线，敦促互联网金融行业深刻汲取风险教训，强化金融运行规律认识，依法合规经营，全面接受金融监管。
 
-”洪长春说。
+下一步，中国互联网金融协会要立足全国性行业自律组织定位，进一步健全自身治理机制，完善行业自律制度，强化行业自律功能，助力金融监管；要带领广大会员机构，严格树立法治理念，健全公司治理和内部管理，规范经营行为，加强风险防控，促进行业规范健康发展，服务经济社会高质量发展。
 
-洪长春介绍，全省处理新就业形态劳动争议案件中，涉互联网营销师、网约配送员、快递物流案件数量分别为1350件、776件、121件，分别占全省案件总量的51.9%、29.8%、4.7%。
+中国人民银行相关司局负责同志、协会党委班子成员及会员机构代表参加会议。
 
-上述数据反映出网络主播、网约配送员是新就业形态劳动争议的主要高发群体，其用工关系复杂、平台管理方式特殊等因素易导致权益纠纷更为集中。
-
-据了解，全省新就业形态劳动争议案件的结案方式主要有两种，分别是裁决、调撤(调解、撤回、撤销)，其中，裁决结案案件927件，占全省案件总量的35.6%；调撤结案案件1315件，占全省案件总量的50.5%。
-
-洪长春指出，上述数据反映出在新就业形态争议处理中，非裁决处理是解决争议的主要方式，也反映出福建省注重前端调解、柔性化解争议，调解机制在争议处理中发挥了更为突出的作用，源头预防和多元化解纠纷方面成效明显。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 05:22 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 05:43 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 05:40 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 05:38 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 05:39 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 05:38 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 05:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 05:46 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 05:31 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 05:20 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 05:27 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 05:46 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 05:33 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 05:41 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 05:43 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 05:45 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 05:32 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 05:38 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 05:41 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 05:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 05:42 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:36 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/910591090075.shtml)
-- 2026-06-30 05:37 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/3940494455.shtml)
-- 2026-06-30 05:23 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/638035000.shtml)
-- 2026-06-30 05:41 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/511472591.shtml)
-- 2026-06-30 05:22 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/587166584.shtml)
-- 2026-06-30 05:23 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/746601917.shtml)
-- 2026-06-30 05:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/718832.shtml)
-- 2026-06-30 05:24 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/479636175.shtml)
-- 2026-06-30 05:19 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/69371768686.shtml)
-- 2026-06-30 05:30 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/027125388489.shtml)
-- 2026-06-30 05:43 - [绘画区你赢了](https://www.share.minike.top/Article/details/50707793211.shtml)
-- 2026-06-30 05:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/384350.shtml)
-- 2026-06-30 05:40 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/238389132499.shtml)
-- 2026-06-30 05:23 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/66921166.shtml)
-- 2026-06-30 05:31 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/8409542.shtml)
+- 2026-06-30 05:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/342183.shtml)
+- 2026-06-30 05:25 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/70149264925.shtml)
+- 2026-06-30 05:38 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/208238636.shtml)
+- 2026-06-30 05:25 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/4775764.shtml)
+- 2026-06-30 05:53 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/807941171.shtml)
+- 2026-06-30 05:30 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/856610019147.shtml)
+- 2026-06-30 05:27 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/74911568035.shtml)
+- 2026-06-30 05:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/18982164.shtml)
+- 2026-06-30 05:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/021362388674.shtml)
+- 2026-06-30 05:28 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/5998764190.shtml)
+- 2026-06-30 05:34 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/136261.shtml)
+- 2026-06-30 05:41 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/1089333.shtml)
+- 2026-06-30 05:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/98481772.shtml)
+- 2026-06-30 05:33 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/89178.shtml)
+- 2026-06-30 05:53 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/064009333229.shtml)

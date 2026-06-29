@@ -1,60 +1,56 @@
-# 助力打造内陆开放高地 重庆涉外律所已达81家
+# 1500多项作品晋级第三届雄安未来之城场景汇系列大赛决赛
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网重庆4月28日电 (李雪 梁钦卿)重庆市律师协会28日发布《重庆律师行业社会责任报告(2025年度)》。报告称，2025年重庆市实体化运行中国—东盟法律服务中心、西部陆海新通道国际法务区，全市涉外律师781人，涉外律所81家。 截至2025年底，重庆市律师从业人员从18953人增长到20313人、律所达1117家，律师业务量48.8万件、行业服务总产值71.05亿元，分别
+中新网雄安6月2日电 (赵丹媚 韩冰)6月2日，第三届雄安未来之城场景汇系列大赛决赛暨新场景展示体验月活动新闻发布会在雄安新区召开。据悉，1500多项作品晋级第三届雄安未来之城场景汇系列大赛决赛。 本届场景汇共有3400多家国内外企业团队、4500多项作品参赛，1500多项作品晋级决赛。活动期间还将召开雄安人工智能、低空经济、智慧医疗、智慧快递物流等产业生态大会或学术交流会，组
 
 ## 正文
 
-中新网重庆4月28日电 (李雪 梁钦卿)重庆市律师协会28日发布《重庆律师行业社会责任报告(2025年度)》。
+中新网雄安6月2日电 (赵丹媚 韩冰)6月2日，第三届雄安未来之城场景汇系列大赛决赛暨新场景展示体验月活动新闻发布会在雄安新区召开。
 
-报告称，2025年重庆市实体化运行中国—东盟法律服务中心、西部陆海新通道国际法务区，全市涉外律师781人，涉外律所81家。
+据悉，1500多项作品晋级第三届雄安未来之城场景汇系列大赛决赛。
 
-截至2025年底，重庆市律师从业人员从18953人增长到20313人、律所达1117家，律师业务量48.8万件、行业服务总产值71.05亿元，分别同比增长12.18%、10.16%，主要发展指标继续保持西部领先、全国前列。
+本届场景汇共有3400多家国内外企业团队、4500多项作品参赛，1500多项作品晋级决赛。
 
-在规模化上，重庆市2025年新引进近20家规模律所来渝设立分所，全国百强律所在渝机构达58家；新增10家律所在市外设立分支机构11家，并首次在西藏、新疆设立分所，服务辐射范围持续扩大。
+活动期间还将召开雄安人工智能、低空经济、智慧医疗、智慧快递物流等产业生态大会或学术交流会，组织系列场景、产业、资本对接活动。
 
-在增强涉外服务能力方面，重庆市律师协会2025年组织考察团赴新加坡、越南、马来西亚交流学习，赴澳门就深化渝澳两地法律服务合作洽谈交流，为重庆律师行业“走出去”发展、国际市场拓展、律师人才培养等奠定合作基础。
+据介绍，本届场景汇系列大赛决赛，共有60多家行业龙头企业、230多家国家级专精特新企业、40多家科研院所、20多家知名高校入围。
 
-同时，重庆市律师协会与马来西亚、柬埔寨、印度尼西亚、老挝、泰国、东帝汶等东盟国家律师公会或律师协会签署合作备忘录，与重庆国际商事仲裁院等11家单位共同签署战略合作框架协议。
+每项大赛都涌现出了一批颠覆性、原创性、引领性的创新成果，智能化无人化技术装备占比大幅提升，首发首创技术产品创下新高。
 
-推动新增5家重庆律所与共建“一带一路”国家的法律服务机构签署合作协议，重庆市律师行业与东盟法律服务合作网络持续扩张，助力重庆加快打造内陆开放高地。
+此外，本届场景汇将与决赛同步举办为期一个月的新场景展示体验活动，共安排常态化展示体验区3000平方米、临时展示体验区5000平方米，聚焦智能化、无人化、绿色化方向，以实物样品、沙盘模型、视频图文、元宇宙等方式，重点展示已经落地和正在落地的约700项高价值小切口和综合性重大场景，让人们在这里触摸未来技术、拥抱未来场景。
 
-截至2025年底，重庆市21家律所与新加坡、越南、阿联酋等11个国家的律所建立稳定合作机制，涉外法律服务核心资源矩阵初步形成。
+本届场景汇以“场景驱动创新、新质引领未来”为主题，将于6月10日至7月10日在雄安新区集中举办系列大赛决赛。
 
 ## 相关推荐
 
-- 2026-06-30 05:34 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 05:30 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 05:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 05:36 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 05:41 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 05:35 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 05:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 05:28 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 05:27 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 05:38 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 05:31 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 05:42 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 05:33 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-30 05:42 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 05:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 05:43 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 05:39 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 05:53 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 05:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 05:28 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 05:45 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 05:27 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 05:50 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 05:46 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:24 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/87981.shtml)
-- 2026-06-30 05:47 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/63144692.shtml)
-- 2026-06-30 05:35 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/382063451.shtml)
-- 2026-06-30 05:19 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/872845693.shtml)
-- 2026-06-30 05:23 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/7771682097.shtml)
-- 2026-06-30 05:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/119788.shtml)
-- 2026-06-30 05:44 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/68898010614.shtml)
-- 2026-06-30 05:46 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/49136.shtml)
-- 2026-06-30 05:33 - [一见倾心](https://www.blog.minike.top/Article/details/822728908635.shtml)
-- 2026-06-30 05:45 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/1244987.shtml)
-- 2026-06-30 05:30 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/6973007.shtml)
-- 2026-06-30 05:45 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/948759482601.shtml)
-- 2026-06-30 05:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/10967.shtml)
-- 2026-06-30 05:47 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/15424982.shtml)
-- 2026-06-30 05:44 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/929242.shtml)
+- 2026-06-30 05:24 - [极限挑战第一季](https://www.share.minike.top/Article/details/765912870.shtml)
+- 2026-06-30 05:46 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/008184296273.shtml)
+- 2026-06-30 05:25 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/64325925.shtml)
+- 2026-06-30 05:47 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/2913260166.shtml)
+- 2026-06-30 05:50 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/058598064134.shtml)
+- 2026-06-30 05:42 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/816208754.shtml)
+- 2026-06-30 05:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/64842716.shtml)
+- 2026-06-30 05:42 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/64189.shtml)
+- 2026-06-30 05:43 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/557141074.shtml)
+- 2026-06-30 05:32 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/7288590457.shtml)
+- 2026-06-30 05:43 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/8220704.shtml)
+- 2026-06-30 05:31 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/838697.shtml)
+- 2026-06-30 05:41 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/248003354.shtml)
+- 2026-06-30 05:31 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/1588565841.shtml)
+- 2026-06-30 05:53 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/309438008.shtml)

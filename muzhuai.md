@@ -1,57 +1,59 @@
-# 央行上海总部：一季度上海共发生外卡刷卡交易超190万笔 同比增长52%
+# 国产之“光”爆单 光纤光缆企业订单排产已到2027年
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网上海4月28日电 (高志苗)中国人民银行上海总部金融服务一部副主任辛然28日在2026年第二季度新闻发布会上介绍，截至2026年3月末，全市6.7万家商户、9.7万台POS机支持受理境内、外银行卡；2026年一季度，上海市共发生外卡刷卡交易超190万笔、金额近30亿元，同比分别增长了52%和37%。多层次现金服务方面，上海总部组织辖内银行、外币兑换特许机构不断拓展外卡取现
+国产之“光”，爆单 受AI算力建设驱动，光纤光缆企业的订单饱满。江苏苏州一个光通信科技园区内，产线负责人介绍，自2025年4季度以来，企业就已经满负荷生产，目前订单排产已到2027年。 但当前光纤光缆企业产能扩张的最大瓶颈，正是被称为“光棒”的光纤预制棒。面对旺盛需求，国内头部企业正加速布局光棒自研与扩产。 光棒可分为A、B、C三大类，其中，A2类光纤预制棒作为高端产品分类正出
 
 ## 正文
 
-中新网上海4月28日电 (高志苗)中国人民银行上海总部金融服务一部副主任辛然28日在2026年第二季度新闻发布会上介绍，截至2026年3月末，全市6.7万家商户、9.7万台POS机支持受理境内、外银行卡；2026年一季度，上海市共发生外卡刷卡交易超190万笔、金额近30亿元，同比分别增长了52%和37%。
+国产之“光”，爆单 受AI算力建设驱动，光纤光缆企业的订单饱满。
 
-多层次现金服务方面，上海总部组织辖内银行、外币兑换特许机构不断拓展外卡取现和外币兑换服务广度，加强现金自助机具小面额取现功能改造，畅通零钱包兑换绿色通道，分阶段推进零钱包自助兑换机试点应用。
+江苏苏州一个光通信科技园区内，产线负责人介绍，自2025年4季度以来，企业就已经满负荷生产，目前订单排产已到2027年。
 
-移动支付服务效能方面，上海总部指导支付宝公司结合用户支付习惯和偏好，持续优化“外卡内绑”“外包内用”移动支付服务，提升产品使用便利性，并拓展可入境使用的境外钱包数量，至3月末已支持境外13个国家和地区的20个电子钱包或钱包网络入境使用。
+但当前光纤光缆企业产能扩张的最大瓶颈，正是被称为“光棒”的光纤预制棒。
 
-今年以来，支付宝、财付通“外卡内绑”“外包内用”移动支付业务保持高速增长，2026年一季度，在沪发生交易达3400万笔、金额超30亿元，同比分别增长了104%和97%。
+面对旺盛需求，国内头部企业正加速布局光棒自研与扩产。
 
-同时，会同市政府外办等部门合力打造推出一站式入境游聚合服务平台“入境通Easy Go”，整合餐饮、出行、文旅、购物等高频需求场景软件服务，并实时发布入境游公共服务等信息，使外籍来沪人员在支付无忧的基础上一站式畅享境内便利化数字生活。
+光棒可分为A、B、C三大类，其中，A2类光纤预制棒作为高端产品分类正出现爆发式需求，平均价格较去年初暴涨近550%。
 
-辛然表示，中国人民银行上海总部在巩固、优化已有工作成果的基础上，也积极探索、持续发力，组织各支付服务主体结合上海市提振消费、促进入境旅游等重点工作部署，进一步完善重点场景支付受理环境。
+光纤光缆订单饱满 头部企业加速布局光棒自研自产 在江苏苏州的一个光通信科技园区内，产线上一根根120微米的光纤以每秒几十米的速度被拉丝、冷却，经过涂覆后，再收线。
 
-具体来看，成功在上海地铁试点上线刷卡过闸功能。
+产线负责人许永告诉记者，自2025年4季度以来，企业就已经满负荷生产，目前订单排产已到2027年。
 
-上海总部会同市委金融办分别协调人民银行数字货币数研所、中国银联、主要国际卡组织、主要银行和申通地铁全力推进上海地铁刷卡过闸项目，2025年6月14日推动在上海磁浮线试点上线银行卡及数字人民币硬钱包刷卡过闸功能，2025年6月28日，试点扩大至上海轨道交通全线网，境内居民、境外旅客等可以使用银联、Visa、Mastercard、American Express、JCB银行卡和数字人民币硬钱包在上海地铁刷卡过闸。
+据了解，目前直接制约全球光纤供给能力的就是上游材料——光纤预制棒，俗称“光棒”。
 
 ## 相关推荐
 
-- 2026-06-30 05:26 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 05:46 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 05:30 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 05:40 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 05:36 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 05:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 05:43 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 05:31 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 05:18 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 05:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 05:18 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 05:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 05:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 05:29 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 05:38 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 05:44 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 05:39 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-30 05:50 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 05:40 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 05:50 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 05:24 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 05:24 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 05:48 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 05:48 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:22 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/309666.shtml)
-- 2026-06-30 05:25 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/51185906599.shtml)
-- 2026-06-30 05:34 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/5007711340.shtml)
-- 2026-06-30 05:44 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/61152366702.shtml)
-- 2026-06-30 05:43 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/89201.shtml)
-- 2026-06-30 05:28 - [巴西绝杀](http://www.share.minike.top/Article/details/482764628.shtml)
-- 2026-06-30 05:19 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/94699457.shtml)
-- 2026-06-30 05:21 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/89256.shtml)
-- 2026-06-30 05:47 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/283231305349.shtml)
-- 2026-06-30 05:27 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/81724.shtml)
-- 2026-06-30 05:43 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/19316591.shtml)
-- 2026-06-30 05:44 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/30438398059.shtml)
-- 2026-06-30 05:47 - [恋与深空 日服](http://www.blog.minike.top/Article/details/302023.shtml)
-- 2026-06-30 05:23 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/41740.shtml)
-- 2026-06-30 05:27 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/3724459.shtml)
+- 2026-06-30 05:51 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/74757278679.shtml)
+- 2026-06-30 05:29 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/049320776036.shtml)
+- 2026-06-30 05:33 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/03686422684.shtml)
+- 2026-06-30 05:49 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/45634.shtml)
+- 2026-06-30 05:45 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/897294724013.shtml)
+- 2026-06-30 05:31 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/52276974.shtml)
+- 2026-06-30 05:48 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/88549.shtml)
+- 2026-06-30 05:35 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/259447936.shtml)
+- 2026-06-30 05:25 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/049394.shtml)
+- 2026-06-30 05:35 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/3050523586.shtml)
+- 2026-06-30 05:51 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/619594.shtml)
+- 2026-06-30 05:40 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/021508.shtml)
+- 2026-06-30 05:43 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/829645.shtml)
+- 2026-06-30 05:48 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/947090.shtml)
+- 2026-06-30 05:48 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/90244530065.shtml)

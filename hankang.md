@@ -1,55 +1,57 @@
-# 中国人寿绩后涨超5% 第一季度新业务价值同比增长75.5%
+# 2026穗港澳青少年文化交流季正式启动
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中国人寿（02628）绩后涨超5%，截至发稿，股价上涨5.18%，现报28.82港元，成交额6.27亿港元。 中国人寿发布一季度业绩，营业收入为932.91亿元，同比减少15.3%；归属于母公司股东的净利润为195.05亿元，同比减少32.3%。 中金指出，公司一季度业绩好于预期，主要由于投资端表现好于预期；新业务价值（NBV）同比增长75.5%，大幅好于该行和市场预期；归母净
+中新网广州6月3日电 (记者 程景伟)2026穗港澳青少年文化交流季3日在广州购书中心正式启动。 当天，来自广州市中黄港澳子弟学校的100余名学生率先踏上“城脉”主题研学之旅，前往广州艺博院品味艺术珍品。在随后的交流季启动仪式上，他们以精品舞蹈《梦回花旦》惊艳亮相，将传统粤剧身段与现代表达巧妙融合，生动诠释港澳新生代对岭南文化的传承与创新。 现场同步点亮“文化之扇”主题装置，象
 
 ## 正文
 
-中国人寿（02628）绩后涨超5%，截至发稿，股价上涨5.18%，现报28.82港元，成交额6.27亿港元。
+中新网广州6月3日电 (记者 程景伟)2026穗港澳青少年文化交流季3日在广州购书中心正式启动。
 
-中国人寿发布一季度业绩，营业收入为932.91亿元，同比减少15.3%；归属于母公司股东的净利润为195.05亿元，同比减少32.3%。
+当天，来自广州市中黄港澳子弟学校的100余名学生率先踏上“城脉”主题研学之旅，前往广州艺博院品味艺术珍品。
 
-中金指出，公司一季度业绩好于预期，主要由于投资端表现好于预期；新业务价值（NBV）同比增长75.5%，大幅好于该行和市场预期；归母净资产较年初+0.5%。
+在随后的交流季启动仪式上，他们以精品舞蹈《梦回花旦》惊艳亮相，将传统粤剧身段与现代表达巧妙融合，生动诠释港澳新生代对岭南文化的传承与创新。
 
-该行指出，投资端承压拖累净利润，实际表现好于预期。
+现场同步点亮“文化之扇”主题装置，象征三地文化同源、心意相连，并正式发布“城脉、商脉、文脉、山脉、水脉”五条主题研学路线。
 
-受一季度资本市场波动及去年同期基数较高影响，第一季度国寿总投资收益率同比下降0.5ppt至2.21%，导致净利润同比承压，但公司实际投资表现好于我们和市场预期，支撑净利润水平好于预期。
+“城脉”路线当天率先启动，其余四条路线则将于6月至10月陆续组织实施，每条路线均配备专业讲解及非遗手作体验活动。
 
-责任编辑：卢昱君
+系列城市主题手绘图书《老广新游》主创王大欣带来“图解广府文化”专题讲座，从多元视角帮助港澳青少年深入理解岭南历史与广府文脉。
+
+据介绍，本届交流季以名家讲座与主题研学活动为两大核心板块，面向穗港澳三地青少年系统展开。
+
+其中，名家讲座围绕“文学共鸣·文化认同”主线，内容涵盖岭南历史、饮食文化、城市记忆、非遗传承及儿童文学等多元领域，助力穗港澳学子在倾听中读懂岭南。
 
 ## 相关推荐
 
-- 2026-06-30 05:43 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-30 05:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 05:26 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 05:34 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 05:19 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 05:39 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 05:42 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 05:22 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 05:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 05:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 05:24 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 05:43 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-30 05:29 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 05:35 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 05:53 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 05:43 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 05:37 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 05:46 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 05:51 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 05:49 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 05:25 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 05:29 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 05:34 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 05:53 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/82866858091.shtml)
-- 2026-06-30 05:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/283590618.shtml)
-- 2026-06-30 05:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/12012.shtml)
-- 2026-06-30 05:34 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/87596.shtml)
-- 2026-06-30 05:33 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/75459907256.shtml)
-- 2026-06-30 05:19 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/539820579694.shtml)
-- 2026-06-30 05:33 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/78285.shtml)
-- 2026-06-30 05:26 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/104352408.shtml)
-- 2026-06-30 05:22 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/50091052344.shtml)
-- 2026-06-30 05:27 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/443319.shtml)
-- 2026-06-30 05:25 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/5863380.shtml)
-- 2026-06-30 05:25 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/4455363748.shtml)
-- 2026-06-30 05:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/209119051270.shtml)
-- 2026-06-30 05:41 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/897363.shtml)
-- 2026-06-30 05:34 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/7604035.shtml)
+- 2026-06-30 05:44 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/26535161626.shtml)
+- 2026-06-30 05:49 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/778359561.shtml)
+- 2026-06-30 05:37 - [金刚川](http://www.blog.minike.top/Article/details/15922.shtml)
+- 2026-06-30 05:24 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/71682.shtml)
+- 2026-06-30 05:48 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/5966102.shtml)
+- 2026-06-30 05:24 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/832120225.shtml)
+- 2026-06-30 05:35 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/155999884184.shtml)
+- 2026-06-30 05:53 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/41910.shtml)
+- 2026-06-30 05:33 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/7209035598.shtml)
+- 2026-06-30 05:35 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/60931.shtml)
+- 2026-06-30 05:51 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/073979508.shtml)
+- 2026-06-30 05:24 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/73631.shtml)
+- 2026-06-30 05:43 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/86379764.shtml)
+- 2026-06-30 05:49 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/714623965.shtml)
+- 2026-06-30 05:47 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/3013086050.shtml)

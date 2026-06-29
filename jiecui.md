@@ -1,45 +1,59 @@
-# 美国汽油价格触及四年高点
+# 南方两轮降雨接力来袭 大城市降雨日历看哪里高考期间需防雨
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-由于霍尔木兹海峡中断和原油价格坚挺，平均汽油价格达到每加仑4.18美元，这对埃克森美孚和炼油企业来说是一个关键的宏观因素。责任编辑：张俊 SF065
+中国天气网讯 南方“雨雨雨”模式又上线了！昨天(6月2日)夜间起，南方降雨再度回归，未来七天有两轮过程无缝衔接，强降雨将波及贵州、湖南、江西等十余省份。恰逢高考倒计时，中国天气网特别推出大城市降雨日历，盘点雨水全勤区域，提醒当地考生及家长提早做好防雨备考准备。 随着冷空气南下、暖湿气流加强北上，南方新一轮降雨过程已经拉开帷幕。中国天气网气象分析师叶梦龙表示，未来一周，南方有两轮
 
 ## 正文
 
-由于霍尔木兹海峡中断和原油价格坚挺，平均汽油价格达到每加仑4.18美元，这对埃克森美孚和炼油企业来说是一个关键的宏观因素。
+中国天气网讯 南方“雨雨雨”模式又上线了！
 
-责任编辑：张俊 SF065
+昨天(6月2日)夜间起，南方降雨再度回归，未来七天有两轮过程无缝衔接，强降雨将波及贵州、湖南、江西等十余省份。
+
+恰逢高考倒计时，中国天气网特别推出大城市降雨日历，盘点雨水全勤区域，提醒当地考生及家长提早做好防雨备考准备。
+
+随着冷空气南下、暖湿气流加强北上，南方新一轮降雨过程已经拉开帷幕。
+
+中国天气网气象分析师叶梦龙表示，未来一周，南方有两轮降雨过程接力来袭，分别出现在3日至4日、5日至9日。
+
+两次过程都具有影响范围广、持续时间长、局地累计雨量大等特点，部分地区还将伴有短时强降水、雷暴大风等强对流天气。
+
+从中国天气网推出的南方大城市降雨日历来看，6月3日至9日，西南地区东部、江南、华南等地的多个大城市会陷入雨水车轮战。
+
+其中，广州、福州、昆明将雨水全勤，周日至下周初雨势较强；长沙也几乎雨水天天见，雨日可达6天；南昌、杭州、贵阳、南宁同样阴雨连连，7天中有5天都在下雨。
 
 ## 相关推荐
 
-- 2026-06-30 05:34 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 05:48 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 05:25 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 05:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 05:28 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 05:43 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 05:33 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 05:35 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 05:21 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 05:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 05:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 05:38 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 05:37 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 05:53 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 05:47 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 05:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 05:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 05:48 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 05:44 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 05:40 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 05:33 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 05:32 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 05:36 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 05:31 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:28 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/28110398057.shtml)
-- 2026-06-30 05:47 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/14548984389.shtml)
-- 2026-06-30 05:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/8960266.shtml)
-- 2026-06-30 05:41 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/9458842450.shtml)
-- 2026-06-30 05:24 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/336160028.shtml)
-- 2026-06-30 05:23 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/11871.shtml)
-- 2026-06-30 05:19 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/682746647.shtml)
-- 2026-06-30 05:28 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/2598235.shtml)
-- 2026-06-30 05:27 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/402075216021.shtml)
-- 2026-06-30 05:27 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/775749.shtml)
-- 2026-06-30 05:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/897045.shtml)
-- 2026-06-30 05:40 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/95090.shtml)
-- 2026-06-30 05:18 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/701453.shtml)
-- 2026-06-30 05:25 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/766002096974.shtml)
-- 2026-06-30 05:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/820314090098.shtml)
+- 2026-06-30 05:46 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/687100.shtml)
+- 2026-06-30 05:35 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/99213.shtml)
+- 2026-06-30 05:26 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/9769692.shtml)
+- 2026-06-30 05:39 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/39063659.shtml)
+- 2026-06-30 05:42 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/35596630.shtml)
+- 2026-06-30 05:33 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/60565.shtml)
+- 2026-06-30 05:46 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/283427137827.shtml)
+- 2026-06-30 05:35 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/88102797936.shtml)
+- 2026-06-30 05:46 - [急先锋](http://www.share.kurohicncr.top/Article/details/75294378.shtml)
+- 2026-06-30 05:40 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/3444954494.shtml)
+- 2026-06-30 05:26 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/23241417.shtml)
+- 2026-06-30 05:46 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/92218282.shtml)
+- 2026-06-30 05:46 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/723750874259.shtml)
+- 2026-06-30 05:44 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/35945206695.shtml)
+- 2026-06-30 05:44 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/691307955.shtml)

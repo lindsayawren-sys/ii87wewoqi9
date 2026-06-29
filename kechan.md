@@ -1,50 +1,56 @@
-# 科笛-B获FIDELITY CHINA SPECIAL SITUATIONS PLC增持3.06万股
+# 中信证券：“关税交易”再起，铜价有望再创新高
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，4月23日，FIDELITY CHINA SPECIAL SITUATIONS PLC增持科笛-B（02487）3.06万股，每股作价4.6041港元，总金额约为14.09万港元。增持后最新持股数目约为1826.09万股，最新持股比例为5.01%。责任编辑：卢昱君
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中信证券研究 文|涂耀廷 拜俊飞 敖翀 美铜关税评估的最终时点临近，“关税交易”与库存囤积重回铜市场主线。我们认为，海外“备货性”库存囤积为铜基本面提供坚实支撑，而近期COMEX库存加速攀升所反映的“交易性”库存囤积，有望激化铜价和铜板块走强，年内铜价高点有望冲击15000美元/吨。重点推荐铜板块盈利弹性与
 
 ## 正文
 
-香港联交所最新数据显示，4月23日，FIDELITY CHINA SPECIAL SITUATIONS PLC增持科笛-B（02487）3.06万股，每股作价4.6041港元，总金额约为14.09万港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-增持后最新持股数目约为1826.09万股，最新持股比例为5.01%。
+中信证券研究 文|涂耀廷 拜俊飞 敖翀 美铜关税评估的最终时点临近，“关税交易”与库存囤积重回铜市场主线。
 
-责任编辑：卢昱君
+我们认为，海外“备货性”库存囤积为铜基本面提供坚实支撑，而近期COMEX库存加速攀升所反映的“交易性”库存囤积，有望激化铜价和铜板块走强，年内铜价高点有望冲击15000美元/吨。
+
+重点推荐铜板块盈利弹性与估值弹性共振的配置机遇。
+
+▍“关税交易”与美铜库存囤积再起重燃市场情绪。
+
+2026年6月1日，LME铜和COMEX铜日度涨幅分别达到2.0%和2.8%，分别收于13897美元/吨和14485美元/吨。
+
+根据彭博社，美国商务部需在6月30日前向特朗普提交一份最新的铜市场评估报告，并对美国是否对精炼铜征收进口关税给出建议。
+
+此前美国从2025年8月1日起执行的关税方案未对精炼铜征收费用，计划从2027年起分阶段征收关税，起始税率为15%。
 
 ## 相关推荐
 
-- 2026-06-30 05:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 05:45 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 05:34 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 05:39 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 05:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 05:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 05:27 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 05:41 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 05:25 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 05:44 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-30 05:28 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 05:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 05:39 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 05:41 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 05:29 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 05:50 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 05:37 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-30 05:43 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 05:53 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 05:41 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 05:47 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 05:47 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 05:28 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 05:31 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:36 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/5136012.shtml)
-- 2026-06-30 05:45 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/9460062742.shtml)
-- 2026-06-30 05:44 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/147333.shtml)
-- 2026-06-30 05:33 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/930423.shtml)
-- 2026-06-30 05:30 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/4230135.shtml)
-- 2026-06-30 05:35 - [房价什么时候能涨](http://www.share.minike.top/Article/details/34603.shtml)
-- 2026-06-30 05:45 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/70061872.shtml)
-- 2026-06-30 05:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/92378356.shtml)
-- 2026-06-30 05:45 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/225700366.shtml)
-- 2026-06-30 05:41 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/25859.shtml)
-- 2026-06-30 05:29 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/359981.shtml)
-- 2026-06-30 05:33 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/69190718223.shtml)
-- 2026-06-30 05:23 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/569063.shtml)
-- 2026-06-30 05:29 - [日本领先巴西](https://www.share.minike.top/Article/details/77712.shtml)
-- 2026-06-30 05:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/60695.shtml)
+- 2026-06-30 05:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/908904653.shtml)
+- 2026-06-30 05:27 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/185672317968.shtml)
+- 2026-06-30 05:47 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/470690667.shtml)
+- 2026-06-30 05:39 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/37893190.shtml)
+- 2026-06-30 05:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/738724138913.shtml)
+- 2026-06-30 05:48 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/70704261.shtml)
+- 2026-06-30 05:40 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/67391093.shtml)
+- 2026-06-30 05:53 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/737487073678.shtml)
+- 2026-06-30 05:48 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/99678932738.shtml)
+- 2026-06-30 05:39 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/677913.shtml)
+- 2026-06-30 05:46 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/70843.shtml)
+- 2026-06-30 05:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/5800906.shtml)
+- 2026-06-30 05:31 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/6493430.shtml)
+- 2026-06-30 05:28 - [我们的少年时代2](https://www.blog.minike.top/Article/details/5901524.shtml)
+- 2026-06-30 05:50 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/54556295421.shtml)

@@ -1,61 +1,56 @@
-# 中国—印尼友好故事会在雅加达举办
+# “十四五”时期中国累计新设外资企业26.9万家
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新社雅加达4月28日电 (记者 李志全)“雅万高铁的共赢之路”中国—印尼友好故事会28日在印度尼西亚雅加达中国中车绿驰交流中心举办。两国政府机构、企业、智库、媒体及协会代表等出席，共话友好合作前景。 中国外文局局长常勃表示，雅万高铁开通运营两年多来，累计发送旅客已突破1500万人次，成为印尼民众出行的重要选择，也是两国合作共赢、民心相通的生动见证。雅万高铁的故事，既是科技赋能
+中新社北京6月3日电 (记者 王恩博)中国国家统计局3日公布的“十四五”经济社会发展成就系列报告显示，2021—2025年，中国累计新设外资企业26.9万家，比“十三五”时期增加6.6万家，外商投资规模保持高位。 根据报告，2021—2023年，中国连续3年实际使用外资突破1万亿元(人民币，下同)，实际使用外资额分别为11976亿元、12327亿元、11339亿元。 自2022
 
 ## 正文
 
-中新社雅加达4月28日电 (记者 李志全)“雅万高铁的共赢之路”中国—印尼友好故事会28日在印度尼西亚雅加达中国中车绿驰交流中心举办。
+中新社北京6月3日电 (记者 王恩博)中国国家统计局3日公布的“十四五”经济社会发展成就系列报告显示，2021—2025年，中国累计新设外资企业26.9万家，比“十三五”时期增加6.6万家，外商投资规模保持高位。
 
-两国政府机构、企业、智库、媒体及协会代表等出席，共话友好合作前景。
+根据报告，2021—2023年，中国连续3年实际使用外资突破1万亿元(人民币，下同)，实际使用外资额分别为11976亿元、12327亿元、11339亿元。
 
-中国外文局局长常勃表示，雅万高铁开通运营两年多来，累计发送旅客已突破1500万人次，成为印尼民众出行的重要选择，也是两国合作共赢、民心相通的生动见证。
+自2022年起，受全球经济增长乏力、债务高企、地缘政治冲突不断、主要经济体经贸政策复杂调整等因素影响，全球外国直接投资持续萎缩，逐步传导到中国，2023年起中国实际使用外资有所减少。
 
-雅万高铁的故事，既是科技赋能发展的结晶，也是中印尼两国文明互鉴的缩影。
+2024年和2025年，中国实际使用外资额分别为8263亿元、7477亿元，始终保持发展中经济体最大引资国地位。
 
-印尼驻华大使周浩黎发表视频致辞表示，雅万高铁不仅大幅缩短出行时间，还带动区域经济的发展，同时增强国际对印尼发展能力的信心。
+中国转型升级的产业领域尤其受外资青睐。
 
-中国驻印尼大使馆参赞王思平表示，雅万高铁是高质量共建“一带一路”的标志性成果，更是中国印尼文明交融的生动载体。
+2025年，中国高技术产业实际使用外资2418亿元，占实际使用外资总额的比重为32.3%，比2020年提高3.7个百分点。
 
-这条“钢铁丝路”成为两国文明交流的鲜活窗口。
+对外投资方面，2021—2024年，中国对外投资流量累计7114亿美元，年均增长5.7%，在全球投资市场的地位日益稳固。
 
-印尼交通部铁道司司长阿里夫表示，雅万高铁是中国印尼双方合作的成果。
+报告显示，2024年，中国对外直接投资1922亿美元，占全球当年流量的11.9%，连续13年位居世界前三，在全球份额连续9年保持超一成以上。
 
 ## 相关推荐
 
-- 2026-06-30 05:22 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 05:47 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 05:19 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 05:23 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 05:27 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 05:23 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 05:20 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 05:18 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 05:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 05:26 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 05:33 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 05:38 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 05:47 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 05:34 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 05:44 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 05:27 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 05:36 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 05:34 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 05:49 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 05:51 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 05:25 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 05:35 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 05:53 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 05:51 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 05:52 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:36 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/586937130568.shtml)
-- 2026-06-30 05:22 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/9455540912.shtml)
-- 2026-06-30 05:33 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/267316312.shtml)
-- 2026-06-30 05:38 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/85627849883.shtml)
-- 2026-06-30 05:36 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/848651898.shtml)
-- 2026-06-30 05:29 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/372227756893.shtml)
-- 2026-06-30 05:36 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/99906381.shtml)
-- 2026-06-30 05:37 - [爱很美味](http://www.share.minike.top/Article/details/98685999557.shtml)
-- 2026-06-30 05:29 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/3774294.shtml)
-- 2026-06-30 05:30 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/93828507324.shtml)
-- 2026-06-30 05:44 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/8483548.shtml)
-- 2026-06-30 05:19 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/912142.shtml)
-- 2026-06-30 05:26 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/224588224.shtml)
-- 2026-06-30 05:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/7374672.shtml)
-- 2026-06-30 05:46 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/700506673225.shtml)
+- 2026-06-30 05:35 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/8777263.shtml)
+- 2026-06-30 05:28 - [刘必安等16人非法集资案二审宣判](https://www.blog.kurohicncr.top/Article/details/44016.shtml)
+- 2026-06-30 05:53 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/30196967.shtml)
+- 2026-06-30 05:53 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/704376.shtml)
+- 2026-06-30 05:45 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/449264593151.shtml)
+- 2026-06-30 05:30 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/16173.shtml)
+- 2026-06-30 05:41 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/630275.shtml)
+- 2026-06-30 05:41 - [斗破苍穹](https://www.blog.minike.top/Article/details/9212439395.shtml)
+- 2026-06-30 05:46 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/09356.shtml)
+- 2026-06-30 05:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/60553.shtml)
+- 2026-06-30 05:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/64895923.shtml)
+- 2026-06-30 05:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/56536494.shtml)
+- 2026-06-30 05:35 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/0887911.shtml)
+- 2026-06-30 05:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/938624.shtml)
+- 2026-06-30 05:27 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/1657963945.shtml)

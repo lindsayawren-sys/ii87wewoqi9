@@ -1,56 +1,58 @@
-# 从《江河赋》到《鹊之桥》 苏州芭蕾舞团深化“江南芭蕾”风格体系
+# 柴犬凌晨遭男子用弩射中后掳走，德阳警方回应：嫌疑人已被抓获
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网苏州4月29日电 苏州芭蕾舞团原创舞蹈诗剧《江河赋》日前在泰州大剧院成功首演后，29日晚将亮相沈阳盛京大剧院，开启全国巡演的第一站。 《江河赋》是一部以“水”为魂、以“江”为脉、以“河”为韵的舞蹈诗剧。作品从“一滴水”出发，通过“水、墨、歌、月”四种情感原型，舞者们以身体为笔、以舞台为卷，用灵动的诗意和独特的舞蹈语汇勾勒出一幅流动的江河画卷。该剧由苏芭团长助理兼首席演员敖
+柴犬凌晨遭男子用弩射中后掳走，德阳警方回应：嫌疑人肖某(男，40岁)已被抓获 凌晨2点30分，一只黑色柴犬在马路边等待主人时，被骑摩托车的男子用疑似麻醉枪的工具射击后，装入白色口袋带走。这一幕，发生在5月底，位于德阳市天鹤南路。6月2日，封面新闻记者从德阳市警方获悉，该男子已被抓获，案件正在进一步审理当中。 狗主人杨女士提供给记者的一段监控录像显示，5月21日凌晨2点半左右，自
 
 ## 正文
 
-中新网苏州4月29日电 苏州芭蕾舞团原创舞蹈诗剧《江河赋》日前在泰州大剧院成功首演后，29日晚将亮相沈阳盛京大剧院，开启全国巡演的第一站。
+柴犬凌晨遭男子用弩射中后掳走，德阳警方回应：嫌疑人肖某(男，40岁)已被抓获 凌晨2点30分，一只黑色柴犬在马路边等待主人时，被骑摩托车的男子用疑似麻醉枪的工具射击后，装入白色口袋带走。
 
-《江河赋》是一部以“水”为魂、以“江”为脉、以“河”为韵的舞蹈诗剧。
+这一幕，发生在5月底，位于德阳市天鹤南路。
 
-作品从“一滴水”出发，通过“水、墨、歌、月”四种情感原型，舞者们以身体为笔、以舞台为卷，用灵动的诗意和独特的舞蹈语汇勾勒出一幅流动的江河画卷。
+6月2日，封面新闻记者从德阳市警方获悉，该男子已被抓获，案件正在进一步审理当中。
 
-该剧由苏芭团长助理兼首席演员敖定雯任总导演与编舞，舞美、灯光、服装、演员，全部由苏芭自有人才担纲完成。
+狗主人杨女士提供给记者的一段监控录像显示，5月21日凌晨2点半左右，自家的小柴犬happy正在距离杨女士店面不远的路面停车场玩耍，此时一个骑摩托车、背着背包的男子路过，并把车停在路边，下车接近小狗，到达一定距离后，该男子抬手做射击动作，手上疑似有射击工具。
 
-苏州芭蕾舞团团长王全兴此前表示：“《江河赋》既是对祖国大好河山的深情礼赞，也是对生命力量、文化传承的诗意表达。
+小狗被击中后，立刻往杨女士店面处跑，该男子一直骑车跟随。
 
-苏州芭蕾舞团将以精益求精的艺术呈现，把《江河赋》打磨成兼具思想性、艺术性与观赏性的舞台力作。
+柴犬一瘸一拐抵达距离杨女士门店不到20米的地方趴下，男子再次做出射击动作，随后将一动不动的柴犬拖着装入白色口袋离开。
 
-”该剧此后还将赴太原、长沙、福州等地巡演15场。
+监控视频里可以看到，男子摩托车后还捆绑有相同的白色口袋。
 
-在《江河赋》开启巡演征程后，苏芭的另一颗“明珠”也已蓄势待发。
+“我是做电商的，所以下班比较晚。
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 05:36 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 05:44 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-30 05:29 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 05:30 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 05:44 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 05:30 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 05:36 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 05:22 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 05:19 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 05:32 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 05:29 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 05:24 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 05:28 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 05:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 05:40 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 05:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 05:25 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 05:29 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 05:44 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 05:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-30 05:24 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:42 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/17057.shtml)
-- 2026-06-30 05:29 - [请回答王牌2019](http://www.share.minike.top/Article/details/49455468.shtml)
-- 2026-06-30 05:38 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/008119.shtml)
-- 2026-06-30 05:28 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/6519616.shtml)
-- 2026-06-30 05:30 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/858043837064.shtml)
-- 2026-06-30 05:32 - [周生如故](https://www.share.minike.top/Article/details/014606790937.shtml)
-- 2026-06-30 05:28 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/680264.shtml)
-- 2026-06-30 05:19 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/868701150334.shtml)
-- 2026-06-30 05:19 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/674495146686.shtml)
-- 2026-06-30 05:25 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/61781613415.shtml)
-- 2026-06-30 05:41 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/879274.shtml)
-- 2026-06-30 05:21 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/08758076.shtml)
-- 2026-06-30 05:31 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/7989550648.shtml)
-- 2026-06-30 05:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/142669732911.shtml)
-- 2026-06-30 05:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/3563038226.shtml)
+- 2026-06-30 05:49 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/255439.shtml)
+- 2026-06-30 05:34 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/43282833306.shtml)
+- 2026-06-30 05:52 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/627364018.shtml)
+- 2026-06-30 05:52 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/60841123.shtml)
+- 2026-06-30 05:31 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/736744115.shtml)
+- 2026-06-30 05:31 - [二次元提前预演明日巴西对日本](http://www.blog.kurohicncr.top/Article/details/8723362936.shtml)
+- 2026-06-30 05:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/736456.shtml)
+- 2026-06-30 05:31 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/379960.shtml)
+- 2026-06-30 05:33 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/5996479.shtml)
+- 2026-06-30 05:26 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/222247152.shtml)
+- 2026-06-30 05:42 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/6550133.shtml)
+- 2026-06-30 05:44 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/39102689680.shtml)
+- 2026-06-30 05:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/52104603918.shtml)
+- 2026-06-30 05:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/490031381418.shtml)
+- 2026-06-30 05:36 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/272205.shtml)

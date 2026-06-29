@@ -1,59 +1,45 @@
-# 第48届世界技能大赛精细木工项目广州邀请赛闭幕
+# 北京首都机场股份完成发行10亿元短期融资券
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网广州4月28日电 (记者 程景伟)第48届世界技能大赛精细木工项目广州邀请赛闭幕式28日在广州市轻工技师学院北校区举行。 此次邀请赛4月25日至27日在该学院举行，来自中国、匈牙利、爱尔兰等国家和地区的专家、教练及选手共12人(其中境外人员10人)参与了赛事及相关交流活动。 精细木工项目是指通过手工和机器，使用各种形式的木接头连接两个或以上的木块，形成结构用于门、窗、楼梯
+北京首都机场股份（00694）公布，公司已于2026年6月2日发行2026年首期短期融资券，发行总额10亿元，期限1年，发行利率1.37%。责任编辑：卢昱君
 
 ## 正文
 
-中新网广州4月28日电 (记者 程景伟)第48届世界技能大赛精细木工项目广州邀请赛闭幕式28日在广州市轻工技师学院北校区举行。
+北京首都机场股份（00694）公布，公司已于2026年6月2日发行2026年首期短期融资券，发行总额10亿元，期限1年，发行利率1.37%。
 
-此次邀请赛4月25日至27日在该学院举行，来自中国、匈牙利、爱尔兰等国家和地区的专家、教练及选手共12人(其中境外人员10人)参与了赛事及相关交流活动。
-
-精细木工项目是指通过手工和机器，使用各种形式的木接头连接两个或以上的木块，形成结构用于门、窗、楼梯和其他建筑物体构建的竞赛项目。
-
-比赛对选手的技能要求，涵盖燕尾榫接头、榫卯接头、花键连接等多种技术。
-
-此次邀请赛严格参照世界技能大赛技术要求和规则标准，比赛总时长15小时。
-
-选手需依次完成工作组织与管理、图版测量、榫接制作、内部榫接、表面处理、安装等8个竞赛模块。
-
-赛场上，选手们以木为媒、以技会友，每一处榫卯、每一道线条都体现了对“精细”二字的极致追求。
-
-来自中国香港的参赛选手代表黄梓豪表示，这次比赛不仅是技艺的比拼，更是一次从“木”到“艺”的深刻锤炼。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:34 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 05:42 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 05:18 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 05:32 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 05:26 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 05:46 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 05:36 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 05:31 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 05:30 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 05:38 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 05:41 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 05:31 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 05:46 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 05:40 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 05:53 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 05:53 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 05:28 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 05:27 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 05:53 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 05:46 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 05:41 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 05:30 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 05:34 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 05:38 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:33 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/91780653.shtml)
-- 2026-06-30 05:24 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/81516246.shtml)
-- 2026-06-30 05:21 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/3646701049.shtml)
-- 2026-06-30 05:28 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/586663654.shtml)
-- 2026-06-30 05:41 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/659620036170.shtml)
-- 2026-06-30 05:27 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/52567845.shtml)
-- 2026-06-30 05:28 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/529013.shtml)
-- 2026-06-30 05:30 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/02809687134.shtml)
-- 2026-06-30 05:45 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/976313.shtml)
-- 2026-06-30 05:39 - [第一炉香](http://www.blog.minike.top/Article/details/083262.shtml)
-- 2026-06-30 05:36 - [沉睡花园](http://www.blog.minike.top/Article/details/59140062.shtml)
-- 2026-06-30 05:38 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/159150842.shtml)
-- 2026-06-30 05:21 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/3818249.shtml)
-- 2026-06-30 05:24 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/10528.shtml)
-- 2026-06-30 05:39 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/48494748866.shtml)
+- 2026-06-30 05:45 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/2076006886.shtml)
+- 2026-06-30 05:38 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/663579428.shtml)
+- 2026-06-30 05:45 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/536949273106.shtml)
+- 2026-06-30 05:27 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/261618.shtml)
+- 2026-06-30 05:27 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/063617.shtml)
+- 2026-06-30 05:38 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/19492950.shtml)
+- 2026-06-30 05:28 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/016374.shtml)
+- 2026-06-30 05:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/5031785483.shtml)
+- 2026-06-30 05:36 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/93564.shtml)
+- 2026-06-30 05:44 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/07003.shtml)
+- 2026-06-30 05:49 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/22080.shtml)
+- 2026-06-30 05:33 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/1367447.shtml)
+- 2026-06-30 05:37 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/551336782.shtml)
+- 2026-06-30 05:43 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/8748193812.shtml)
+- 2026-06-30 05:33 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/786512.shtml)

@@ -1,43 +1,51 @@
-# 辽宁省阜新市人大常委会副主任刘林接受审查调查
+# 黑龙江检察机关依法对王莉霞涉嫌受贿案提起公诉
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 据辽宁省纪委监委消息：辽宁省阜新市人大常委会副主任刘林涉嫌严重违纪违法，目前正接受辽宁省纪委监委纪律审查和监察调查。
+中新网6月3日电 据最高人民检察院微博消息，内蒙古自治区党委原副书记、自治区政府原主席王莉霞涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。最高人民检察院依法以涉嫌受贿罪对王莉霞作出逮捕决定，并指定由黑龙江省大庆市人民检察院审查起诉。近日，大庆市人民检察院已向大庆市中级人民法院提起公诉。 检察机关在审查起诉阶段，依法告知了被告人王莉霞享有的诉讼权利，并讯问了被告人
 
 ## 正文
 
-中新网4月29日电 据辽宁省纪委监委消息：辽宁省阜新市人大常委会副主任刘林涉嫌严重违纪违法，目前正接受辽宁省纪委监委纪律审查和监察调查。
+中新网6月3日电 据最高人民检察院微博消息，内蒙古自治区党委原副书记、自治区政府原主席王莉霞涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。
+
+最高人民检察院依法以涉嫌受贿罪对王莉霞作出逮捕决定，并指定由黑龙江省大庆市人民检察院审查起诉。
+
+近日，大庆市人民检察院已向大庆市中级人民法院提起公诉。
+
+检察机关在审查起诉阶段，依法告知了被告人王莉霞享有的诉讼权利，并讯问了被告人，听取了辩护人的意见。
+
+检察机关起诉指控：被告人王莉霞利用担任陕西省铜川市委副书记、市长，陕西省政府党组成员、副省长，内蒙古自治区党委常委、统战部部长、呼和浩特市委书记，内蒙古自治区党委副书记、自治区政府主席职务上的便利以及职权或者地位形成的便利条件，为他人谋取利益，非法收受他人财物，数额特别巨大，依法应当以受贿罪追究其刑事责任。
 
 ## 相关推荐
 
-- 2026-06-30 05:31 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 05:29 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 05:47 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 05:41 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 05:20 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 05:43 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-30 05:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 05:29 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 05:34 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 05:32 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 05:40 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 05:37 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 05:51 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 05:35 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 05:31 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 05:26 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 05:28 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 05:42 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 05:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 05:33 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 05:46 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 05:35 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:34 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/11854.shtml)
-- 2026-06-30 05:46 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/0051098617.shtml)
-- 2026-06-30 05:19 - [《贺子珍》](https://www.share.minike.top/Article/details/7209481.shtml)
-- 2026-06-30 05:20 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/812105511.shtml)
-- 2026-06-30 05:18 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/9691332238.shtml)
-- 2026-06-30 05:29 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/01371.shtml)
-- 2026-06-30 05:26 - [一生一世](https://www.blog.minike.top/Article/details/503315.shtml)
-- 2026-06-30 05:23 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/817058085.shtml)
-- 2026-06-30 05:28 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/9421593249.shtml)
-- 2026-06-30 05:39 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/981878130469.shtml)
-- 2026-06-30 05:20 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/400401058307.shtml)
-- 2026-06-30 05:26 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/071521079.shtml)
-- 2026-06-30 05:37 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/7077246396.shtml)
-- 2026-06-30 05:31 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/7754363195.shtml)
-- 2026-06-30 05:43 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/286673.shtml)
+- 2026-06-30 05:26 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/73802.shtml)
+- 2026-06-30 05:51 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/85326.shtml)
+- 2026-06-30 05:43 - [女心理师](https://www.share.kurohicncr.top/Article/details/878980.shtml)
+- 2026-06-30 05:40 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/25312.shtml)
+- 2026-06-30 05:44 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/451740212.shtml)
+- 2026-06-30 05:52 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/53106508127.shtml)
+- 2026-06-30 05:26 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/39298512.shtml)
+- 2026-06-30 05:24 - [女心理师](http://www.share.minike.top/Article/details/5096675.shtml)
+- 2026-06-30 05:30 - [扬名立万](http://www.blog.minike.top/Article/details/03322243627.shtml)
+- 2026-06-30 05:25 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/110408036.shtml)
+- 2026-06-30 05:47 - [千香](http://www.share.minike.top/Article/details/1893236.shtml)
+- 2026-06-30 05:27 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/58042.shtml)
+- 2026-06-30 05:36 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/5839295742.shtml)
+- 2026-06-30 05:43 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/62085.shtml)
+- 2026-06-30 05:39 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/3114562488.shtml)

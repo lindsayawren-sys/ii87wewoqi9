@@ -1,51 +1,57 @@
-# 希教国际控股中期净利翻倍 达约6.2亿元
+# 黄金超美债成全球官方储备第一大资产
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-希教国际控股（01765）发布截至2026年2月28日止六个月的中期业绩，收入约20.46亿元，年内溢利约6.2亿元，同比增长101.4%；经调整净利约5.45亿元，同比增长13.72%。 公告称，净利增长的核心逻辑在于集团主动推进资产结构优化，通过处置不良资产实现了“降本减费、提质增效”的财务目标。责任编辑：卢昱君
+欧洲中央银行6月2日发布报告称，截至2025年年底，黄金在全球官方储备资产总额中的占比已升至27%，超越美国国债，成为全球官方储备第一大资产。 报告指出，美国国债在全球官方储备资产中占比降至22%，其他以美元计价的储备资产占比为20%，欧元储备资产占比为15%。 近年来，黄金价格上演了历史罕见的牛市行情。Wind数据显示，2024年至2025年，现货黄金价格累计上涨超过109%
 
 ## 正文
 
-希教国际控股（01765）发布截至2026年2月28日止六个月的中期业绩，收入约20.46亿元，年内溢利约6.2亿元，同比增长101.4%；经调整净利约5.45亿元，同比增长13.72%。
+欧洲中央银行6月2日发布报告称，截至2025年年底，黄金在全球官方储备资产总额中的占比已升至27%，超越美国国债，成为全球官方储备第一大资产。
 
-公告称，净利增长的核心逻辑在于集团主动推进资产结构优化，通过处置不良资产实现了“降本减费、提质增效”的财务目标。
+报告指出，美国国债在全球官方储备资产中占比降至22%，其他以美元计价的储备资产占比为20%，欧元储备资产占比为15%。
 
-责任编辑：卢昱君
+近年来，黄金价格上演了历史罕见的牛市行情。
+
+Wind数据显示，2024年至2025年，现货黄金价格累计上涨超过109%。
+
+进入2026年，金价震荡涨势，并在1月一度冲高至近5600美元/盎司的历史峰值。
+
+随后，受地缘冲突、油价波动等因素影响，金价经历剧烈回调，近一个月在4500美元/盎司附近呈现偏弱震荡态势。
+
+报告认为，黄金储备占比的大幅提升首先归因于估值效应。
+
+得益于国际金价在2024年、2025年连续井喷式上涨，黄金资产价值水涨船高，从而在全球官方储备中取得更大份额。
 
 ## 相关推荐
 
-- 2026-06-30 05:25 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 05:33 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 05:47 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 05:27 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 05:22 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 05:27 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 05:36 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-30 05:32 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 05:28 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 05:39 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 05:45 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 05:24 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 05:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 05:36 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 05:28 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 05:28 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 05:27 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 05:27 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 05:38 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 05:43 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 05:36 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 05:43 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 05:45 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 05:35 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 05:26 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 05:49 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:29 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/522996961294.shtml)
-- 2026-06-30 05:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/379114197.shtml)
-- 2026-06-30 05:25 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/588342.shtml)
-- 2026-06-30 05:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/70162694.shtml)
-- 2026-06-30 05:44 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/415947772.shtml)
-- 2026-06-30 05:21 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/2034258.shtml)
-- 2026-06-30 05:30 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/246109.shtml)
-- 2026-06-30 05:28 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/386907.shtml)
-- 2026-06-30 05:18 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/723076950.shtml)
-- 2026-06-30 05:26 - [周生如故](http://www.blog.kurohicncr.top/Article/details/96498037922.shtml)
-- 2026-06-30 05:37 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/2451366166.shtml)
-- 2026-06-30 05:30 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/94302.shtml)
-- 2026-06-30 05:42 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/829531.shtml)
-- 2026-06-30 05:45 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/498798323.shtml)
-- 2026-06-30 05:29 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/8860583.shtml)
+- 2026-06-30 05:50 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/22419506.shtml)
+- 2026-06-30 05:35 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/122791118.shtml)
+- 2026-06-30 05:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/447355859.shtml)
+- 2026-06-30 05:44 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/60463.shtml)
+- 2026-06-30 05:46 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/845790110.shtml)
+- 2026-06-30 05:51 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/58059.shtml)
+- 2026-06-30 05:51 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/123534799.shtml)
+- 2026-06-30 05:49 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/3539120750.shtml)
+- 2026-06-30 05:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/3056477120.shtml)
+- 2026-06-30 05:49 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/67808618862.shtml)
+- 2026-06-30 05:53 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/829313167.shtml)
+- 2026-06-30 05:40 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/788364197.shtml)
+- 2026-06-30 05:38 - [恋与深空回应争议](https://www.share.minike.top/Article/details/61644.shtml)
+- 2026-06-30 05:35 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/823127663.shtml)
+- 2026-06-30 05:36 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/6542221.shtml)

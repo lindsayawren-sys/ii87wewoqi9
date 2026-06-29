@@ -1,53 +1,60 @@
-# 一季度石家庄海关签发RCEP原产地证书2532份
+# 美国青少年海南体验中国文化：“第一次接触，真的很酷”
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网石家庄4月28日电 (赵丹媚 谌诗雨 张诚)石家庄海关28日消息，今年一季度，石家庄海关为河北省出口企业签发《区域全面经济伙伴关系协定》(RCEP)原产地证书2532份，签证金额11.8亿元，享受进口国关税减免约1776万元，同比分别增长18.4%、64.2%和64.2%。“今年以来，我们公司在海关办理了93份RCEP原产地证书，凭借这些证书，可以享受到140多万元的关税
+中新网海口6月3日电 题：美国青少年海南体验中国文化：“第一次接触，真的很酷” 中新网记者 张茜翼 “啪、啪、啪——”3日下午，清脆的竹竿敲击声在海南师范大学附属小学校园中此起彼伏。来自美国犹他州的青少年，在海南小学生的带动下试探着抬脚、腾跳，在交错起落的“竹阵”间穿梭，欢笑交织。 当日，参加“海南自贸港中美基础教育对话会暨中美青少年人文交流营”的美国师生及家长走进校园，开启一
 
 ## 正文
 
-中新网石家庄4月28日电 (赵丹媚 谌诗雨 张诚)石家庄海关28日消息，今年一季度，石家庄海关为河北省出口企业签发《区域全面经济伙伴关系协定》(RCEP)原产地证书2532份，签证金额11.8亿元，享受进口国关税减免约1776万元，同比分别增长18.4%、64.2%和64.2%。
+中新网海口6月3日电 题：美国青少年海南体验中国文化：“第一次接触，真的很酷” 中新网记者 张茜翼 “啪、啪、啪——”3日下午，清脆的竹竿敲击声在海南师范大学附属小学校园中此起彼伏。
 
-“今年以来，我们公司在海关办理了93份RCEP原产地证书，凭借这些证书，可以享受到140多万元的关税减免。
+来自美国犹他州的青少年，在海南小学生的带动下试探着抬脚、腾跳，在交错起落的“竹阵”间穿梭，欢笑交织。
 
-”河北沧州某塑料薄膜出口企业经理刘明说，海关动态跟踪企业出口情况，建立专属服务机制，匹配最优关税减让方案，为他们进一步开拓海外市场提供了保障。
+当日，参加“海南自贸港中美基础教育对话会暨中美青少年人文交流营”的美国师生及家长走进校园，开启一场中华传统文化体验之旅。
 
-据悉，为让原产地政策加快转化为企业出海红利，石家庄海关还持续推行“线上申请+智能审签+自助打印”签证模式，指导企业规范填报，压缩审核时限，实现原产地证书即报即审即领。
+一笔一画，遇见东方美学 书法体验区墨香四溢。
 
-石家庄海关关税处副处长薛茜表示，下一步，将特别加强对中小微企业和新兴业态的辅导，通过大数据分析报关数据，建立政策适配企业清单，助力更多外贸企业用好原产地优惠政策拓展国际市场。
+美国青少年第一次握起毛笔，凝神静气，认真写下“和平”“开心”“海南”等汉字。
 
-(完)
+“中国书法很美。
+
+”文凯(Bennett)感慨道。
+
+在他看来，书法之美不仅在于字形的结构，更在于笔画的粗细变化与书写方式——“充满了情绪”。
 
 ## 相关推荐
 
-- 2026-06-30 05:32 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 05:38 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 05:46 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 05:29 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 05:35 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 05:35 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 05:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 05:25 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 05:36 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 05:38 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 05:46 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 05:52 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 05:44 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 05:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 05:29 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 05:51 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 05:38 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 05:33 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 05:26 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 05:41 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 05:46 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 05:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 05:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 05:25 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 05:34 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/1366291562.shtml)
-- 2026-06-30 05:43 - [日本进球](https://www.blog.minike.top/Article/details/8360461258.shtml)
-- 2026-06-30 05:43 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/92073800.shtml)
-- 2026-06-30 05:18 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/0303734995.shtml)
-- 2026-06-30 05:38 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/928877507.shtml)
-- 2026-06-30 05:40 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/70422061416.shtml)
-- 2026-06-30 05:23 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/6375637927.shtml)
-- 2026-06-30 05:36 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/97249067096.shtml)
-- 2026-06-30 05:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/354961355304.shtml)
-- 2026-06-30 05:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/787434466.shtml)
-- 2026-06-30 05:43 - [起风了](https://www.share.kurohicncr.top/Article/details/248857875071.shtml)
-- 2026-06-30 05:21 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/455053547197.shtml)
-- 2026-06-30 05:26 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/03832.shtml)
-- 2026-06-30 05:27 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/185970194.shtml)
-- 2026-06-30 05:23 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/37378002.shtml)
+- 2026-06-30 05:49 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/815917.shtml)
+- 2026-06-30 05:26 - [房价什么时候能涨](http://www.share.minike.top/Article/details/3613868.shtml)
+- 2026-06-30 05:46 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/99940572785.shtml)
+- 2026-06-30 05:48 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/69313922450.shtml)
+- 2026-06-30 05:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/4877894496.shtml)
+- 2026-06-30 05:33 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/918268508.shtml)
+- 2026-06-30 05:36 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/271254885.shtml)
+- 2026-06-30 05:29 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/97885076316.shtml)
+- 2026-06-30 05:30 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/0892764.shtml)
+- 2026-06-30 05:37 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/234567319313.shtml)
+- 2026-06-30 05:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/50457305.shtml)
+- 2026-06-30 05:53 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/154296243.shtml)
+- 2026-06-30 05:47 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/60224105126.shtml)
+- 2026-06-30 05:37 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/585617.shtml)
+- 2026-06-30 05:35 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/859404074940.shtml)

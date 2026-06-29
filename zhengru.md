@@ -1,56 +1,61 @@
-# 川渝联动举行2026年涪江流域水旱灾害联防联控水文应急测报演练
+# 超音速发射平台Starfighters Space公司获1750万美元融资背书
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 15:05 来源：中国新闻网 4月28日，四川省水文中心、重庆市水文总站联合组织开展2026年涪江流域水旱灾害联防联控水文应急测报演练，全力备战防大汛、抗大旱。 演练设置川渝双主会场及多个分会场，8个应急监测队伍现场参演。模拟了2020年涪江流域“8·17”洪水场景，分设内业演练和外业演练两个大项。现场开展了无人船、无人机、测扫雷达测流；河道地
+在太空投资热潮持续升温之际，一家采用独特技术路线的发射公司刚刚获得了机构投资者的有力支持。Starfighters Space， Inc．宣布完成约1750万美元的战略股权投资，本轮融资由多家全球机构投资者共同参与。 与当前主流的垂直火箭发射方式不同，Starfighters Space选择了一条差异化的技术路径。公司运营着全球唯一一支商业化的、具备飞行状态且速度可达2马赫以上
 
 ## 正文
 
-发布时间：2026年04月29日 15:05 来源：中国新闻网 4月28日，四川省水文中心、重庆市水文总站联合组织开展2026年涪江流域水旱灾害联防联控水文应急测报演练，全力备战防大汛、抗大旱。
+在太空投资热潮持续升温之际，一家采用独特技术路线的发射公司刚刚获得了机构投资者的有力支持。
 
-演练设置川渝双主会场及多个分会场，8个应急监测队伍现场参演。
+Starfighters Space， Inc．宣布完成约1750万美元的战略股权投资，本轮融资由多家全球机构投资者共同参与。
 
-模拟了2020年涪江流域“8·17”洪水场景，分设内业演练和外业演练两个大项。
+与当前主流的垂直火箭发射方式不同，Starfighters Space选择了一条差异化的技术路径。
 
-现场开展了无人船、无人机、测扫雷达测流；河道地形测绘等多个科目演练，全面检验应急预案和应急队伍的实战能力，提升应对多灾种叠加的水文测报能力。
+公司运营着全球唯一一支商业化的、具备飞行状态且速度可达2马赫以上的超音速飞机机队，基地设在佛罗里达州的NASA肯尼迪航天中心。
 
-本次演练中先进设备和技术的应用投入，标志着川渝水文测报正加速从“传统人工”向“智慧感知”转型。
+其核心的STARLAUNCH平台利用F-104超音速飞机作为可重复使用的空中载机，将火箭携带至高空高速状态后释放，目标瞄准小型、快速响应的发射市场，涵盖微重力研究、卫星部署、高超音速测试及国防应用等领域。
 
-(何浠 杨予頔） 责任编辑：【罗攀】
+公司首席执行官Tim Franta表示：“这笔融资是对我们平台和长期战略的有力背书。
+
+这将使我们能够加速执行计划，扩大运营能力，并满足市场对快速空间进入方案日益增长的需求。
+
+” 根据规划，资金将用于运营扩张、基础设施建设以及STARLAUNCH平台的持续开发。
 
 ## 相关推荐
 
-- 2026-06-30 05:46 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 05:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 05:28 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 05:45 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 05:29 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 05:37 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 05:41 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 05:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 05:26 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 05:40 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 05:41 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 05:38 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 05:30 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 05:36 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 05:39 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 05:52 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 05:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 05:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 05:34 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 05:44 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 05:34 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 05:43 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 05:33 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 05:27 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 05:44 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 05:31 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 05:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 05:29 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 05:52 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/49508472.shtml)
-- 2026-06-30 05:20 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/00512650219.shtml)
-- 2026-06-30 05:23 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/20451.shtml)
-- 2026-06-30 05:18 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/803413595.shtml)
-- 2026-06-30 05:45 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/41541741257.shtml)
-- 2026-06-30 05:29 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/50991929294.shtml)
-- 2026-06-30 05:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/37538928.shtml)
-- 2026-06-30 05:41 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/09872462655.shtml)
-- 2026-06-30 05:31 - [日本淘汰](http://www.share.minike.top/Article/details/928214.shtml)
-- 2026-06-30 05:24 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/63258459393.shtml)
-- 2026-06-30 05:47 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/901593594.shtml)
-- 2026-06-30 05:47 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/99750483136.shtml)
-- 2026-06-30 05:28 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/8008486451.shtml)
-- 2026-06-30 05:33 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/09842407371.shtml)
-- 2026-06-30 05:44 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/770389002560.shtml)
+- 2026-06-30 05:42 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/919449.shtml)
+- 2026-06-30 05:45 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/0726252.shtml)
+- 2026-06-30 05:38 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/463489.shtml)
+- 2026-06-30 05:47 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/5500590.shtml)
+- 2026-06-30 05:25 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/8587174.shtml)
+- 2026-06-30 05:35 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/891425571132.shtml)
+- 2026-06-30 05:24 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/25469228602.shtml)
+- 2026-06-30 05:35 - [天道](https://www.share.minike.top/Article/details/168069364455.shtml)
+- 2026-06-30 05:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/053157.shtml)
+- 2026-06-30 05:45 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/55607083.shtml)
+- 2026-06-30 05:27 - [TOP Prada](https://www.blog.minike.top/Article/details/491295.shtml)
+- 2026-06-30 05:28 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/1001585.shtml)
+- 2026-06-30 05:25 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/69341075044.shtml)
+- 2026-06-30 05:31 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/677990924079.shtml)
+- 2026-06-30 05:33 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/02960572867.shtml)

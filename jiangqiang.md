@@ -1,59 +1,57 @@
-# 德意志银行业绩稳增 季度利润同比上行
+# 重估比亚迪，从智驾开始
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-德意志银行公布季度利润同比增长，得益于投行业务稳健表现及其他业务板块营收扩张。 这家德国总资产规模最大的银行于周三发布一季度财报，税后利润达21.7亿欧元（折合25.5亿美元），同比增长8%，高于市场普遍预期的20.05亿欧元。 集团总营收微增2%，至86.7亿欧元，超出分析师预估的85.4亿欧元。 私人银行业务及独立上市资产管理子公司德银资产管理（DWS）实现增长，抵消了企业
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：36氪）比亚迪辅助驾驶正从低调深耕走向全面引领。过去3-4年，城市辅助驾驶技术发展迅猛，造车新势力与科技巨头围绕有图、无图的技术路线，端到端、VLA、世界模型的新型名词展开了激烈角逐，到今年，L3级自动驾驶也频繁出现在营销宣传中，似乎自动驾驶时代已经指日可待。但是房间里的大象似乎被自动忽略了，就是使
 
 ## 正文
 
-德意志银行公布季度利润同比增长，得益于投行业务稳健表现及其他业务板块营收扩张。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这家德国总资产规模最大的银行于周三发布一季度财报，税后利润达21.7亿欧元（折合25.5亿美元），同比增长8%，高于市场普遍预期的20.05亿欧元。
+（来源：36氪）比亚迪辅助驾驶正从低调深耕走向全面引领。
 
-集团总营收微增2%，至86.7亿欧元，超出分析师预估的85.4亿欧元。
+过去3-4年，城市辅助驾驶技术发展迅猛，造车新势力与科技巨头围绕有图、无图的技术路线，端到端、VLA、世界模型的新型名词展开了激烈角逐，到今年，L3级自动驾驶也频繁出现在营销宣传中，似乎自动驾驶时代已经指日可待。
 
-私人银行业务及独立上市资产管理子公司德银资产管理（DWS）实现增长，抵消了企业银行业务下滑与核心营收支柱——投行业务增长停滞带来的压力。
+但是房间里的大象似乎被自动忽略了，就是使用这些辅助驾驶系统产生的事故责任，到底谁来承担？
 
-受营收持平影响，投行业务利润有所走弱。
+对于这个消费者最为关心的问题，行业企业大部分都是一片沉默。
 
-该板块债权与股权承销业务活跃度提升，包含外汇、债券交易在内的大型固定收益业务整体表现平稳；但汇率负面冲击，叠加去年同期基数处于历史高位，拖累整体表现。
+行业吵得火热，但是对于用户而言，没人为责任兜底，就是没人为技术兜底。
 
-银行补充称，本季度运营效率优化推动总支出降至51.1亿欧元，同比下降2%；不过贷款损失拨备同比上升10%。
+据比亚迪分享的数据，城市道路具备领航功能的车辆不足2%，开通用户中仅三成真正使用，七成用户因价格、体验、安全顾虑始终对辅助驾驶持观望态度，巨额技术投入始终难以走进日常。
 
-德意志银行首席执行官表示：“本季度创下纪录的利润，为我们下一阶段战略推进奠定了良好开端。
+而打破这一僵局、首家为城市辅助驾驶领航兜底的企业，并非风头正盛的新势力，也不是技术强势的科技巨头，而是一向稳健务实的比亚迪。
 
 ## 相关推荐
 
-- 2026-06-30 05:30 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 05:20 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 05:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 05:26 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 05:35 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 05:44 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 05:45 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 05:37 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 05:22 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 05:42 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 05:31 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 05:26 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 05:43 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 05:51 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 05:26 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 05:29 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 05:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 05:43 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 05:49 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 05:30 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 05:50 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 05:34 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 05:43 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 05:36 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/981281024.shtml)
-- 2026-06-30 05:25 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/9424710292.shtml)
-- 2026-06-30 05:24 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/0287522259.shtml)
-- 2026-06-30 05:42 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/3951100077.shtml)
-- 2026-06-30 05:19 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/55653.shtml)
-- 2026-06-30 05:20 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/036368162.shtml)
-- 2026-06-30 05:45 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/2425055.shtml)
-- 2026-06-30 05:27 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/7500405043.shtml)
-- 2026-06-30 05:43 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/577807.shtml)
-- 2026-06-30 05:34 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/37337309924.shtml)
-- 2026-06-30 05:26 - [《贺子珍》](http://www.share.minike.top/Article/details/47182144.shtml)
-- 2026-06-30 05:19 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/873997823761.shtml)
-- 2026-06-30 05:43 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/67163328168.shtml)
-- 2026-06-30 05:32 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/276529640696.shtml)
-- 2026-06-30 05:24 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/56890725.shtml)
+- 2026-06-30 05:32 - [逃狱兄弟](http://www.share.minike.top/Article/details/473244779103.shtml)
+- 2026-06-30 05:27 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/20934049.shtml)
+- 2026-06-30 05:41 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/75213.shtml)
+- 2026-06-30 05:36 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/85554035.shtml)
+- 2026-06-30 05:40 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/22996.shtml)
+- 2026-06-30 05:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/95254482.shtml)
+- 2026-06-30 05:33 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/514973560.shtml)
+- 2026-06-30 05:50 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/2340464908.shtml)
+- 2026-06-30 05:53 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/9905623728.shtml)
+- 2026-06-30 05:35 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/304071.shtml)
+- 2026-06-30 05:27 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/6389314802.shtml)
+- 2026-06-30 05:43 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/619399971955.shtml)
+- 2026-06-30 05:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/37582.shtml)
+- 2026-06-30 05:46 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/8313708492.shtml)
+- 2026-06-30 05:35 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/15534.shtml)

@@ -1,57 +1,56 @@
-# AI 世纪对决开庭，马斯克在OpenAI审判中出庭作证
+# 开源证券：汇量科技维持“买入”评级 看好新Infra上线加速业绩增长
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-本周二，埃隆・马斯克出庭作证表示，他起诉 OpenAI 及其高管的诉讼，早已超越单一企业纠纷，直指人工智能这项足以毁灭全人类的技术未来。 马斯克指控，OpenAI 首席执行官山姆・奥尔特曼、总裁格雷格・布罗克曼联手欺骗自己，背弃了 OpenAI 最初的非营利使命。目前，马斯克向美国加州北区联邦地区法院提起诉讼，要求 OpenAI 赔偿1300 亿美元损失，强制公司恢复非营利架构
+开源证券发布研报称，看好AIInfra支撑汇量科技（01860）加速拓展IAP及非游品类，驱动业绩持续高增，维持预计2026-2028年归母净利润为1.37/2.37/3.80亿美元，当前股价对应PE分别为21.9/12.7/7.9倍，维持“买入”评级。 开源证券主要观点如下： Q1延续高增，看好新Infra加速产品拓展驱动业绩高增 公司2026Q1实现营收5.81亿美元（同比
 
 ## 正文
 
-本周二，埃隆・马斯克出庭作证表示，他起诉 OpenAI 及其高管的诉讼，早已超越单一企业纠纷，直指人工智能这项足以毁灭全人类的技术未来。
+开源证券发布研报称，看好AIInfra支撑汇量科技（01860）加速拓展IAP及非游品类，驱动业绩持续高增，维持预计2026-2028年归母净利润为1.37/2.37/3.80亿美元，当前股价对应PE分别为21.9/12.7/7.9倍，维持“买入”评级。
 
-马斯克指控，OpenAI 首席执行官山姆・奥尔特曼、总裁格雷格・布罗克曼联手欺骗自己，背弃了 OpenAI 最初的非营利使命。
+开源证券主要观点如下： Q1延续高增，看好新Infra加速产品拓展驱动业绩高增 公司2026Q1实现营收5.81亿美元（同比+32%、环比+1%），归母净利润0.34亿美元（同比+61%），经调整利润净额0.24亿美元（同比+11%）。
 
-目前，马斯克向美国加州北区联邦地区法院提起诉讼，要求 OpenAI 赔偿1300 亿美元损失，强制公司恢复非营利架构，并罢免奥尔特曼与布罗克曼的董事职务。
+Q1毛利率为20.96%，销售/管理/研发费率分别同比+0.04/-0.44/+1.06pct，研发费率提升主因模型训练费用增加，，主要系金融工具公允价值变动实现收益0.17亿美元。
 
-自身拥有人工智能企业的马斯克在奥克兰法庭的证人席上坦言：“我对人工智能抱有极度担忧。
+游戏持续高增，非游稳步拓展，看好“数据飞轮”持续巩固公司算法优势 Q1广告技术业务收入5.77亿美元（同比+33%，环比+1%），其中Mintegral收入5.60亿美元（同比+33%，环比+1%）。
 
-” 他表示，人工智能既能让全人类走向繁荣，也可能给人类带来毁灭性后果。
+游戏品类收入4.30亿美元（同比+41%、环比+3%），非游品类收入1.29亿美元（同比+12%）。
 
-“我们绝不希望迎来《终结者》式的悲剧结局。
+据Singular发布的《2026年第一季度趋势报告》，按下载量统计，Mintegral在娱乐、工具及游戏等多个核心垂类中均位列全球前四，反映公司广告算法的持续领先，该行看好“数据飞轮”持续巩固公司优势。
 
-” 马斯克说道。
+IAP产品稳健增长，新一代Infra或加速IAP发展及非游品类拓展 公司持续推进AIInfra建设，新一代Infra已完成主要开发，有望于10月上线。
 
-OpenAI 计划最早于今年上市，而本次诉讼或将重创这家全球顶尖 AI 企业，同时也是马斯克旗下 AI 业务最大的竞争对手。
+IAP产品在现有Infra上稳健增长，新一代Infra可承载更复杂的模型及更多维度的特征和数据，有望推动IAP产品加速发展。
 
 ## 相关推荐
 
-- 2026-06-30 05:29 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 05:33 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 05:40 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 05:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 05:27 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 05:19 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 05:39 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 05:37 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 05:28 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 05:35 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 05:42 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 05:51 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 05:37 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 05:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 05:52 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 05:39 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 05:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 05:44 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 05:48 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 05:39 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 05:51 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/479606729162.shtml)
-- 2026-06-30 05:32 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/91397.shtml)
-- 2026-06-30 05:31 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/9329246100.shtml)
-- 2026-06-30 05:39 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/6078014.shtml)
-- 2026-06-30 05:29 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/72822.shtml)
-- 2026-06-30 05:24 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/73508097414.shtml)
-- 2026-06-30 05:27 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/9752755470.shtml)
-- 2026-06-30 05:46 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/76992030.shtml)
-- 2026-06-30 05:45 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/89187.shtml)
-- 2026-06-30 05:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/01539229.shtml)
-- 2026-06-30 05:40 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/8314249198.shtml)
-- 2026-06-30 05:34 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/283783711796.shtml)
-- 2026-06-30 05:42 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/71769112653.shtml)
-- 2026-06-30 05:31 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/56159.shtml)
-- 2026-06-30 05:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/458754456018.shtml)
+- 2026-06-30 05:37 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/65864210.shtml)
+- 2026-06-30 05:45 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/65434491612.shtml)
+- 2026-06-30 05:43 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/51477757.shtml)
+- 2026-06-30 05:45 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/3276030.shtml)
+- 2026-06-30 05:29 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/193390001548.shtml)
+- 2026-06-30 05:33 - [时光音乐会](http://www.share.minike.top/Article/details/393062255.shtml)
+- 2026-06-30 05:36 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/82082462.shtml)
+- 2026-06-30 05:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/460501526.shtml)
+- 2026-06-30 05:38 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/05133374473.shtml)
+- 2026-06-30 05:41 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/3040583.shtml)
+- 2026-06-30 05:24 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/6714296.shtml)
+- 2026-06-30 05:49 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/390604.shtml)
+- 2026-06-30 05:48 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/681488.shtml)
+- 2026-06-30 05:49 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/773185638342.shtml)
+- 2026-06-30 05:44 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/0827579323.shtml)

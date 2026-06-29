@@ -1,61 +1,61 @@
-# 当新农人走到台前，幸福乡村春耕季里的新职业、新表达与新生计
+# 泽西中央电力公司延长债券交换要约期限 参与率已超99%
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-春耕时节，乡村总是最先进入忙碌状态。 在田埂、果园、集市和村口，一些新的身影正在出现：有人拿着手机记录农家日常，有人把直播间搬进果园和厨房，有人用舞蹈让麦田“出圈”，有人以村干部身份为土特产寻找销路，也有人坐上拖拉机、走进夜间护农现场，在传统乡村劳动中打开新的可能。 这些年轻而鲜活的乡村面孔，在快手被称为“星农人”。 4月28日，以“让创作，发新芽”为主题的2026快手星农人节
+FirstEnergy Corp．子公司泽西中央电力照明公司周二宣布，将其三项系列高级票据的交换要约截止日期从6月1日延长至6月15日，以便剩余少数债券持有人完成登记程序。 本次交换要约涵盖三个系列票据：本金最高3.5亿美元的4.150%高级票据（2029年到期）、最高5亿美元的4.400%高级票据（2031年到期），以及最高5亿美元的5.150%高级票据（2036年到期）。公
 
 ## 正文
 
-春耕时节，乡村总是最先进入忙碌状态。
+FirstEnergy Corp．子公司泽西中央电力照明公司周二宣布，将其三项系列高级票据的交换要约截止日期从6月1日延长至6月15日，以便剩余少数债券持有人完成登记程序。
 
-在田埂、果园、集市和村口，一些新的身影正在出现：有人拿着手机记录农家日常，有人把直播间搬进果园和厨房，有人用舞蹈让麦田“出圈”，有人以村干部身份为土特产寻找销路，也有人坐上拖拉机、走进夜间护农现场，在传统乡村劳动中打开新的可能。
+本次交换要约涵盖三个系列票据：本金最高3.5亿美元的4.150%高级票据（2029年到期）、最高5亿美元的4.400%高级票据（2031年到期），以及最高5亿美元的5.150%高级票据（2036年到期）。
 
-这些年轻而鲜活的乡村面孔，在快手被称为“星农人”。
+公司计划以等额本金、条款完全相同的新票据置换原有的流通票据，新票据已依据美国《1933年证券法》完成注册登记。
 
-4月28日，以“让创作，发新芽”为主题的2026快手星农人节在杭州萧山琥珀庄园举行。
+数据显示，截至原定截止时间6月1日下午5时，已有本金总额1，344，690.00美元的票据完成投标，占流通票据总量的99.6067%，参与率已超过99%。
 
-来自全国各地的三农创作者走上红毯，也把一个值得关注的乡村变化带到台前：短视频、直播、电商和数字工具，正在让更多新农人以新的方式表达乡村、建设乡村。
+本次交换要约的主要目的是履行公司在票据最初发行时签署的登记权协议义务，将此前私募发行的票据转换为在SEC注册的公开交易票据，这属于公司债务管理的标准程序，并不改变债务总额、利率条件或资本结构。
 
-过去很长一段时间里，外出求学、就业、发展，是许多乡村青年拓宽人生道路的重要选择。
+此次交换要约的条款详见2026年4月30日发布的招股说明书。
 
-如今，随着数字平台深入县域和乡村，一部分年轻人开始在家乡看见新的发展空间。
+此前，公司提交的S-4表格注册声明已于4月23日获得SEC宣布生效。
 
-来自甘肃静宁的95后夫妻“懂懂和婷婷”，原本也走在买房、结婚、就业的城市生活路径上。
+纽约梅隆银行信托公司担任本次交易的交换代理人。
 
 ## 相关推荐
 
-- 2026-06-30 05:40 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 05:29 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 05:41 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 05:36 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 05:32 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 05:44 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 05:44 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-30 05:31 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 05:30 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 05:20 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 05:20 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 05:24 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 05:18 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 05:43 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 05:41 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 05:24 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 05:47 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 05:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 05:36 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 05:40 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 05:52 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 05:53 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 05:50 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 05:39 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-30 05:42 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 05:39 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 05:39 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 05:45 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 05:48 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 05:37 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:27 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/5208140238.shtml)
-- 2026-06-30 05:18 - [德国vs巴拉圭](http://www.blog.minike.top/Article/details/534276379.shtml)
-- 2026-06-30 05:34 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/872515381165.shtml)
-- 2026-06-30 05:43 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/62871074.shtml)
-- 2026-06-30 05:20 - [85花告别古偶](https://www.blog.minike.top/Article/details/555194505184.shtml)
-- 2026-06-30 05:34 - [月亮](https://www.blog.minike.top/Article/details/6291564625.shtml)
-- 2026-06-30 05:33 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/74563.shtml)
-- 2026-06-30 05:28 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/052972131.shtml)
-- 2026-06-30 05:44 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/168732486308.shtml)
-- 2026-06-30 05:18 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/71551.shtml)
-- 2026-06-30 05:30 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/058202388.shtml)
-- 2026-06-30 05:25 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/13974826444.shtml)
-- 2026-06-30 05:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/669992854028.shtml)
-- 2026-06-30 05:28 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/9263162.shtml)
-- 2026-06-30 05:48 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/3834158482.shtml)
+- 2026-06-30 05:39 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/91218517308.shtml)
+- 2026-06-30 05:27 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/1764408960.shtml)
+- 2026-06-30 05:53 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/39704303.shtml)
+- 2026-06-30 05:32 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/42050279619.shtml)
+- 2026-06-30 05:48 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/692646.shtml)
+- 2026-06-30 05:46 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/5257308342.shtml)
+- 2026-06-30 05:27 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/695415.shtml)
+- 2026-06-30 05:47 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/4356546.shtml)
+- 2026-06-30 05:52 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/72650785.shtml)
+- 2026-06-30 05:33 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/5623264.shtml)
+- 2026-06-30 05:26 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/572466638617.shtml)
+- 2026-06-30 05:47 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/74542875760.shtml)
+- 2026-06-30 05:43 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/53709946218.shtml)
+- 2026-06-30 05:27 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/354481754605.shtml)
+- 2026-06-30 05:44 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/1172846.shtml)

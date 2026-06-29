@@ -1,61 +1,56 @@
-# 主播离职潮后东方甄选大手笔激励，1930万股奖励俞敏洪等302人
+# 我国牵头修订的通用模件熔断体国际标准发布
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-多位明星主播集体出走引发关注后不久，东方甄选大手笔奖励核心团队。 4月28日晚间，东方甄选（01797.HK）发布公告，依据2023年股份激励计划，向公司董事、高管及核心员工授出1930.14万股股份奖励，涉及302人，占已发行股份1.82%，当日收盘价28.44港元/股。 根据公告，核心激励对象包括俞敏洪（执行董事、主席兼CEO），获得180万股，占比0.17%。尹强（执行董
+记者今天(6月3日)从国家标准委了解到，由我国牵头修订的国际标准《小型熔断器—第4部分：通用模件熔断体(UMF)—穿孔式和表面贴装式》近日获批发布。 通用模件熔断体(UMF)是一种关键的电路安全保护元件，通过表面贴装或穿孔技术直接焊接于印制电路板(PCB)及其他基板系统，具备微型化、可便捷安装特性。近年来，熔断器行业的产品向微型化、轻量化、薄型化方向发展，原有国际标准中的技术要
 
 ## 正文
 
-多位明星主播集体出走引发关注后不久，东方甄选大手笔奖励核心团队。
+记者今天(6月3日)从国家标准委了解到，由我国牵头修订的国际标准《小型熔断器—第4部分：通用模件熔断体(UMF)—穿孔式和表面贴装式》近日获批发布。
 
-4月28日晚间，东方甄选（01797.HK）发布公告，依据2023年股份激励计划，向公司董事、高管及核心员工授出1930.14万股股份奖励，涉及302人，占已发行股份1.82%，当日收盘价28.44港元/股。
+通用模件熔断体(UMF)是一种关键的电路安全保护元件，通过表面贴装或穿孔技术直接焊接于印制电路板(PCB)及其他基板系统，具备微型化、可便捷安装特性。
 
-根据公告，核心激励对象包括俞敏洪（执行董事、主席兼CEO），获得180万股，占比0.17%。
+近年来，熔断器行业的产品向微型化、轻量化、薄型化方向发展，原有国际标准中的技术要求与试验方法已难以满足当前产业快速迭代的技术需求。
 
-尹强（执行董事、CFO）获得45万股，占比0.04%。
+该标准规定了通用模件熔断体的标准规格单、尺寸和结构、电气性能等技术要求，适用于印制电路板(PCB)或其他基板系统上的通用模件熔断体(UMF)。
 
-以及300名员工获得合计1705.14万股，占比1.61%。
+该熔断体被用于保护通常在户内使用的电气装置、电子设备及其部件。
 
-本次股份奖励归属发行价为零，总归属期3年，按每年1/3匀速解锁，需达成年度考核目标方可归属。
+该标准在试验方法、性能验证等方面进行了系统完善，更好地反映(契合)了当前及未来小型熔断器在微型化、大电流、高分断能力等方向的技术发展需求。
 
-东方甄选表示，本次激励用于绑定核心团队、稳定管理层与骨干员工，强化长期增长动力。
+此项国际标准的成功发布，是我国在电子电器领域国际标准化工作中取得的又一项重要成果，为全球电路保护技术的创新发展贡献了中国智慧。
 
-东方甄选近期正面临主播集体离职风波。
+(总台央视记者 李晶晶)
 
 ## 相关推荐
 
-- 2026-06-30 05:37 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 05:46 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 05:25 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 05:24 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 05:45 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 05:46 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 05:47 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 05:28 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 05:41 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 05:21 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 05:23 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 05:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 05:37 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 05:33 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 05:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 05:41 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 05:41 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 05:33 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 05:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 05:41 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 05:53 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 05:24 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 05:40 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 05:34 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 05:38 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [第一炉香](http://www.share.kurohicncr.top/Article/details/5192255.shtml)
-- 2026-06-30 05:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/50749.shtml)
-- 2026-06-30 05:34 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/53269.shtml)
-- 2026-06-30 05:33 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/083365.shtml)
-- 2026-06-30 05:21 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/1651819.shtml)
-- 2026-06-30 05:35 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/929068185.shtml)
-- 2026-06-30 05:23 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/1825816.shtml)
-- 2026-06-30 05:22 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/36083782758.shtml)
-- 2026-06-30 05:21 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/085989519941.shtml)
-- 2026-06-30 05:43 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/38439379422.shtml)
-- 2026-06-30 05:45 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/58620493.shtml)
-- 2026-06-30 05:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/2357123.shtml)
-- 2026-06-30 05:26 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/689120.shtml)
-- 2026-06-30 05:28 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/996889106.shtml)
-- 2026-06-30 05:44 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/2278764.shtml)
+- 2026-06-30 05:40 - [月亮](https://www.blog.minike.top/Article/details/34313.shtml)
+- 2026-06-30 05:47 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/40100329926.shtml)
+- 2026-06-30 05:25 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/262680652366.shtml)
+- 2026-06-30 05:52 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/118531.shtml)
+- 2026-06-30 05:29 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/154052998.shtml)
+- 2026-06-30 05:24 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/0282061.shtml)
+- 2026-06-30 05:30 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/101267439.shtml)
+- 2026-06-30 05:41 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/634488620.shtml)
+- 2026-06-30 05:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/99904.shtml)
+- 2026-06-30 05:27 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/09124.shtml)
+- 2026-06-30 05:35 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/906269935324.shtml)
+- 2026-06-30 05:40 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/753274121.shtml)
+- 2026-06-30 05:40 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/978705626.shtml)
+- 2026-06-30 05:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/2479831.shtml)
+- 2026-06-30 05:43 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/045400506.shtml)

@@ -1,59 +1,60 @@
-# 吴征铠院士铜像在复旦大学揭幕
+# 特朗普支持万斯与卢比奥搭档竞选2028年美国总统
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网上海4月28日电 在复旦大学化学系创建百年之际，吴征铠院士铜像揭幕仪式日前在复旦大学江湾校区举行。 吴征铠(1913年8月—2007年6月)，江苏扬州人。中国科学院院士，著名物理化学家、放射化学家、化学教育家，我国铀扩散浓缩事业、放射化学、分子光谱学的奠基者之一。1952年任复旦大学化学系主任，此后负责筹建复旦大学原子能系。 复旦大学党委书记裘新在揭幕仪式上表示，吴征铠先
+美国总统唐纳德·特朗普在3日播出的一档播客采访节目中公开表示，现任副总统JD·万斯与国务卿马尔科·卢比奥若在2028年联合搭档参加美国总统选举，将成为“不可战胜”的组合。此番表态再度推高了外界对共和党下一届总统候选人梯队的关注度。 当前，万斯与卢比奥均被视为2028年共和党总统候选人提名的有力竞争者。尽管两人近期在公开场合对各自的政治野心进行了低调处理，但特朗普近期频繁释放有关
 
 ## 正文
 
-中新网上海4月28日电 在复旦大学化学系创建百年之际，吴征铠院士铜像揭幕仪式日前在复旦大学江湾校区举行。
+美国总统唐纳德·特朗普在3日播出的一档播客采访节目中公开表示，现任副总统JD·万斯与国务卿马尔科·卢比奥若在2028年联合搭档参加美国总统选举，将成为“不可战胜”的组合。
 
-吴征铠(1913年8月—2007年6月)，江苏扬州人。
+此番表态再度推高了外界对共和党下一届总统候选人梯队的关注度。
 
-中国科学院院士，著名物理化学家、放射化学家、化学教育家，我国铀扩散浓缩事业、放射化学、分子光谱学的奠基者之一。
+当前，万斯与卢比奥均被视为2028年共和党总统候选人提名的有力竞争者。
 
-1952年任复旦大学化学系主任，此后负责筹建复旦大学原子能系。
+尽管两人近期在公开场合对各自的政治野心进行了低调处理，但特朗普近期频繁释放有关接班人计划的信号。
 
-复旦大学党委书记裘新在揭幕仪式上表示，吴征铠先生治学严谨、求索不息，勇攀高峰、为国铸盾，立德树人、甘为人梯，其为人、为学、为师所体现出的品格、襟怀与风范，正是120多年来复旦光荣爱国传统与优良校风的生动写照。
+特朗普在采访中强调，他注意到万斯与卢比奥在一起时相处融洽，并明确指出两人的组合将很难被击败。
 
-我们要以吴征铠先生为榜样，继续做强化学等优势基础学科，促进不同学科之间的交叉融合与创新突破，以更多首创引领成果支撑高水平科技自立自强，努力创造出无愧于时代、无愧于祖国、无愧于先贤的崭新业绩。
+近期，万斯与卢比奥轮流在白宫新闻发布会上亮相，为现届政府的一系列政策进行辩护，其中包括应对公众支持率不断下滑的对外军事行动。
 
-南京雕塑研究会秘书长田云龙介绍，这尊铜像以半身像形制、写实手法，精准还原了吴征铠先生温润儒雅的学者风范。
+有舆论指出，卢比奥近日在白宫简报台上的表现赢得了共和党内部以及部分民主党人的关注。
 
-创作过程中，他精雕细琢面部肌理、眉骨与眼角的每一道皱纹，既镌刻着先生主持复旦化学系、筹建原子能系的呕心沥血，也凝聚着他隐姓埋名、攻坚铀同位素分离技术的执着坚守与坚毅担当。
+目前，距离2028年11月举行的美国总统大选尚有时日，尚未有人正式宣布参选。
 
 ## 相关推荐
 
-- 2026-06-30 05:28 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 05:40 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 05:30 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 05:36 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 05:19 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 05:27 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 05:20 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 05:34 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 05:38 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 05:35 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 05:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-30 05:18 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 05:45 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 05:27 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 05:29 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 05:34 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 05:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 05:36 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 05:49 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 05:50 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 05:34 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 05:37 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 05:52 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 05:39 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 05:49 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 05:28 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 05:30 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:20 - [急先锋](http://www.blog.kurohicncr.top/Article/details/9837222593.shtml)
-- 2026-06-30 05:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/83217.shtml)
-- 2026-06-30 05:43 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/3719809.shtml)
-- 2026-06-30 05:35 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/071684416.shtml)
-- 2026-06-30 05:47 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/44812.shtml)
-- 2026-06-30 05:34 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/003252959.shtml)
-- 2026-06-30 05:21 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/1208630.shtml)
-- 2026-06-30 05:32 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/32390854.shtml)
-- 2026-06-30 05:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/798868.shtml)
-- 2026-06-30 05:24 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/7442478804.shtml)
-- 2026-06-30 05:39 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/06003450.shtml)
-- 2026-06-30 05:24 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/8203014307.shtml)
-- 2026-06-30 05:39 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/694083055.shtml)
-- 2026-06-30 05:42 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/43482149780.shtml)
-- 2026-06-30 05:34 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/981767656.shtml)
+- 2026-06-30 05:50 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/18742.shtml)
+- 2026-06-30 05:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/3061472.shtml)
+- 2026-06-30 05:27 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/1083983.shtml)
+- 2026-06-30 05:38 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/34131558371.shtml)
+- 2026-06-30 05:40 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/9779137.shtml)
+- 2026-06-30 05:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/240855.shtml)
+- 2026-06-30 05:26 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/5045123.shtml)
+- 2026-06-30 05:36 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/154447878.shtml)
+- 2026-06-30 05:32 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/8412469.shtml)
+- 2026-06-30 05:36 - [千香](https://www.blog.kurohicncr.top/Article/details/27661523385.shtml)
+- 2026-06-30 05:35 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/813976452880.shtml)
+- 2026-06-30 05:39 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/9253031662.shtml)
+- 2026-06-30 05:49 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/2406130296.shtml)
+- 2026-06-30 05:51 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/3255172.shtml)
+- 2026-06-30 05:39 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/77112217565.shtml)

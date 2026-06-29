@@ -1,60 +1,52 @@
-# “长寿维生素”利好来了，拟进入新食品原料！这些公司已布局
+# 陆家嘴国泰人寿注册资本由30亿元增至50亿元
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-“长寿维生素”——麦角硫因拟被列入新食品原料。 日前，国家食品安全风险评估中心发布关于《葡糖基橙皮苷等4种新食品原料公开征求意见》，包括L-麦角硫因在内的4种原料通过专家评审委员会技术审查，拟列入新食品原料。 这标志着麦角硫因作为食品原料的合法化进程步入冲刺阶段——在上述征求意见完成后，经国家卫生健康委批准，最终进入食品原料目录。 图片来源：国家食品安全风险评估中心 抗衰界“黑
+6月3日金融一线消息，上海陆家嘴金融贸易区开发股份有限公司日前发布公告称，陆家嘴国泰人寿保险有限责任公司（以下简称“陆家嘴国泰人寿”）现有股东以自有资金对其同比例增资20亿元，其中，公司全资子公司上海陆家嘴金融发展有限公司（以下简称“陆金发”）以自有资金出资10亿元。本次增资后，陆家嘴国泰人寿注册资本由30亿元增至50亿元。 公告指出，本次对陆家嘴国泰人寿增资，是公司主动应对寿
 
 ## 正文
 
-“长寿维生素”——麦角硫因拟被列入新食品原料。
+6月3日金融一线消息，上海陆家嘴金融贸易区开发股份有限公司日前发布公告称，陆家嘴国泰人寿保险有限责任公司（以下简称“陆家嘴国泰人寿”）现有股东以自有资金对其同比例增资20亿元，其中，公司全资子公司上海陆家嘴金融发展有限公司（以下简称“陆金发”）以自有资金出资10亿元。
 
-日前，国家食品安全风险评估中心发布关于《葡糖基橙皮苷等4种新食品原料公开征求意见》，包括L-麦角硫因在内的4种原料通过专家评审委员会技术审查，拟列入新食品原料。
+本次增资后，陆家嘴国泰人寿注册资本由30亿元增至50亿元。
 
-这标志着麦角硫因作为食品原料的合法化进程步入冲刺阶段——在上述征求意见完成后，经国家卫生健康委批准，最终进入食品原料目录。
+公告指出，本次对陆家嘴国泰人寿增资，是公司主动应对寿险行业转型变局、保障战略规划有效落地、全面满足监管合规要求、持续实现股东价值最大化的必要举措。
 
-图片来源：国家食品安全风险评估中心 抗衰界“黑马”，曾引发争论 麦角硫因是一种抗氧化氨基酸类物质，被誉为“长寿维生素”，是抗衰界的“黑马”，因具有抗氧化、抗炎、线粒体修复、神经保护等多重机制延缓衰老，被广泛应用于化妆品、功能食品和药品等领域。
+结合对陆家嘴国泰人寿当前经营状况及未来发展预期的审慎研判，本次增资将进一步夯实陆家嘴国泰人寿高质量发展的基础，符合公司长远利益与全体股东权益。
 
-它最早由法国药剂师于1909年在研究破坏黑麦谷物的麦角真菌时发现，人自身不能直接合成该物质，只能通过膳食获取。
-
-作为近年来抗衰界的明星产品，麦角硫因持续获得学术界关注。
-
-根据华睿生物信息，麦角硫因作为第五代抗氧化剂，其清除自由基的效率是辅酶Q10的40倍，是谷胱甘肽的14倍，是维生素E的6000倍。
-
-2025年5月，科伦药业董事长刘革新赤膊上阵，高调代言旗下抗衰老产品“麦角硫因胶囊”，被媒体广泛关注，同时引发争议。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 05:27 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 05:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 05:44 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 05:19 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 05:47 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 05:24 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 05:19 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 05:46 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 05:35 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 05:46 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 05:46 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 05:24 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 05:29 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 05:30 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 05:33 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 05:35 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 05:48 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 05:53 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 05:46 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 05:48 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 05:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 05:26 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 05:52 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 05:38 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 05:31 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 05:32 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:47 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/114949457.shtml)
-- 2026-06-30 05:39 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/60014.shtml)
-- 2026-06-30 05:23 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/7480044762.shtml)
-- 2026-06-30 05:39 - [月亮](https://www.share.minike.top/Article/details/62035.shtml)
-- 2026-06-30 05:18 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/03004214134.shtml)
-- 2026-06-30 05:25 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/302883645496.shtml)
-- 2026-06-30 05:40 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/70947129030.shtml)
-- 2026-06-30 05:37 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/044051605.shtml)
-- 2026-06-30 05:44 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/19387898993.shtml)
-- 2026-06-30 05:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/8887588398.shtml)
-- 2026-06-30 05:37 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/5765417.shtml)
-- 2026-06-30 05:24 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/6577678229.shtml)
-- 2026-06-30 05:21 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/969463950.shtml)
-- 2026-06-30 05:20 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/51904347.shtml)
-- 2026-06-30 05:40 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/6441799.shtml)
+- 2026-06-30 05:46 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/68219.shtml)
+- 2026-06-30 05:28 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/9779537.shtml)
+- 2026-06-30 05:51 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/916699.shtml)
+- 2026-06-30 05:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/53569287.shtml)
+- 2026-06-30 05:50 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/685657045.shtml)
+- 2026-06-30 05:40 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/68172338.shtml)
+- 2026-06-30 05:42 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/760070639.shtml)
+- 2026-06-30 05:42 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/7191365.shtml)
+- 2026-06-30 05:39 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/809941707106.shtml)
+- 2026-06-30 05:45 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/60690402.shtml)
+- 2026-06-30 05:43 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/4297900.shtml)
+- 2026-06-30 05:48 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/4705547.shtml)
+- 2026-06-30 05:51 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/1360648922.shtml)
+- 2026-06-30 05:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/936674.shtml)
+- 2026-06-30 05:26 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/7055999393.shtml)

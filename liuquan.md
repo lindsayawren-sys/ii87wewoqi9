@@ -1,59 +1,60 @@
-# 《全国数据资源调查报告（2025年）》发布 数据赋能千行百业成效凸显
+# Meta平台全球升级青少年内容管控，Instagram上线新工具优化推送内容多样性
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网福州4月29日电 (叶艺琳)《全国数据资源调查报告(2025年)》29日在第九届数字中国建设峰会主论坛上正式发布。报告显示，中国数据要素市场化、价值化进程显著提速，数据资源供给体系、数据流通体系和数据开发利用体系协同演进，正从数据资源规模扩张向数据要素价值释放加快跃升。2025年，中国数据生产总量达52.26ZB(泽字节)，同比增长27.28%，约占全球生产总量的27.4
+Meta周二宣布，将在全球范围内升级Instagram、脸书（Facebook）及聊天软件Messenger的青少年账号内容管控设置，保障未成年用户浏览适配其年龄段的内容体验。当下各大社交媒体平台因未成年人身心健康与使用安全问题，正受到监管层面愈发严苛的审查。 该管控项目于去年10月率先在部分国家落地，初衷是阻拦未成年人接触不良不适内容。与此同时，Meta官宣将在Instagr
 
 ## 正文
 
-中新网福州4月29日电 (叶艺琳)《全国数据资源调查报告(2025年)》29日在第九届数字中国建设峰会主论坛上正式发布。
+Meta周二宣布，将在全球范围内升级Instagram、脸书（Facebook）及聊天软件Messenger的青少年账号内容管控设置，保障未成年用户浏览适配其年龄段的内容体验。
 
-报告显示，中国数据要素市场化、价值化进程显著提速，数据资源供给体系、数据流通体系和数据开发利用体系协同演进，正从数据资源规模扩张向数据要素价值释放加快跃升。
+当下各大社交媒体平台因未成年人身心健康与使用安全问题，正受到监管层面愈发严苛的审查。
 
-2025年，中国数据生产总量达52.26ZB(泽字节)，同比增长27.28%，约占全球生产总量的27.44%。
+该管控项目于去年10月率先在部分国家落地，初衷是阻拦未成年人接触不良不适内容。
 
-中国数据存储总量达2.53ZB(泽字节)，活跃数据总量1.67ZB(泽字节)。
+与此同时，Meta官宣将在Instagram内测一项新功能，丰富青少年首页推送内容品类，避免其反复刷到同类主题内容。
 
-中国智算总规模达到159万PFlops(每秒执行千万亿次浮点运算)，八大国家算力枢纽(含十大集群)智算规模占全国比重超过80%，通用算力向智能算力的代际更替加速。
+今年4月，Meta曾向投资者预警：欧美两地针对社交媒体侵害青少年相关问题出台的法律法规与监管整治，或对公司经营业绩与财务表现造成重大负面影响。
 
-中国日均词元调用量从年初的超万亿增长到年末的100万亿，呈现指数级增长；全年词元累计调用量达到约21100万亿。
+在一项具有里程碑意义的诉讼判决中，洛杉矶陪审团于3月25日裁定，Meta与Alphabet存在过失，两家企业打造的社交媒体产品会对青少年身心健康造成损害；一名现年20岁的女性用户自述幼年沉迷社交媒体成瘾，陪审团裁定两家公司合计向其赔付600万美元。
 
-数据赋能千行百业成效凸显。
+Meta表示，针对13周岁以上用户、可过滤青少年不适内容的分级管控现已设为青少年账号系统默认配置。
 
-报告显示，农业领域，用于人工智能的数据量同比增长近15%，智慧农业加速发展；工业领域，工业数据生产量约占企业数据生产总量的1/4，数字化转型赋能效应持续提升。
+官方补充，一款管控力度更强的‘受限内容模式’将于今年晚些时候登陆脸书与Messenger，进一步收紧内容浏览权限。
 
 ## 相关推荐
 
-- 2026-06-30 05:27 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 05:29 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 05:23 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 05:20 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 05:26 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-30 05:43 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 05:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 05:34 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-30 05:19 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 05:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 05:21 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 05:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 05:26 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 05:24 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 05:25 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-30 05:44 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 05:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 05:46 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 05:41 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 05:49 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 05:40 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 05:30 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 05:48 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 05:30 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 05:36 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 05:44 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 05:40 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/10840280325.shtml)
-- 2026-06-30 05:37 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/01849271936.shtml)
-- 2026-06-30 05:47 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/773086648949.shtml)
-- 2026-06-30 05:27 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/079190204753.shtml)
-- 2026-06-30 05:19 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/70793861.shtml)
-- 2026-06-30 05:30 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/76671543750.shtml)
-- 2026-06-30 05:26 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/507135158111.shtml)
-- 2026-06-30 05:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/871273699948.shtml)
-- 2026-06-30 05:37 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/67482566.shtml)
-- 2026-06-30 05:18 - [金刚川](http://www.blog.kurohicncr.top/Article/details/4480325312.shtml)
-- 2026-06-30 05:30 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/13353201.shtml)
-- 2026-06-30 05:47 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/14714147.shtml)
-- 2026-06-30 05:35 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/8645787627.shtml)
-- 2026-06-30 05:27 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/8091605921.shtml)
-- 2026-06-30 05:42 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/697447155.shtml)
+- 2026-06-30 05:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/58210.shtml)
+- 2026-06-30 05:47 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/1551203.shtml)
+- 2026-06-30 05:28 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/081074413.shtml)
+- 2026-06-30 05:28 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/057805519.shtml)
+- 2026-06-30 05:45 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/2393468.shtml)
+- 2026-06-30 05:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/95867093630.shtml)
+- 2026-06-30 05:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/7743093.shtml)
+- 2026-06-30 05:43 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/0437780729.shtml)
+- 2026-06-30 05:31 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/33153758.shtml)
+- 2026-06-30 05:25 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/819432.shtml)
+- 2026-06-30 05:45 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/55300895078.shtml)
+- 2026-06-30 05:30 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/719808054.shtml)
+- 2026-06-30 05:47 - [美股](https://www.share.minike.top/Article/details/79998833.shtml)
+- 2026-06-30 05:30 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/993433.shtml)
+- 2026-06-30 05:31 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/88896039.shtml)

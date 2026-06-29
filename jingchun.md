@@ -1,50 +1,56 @@
-# 达利国际获Hinton Company Limited增持1.8万股 每股作价1.3378港元
+# Upstart发布2026年5月贷款发放数据，日均放贷5820万美元
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，4月23日，Hinton Company Limited增持达利国际（00608）1.8万股，每股作价1.3378港元，总金额约为2.41万港元。增持后最新持股数目约为1.71亿股，最新持股比例为56%。责任编辑：卢昱君
+人工智能贷款平台Upstart Holdings于6月3日公布了2026年5月的月度贷款发放数据。数据显示，该公司在5月共促成贷款发放总额约14.533亿美元，按25个有效发放日计算，日均发放额达5820万美元。 据Upstart在商业资讯平台Business Wire上发布的公告，5月的发放日天数为25.0天。该公司的发放日计算方式为：每个工作日计为1.0天，周末和银行假日则
 
 ## 正文
 
-香港联交所最新数据显示，4月23日，Hinton Company Limited增持达利国际（00608）1.8万股，每股作价1.3378港元，总金额约为2.41万港元。
+人工智能贷款平台Upstart Holdings于6月3日公布了2026年5月的月度贷款发放数据。
 
-增持后最新持股数目约为1.71亿股，最新持股比例为56%。
+数据显示，该公司在5月共促成贷款发放总额约14.533亿美元，按25个有效发放日计算，日均发放额达5820万美元。
 
-责任编辑：卢昱君
+据Upstart在商业资讯平台Business Wire上发布的公告，5月的发放日天数为25.0天。
+
+该公司的发放日计算方式为：每个工作日计为1.0天，周末和银行假日则加权计算为0.55天，以反映相对较低的贷款申请活跃度。
+
+这一数据延续了Upstart在2026年第一季度的强劲增长势头。
+
+根据公司此前发布的财报，第一季度贷款发放总额约为34亿美元，同比增长61%；交易量达425，356笔，同比增长77%。
+
+第一季度营收为3.08亿美元，同比增长44%，超出市场预期的3.03亿美元。
+
+不过，公司在快速扩张的同时也面临盈利压力。
 
 ## 相关推荐
 
-- 2026-06-30 05:23 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 05:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 05:37 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-30 05:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 05:30 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 05:35 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-30 05:30 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 05:27 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 05:33 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 05:46 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 05:34 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 05:43 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 05:33 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 05:23 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 05:43 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 05:40 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 05:43 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 05:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 05:39 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 05:40 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 05:43 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 05:32 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 05:37 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 05:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:44 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/417786685008.shtml)
-- 2026-06-30 05:29 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/026060806756.shtml)
-- 2026-06-30 05:42 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/167874096684.shtml)
-- 2026-06-30 05:27 - [千与千寻](http://www.share.minike.top/Article/details/944152946996.shtml)
-- 2026-06-30 05:47 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/44841.shtml)
-- 2026-06-30 05:18 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/167706.shtml)
-- 2026-06-30 05:20 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/8778912689.shtml)
-- 2026-06-30 05:20 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/83999332.shtml)
-- 2026-06-30 05:45 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/43987329596.shtml)
-- 2026-06-30 05:23 - [85花告别古偶](http://www.blog.minike.top/Article/details/77439217.shtml)
-- 2026-06-30 05:46 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/041326.shtml)
-- 2026-06-30 05:47 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/4180976.shtml)
-- 2026-06-30 05:21 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/21051008.shtml)
-- 2026-06-30 05:19 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/481633.shtml)
-- 2026-06-30 05:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/75246163174.shtml)
+- 2026-06-30 05:42 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/92938.shtml)
+- 2026-06-30 05:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/1972221772.shtml)
+- 2026-06-30 05:34 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/2429116.shtml)
+- 2026-06-30 05:34 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/64157695529.shtml)
+- 2026-06-30 05:32 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/372657212.shtml)
+- 2026-06-30 05:42 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/968712173.shtml)
+- 2026-06-30 05:48 - [85花告别古偶](https://www.blog.minike.top/Article/details/43333122597.shtml)
+- 2026-06-30 05:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/91580511891.shtml)
+- 2026-06-30 05:38 - [沉睡花园](http://www.share.minike.top/Article/details/07470261325.shtml)
+- 2026-06-30 05:47 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/834096545336.shtml)
+- 2026-06-30 05:44 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/332079094.shtml)
+- 2026-06-30 05:39 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/697812.shtml)
+- 2026-06-30 05:36 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/132794.shtml)
+- 2026-06-30 05:37 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/5933673.shtml)
+- 2026-06-30 05:38 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/9500349472.shtml)

@@ -1,54 +1,59 @@
-# 建设银行：一季度净息差1.36%，较去年全年上升0.02个百分点
+# 台湾导演陈坤厚：“把中华文化善良传统拍给世界看”
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-4月29日，建行发布2026年一季度经营业绩。季报显示，建行一季度利息净收入和非利息收入同比双增。利息净收入同比增长8.13%，实现恢复性增长；非利息净收入同比增长20.15%，占经营收入比重同比提升1.96个百分点，手续费及佣金净收入同比增长6.72%。净息差1.36%，较去年全年上升0.02个百分点。责任编辑：王馨茹
+中新社北京6月4日电 题：台湾导演陈坤厚：“把中华文化善良传统拍给世界看” 作者 徐雪莹 李百加 年近87岁的台湾导演陈坤厚最近很忙。这位金马奖终身成就奖获得者携新作《青铜葵花》，辗转于大陆不同城市映后交流现场。 “善良是中国几千年来的文化传统，我想把它拍给世界看。这也是我们电影创作者该做的事。”接受中新社采访时，陈坤厚如是说。 电影《青铜葵花》改编自国际安徒生奖得主、大陆儿童
 
 ## 正文
 
-4月29日，建行发布2026年一季度经营业绩。
+中新社北京6月4日电 题：台湾导演陈坤厚：“把中华文化善良传统拍给世界看” 作者 徐雪莹 李百加 年近87岁的台湾导演陈坤厚最近很忙。
 
-季报显示，建行一季度利息净收入和非利息收入同比双增。
+这位金马奖终身成就奖获得者携新作《青铜葵花》，辗转于大陆不同城市映后交流现场。
 
-利息净收入同比增长8.13%，实现恢复性增长；非利息净收入同比增长20.15%，占经营收入比重同比提升1.96个百分点，手续费及佣金净收入同比增长6.72%。
+“善良是中国几千年来的文化传统，我想把它拍给世界看。
 
-净息差1.36%，较去年全年上升0.02个百分点。
+这也是我们电影创作者该做的事。
 
-责任编辑：王馨茹
+”接受中新社采访时，陈坤厚如是说。
+
+电影《青铜葵花》改编自国际安徒生奖得主、大陆儿童文学作家曹文轩同名小说，讲述20世纪60年代苏北农村男孩青铜与城市女孩葵花的情谊。
+
+陈坤厚说，他被小说中无为而善的情感与充盈的细节所打动，希望透过影像将这份心灵滋养传递给更多人。
+
+陈坤厚与曹文轩并非首次合作。
 
 ## 相关推荐
 
-- 2026-06-30 05:21 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 05:36 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 05:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-30 05:22 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 05:24 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 05:31 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 05:20 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 05:21 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 05:22 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 05:31 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 05:25 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 05:32 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 05:23 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 05:21 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 05:46 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 05:27 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 05:31 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 05:45 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 05:47 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 05:49 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 05:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 05:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 05:38 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 05:39 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 05:46 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 05:44 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 05:50 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:43 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/304228900.shtml)
-- 2026-06-30 05:34 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/8020088302.shtml)
-- 2026-06-30 05:29 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/94057.shtml)
-- 2026-06-30 05:31 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/869962.shtml)
-- 2026-06-30 05:42 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/37432.shtml)
-- 2026-06-30 05:18 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/05785247.shtml)
-- 2026-06-30 05:34 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/0943361412.shtml)
-- 2026-06-30 05:18 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/8666422953.shtml)
-- 2026-06-30 05:33 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/8122610038.shtml)
-- 2026-06-30 05:38 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/8646872061.shtml)
-- 2026-06-30 05:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/6986122.shtml)
-- 2026-06-30 05:45 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/00758.shtml)
-- 2026-06-30 05:22 - [第一炉香](https://www.share.minike.top/Article/details/2143984.shtml)
-- 2026-06-30 05:42 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/153667009.shtml)
-- 2026-06-30 05:40 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/096637.shtml)
+- 2026-06-30 05:50 - [恋与深空 日服](http://www.blog.minike.top/Article/details/261607.shtml)
+- 2026-06-30 05:25 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/907533212.shtml)
+- 2026-06-30 05:40 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/36070306.shtml)
+- 2026-06-30 05:27 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/07850.shtml)
+- 2026-06-30 05:48 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/090078628.shtml)
+- 2026-06-30 05:30 - [日本进球](http://www.share.minike.top/Article/details/704922454139.shtml)
+- 2026-06-30 05:40 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/221796787.shtml)
+- 2026-06-30 05:46 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/29341560912.shtml)
+- 2026-06-30 05:40 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/761121867484.shtml)
+- 2026-06-30 05:53 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/13602.shtml)
+- 2026-06-30 05:53 - [巴西绝杀日本](http://www.share.minike.top/Article/details/6564594063.shtml)
+- 2026-06-30 05:35 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/205092.shtml)
+- 2026-06-30 05:34 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/9328262.shtml)
+- 2026-06-30 05:37 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/8541457720.shtml)
+- 2026-06-30 05:44 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/55864249.shtml)

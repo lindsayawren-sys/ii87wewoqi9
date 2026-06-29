@@ -1,42 +1,47 @@
-# 财经老王丨下一步经济工作怎么干？更大力度、更实举措
+# 美术特长生专业考试有非监考老师进入考场？湖南湘乡通报
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 15:59 来源：央视新闻客户端 责任编辑：【杨彦宇】
+中新网6月3日电 据“湘乡教育”微信公众号消息，湖南省湘乡市教育局发布情况通报，近日，“湘乡一中美术特长生专业考试有非监考老师进入考场”的相关信息引发网民关注。对此，湘乡市教育局高度重视，已成立工作专班，开展深入核查，将依法依规处理，保障学生合法权益。下一步将切实加强管理，坚决维护教育公平公正。
 
 ## 正文
 
-发布时间：2026年04月29日 15:59 来源：央视新闻客户端 责任编辑：【杨彦宇】
+中新网6月3日电 据“湘乡教育”微信公众号消息，湖南省湘乡市教育局发布情况通报，近日，“湘乡一中美术特长生专业考试有非监考老师进入考场”的相关信息引发网民关注。
+
+对此，湘乡市教育局高度重视，已成立工作专班，开展深入核查，将依法依规处理，保障学生合法权益。
+
+下一步将切实加强管理，坚决维护教育公平公正。
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 05:24 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 05:28 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-30 05:39 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-30 05:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 05:45 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 05:22 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-30 05:19 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 05:26 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 05:30 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 05:48 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 05:50 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 05:38 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 05:44 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 05:26 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 05:36 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 05:47 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 05:39 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 05:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 05:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 05:25 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/859756736.shtml)
-- 2026-06-30 05:18 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/46346693803.shtml)
-- 2026-06-30 05:42 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/098930298276.shtml)
-- 2026-06-30 05:45 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/142763596.shtml)
-- 2026-06-30 05:45 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/22589209.shtml)
-- 2026-06-30 05:21 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/177450830414.shtml)
-- 2026-06-30 05:43 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/5620125089.shtml)
-- 2026-06-30 05:20 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/79072071.shtml)
-- 2026-06-30 05:34 - [我和我的家乡](http://www.blog.minike.top/Article/details/552582740931.shtml)
-- 2026-06-30 05:28 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/32504838020.shtml)
-- 2026-06-30 05:21 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/25919240803.shtml)
-- 2026-06-30 05:21 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/75638937088.shtml)
-- 2026-06-30 05:36 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/440428.shtml)
-- 2026-06-30 05:47 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/37439.shtml)
-- 2026-06-30 05:26 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/519801048.shtml)
+- 2026-06-30 05:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/61099531592.shtml)
+- 2026-06-30 05:30 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/697208.shtml)
+- 2026-06-30 05:49 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/33982666.shtml)
+- 2026-06-30 05:46 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/852524658616.shtml)
+- 2026-06-30 05:41 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/81300.shtml)
+- 2026-06-30 05:54 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/65165266789.shtml)
+- 2026-06-30 05:51 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/0056317.shtml)
+- 2026-06-30 05:25 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/866188429079.shtml)
+- 2026-06-30 05:53 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/06640520.shtml)
+- 2026-06-30 05:43 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/4722489.shtml)
+- 2026-06-30 05:53 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/866379.shtml)
+- 2026-06-30 05:27 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/756923.shtml)
+- 2026-06-30 05:53 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/38280116.shtml)
+- 2026-06-30 05:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/419632.shtml)
+- 2026-06-30 05:40 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/938085224600.shtml)

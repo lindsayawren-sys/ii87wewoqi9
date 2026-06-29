@@ -1,61 +1,59 @@
-# 受贿9220万余元 江西省人大常委会原副主任洪礼和一审获刑20年
+# 长三角铁路或创端午假期单日客发量新高
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-2026年4月28日，福建省福州市中级人民法院一审公开宣判江西省人大常委会原党组副书记、副主任洪礼和受贿、滥用职权、洗钱案，对被告人洪礼和以受贿罪判处有期徒刑十五年，并处罚金人民币七百万元，以滥用职权罪判处有期徒刑九年六个月，以洗钱罪判处有期徒刑三年六个月，并处罚金人民币五十万元，决定执行有期徒刑二十年，并处罚金人民币七百五十万元；对其犯罪所得财物及孳息依法予以追缴，上缴国库。
+中新社上海6月3日电 (谢梦圆)记者3日从中国铁路上海局集团有限公司(上铁集团)获悉，今年端午节当天(6月19日)，长三角铁路预计发送旅客420万人次，有望创下端午假期运输单日旅客发送量新高。 长三角铁路2026年端午假期旅客运输方案近日出台。今年铁路端午假期运输期限为6月18日至6月22日，合计5天。假期期间，上铁集团预计发送旅客1745万人次，日均发送旅客349万人次，客流
 
 ## 正文
 
-2026年4月28日，福建省福州市中级人民法院一审公开宣判江西省人大常委会原党组副书记、副主任洪礼和受贿、滥用职权、洗钱案，对被告人洪礼和以受贿罪判处有期徒刑十五年，并处罚金人民币七百万元，以滥用职权罪判处有期徒刑九年六个月，以洗钱罪判处有期徒刑三年六个月，并处罚金人民币五十万元，决定执行有期徒刑二十年，并处罚金人民币七百五十万元；对其犯罪所得财物及孳息依法予以追缴，上缴国库。
+中新社上海6月3日电 (谢梦圆)记者3日从中国铁路上海局集团有限公司(上铁集团)获悉，今年端午节当天(6月19日)，长三角铁路预计发送旅客420万人次，有望创下端午假期运输单日旅客发送量新高。
 
-经审理查明：2000年至2024年，被告人洪礼和利用担任江西省新余市市长、市委书记，江西省发改委党组书记、主任，江西省政府党组成员、副省长，江西省人大常委会党组副书记、副主任，江西老年大学校长等职务上的便利，为有关单位和个人在企业经营、股权收购、项目承接、职务晋升等方面提供帮助，直接或者通过他人非法收受财物共计折合人民币9220万余元。
+长三角铁路2026年端午假期旅客运输方案近日出台。
 
-2010年至2013年，洪礼和担任江西省政府党组成员、副省长期间，徇私舞弊，滥用职权，违规帮助他人获取省级预留新增建设用地计划指标，造成特别恶劣社会影响，致使国家和人民利益遭受特别重大损失。
+今年铁路端午假期运输期限为6月18日至6月22日，合计5天。
 
-2020年至2023年，洪礼和通过办理大额存单、购买房产等方式掩饰、隐瞒受贿所得。
+假期期间，上铁集团预计发送旅客1745万人次，日均发送旅客349万人次，客流同比增长8%。
 
-福州市中级人民法院认为，被告人洪礼和的行为构成受贿罪、滥用职权罪、洗钱罪，应依法惩处。
+据上铁集团客运部相关工作人员介绍，此次端午假期运输期间，长三角铁路客流将呈现三大显著特点。
 
-鉴于洪礼和归案后如实供述自己的罪行，主动交代监察机关尚未掌握的绝大部分受贿犯罪事实和洗钱犯罪事实，洗钱罪构成自首；认罪悔罪，积极退赃，受贿犯罪赃款赃物及孳息绝大部分已追缴到案；检举揭发他人重大犯罪经查属实，有重大立功表现，具有法定、酌定从轻处罚情节，依法可对其从轻处罚。
+一是由于今年端午假期运输较去年推迟19天，恰逢全国高考结束后，受客群出行时间调整、市场需求叠加、出游气温适宜等多重利好因素推动，长三角区域旅客出行需求旺盛，学生流、旅游流有望成为拉动本次假期客流增长的核心增长点。
 
-法庭遂作出上述判决。
+二是杭衢高铁、合新高铁合泗段、金建高铁兰建段等高铁新线引流作用明显，新线、新站、新车等新增资源进一步带来客流增量。
 
-福州市中级人民法院于2026年1月30日公开开庭审理了该案。
+三是受国际燃油价格波动影响，其他交通工具票价上浮，预计部分中长途客流回流至铁路。
 
 ## 相关推荐
 
-- 2026-06-30 05:24 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 05:19 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 05:40 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 05:33 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 05:31 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 05:26 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 05:43 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 05:34 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 05:27 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 05:25 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 05:43 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 05:31 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 05:30 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-30 05:30 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 05:21 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 05:51 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 05:38 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 05:28 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 05:52 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 05:53 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 05:37 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 05:49 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 05:52 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 05:35 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 05:52 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 05:31 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 05:52 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 05:48 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/404221991366.shtml)
-- 2026-06-30 05:31 - [金牌调解](http://www.share.minike.top/Article/details/36605173469.shtml)
-- 2026-06-30 05:39 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/651157475.shtml)
-- 2026-06-30 05:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/576149.shtml)
-- 2026-06-30 05:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/977644979.shtml)
-- 2026-06-30 05:18 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/22625762.shtml)
-- 2026-06-30 05:34 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/426421.shtml)
-- 2026-06-30 05:34 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/044726613.shtml)
-- 2026-06-30 05:38 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/856882881.shtml)
-- 2026-06-30 05:42 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/8151793612.shtml)
-- 2026-06-30 05:37 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/01758.shtml)
-- 2026-06-30 05:42 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/33294567.shtml)
-- 2026-06-30 05:20 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/11721.shtml)
-- 2026-06-30 05:22 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/30191229.shtml)
-- 2026-06-30 05:44 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/560790876.shtml)
+- 2026-06-30 05:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/39787187.shtml)
+- 2026-06-30 05:42 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/2319174078.shtml)
+- 2026-06-30 05:51 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/637328675644.shtml)
+- 2026-06-30 05:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/4089196751.shtml)
+- 2026-06-30 05:33 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/22479.shtml)
+- 2026-06-30 05:47 - [请回答王牌2019](http://www.blog.minike.top/Article/details/2889548.shtml)
+- 2026-06-30 05:51 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/2298119044.shtml)
+- 2026-06-30 05:40 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/99802357.shtml)
+- 2026-06-30 05:40 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/573433.shtml)
+- 2026-06-30 05:28 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/608427933.shtml)
+- 2026-06-30 05:38 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/496742515.shtml)
+- 2026-06-30 05:46 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/278579438035.shtml)
+- 2026-06-30 05:43 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/91949147.shtml)
+- 2026-06-30 05:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/63610.shtml)
+- 2026-06-30 05:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/80833199466.shtml)

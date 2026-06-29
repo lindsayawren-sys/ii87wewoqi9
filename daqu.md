@@ -1,59 +1,59 @@
-# 逆势登顶、价值领跑！吉利汽车一季度经营成效全面跃迁 锻造高质量增长样本
+# 太空计算工作委员会成立 业界呼吁加快形成太空计算生态
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年一季度，汽车行业在价格战延续、成本高位运行与市场竞争白热化的叠加冲击下，普遍承受着巨大的经营压力。在此背景下，吉利汽车凭借强韧战略定力与体系化能力实现逆势增长，一季度总销量突破70万辆，强势登顶中国品牌销量冠军，营收达838亿元、核心归母净利润45.6亿元，同比劲增31%，刷新历史同期纪录。 消费
+中新网北京6月3日电 (记者 刘亮)中国计算机行业协会太空计算工作委员会(以下简称“工委会”)成立大会暨第一次全体成员大会3日在北京召开。 工业和信息化部电子信息司副司长史惠康在致辞中指出，2026年是“十五五”规划开局之年，也是我国太空计算产业布局的关键之年。当前，我国太空计算产业正在加速起步，建议从强化统筹布局、促进融合创新、完善生态建设等方面推动产业发展。 “太空计算是国
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京6月3日电 (记者 刘亮)中国计算机行业协会太空计算工作委员会(以下简称“工委会”)成立大会暨第一次全体成员大会3日在北京召开。
 
-2026年一季度，汽车行业在价格战延续、成本高位运行与市场竞争白热化的叠加冲击下，普遍承受着巨大的经营压力。
+工业和信息化部电子信息司副司长史惠康在致辞中指出，2026年是“十五五”规划开局之年，也是我国太空计算产业布局的关键之年。
 
-在此背景下，吉利汽车凭借强韧战略定力与体系化能力实现逆势增长，一季度总销量突破70万辆，强势登顶中国品牌销量冠军，营收达838亿元、核心归母净利润45.6亿元，同比劲增31%，刷新历史同期纪录。
+当前，我国太空计算产业正在加速起步，建议从强化统筹布局、促进融合创新、完善生态建设等方面推动产业发展。
 
-消费市场与资本市场实现“双增”的背后，是吉利以高端化、全球化、智能化战略为锚，跳出低效内卷、转向高价值创造的深刻实践。
+“太空计算是国家战略布局的关键点，也是航天强国建设的必然要求和重要基石。
 
-吉利正以一份强韧的财报，向市场清晰展示出通过“一个吉利”精密运营与战略聚焦，在周期波动中构筑高质量发展的新格局。
+”中国科学院院士、西北工业大学常务副校长张艳宁指出，计算未来将向空天地海一体化方向发展，工委会的成立响应国家战略号召，为产业协同发展提供了里程碑式的平台。
 
-从“规模领跑”向“价值领跑” 经营质量结构性跃迁 一季度行业整体盈利承压，吉利汽车交出高质量财务答卷，核心盈利指标全面向好，彻底摆脱“以价换量”的粗放模式，营收、利润、盈利质量、财务结构全方位升级，实现从“规模领跑”向“价值领跑”的跃迁。
+中国科学院院士、中国科学院大学杭州高等研究院院长王建宇在发言中分析太空计算发展的迫切需求与问题挑战，建议产业界抓住市场扩容、成本下降与供应链构建的窗口期，加快形成健康的太空计算生态。
 
-2026年一季度，吉利汽车总销量达709358辆，登顶中国品牌季度销量冠军，市占率提升至11.95%。
+中国电子信息产业发展研究院总工程师、工委会筹备组组长李宏伟介绍，在工业和信息化部电子信息司指导下，组建工作专班，系统调研了太空计算战略布局与技术进展，明确了工委会的平台定位和组织架构，已收到100余家单位的入会申请，覆盖抗辐照芯片、太空计算整机设备、供电散热系统、数据传输系统、星座设施、航天发射等领域。
 
-其中，新能源销量达369059辆，同比增长9%，新能源占比达到52%，结构性增长特征日益显著。
+中国计算机行业协会副秘书长相春雷当天宣读太空计算工委会成立的批复意见。
 
 ## 相关推荐
 
-- 2026-06-30 05:45 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 05:34 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 05:31 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 05:30 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 05:22 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 05:37 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 05:34 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 05:18 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 05:43 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 05:27 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 05:37 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 05:20 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 05:21 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 05:46 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-30 05:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 05:49 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 05:53 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 05:46 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 05:33 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 05:28 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 05:38 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 05:35 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 05:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 05:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 05:45 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 05:50 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:32 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/2443559701.shtml)
-- 2026-06-30 05:36 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/40942314.shtml)
-- 2026-06-30 05:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/453738202032.shtml)
-- 2026-06-30 05:41 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/25788688245.shtml)
-- 2026-06-30 05:29 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/3698770.shtml)
-- 2026-06-30 05:20 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/242464926.shtml)
-- 2026-06-30 05:30 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/457482.shtml)
-- 2026-06-30 05:33 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/0647931371.shtml)
-- 2026-06-30 05:45 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/34342619435.shtml)
-- 2026-06-30 05:18 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/929328.shtml)
-- 2026-06-30 05:20 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/261645603.shtml)
-- 2026-06-30 05:21 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/411341018981.shtml)
-- 2026-06-30 05:24 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/110279445791.shtml)
-- 2026-06-30 05:40 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/881326587.shtml)
-- 2026-06-30 05:22 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/212024105735.shtml)
+- 2026-06-30 05:46 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/12628157.shtml)
+- 2026-06-30 05:37 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/765769720.shtml)
+- 2026-06-30 05:38 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/77065538.shtml)
+- 2026-06-30 05:53 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/88692.shtml)
+- 2026-06-30 05:46 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/98084427756.shtml)
+- 2026-06-30 05:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/525904882553.shtml)
+- 2026-06-30 05:46 - [日本进球](https://www.blog.minike.top/Article/details/44448.shtml)
+- 2026-06-30 05:40 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/798905.shtml)
+- 2026-06-30 05:50 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/6665925.shtml)
+- 2026-06-30 05:48 - [女心理师](https://www.blog.minike.top/Article/details/865471823195.shtml)
+- 2026-06-30 05:46 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/26576.shtml)
+- 2026-06-30 05:52 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/280076.shtml)
+- 2026-06-30 05:27 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/8155092548.shtml)
+- 2026-06-30 05:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/6742019693.shtml)
+- 2026-06-30 05:24 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/734195144813.shtml)

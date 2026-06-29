@@ -1,56 +1,56 @@
-# 数源科技（000909）投资者索赔启动，易事特（300376）索赔案再提交法院立案
+# 绿叶制药拟同步回购1.8亿美元2028年到期可转换债券及发行美元计价可转换债券
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海久诚律师事务所股票索赔律师许峰提示，数源科技（000909）涉嫌虚假陈述引发的投资者索赔案已经启动。（许峰律师专栏） 2026年4月23日，数源科技公告收到证监会出具的《立案告知书》，因涉嫌信息披露违法违规，根据《证券法》《行政处罚法》等法律法规，证监会决定对公司立案。 许峰律师认为，暂定在2026年4月23日之前买入数源科
+绿叶制药（02186）发布公告，有关本公司发行1.8亿美元6.25%利率2028年到期可转换债券（债券股份代号：05818）。根据现有可转换债券的条款及条件第8（F）条（购买），本公司或其任何附属公司在遵守适用法律及法规的情况下，可随时及不时在公开市场或其他地方以任何价格购买现有可转换债券。本公司现拟根据该等条款及条件回购现有可转换债券。 于2026年6月3日，本公司与交易经办
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海久诚律师事务所股票索赔律师许峰提示，数源科技（000909）涉嫌虚假陈述引发的投资者索赔案已经启动。
+绿叶制药（02186）发布公告，有关本公司发行1.8亿美元6.25%利率2028年到期可转换债券（债券股份代号：05818）。
 
-（许峰律师专栏） 2026年4月23日，数源科技公告收到证监会出具的《立案告知书》，因涉嫌信息披露违法违规，根据《证券法》《行政处罚法》等法律法规，证监会决定对公司立案。
+根据现有可转换债券的条款及条件第8（F）条（购买），本公司或其任何附属公司在遵守适用法律及法规的情况下，可随时及不时在公开市场或其他地方以任何价格购买现有可转换债券。
 
-许峰律师认为，暂定在2026年4月23日之前买入数源科技股票，并在2026年4月23日后卖出或继续持有股票的投资者，目前已可准备发起索赔。
+本公司现拟根据该等条款及条件回购现有可转换债券。
 
-（*ST数源维权入口） 除了数源科技投资者索赔案启动，2026年4月27日，许峰律师代理的易事特（维权）（300376）投资者索赔案也再提交法院立案。
+于2026年6月3日，本公司与交易经办人订立交易经办人协议，就拟进行的同步回购，交易经办人已获委任以（其中包括）协助本公司向可能愿意向本公司出售其现有可转换债券的现有可转换债券持有人收集意向表示。
 
-许峰律师提示，易事特投资者索赔案已有胜诉判决，此前部分投资者收到赔偿款，已经获赔到位，律师团队同步还在推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+进行同步回购的同时，本公司拟向机构投资者发行债券。
 
-2024年12月31日晚，易事特公告收到证监会《行政处罚决定书》，经查明，当事人存在以下违法事实： 一、易事特通过开展虚假贸易业务虚增营业收入、营业成本、利润总额。
+承销商已获委任以协调拟发行债券的定价。
 
-二、易事特通过开展具有融资性质的代采业务和代理业务虚增营业收入、营业成本。
+待债券条款（包括规模、发行价及其他条款）落实后，承销商将就拟发行债券与本公司订立认购协议。
 
-三、易事特通过开展具有融资性质的数据中心集成业务虚增营业收入、营业成本。
+倘拟发行债券完成，本公司拟将发行债券的所得款项净额用于为现有债务再融资（包括但不限于为同步回购提供资金）及一般公司用途。
 
 ## 相关推荐
 
-- 2026-06-30 05:45 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 05:26 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 05:25 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 05:36 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 05:46 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 05:21 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 05:47 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 05:39 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 05:21 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 05:47 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 05:53 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 05:43 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 05:37 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 05:40 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 05:52 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 05:45 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 05:29 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 05:36 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 05:49 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 05:33 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:33 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/7860758898.shtml)
-- 2026-06-30 05:24 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/1340510752.shtml)
-- 2026-06-30 05:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/91441.shtml)
-- 2026-06-30 05:33 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/38727903113.shtml)
-- 2026-06-30 05:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/554454756357.shtml)
-- 2026-06-30 05:23 - [扫黑风暴](http://www.blog.minike.top/Article/details/825145968940.shtml)
-- 2026-06-30 05:31 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/0623980.shtml)
-- 2026-06-30 05:42 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/549802379.shtml)
-- 2026-06-30 05:23 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/13609.shtml)
-- 2026-06-30 05:19 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/056732601108.shtml)
-- 2026-06-30 05:18 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/6054599088.shtml)
-- 2026-06-30 05:39 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/48407240.shtml)
-- 2026-06-30 05:27 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/939012.shtml)
-- 2026-06-30 05:31 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/81322927.shtml)
-- 2026-06-30 05:40 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/854267.shtml)
+- 2026-06-30 05:46 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/204454573460.shtml)
+- 2026-06-30 05:44 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/376230.shtml)
+- 2026-06-30 05:35 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/361833.shtml)
+- 2026-06-30 05:45 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/46342334647.shtml)
+- 2026-06-30 05:31 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/77347752486.shtml)
+- 2026-06-30 05:52 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/06190768066.shtml)
+- 2026-06-30 05:31 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/668510707.shtml)
+- 2026-06-30 05:37 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/3151598.shtml)
+- 2026-06-30 05:38 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/203876.shtml)
+- 2026-06-30 05:38 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/96644846671.shtml)
+- 2026-06-30 05:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/204866034.shtml)
+- 2026-06-30 05:36 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/77162233.shtml)
+- 2026-06-30 05:34 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/29441686.shtml)
+- 2026-06-30 05:41 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/17391421269.shtml)
+- 2026-06-30 05:37 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/43693653041.shtml)

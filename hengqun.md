@@ -1,60 +1,56 @@
-# 民生直通车丨一季度新增就业299万人 下一步稳就业有实招
+# 辽宁省委书记：全面排查！辽宁省长：严肃查处！
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-新华社北京4月28日电 题：一季度新增就业299万人 下一步稳就业有实招 新华社记者张晓洁 就业是最基本的民生。今年一季度就业形势如何？下一步稳就业有哪些政策举措？4月28日举行的人力资源社会保障部例行新闻发布会上，有关负责人介绍就业情况。 人力资源社会保障部政策研究司司长崔鹏程介绍，1至3月，全国城镇新增就业299万人，城镇调查失业率平均值为5.3%，就业形势保持总体稳定。有
+辽宁日报6月3日消息，近日，中央生态环境保护督察通报了葫芦岛市生活污水收集处理短板明显典型案例后，辽宁省委、省政府高度重视，坚决扛起督察整改的政治责任，采取坚决有力的措施，即知即改，边督边改，举一反三，推动问题全面彻底整改。辽宁省委书记许昆林作出批示，省长王新伟到葫芦岛市就问题整改工作进行督导检查。 许昆林在批示中强调，葫芦岛市委、市政府要坚决扛牢整改主体责任，全力推进管网建设
 
 ## 正文
 
-新华社北京4月28日电 题：一季度新增就业299万人 下一步稳就业有实招 新华社记者张晓洁 就业是最基本的民生。
+辽宁日报6月3日消息，近日，中央生态环境保护督察通报了葫芦岛市生活污水收集处理短板明显典型案例后，辽宁省委、省政府高度重视，坚决扛起督察整改的政治责任，采取坚决有力的措施，即知即改，边督边改，举一反三，推动问题全面彻底整改。
 
-今年一季度就业形势如何？
+辽宁省委书记许昆林作出批示，省长王新伟到葫芦岛市就问题整改工作进行督导检查。
 
-下一步稳就业有哪些政策举措？
+许昆林在批示中强调，葫芦岛市委、市政府要坚决扛牢整改主体责任，全力推进管网建设改造，限期消除污水直排点位，狠抓黑臭水体排查整治，以务实举措推动问题整改到位。
 
-4月28日举行的人力资源社会保障部例行新闻发布会上，有关负责人介绍就业情况。
+省生态环境厅、省住房城乡建设厅等部门要加强督导指导，全程跟踪整改工作，确保问题按期清零。
 
-人力资源社会保障部政策研究司司长崔鹏程介绍，1至3月，全国城镇新增就业299万人，城镇调查失业率平均值为5.3%，就业形势保持总体稳定。
+各地和相关部门要深入学习贯彻习近平生态文明思想，牢固树立和践行正确政绩观，举一反三，全面排查整治同类问题，完善制度机制，整体提升污水收集处理效能，推动我省水环境质量不断改善。
 
-有关部门加大惠企利民政策落实力度，发放失业保险稳岗返还资金31亿元、一次性扩岗补助5亿元、技能提升补贴8亿元。
+王新伟来到葫芦岛凡和水务公司周边河道，实地察看溢流口，了解直排污水问题整改情况，要求企业巩固整改成果，加强进水、处理、出水全流程数字化管控，优化运行调度，确保稳定达标排放。
 
-开展春风行动暨就业援助季活动，累计举办招聘会5.9万场、发布岗位3600万个。
+葫芦岛市要加快受污染河段与土壤修复整治，拉网式排查同类问题，全面消除污水直排口，推进污水处理厂提标改造和设施设备更新，不断提升污水治理效能。
 
-全力促进高质量充分就业，更多实招硬招即将推出。
+龙港区朝葫路污水提升泵站前200余米配套管道缺失，大量污水通过明渠输送，周边群众反映强烈。
 
 ## 相关推荐
 
-- 2026-06-30 05:47 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 05:38 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 05:42 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 05:30 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 05:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 05:34 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 05:22 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 05:18 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 05:27 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 05:29 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 05:38 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 05:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 05:35 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 05:30 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 05:31 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 05:25 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 05:35 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 05:37 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 05:29 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 05:52 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 05:37 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 05:51 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 05:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 05:28 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:44 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/275959837544.shtml)
-- 2026-06-30 05:21 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/4430211.shtml)
-- 2026-06-30 05:47 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/6940742.shtml)
-- 2026-06-30 05:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/723193882.shtml)
-- 2026-06-30 05:21 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/847783.shtml)
-- 2026-06-30 05:44 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/79839042.shtml)
-- 2026-06-30 05:28 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/03029.shtml)
-- 2026-06-30 05:45 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/073533417231.shtml)
-- 2026-06-30 05:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/11715768.shtml)
-- 2026-06-30 05:39 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/5880030689.shtml)
-- 2026-06-30 05:42 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/31090555.shtml)
-- 2026-06-30 05:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/29574023.shtml)
-- 2026-06-30 05:19 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/637330.shtml)
-- 2026-06-30 05:41 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/54557310961.shtml)
-- 2026-06-30 05:39 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/7548636772.shtml)
+- 2026-06-30 05:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/3834431432.shtml)
+- 2026-06-30 05:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/33747458358.shtml)
+- 2026-06-30 05:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/13779669.shtml)
+- 2026-06-30 05:50 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/8779384.shtml)
+- 2026-06-30 05:26 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/86212.shtml)
+- 2026-06-30 05:36 - [周生如故](http://www.blog.minike.top/Article/details/9354666.shtml)
+- 2026-06-30 05:33 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/1109606.shtml)
+- 2026-06-30 05:34 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/388521203.shtml)
+- 2026-06-30 05:29 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.kurohicncr.top/Article/details/508996432.shtml)
+- 2026-06-30 05:28 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/12254443.shtml)
+- 2026-06-30 05:41 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/3423283329.shtml)
+- 2026-06-30 05:37 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/99780927.shtml)
+- 2026-06-30 05:33 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/75642019.shtml)
+- 2026-06-30 05:29 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/84109372644.shtml)
+- 2026-06-30 05:34 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/330568040309.shtml)

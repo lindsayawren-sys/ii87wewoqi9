@@ -1,58 +1,60 @@
-# 外媒：伊朗储油能力即将耗尽，石油生产或遭不可逆损害
+# PowerBank获纽约州能源局84万美元激励，推进布法罗社区太阳能项目
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网4月28日电 综合《华尔街日报》、彭博社等外媒报道，美国封锁霍尔木兹海峡后，伊朗石油出口陷入停滞。分析师警告，随着储油空间迅速耗尽，伊朗的石油生产可能面临不可逆转的损害。 美国企业研究所(AEI)的关键威胁项目预估，伊朗陆上储油设施可能在4月29日达到存储极限。英国燃料分析公司Energy Aspects也支持这一判断。 报道称，卫星图像显示，伊朗石油枢纽哈尔克岛附近停泊
+PowerBank公司于6月3日宣布，其位于纽约州布法罗一座封闭式垃圾填埋场的3.1兆瓦NY-South Park社区太阳能项目，已获批通过纽约州能源研究与发展局的NY-Sun项目获得841，555美元激励资金。该项目预计还将额外获得730，234美元的激励，包括NY-Sun包容性社区太阳能附加补贴和零售储能激励计划，总资助额有望达到1，571，800美元。 该项目是Power
 
 ## 正文
 
-中新网4月28日电 综合《华尔街日报》、彭博社等外媒报道，美国封锁霍尔木兹海峡后，伊朗石油出口陷入停滞。
+PowerBank公司于6月3日宣布，其位于纽约州布法罗一座封闭式垃圾填埋场的3.1兆瓦NY-South Park社区太阳能项目，已获批通过纽约州能源研究与发展局的NY-Sun项目获得841，555美元激励资金。
 
-分析师警告，随着储油空间迅速耗尽，伊朗的石油生产可能面临不可逆转的损害。
+该项目预计还将额外获得730，234美元的激励，包括NY-Sun包容性社区太阳能附加补贴和零售储能激励计划，总资助额有望达到1，571，800美元。
 
-美国企业研究所(AEI)的关键威胁项目预估，伊朗陆上储油设施可能在4月29日达到存储极限。
+该项目是PowerBank在纽约州持续推进的多个社区太阳能项目之一，此前公司已在Elmira、Jordan Rd 1、Jordan Rd 2及Geddes等项目成功获得NYSERDA资助。
 
-英国燃料分析公司Energy Aspects也支持这一判断。
+该项目预计建成后每年可为约388户家庭提供清洁电力。
 
-报道称，卫星图像显示，伊朗石油枢纽哈尔克岛附近停泊着巨型超级油轮，专家指出，伊朗正将这些油轮用作海上浮动储油设施。
+项目位于布法罗南公园区域的一座封闭垃圾填埋场，此前已在2026年3月获得所有市政许可，包括SEQRA负面声明、区域与用途变更以及分区地图修正，目前正在等待纽约州环境保护部的最终施工批准。
 
-能源与化工咨询公司FGE NextantECA指出，伊朗拥有约1.22亿桶储油空间，距离石油停产仅剩不到七周。
+NY-Sun项目是纽约州推动太阳能产业发展、降低太阳能技术成本的公私合作项目。
 
-研究公司Kpler警告称，伊朗剩余可用存储空间仅能支撑12至22天的正常生产活动。
+社区太阳能模式允许当地租户、 homeowners及企业通过订阅项目获得每月电费抵扣，无需安装屋顶太阳能板即可享受清洁能源带来的成本节约。
 
-此后，哈尔克岛油田将被迫减产，到5月下旬，日产量可能减少多达150万桶。
+PowerBank总裁兼首席执行官Richard Lu博士表示：“NYSERDA的持续支持对我们推进纽约州清洁能源项目组合至关重要。
 
 ## 相关推荐
 
-- 2026-06-30 05:31 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 05:29 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 05:41 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 05:21 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 05:35 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 05:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 05:34 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 05:42 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 05:46 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 05:33 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 05:33 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 05:22 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 05:32 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 05:29 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 05:24 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 05:47 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 05:48 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 05:41 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 05:30 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 05:46 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-30 05:45 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 05:38 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 05:29 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 05:26 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 05:51 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 05:43 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:21 - [苗族银饰](https://www.blog.minike.top/Article/details/356871327.shtml)
-- 2026-06-30 05:23 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/623782.shtml)
-- 2026-06-30 05:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/235099.shtml)
-- 2026-06-30 05:44 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/036565.shtml)
-- 2026-06-30 05:29 - [千与千寻](http://www.blog.minike.top/Article/details/087217067126.shtml)
-- 2026-06-30 05:27 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/75690.shtml)
-- 2026-06-30 05:19 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/33692332069.shtml)
-- 2026-06-30 05:38 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/51886385294.shtml)
-- 2026-06-30 05:25 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/5839877.shtml)
-- 2026-06-30 05:46 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/83008.shtml)
-- 2026-06-30 05:37 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/3927735.shtml)
-- 2026-06-30 05:19 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/654866700461.shtml)
-- 2026-06-30 05:27 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/8814163429.shtml)
-- 2026-06-30 05:45 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/61678.shtml)
-- 2026-06-30 05:32 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/4890195.shtml)
+- 2026-06-30 05:39 - [毒液2](https://www.blog.minike.top/Article/details/096526398.shtml)
+- 2026-06-30 05:29 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/74251.shtml)
+- 2026-06-30 05:42 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/908831368817.shtml)
+- 2026-06-30 05:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/881079315791.shtml)
+- 2026-06-30 05:41 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/649800.shtml)
+- 2026-06-30 05:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/85341718.shtml)
+- 2026-06-30 05:53 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/239390443320.shtml)
+- 2026-06-30 05:48 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/66188284186.shtml)
+- 2026-06-30 05:49 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/0254036948.shtml)
+- 2026-06-30 05:33 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/013487.shtml)
+- 2026-06-30 05:31 - [日本领先巴西](https://www.blog.minike.top/Article/details/20751528931.shtml)
+- 2026-06-30 05:26 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/68867400855.shtml)
+- 2026-06-30 05:35 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/41813.shtml)
+- 2026-06-30 05:37 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/23203053.shtml)
+- 2026-06-30 05:41 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/823783.shtml)

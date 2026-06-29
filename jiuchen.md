@@ -1,61 +1,58 @@
-# 谷歌与美国国防部签订协议 允许其AI系统用于机密军事工作
+# Doubleview启动正式战略审查 任命Canaccord为财务顾问
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-据五角大楼一名官员透露，谷歌已与美国国防部达成协议，允许其人工智能系统用于机密军事工作，而此前该公司的研究人员曾对此提出抗议。 一位知情人士表示，该协议于周一下午4点签署。 Alphabet旗下谷歌的一位发言人表示，公司已修改其与五角大楼的合同。尽管该协议的许多细节仍不清楚，但发言人称，其中包括向五角大楼提供API访问权限，使该机构能够直接接入公司的软件，但不涉及定制开发或模型
+加拿大矿产资源勘探和开发公司Doubleview Gold Corp．周二宣布，已任命Canaccord Genuity Corp．为财务顾问，负责正式战略审查流程。该审查主要聚焦于公司的潜在出售，旨在释放其旗下世界级的Hat多金属项目的全部价值，从而最大化股东回报。 此次战略审查将由董事会主导，探索并评估广泛的战略与财务选项，可能包括Hat项目的出售、合并、安排计划、合资、业
 
 ## 正文
 
-据五角大楼一名官员透露，谷歌已与美国国防部达成协议，允许其人工智能系统用于机密军事工作，而此前该公司的研究人员曾对此提出抗议。
+加拿大矿产资源勘探和开发公司Doubleview Gold Corp．周二宣布，已任命Canaccord Genuity Corp．为财务顾问，负责正式战略审查流程。
 
-一位知情人士表示，该协议于周一下午4点签署。
+该审查主要聚焦于公司的潜在出售，旨在释放其旗下世界级的Hat多金属项目的全部价值，从而最大化股东回报。
 
-Alphabet旗下谷歌的一位发言人表示，公司已修改其与五角大楼的合同。
+此次战略审查将由董事会主导，探索并评估广泛的战略与财务选项，可能包括Hat项目的出售、合并、安排计划、合资、业务合并、资本重组、特别股息、战略投资等。
 
-尽管该协议的许多细节仍不清楚，但发言人称，其中包括向五角大楼提供API访问权限，使该机构能够直接接入公司的软件，但不涉及定制开发或模型构建。
+Canaccord将提供全面的财务分析与估值、交易结构设计、谈判支持等服务，并利用其在黄金、铜及关键矿产领域的全球网络资源为公司对接潜在交易对手。
 
-公司发言人在声明中说：“我们认为，在谷歌基础设施上以行业标准的做法和条款提供商业模型的API访问权限，是支持国家安全的一种负责任做法。
+公司首席执行官Farshad Shirvani表示：“Hat项目已发布的初步经济评估结果极为出色。
 
-” 该发言人补充称：“我们仍致力于私营和公共部门的共识，即在没有适当人类监督的情况下，不应将人工智能用于国内大规模监控或自主武器。
+在共识金属价格下，其税后净现值高达67.3亿至72.7亿加元；在现货价格下，更是达到了135.3亿至148.5亿加元，内部收益率高达19%至39%。
 
-”上述五角大楼官员和知情人士均要求匿名，以便讨论合同问题。
+在当前大宗商品市场强劲、全球关注关键矿产供应安全的大背景下，我们认为现在是启动审查的最佳时机。
 
-责任编辑：丁文武
+” Doubleview的Hat项目位于加拿大卑诗省西北部的“金三角”地区，是一个蕴藏铜、金、钴、钪的多金属斑岩项目。
 
 ## 相关推荐
 
-- 2026-06-30 05:30 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 05:40 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 05:20 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 05:28 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 05:41 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 05:22 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-30 05:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 05:26 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 05:22 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 05:39 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 05:23 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 05:42 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 05:26 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 05:31 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 05:23 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 05:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 05:37 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 05:33 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 05:45 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 05:49 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 05:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 05:38 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 05:33 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 05:24 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 05:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 05:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 05:34 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:27 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/15143833.shtml)
-- 2026-06-30 05:37 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/49352330.shtml)
-- 2026-06-30 05:27 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/375041.shtml)
-- 2026-06-30 05:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/92886139721.shtml)
-- 2026-06-30 05:23 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/985592.shtml)
-- 2026-06-30 05:31 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/19591603013.shtml)
-- 2026-06-30 05:24 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/060175180397.shtml)
-- 2026-06-30 05:45 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/535966.shtml)
-- 2026-06-30 05:24 - [孙兴慜道歉](https://www.share.minike.top/Article/details/335943.shtml)
-- 2026-06-30 05:47 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/65637.shtml)
-- 2026-06-30 05:27 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/801983045.shtml)
-- 2026-06-30 05:28 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/394142035757.shtml)
-- 2026-06-30 05:35 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/69085.shtml)
-- 2026-06-30 05:36 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/679272430058.shtml)
-- 2026-06-30 05:30 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/5514758.shtml)
+- 2026-06-30 05:46 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/85311981.shtml)
+- 2026-06-30 05:34 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/8500550899.shtml)
+- 2026-06-30 05:29 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/078097.shtml)
+- 2026-06-30 05:36 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/052857710374.shtml)
+- 2026-06-30 05:41 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/45872547094.shtml)
+- 2026-06-30 05:30 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/7428588.shtml)
+- 2026-06-30 05:50 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/15899099.shtml)
+- 2026-06-30 05:24 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/12899901328.shtml)
+- 2026-06-30 05:25 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/1129611.shtml)
+- 2026-06-30 05:50 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/99758935.shtml)
+- 2026-06-30 05:30 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/368301036128.shtml)
+- 2026-06-30 05:44 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/20434573.shtml)
+- 2026-06-30 05:25 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/982381.shtml)
+- 2026-06-30 05:45 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/952349694680.shtml)
+- 2026-06-30 05:26 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/69302.shtml)

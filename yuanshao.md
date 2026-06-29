@@ -1,61 +1,59 @@
-# 通用汽车：伊朗战事、高油价未拖累销量
+# 万维智能科技：建议股份合并及更改每手买卖单位
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 车企预计将获得关税退款，电动车业务亏损收窄 美国最高法院驳回特朗普政府紧急关税政策后，通用汽车上调全年调整后盈利指引。 得益于缩减电动车业务带来的成本下降，以及最高法院否决紧急关税后预计到账的 5 亿美元关税退款，通用汽车一季度盈利大幅超出华尔街预期。 企业高管于周二表示，伊朗冲突推高油价，虽增加了通用汽车运营成本，但旗下大型皮卡与 SUV
+万维智能科技（00209）发布公告，董事会建议按本公司股本中每10股每股面值0.01港元的已发行及未发行股份合并为1股每股面值0.10港元的合并股份的基准进行股份合并。 于本公告日期，本公司的法定股本为7亿港元，分为700亿股每股面值0.01港元的股份，其中14.86亿股现有股份迄今已获配发及发行并缴足，且本公司并无持有任何库存股份。于股份合并生效后，并假设自本公告日期起直至股
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 车企预计将获得关税退款，电动车业务亏损收窄 美国最高法院驳回特朗普政府紧急关税政策后，通用汽车上调全年调整后盈利指引。
+万维智能科技（00209）发布公告，董事会建议按本公司股本中每10股每股面值0.01港元的已发行及未发行股份合并为1股每股面值0.10港元的合并股份的基准进行股份合并。
 
-得益于缩减电动车业务带来的成本下降，以及最高法院否决紧急关税后预计到账的 5 亿美元关税退款，通用汽车一季度盈利大幅超出华尔街预期。
+于本公告日期，本公司的法定股本为7亿港元，分为700亿股每股面值0.01港元的股份，其中14.86亿股现有股份迄今已获配发及发行并缴足，且本公司并无持有任何库存股份。
 
-企业高管于周二表示，伊朗冲突推高油价，虽增加了通用汽车运营成本，但旗下大型皮卡与 SUV 的市场需求几乎未受冲击。
+于股份合并生效后，并假设自本公告日期起直至股份合并生效日期并无进一步发行或购回及注销现有股份，则本公司的法定股本将包括7亿港元，分为70亿股每股面值0.10港元的合并股份，其中1.49亿股合并股份将已发行并缴足。
 
-公司营收同比降幅不足 1%，表明截至目前，伊朗局势冲突与美国汽油价格飙升对整车销售影响有限。
+于本公告日期，现有股份于联交所买卖的每手买卖单位为1万股现有股份。
 
-通用汽车电动车销量同比下滑，由于电动车业务持续亏损，该变化反而增厚企业利润；燃油车销量则与去年基本持平。
+董事会建议于股份合并生效后，将于联交所买卖的每手买卖单位由1万股现有股份更改为1000股合并股份。
 
-据财经数据公司 FactSet 数据，通用汽车本季度调整后净利润为 42 亿美元，大幅高于预期的 30 亿美元。
+更改每手买卖单位将不会导致本公司相关资产、业务营运或财务状况出现任何变动。
 
-业绩提振主要来自预期关税退款，以及 10 亿美元电动车战略调整相关一次性成本的剔除。
-
-不过，地缘冲突推高了物流与大宗商品原材料成本，同时扰乱通用汽车海外业务布局。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:40 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 05:29 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 05:27 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 05:33 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-30 05:39 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 05:45 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 05:46 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 05:42 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 05:27 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 05:21 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 05:19 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 05:29 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 05:28 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 05:21 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 05:46 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 05:49 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 05:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 05:30 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-30 05:49 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 05:43 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 05:49 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 05:41 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 05:39 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 05:39 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 05:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 05:47 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 05:35 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 05:32 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 05:36 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 05:52 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:24 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/094884655067.shtml)
-- 2026-06-30 05:42 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/26451.shtml)
-- 2026-06-30 05:31 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/93306697.shtml)
-- 2026-06-30 05:22 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/159499851.shtml)
-- 2026-06-30 05:28 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/1470523.shtml)
-- 2026-06-30 05:21 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/49607900908.shtml)
-- 2026-06-30 05:44 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/5381185.shtml)
-- 2026-06-30 05:19 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/468362095766.shtml)
-- 2026-06-30 05:30 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/65382.shtml)
-- 2026-06-30 05:20 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/3397982.shtml)
-- 2026-06-30 05:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/54157952.shtml)
-- 2026-06-30 05:38 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/808787.shtml)
-- 2026-06-30 05:45 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/987387.shtml)
-- 2026-06-30 05:31 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/2738870.shtml)
-- 2026-06-30 05:19 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/7761638.shtml)
+- 2026-06-30 05:50 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.kurohicncr.top/Article/details/918423783.shtml)
+- 2026-06-30 05:49 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/2354101.shtml)
+- 2026-06-30 05:49 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/82414661.shtml)
+- 2026-06-30 05:43 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/70585354.shtml)
+- 2026-06-30 05:33 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/931057306.shtml)
+- 2026-06-30 05:40 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/623173402.shtml)
+- 2026-06-30 05:24 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/200601654633.shtml)
+- 2026-06-30 05:25 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/48311.shtml)
+- 2026-06-30 05:52 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/962071213981.shtml)
+- 2026-06-30 05:24 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/8319968.shtml)
+- 2026-06-30 05:38 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/722670620.shtml)
+- 2026-06-30 05:41 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/6214996987.shtml)
+- 2026-06-30 05:50 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/161056521329.shtml)
+- 2026-06-30 05:47 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/564230.shtml)
+- 2026-06-30 05:36 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/536494194037.shtml)

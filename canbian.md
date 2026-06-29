@@ -1,57 +1,52 @@
-# 法国监管机构：75%电商平台送检产品违反欧盟标准
+# 美银：英伟达2027财年下半年Vera CPU销售额有望达200亿美元
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-法国竞争、消费和反欺诈总局周三公布的一项大规模抽检结果显示，从主要电商平台购买的送检产品中，高达75%不符合欧盟标准，其中近半数被判定为“危险”。这一发现正值欧盟收紧对跨境电商平台监管之际。 违规比例触目惊心，46%产品存在安全隐患 法国DGCCRF在2025年从七家境外电商平台购买了600多件产品进行检测，检测数量是往年的三倍。结果显示，仅25%产品完全符合欧盟标准。在所有检
+美银分析师Vivek Arya团队更新了英伟达研报。 该机构测算2027财年下半年Vera CPU销售额有望达200亿美元；下一财年产品年化营收规模将突破500亿美元，英伟达有望跻身全球头部服务器CPU供应商。 Arya在研报中写道：“英伟达硬件护城河持续拓宽，可触达市场从传统GPU机架，延伸至CPU、光电互联、存储安全、企业软件，如今再新增个人AI PC赛道。” 分析师测算，
 
 ## 正文
 
-法国竞争、消费和反欺诈总局周三公布的一项大规模抽检结果显示，从主要电商平台购买的送检产品中，高达75%不符合欧盟标准，其中近半数被判定为“危险”。
+美银分析师Vivek Arya团队更新了英伟达研报。
 
-这一发现正值欧盟收紧对跨境电商平台监管之际。
+该机构测算2027财年下半年Vera CPU销售额有望达200亿美元；下一财年产品年化营收规模将突破500亿美元，英伟达有望跻身全球头部服务器CPU供应商。
 
-违规比例触目惊心，46%产品存在安全隐患 法国DGCCRF在2025年从七家境外电商平台购买了600多件产品进行检测，检测数量是往年的三倍。
+Arya在研报中写道：“英伟达硬件护城河持续拓宽，可触达市场从传统GPU机架，延伸至CPU、光电互联、存储安全、企业软件，如今再新增个人AI PC赛道。
 
-结果显示，仅25%产品完全符合欧盟标准。
+” 分析师测算，搭载RTX Spark的产品对标苹果Mac Mini与MacBook Pro，瞄准高端Windows市场前10%客群，年出货量有望达2500万~3000万台。
 
-在所有检测产品中，46%不仅违规，而且存在电击、火灾、窒息或含有过量有害化学物质等安全隐患。
+美银维持英伟达买入评级，目标价350美元，定价依据为2027年剔出现金后市盈率26倍，落在英伟达历史远期市盈率区间25~56倍之内。
 
-检测结果呈现系统性违规特征。
-
-所有接受检测的电器产品均不合格，其中近四分之三存在触电或火灾风险。
-
-儿童产品、珠宝和服装普遍存在窒息风险及化学品超标问题。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 05:32 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 05:21 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 05:24 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 05:34 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 05:30 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 05:26 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 05:29 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 05:29 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 05:27 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 05:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 05:44 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 05:37 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 05:27 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 05:36 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 05:49 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 05:34 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 05:52 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 05:37 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 05:40 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 05:30 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 05:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/1824198275.shtml)
-- 2026-06-30 05:41 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/24676725.shtml)
-- 2026-06-30 05:30 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/557677.shtml)
-- 2026-06-30 05:25 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/9435442.shtml)
-- 2026-06-30 05:43 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/4208841075.shtml)
-- 2026-06-30 05:30 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/5540040600.shtml)
-- 2026-06-30 05:18 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/5521314.shtml)
-- 2026-06-30 05:45 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/61673076594.shtml)
-- 2026-06-30 05:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/803313503271.shtml)
-- 2026-06-30 05:31 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/218830716.shtml)
-- 2026-06-30 05:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/186348931135.shtml)
-- 2026-06-30 05:40 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/5493021279.shtml)
-- 2026-06-30 05:37 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/80603850735.shtml)
-- 2026-06-30 05:29 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/409801611.shtml)
-- 2026-06-30 05:27 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/66895.shtml)
+- 2026-06-30 05:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/7018004.shtml)
+- 2026-06-30 05:26 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/811187378.shtml)
+- 2026-06-30 05:42 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/805155181.shtml)
+- 2026-06-30 05:26 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/579889.shtml)
+- 2026-06-30 05:46 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/64841751.shtml)
+- 2026-06-30 05:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/7811567.shtml)
+- 2026-06-30 05:49 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/80132744.shtml)
+- 2026-06-30 05:38 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/369729739.shtml)
+- 2026-06-30 05:48 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/1796056.shtml)
+- 2026-06-30 05:37 - [巴西扳平比分](http://www.share.minike.top/Article/details/88061973500.shtml)
+- 2026-06-30 05:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/784157.shtml)
+- 2026-06-30 05:53 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/9295467.shtml)
+- 2026-06-30 05:46 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/875966.shtml)
+- 2026-06-30 05:38 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/5754850.shtml)
+- 2026-06-30 05:52 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/048796124.shtml)

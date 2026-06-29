@@ -1,57 +1,58 @@
-# 青海首个数字电网小镇建成落地
+# “两新”政策持续发力 设备更新助力各产业升级
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网西宁4月29日电 (李隽 龙存晶 徐琛)记者从国家电网青海省电力公司获悉，28日，青海省海北藏族自治州海晏县西海镇数字化配电网综合示范项目上线运行，标志着该省首个数字电网小镇建成投运，实现了当地配电网业务流程、作业模式和管理形态的全面数字化升级。 作为“两弹一星”精神的发源地，海北州海晏县西海镇红色研学、生态旅游等产业蓬勃发展，用电需求持续攀升，电网运维面临新考验。 20
+今年以来，随着“两新”政策向纵深推进，大规模设备更新力度持续加大，为产业升级和民生改善提供了有力支撑。 正值“三夏”抢收关键期，在安徽，一批更新上岗的烘干设备正助力夏粮归仓。 这两天，在安徽马鞍山和县，趁着天气转晴，当地正抢抓窗口期收割小麦。受前期阴雨影响，今年不少刚收上来的小麦含水率超过30%，储存难度加大。 安徽省马鞍山市和县龙门水稻家庭农场负责人 李有忠：烘干机从原来的4
 
 ## 正文
 
-中新网西宁4月29日电 (李隽 龙存晶 徐琛)记者从国家电网青海省电力公司获悉，28日，青海省海北藏族自治州海晏县西海镇数字化配电网综合示范项目上线运行，标志着该省首个数字电网小镇建成投运，实现了当地配电网业务流程、作业模式和管理形态的全面数字化升级。
+今年以来，随着“两新”政策向纵深推进，大规模设备更新力度持续加大，为产业升级和民生改善提供了有力支撑。
 
-作为“两弹一星”精神的发源地，海北州海晏县西海镇红色研学、生态旅游等产业蓬勃发展，用电需求持续攀升，电网运维面临新考验。
+正值“三夏”抢收关键期，在安徽，一批更新上岗的烘干设备正助力夏粮归仓。
 
-2025年，国家电网青海省电力公司启动数字化配电网综合示范项目试点，历时1年时间在西海镇搭建起现代智慧配电网管理平台，加装700余台电力线路传感器和配电台区监控设备，推动配电网管理全业务、全环节数字化转型。
+这两天，在安徽马鞍山和县，趁着天气转晴，当地正抢抓窗口期收割小麦。
 
-该示范项目利用大数据、人工智能等数字技术，汇集了配电自动化系统等8套系统17类电力数据，实时监测分析全镇8条10千伏线路、133个配电台区的运行状态，能够实现配电网规划、运行、抢修等业务应用及智能管控。
+受前期阴雨影响，今年不少刚收上来的小麦含水率超过30%，储存难度加大。
 
-据悉，系统可提供客户来电诉求研判与语音应答，建立用户设备健康状况档案，自动完成用电需求分析、数字化现场勘察，并出具最优供电方案。
+安徽省马鞍山市和县龙门水稻家庭农场负责人 李有忠：烘干机从原来的4台增加到10台，烘干能力可以达到300吨。
 
-依托无人机、地面传感器及智能终端构成“空天地”一体化智能巡检体系，构建配电线路及设备模型库，自动研判分析供电质量、设备异常状态，并生成分析报告、诊断处置策略、派发缺陷工单，极大提升了配电网智慧化管理水平。
+2025年，国家将粮食干燥机(烘干机)、植保无人机等6个种类的农机新纳入补贴范围。
 
-“平台上线运行后，成了节日保电的‘智慧哨兵’。
+和县功桥镇一家农业企业拿到30万元政策补贴，将6台老旧烘干机换成了大功率智能烘干设备。
 
-仅上线前7天的试运行期间，平台就发出预警信息76条。
+安徽省马鞍山市和县晨鑫农业发展有限公司总经理 张开：这次设备更新后，烘干效率较过去提升了66%，不仅解决了阴雨天粮食烘干的燃眉之急，还大幅缩短了生产周期，可以说，政策资金真正投向了我们最急需、最关键的环节。
 
 ## 相关推荐
 
-- 2026-06-30 05:26 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 05:31 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 05:37 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 05:46 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 05:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 05:27 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 05:41 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 05:40 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 05:35 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 05:30 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 05:24 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 05:49 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 05:52 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 05:48 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 05:31 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 05:28 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 05:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 05:24 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 05:29 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 05:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 05:26 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 05:29 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 05:42 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:30 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/79394110.shtml)
-- 2026-06-30 05:39 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/697645.shtml)
-- 2026-06-30 05:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/58994.shtml)
-- 2026-06-30 05:37 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/48668366.shtml)
-- 2026-06-30 05:37 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/96021715907.shtml)
-- 2026-06-30 05:47 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/4227249.shtml)
-- 2026-06-30 05:27 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/48362390.shtml)
-- 2026-06-30 05:43 - [流金岁月](https://www.blog.minike.top/Article/details/282509.shtml)
-- 2026-06-30 05:20 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/299194472.shtml)
-- 2026-06-30 05:45 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/82911246.shtml)
-- 2026-06-30 05:25 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/573096915867.shtml)
-- 2026-06-30 05:32 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/0217512108.shtml)
-- 2026-06-30 05:31 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/25362862.shtml)
-- 2026-06-30 05:23 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/220382505.shtml)
-- 2026-06-30 05:40 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/15986.shtml)
+- 2026-06-30 05:29 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/39789424456.shtml)
+- 2026-06-30 05:31 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/690422000.shtml)
+- 2026-06-30 05:25 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/95539.shtml)
+- 2026-06-30 05:35 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/2072772089.shtml)
+- 2026-06-30 05:49 - [美股](http://www.blog.kurohicncr.top/Article/details/783776.shtml)
+- 2026-06-30 05:40 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/69415382800.shtml)
+- 2026-06-30 05:31 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/54853678.shtml)
+- 2026-06-30 05:52 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/40242.shtml)
+- 2026-06-30 05:29 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/625427022729.shtml)
+- 2026-06-30 05:38 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/51618463.shtml)
+- 2026-06-30 05:49 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/3684219.shtml)
+- 2026-06-30 05:40 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/04453360.shtml)
+- 2026-06-30 05:52 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/0774494914.shtml)
+- 2026-06-30 05:51 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/412847932.shtml)
+- 2026-06-30 05:37 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/12870898595.shtml)

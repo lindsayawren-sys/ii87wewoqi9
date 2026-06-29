@@ -1,61 +1,58 @@
-# 一季度北京地区进出口值同比增长6.4%
+# 报告：2025年中国海港城市港口经济增加值达7万亿元
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网北京4月29日电 北京海关29日发布的数据显示，今年一季度北京地区(含中央在京单位，下同)货物贸易进出口总值7660.3亿元(人民币，下同)，同比(下同)增长6.4%。 一季度，北京地区民营企业进出口值1304.3亿元、增长35.1%，占地区进出口总值的(下同)17.0%。其中，出口448.9亿元、增长26.0%，进口855.4亿元、增长40.5%。北京地区民营企业进出口
+中新社天津6月2日电 (记者 周亚强)第四届天津国际航运产业博览会2日在天津开幕，中国交通运输部规划研究院院长刘昕在会上发布的《2025年度中国港口经济发展报告》显示，2025年中国海港城市港口经济增加值达7万亿元人民币，占经济总量13.6%。 报告还指出，内河港口城市港口经济增加值达2.7万亿元人民币，占经济总量9.7%。战略性新兴产业成为港口经济增长重要动力，有力支撑长三角
 
 ## 正文
 
-中新网北京4月29日电 北京海关29日发布的数据显示，今年一季度北京地区(含中央在京单位，下同)货物贸易进出口总值7660.3亿元(人民币，下同)，同比(下同)增长6.4%。
+中新社天津6月2日电 (记者 周亚强)第四届天津国际航运产业博览会2日在天津开幕，中国交通运输部规划研究院院长刘昕在会上发布的《2025年度中国港口经济发展报告》显示，2025年中国海港城市港口经济增加值达7万亿元人民币，占经济总量13.6%。
 
-一季度，北京地区民营企业进出口值1304.3亿元、增长35.1%，占地区进出口总值的(下同)17.0%。
+报告还指出，内河港口城市港口经济增加值达2.7万亿元人民币，占经济总量9.7%。
 
-其中，出口448.9亿元、增长26.0%，进口855.4亿元、增长40.5%。
+战略性新兴产业成为港口经济增长重要动力，有力支撑长三角一体化、建设粤港澳大湾区、长江经济带发展等国家战略实施。
 
-北京地区民营企业进出口值连续4个季度增幅在两位数以上，并呈加快态势。
+刘昕表示，港口经济是港航业高质量发展的重要引擎，也是港口城市转型发展的关键路径，对建设现代化产业体系意义重大。
 
-同期，北京地区国有企业进出口值5156.5亿元、增长2.8%。
+今年是“十五五”规划开局之年，也是国家提出建设天津北方国际航运中心20周年，上述报告将为各地港口经济评价、规划编制、政策制定提供重要支撑。
 
-一季度，北京地区对共建“一带一路”国家进出口值4250.0亿元，占55.5%。
+在报告的高质量发展评价中，上海位居海港城市总指数第一，重庆位居内河港口城市总指数第一。
 
-对其他金砖国家成员国进出口值1604.3亿元、增长2.5%；对拉美国家进出口值862.1亿元、增长27.4%。
+深圳、广州、苏州、宁波、天津、青岛获评海港城市A级；武汉、无锡、佛山、杭州、嘉兴、合肥获评内河港口城市A级。
 
-同期，北京地区对瑞士、东盟、巴西、中国香港地区进出口值分别增长205.2%、13.3%、62.1%、87.9%。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:42 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-30 05:43 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 05:38 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 05:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 05:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 05:18 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 05:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 05:39 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 05:28 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 05:34 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 05:31 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 05:36 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 05:39 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 05:22 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 05:30 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 05:49 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 05:43 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 05:33 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 05:49 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 05:53 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 05:34 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 05:28 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 05:50 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 05:24 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 05:24 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-30 05:45 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 05:45 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:45 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/02980899036.shtml)
-- 2026-06-30 05:24 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/892106.shtml)
-- 2026-06-30 05:23 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/9682327308.shtml)
-- 2026-06-30 05:31 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/1695361.shtml)
-- 2026-06-30 05:44 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/88213342.shtml)
-- 2026-06-30 05:31 - [千香](http://www.blog.minike.top/Article/details/78878.shtml)
-- 2026-06-30 05:23 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/154170.shtml)
-- 2026-06-30 05:43 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/09683938.shtml)
-- 2026-06-30 05:22 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/02831938636.shtml)
-- 2026-06-30 05:42 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/750734.shtml)
-- 2026-06-30 05:35 - [极限挑战第一季](https://www.blog.minike.top/Article/details/377240.shtml)
-- 2026-06-30 05:35 - [巴西绝杀](https://www.share.minike.top/Article/details/43634960.shtml)
-- 2026-06-30 05:19 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/042184184.shtml)
-- 2026-06-30 05:20 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/984547406362.shtml)
-- 2026-06-30 05:36 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/61937579.shtml)
+- 2026-06-30 05:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/90362317735.shtml)
+- 2026-06-30 05:25 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/842354797054.shtml)
+- 2026-06-30 05:31 - [天道](http://www.share.kurohicncr.top/Article/details/542639652.shtml)
+- 2026-06-30 05:39 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/83303142.shtml)
+- 2026-06-30 05:27 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/8245763.shtml)
+- 2026-06-30 05:46 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/579874.shtml)
+- 2026-06-30 05:40 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/1932974038.shtml)
+- 2026-06-30 05:49 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/85102933.shtml)
+- 2026-06-30 05:42 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/6645792107.shtml)
+- 2026-06-30 05:25 - [毒液2](http://www.share.minike.top/Article/details/95247885440.shtml)
+- 2026-06-30 05:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/769175881.shtml)
+- 2026-06-30 05:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/738864.shtml)
+- 2026-06-30 05:41 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/92730.shtml)
+- 2026-06-30 05:37 - [TOP Prada](http://www.blog.minike.top/Article/details/741327.shtml)
+- 2026-06-30 05:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/9857072.shtml)

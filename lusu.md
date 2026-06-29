@@ -1,60 +1,60 @@
-# 2026年中国网络文明大会聚焦“文明网络空间 昂扬奋进力量”
+# 英国议员呼吁英国央行放宽对稳定币的拟议监管规定
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-新华社北京4月29日电(记者 王思北)记者从国务院新闻办公室29日举行的新闻发布会上获悉，2026年中国网络文明大会将于5月19日至20日在广西壮族自治区南宁市举办。本届大会主题为“文明网络空间 昂扬奋进力量”，将举办开幕式及主论坛、14场分论坛，以及“铸魂领航 清朗八桂”主题活动。本届大会由中央网信办、中央精神文明建设办公室、中共广西壮族自治区委员会、广西壮族自治区人民政府共
+英国议员敦促英国央行放宽稳定币拟议监管规定，并警告称，过于严格的要求可能会阻碍刚起步的英镑稳定币市场发展。 英国上议院一个跨党派委员会表示，央行应重新考虑相关拟议规则，包括限制个人和企业持有稳定币的数额，以及要求发行方需以不计息存款来支持其代币。 目前与美元挂钩的稳定币占据市场主导，英镑稳定币仅占极小的部分。英国当局计划在今年年底前敲定稳定币规则，大致与美国同步。 英国上议院金
 
 ## 正文
 
-新华社北京4月29日电(记者 王思北)记者从国务院新闻办公室29日举行的新闻发布会上获悉，2026年中国网络文明大会将于5月19日至20日在广西壮族自治区南宁市举办。
+英国议员敦促英国央行放宽稳定币拟议监管规定，并警告称，过于严格的要求可能会阻碍刚起步的英镑稳定币市场发展。
 
-本届大会主题为“文明网络空间 昂扬奋进力量”，将举办开幕式及主论坛、14场分论坛，以及“铸魂领航 清朗八桂”主题活动。
+英国上议院一个跨党派委员会表示，央行应重新考虑相关拟议规则，包括限制个人和企业持有稳定币的数额，以及要求发行方需以不计息存款来支持其代币。
 
-本届大会由中央网信办、中央精神文明建设办公室、中共广西壮族自治区委员会、广西壮族自治区人民政府共同主办。
+目前与美元挂钩的稳定币占据市场主导，英镑稳定币仅占极小的部分。
 
-大会期间将发布2026年全国网络文明建设优秀案例，启动2026年全民数字素养与技能提升月活动，并发布一系列网络文明建设的成果。
+英国当局计划在今年年底前敲定稳定币规则，大致与美国同步。
 
-人工智能等新技术快速发展，给网络文明建设带来了新的机遇和挑战。
+英国上议院金融服务监管委员会在一份报告中表示，“英国央行、金融市场行为监管局和财政部必须认识到，稳定币市场尚处于起步阶段且正在发展，应随着市场动态调整监管规定。
 
-对此，中央网信办副主任、国家网信办副主任牛一兵在会上表示，需要在推动发展的同时，加强规范引导和有效应对。
+” 英国央行先前曾表示，其保护措施是必要的，旨在防范资金可能从银行存款涌向稳定币，因为这类资金转移可能引发信贷紧缩。
 
-“今年以来，中央网信办聚焦人工智能的新技术新应用，持续加强制度供给。
+英国央行的规范将适用于广泛用于日常支付的“具性统重要性”稳定币。
 
-”牛一兵说，本届大会专门设置人工智能赋能网络文明建设分论坛，聚焦人工智能技术演进、创新发展和安全治理，深入开展交流研讨，推动人工智能创新成果更好转化为网络文明建设的实际成效。
+上议院金融服务监管委员会主席、保守党议员诺克斯（Sheila Noakes）告诉路透，她并不认为英国央行采取了正确的做法来解决这些担忧。
 
 ## 相关推荐
 
-- 2026-06-30 05:21 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 05:33 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 05:38 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 05:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 05:31 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 05:30 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 05:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 05:44 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 05:27 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 05:31 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 05:24 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 05:21 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 05:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 05:47 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 05:33 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 05:47 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 05:52 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 05:51 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 05:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 05:39 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 05:30 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 05:52 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 05:36 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 05:28 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 05:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 05:53 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 05:29 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 05:44 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:19 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/8930785.shtml)
-- 2026-06-30 05:24 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/132921.shtml)
-- 2026-06-30 05:47 - [时光音乐会](https://www.blog.minike.top/Article/details/150500131.shtml)
-- 2026-06-30 05:43 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/5450303561.shtml)
-- 2026-06-30 05:38 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/0383345.shtml)
-- 2026-06-30 05:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/280464224878.shtml)
-- 2026-06-30 05:41 - [周生如故](https://www.share.minike.top/Article/details/643434196219.shtml)
-- 2026-06-30 05:35 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/622232.shtml)
-- 2026-06-30 05:39 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/430169.shtml)
-- 2026-06-30 05:42 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/502538.shtml)
-- 2026-06-30 05:44 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/53655.shtml)
-- 2026-06-30 05:35 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/4457378606.shtml)
-- 2026-06-30 05:46 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/51281513200.shtml)
-- 2026-06-30 05:22 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/777159283475.shtml)
-- 2026-06-30 05:20 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/500012.shtml)
+- 2026-06-30 05:41 - [周生如故](http://www.blog.minike.top/Article/details/664099822.shtml)
+- 2026-06-30 05:27 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/0079394216.shtml)
+- 2026-06-30 05:40 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/861480935.shtml)
+- 2026-06-30 05:39 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/775861280.shtml)
+- 2026-06-30 05:48 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/84313539622.shtml)
+- 2026-06-30 05:29 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/29850759584.shtml)
+- 2026-06-30 05:46 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/15159632582.shtml)
+- 2026-06-30 05:45 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/799951.shtml)
+- 2026-06-30 05:50 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/72910708.shtml)
+- 2026-06-30 05:27 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/18770409.shtml)
+- 2026-06-30 05:47 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/6133428.shtml)
+- 2026-06-30 05:39 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/140950622.shtml)
+- 2026-06-30 05:42 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/527067.shtml)
+- 2026-06-30 05:35 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/69406.shtml)
+- 2026-06-30 05:24 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/716215.shtml)

@@ -1,59 +1,57 @@
-# 从“2025年度全国十大考古新发现”看民族交融史诗
+# 上海深化全球资管中心建设 头部基金公司加速构建衍生品生态
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-为理解中华民族多元一体格局的形成与发展提供了珍贵的历史见证。 “2025年度全国十大考古新发现”中，多项考古发现从不同时期、不同地域，生动展现历史上各民族交往交流交融、中华民族多元一体的壮阔历程，为铸牢中华民族共同体意识提供了坚实的考古实证。 史前时期的跨区域文化交流 吉林东部长白山旧石器时代遗址群揭示距今22万年至1.3万年间东北亚古人类的迁徙与互动。黑曜岩石制品的长距离运输
+6月2日，上海市人民政府办公厅发布《关于深化上海全球资产管理中心建设的若干意见》（下称《若干意见》）。 《若干意见》指出推动科创50、深证100、创业板股指期货和期权、国债期权等产品上市，拓展标准化利率衍生品挂钩标的和期限，丰富权益类、利率类期货和期权产品。 目前，在沪深两市中，ETF期权标的高度集中于头部产品，易方达旗下有三只产品成为ETF期权标的，数量为行业第一之最，这三只
 
 ## 正文
 
-为理解中华民族多元一体格局的形成与发展提供了珍贵的历史见证。
+6月2日，上海市人民政府办公厅发布《关于深化上海全球资产管理中心建设的若干意见》（下称《若干意见》）。
 
-“2025年度全国十大考古新发现”中，多项考古发现从不同时期、不同地域，生动展现历史上各民族交往交流交融、中华民族多元一体的壮阔历程，为铸牢中华民族共同体意识提供了坚实的考古实证。
+《若干意见》指出推动科创50、深证100、创业板股指期货和期权、国债期权等产品上市，拓展标准化利率衍生品挂钩标的和期限，丰富权益类、利率类期货和期权产品。
 
-史前时期的跨区域文化交流 吉林东部长白山旧石器时代遗址群揭示距今22万年至1.3万年间东北亚古人类的迁徙与互动。
+目前，在沪深两市中，ETF期权标的高度集中于头部产品，易方达旗下有三只产品成为ETF期权标的，数量为行业第一之最，这三只产品，分别是创业板ETF易方达（159915）、深证100ETF易方达（159901）、科创50ETF易方达（588080）。
 
-黑曜岩石制品的长距离运输网络，实证史前时期双向跨区域资源流通。
+一位业内人士指出，同一指数下获批ETF期权资格的，通常只有一只或沪深两市各一只，且均为该指数旗下规模最大或流动性最优的产品。
 
-甘肃庆阳南佐遗址，其超大型聚落显示附近多个人口迁移聚集，打破原有氏族社会局限，凸显地缘关系，意味着以南佐都邑为核心的早期国家控制范围可能涵盖黄土高原大部地区，对于实证中华五千年文明史，具有极为重要的意义。
+也就是说，期权资格本身就向规模龙头倾斜，反过来又巩固了龙头地位。
 
-河北宣化郑家沟遗址则见证红山文化晚期人群向西南迁徙的历史。
+此外，ETF与对应ETF期权的工具联动，有助于基金公司搭建对冲与套利策略所需的衍生品生态体系，机构投资者可借以实施风险对冲、套利交易。
 
-该遗址人群遗传成分包含古代东北亚、黄河中游仰韶农业人群以及山东大汶口文化人群等多重来源，揭示了距今5000年前后辽西、中原与山东地区复杂的基因交流网络。
+此类生态一旦成型，将形成较高的先发优势与规模壁垒。
 
-遗址中80%玉器原料源自辽宁岫岩，陶器纹饰却混合了本地七里河文化与红山经典纹饰，证实红山晚期族群沿燕山走廊与土著文化深度交融。
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 05:35 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 05:27 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 05:47 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 05:25 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 05:40 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 05:33 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 05:46 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 05:47 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 05:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 05:31 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 05:39 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 05:22 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 05:30 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 05:36 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 05:40 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 05:31 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 05:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 05:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 05:50 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 05:47 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 05:39 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 05:24 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 05:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 05:52 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:47 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/704153168304.shtml)
-- 2026-06-30 05:36 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/148655.shtml)
-- 2026-06-30 05:27 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/45153470.shtml)
-- 2026-06-30 05:44 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/00465911.shtml)
-- 2026-06-30 05:40 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/923456208411.shtml)
-- 2026-06-30 05:25 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/634988.shtml)
-- 2026-06-30 05:33 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/6231661642.shtml)
-- 2026-06-30 05:45 - [周生如故](http://www.share.minike.top/Article/details/951176.shtml)
-- 2026-06-30 05:26 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/21260544268.shtml)
-- 2026-06-30 05:28 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/174565789260.shtml)
-- 2026-06-30 05:43 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/044953044.shtml)
-- 2026-06-30 05:38 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/4485157370.shtml)
-- 2026-06-30 05:29 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/30779.shtml)
-- 2026-06-30 05:34 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/9024217.shtml)
-- 2026-06-30 05:33 - [小娘惹](http://www.share.kurohicncr.top/Article/details/211811.shtml)
+- 2026-06-30 05:27 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/7966410.shtml)
+- 2026-06-30 05:31 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/06910369759.shtml)
+- 2026-06-30 05:42 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/521002535.shtml)
+- 2026-06-30 05:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/323495734367.shtml)
+- 2026-06-30 05:28 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/7904693078.shtml)
+- 2026-06-30 05:38 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/2612305.shtml)
+- 2026-06-30 05:41 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/6319250.shtml)
+- 2026-06-30 05:37 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/0839778840.shtml)
+- 2026-06-30 05:34 - [85花告别古偶](https://www.blog.minike.top/Article/details/998686.shtml)
+- 2026-06-30 05:33 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/870823742.shtml)
+- 2026-06-30 05:34 - [美股](http://www.blog.minike.top/Article/details/327465.shtml)
+- 2026-06-30 05:31 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/1581756.shtml)
+- 2026-06-30 05:52 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/212218310.shtml)
+- 2026-06-30 05:39 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/1184404226.shtml)
+- 2026-06-30 05:24 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/777902432473.shtml)

@@ -1,56 +1,56 @@
-# 华致酒行发布2025业绩报告：现金流大增 新增门店400余家
+# A股年内25只半导体大牛股翻倍，千亿巨头盘中飙涨16%
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月28日晚，华致酒行（300755.SZ）发布2025年度业绩报告及2026年一季度报告。报告显示，2025年华致酒行实现营收58.95亿元，预计归属于上市公司股东的净利润亏损3.69亿元。此数据与前期华致酒行公开披露的业绩预告区间范围吻合。业绩亏损主要系报告期内计提大额存货跌价准备，以及行业需求萎缩导致
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨李益文 编辑丨李燕娜 江佩霞 截至3日收盘，A股半导体概念大爆发，广立微涨幅超17%领涨，源杰科技、沐曦股份涨幅超16%、14%，据Wind数据，A股年内25只半导体概念股涨幅翻倍，其中涨幅最高为源杰科技，年内涨幅超217%。 千亿巨头盘中飙涨16% 3日午后，A股市场半导体设备板块异动拉升，成为当日
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-4月28日晚，华致酒行（300755.SZ）发布2025年度业绩报告及2026年一季度报告。
+记者丨李益文 编辑丨李燕娜 江佩霞 截至3日收盘，A股半导体概念大爆发，广立微涨幅超17%领涨，源杰科技、沐曦股份涨幅超16%、14%，据Wind数据，A股年内25只半导体概念股涨幅翻倍，其中涨幅最高为源杰科技，年内涨幅超217%。
 
-报告显示，2025年华致酒行实现营收58.95亿元，预计归属于上市公司股东的净利润亏损3.69亿元。
+千亿巨头盘中飙涨16% 3日午后，A股市场半导体设备板块异动拉升，成为当日盘面焦点。
 
-此数据与前期华致酒行公开披露的业绩预告区间范围吻合。
+千亿半导体巨头盛美上海（688082.SH）涨超16%，强势领涨，截至收盘涨幅收窄至12.39%。
 
-业绩亏损主要系报告期内计提大额存货跌价准备，以及行业需求萎缩导致收入下滑、毛利率收窄。
+芯源微（688037.SH）、华峰测控（688200.SH）、拓荆科技（688072.SH）、矽电股份（301629.SZ）、长川科技（维权）（300604.SZ）、富创精密（688409.SH）等跟涨。
 
-2025年，中国酒类市场进入深度调整期，渠道库存周转压力加大。
+SK海力士扩产引爆行情 市场情绪被一则来自产业前沿的重磅消息点燃。
 
-白酒行业受多重因素影响，市场需求变化显著，商务宴请、礼品馈赠场景减少，传统团购型客户需求萎缩。
+据财联社报道，6月2日，韩国SK集团会长崔泰源在台北电脑展（Computex）现场对媒体透露，旗下存储芯片公司SK海力士计划五年内将晶圆产能翻番，以应对全球人工智能基础设施建设带来的内存芯片持续短缺。
 
-反观市场热度较高的情形，则表现为线上平台选购呈现指数级爆发，长尾消费者成为白酒购买主力军。
+事实上，SK海力士的大规模扩产计划，正是全球存储行业迈入超级景气周期的典型缩影。
 
 ## 相关推荐
 
-- 2026-06-30 05:23 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 05:27 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 05:26 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 05:38 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 05:40 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 05:21 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 05:40 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 05:46 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 05:35 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 05:33 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 05:47 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 05:44 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 05:43 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 05:49 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 05:48 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 05:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 05:41 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 05:52 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 05:35 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 05:51 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:39 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/100037142062.shtml)
-- 2026-06-30 05:43 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/48712157734.shtml)
-- 2026-06-30 05:33 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/8170892748.shtml)
-- 2026-06-30 05:20 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/2519388.shtml)
-- 2026-06-30 05:39 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/99962813120.shtml)
-- 2026-06-30 05:34 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/8310227.shtml)
-- 2026-06-30 05:20 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/9411218591.shtml)
-- 2026-06-30 05:36 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/488417.shtml)
-- 2026-06-30 05:35 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/86285805249.shtml)
-- 2026-06-30 05:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/84071515.shtml)
-- 2026-06-30 05:31 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/333100.shtml)
-- 2026-06-30 05:29 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/4233641854.shtml)
-- 2026-06-30 05:45 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/640945419.shtml)
-- 2026-06-30 05:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/224173032076.shtml)
-- 2026-06-30 05:24 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/582283939838.shtml)
+- 2026-06-30 05:46 - [起风了](http://www.blog.kurohicncr.top/Article/details/920145.shtml)
+- 2026-06-30 05:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/60219.shtml)
+- 2026-06-30 05:40 - [爱很美味](http://www.share.kurohicncr.top/Article/details/826148826650.shtml)
+- 2026-06-30 05:52 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/0257743194.shtml)
+- 2026-06-30 05:43 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/94461.shtml)
+- 2026-06-30 05:48 - [女心理师](http://www.share.minike.top/Article/details/623657966.shtml)
+- 2026-06-30 05:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/77952127072.shtml)
+- 2026-06-30 05:39 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/216680.shtml)
+- 2026-06-30 05:33 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/1900612.shtml)
+- 2026-06-30 05:51 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/19017271302.shtml)
+- 2026-06-30 05:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/856340326221.shtml)
+- 2026-06-30 05:43 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/38240.shtml)
+- 2026-06-30 05:53 - [张凌赫 客串](https://www.blog.minike.top/Article/details/4943127517.shtml)
+- 2026-06-30 05:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/85608.shtml)
+- 2026-06-30 05:33 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/54281.shtml)

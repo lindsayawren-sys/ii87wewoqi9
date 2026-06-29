@@ -1,61 +1,56 @@
-# 南岭国家公园候选区罗坑片区迎来首只人工溪沟自然诞生鳄蜥宝宝
+# 印尼羽毛球公开赛：石宇奇首轮过关 “凤凰”组合成功“复仇”
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网广州4月29日电 (记者 程景伟)据广东省林业局29日消息，南岭国家公园候选区罗坑片区(现广东罗坑鳄蜥国家级自然保护区)近日传来喜讯：该片区鳄蜥野化溪沟迎来首只在此自然诞生的鳄蜥宝宝，标志着片区在鳄蜥保护与野化工作上迈出关键一步。 鳄蜥是与恐龙同时代的古老珍稀物种，被誉为爬行动物中的“活化石”。 鳄蜥野化溪沟位于罗坑片区鳄蜥园内，并非完全天然的溪流，而是科研人员依据野外栖
+中新社雅加达6月2日电 2026年印度尼西亚羽毛球公开赛2日在雅加达开拍。比赛首日，陈雨菲、石宇奇、冯彦哲/黄东萍等中国选手顺利过关。 2025年印尼羽毛球公开赛中，中国队以一金一银收官，仅在女双项目实现登顶。作为世界羽联超级1000赛事，本届印尼公开赛为期六天，中国队以全主力阵容冲击本站比赛。 2日的男单赛场，头号种子石宇奇以2:0战胜中国台北队选手戚又仁，两局比分均为21:
 
 ## 正文
 
-中新网广州4月29日电 (记者 程景伟)据广东省林业局29日消息，南岭国家公园候选区罗坑片区(现广东罗坑鳄蜥国家级自然保护区)近日传来喜讯：该片区鳄蜥野化溪沟迎来首只在此自然诞生的鳄蜥宝宝，标志着片区在鳄蜥保护与野化工作上迈出关键一步。
+中新社雅加达6月2日电 2026年印度尼西亚羽毛球公开赛2日在雅加达开拍。
 
-鳄蜥是与恐龙同时代的古老珍稀物种，被誉为爬行动物中的“活化石”。
+比赛首日，陈雨菲、石宇奇、冯彦哲/黄东萍等中国选手顺利过关。
 
-鳄蜥野化溪沟位于罗坑片区鳄蜥园内，并非完全天然的溪流，而是科研人员依据野外栖息地特点，精心打造的人工模拟生境。
+2025年印尼羽毛球公开赛中，中国队以一金一银收官，仅在女双项目实现登顶。
 
-从石块、林木到水体布局，都力求高度还原鳄蜥原生环境的自然结构与生态功能。
+作为世界羽联超级1000赛事，本届印尼公开赛为期六天，中国队以全主力阵容冲击本站比赛。
 
-该溪沟于2022年启动建设，2024年正式投入使用，目前共有8只鳄蜥在此生活。
+2日的男单赛场，头号种子石宇奇以2:0战胜中国台北队选手戚又仁，两局比分均为21:19。
 
-小鳄蜥的自然降生，直接验证了罗坑片区人工模拟生境的有效性。
+另外两位中国男单选手，李诗沣零封日本选手西本拳太晋级，陆光祖则以0:2不敌泰国选手帕尼查蓬，无缘16强。
 
-在人工营造的环境中，鳄蜥能够自主完成求偶、交配、产仔等一系列自然行为，充分说明该“人工之家”在舒适性、安全性及生态真实性层面均已接近野外标准。
+混双赛场上演“复仇之战”。
 
-小鳄蜥的诞生，是一个崭新的起点，实现从人工溪沟到山林溪涧的成功回归，才是鳄蜥“野化”工作的最终目标。
+赛会头号种子、世界排名第一的“凤凰”组合冯彦哲/黄东萍首轮再战马来西亚组合黄显维/钟舒韵。
 
 ## 相关推荐
 
-- 2026-06-30 05:42 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 05:22 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 05:19 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 05:28 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-30 05:32 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 05:29 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 05:27 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 05:32 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 05:45 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 05:25 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 05:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 05:37 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 05:36 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 05:34 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 05:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 05:41 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 05:28 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 05:37 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 05:28 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 05:39 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 05:37 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 05:32 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 05:24 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 05:30 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 05:45 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:31 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/2935523.shtml)
-- 2026-06-30 05:23 - [美股](http://www.blog.minike.top/Article/details/541981867524.shtml)
-- 2026-06-30 05:42 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/2677522038.shtml)
-- 2026-06-30 05:30 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/422887595246.shtml)
-- 2026-06-30 05:43 - [极限挑战第一季](http://www.blog.minike.top/Article/details/12716806.shtml)
-- 2026-06-30 05:36 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/101260312.shtml)
-- 2026-06-30 05:19 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/862007350.shtml)
-- 2026-06-30 05:39 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/4969576.shtml)
-- 2026-06-30 05:40 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/6961421729.shtml)
-- 2026-06-30 05:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/196751480.shtml)
-- 2026-06-30 05:33 - [金刚川](https://www.share.minike.top/Article/details/3281457.shtml)
-- 2026-06-30 05:18 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/06887.shtml)
-- 2026-06-30 05:26 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/03899036112.shtml)
-- 2026-06-30 05:35 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/126666467059.shtml)
-- 2026-06-30 05:33 - [千与千寻](https://www.share.kurohicncr.top/Article/details/558542.shtml)
+- 2026-06-30 05:27 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/846741146.shtml)
+- 2026-06-30 05:26 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/079901735.shtml)
+- 2026-06-30 05:37 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/22527922556.shtml)
+- 2026-06-30 05:42 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/9251696214.shtml)
+- 2026-06-30 05:46 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/2308775469.shtml)
+- 2026-06-30 05:30 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/074832314293.shtml)
+- 2026-06-30 05:49 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/78694270.shtml)
+- 2026-06-30 05:34 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/271305988861.shtml)
+- 2026-06-30 05:27 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/3890314.shtml)
+- 2026-06-30 05:25 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/5843046117.shtml)
+- 2026-06-30 05:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/36426835552.shtml)
+- 2026-06-30 05:35 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/02899377.shtml)
+- 2026-06-30 05:32 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/14579.shtml)
+- 2026-06-30 05:35 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/04343441.shtml)
+- 2026-06-30 05:53 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/011866992.shtml)

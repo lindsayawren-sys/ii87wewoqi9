@@ -1,58 +1,59 @@
-# 南京银行董事长谢宁：“好银行”至少应具备经营发展好等三大特征
+# 骗取贷款890余万元！潜逃境外十余年的犯罪嫌疑人被押解回国
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-上证报中国证券网讯（记者 黄坤）4月29日，南京银行董事长谢宁在2025年度暨2026年一季度业绩说明会上回答上证报记者提问表示，“好银行”至少具备三个共同特征，即公司治理好、经营发展好、评价口碑好。 据了解，在成立三十周年之际，南京银行资产规模站上三万亿台阶，主要经营指标“双U型曲线”趋势进一步巩固拓展。在2025年度报告中，谢宁表示，该行将奋力点亮“好银行”的鲜明标识，朝着
+在公安部统筹指挥下，辽宁公安机关成功将潜逃境外十余年的涉嫌骗取贷款犯罪的嫌疑人高某某押解回国，6月3日抵达沈阳桃仙机场。这是今年以来，辽宁公安机关成功劝返、缉捕的第6名潜逃境外犯罪嫌疑人。 经查，2013年至2014年，犯罪嫌疑人高某某通过伪造商品房买卖合同、收款收据、虚假购销合同等手段，骗取银行贷款890余万元。2015年，高某某潜逃并长期藏匿境外，妄图逃避法律制裁。 高某某
 
 ## 正文
 
-上证报中国证券网讯（记者 黄坤）4月29日，南京银行董事长谢宁在2025年度暨2026年一季度业绩说明会上回答上证报记者提问表示，“好银行”至少具备三个共同特征，即公司治理好、经营发展好、评价口碑好。
+在公安部统筹指挥下，辽宁公安机关成功将潜逃境外十余年的涉嫌骗取贷款犯罪的嫌疑人高某某押解回国，6月3日抵达沈阳桃仙机场。
 
-据了解，在成立三十周年之际，南京银行资产规模站上三万亿台阶，主要经营指标“双U型曲线”趋势进一步巩固拓展。
+这是今年以来，辽宁公安机关成功劝返、缉捕的第6名潜逃境外犯罪嫌疑人。
 
-在2025年度报告中，谢宁表示，该行将奋力点亮“好银行”的鲜明标识，朝着“打造国内一流的区域综合金融服务商”战略愿景加速迈进。
+经查，2013年至2014年，犯罪嫌疑人高某某通过伪造商品房买卖合同、收款收据、虚假购销合同等手段，骗取银行贷款890余万元。
 
-谈及银行如何实现经营发展好，谢宁向记者表示，银行属于长周期经营机构，需要立足跨周期发展思维，致力打造百年老店，推动经营持续稳健向好。
+2015年，高某某潜逃并长期藏匿境外，妄图逃避法律制裁。
 
-首先，银行要坚持量质并举，落实高质量发展要求，实现发展质效提升与规模合理增长有机统一，摒弃粗放式扩张与盲目规模竞争，避免经营大起大落。
+高某某外逃期间，辽宁公安机关持续加大案件侦办力度，并提请公安部协调开展境外追逃工作。
 
-其次，银行要坚持远近兼顾，当期发展体现经营成色，长期积蓄筑牢发展底气，战略性投入是长期发展的关键支撑。
+2026年5月23日，高某某被境外执法部门抓获。
 
-“我行坚持降本增效原则，但明确严控成本不减战略性投入、不弱化客户资源培育，持续夯实发展根基。
+6月2日，境外执法部门将其移交给中国公安机关，终结了其十余年外逃之路。
 
-”谢宁说。
+（总台记者 王亚男 禹强）责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-30 05:36 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 05:21 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 05:19 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 05:43 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 05:41 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 05:21 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 05:31 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 05:38 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 05:42 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 05:41 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 05:34 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 05:37 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 05:38 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 05:39 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 05:24 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 05:44 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 05:29 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 05:37 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 05:44 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 05:25 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 05:25 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 05:24 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 05:53 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 05:33 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:39 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/175287.shtml)
-- 2026-06-30 05:47 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/58054094043.shtml)
-- 2026-06-30 05:33 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/5278258745.shtml)
-- 2026-06-30 05:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/21714496.shtml)
-- 2026-06-30 05:42 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/72453.shtml)
-- 2026-06-30 05:22 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/8448699.shtml)
-- 2026-06-30 05:40 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/99594.shtml)
-- 2026-06-30 05:42 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/089079.shtml)
-- 2026-06-30 05:19 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/02001.shtml)
-- 2026-06-30 05:34 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/9142451699.shtml)
-- 2026-06-30 05:21 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/4985765063.shtml)
-- 2026-06-30 05:48 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/239756.shtml)
-- 2026-06-30 05:35 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/1237027948.shtml)
-- 2026-06-30 05:22 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/220648602223.shtml)
-- 2026-06-30 05:23 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/03678776.shtml)
+- 2026-06-30 05:32 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/9861787.shtml)
+- 2026-06-30 05:42 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/744612.shtml)
+- 2026-06-30 05:50 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/6526875579.shtml)
+- 2026-06-30 05:53 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/418707828.shtml)
+- 2026-06-30 05:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/5696052.shtml)
+- 2026-06-30 05:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/75134.shtml)
+- 2026-06-30 05:47 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/50487.shtml)
+- 2026-06-30 05:29 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/12002.shtml)
+- 2026-06-30 05:24 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/48371393.shtml)
+- 2026-06-30 05:39 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/379335.shtml)
+- 2026-06-30 05:29 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/53313.shtml)
+- 2026-06-30 05:46 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/817723014.shtml)
+- 2026-06-30 05:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/438205584.shtml)
+- 2026-06-30 05:36 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/68879252.shtml)
+- 2026-06-30 05:31 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/29673.shtml)

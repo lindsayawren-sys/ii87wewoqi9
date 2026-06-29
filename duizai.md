@@ -1,59 +1,54 @@
-# 京津冀三地人民银行组织召开2026年协调机制会议暨京津冀“六链五群”产融合作推进会
+# 甘肃省新阶层人士赴积石山开展“六一”儿童节关爱助学活动
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-来源：中国人民银行北京市分行 为深入学习贯彻落实习近平总书记在河北雄安新区考察并主持召开深入推进雄安新区高质量建设和发展座谈会时的重要讲话精神，全面加强金融政策与产业政策联动，推动树立和践行正确政绩观学习教育活动走深走实，近日，京津冀三地人民银行在雄安新区联合召开2026年三地协调机制会议暨京津冀“六链五群”产融合作推进会。中国人民银行信贷市场司主要负责同志出席会议并讲话，三地
+新善甘肃 爱心帮扶——我省新阶层人士赴积石山开展“六一”儿童节关爱助学活动 在“六一”国际儿童节之际，甘肃省新的社会阶层人士响应中央统战部“新善中国·阅见文明”号召，积极开展“新善甘肃”主题实践活动，走进积石山县银川镇张家村小学，为在校留守儿童开展爱心助学物资捐赠。 张家村小学现有在读学生5名、在岗教师7名，在校学生均为留守儿童，学校办学条件受限、教学保障存在实际困难。本次活动
 
 ## 正文
 
-来源：中国人民银行北京市分行 为深入学习贯彻落实习近平总书记在河北雄安新区考察并主持召开深入推进雄安新区高质量建设和发展座谈会时的重要讲话精神，全面加强金融政策与产业政策联动，推动树立和践行正确政绩观学习教育活动走深走实，近日，京津冀三地人民银行在雄安新区联合召开2026年三地协调机制会议暨京津冀“六链五群”产融合作推进会。
+新善甘肃 爱心帮扶——我省新阶层人士赴积石山开展“六一”儿童节关爱助学活动 在“六一”国际儿童节之际，甘肃省新的社会阶层人士响应中央统战部“新善中国·阅见文明”号召，积极开展“新善甘肃”主题实践活动，走进积石山县银川镇张家村小学，为在校留守儿童开展爱心助学物资捐赠。
 
-中国人民银行信贷市场司主要负责同志出席会议并讲话，三地人民银行班子成员出席会议。
+张家村小学现有在读学生5名、在岗教师7名，在校学生均为留守儿童，学校办学条件受限、教学保障存在实际困难。
 
-会议指出，3月23日，习近平总书记到雄安新区视察并发表重要讲话，为推进京津冀协同发展，支持雄安新区高质量建设和发展提供了强大政治引领和科学行动指南。
+本次活动立足乡村留守儿童成长所需，新阶层爱心人士现场捐赠少儿图书、课业文具、各类体育用品，依托书香滋养孩童心灵，用贴心陪伴守护缤纷童年。
 
-召开此次会议是三地人民银行树立和践行正确政绩观，积极贯彻落实习近平总书记重要讲话精神的具体行动；是扎实推动京津冀协同发展重大国家战略的务实举措；也是金融赋能加快发展新质生产力、服务构建现代化产业体系的创新之举。
+参加此次活动的新阶层人士代表表示，后续将持续发挥新阶层资源优势，坚守社会责任，持续聚焦乡村教育帮扶与留守儿童关爱工作，把“新善甘肃”公益项目做深做实，聚力乡村振兴、助推基础教育提质发展。
 
-会议认为，京津冀协同发展人民银行三地协调机制成立以来，金融支持京津冀协同发展取得显著成效，政策框架和工作机制更加健全，重点领域融资规模稳步增长，非首都功能疏解金融服务能力不断提升。
+学校负责人对新阶层人士的爱心帮扶深表谢意，表示将妥善管护各类捐赠物资，立足课堂悉心施教，引领孩子们心怀善意、勤学成才，在温暖呵护中茁壮成长。
 
-会议强调，产业协同发展是推动京津冀协同发展的重要抓手，京津冀产业协同发展正处于蓄力攻坚、提质增效的新阶段，对金融服务的能力和水平提出了更高要求，三地金融部门要持续完善机制、用好政策、优化服务。
-
-要牢牢把握雄安新区作为北京非首都功能疏解集中承载地的首要功能定位，强化要素保障，积极探索金融领域创新政策率先在雄安落地，持续加大雄安新区高质量建设和发展的金融支持力度。
-
-会上，河北省工业和信息化发展研究院解读了京津冀“六链五群”发展现状和形势。
+(来源：六处) (“甘肃统战”微信公众号)
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 05:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 05:46 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 05:22 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 05:37 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 05:44 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 05:36 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 05:21 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 05:35 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 05:32 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 05:36 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 05:34 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 05:30 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 05:45 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 05:38 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 05:50 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-30 05:49 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 05:34 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 05:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-30 05:42 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 05:33 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 05:27 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 05:38 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 05:49 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 05:38 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:45 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/371630548652.shtml)
-- 2026-06-30 05:46 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/6219944.shtml)
-- 2026-06-30 05:31 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/92832.shtml)
-- 2026-06-30 05:19 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/207733247347.shtml)
-- 2026-06-30 05:37 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/60699.shtml)
-- 2026-06-30 05:26 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/7958048.shtml)
-- 2026-06-30 05:25 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/86259799162.shtml)
-- 2026-06-30 05:33 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/872767.shtml)
-- 2026-06-30 05:30 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/17495.shtml)
-- 2026-06-30 05:47 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/0059320081.shtml)
-- 2026-06-30 05:37 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/192926331654.shtml)
-- 2026-06-30 05:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/54042.shtml)
-- 2026-06-30 05:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/10720407384.shtml)
-- 2026-06-30 05:25 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/714501652847.shtml)
-- 2026-06-30 05:37 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/6504790.shtml)
+- 2026-06-30 05:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/369493935.shtml)
+- 2026-06-30 05:42 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/016250666.shtml)
+- 2026-06-30 05:44 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/404550.shtml)
+- 2026-06-30 05:47 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/573488.shtml)
+- 2026-06-30 05:44 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/0993219374.shtml)
+- 2026-06-30 05:49 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/7516646624.shtml)
+- 2026-06-30 05:32 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/3418180159.shtml)
+- 2026-06-30 05:31 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/98755.shtml)
+- 2026-06-30 05:42 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/64558514767.shtml)
+- 2026-06-30 05:39 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/171266836197.shtml)
+- 2026-06-30 05:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/31915153.shtml)
+- 2026-06-30 05:39 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/668636019.shtml)
+- 2026-06-30 05:50 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/2707235.shtml)
+- 2026-06-30 05:44 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/112275847922.shtml)
+- 2026-06-30 05:34 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/0447289517.shtml)

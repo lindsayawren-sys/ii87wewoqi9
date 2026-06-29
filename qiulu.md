@@ -1,45 +1,57 @@
-# 美联储今年连续第三次宣布维持利率不变
+# 暴雨大暴雨，又要来了
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-新华社快讯：美国联邦储备委员会29日宣布，继续将联邦基金利率目标区间维持在3.5%至3.75%之间不变。这一今年连续第三次维持利率不变的决定符合市场普遍预期。
+华北多地今天将退出高温圈 南方降雨发展局地有暴雨或大暴雨 6月3日至5日，受冷涡影响，东北、华北多雷雨天气，其中今明天东北地区东南部雨势较强，局地伴强对流。同时，南方新一轮降雨过程持续影响，贵州、湖南等地将迎明显降雨。受降雨影响，今天我国高温范围将开始缩减，华北、黄淮多地将退出高温圈，周末前后伴随着降雨，体感将清凉不少。 北方高温范围缩减 华南多地闷热天气持续 昨天，我国高温范
 
 ## 正文
 
-新华社快讯：美国联邦储备委员会29日宣布，继续将联邦基金利率目标区间维持在3.5%至3.75%之间不变。
+华北多地今天将退出高温圈 南方降雨发展局地有暴雨或大暴雨 6月3日至5日，受冷涡影响，东北、华北多雷雨天气，其中今明天东北地区东南部雨势较强，局地伴强对流。
 
-这一今年连续第三次维持利率不变的决定符合市场普遍预期。
+同时，南方新一轮降雨过程持续影响，贵州、湖南等地将迎明显降雨。
+
+受降雨影响，今天我国高温范围将开始缩减，华北、黄淮多地将退出高温圈，周末前后伴随着降雨，体感将清凉不少。
+
+北方高温范围缩减 华南多地闷热天气持续 昨天，我国高温范围再扩大，达到近期最广的一天。
+
+尤其是华北、黄淮等地热得十分突出。
+
+不仅北方热力十足，江南多地高温也开始露头，河北、河南、山东、江西、广西、广东、海南及新疆等地部分地区出现35℃以上高温天气。
+
+今天起，我国高温开始缩减，华北一带高温率先消退。
+
+明天至周末，随着冷空气和阴雨天气影响范围增大，高温将持续减少，华北气温将陆续降至偏低水平。
 
 ## 相关推荐
 
-- 2026-06-30 05:31 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 05:41 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 05:28 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 05:46 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 05:18 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 05:26 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 05:35 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 05:45 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 05:20 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 05:31 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 05:30 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 05:39 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 05:32 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 05:38 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 05:40 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 05:42 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 05:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 05:32 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 05:42 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 05:51 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 05:36 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 05:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/7547849.shtml)
-- 2026-06-30 05:18 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/04904.shtml)
-- 2026-06-30 05:22 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/90359.shtml)
-- 2026-06-30 05:41 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/74004.shtml)
-- 2026-06-30 05:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/6139469074.shtml)
-- 2026-06-30 05:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/5601444046.shtml)
-- 2026-06-30 05:24 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/49124775.shtml)
-- 2026-06-30 05:46 - [巴西绝杀日本](https://www.share.minike.top/Article/details/4709154518.shtml)
-- 2026-06-30 05:29 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/59876001.shtml)
-- 2026-06-30 05:29 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/4504666529.shtml)
-- 2026-06-30 05:44 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/3444615306.shtml)
-- 2026-06-30 05:24 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/503800.shtml)
-- 2026-06-30 05:30 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/18837361300.shtml)
-- 2026-06-30 05:27 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/4615075846.shtml)
-- 2026-06-30 05:19 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/096384102.shtml)
+- 2026-06-30 05:44 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/8449578536.shtml)
+- 2026-06-30 05:38 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/0552185.shtml)
+- 2026-06-30 05:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/105939981.shtml)
+- 2026-06-30 05:30 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/391294382.shtml)
+- 2026-06-30 05:43 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/01074747631.shtml)
+- 2026-06-30 05:34 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/91599624.shtml)
+- 2026-06-30 05:45 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/53324.shtml)
+- 2026-06-30 05:33 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/499266994.shtml)
+- 2026-06-30 05:37 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/3642795622.shtml)
+- 2026-06-30 05:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/05896339877.shtml)
+- 2026-06-30 05:36 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/935184271872.shtml)
+- 2026-06-30 05:43 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/675590.shtml)
+- 2026-06-30 05:51 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/43219688223.shtml)
+- 2026-06-30 05:40 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/69580095.shtml)
+- 2026-06-30 05:28 - [这一刀 会很帅](https://www.share.minike.top/Article/details/08918682.shtml)

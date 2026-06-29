@@ -1,58 +1,57 @@
-# 涉财务造假案 中天国富两位前保代被暂停业务列入D类名单
+# 辽宁严打“上头电子烟” 家庭宣教覆盖49万人
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！深圳商报·读创客户端记者 陈燕青 近期，证券业协会保代列表新增两名D类（暂停业务类）保代，分别为陈东阳、张瑾。违规事项虽然未公开列出，但均显示来自河北证监局。从目前看，两位保代因涉及东旭系财务造假案被暂停业务。 近日，河北证监局对涉东旭系财务造假案的两家中介机构作出行政处罚。 其中，中兴财光华会计师事务所被
+中新网沈阳6月3日电(记者王景巍)6月3日，在辽宁省政府新闻办举行的发布会上，辽宁省禁毒委副主任、省公安厅反恐专员朱朝键，省禁毒委委员、省药监局副局长王嘉仡，省禁毒委委员、辽宁省妇联副主席吴文彩，辽宁省公安厅禁毒总队总队长陈旭出席并答记者问，从打击整治、药品监管、家庭宣教三个维度回应社会关切。针对“上头电子烟”“笑气”等未列管成瘾性物质滥用蔓延态势，辽宁公安禁毒部门已连续两年发
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网沈阳6月3日电(记者王景巍)6月3日，在辽宁省政府新闻办举行的发布会上，辽宁省禁毒委副主任、省公安厅反恐专员朱朝键，省禁毒委委员、省药监局副局长王嘉仡，省禁毒委委员、辽宁省妇联副主席吴文彩，辽宁省公安厅禁毒总队总队长陈旭出席并答记者问，从打击整治、药品监管、家庭宣教三个维度回应社会关切。
 
-深圳商报·读创客户端记者 陈燕青 近期，证券业协会保代列表新增两名D类（暂停业务类）保代，分别为陈东阳、张瑾。
+针对“上头电子烟”“笑气”等未列管成瘾性物质滥用蔓延态势，辽宁公安禁毒部门已连续两年发起专项打击。
 
-违规事项虽然未公开列出，但均显示来自河北证监局。
+朱朝键介绍，辽宁省形成禁毒部门牵头、全警参战的"研、查、打"一体化打击模式，今年以来共抓获涉未列管物质犯罪嫌疑人391人，查处滥用人员5164人。
 
-从目前看，两位保代因涉及东旭系财务造假案被暂停业务。
+防范青少年药物滥用，管好麻精药品是关键一环。
 
-近日，河北证监局对涉东旭系财务造假案的两家中介机构作出行政处罚。
+据王嘉仡介绍，辽宁省药监局坚持“管得住、用得上”原则，以安全管理零缺陷为标准，严格购用审批和计划核定。
 
-其中，中兴财光华会计师事务所被罚没2.43亿元；6名责任人被罚款924万元，其中2人被采取10年、5年证券市场禁入措施。
+在日常监管方面，2026年已完成麻精药品定点生产经营企业监督检查67家次、零售药店飞行检查112家次。
 
-此外，鉴于财政部已对中兴财光华作出暂停经营业务的行政处罚，河北证监局不另行作出暂停从事证券服务业务的行政处罚。
+同时建立购销异常处置制度，重点关注乡村诊所、学校及娱乐场所周边医疗机构购用情况，今年已筛查预警信息85条，全力让“监管跑在风险前面”。
 
-中天国富证券被罚没4305.28万元，暂停财务顾问业务许可6个月；陈东阳、张瑾等2名责任人分别被罚款40万元。
+家庭是禁毒工作的最小单元，也是第一道防线。
 
 ## 相关推荐
 
-- 2026-06-30 05:37 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 05:42 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 05:30 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 05:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 05:44 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 05:41 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 05:36 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 05:33 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 05:35 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 05:30 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 05:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 05:35 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 05:33 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 05:37 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 05:41 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 05:42 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 05:25 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 05:35 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 05:51 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 05:27 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 05:42 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 05:41 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-30 05:43 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:29 - [巴西2比1日本](https://www.share.minike.top/Article/details/97538213.shtml)
-- 2026-06-30 05:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/1774427.shtml)
-- 2026-06-30 05:47 - [美股](http://www.blog.minike.top/Article/details/20020696.shtml)
-- 2026-06-30 05:33 - [日本反击率先破门](https://www.share.minike.top/Article/details/036488.shtml)
-- 2026-06-30 05:28 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/008339.shtml)
-- 2026-06-30 05:38 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/304155459697.shtml)
-- 2026-06-30 05:34 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/886893428107.shtml)
-- 2026-06-30 05:21 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/92776.shtml)
-- 2026-06-30 05:20 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/079772.shtml)
-- 2026-06-30 05:40 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/260266372.shtml)
-- 2026-06-30 05:30 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/084892.shtml)
-- 2026-06-30 05:30 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/003215107552.shtml)
-- 2026-06-30 05:24 - [天道](https://www.blog.minike.top/Article/details/9356026814.shtml)
-- 2026-06-30 05:35 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/160537.shtml)
-- 2026-06-30 05:25 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/497645941.shtml)
+- 2026-06-30 05:39 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/53788.shtml)
+- 2026-06-30 05:33 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/147764.shtml)
+- 2026-06-30 05:34 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/51812554666.shtml)
+- 2026-06-30 05:38 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/55326176085.shtml)
+- 2026-06-30 05:34 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/34050026.shtml)
+- 2026-06-30 05:41 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/187777206.shtml)
+- 2026-06-30 05:34 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/32718.shtml)
+- 2026-06-30 05:47 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/07390937.shtml)
+- 2026-06-30 05:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/040806.shtml)
+- 2026-06-30 05:49 - [人类...完蛋了...](http://www.share.minike.top/Article/details/102828.shtml)
+- 2026-06-30 05:46 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/11164927.shtml)
+- 2026-06-30 05:26 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/43186771590.shtml)
+- 2026-06-30 05:38 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/873973845904.shtml)
+- 2026-06-30 05:50 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/03192024.shtml)
+- 2026-06-30 05:39 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/07469611750.shtml)

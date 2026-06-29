@@ -1,48 +1,57 @@
-# 港澳会客厅丨陈茂波：对香港今年GDP增长前景审慎乐观，力争超额增长
+# 酒价内参6月4日价格发布：水晶剑南春下跌2元
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 15:08 来源：中国新闻网 香港特区政府财政司司长陈茂波在接受中新网“港澳会客厅”专访时表示，考虑到复杂多变的外部环境与地缘政治风险，今年香港GDP增长目标审慎设定在2.5%至3.5%区间，特区政府将全力推动发展，力争触及区间上限甚至实现超额增长。(记者 戴小橦 温孟馨 孙悦 陈香玉） 责任编辑：【吉翔】
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月4日整体明显走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日大幅下跌25元，回吐昨日全部涨幅。市场在前一日底部反弹后迅速转衰，终端交投情绪偏谨慎，今日除习酒君品微涨外其余十大品种均下跌或平盘。 今日白酒市场11大
 
 ## 正文
 
-发布时间：2026年04月29日 15:08 来源：中国新闻网 香港特区政府财政司司长陈茂波在接受中新网“港澳会客厅”专访时表示，考虑到复杂多变的外部环境与地缘政治风险，今年香港GDP增长目标审慎设定在2.5%至3.5%区间，特区政府将全力推动发展，力争触及区间上限甚至实现超额增长。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月4日整体明显走弱。
 
-(记者 戴小橦 温孟馨 孙悦 陈香玉） 责任编辑：【吉翔】
+如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日大幅下跌25元，回吐昨日全部涨幅。
+
+市场在前一日底部反弹后迅速转衰，终端交投情绪偏谨慎，今日除习酒君品微涨外其余十大品种均下跌或平盘。
+
+今日白酒市场11大单品一涨九跌一平，输家占据绝对优势。
+
+上涨方面，习酒君品小幅上涨1元/瓶，收获四连阳，逐步走出月内最低谷。
+
+下跌方面，五粮液普五八代与古井贡古20跌幅居前，均下跌5元/瓶，其中前者三连阴后创下月内最低价纪录，近一个月其价格下行势头明显；青花汾20与青花郎均下跌4元/瓶，其中前者回吐前一日全部涨幅，回落至月内最低位，后者创下月内最低价格记录；飞天茅台、精品茅台与水晶剑南春均下跌2元/瓶；五粮液1618与国窖1573均小幅下跌1元/瓶。
+
+洋河梦之蓝M6+的价格环比保持不变。
+
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-30 05:35 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 05:36 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 05:19 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-30 05:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 05:44 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 05:30 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-30 05:19 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 05:22 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 05:32 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 05:37 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 05:38 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 05:41 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 05:35 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 05:37 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 05:29 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 05:31 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 05:40 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 05:45 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 05:41 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 05:53 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 05:44 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 05:37 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 05:41 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 05:44 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 05:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [《共患难》](https://www.share.minike.top/Article/details/736332605.shtml)
-- 2026-06-30 05:20 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/9608961.shtml)
-- 2026-06-30 05:37 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/08734.shtml)
-- 2026-06-30 05:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/592160732.shtml)
-- 2026-06-30 05:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/31576.shtml)
-- 2026-06-30 05:39 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/78561.shtml)
-- 2026-06-30 05:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/366629518431.shtml)
-- 2026-06-30 05:30 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/067705225265.shtml)
-- 2026-06-30 05:37 - [巴西绝杀](http://www.share.minike.top/Article/details/8621768914.shtml)
-- 2026-06-30 05:43 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/473889483.shtml)
-- 2026-06-30 05:46 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/3868449.shtml)
-- 2026-06-30 05:37 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/106090097680.shtml)
-- 2026-06-30 05:41 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/6987479.shtml)
-- 2026-06-30 05:36 - [明星大侦探第一季](http://www.share.minike.top/Article/details/94566276878.shtml)
-- 2026-06-30 05:32 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/94091680306.shtml)
+- 2026-06-30 05:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/7908995628.shtml)
+- 2026-06-30 05:39 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/030660.shtml)
+- 2026-06-30 05:36 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/704046566.shtml)
+- 2026-06-30 05:29 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/5319996325.shtml)
+- 2026-06-30 05:48 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/242698788622.shtml)
+- 2026-06-30 05:31 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/33539154.shtml)
+- 2026-06-30 05:36 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/916073181.shtml)
+- 2026-06-30 05:41 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/76878733.shtml)
+- 2026-06-30 05:51 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/65265011832.shtml)
+- 2026-06-30 05:34 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/7065109.shtml)
+- 2026-06-30 05:24 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/357222950240.shtml)
+- 2026-06-30 05:34 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/0798471656.shtml)
+- 2026-06-30 05:26 - [日本领先巴西](https://www.blog.minike.top/Article/details/0865585.shtml)
+- 2026-06-30 05:42 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/4524105.shtml)
+- 2026-06-30 05:38 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/2863396.shtml)

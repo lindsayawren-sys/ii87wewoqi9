@@ -1,57 +1,57 @@
-# FCC下令提前审查迪士尼旗下八家ABC电视台执照，特朗普与媒体战火重燃
+# 集采药被药店高价销售背后：为何会有价差？如何破解？
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-在特朗普夫妇公开呼吁解雇ABC深夜脱口秀主持人吉米·金梅尔后，美国联邦通信委员会已下令对迪士尼旗下八家ABC自有电视台的广播执照启动提前审查。这标志着特朗普政府与这家媒体巨头之间的紧张关系出现了戏剧性的升级。 这些电视台的执照原本要到2028年才到期续签。而如今，FCC已指示迪士尼必须在30天内（即5月28日前）提交这些电视台的续期申请。 此举被视为特朗普政府对ABC播出金梅尔
+澎湃新闻首席记者 李潇潇 近日，央视报道“集采百元一盒药，药店竟卖3960元”引发关注。最新进展显示，内蒙古医保部门已会同市场监管部门组成专项工作组，第一时间赴涉事药店开展联合检查，医保部门对药店主要负责人进行约谈，市场监管部门已行政立案。 这起看似个案的高价售药事件，也再次把集采药品在院外零售终端的执行情况推到舆论前台。那么，集采药在不同销售渠道为什么会存在不同价格？ 曾担任
 
 ## 正文
 
-在特朗普夫妇公开呼吁解雇ABC深夜脱口秀主持人吉米·金梅尔后，美国联邦通信委员会已下令对迪士尼旗下八家ABC自有电视台的广播执照启动提前审查。
+澎湃新闻首席记者 李潇潇 近日，央视报道“集采百元一盒药，药店竟卖3960元”引发关注。
 
-这标志着特朗普政府与这家媒体巨头之间的紧张关系出现了戏剧性的升级。
+最新进展显示，内蒙古医保部门已会同市场监管部门组成专项工作组，第一时间赴涉事药店开展联合检查，医保部门对药店主要负责人进行约谈，市场监管部门已行政立案。
 
-这些电视台的执照原本要到2028年才到期续签。
+这起看似个案的高价售药事件，也再次把集采药品在院外零售终端的执行情况推到舆论前台。
 
-而如今，FCC已指示迪士尼必须在30天内（即5月28日前）提交这些电视台的续期申请。
+那么，集采药在不同销售渠道为什么会存在不同价格？
 
-此举被视为特朗普政府对ABC播出金梅尔节目并抗拒总统施压的一种报复形式。
+曾担任多家百强连锁药店总经理的职业经理人苍春表示，药品执行的是市场价格，理论上只要明码标价，就属于正常经营行为。
 
-争议的导火索是金梅尔在上周四模仿白宫记者晚宴的一档节目中，调侃第一夫人梅拉尼娅·特朗普“散发着待嫁寡妇般的光芒”。
+但在此次案例中，核心问题在于时间差。
 
-两天后的周六，白宫记者晚宴现场发生枪击事件，总统夫妇紧急撤离。
+苍春分析，一般情况下，集采价格确定后，厂家与渠道之间通常会有相应安排，一些情况下也会有退补政策。
 
-随后，特朗普夫妇公开要求迪士尼和ABC立即解雇金梅尔。
+若药店没有及时与厂家联系，或者没有及时切换到集采价格，就容易造成终端售价与政策要求不一致。
 
 ## 相关推荐
 
-- 2026-06-30 05:24 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 05:29 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 05:31 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 05:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 05:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 05:29 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 05:42 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 05:42 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 05:20 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 05:45 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 05:47 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 05:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-30 05:36 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 05:44 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 05:43 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 05:44 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 05:38 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 05:27 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 05:32 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 05:32 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 05:39 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 05:44 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:37 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/52452.shtml)
-- 2026-06-30 05:46 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/229775577.shtml)
-- 2026-06-30 05:23 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/378939.shtml)
-- 2026-06-30 05:35 - [日本领先巴西](https://www.share.minike.top/Article/details/2381919892.shtml)
-- 2026-06-30 05:19 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/8908699314.shtml)
-- 2026-06-30 05:44 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/70682.shtml)
-- 2026-06-30 05:41 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/64926548652.shtml)
-- 2026-06-30 05:43 - [锐评T1零封KC](https://www.share.minike.top/Article/details/3696482.shtml)
-- 2026-06-30 05:45 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/3611226.shtml)
-- 2026-06-30 05:18 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/811049575219.shtml)
-- 2026-06-30 05:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/14192375.shtml)
-- 2026-06-30 05:46 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/10337.shtml)
-- 2026-06-30 05:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/99175524582.shtml)
-- 2026-06-30 05:41 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/0655316.shtml)
-- 2026-06-30 05:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/6640528.shtml)
+- 2026-06-30 05:51 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/49686768.shtml)
+- 2026-06-30 05:47 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/20360384.shtml)
+- 2026-06-30 05:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/894077169762.shtml)
+- 2026-06-30 05:31 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/3066326809.shtml)
+- 2026-06-30 05:49 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/741820.shtml)
+- 2026-06-30 05:49 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/125258860.shtml)
+- 2026-06-30 05:51 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/2223487.shtml)
+- 2026-06-30 05:31 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/75437029.shtml)
+- 2026-06-30 05:49 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/797500828825.shtml)
+- 2026-06-30 05:33 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/1781448841.shtml)
+- 2026-06-30 05:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/4306041935.shtml)
+- 2026-06-30 05:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/28898.shtml)
+- 2026-06-30 05:49 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/60800442272.shtml)
+- 2026-06-30 05:53 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/367061298.shtml)
+- 2026-06-30 05:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/969272479.shtml)

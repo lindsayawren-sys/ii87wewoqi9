@@ -1,56 +1,52 @@
-# 致敬劳动者！建行这些个人和集体获全国五一劳动奖
+# 晋陕联动 一张票可在壶口瀑布两侧景区跨区游览
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-4月28日，中华全国总工会召开庆祝“五一”国际劳动节暨全国五一劳动奖表彰大会，发布关于表彰2026年全国五一劳动奖的决定，共表彰全国五一劳动奖3024个。其中，全国五一劳动奖状379个、全国五一劳动奖章1462名、全国工人先锋号1183个。 建设银行共有2名个人和2个集体喜获全国五一劳动奖。其中，湖南省岳阳县支行行长方石奎、云南省玉溪市红塔支行客户经理王俊颖被授予全国五一劳动奖
+6月2日，记者从山西临汾壶口瀑布旅游区获悉，为提升游客游览体验，让游客深度领略黄河壶口瀑布的壮美风光，晋陕两岸壶口瀑布景区文旅联动，推出双向通票政策，并在6月1日起正式实施。 双向通票政策明确，景区门票定价80元/人，游客可任选山西或陕西一侧购票，凭票可两日内在壶口瀑布两侧景区跨区游览，大幅拓宽游览范围、提升游玩自由度。景区往返摆渡车票价统一为16元/人。游客可通过景区官方微信
 
 ## 正文
 
-4月28日，中华全国总工会召开庆祝“五一”国际劳动节暨全国五一劳动奖表彰大会，发布关于表彰2026年全国五一劳动奖的决定，共表彰全国五一劳动奖3024个。
+6月2日，记者从山西临汾壶口瀑布旅游区获悉，为提升游客游览体验，让游客深度领略黄河壶口瀑布的壮美风光，晋陕两岸壶口瀑布景区文旅联动，推出双向通票政策，并在6月1日起正式实施。
 
-其中，全国五一劳动奖状379个、全国五一劳动奖章1462名、全国工人先锋号1183个。
+双向通票政策明确，景区门票定价80元/人，游客可任选山西或陕西一侧购票，凭票可两日内在壶口瀑布两侧景区跨区游览，大幅拓宽游览范围、提升游玩自由度。
 
-建设银行共有2名个人和2个集体喜获全国五一劳动奖。
+景区往返摆渡车票价统一为16元/人。
 
-其中，湖南省岳阳县支行行长方石奎、云南省玉溪市红塔支行客户经理王俊颖被授予全国五一劳动奖章，内蒙古满洲里分行国际业务部、重庆市杨家坪支行营业室被授予全国工人先锋号。
+游客可通过景区官方微信号、线下售票窗口等平台进行实名购票、检票。
 
-为大力弘扬劳模精神、劳动精神、工匠精神，表彰激励先进典型，凝聚起团结奋进的强大力量，本期刊发受表彰的个人和集体事迹简介。
+需注意，门票及购票二维码、纸质票仅限本人使用，游客需妥善保管凭证。
 
-全国五一劳动奖章获得者方石奎任建设银行岳阳县支行行长，助理会计师 作为建设银行一名基层行长，方石奎打造的县域“党费云”平台实现全县单位全覆盖；推广的裕农信贷产品被广大农户亲切称为“王鸽贷”“水稻贷”，帮助数百农户增收增效，助力“岳阳王鸽”品牌走出湖南；他带领团队扎实做好金融“五篇大文章”，为“十四五”电力发展规划国家级重大项目和多个省市级重点项目提供优质的金融服务。
-
-全国五一劳动奖章获得者王俊颖任建设银行玉溪市分行红塔支行客户经理 深耕基层十余载，王俊颖用行动诠释党员担当，以暖心服务书写金融人的温情答卷。
-
-她走出网点，把金融课堂搬进车间厂房，用心倾听一线职工心声，将专业复杂的金融方案化作家常话语，暖心化解群众困惑；在棚改民生服务关键时期，她创新便民服务模式，携移动设备走街串巷，用心用情办好民生实事；面对行动不便的独居老人，她主动上门答疑解惑，用脚步缩短服务距离。
+此次联动举措也将打破地域壁垒，助力游客全方位沉浸式感受黄河风光。
 
 ## 相关推荐
 
-- 2026-06-30 05:40 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 05:30 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 05:21 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 05:46 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 05:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 05:31 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 05:32 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 05:23 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 05:46 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 05:37 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 05:26 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 05:45 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 05:41 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 05:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 05:44 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 05:50 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 05:40 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 05:45 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 05:50 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 05:34 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:28 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/4245463.shtml)
-- 2026-06-30 05:23 - [月亮](http://www.share.minike.top/Article/details/89082.shtml)
-- 2026-06-30 05:30 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/012498528.shtml)
-- 2026-06-30 05:39 - [日本领先巴西](http://www.share.minike.top/Article/details/066390885.shtml)
-- 2026-06-30 05:41 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/406605393349.shtml)
-- 2026-06-30 05:33 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/038525542.shtml)
-- 2026-06-30 05:33 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/03519991.shtml)
-- 2026-06-30 05:47 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/55816029.shtml)
-- 2026-06-30 05:45 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/552768.shtml)
-- 2026-06-30 05:36 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/040454989.shtml)
-- 2026-06-30 05:27 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/49533553.shtml)
-- 2026-06-30 05:41 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/88235292415.shtml)
-- 2026-06-30 05:37 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/129554976.shtml)
-- 2026-06-30 05:21 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/09966460.shtml)
-- 2026-06-30 05:20 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/68721594.shtml)
+- 2026-06-30 05:38 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/6793431.shtml)
+- 2026-06-30 05:25 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/9268897479.shtml)
+- 2026-06-30 05:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/5147261804.shtml)
+- 2026-06-30 05:29 - [沙丘](https://www.blog.kurohicncr.top/Article/details/34742.shtml)
+- 2026-06-30 05:30 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/025195628428.shtml)
+- 2026-06-30 05:33 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/8016397.shtml)
+- 2026-06-30 05:31 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/1979793390.shtml)
+- 2026-06-30 05:26 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/16797450.shtml)
+- 2026-06-30 05:37 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/097878.shtml)
+- 2026-06-30 05:39 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/23760296.shtml)
+- 2026-06-30 05:42 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/541384659.shtml)
+- 2026-06-30 05:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/75987.shtml)
+- 2026-06-30 05:28 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/679816115.shtml)
+- 2026-06-30 05:27 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/0572182369.shtml)
+- 2026-06-30 05:28 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/59912.shtml)

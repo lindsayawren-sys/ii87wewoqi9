@@ -1,59 +1,55 @@
-# 孙杨工作室：“妈妈致电节目组删除嘉宾言论”为恶意捏造
+# 美伊再次互袭 中方：战事再起不符合任何一方利益
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中新网北京4月29日电 近日，孙杨、张豆豆在综艺《妻子的浪漫旅行》中的相处模式引发许多网友热议。有网友发文称，节目中马頔曾应老婆团要求开启夸夸模式，夸张豆豆时他开玩笑说“他(孙杨)配不上你”，但现在相关片段已被删除。 4月29日，话题“网传孙杨妈妈要求删除马頔发言”登上热搜榜高位，多个孙杨、张豆豆相关词条登上热搜。 当天下午，孙杨工作室发布声明，否认相关不实言论： 一、关于“孙
+中新网北京6月3日电 (记者 郭超凯)中国外交部发言人毛宁6月3日主持例行记者会。 有记者提问：美军空袭了伊朗格什姆岛。作为回应，伊朗称袭击位于中东的美军基地。多个海湾国家响起防空警报，中东局势再次升级，请问中方有何评论？ 毛宁：中方对当前局势深表关切，战事再起不符合任何一方的利益，希望相关各方珍惜和平机会，履行停火承诺，保持谈判势头，坚持通过政治外交途径化解争端，尽早实现全面
 
 ## 正文
 
-中新网北京4月29日电 近日，孙杨、张豆豆在综艺《妻子的浪漫旅行》中的相处模式引发许多网友热议。
+中新网北京6月3日电 (记者 郭超凯)中国外交部发言人毛宁6月3日主持例行记者会。
 
-有网友发文称，节目中马頔曾应老婆团要求开启夸夸模式，夸张豆豆时他开玩笑说“他(孙杨)配不上你”，但现在相关片段已被删除。
+有记者提问：美军空袭了伊朗格什姆岛。
 
-4月29日，话题“网传孙杨妈妈要求删除马頔发言”登上热搜榜高位，多个孙杨、张豆豆相关词条登上热搜。
+作为回应，伊朗称袭击位于中东的美军基地。
 
-当天下午，孙杨工作室发布声明，否认相关不实言论： 一、关于“孙杨妈妈致电节目组删除嘉宾言论”“半夜打电话教育女PD”等说法均为恶意捏造，毫无事实依据。
+多个海湾国家响起防空警报，中东局势再次升级，请问中方有何评论？
 
-二、孙杨与张豆豆及家人自始至终积极配合节目组工作与需求，遵从专业安排。
+毛宁：中方对当前局势深表关切，战事再起不符合任何一方的利益，希望相关各方珍惜和平机会，履行停火承诺，保持谈判势头，坚持通过政治外交途径化解争端，尽早实现全面持久停火，为恢复中东海湾地区的和平安宁创造必要条件。
 
-从未干涉过节目组的最终剪辑权与播出决定。
-
-三、孙杨与张豆豆参与节目的初衷，是希望在遵守职业规范的前提下，真实展现运动员家庭的生活日常与积极风貌，二人始终保持开放心态，虚心接受公众的理性评价。
-
-四、相关不实言论已对孙杨、张豆豆及相关运动员亲属造成严重的精神困扰与名誉损害。
+(完）
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 05:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 05:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 05:37 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 05:24 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 05:19 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-30 05:19 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 05:42 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 05:46 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 05:19 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 05:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 05:27 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 05:33 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-30 05:51 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-30 05:35 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 05:26 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 05:29 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-30 05:52 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 05:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 05:38 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 05:46 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 05:46 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 05:35 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 05:31 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 05:29 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 05:38 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:35 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/02990856.shtml)
-- 2026-06-30 05:37 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/188405.shtml)
-- 2026-06-30 05:30 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/9021459.shtml)
-- 2026-06-30 05:33 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/969028519594.shtml)
-- 2026-06-30 05:27 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/762170369833.shtml)
-- 2026-06-30 05:41 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/1421404.shtml)
-- 2026-06-30 05:28 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/99488079872.shtml)
-- 2026-06-30 05:20 - [巴西绝杀](https://www.share.minike.top/Article/details/386753669428.shtml)
-- 2026-06-30 05:41 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/79017527.shtml)
-- 2026-06-30 05:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/65154351.shtml)
-- 2026-06-30 05:44 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/0157213.shtml)
-- 2026-06-30 05:46 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/278932856089.shtml)
-- 2026-06-30 05:34 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/8695526410.shtml)
-- 2026-06-30 05:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/3219045192.shtml)
-- 2026-06-30 05:39 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/758188842.shtml)
+- 2026-06-30 05:34 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/921113556.shtml)
+- 2026-06-30 05:40 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/101387070.shtml)
+- 2026-06-30 05:34 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/623019650106.shtml)
+- 2026-06-30 05:38 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.kurohicncr.top/Article/details/047188365.shtml)
+- 2026-06-30 05:35 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/821067549.shtml)
+- 2026-06-30 05:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/01932831226.shtml)
+- 2026-06-30 05:44 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/4254263.shtml)
+- 2026-06-30 05:34 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/8183349.shtml)
+- 2026-06-30 05:41 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/425551.shtml)
+- 2026-06-30 05:36 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/359498.shtml)
+- 2026-06-30 05:36 - [点菜也要教吗](https://www.blog.minike.top/Article/details/36559113582.shtml)
+- 2026-06-30 05:53 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/54886615925.shtml)
+- 2026-06-30 05:40 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/07879531449.shtml)
+- 2026-06-30 05:47 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/05160.shtml)
+- 2026-06-30 05:29 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/38396.shtml)

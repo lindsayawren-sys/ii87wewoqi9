@@ -1,57 +1,54 @@
-# “促进交往交流交融”专章立法有深意
+# 香港零售业总销货价值连续12个月增长
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-民族团结进步促进法在第三章对“促进交往交流交融”予以专章着墨。多位专家在接受《中国新闻》报采访时分析，这是对新时代民族工作实践的法治凝练，回应了当前我国各民族群众大流动、大融居的新特点，将进一步巩固中华民族共同体建设的社会基础。 回应历史规律与现实趋势 中国人民大学铸牢中华民族共同体意识研究院院长段成荣表示，改革开放以来，我国完成了从低流动性的乡土中国向高流动性的迁徙中国的转变
+中新社香港6月2日电 (记者 魏华都)香港特区政府统计处2日公布，2026年4月零售业总销货价值的临时估计为314亿港元，较去年同期上升8.6%，连续12个月录得升幅。 4月零售业总销货价值中，网上销售占9.7%。该月的零售业网上销售价值的临时估计为30亿港元，较去年同期上升30.6%。 珠宝首饰、钟表及名贵礼物，药物及化妆品，超级市场货品，汽车及汽车零件等大部分零售商主要类别
 
 ## 正文
 
-民族团结进步促进法在第三章对“促进交往交流交融”予以专章着墨。
+中新社香港6月2日电 (记者 魏华都)香港特区政府统计处2日公布，2026年4月零售业总销货价值的临时估计为314亿港元，较去年同期上升8.6%，连续12个月录得升幅。
 
-多位专家在接受《中国新闻》报采访时分析，这是对新时代民族工作实践的法治凝练，回应了当前我国各民族群众大流动、大融居的新特点，将进一步巩固中华民族共同体建设的社会基础。
+4月零售业总销货价值中，网上销售占9.7%。
 
-回应历史规律与现实趋势 中国人民大学铸牢中华民族共同体意识研究院院长段成荣表示，改革开放以来，我国完成了从低流动性的乡土中国向高流动性的迁徙中国的转变，各民族交往交流交融的程度得到显著提升，进入几千年历史上民族人口迁徙和融合的第五次高潮。
+该月的零售业网上销售价值的临时估计为30亿港元，较去年同期上升30.6%。
 
-在这一过程中，各民族群众之间的交往方式也发生了明显变化。
+珠宝首饰、钟表及名贵礼物，药物及化妆品，超级市场货品，汽车及汽车零件等大部分零售商主要类别均有增长。
 
-民族团结进步促进法专章设置“促进交往交流交融”，体现了国家在各民族人口大流动、大融居时代推动社会互嵌、促进共同团结进步的制度自觉，回应了我国人口流动、社会分工和区域联通不断深化的现实趋势，并通过制度安排引导这种流动更好地转化为社会交往与共同发展。
+香港零售管理协会主席谢邱安仪表示，香港零售业已从去年低位逐步回升，最差情况已过去，预料全年可录得个位数升幅。
 
-中南民族大学四部委铸牢中华民族共同体意识研究基地教授、法学院院长潘红祥指出，各民族交往交流交融始终是中华民族演进发展的重要特点，促使中华民族从分散走向凝聚、从多元走向一体、从过去走到现在、从历史走向未来。
+特区政府发言人表示，随着经济持续扩张、访港旅客增加，以及消费气氛保持韧性，零售业应可继续受惠。
 
-将促进各民族交往交流交融写入法律，既高度契合中华民族演进规律，也是对新时代民族工作实践的法治凝练，为铸牢中华民族共同体意识、推进中华民族共同体建设筑牢了制度根基。
-
-夯实互嵌共融社会基础 以“促进交往交流交融”为题的第三章共十条内容，涉及社区建设、人口流动、教育交流、文化活动等多个领域。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:19 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-30 05:20 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 05:40 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 05:18 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 05:32 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 05:42 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 05:29 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 05:20 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 05:34 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 05:47 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 05:47 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 05:42 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 05:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 05:27 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 05:25 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 05:33 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 05:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 05:27 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 05:28 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 05:44 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 05:53 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:32 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/481558.shtml)
-- 2026-06-30 05:29 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/1280842805.shtml)
-- 2026-06-30 05:37 - [蔚来车主罚站](http://www.share.minike.top/Article/details/963035.shtml)
-- 2026-06-30 05:40 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/9506554595.shtml)
-- 2026-06-30 05:27 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/311835382451.shtml)
-- 2026-06-30 05:41 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/46288.shtml)
-- 2026-06-30 05:27 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/1718067273.shtml)
-- 2026-06-30 05:33 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/504822.shtml)
-- 2026-06-30 05:36 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/863237.shtml)
-- 2026-06-30 05:31 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/4633946.shtml)
-- 2026-06-30 05:27 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/135147222.shtml)
-- 2026-06-30 05:48 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/593332542753.shtml)
-- 2026-06-30 05:19 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/01208.shtml)
-- 2026-06-30 05:30 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/75905786.shtml)
-- 2026-06-30 05:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/3255547.shtml)
+- 2026-06-30 05:26 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/959000356.shtml)
+- 2026-06-30 05:52 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/2717486626.shtml)
+- 2026-06-30 05:30 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/76636.shtml)
+- 2026-06-30 05:25 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/844498370393.shtml)
+- 2026-06-30 05:50 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/48861908.shtml)
+- 2026-06-30 05:52 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/07098730719.shtml)
+- 2026-06-30 05:30 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/329688503709.shtml)
+- 2026-06-30 05:47 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/14876.shtml)
+- 2026-06-30 05:26 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/36034496697.shtml)
+- 2026-06-30 05:39 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/34901193137.shtml)
+- 2026-06-30 05:44 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/2840864.shtml)
+- 2026-06-30 05:47 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/41011634164.shtml)
+- 2026-06-30 05:30 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/9991042835.shtml)
+- 2026-06-30 05:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/16586938.shtml)
+- 2026-06-30 05:51 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/433945548.shtml)

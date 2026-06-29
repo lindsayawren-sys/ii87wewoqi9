@@ -1,61 +1,61 @@
-# 世界银行：中东冲突推高大宗商品价格，拖累全球经济增长
+# 全球富豪“向东看”！2.95万亿美元背后：香港跨境财富管理规模为何能超越瑞士？
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-世界银行于周二表示，中东冲突引发大宗商品价格暴涨，或将推高发展中经济体通胀、压低经济增速。 自2月末美国与以色列对伊朗发动首轮袭击以来，霍尔木兹海峡航运基本陷入停滞，全球石油、天然气、尿素及各类原材料供应大幅缩减。 受供给短缺影响，大宗商品价格大幅飙升。世界银行在大宗商品展望报告中指出，即便霍尔木兹海峡从下月起逐步恢复通航，今年布伦特原油均价仍将达到每桶86美元，远高于2025
+近日，波士顿咨询公司(BCG)发布《2026全球财富报告》显示，香港跨境财富管理规模达到2.95万亿美元，同比增长10.7%，首次超过瑞士成为全球最大的跨境财富管理中心。 在众多学者看来，这一变化背后，是中国经济发展、金融开放以及人民币国际化进程，对全球财富管理格局产生的深远影响。 为何是香港？ 香港能够承接全球新增财富的核心原因，在于其独特的制度优势和市场定位。BCG数据显示
 
 ## 正文
 
-世界银行于周二表示，中东冲突引发大宗商品价格暴涨，或将推高发展中经济体通胀、压低经济增速。
+近日，波士顿咨询公司(BCG)发布《2026全球财富报告》显示，香港跨境财富管理规模达到2.95万亿美元，同比增长10.7%，首次超过瑞士成为全球最大的跨境财富管理中心。
 
-自2月末美国与以色列对伊朗发动首轮袭击以来，霍尔木兹海峡航运基本陷入停滞，全球石油、天然气、尿素及各类原材料供应大幅缩减。
+在众多学者看来，这一变化背后，是中国经济发展、金融开放以及人民币国际化进程，对全球财富管理格局产生的深远影响。
 
-受供给短缺影响，大宗商品价格大幅飙升。
+为何是香港？
 
-世界银行在大宗商品展望报告中指出，即便霍尔木兹海峡从下月起逐步恢复通航，今年布伦特原油均价仍将达到每桶86美元，远高于2025年的65美元。
+香港能够承接全球新增财富的核心原因，在于其独特的制度优势和市场定位。
 
-由于其他原材料供应同样受阻，世行预计今年大宗商品价格整体上涨16%，为2022年俄乌冲突以来首次年度上涨，较该行1月预测值高出25%。
+BCG数据显示，目前内地资金约占香港资产管理规模的60%。
 
-倘若航运中断局面长期持续，布伦特原油全年均价或将升至每桶95至115美元区间，其他大宗商品价格也将出现更大涨幅。
+北京大学光华管理学院院长、北京大学博雅特聘教授田轩对中新经纬表示，本轮香港财富管理规模增长最核心的驱动力，是内地资金流入；而金融互联互通机制，则起到了决定性作用。
 
-世行经济学家测算，在基准温和情景下，发展中经济体今年经济增速仅为3.6%，低于1月预测的4%；平均通胀率预计达5.1%，较冲突爆发前的预期高出1个百分点。
+近年来，从沪港通、深港通到债券通、跨境理财通，再到粤港澳大湾区金融市场互联互通持续推进，香港与内地之间的金融联系不断深化。
 
-民众在生活必需品上的支出被迫增加，可用于其他商品与服务的消费缩减，经济增长随之走弱；同时，通胀上行或将倒逼各国加息。
+特别是“跨境理财通2.0”落地后，投资者准入门槛进一步优化，产品范围持续扩容，资金双向流动更加便利。
 
 ## 相关推荐
 
-- 2026-06-30 05:30 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 05:28 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 05:34 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 05:28 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 05:40 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 05:21 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 05:19 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 05:25 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 05:28 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 05:36 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 05:28 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 05:27 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 05:28 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 05:29 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-30 05:40 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-30 05:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 05:29 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 05:30 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 05:34 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 05:42 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 05:50 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 05:44 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 05:30 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 05:52 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 05:44 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 05:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 05:26 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 05:42 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 05:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 05:29 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:25 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/54637660.shtml)
-- 2026-06-30 05:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/220287727054.shtml)
-- 2026-06-30 05:25 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/15041096.shtml)
-- 2026-06-30 05:41 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/96264407035.shtml)
-- 2026-06-30 05:44 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/391925857434.shtml)
-- 2026-06-30 05:34 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/60729573600.shtml)
-- 2026-06-30 05:36 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/37788.shtml)
-- 2026-06-30 05:22 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/0884857154.shtml)
-- 2026-06-30 05:44 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/74595062.shtml)
-- 2026-06-30 05:47 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/7318780700.shtml)
-- 2026-06-30 05:37 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/72794954205.shtml)
-- 2026-06-30 05:32 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/581280709379.shtml)
-- 2026-06-30 05:39 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/59705480.shtml)
-- 2026-06-30 05:39 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/66069.shtml)
-- 2026-06-30 05:41 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/70561458890.shtml)
+- 2026-06-30 05:25 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/684967191778.shtml)
+- 2026-06-30 05:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/5916279961.shtml)
+- 2026-06-30 05:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/4929273414.shtml)
+- 2026-06-30 05:39 - [急先锋](https://www.share.minike.top/Article/details/66967.shtml)
+- 2026-06-30 05:44 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/308466.shtml)
+- 2026-06-30 05:51 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/8283828901.shtml)
+- 2026-06-30 05:36 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/11090836269.shtml)
+- 2026-06-30 05:39 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/9770473.shtml)
+- 2026-06-30 05:32 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/594914411877.shtml)
+- 2026-06-30 05:25 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/82217072.shtml)
+- 2026-06-30 05:28 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/320800369.shtml)
+- 2026-06-30 05:43 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/63171994918.shtml)
+- 2026-06-30 05:36 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/82462812861.shtml)
+- 2026-06-30 05:46 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/181598775.shtml)
+- 2026-06-30 05:49 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/447273535.shtml)

@@ -1,61 +1,60 @@
-# 中国银行党委召开扩大会议 传达学习中共中央政治局会议精神
+# 空气炸锅纸加热致癌？咖啡滤纸含荧光剂？真相来了
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-来源：中国银行 4月29日，中国银行党委召开扩大会议，传达学习4月28日中共中央政治局会议精神，研究部署中国银行贯彻落实措施。党委书记、董事长葛海蛟主持会议并讲话。 会议指出，本次中央政治局会议准确研判我国当前经济形势，作出一系列重要部署，具有极强的战略性、指导性、针对性，为进一步坚定发展信心、牢牢把握发展主动、努力实现“十五五”良好开局指明前进方向。全行要迅速把思想和行动统一
+近期，“空气炸锅纸加热致癌”“蒸笼纸存在蒸发残渣值超标”“白色咖啡滤纸含有荧光剂”等网络传言出现，这些是真的吗？上海市消保委对市面上主流的25款烹饪用纸进行了检测，揭开真相。 25款烹饪用纸未检出致癌物 近期，网传“蒸笼纸蒸发残渣值超标”以及“蒸笼纸中含有3-MCPD(3-氯-1,2-丙二醇)和1,3-DCP (1,3-二氯-2-丙醇)两种致癌物”的说法引发了消费者关注。 检测
 
 ## 正文
 
-来源：中国银行 4月29日，中国银行党委召开扩大会议，传达学习4月28日中共中央政治局会议精神，研究部署中国银行贯彻落实措施。
+近期，“空气炸锅纸加热致癌”“蒸笼纸存在蒸发残渣值超标”“白色咖啡滤纸含有荧光剂”等网络传言出现，这些是真的吗？
 
-党委书记、董事长葛海蛟主持会议并讲话。
+上海市消保委对市面上主流的25款烹饪用纸进行了检测，揭开真相。
 
-会议指出，本次中央政治局会议准确研判我国当前经济形势，作出一系列重要部署，具有极强的战略性、指导性、针对性，为进一步坚定发展信心、牢牢把握发展主动、努力实现“十五五”良好开局指明前进方向。
+25款烹饪用纸未检出致癌物 近期，网传“蒸笼纸蒸发残渣值超标”以及“蒸笼纸中含有3-MCPD(3-氯-1,2-丙二醇)和1,3-DCP (1,3-二氯-2-丙醇)两种致癌物”的说法引发了消费者关注。
 
-全行要迅速把思想和行动统一到党中央对形势的科学判断和对经济工作的决策部署上来，深刻认识一季度我国经济发展取得的成绩，准确把握党中央最新部署要求，围绕防风险、强监管、促高质量发展金融工作主线，抢抓政策机遇、主动担当作为，以实际行动坚定拥护“两个确立”，坚决做到“两个维护”。
+检测人员模拟蒸笼纸接触油性、酸性等不同食物的实际使用场景开展安全检测，本次共检测了25款烹饪用纸，包含7款空气炸锅纸、6款蒸笼垫纸、6款食物吸油纸和6款咖啡滤纸。
 
-会议强调，要以更大力度和更实举措助力经济稳中向好发展。
+蒸发残渣值，是指纸张在特定高温下，析出并迁移到食物中的非挥发性物质总量。
 
-要用好用足宏观政策，精准有效传导财政货币政策，聚焦重大战略、重点领域和薄弱环节，加大授信支持力度，持续提升服务质效。
+本次检测结果显示，所有样品的蒸发残渣值均在标准限值内，也并未检出3-MCPD(3-氯-1,2-丙二醇)和1,3-DCP(1,3-二氯-2-丙醇)等致癌物。
 
-要深入挖掘内需潜力，积极支持服务业扩能提质，大力支持“六张网”建设，做好重大工程项目服务对接，落实落细财政金融协同促内需一揽子政策。
+网传“空气炸锅纸加热有毒、会致癌”？
 
-要充分发挥特色优势，加快推进人民币国际使用，全力支持“走出去”企业，系统支持贸易创新发展，助力做优国内国际双循环。
+除了蒸笼纸，有关空气炸锅纸的安全问题也有不少争议，有网友担心高温加热会释放致癌物。
 
 ## 相关推荐
 
-- 2026-06-30 05:34 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 05:28 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 05:28 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 05:41 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 05:22 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 05:35 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 05:29 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 05:27 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 05:38 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 05:36 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 05:22 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 05:25 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 05:32 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 05:23 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-30 05:44 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 05:37 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 05:50 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 05:29 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 05:47 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 05:31 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 05:34 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 05:29 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 05:40 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 05:48 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 05:42 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 05:28 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 05:41 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 05:40 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 05:28 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:44 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/670215991.shtml)
-- 2026-06-30 05:35 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/83563639.shtml)
-- 2026-06-30 05:21 - [一生一世](https://www.share.kurohicncr.top/Article/details/4392460.shtml)
-- 2026-06-30 05:41 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/13510425961.shtml)
-- 2026-06-30 05:43 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/21762.shtml)
-- 2026-06-30 05:42 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/3463884.shtml)
-- 2026-06-30 05:41 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/62153286428.shtml)
-- 2026-06-30 05:24 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/821587502.shtml)
-- 2026-06-30 05:44 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/2891795326.shtml)
-- 2026-06-30 05:47 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/8547706.shtml)
-- 2026-06-30 05:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/972192572619.shtml)
-- 2026-06-30 05:27 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/511326.shtml)
-- 2026-06-30 05:27 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/92331831940.shtml)
-- 2026-06-30 05:31 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/639753095391.shtml)
-- 2026-06-30 05:25 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/5995637.shtml)
+- 2026-06-30 05:30 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/82959513827.shtml)
+- 2026-06-30 05:51 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/5199940042.shtml)
+- 2026-06-30 05:46 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/43443.shtml)
+- 2026-06-30 05:43 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/72941.shtml)
+- 2026-06-30 05:39 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/366326753.shtml)
+- 2026-06-30 05:30 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/88808.shtml)
+- 2026-06-30 05:53 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/451086175.shtml)
+- 2026-06-30 05:40 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/598398693829.shtml)
+- 2026-06-30 05:45 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/498367078884.shtml)
+- 2026-06-30 05:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/2539719154.shtml)
+- 2026-06-30 05:31 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/10418051298.shtml)
+- 2026-06-30 05:49 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/6458297440.shtml)
+- 2026-06-30 05:42 - [第一炉香](http://www.blog.minike.top/Article/details/828445137.shtml)
+- 2026-06-30 05:50 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/16079395518.shtml)
+- 2026-06-30 05:50 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/551623.shtml)

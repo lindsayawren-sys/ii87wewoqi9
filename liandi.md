@@ -1,55 +1,57 @@
-# 中远海能早盘涨逾5% 第一季度运价同比显著提升
+# 上交所问询聚焦三大方向，国金证券逐项回应
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-中远海能（01138）早盘涨近6%，截至发稿，股价上涨4.99%，现报18.11港元，成交额8238.32万港元。 中远海能发布一季度业绩，期内收入73.03 亿元，同比增长26.95%，环比增长7.65%；归母净利润21.73 亿元，同比增长207.09%，环比增长65.34%。公司一季度盈利及收入大幅上涨主要因运价同比显著提升。 高盛发布研报称，由于大量LR2型油轮转向运载
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月3日，国金证券就上交所监管问询逐项答疑。上海证券报记者梳理发现，监管部门聚焦金融投资、股票质押、资管业务三大方向，重点关注关联方产品认购、资产减值计提比例下滑、资管子公司持续亏损等细节。 年报显示，国金证券2025年实现营业收入84.57亿元，同比增长26.9%；归属于母公司股东的净利润22.77亿元，
 
 ## 正文
 
-中远海能（01138）早盘涨近6%，截至发稿，股价上涨4.99%，现报18.11港元，成交额8238.32万港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-中远海能发布一季度业绩，期内收入73.03 亿元，同比增长26.95%，环比增长7.65%；归母净利润21.73 亿元，同比增长207.09%，环比增长65.34%。
+6月3日，国金证券就上交所监管问询逐项答疑。
 
-公司一季度盈利及收入大幅上涨主要因运价同比显著提升。
+上海证券报记者梳理发现，监管部门聚焦金融投资、股票质押、资管业务三大方向，重点关注关联方产品认购、资产减值计提比例下滑、资管子公司持续亏损等细节。
 
-高盛发布研报称，由于大量LR2型油轮转向运载脏油，降低有效运力并推高成品油轮运费，因此上调2026至2028年盈利预测3%至4%。
+年报显示，国金证券2025年实现营业收入84.57亿元，同比增长26.9%；归属于母公司股东的净利润22.77亿元，同比增长36.32%。
 
-对于原油油轮，该行大致维持2026及2027年VLCC日均期租租金15万及13万美元预测。
+此番监管问询，折射出当前中小券商共性发展难题：在行业整体经营向好、竞争日趋白热化的背景下，中小券商如何在抢抓业绩的同时，统筹合规管控、妥善缓释潜在经营风险。
 
-该行相信，VLCC超级周期正由运力紧张推动，并受行业整合强化，中远海能为主要受惠者。
+金融投资规模达440.16亿元 关联方产品投资合计3.10亿元 年报显示，截至2025年末，国金证券持有的交易性金融资产、其他债权投资、其他权益工具投资、衍生金融资产等合计达440.16亿元，较上年末增长47.06%。
 
-责任编辑：卢昱君
+其中，公司持有的关联方产品——上海涌铧投资管理有限公司发行的基金产品、云南国际信托有限公司发行的信托产品，期末余额分别为2.59亿元和5109.21万元，合计3.10亿元。
+
+对此，上交所追问公司认购关联方金融产品的具体情况。
 
 ## 相关推荐
 
-- 2026-06-30 05:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 05:29 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 05:47 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 05:20 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 05:40 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 05:40 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 05:22 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 05:48 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 05:38 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 05:46 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 05:18 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 05:46 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 05:37 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 05:32 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 05:42 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 05:48 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 05:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 05:34 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 05:38 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 05:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 05:25 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 05:31 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:47 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/79967891.shtml)
-- 2026-06-30 05:19 - [日本反击率先破门](https://www.blog.minike.top/Article/details/680868.shtml)
-- 2026-06-30 05:46 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/778174923.shtml)
-- 2026-06-30 05:36 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/657310.shtml)
-- 2026-06-30 05:28 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/626497782375.shtml)
-- 2026-06-30 05:43 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/05061157963.shtml)
-- 2026-06-30 05:32 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/13173288.shtml)
-- 2026-06-30 05:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/61642483541.shtml)
-- 2026-06-30 05:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/57006727.shtml)
-- 2026-06-30 05:21 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/058454855.shtml)
-- 2026-06-30 05:26 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/1305989512.shtml)
-- 2026-06-30 05:22 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/33758595160.shtml)
-- 2026-06-30 05:46 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/56179487345.shtml)
-- 2026-06-30 05:24 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/8569950.shtml)
-- 2026-06-30 05:31 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/622668.shtml)
+- 2026-06-30 05:50 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/38977.shtml)
+- 2026-06-30 05:37 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/16793.shtml)
+- 2026-06-30 05:47 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/399742687.shtml)
+- 2026-06-30 05:37 - [巴西补时绝杀日本](http://www.share.minike.top/Article/details/90738.shtml)
+- 2026-06-30 05:30 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/33605.shtml)
+- 2026-06-30 05:28 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/087691675.shtml)
+- 2026-06-30 05:31 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/17076829.shtml)
+- 2026-06-30 05:29 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/09681890.shtml)
+- 2026-06-30 05:34 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/42509.shtml)
+- 2026-06-30 05:50 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/4829038606.shtml)
+- 2026-06-30 05:38 - [请回答王牌2019](http://www.blog.minike.top/Article/details/4718424.shtml)
+- 2026-06-30 05:46 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/99660951288.shtml)
+- 2026-06-30 05:37 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/338545652.shtml)
+- 2026-06-30 05:39 - [千与千寻](http://www.share.minike.top/Article/details/7637124279.shtml)
+- 2026-06-30 05:29 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/0846985.shtml)

@@ -1,59 +1,49 @@
-# 美联储维持利率不变，但内部分歧创1992年以来最高水平
+# 马斯克的SpaceX拟通过史上最大IPO筹资750亿美元
 
-> 更新时间：2026-06-30 05:48:03 UTC+8
+> 更新时间：2026-06-30 05:54:02 UTC+8
 
 ## 摘要
 
-周三，美联储在内部分歧异常严重的情况下，决定维持关键利率不变。政策制定者们正努力应对持续通胀对政策的影响，同时等待央行即将到来的领导层交接。 这可能是杰罗姆·鲍威尔作为主席主持的最后一次会议。负责制定利率的联邦公开市场委员会（FOMC）投票决定将基准基金利率维持在3.5%-3.75%的区间。市场此前已完全消化了保持不变的可能性。 然而，此次会议出现了戏剧性的转折。 外界原本预期
+文件显示，埃隆·马斯克的SpaceX拟通过史上最大IPO筹资750亿美元。 该公司拟发行5.556亿股股票，预计发行价为每股135美元。 SpaceX已申请在纳斯达克股票市场和Nasdaq Texas上市，股票代码为“SPCX”。责任编辑：丁文武
 
 ## 正文
 
-周三，美联储在内部分歧异常严重的情况下，决定维持关键利率不变。
+文件显示，埃隆·马斯克的SpaceX拟通过史上最大IPO筹资750亿美元。
 
-政策制定者们正努力应对持续通胀对政策的影响，同时等待央行即将到来的领导层交接。
+该公司拟发行5.556亿股股票，预计发行价为每股135美元。
 
-这可能是杰罗姆·鲍威尔作为主席主持的最后一次会议。
+SpaceX已申请在纳斯达克股票市场和Nasdaq Texas上市，股票代码为“SPCX”。
 
-负责制定利率的联邦公开市场委员会（FOMC）投票决定将基准基金利率维持在3.5%-3.75%的区间。
-
-市场此前已完全消化了保持不变的可能性。
-
-然而，此次会议出现了戏剧性的转折。
-
-外界原本预期委员会会例行投票维持基准利率不变，但FOMC实际投票结果为8比4，官员们对各自投票给出了不同理由。
-
-上一次有四名FOMC成员投反对票还要追溯到1992年10月。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 05:20 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 05:43 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 05:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 05:29 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-30 05:33 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 05:47 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 05:26 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 05:36 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 05:43 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 05:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 05:32 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 05:29 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 05:25 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 05:24 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 05:46 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 05:37 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-30 05:30 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-30 05:44 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 05:26 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 05:52 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 05:26 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 05:40 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 05:43 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 05:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/65823199.shtml)
-- 2026-06-30 05:44 - [急先锋](http://www.share.minike.top/Article/details/14297606729.shtml)
-- 2026-06-30 05:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/74565325676.shtml)
-- 2026-06-30 05:25 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/829997376.shtml)
-- 2026-06-30 05:35 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/840824655.shtml)
-- 2026-06-30 05:24 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/46455.shtml)
-- 2026-06-30 05:31 - [金刚川](http://www.blog.minike.top/Article/details/18253.shtml)
-- 2026-06-30 05:38 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/64277251490.shtml)
-- 2026-06-30 05:40 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/46033.shtml)
-- 2026-06-30 05:22 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/6118098147.shtml)
-- 2026-06-30 05:48 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/93070.shtml)
-- 2026-06-30 05:36 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/90310687.shtml)
-- 2026-06-30 05:44 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/1255389133.shtml)
-- 2026-06-30 05:43 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/5387703.shtml)
-- 2026-06-30 05:34 - [周生如故](https://www.share.kurohicncr.top/Article/details/594565307331.shtml)
+- 2026-06-30 05:26 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/5458485.shtml)
+- 2026-06-30 05:34 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/1764125.shtml)
+- 2026-06-30 05:42 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/19064803467.shtml)
+- 2026-06-30 05:53 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/463359.shtml)
+- 2026-06-30 05:26 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/07544.shtml)
+- 2026-06-30 05:28 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/398268271.shtml)
+- 2026-06-30 05:34 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/301414.shtml)
+- 2026-06-30 05:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/7255402107.shtml)
+- 2026-06-30 05:31 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/36888813.shtml)
+- 2026-06-30 05:28 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/55141619.shtml)
+- 2026-06-30 05:32 - [爱很美味](http://www.share.kurohicncr.top/Article/details/585871052.shtml)
+- 2026-06-30 05:36 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/84482304.shtml)
+- 2026-06-30 05:41 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/189745368654.shtml)
+- 2026-06-30 05:29 - [内马尔替补](https://www.share.minike.top/Article/details/72442023882.shtml)
+- 2026-06-30 05:24 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/949656.shtml)
