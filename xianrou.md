@@ -1,52 +1,58 @@
-# 特朗普：不希望延长停火，随时可以恢复攻击伊朗
+# 北京展区书博会期间达成版权输出签约40余种
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-中新网4月21日电 据卡塔尔半岛新闻网报道，当地时间21日，美国总统特朗普表示，他不希望延长定于4月22日到期的美伊停火协议。 特朗普表示，“我们没有那么多时间了。”他补充称，“如果达成协议，伊朗可以让自己处于非常有利的地位”，伊朗官员“别无选择”，只能进行谈判。 特朗普称若未达成协议，军方“已准备就绪”。特朗普强调，美军已利用停火期补充了装备，如果他下令，随时可以恢复对伊朗的
+中新网北京6月27日电 (记者 高凯)记者从第32届北京国际图书博览会北京展区方面获悉，展会期间，北京展区共接待约25个国家和地区，30余家海外出版机构近180余人次洽谈，达成版权输出签约40余种。 据了解，本届北京展区以主题出版、原创文学精品为核心展陈，同步设置文化科技融合、文创展示售卖、古籍整理与旧书新知、国际交流等特色专区，集中展示3200册精品图书，配套举办32场文化交
 
 ## 正文
 
-中新网4月21日电 据卡塔尔半岛新闻网报道，当地时间21日，美国总统特朗普表示，他不希望延长定于4月22日到期的美伊停火协议。
+中新网北京6月27日电 (记者 高凯)记者从第32届北京国际图书博览会北京展区方面获悉，展会期间，北京展区共接待约25个国家和地区，30余家海外出版机构近180余人次洽谈，达成版权输出签约40余种。
 
-特朗普表示，“我们没有那么多时间了。
+据了解，本届北京展区以主题出版、原创文学精品为核心展陈，同步设置文化科技融合、文创展示售卖、古籍整理与旧书新知、国际交流等特色专区，集中展示3200册精品图书，配套举办32场文化交流、新书发布和版权签约活动。
 
-”他补充称，“如果达成协议，伊朗可以让自己处于非常有利的地位”，伊朗官员“别无选择”，只能进行谈判。
+展会期间，北京展区共接待约25个国家和地区，30余家海外出版机构近180余人次洽谈，达成版权输出签约40余种，达成版权输出意向近百种、版权引进意向15种；达成实物图书出口意向100余种。
 
-特朗普称若未达成协议，军方“已准备就绪”。
+其中，拓展版权输出版图，与坦桑尼亚、尼泊尔、津巴布韦等国家出版机构达成版权输出合作意向；与中东欧、南亚和中亚等市场主体进行了重点交流。
 
-特朗普强调，美军已利用停火期补充了装备，如果他下令，随时可以恢复对伊朗的攻击。
+拓展数字出版资产海外渠道，与拉美知名数字出版平台Publica.la就优质内容数字化传播、海外电子书发行达成合作意向，与OverDrive团队举行专题会谈，就K12同步阅读资源进入海外校园体系进行探讨，推动双方合作由单一内容上线向渠道共建、市场共拓升级；与泰国红山出版社就“北京文化”主题电子书项目达成合作意向。
+
+首文科集团与企鹅兰登集团、圣智学习集团、牛津大学出版社等国际知名出版机构进行了深入交流，为双方合作奠定了基础。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 16:38 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 16:15 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 16:30 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 16:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 16:37 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 16:13 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 16:39 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 16:21 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 16:25 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 16:36 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 16:41 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 16:30 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 16:47 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 16:47 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 16:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 16:34 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 16:24 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 16:26 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 16:31 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 16:20 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 16:20 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 16:25 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 16:35 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 16:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 16:27 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:25 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/0196483.shtml)
-- 2026-06-29 16:36 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/0116603474.shtml)
-- 2026-06-29 16:24 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.minike.top/Article/details/970371.shtml)
-- 2026-06-29 16:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/86827445.shtml)
-- 2026-06-29 16:41 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/866002989236.shtml)
-- 2026-06-29 16:25 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/4573840.shtml)
-- 2026-06-29 16:12 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/3061006118.shtml)
-- 2026-06-29 16:41 - [这一刀 会很帅](http://www.share.minike.top/Article/details/586614911.shtml)
-- 2026-06-29 16:19 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/93777805.shtml)
-- 2026-06-29 16:12 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/694155317816.shtml)
-- 2026-06-29 16:20 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/06852769.shtml)
-- 2026-06-29 16:37 - [一生一世](https://www.blog.minike.top/Article/details/806344.shtml)
-- 2026-06-29 16:30 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/7510227.shtml)
-- 2026-06-29 16:36 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/573851253.shtml)
-- 2026-06-29 16:26 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/795569088.shtml)
+- 2026-06-29 16:40 - [女生雨天开车发现雨刮条被掰走](http://www.blog.minike.top/Article/details/52947056645.shtml)
+- 2026-06-29 16:25 - [光与夜之恋](http://www.blog.minike.top/Article/details/49595.shtml)
+- 2026-06-29 16:32 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/19382089.shtml)
+- 2026-06-29 16:45 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/13082.shtml)
+- 2026-06-29 16:42 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/1668873971.shtml)
+- 2026-06-29 16:26 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/73595553067.shtml)
+- 2026-06-29 16:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/143862.shtml)
+- 2026-06-29 16:36 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/124426181098.shtml)
+- 2026-06-29 16:28 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/138319.shtml)
+- 2026-06-29 16:21 - [天道](http://www.share.minike.top/Article/details/8516282877.shtml)
+- 2026-06-29 16:34 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/83274.shtml)
+- 2026-06-29 16:36 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/4469821805.shtml)
+- 2026-06-29 16:27 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/338883246082.shtml)
+- 2026-06-29 16:43 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/259272175.shtml)
+- 2026-06-29 16:44 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/777343075198.shtml)

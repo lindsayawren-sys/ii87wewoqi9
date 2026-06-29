@@ -1,61 +1,49 @@
-# 方邦股份4月21日龙虎榜数据
+# 苏拉威西海及菲律宾萨兰加尼附近发生6级以上地震
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-4月21日方邦股份(688020)收盘价112.25元，收盘涨停，全天换手率11.48%，振幅22.33%，成交额9.86亿元。科创板交易公开信息显示，当日该股因日收盘价涨幅达15%等上榜。证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交3.30亿元， 其中，买入成交额为1.86亿元，卖出成交额为1.43亿元，合计净买入4301.89万元。具体来看，今日上榜的前五大买入
+中新网6月26日电 据中国地震台网正式测定，6月26日19时34分在苏拉威西海(北纬5.40度，东经125.15度)发生6.5级地震，震源深度20千米。 早些时候，据印尼气象、气候和地球物理局发布的报告，当地时间6月26日18时34分，印尼北苏拉威西省西北196公里海域发生6.8级地震。 据美国地质调查局地震信息网26日消息，菲律宾萨兰加尼西南21公里处发生6.7级地震，震源深
 
 ## 正文
 
-4月21日方邦股份(688020)收盘价112.25元，收盘涨停，全天换手率11.48%，振幅22.33%，成交额9.86亿元。
+中新网6月26日电 据中国地震台网正式测定，6月26日19时34分在苏拉威西海(北纬5.40度，东经125.15度)发生6.5级地震，震源深度20千米。
 
-科创板交易公开信息显示，当日该股因日收盘价涨幅达15%等上榜。
+早些时候，据印尼气象、气候和地球物理局发布的报告，当地时间6月26日18时34分，印尼北苏拉威西省西北196公里海域发生6.8级地震。
 
-证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交3.30亿元， 其中，买入成交额为1.86亿元，卖出成交额为1.43亿元，合计净买入4301.89万元。
-
-具体来看，今日上榜的前五大买入营业部中，有1家机构专用席位现身，即买四，买入金额分别为3258.29万元，营业部合计买入1.54亿元。
-
-卖出营业部中，有1家机构专用席位现身，即卖二，卖出金额分别为3477.58万元，营业部合计卖出1.09亿元。
-
-买卖金额相抵，机构专用席位今日净卖出该股219.29万元。
-
-资金流向方面，该股今日全天主力资金净流入4791.20万元。
-
-（数据宝）方邦股份4月21日龙虎榜（文章来源：证券时报网）
+据美国地质调查局地震信息网26日消息，菲律宾萨兰加尼西南21公里处发生6.7级地震，震源深度65.7公里。
 
 ## 相关推荐
 
-- 2026-06-29 16:30 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 16:17 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 16:39 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 16:34 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 16:18 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 16:27 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 16:23 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 16:33 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 16:35 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 16:33 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 16:22 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 16:14 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 16:34 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 16:23 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 16:37 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 16:33 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 16:46 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 16:40 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 16:28 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 16:39 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 16:36 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 16:41 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 16:32 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 16:44 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 16:29 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 16:25 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 16:23 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 16:21 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:34 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/155465553282.shtml)
-- 2026-06-29 16:18 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/855203312785.shtml)
-- 2026-06-29 16:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/059342590391.shtml)
-- 2026-06-29 16:41 - [给阿嬷的情书海外口碑](https://www.blog.kurohicncr.top/Article/details/154143745.shtml)
-- 2026-06-29 16:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/69590.shtml)
-- 2026-06-29 16:30 - [韩国队如何把94%出线概率打到0%](https://www.share.minike.top/Article/details/36133.shtml)
-- 2026-06-29 16:32 - [千与千寻](http://www.share.kurohicncr.top/Article/details/7978791.shtml)
-- 2026-06-29 16:36 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/05493830.shtml)
-- 2026-06-29 16:24 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/11459108.shtml)
-- 2026-06-29 16:31 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/551048308996.shtml)
-- 2026-06-29 16:33 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/183478026.shtml)
-- 2026-06-29 16:15 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/211980637117.shtml)
-- 2026-06-29 16:29 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/385287182.shtml)
-- 2026-06-29 16:23 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/92371660.shtml)
-- 2026-06-29 16:23 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/79522932583.shtml)
+- 2026-06-29 16:45 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/83347298.shtml)
+- 2026-06-29 16:36 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/85239.shtml)
+- 2026-06-29 16:30 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/44460.shtml)
+- 2026-06-29 16:34 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/9905088540.shtml)
+- 2026-06-29 16:21 - [王安宇尊重田曦薇的一切选择](http://www.share.kurohicncr.top/Article/details/2265622587.shtml)
+- 2026-06-29 16:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/809092562940.shtml)
+- 2026-06-29 16:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/05567528993.shtml)
+- 2026-06-29 16:28 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/7934337.shtml)
+- 2026-06-29 16:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/228345994.shtml)
+- 2026-06-29 16:38 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/6358117.shtml)
+- 2026-06-29 16:22 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/848157.shtml)
+- 2026-06-29 16:43 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/31210.shtml)
+- 2026-06-29 16:45 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/827088314128.shtml)
+- 2026-06-29 16:29 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/050559327.shtml)
+- 2026-06-29 16:27 - [恋与深空失控领地](https://www.share.minike.top/Article/details/66886603.shtml)

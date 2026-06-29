@@ -1,61 +1,48 @@
-# 80后券商首席放弃百万年薪转行董秘，身家涨至23亿
+# 润达医疗股东朱文怡质押1829万股股份
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者|刘夏菲 编辑|姜诗蔷 朱益民 近日，作为创业板启用第三套标准之后首家成功上市的未盈利企业，大普微在上市首日以430.71%的涨幅再次刷新了市场对硬科技公司的想象空间。 而在这只千亿市值的新股背后，持有公司1088万股、身价超23亿元的公司副总经理兼董事会秘书朱劲松，也成为了这场资本盛宴中最受瞩目的个人
+6月26日晚间，润达医疗（603108）披露公告称，股东朱文怡将其持有的1829万股公司股份质押给华夏银行股份有限公司杭州登云支行，占其所持股份的99.95%，占公司总股本的3.03%，质押融资资金用途为个人需要；股东刘辉所持500万股公司股份被冻结，占其持股总数的95.16%，占公司总股本的3.79%，冻结原因为司法冻结。公司表示，刘辉及朱文怡不属于公司控股股东、实际控制人，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月26日晚间，润达医疗（603108）披露公告称，股东朱文怡将其持有的1829万股公司股份质押给华夏银行股份有限公司杭州登云支行，占其所持股份的99.95%，占公司总股本的3.03%，质押融资资金用途为个人需要；股东刘辉所持500万股公司股份被冻结，占其持股总数的95.16%，占公司总股本的3.79%，冻结原因为司法冻结。
 
-记者|刘夏菲 编辑|姜诗蔷 朱益民 近日，作为创业板启用第三套标准之后首家成功上市的未盈利企业，大普微在上市首日以430.71%的涨幅再次刷新了市场对硬科技公司的想象空间。
+公司表示，刘辉及朱文怡不属于公司控股股东、实际控制人，上述股份质押及冻结事项不会导致公司实际控制人发生变更，亦不会对公司经营产生重大影响。
 
-而在这只千亿市值的新股背后，持有公司1088万股、身价超23亿元的公司副总经理兼董事会秘书朱劲松，也成为了这场资本盛宴中最受瞩目的个人赢家之一。
-
-值得注意的是，在加入大普微之前，朱劲松曾有长达11年的券商分析师从业经历。
-
-从卖方分析师转型企业高管，再到IPO实现财富暴增，朱劲松的造富路径能否被复制？
-
-“券商系董秘”是否迎来了职业红利期？
-
-“80后”董秘身家超23亿 千亿IPO的背后，朱劲松的个人财富增值，核心在于两笔投资收益，分别来自员工持股和战略配售跟投。
-
-员工持股方面，招股书显示，朱劲松通过大普海德、大普友聚、大普合聚和大普汇聚4个持股平台，合计出资约121万元，对应持有公司约1060.9万股。
+（文章来源：北京商报）
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 16:36 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 16:25 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 16:40 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 16:12 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 16:29 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 16:12 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 16:18 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 16:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 16:38 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 16:29 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 16:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 16:26 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 16:27 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 16:41 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 16:31 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 16:45 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 16:40 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 16:20 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 16:30 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 16:39 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 16:33 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 16:41 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 16:41 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 16:24 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 16:30 - [T1零封KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 16:39 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:38 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/843960.shtml)
-- 2026-06-29 16:22 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/511073.shtml)
-- 2026-06-29 16:26 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/27435.shtml)
-- 2026-06-29 16:37 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/96320561.shtml)
-- 2026-06-29 16:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/73781928087.shtml)
-- 2026-06-29 16:40 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/863358.shtml)
-- 2026-06-29 16:12 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/21389635.shtml)
-- 2026-06-29 16:32 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/644822.shtml)
-- 2026-06-29 16:17 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.minike.top/Article/details/5030536802.shtml)
-- 2026-06-29 16:15 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/273559.shtml)
-- 2026-06-29 16:36 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/0890252349.shtml)
-- 2026-06-29 16:39 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/507031443014.shtml)
-- 2026-06-29 16:32 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/872555563.shtml)
-- 2026-06-29 16:28 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/59418257953.shtml)
-- 2026-06-29 16:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/79201470150.shtml)
+- 2026-06-29 16:22 - [20年前的周杰伦](http://www.share.minike.top/Article/details/57840.shtml)
+- 2026-06-29 16:30 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/91537.shtml)
+- 2026-06-29 16:36 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/299777373.shtml)
+- 2026-06-29 16:19 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/83132.shtml)
+- 2026-06-29 16:28 - [上海一小区水池内出现一条鳄鱼](https://www.share.kurohicncr.top/Article/details/477909.shtml)
+- 2026-06-29 16:22 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/88492495155.shtml)
+- 2026-06-29 16:47 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/737369728599.shtml)
+- 2026-06-29 16:21 - [刘烨16岁儿子诺一颜值](https://www.blog.kurohicncr.top/Article/details/368965219.shtml)
+- 2026-06-29 16:33 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/712559236588.shtml)
+- 2026-06-29 16:27 - [急先锋](http://www.share.minike.top/Article/details/44051.shtml)
+- 2026-06-29 16:33 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/04404407.shtml)
+- 2026-06-29 16:28 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/53412.shtml)
+- 2026-06-29 16:44 - [端午节加班工资应该怎么算](https://www.blog.minike.top/Article/details/77568685.shtml)
+- 2026-06-29 16:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/92317528.shtml)
+- 2026-06-29 16:27 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/344221.shtml)

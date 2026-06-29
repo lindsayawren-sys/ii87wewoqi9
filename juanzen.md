@@ -1,56 +1,54 @@
-# 海外旅行商甘肃掘金丝路游 便利支付迎全球客
+# 廖林会见花旗集团董事会主席兼首席执行官范洁恩
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-中新社兰州4月21日电 (记者 闫姣)“甘肃省是文旅潜力新高地，在东南亚市场属高品质小众目的地。”马来西亚华人旅游业公会总会长刘伟康21日在兰州说，未来将打造适合东南亚市场的丝路精品路线，让更多马来西亚游客了解、走进甘肃。2026甘肃入境游国际旅行商大会当日在兰州举行，邀请来自马来西亚、新加坡、韩国、日本、越南等15个国家和地区的180余名境外旅行商考察踩线。 近年来全球旅游业
+来源：中国工商银行 6月26日，中国工商银行董事长廖林会见来访的花旗集团董事会主席兼首席执行官范洁恩，双方就宏观经济形势、深化业务合作等话题进行交流。工商银行副行长张伟武，花旗集团地区总裁龙明睿等参加会谈。 中国工商银行与花旗集团在资金清算、金融市场、资产托管等领域保持密切交流与合作，取得务实成果。工商银行将充分发挥全球一体化经营服务优势，进一步加强与花旗集团在国际金融治理、智
 
 ## 正文
 
-中新社兰州4月21日电 (记者 闫姣)“甘肃省是文旅潜力新高地，在东南亚市场属高品质小众目的地。
+来源：中国工商银行 6月26日，中国工商银行董事长廖林会见来访的花旗集团董事会主席兼首席执行官范洁恩，双方就宏观经济形势、深化业务合作等话题进行交流。
 
-”马来西亚华人旅游业公会总会长刘伟康21日在兰州说，未来将打造适合东南亚市场的丝路精品路线，让更多马来西亚游客了解、走进甘肃。
+工商银行副行长张伟武，花旗集团地区总裁龙明睿等参加会谈。
 
-2026甘肃入境游国际旅行商大会当日在兰州举行，邀请来自马来西亚、新加坡、韩国、日本、越南等15个国家和地区的180余名境外旅行商考察踩线。
+中国工商银行与花旗集团在资金清算、金融市场、资产托管等领域保持密切交流与合作，取得务实成果。
 
-近年来全球旅游业稳步回暖。
+工商银行将充分发挥全球一体化经营服务优势，进一步加强与花旗集团在国际金融治理、智库平台建设、债券承销发行等领域合作，为推动双边经贸关系健康稳定可持续发展贡献更大力量。
 
-世界旅游联盟副主席兼秘书长郑浩现场提供一组数据：2025年全球过夜国际游客约为15.2亿人次，较上年增加约6000万人次，增幅约4%；国际旅游收入达1.9万亿美元，同比增长约5%，“作为全球旅游市场的重要力量，中国持续释放免签政策红利、不断拓展国际航线网络、稳步提升支付便利化水平。
+总行国际业务部、运行管理部、现代金融研究院、金融市场部、资产托管部参加会见。
 
-” “我们现已支持7大品牌的国际银行卡、13个国家和地区的30余种电子钱包在中国使用，覆盖百余个服务场景，方便中国千万商家轻松迎接全球客。
-
-”蚂蚁国际旅行营销总监张也池说，同时，已在中国70多个入境游热门城市共建了上千个“入境消费友好型商圈”，实现对境外游客的精准服务。
-
-(完)
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 16:28 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 16:13 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 16:30 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 16:14 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 16:37 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 16:33 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 16:18 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 16:29 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 16:15 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 16:29 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 16:38 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 16:43 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 16:47 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 16:24 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 16:25 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 16:23 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 16:38 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 16:21 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 16:24 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 16:38 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 16:41 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 16:30 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:35 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/913360.shtml)
-- 2026-06-29 16:18 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/09662474141.shtml)
-- 2026-06-29 16:37 - [周生如故](http://www.share.kurohicncr.top/Article/details/11087698.shtml)
-- 2026-06-29 16:20 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/303057837.shtml)
-- 2026-06-29 16:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/2815623.shtml)
-- 2026-06-29 16:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/13373294454.shtml)
-- 2026-06-29 16:25 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/2358736.shtml)
-- 2026-06-29 16:40 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/087068.shtml)
-- 2026-06-29 16:22 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/539730241.shtml)
-- 2026-06-29 16:26 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/6929007482.shtml)
-- 2026-06-29 16:41 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/34488343407.shtml)
-- 2026-06-29 16:27 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/98522.shtml)
-- 2026-06-29 16:15 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/326039141.shtml)
-- 2026-06-29 16:25 - [42岁郭碧婷纯素颜状态](http://www.share.minike.top/Article/details/5727949237.shtml)
-- 2026-06-29 16:20 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/91224.shtml)
+- 2026-06-29 16:20 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/727289.shtml)
+- 2026-06-29 16:44 - [欧盟为什么越来越倾向贸易保护](https://www.share.minike.top/Article/details/41371062775.shtml)
+- 2026-06-29 16:28 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/804706.shtml)
+- 2026-06-29 16:32 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/90232.shtml)
+- 2026-06-29 16:36 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/158785116669.shtml)
+- 2026-06-29 16:23 - [媒体：网络测评不能只剩“生意”](http://www.share.minike.top/Article/details/452899382.shtml)
+- 2026-06-29 16:27 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/9572208162.shtml)
+- 2026-06-29 16:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/867693306814.shtml)
+- 2026-06-29 16:18 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/5001764226.shtml)
+- 2026-06-29 16:34 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.kurohicncr.top/Article/details/143452.shtml)
+- 2026-06-29 16:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/8468413.shtml)
+- 2026-06-29 16:40 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.minike.top/Article/details/0925547051.shtml)
+- 2026-06-29 16:31 - [教育部发布高考志愿填报预警](https://www.blog.kurohicncr.top/Article/details/224766713.shtml)
+- 2026-06-29 16:40 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/4613363524.shtml)
+- 2026-06-29 16:22 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/61439556560.shtml)

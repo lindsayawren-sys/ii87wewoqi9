@@ -1,60 +1,57 @@
-# 智能时代，我们还需要深度阅读吗？
+# 广西自贸试验区发布十大创新案例 多项成果为首创
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-人工智能、大数据等技术飞速迭代，数字阅读早已进入高速发展期。由智能手机与阅读平台搭建起的“随身图书馆”，让阅读触手可及。数据显示，2025年我国数字阅读营收规模近790亿元，作品总量突破7000万部，产业规模持续扩容。但繁荣背后，算法编织的信息茧房限制着人们的认知视野，碎片化、快餐化的阅读方式消解着深度思考。深夜里，多少人的手机屏幕闪着冷光，指尖划过海量信息。一个问题愈发清晰：
+中新网南宁6月26日电(林浩)6月26日，中国(广西)自由贸易试验区工作办公室介绍，广西自贸试验区近日发布十大创新案例，涵盖数据流动便利、贸易自由、金融自由、运输自由、数字经济、知识产权保护等多个领域，多项成果为全国首创或沿边率先突破。数据跨境流动方面，广西率先在全国中西部和沿边省份中印发自贸试验区数据出境负面清单，全国首次围绕地理信息与气象数据服务、企业信用信息服务、直播跨境
 
 ## 正文
 
-人工智能、大数据等技术飞速迭代，数字阅读早已进入高速发展期。
+中新网南宁6月26日电(林浩)6月26日，中国(广西)自由贸易试验区工作办公室介绍，广西自贸试验区近日发布十大创新案例，涵盖数据流动便利、贸易自由、金融自由、运输自由、数字经济、知识产权保护等多个领域，多项成果为全国首创或沿边率先突破。
 
-由智能手机与阅读平台搭建起的“随身图书馆”，让阅读触手可及。
+数据跨境流动方面，广西率先在全国中西部和沿边省份中印发自贸试验区数据出境负面清单，全国首次围绕地理信息与气象数据服务、企业信用信息服务、直播跨境电商、海外音视频制作与传播等4个领域明确重要数据识别标准，放宽个人信息出境规模。
 
-数据显示，2025年我国数字阅读营收规模近790亿元，作品总量突破7000万部，产业规模持续扩容。
+目前，4个领域均实现数据出境。
 
-但繁荣背后，算法编织的信息茧房限制着人们的认知视野，碎片化、快餐化的阅读方式消解着深度思考。
+贸易和运输自由方面，广西自贸试验区崇左片区在友谊关口岸建成全国首个边境一线高标准实验室，进出口水果检测时长压缩40%，年节约企业物流成本超1亿元；在全国陆地边境口岸率先启用的出入境车辆边检快捷通关查验模式，单台车辆查验时间缩短至15秒左右，效率提升约75%；创新边境出口工程车保税备仓模式，首创“整车保税出口”，将交付周期缩至1—2天，累计为企业减负近8000万元。
 
-深夜里，多少人的手机屏幕闪着冷光，指尖划过海量信息。
+跨境金融创新领域，广西自贸试验区钦州港片区以跨境人民币业务为改革重点，推动跨境人民币双向流动便利化、跨境人民币同业融资和人民币信贷资产跨境转让，企业投融资和跨境资金流动便利化程度提升，“白名单”企业跨境人民币双向流动便利化业务操作时间由3小时左右缩短为20分钟，人民币信贷资产跨境转让已覆盖9个国家和地区。
 
-一个问题愈发清晰：我们还需要深度阅读吗？
+广西自贸试验区防城港协同发展区创新推出“数字人民币+越南盾”现钞兑换边境旅游特色应用场景，实现“数字人民币充值—越南盾现钞兑换”全流程系统联动，为游客提供无需绑卡、免手续费、可离线支付的便捷兑换服务。
 
-在世界读书日来临之际，第五届全民阅读大会给出了响亮答案：阅读形式可以与时俱进，阅读的核心价值永远不可替代，深度阅读非但未过时，反而在智能时代愈发迫切。
+此外，在数字经济与知识产权保护领域，中国—东盟跨境征信服务平台可一键查询全球超250个国家和地区5.7亿家企业信用报告(含东盟十国约787万家企业)，服务融资规模超3700亿元；“中马证照通”平台实现中国驾照与马来西亚驾照认证10分钟办结、成本降低90%以上；全国首创的“侵权风险测评+纠纷多元化解+质量技术赋能”知识产权保护服务体系，使专利有效性评估周期从原来的7个工作日压缩至10分钟，企业知识产权纠纷平均调解周期从过去的31.6天压缩至12.4天，推动专利转化率提高45%。
 
-正如中国出版协会理事长邬书林所言：“在数字化时代，越是工具高效，越需阅读深潜。
+接下来，广西自贸试验区将重点围绕西部陆海新通道建设、跨境产业链合作、制度创新协同等方面，与各自贸片区及企业深入交流，探索跨区域联动创新路径。
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 16:13 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 16:29 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 16:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 16:31 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 16:35 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 16:37 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 16:22 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 16:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 16:25 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 16:41 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 16:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 16:28 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 16:32 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 16:36 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 16:35 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 16:24 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 16:32 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 16:40 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 16:25 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 16:25 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 16:25 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 16:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 16:31 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 16:26 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:41 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/04939883.shtml)
-- 2026-06-29 16:21 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/45148449.shtml)
-- 2026-06-29 16:21 - [爸爸当家](https://www.share.minike.top/Article/details/230646505884.shtml)
-- 2026-06-29 16:17 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/7517281.shtml)
-- 2026-06-29 16:25 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/391136095.shtml)
-- 2026-06-29 16:34 - [未成年少女长期吸毒导致卧床不起](http://www.share.minike.top/Article/details/359010164057.shtml)
-- 2026-06-29 16:25 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/58938321.shtml)
-- 2026-06-29 16:22 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/446097.shtml)
-- 2026-06-29 16:27 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/5140503352.shtml)
-- 2026-06-29 16:28 - [爸爸当家](https://www.share.minike.top/Article/details/153523.shtml)
-- 2026-06-29 16:15 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/910712724.shtml)
-- 2026-06-29 16:25 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/24158.shtml)
-- 2026-06-29 16:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/785879629.shtml)
-- 2026-06-29 16:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/005640.shtml)
-- 2026-06-29 16:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/999063347.shtml)
+- 2026-06-29 16:24 - [博主：全球股市进入“AI极端共振”](https://www.blog.minike.top/Article/details/6078883.shtml)
+- 2026-06-29 16:24 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/969346.shtml)
+- 2026-06-29 16:26 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/4509826977.shtml)
+- 2026-06-29 16:23 - [众星恭喜吴建豪](http://www.blog.minike.top/Article/details/54341527580.shtml)
+- 2026-06-29 16:39 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/7343758611.shtml)
+- 2026-06-29 16:36 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/98646196.shtml)
+- 2026-06-29 16:18 - [毒液2](http://www.blog.kurohicncr.top/Article/details/657214799.shtml)
+- 2026-06-29 16:39 - [机器人学校开学了](https://www.share.minike.top/Article/details/215339098.shtml)
+- 2026-06-29 16:21 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/06015602496.shtml)
+- 2026-06-29 16:43 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/95312.shtml)
+- 2026-06-29 16:33 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/689061028.shtml)
+- 2026-06-29 16:44 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.minike.top/Article/details/0834995450.shtml)
+- 2026-06-29 16:42 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/721850376.shtml)
+- 2026-06-29 16:33 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/212735409178.shtml)
+- 2026-06-29 16:23 - [世界杯上那些封神的门将](http://www.share.minike.top/Article/details/633403.shtml)

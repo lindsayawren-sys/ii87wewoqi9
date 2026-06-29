@@ -1,47 +1,59 @@
-# 金宏气体：公司产品下游应用领域广泛，客户群体较为分散
+# 全线亏损、产能缓慢出清 2026上半年生猪市场复盘
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-证券日报网4月21日讯 ，金宏气体在接受调研者提问时表示，公司产品下游应用领域广泛，客户群体较为分散，对单一客户依赖度较低，客户结构具备良好的抗风险能力。
+Mysteel农产品网 【导语】2026 年上半年生猪市场深陷周期底部，供给过剩叠加淡季需求偏弱，猪价长期低位运行，自繁自养、外购仔猪育肥全线深度亏损。行业养殖效率维持高位，母猪去化节奏缓慢，标肥价差收窄导致二次育肥无套利空间，市场补栏、压栏情绪低迷。 一、行情现状 2026 年上半年生猪市场核心矛盾集中于供给持续过剩、行业全线深度亏损、政策加码产能调控、消费淡季持续走弱四大主
 
 ## 正文
 
-证券日报网4月21日讯 ，金宏气体在接受调研者提问时表示，公司产品下游应用领域广泛，客户群体较为分散，对单一客户依赖度较低，客户结构具备良好的抗风险能力。
+Mysteel农产品网 【导语】2026 年上半年生猪市场深陷周期底部，供给过剩叠加淡季需求偏弱，猪价长期低位运行，自繁自养、外购仔猪育肥全线深度亏损。
+
+行业养殖效率维持高位，母猪去化节奏缓慢，标肥价差收窄导致二次育肥无套利空间，市场补栏、压栏情绪低迷。
+
+一、行情现状 2026 年上半年生猪市场核心矛盾集中于供给持续过剩、行业全线深度亏损、政策加码产能调控、消费淡季持续走弱四大主线，猪价长期低位磨底，底部调整特征突出。
+
+供给端宽松是行情承压根本。
+
+截至2026年3月全国能繁母猪存栏 3904 万头，较 3750 万头合理保有量高出 154 万头，整体处于产能黄色调控区间。
+
+尽管行业亏损倒逼散户加速清退低效能母猪，但头部养殖企业减产意愿克制，叠加规模化繁育效率持续提升，配种分娩率稳定在 81.7%，产房存活率超 92.6%，窝均健仔数稳步上行，母猪小幅去化并未有效收缩商品猪供给。
+
+上半年大体重生猪集中压栏出栏，屠宰白条均重创同期新高，叠加仔猪供给充足、价格持续走低，7kg 仔猪均价年内跌幅超五成，补栏与二次育肥积极性全面走弱，二育套利空间消失，进一步放大短期压力。
+
+6 月重点养殖企业出栏总量环比小幅回落，但出栏天数减少推高日均供给，短期猪价反弹动力不足。
 
 ## 相关推荐
 
-- 2026-06-29 16:36 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 16:35 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 16:30 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 16:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 16:23 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 16:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 16:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 16:31 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 16:34 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 16:21 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 16:23 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 16:26 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 16:35 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 16:20 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 16:17 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 16:31 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 16:44 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 16:33 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 16:21 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 16:18 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 16:31 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 16:22 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 16:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 16:20 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 16:18 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 16:31 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 16:28 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 16:34 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:14 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/25536234.shtml)
-- 2026-06-29 16:39 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/82844239.shtml)
-- 2026-06-29 16:29 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/22898349.shtml)
-- 2026-06-29 16:21 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/382633.shtml)
-- 2026-06-29 16:40 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/204632.shtml)
-- 2026-06-29 16:37 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/301990.shtml)
-- 2026-06-29 16:36 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/026172690103.shtml)
-- 2026-06-29 16:36 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/89671.shtml)
-- 2026-06-29 16:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/95616429.shtml)
-- 2026-06-29 16:32 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/34478089602.shtml)
-- 2026-06-29 16:31 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/239264.shtml)
-- 2026-06-29 16:20 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/613846.shtml)
-- 2026-06-29 16:37 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/6903814.shtml)
-- 2026-06-29 16:20 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/24202.shtml)
-- 2026-06-29 16:30 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/159884378.shtml)
+- 2026-06-29 16:21 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.kurohicncr.top/Article/details/689692213334.shtml)
+- 2026-06-29 16:46 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/6847323.shtml)
+- 2026-06-29 16:25 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.kurohicncr.top/Article/details/9606881492.shtml)
+- 2026-06-29 16:24 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/769263.shtml)
+- 2026-06-29 16:38 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/368543431496.shtml)
+- 2026-06-29 16:24 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/458260582054.shtml)
+- 2026-06-29 16:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/97431778.shtml)
+- 2026-06-29 16:28 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/6140711.shtml)
+- 2026-06-29 16:28 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/61478.shtml)
+- 2026-06-29 16:25 - [业内：全球市场迎来结构性投资窗口](http://www.blog.kurohicncr.top/Article/details/2576297704.shtml)
+- 2026-06-29 16:26 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/550379520.shtml)
+- 2026-06-29 16:35 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/031503959.shtml)
+- 2026-06-29 16:29 - [起风了](https://www.blog.minike.top/Article/details/781150.shtml)
+- 2026-06-29 16:37 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/321656.shtml)
+- 2026-06-29 16:43 - [青春环游记第三季](http://www.share.minike.top/Article/details/40726721981.shtml)

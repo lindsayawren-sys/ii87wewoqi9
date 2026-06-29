@@ -1,56 +1,46 @@
-# 605081被证监会立案，封死跌停
+# 委内瑞拉强震致中国公民8人遇难 1人失联
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 4月20日晚间，太和水（现证券简称：“*ST太和（维权）”，证券代码：605081）相继披露公司被证监会立案调查及股票可能被终止上市的风险提示公告。 因公司涉嫌信息披露违法违规案，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对太和水立案。 今日开盘，*ST太和一字跌停，报6.83元/股，截至收盘
+总台记者当地时间6月28日下午获悉，中国驻委内瑞拉大使馆通报说，截至委内瑞拉当地时间28日15时，据不完全统计，已确认有8名中国公民在委内瑞拉6月24日发生的地震中遇难，1名中国公民失联，其他人员身份尚在核实。(总台记者 雷湘平)
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 4月20日晚间，太和水（现证券简称：“*ST太和（维权）”，证券代码：605081）相继披露公司被证监会立案调查及股票可能被终止上市的风险提示公告。
+总台记者当地时间6月28日下午获悉，中国驻委内瑞拉大使馆通报说，截至委内瑞拉当地时间28日15时，据不完全统计，已确认有8名中国公民在委内瑞拉6月24日发生的地震中遇难，1名中国公民失联，其他人员身份尚在核实。
 
-因公司涉嫌信息披露违法违规案，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对太和水立案。
-
-今日开盘，*ST太和一字跌停，报6.83元/股，截至收盘仍封死跌停。
-
-另外，太和水及相关责任人还收到上海证监局下发的《行政监管措施决定书》。
-
-由于公司存在通过虚构工程项目、提前确认进度等方式确认工程项目收入的情况，导致《关于2025年度业绩预告相关事项监管工作函的回复公告》存在虚假记载，《2025年度业绩预亏暨风险提示公告》披露的预计实现营业收入金额不实，上海证监局决定对公司采取责令改正的行政监管措施，并对包括时任董事长在内的多名高管采取出具警示函的行政监管措施。
-
-太和水还同步发布公司股票可能被终止上市的第六次风险提示公告，称公司股票已于2025年4月29日被实施退市风险警示，如公司2025年度经审计的相关财务数据仍触及《上海证券交易所股票上市规则》规定的财务类退市指标或存在其他不能消除退市风险警示的情况，公司股票将终止上市。
-
-太和水此番集中披露相关事项，背后是交易所的持续督导。
-
-就在19日，上交所发布关于对太和水预计触及财务类终止上市情形相关事项的监管工作函。
+(总台记者 雷湘平)
 
 ## 相关推荐
 
-- 2026-06-29 16:40 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 16:12 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 16:24 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 16:15 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 16:16 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 16:33 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 16:35 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 16:31 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 16:39 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 16:20 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 16:33 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 16:40 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 16:40 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 16:45 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 16:25 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 16:46 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 16:40 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 16:39 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 16:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 16:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 16:21 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 16:43 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:14 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/8781092739.shtml)
-- 2026-06-29 16:26 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/79619241.shtml)
-- 2026-06-29 16:34 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/449988809.shtml)
-- 2026-06-29 16:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/783612597.shtml)
-- 2026-06-29 16:20 - [一见倾心](http://www.share.kurohicncr.top/Article/details/8596837.shtml)
-- 2026-06-29 16:34 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/9947677.shtml)
-- 2026-06-29 16:24 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/2722386624.shtml)
-- 2026-06-29 16:24 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.minike.top/Article/details/077388277367.shtml)
-- 2026-06-29 16:33 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/3021605488.shtml)
-- 2026-06-29 16:26 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/472906.shtml)
-- 2026-06-29 16:18 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/94160772.shtml)
-- 2026-06-29 16:29 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.minike.top/Article/details/786510.shtml)
-- 2026-06-29 16:20 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/8304118.shtml)
-- 2026-06-29 16:40 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/274568.shtml)
-- 2026-06-29 16:23 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/48694.shtml)
+- 2026-06-29 16:41 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/8800122.shtml)
+- 2026-06-29 16:18 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.kurohicncr.top/Article/details/714433973580.shtml)
+- 2026-06-29 16:20 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/5799818.shtml)
+- 2026-06-29 16:41 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/885955122.shtml)
+- 2026-06-29 16:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/80920622.shtml)
+- 2026-06-29 16:21 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/59890.shtml)
+- 2026-06-29 16:26 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/47482907.shtml)
+- 2026-06-29 16:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/320495475.shtml)
+- 2026-06-29 16:31 - [抓特务票房破亿](http://www.blog.minike.top/Article/details/033567882.shtml)
+- 2026-06-29 16:46 - [勇敢的心第二部](https://www.share.minike.top/Article/details/9382174120.shtml)
+- 2026-06-29 16:44 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/64661368889.shtml)
+- 2026-06-29 16:18 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/6478391.shtml)
+- 2026-06-29 16:34 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/11454905132.shtml)
+- 2026-06-29 16:35 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/98517.shtml)
+- 2026-06-29 16:18 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/1610836629.shtml)

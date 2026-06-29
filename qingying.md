@@ -1,56 +1,55 @@
-# 万亿中原银行，变天了
+# 谷歌限制了Meta的Gemini使用量，因为人工智能需求激增导致产能紧张
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-文/瑞财经 许淑敏 周锋也算是火速升职。 2025年10月担任中原银行行长，同年11月担任副董事长，其任职资格2026年1月才正式获批。 距今不过半年时间，周锋就成为了中原银行的一把手。 4月21日，中原银行官宣将帅齐换。 郭浩因工作调动辞任中原银行董事长，周锋接替这一职位，并辞去行长、副董事长职务，张涛成为该行行长。 周锋出生于1977年，博士研究生学历，在加入中原银行之前，
+英国媒体援引三位知情人士消息称，谷歌在今年3月前后告知Meta，无法足额供应其所需的Gemini模型算力额度。此举打乱并推迟了Meta多项内部人工智能项目的推进节奏。 受该算力限制，叠加公司整体压缩人工智能成本的战略，Meta已要求员工节约调用AI令牌，提升使用效率。 谷歌与Meta均拒绝对该报道置评。责任编辑：何云
 
 ## 正文
 
-文/瑞财经 许淑敏 周锋也算是火速升职。
+英国媒体援引三位知情人士消息称，谷歌在今年3月前后告知Meta，无法足额供应其所需的Gemini模型算力额度。
 
-2025年10月担任中原银行行长，同年11月担任副董事长，其任职资格2026年1月才正式获批。
+此举打乱并推迟了Meta多项内部人工智能项目的推进节奏。
 
-距今不过半年时间，周锋就成为了中原银行的一把手。
+受该算力限制，叠加公司整体压缩人工智能成本的战略，Meta已要求员工节约调用AI令牌，提升使用效率。
 
-4月21日，中原银行官宣将帅齐换。
+谷歌与Meta均拒绝对该报道置评。
 
-郭浩因工作调动辞任中原银行董事长，周锋接替这一职位，并辞去行长、副董事长职务，张涛成为该行行长。
-
-周锋出生于1977年，博士研究生学历，在加入中原银行之前，他曾任河南省人民政府副秘书长、河南省濮阳市副市长，也曾在原中国银行保险监督管理委员会河南监管局工作过。
-
-他跟前任郭浩一样，兼具地方政府治理与金融监管的经验。
-
-从履历上看，郭浩也是博士，加入中原银行前，曾任河南省鹤壁市委副书记、市长，河南省政府副秘书长，河南省政府金融服务办公室副主任等职。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 16:19 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 16:22 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 16:27 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 16:15 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 16:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 16:23 - [光与夜之恋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 16:23 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 16:35 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 16:23 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 16:35 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 16:47 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 16:46 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 16:38 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 16:39 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 16:33 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 16:44 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 16:33 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 16:35 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 16:38 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 16:27 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 16:46 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 16:23 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 16:47 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 16:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 16:36 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:25 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/51640955.shtml)
-- 2026-06-29 16:25 - [人形机器人](https://www.blog.minike.top/Article/details/132525206.shtml)
-- 2026-06-29 16:38 - [王俊凯命名方式](http://www.share.kurohicncr.top/Article/details/40781790.shtml)
-- 2026-06-29 16:40 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/24434.shtml)
-- 2026-06-29 16:41 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/0768404671.shtml)
-- 2026-06-29 16:32 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/697385.shtml)
-- 2026-06-29 16:20 - [张雪机车杀向海外](https://www.blog.minike.top/Article/details/741521.shtml)
-- 2026-06-29 16:37 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.minike.top/Article/details/15204220291.shtml)
-- 2026-06-29 16:27 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/93996198569.shtml)
-- 2026-06-29 16:15 - [光与夜之恋](https://www.blog.kurohicncr.top/Article/details/00491555079.shtml)
-- 2026-06-29 16:19 - [啊啊啊](http://www.blog.minike.top/Article/details/1800989278.shtml)
-- 2026-06-29 16:31 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.minike.top/Article/details/195121.shtml)
-- 2026-06-29 16:41 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/82471.shtml)
-- 2026-06-29 16:22 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/9103769831.shtml)
-- 2026-06-29 16:17 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/96304.shtml)
+- 2026-06-29 16:37 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/526173163386.shtml)
+- 2026-06-29 16:39 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/841586.shtml)
+- 2026-06-29 16:44 - [抓特务票房破亿](http://www.blog.kurohicncr.top/Article/details/3883827273.shtml)
+- 2026-06-29 16:45 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/5581159297.shtml)
+- 2026-06-29 16:24 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/56231747300.shtml)
+- 2026-06-29 16:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/5181193.shtml)
+- 2026-06-29 16:43 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/612056667980.shtml)
+- 2026-06-29 16:35 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/23088455495.shtml)
+- 2026-06-29 16:25 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/15997940.shtml)
+- 2026-06-29 16:28 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/716102509658.shtml)
+- 2026-06-29 16:20 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/45222.shtml)
+- 2026-06-29 16:44 - [男孩复读一年减重20斤涨分111分](http://www.share.kurohicncr.top/Article/details/262960008512.shtml)
+- 2026-06-29 16:43 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/839627.shtml)
+- 2026-06-29 16:32 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/19422.shtml)
+- 2026-06-29 16:30 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/63474127076.shtml)

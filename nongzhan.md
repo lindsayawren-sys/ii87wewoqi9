@@ -1,57 +1,56 @@
-# 博时宏观观点：短期A股有望围绕业绩进行交易
+# 邦达亚洲:美元回落油价反弹 美元加元承压收跌
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-债市已经有了相当修复，后续需要看通胀预期和风险偏好的变化；A股近期交易有望围绕年报和一季报进行；港股行情可能偏成长。 海外方面，美伊双方在第三方斡旋下保持外交沟通，临时停火，氛围边际回暖，但暂未达成实质性共识，霍尔木兹海峡通航量仍未恢复至正常水平。受美国通胀数据温和、地缘能源压力缓和影响，全球央行激进紧缩预期持续降温，全球风险情绪回暖。 国内方面，国内一季度实际GDP同比增长较
+6月26日，纽约联储主席约翰·威廉姆斯在周四释放出明确判断：美国当前的通胀水平仍明显高于目标，尽管未来几个季度可能出现缓解，但回落至2%的过程将比此前预期更为漫长。 他在演讲稿中指出：“在我们双重使命的价格稳定方面，通胀毫无疑问处于高位，且远高于（联邦公开市场委员会）2%的长期目标，我们必须持之以恒地将其恢复到2%的长期目标。”他强调，目前的政策配置具备实现目标的能力，称“当前
 
 ## 正文
 
-债市已经有了相当修复，后续需要看通胀预期和风险偏好的变化；A股近期交易有望围绕年报和一季报进行；港股行情可能偏成长。
+6月26日，纽约联储主席约翰·威廉姆斯在周四释放出明确判断：美国当前的通胀水平仍明显高于目标，尽管未来几个季度可能出现缓解，但回落至2%的过程将比此前预期更为漫长。
 
-海外方面，美伊双方在第三方斡旋下保持外交沟通，临时停火，氛围边际回暖，但暂未达成实质性共识，霍尔木兹海峡通航量仍未恢复至正常水平。
+他在演讲稿中指出：“在我们双重使命的价格稳定方面，通胀毫无疑问处于高位，且远高于（联邦公开市场委员会）2%的长期目标，我们必须持之以恒地将其恢复到2%的长期目标。
 
-受美国通胀数据温和、地缘能源压力缓和影响，全球央行激进紧缩预期持续降温，全球风险情绪回暖。
+”他强调，目前的政策配置具备实现目标的能力，称“当前的货币政策立场完全能够做到这一点”。
 
-国内方面，国内一季度实际GDP同比增长较去年4季度回升0.5个百分点至5%，而名义GDP同比增长跳升1个百分点至4.9%，GDP平减指数接近转正，通胀指标温和修复，内需贡献上升。
+围绕通胀走势，威廉姆斯给出的时间判断出现调整。
 
-春节偏晚使得3月工业生产、出口及投资等指标有所回落，但仍具备一定韧性。
+他预计，随着关税带来的价格压力逐步减弱，加之中东冲突引发的供应扰动若能缓解，以及住房通胀降温，未来几个季度整体通胀将逐步回落。
 
-市场策略方面，债券方面，上周宽松资金面提供支撑，特别国债发行预期反复波动，债市各期限均走强。
+另外，国际货币基金组织（IMF）周四表示，美国经济仍保持稳健增长势头，预计通胀将在2027年底前回落至美联储2%的目标水平。
 
-近期市场对地缘风险冲击有所钝化，美伊谈判窗口期消息面边际平静，基本面和信贷表现偏弱以及资金价格持续低位利好债市。
+IMF发言人Julie Kozack在例行新闻发布会上表示，美联储上周决定维持基准利率不变是恰当之举，并对新任主席凯文·沃什致力于实现物价稳定的坚定承诺表示欢迎。
 
-政策温和背景下，二季度经济和信贷数据或难见改善，银行配债力量有望强化、利好债市，但需关注美伊冲突持续演化下通胀预期和风险偏好的变化。
+Kozack声称：“美国经济增长动能依然稳健。
 
 ## 相关推荐
 
-- 2026-06-29 16:29 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 16:15 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 16:24 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 16:25 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 16:19 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 16:33 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 16:13 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 16:26 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 16:41 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 16:13 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 16:15 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 16:30 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 16:18 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 16:47 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 16:42 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 16:19 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 16:36 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 16:26 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 16:47 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 16:39 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 16:37 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:24 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/64267.shtml)
-- 2026-06-29 16:36 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/3580329482.shtml)
-- 2026-06-29 16:22 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/888164462.shtml)
-- 2026-06-29 16:13 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/70325966.shtml)
-- 2026-06-29 16:23 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/8837181384.shtml)
-- 2026-06-29 16:14 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/94631.shtml)
-- 2026-06-29 16:14 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/19734233733.shtml)
-- 2026-06-29 16:29 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/89647924862.shtml)
-- 2026-06-29 16:13 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/69676572.shtml)
-- 2026-06-29 16:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/5077627029.shtml)
-- 2026-06-29 16:40 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/48179.shtml)
-- 2026-06-29 16:20 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/7560629582.shtml)
-- 2026-06-29 16:19 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/811819051197.shtml)
-- 2026-06-29 16:15 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/446106313368.shtml)
-- 2026-06-29 16:27 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/3674784.shtml)
+- 2026-06-29 16:20 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/71857555.shtml)
+- 2026-06-29 16:36 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/7493141.shtml)
+- 2026-06-29 16:25 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/36746.shtml)
+- 2026-06-29 16:39 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/543012.shtml)
+- 2026-06-29 16:42 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.kurohicncr.top/Article/details/597537.shtml)
+- 2026-06-29 16:33 - [世界杯看到肖战了](http://www.share.kurohicncr.top/Article/details/163491481801.shtml)
+- 2026-06-29 16:43 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/211312641293.shtml)
+- 2026-06-29 16:44 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/7053839.shtml)
+- 2026-06-29 16:25 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/819899813.shtml)
+- 2026-06-29 16:23 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/536389.shtml)
+- 2026-06-29 16:40 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/159134651.shtml)
+- 2026-06-29 16:44 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/256121090.shtml)
+- 2026-06-29 16:20 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/57730889562.shtml)
+- 2026-06-29 16:18 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/53522783.shtml)
+- 2026-06-29 16:41 - [小说《无悔追踪》翻红](http://www.share.minike.top/Article/details/97775.shtml)

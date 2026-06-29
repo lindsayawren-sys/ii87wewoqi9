@@ -1,52 +1,52 @@
-# 伊拉克民兵组织称美伊停火协议到期后或恢复对美袭击
+# 广州上线外国人服务平台
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-当地时间20日晚，伊拉克什叶派民兵武装“鲜血守护旅”发表声明称，随着伊朗与美国间停火协议即将到期，该组织已做好充分准备恢复针对伊拉克及周边地区美方单位的袭击行动。 声明称，该组织已做好长期作战准备。一旦伊朗方面再次遭受侵略，他们将“首次使用先进武器”予以回应。 “鲜血守护旅”隶属于伊拉克民兵武装“伊斯兰抵抗组织”，“伊斯兰抵抗组织”自2月28日以来使用无人机和火箭弹对伊拉克及其
+中新社广州6月26日电 (记者 王华 方伟彬)“HELLO GUANGZHOU”广州外国人服务平台26日上线启动。这是广州市公安局会同广州市政务服务和数据管理局，依托“支付宝”APP打造集政务服务、便利生活、旅游博览、广交会专区于一体的线上综合服务平台，旨在提升外国人入境游便利化水平，进一步优化涉外服务营商环境。据广州市公安局出入境管理支队负责人介绍，“HELLO GUANGZ
 
 ## 正文
 
-当地时间20日晚，伊拉克什叶派民兵武装“鲜血守护旅”发表声明称，随着伊朗与美国间停火协议即将到期，该组织已做好充分准备恢复针对伊拉克及周边地区美方单位的袭击行动。
+中新社广州6月26日电 (记者 王华 方伟彬)“HELLO GUANGZHOU”广州外国人服务平台26日上线启动。
 
-声明称，该组织已做好长期作战准备。
+这是广州市公安局会同广州市政务服务和数据管理局，依托“支付宝”APP打造集政务服务、便利生活、旅游博览、广交会专区于一体的线上综合服务平台，旨在提升外国人入境游便利化水平，进一步优化涉外服务营商环境。
 
-一旦伊朗方面再次遭受侵略，他们将“首次使用先进武器”予以回应。
+据广州市公安局出入境管理支队负责人介绍，“HELLO GUANGZHOU”广州外国人服务平台分为政务服务、便利生活、旅游博览和广交会专区四大板块。
 
-“鲜血守护旅”隶属于伊拉克民兵武装“伊斯兰抵抗组织”，“伊斯兰抵抗组织”自2月28日以来使用无人机和火箭弹对伊拉克及其周边地区的美方单位发动了数百次袭击。
+其中，“政务服务”集成签证预约、入境卡线上填报、境外人员住宿登记、入境体检预约、社保缴费、海关申报、离境退税等多项高频服务；“便利生活”为外国朋友提供生活便利服务指引；“旅游博览”提供广东及粤港澳大湾区文旅资讯等内容；“广交会专区”聚焦参展客商需求，帮助客商提高办事效率，提供办证、出行、行程指引等服务。
 
-(总台记者 米春泽)
+“HELLO GUANGZHOU”广州外国人服务平台实现全流程线上便捷办理，大幅压缩办事时限，简化办理流程，实现涉外服务“掌上办”“一键办”，切实提升涉外政务服务效率，优化在华外国人服务体验。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:40 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 16:18 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 16:28 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 16:19 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 16:27 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 16:33 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 16:24 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 16:21 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 16:30 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 16:40 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-29 16:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 16:21 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 16:28 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 16:44 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 16:23 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 16:23 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 16:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 16:47 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 16:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 16:34 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 16:39 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 16:43 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:12 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/88737243.shtml)
-- 2026-06-29 16:28 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/147298.shtml)
-- 2026-06-29 16:12 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/41718831823.shtml)
-- 2026-06-29 16:32 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/081813216.shtml)
-- 2026-06-29 16:39 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/864366.shtml)
-- 2026-06-29 16:36 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.minike.top/Article/details/184889.shtml)
-- 2026-06-29 16:15 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/24862.shtml)
-- 2026-06-29 16:16 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/090363.shtml)
-- 2026-06-29 16:15 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/61630500659.shtml)
-- 2026-06-29 16:22 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/87430205978.shtml)
-- 2026-06-29 16:27 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/8494220.shtml)
-- 2026-06-29 16:31 - [王安宇尊重田曦薇的一切选择](https://www.share.kurohicncr.top/Article/details/90065000356.shtml)
-- 2026-06-29 16:22 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/466417.shtml)
-- 2026-06-29 16:32 - [机器人学校开学了](http://www.share.kurohicncr.top/Article/details/74568.shtml)
-- 2026-06-29 16:19 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/510808.shtml)
+- 2026-06-29 16:35 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/6900858.shtml)
+- 2026-06-29 16:26 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/3459474168.shtml)
+- 2026-06-29 16:44 - [滾石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/703073945.shtml)
+- 2026-06-29 16:22 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/100209.shtml)
+- 2026-06-29 16:38 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/8176880627.shtml)
+- 2026-06-29 16:34 - [重度抑郁女孩没钱去做心理咨询](https://www.share.kurohicncr.top/Article/details/0801035250.shtml)
+- 2026-06-29 16:37 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/2809552.shtml)
+- 2026-06-29 16:20 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/1167726.shtml)
+- 2026-06-29 16:19 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.kurohicncr.top/Article/details/18588.shtml)
+- 2026-06-29 16:42 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/07313966.shtml)
+- 2026-06-29 16:19 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/9092387480.shtml)
+- 2026-06-29 16:36 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.minike.top/Article/details/3070964.shtml)
+- 2026-06-29 16:18 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/142880.shtml)
+- 2026-06-29 16:29 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/441389643.shtml)
+- 2026-06-29 16:24 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/5144498636.shtml)

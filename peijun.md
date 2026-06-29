@@ -1,58 +1,57 @@
-# 中信建投期货：4月22日黑色系早报
+# 2026年“公望富春”两岸文化交流周启幕
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-钢材早报：成本支撑坚挺，期钢震荡偏强运行 市场信息： 1、 伊朗方面21日晚正式拒绝出席预期于22日在巴基斯坦伊斯兰堡举行的第二轮谈判；稍晚，美国总统特朗普宣布，应巴基斯坦方面请求，他同意延长美伊停火期限，直至伊朗方面提交其方案并完成相关磋商。 2、 海关总署发布数据显示，2026年一季度我国货物贸易进出口总值同比增长15%，达到11.84万亿元，创历史同期新高，季度增速创近5
+中新网杭州6月27日电(郭其钰)6月27日，2026年“公望富春”两岸文化交流周开幕式暨《我在富春山居图里等你》主题电影开拍发布活动在浙江杭州富阳举行。200余位两岸同胞齐聚富春江畔，共赴一场文化团圆之约。 富阳是《富春山居图》的实景创作地，承载着深厚的两岸文化交流记忆。2011年，分割多年的《富春山居图》实现旷世合璧，成为两岸文化交融的经典佳话。 富阳区委书记王牮在致辞中表示
 
 ## 正文
 
-钢材早报：成本支撑坚挺，期钢震荡偏强运行 市场信息： 1、 伊朗方面21日晚正式拒绝出席预期于22日在巴基斯坦伊斯兰堡举行的第二轮谈判；稍晚，美国总统特朗普宣布，应巴基斯坦方面请求，他同意延长美伊停火期限，直至伊朗方面提交其方案并完成相关磋商。
+中新网杭州6月27日电(郭其钰)6月27日，2026年“公望富春”两岸文化交流周开幕式暨《我在富春山居图里等你》主题电影开拍发布活动在浙江杭州富阳举行。
 
-2、 海关总署发布数据显示，2026年一季度我国货物贸易进出口总值同比增长15%，达到11.84万亿元，创历史同期新高，季度增速创近5年最高。
+200余位两岸同胞齐聚富春江畔，共赴一场文化团圆之约。
 
-3月当月，我国进出口4.1万亿元，同比增长9.2%，其中出口下降0.7%，进口增长23.8%。
+富阳是《富春山居图》的实景创作地，承载着深厚的两岸文化交流记忆。
 
-海关总署数据显示，2026年3月中国出口钢材913.5万吨，较上月增加129.8万吨，环比增长16.6%。
+2011年，分割多年的《富春山居图》实现旷世合璧，成为两岸文化交融的经典佳话。
 
-3、 首钢5月产品销售价格政策调整发布，热轧板卷、酸洗板卷、镀铝锌及高铝锌铝镁板卷、彩涂板、中铝锌铝镁、中厚板等基价上调100元/吨。
+富阳区委书记王牮在致辞中表示，富阳作为《富春山居图》的原创地与实景地，始终珍视这份跨越海峡的文脉联结。
 
-4、 焦炭市场二轮提涨确定落地：河北、天津部分钢厂对焦炭采购价格进行上调，幅度为 50-55 元/吨，2026年4月20日零点执行。
+从打造公望两岸圆缘园，构建“以台引台、以青聚青”的创业生态，到系统梳理千年历史渊源，建成公望两岸交流馆，再到策划拍摄《我在富春山居图里等你》主题电影，富阳始终致力于让“两岸一家亲”的情谊跨越山海，也希望两岸同胞携手共绘现代版富春山居图。
 
-5、 4月21日，全国主港铁矿石成交70.82万吨，环比减13.6%；237家主流贸易商建筑钢材成交11.42万吨，环比减21%。
+全国台湾研究会副会长王在希回顾说，十五年来，三万余名台胞专程来富阳走亲访友，与此同时富阳实实在在建起了两大实体平台，一是去年全新落成的公望两岸交流馆，紧扣两岸血脉相连的历史事实，用真实史料讲清两岸自古一家，以史实印证两岸同根同源；二是公望两岸圆缘园配套各类惠台扶持政策，招引近20个台青创业项目落地扎根，越来越多台湾青年把富阳当作“第二故乡”。
 
-6、 上周，247家钢厂高炉开工率83.2%，环比上周持平，同比减少0.36个百分点；高炉炼铁产能利用率89.78%，环比上周增加0.04 个百分点，同比减少0.37个百分点；日均铁水产量 239.5万吨，环比上周增加0.12万吨，同比减少0.62万吨。
+当日，主题电影《我在富春山居图里等你》的主创团队分享了影片筹拍进度与创作理念。
 
 ## 相关推荐
 
-- 2026-06-29 16:27 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 16:40 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 16:21 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 16:15 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 16:26 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 16:22 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 16:34 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 16:22 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 16:18 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 16:12 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 16:36 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 16:25 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 16:20 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 16:19 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 16:36 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 16:29 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 16:40 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 16:33 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 16:24 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 16:29 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 16:32 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 16:22 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 16:43 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/179663674.shtml)
-- 2026-06-29 16:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/049608.shtml)
-- 2026-06-29 16:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/11857581543.shtml)
-- 2026-06-29 16:28 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/98124731734.shtml)
-- 2026-06-29 16:34 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/5026672978.shtml)
-- 2026-06-29 16:14 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/281203922657.shtml)
-- 2026-06-29 16:27 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.kurohicncr.top/Article/details/1868147.shtml)
-- 2026-06-29 16:28 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/61329.shtml)
-- 2026-06-29 16:24 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/518256210343.shtml)
-- 2026-06-29 16:21 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/960199.shtml)
-- 2026-06-29 16:20 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/774172026835.shtml)
-- 2026-06-29 16:14 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/094356.shtml)
-- 2026-06-29 16:26 - [网警提醒4类高考查分陷阱考生速看](http://www.share.minike.top/Article/details/48861425.shtml)
-- 2026-06-29 16:23 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/81008059940.shtml)
-- 2026-06-29 16:22 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/3333643.shtml)
+- 2026-06-29 16:46 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/930565.shtml)
+- 2026-06-29 16:26 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/952785016485.shtml)
+- 2026-06-29 16:45 - [吴建豪老婆](https://www.blog.minike.top/Article/details/97459.shtml)
+- 2026-06-29 16:46 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/981687.shtml)
+- 2026-06-29 16:34 - [媒体：网络测评不能只剩“生意”](http://www.share.minike.top/Article/details/395444.shtml)
+- 2026-06-29 16:46 - [流金岁月](https://www.share.kurohicncr.top/Article/details/35849336813.shtml)
+- 2026-06-29 16:30 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/236168.shtml)
+- 2026-06-29 16:28 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/221886.shtml)
+- 2026-06-29 16:34 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/341961040868.shtml)
+- 2026-06-29 16:41 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/443974053.shtml)
+- 2026-06-29 16:44 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/17697381153.shtml)
+- 2026-06-29 16:31 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/46861717.shtml)
+- 2026-06-29 16:38 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/63070.shtml)
+- 2026-06-29 16:42 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/9329694779.shtml)
+- 2026-06-29 16:40 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/33251613974.shtml)

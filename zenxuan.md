@@ -1,59 +1,45 @@
-# 美国军用无人机制造商Aevex上市两日股价翻倍 防务科技股获追捧
+# 黎以美达成三方框架协议
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-军用无人机制造商Aevex Corp．股价在两个交易日内翻倍，成为近期上市后表现抢眼的防务科技公司之一。 该公司获Madison Dearborn Partners支持，其A类股周一在纽约一度大涨49%，至40.25美元，较上周20美元的首次公开募股（IPO）价翻倍。 此次发行正值防务科技公司IPO激增之际，随着全球冲突加剧，各国为应对新威胁而增加军费支出。无人机尤其受到关注，
+发布时间：2026年06月27日 15:20 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-军用无人机制造商Aevex Corp．股价在两个交易日内翻倍，成为近期上市后表现抢眼的防务科技公司之一。
-
-该公司获Madison Dearborn Partners支持，其A类股周一在纽约一度大涨49%，至40.25美元，较上周20美元的首次公开募股（IPO）价翻倍。
-
-此次发行正值防务科技公司IPO激增之际，随着全球冲突加剧，各国为应对新威胁而增加军费支出。
-
-无人机尤其受到关注，因其在当前战争中被伊朗、以色列和美国广泛使用，这一趋势延续了自2022年俄乌冲突以来的态势。
-
-“公司所处行业正当其时 —— 防务科技 —— 而且其上市正值上周五市场整体风险偏好回升之际，”盈透证券首席策略师Steve Sosnick表示。
-
-这为该股提供了足够动力，吸引新一批交易员“跟风入场，”他表示。
-
-由Arcline Investment Management支持的Arxis Inc．上周上市首日大涨38%，融资11.3亿美元；而无人机软件公司Swarmer Inc．在3月IPO后前两个交易日股价飙升1000%。
-
-随着军费开支转向以无人机等无人化、相对低成本技术为主的新一代系统，投资者兴趣也随之上升，Aevex正有望从中受益。
+发布时间：2026年06月27日 15:20 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 16:24 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 16:29 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 16:36 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 16:13 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 16:33 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 16:19 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 16:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 16:41 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 16:39 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 16:32 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 16:17 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 16:20 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 16:22 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 16:44 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 16:45 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 16:21 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 16:38 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 16:46 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 16:30 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 16:47 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 16:26 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 16:36 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 16:32 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 16:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 16:18 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 16:40 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:29 - [上班主打一个薪尽自然凉](http://www.blog.kurohicncr.top/Article/details/864530111.shtml)
-- 2026-06-29 16:27 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/40745348471.shtml)
-- 2026-06-29 16:23 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/89735391.shtml)
-- 2026-06-29 16:34 - [新能源车能当外接空调用吗](https://www.share.kurohicncr.top/Article/details/28138378.shtml)
-- 2026-06-29 16:27 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.minike.top/Article/details/148018.shtml)
-- 2026-06-29 16:41 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/120084.shtml)
-- 2026-06-29 16:35 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/1204082.shtml)
-- 2026-06-29 16:38 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/567589.shtml)
-- 2026-06-29 16:36 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/76646258229.shtml)
-- 2026-06-29 16:20 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/81069473.shtml)
-- 2026-06-29 16:20 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/46560216885.shtml)
-- 2026-06-29 16:16 - [沉睡花园](http://www.share.minike.top/Article/details/27209519472.shtml)
-- 2026-06-29 16:32 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/1346424.shtml)
-- 2026-06-29 16:16 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/21151.shtml)
-- 2026-06-29 16:37 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/7393904.shtml)
+- 2026-06-29 16:38 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/297944968.shtml)
+- 2026-06-29 16:40 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/3237637885.shtml)
+- 2026-06-29 16:46 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/606300888375.shtml)
+- 2026-06-29 16:40 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/6901840089.shtml)
+- 2026-06-29 16:30 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/9641434881.shtml)
+- 2026-06-29 16:25 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/837199508117.shtml)
+- 2026-06-29 16:24 - [斛珠夫人](http://www.share.minike.top/Article/details/28238846927.shtml)
+- 2026-06-29 16:19 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/223430.shtml)
+- 2026-06-29 16:36 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/65871.shtml)
+- 2026-06-29 16:45 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/800909533005.shtml)
+- 2026-06-29 16:19 - [恋与深空发放补偿未得到玩家认可](http://www.blog.minike.top/Article/details/443416513.shtml)
+- 2026-06-29 16:33 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/71150617.shtml)
+- 2026-06-29 16:22 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/380540842.shtml)
+- 2026-06-29 16:38 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/5878247074.shtml)
+- 2026-06-29 16:23 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/324105636181.shtml)

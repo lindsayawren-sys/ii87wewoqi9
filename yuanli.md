@@ -1,61 +1,59 @@
-# 政在回应② | 耕地保护和国土绿化空间专项规划是个什么规划？
+# 阿曼据悉告知盟友途经霍尔木兹海峡的船只可能需要缴费
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-当前，各省都在编制耕地保护和国土绿化空间专项规划。这到底是个什么规划，能解决哪些问题？ ——读者点题 专项规划，是“五级三类”国土空间规划体系中的三类规划之一，是国土空间总体规划在特定领域的延伸和细化。 耕地保护和国土绿化空间专项规划就是在国土空间总体规划划定的“三区三线”格局下，以2024年度国土变更调查和林草湿荒普查结果为基础底图，在同一张底图上和统一规则下，统筹划定耕地空
+知情人士称 ，阿曼已告知欧洲官员，霍尔木兹海峡不可能恢复到战前状态，过境船只可能需要缴纳一些费用。 据消息人士透露，阿曼官员表示将始终遵守国际海洋法，但与海峡净化或协助船舶航行相关的服务可能会收取费用。目前尚不清楚阿曼是否表示所有这些费用都是强制性的。 知情人士透露，阿曼正在分析全球各地咽喉要道所使用的系统，包括亚洲的马六甲海峡，该地区没有强制性的航运费用。 美国、欧洲和阿曼的
 
 ## 正文
 
-当前，各省都在编制耕地保护和国土绿化空间专项规划。
+知情人士称 ，阿曼已告知欧洲官员，霍尔木兹海峡不可能恢复到战前状态，过境船只可能需要缴纳一些费用。
 
-这到底是个什么规划，能解决哪些问题？
+据消息人士透露，阿曼官员表示将始终遵守国际海洋法，但与海峡净化或协助船舶航行相关的服务可能会收取费用。
 
-——读者点题 专项规划，是“五级三类”国土空间规划体系中的三类规划之一，是国土空间总体规划在特定领域的延伸和细化。
+目前尚不清楚阿曼是否表示所有这些费用都是强制性的。
 
-耕地保护和国土绿化空间专项规划就是在国土空间总体规划划定的“三区三线”格局下，以2024年度国土变更调查和林草湿荒普查结果为基础底图，在同一张底图上和统一规则下，统筹划定耕地空间、耕地补充空间、林草空间、林草补充空间这“四大空间”，让耕林草管理边界清晰、不再“打架”。
+知情人士透露，阿曼正在分析全球各地咽喉要道所使用的系统，包括亚洲的马六甲海峡，该地区没有强制性的航运费用。
 
-往小处来讲，这个专项规划可以有效化解耕地和林地、草地空间矛盾、解决过去耕林草分散管理导致的空间冲突，进一步优化农用地空间布局，实现“宜耕则耕、宜林则林、宜草则草”，提升农用地利用效率和生态功能。
+美国、欧洲和阿曼的阿拉伯邻国越来越担心阿曼苏丹国会与伊朗就霍尔木兹海峡建立通行费或收费制度。
 
-往大处来说，可以从空间优化层面引领更高质量的耕地保护和国土绿化工作，统筹保障国家粮食安全和生态安全，乃至提升国土空间协同治理水平，助力乡村产业高质量发展。
+法国总统马克龙将于周一在巴黎会见阿曼苏丹海赛姆·本·塔里克。
 
-那么，这个专项规划具体怎么编制呢？
+目前，各主要国家正加紧努力，确保霍尔木兹海峡继续保持自由通航。
 
-从层级上来看，耕地保护和国土绿化空间专项规划分为国家级和省级2个规划层级。
+根据法国总统府声明，两国领导人将讨论“海上航道安全问题，而这取决于霍尔木兹海峡自由且无条件的通航”。
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 16:34 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 16:35 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 16:17 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 16:16 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 16:19 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 16:41 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 16:21 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 16:25 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 16:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 16:40 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 16:13 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 16:33 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 16:23 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 16:25 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 16:19 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 16:34 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 16:46 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 16:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 16:31 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 16:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 16:31 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 16:20 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 16:41 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 16:23 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 16:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 16:45 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 16:25 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:14 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/374984182765.shtml)
-- 2026-06-29 16:37 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/0099520.shtml)
-- 2026-06-29 16:21 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/5236421.shtml)
-- 2026-06-29 16:20 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/1779212710.shtml)
-- 2026-06-29 16:28 - [首尔商铺禁止洪明甫入内](https://www.share.minike.top/Article/details/1165769416.shtml)
-- 2026-06-29 16:35 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/5648660165.shtml)
-- 2026-06-29 16:41 - [恋与深空 731](https://www.blog.minike.top/Article/details/992177723.shtml)
-- 2026-06-29 16:28 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/5127119.shtml)
-- 2026-06-29 16:12 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/24611235.shtml)
-- 2026-06-29 16:38 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/4044573615.shtml)
-- 2026-06-29 16:18 - [BB大王横店拍戏](https://www.share.minike.top/Article/details/099229751.shtml)
-- 2026-06-29 16:36 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/95279.shtml)
-- 2026-06-29 16:31 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/694789625156.shtml)
-- 2026-06-29 16:22 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/469852527836.shtml)
-- 2026-06-29 16:23 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/446656144.shtml)
+- 2026-06-29 16:43 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/696902324.shtml)
+- 2026-06-29 16:22 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/30445457.shtml)
+- 2026-06-29 16:36 - [爸爸当家](http://www.blog.minike.top/Article/details/19995157870.shtml)
+- 2026-06-29 16:31 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/412612150.shtml)
+- 2026-06-29 16:30 - [普京介绍前线战事](http://www.blog.kurohicncr.top/Article/details/0466606.shtml)
+- 2026-06-29 16:28 - [端午节加班工资应该怎么算](http://www.share.minike.top/Article/details/35963045032.shtml)
+- 2026-06-29 16:21 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/75066467251.shtml)
+- 2026-06-29 16:32 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/90301.shtml)
+- 2026-06-29 16:28 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/550523.shtml)
+- 2026-06-29 16:37 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/919771026293.shtml)
+- 2026-06-29 16:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/77102897450.shtml)
+- 2026-06-29 16:22 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/277050321574.shtml)
+- 2026-06-29 16:46 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.kurohicncr.top/Article/details/2157504933.shtml)
+- 2026-06-29 16:18 - [东方风云榜红毯](http://www.blog.minike.top/Article/details/383021.shtml)
+- 2026-06-29 16:38 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/25519.shtml)

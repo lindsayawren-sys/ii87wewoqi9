@@ -1,56 +1,57 @@
-# 艾米森二度赴港IPO：成立十年未盈利，实控人名下公司系主要大客户
+# 台湾影视青年在浙江横店“试水”微短剧赛道
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-国内癌症早筛赛道企业武汉艾米森生命科技股份有限公司（简称“艾米森”）近日向港交所递交了招股书，拟在港交所主板上市，联席保荐人为建银国际和交银国际。这是艾米森继2025年9月28日首次递表失效后再次递表。 若此次顺利上市，艾米森将成为港股“甲基化癌症早筛第一股”。 成立十年仍未盈利：营收翻倍仍陷亏损，预计2026年仍将亏损 招股书披露的资料显示，公司成立于2015年1月，是一家早
+中新社浙江横店6月28日电 题：台湾影视青年在浙江横店“试水”微短剧赛道 作者 李百加 钱晨菲 “竖屏微短剧聚焦人物主体，画面构图、镜头取舍与横屏不同。”台湾春晖映像公司执行董事孔繁芸接受中新社采访时说，分镜设计是核心差异之一，仅靠线上观摩难以吃透技巧，落地实拍、现场磨合才能掌握门道。 “剧本是另一道门槛。”曾创作《司藤》《有翡》等作品的大陆编剧汪洪说，长剧讲究人物逻辑与长线铺
 
 ## 正文
 
-国内癌症早筛赛道企业武汉艾米森生命科技股份有限公司（简称“艾米森”）近日向港交所递交了招股书，拟在港交所主板上市，联席保荐人为建银国际和交银国际。
+中新社浙江横店6月28日电 题：台湾影视青年在浙江横店“试水”微短剧赛道 作者 李百加 钱晨菲 “竖屏微短剧聚焦人物主体，画面构图、镜头取舍与横屏不同。
 
-这是艾米森继2025年9月28日首次递表失效后再次递表。
+”台湾春晖映像公司执行董事孔繁芸接受中新社采访时说，分镜设计是核心差异之一，仅靠线上观摩难以吃透技巧，落地实拍、现场磨合才能掌握门道。
 
-若此次顺利上市，艾米森将成为港股“甲基化癌症早筛第一股”。
+“剧本是另一道门槛。
 
-成立十年仍未盈利：营收翻倍仍陷亏损，预计2026年仍将亏损 招股书披露的资料显示，公司成立于2015年1月，是一家早期癌症检测公司，聚焦于高发病率、高死亡率的癌症，由武大博士张良禄创立。
+”曾创作《司藤》《有翡》等作品的大陆编剧汪洪说，长剧讲究人物逻辑与长线铺垫；微短剧则是情绪驱动，强调节奏密度、结果导向。
 
-公司率先开发基于甲基化的早期癌症检测技术。
+2026两岸青年微短剧大赛近日在浙江横店举行。
 
-截至最后实际可行日期，公司拥有两款核心产品，分别为针对肝癌的艾馨甘及针对尿路上皮癌的艾光乐，以及四款研发中候选产品。
+参赛台湾团队走进片场，在72小时内完成“一集一分钟，一共拍五集”的挑战。
 
-艾馨甘是全球首款基于甲基化技术、采用实时定量聚合酶链反应（qPCR）技术的肝癌检测试剂。
+孔繁芸认为，对希望进入微短剧赛道的台湾青年而言，实拍已成为“必修课”。
 
-公司另一款核心产品艾光乐仅需用1毫升尿液样本即可实现尿路上皮癌的非侵入性检测。
+“必修”的还有创作技法。
 
 ## 相关推荐
 
-- 2026-06-29 16:29 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 16:34 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 16:34 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 16:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 16:17 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 16:34 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 16:36 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 16:33 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 16:18 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 16:18 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 16:44 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 16:27 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 16:21 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 16:30 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 16:29 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 16:40 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 16:46 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 16:40 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 16:39 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 16:31 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 16:20 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:39 - [博主：黄金和原油回落不等于风险消失](https://www.share.minike.top/Article/details/43696.shtml)
-- 2026-06-29 16:18 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/143532168.shtml)
-- 2026-06-29 16:36 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/81715632059.shtml)
-- 2026-06-29 16:33 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/2193697.shtml)
-- 2026-06-29 16:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/694844287874.shtml)
-- 2026-06-29 16:15 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/6950516.shtml)
-- 2026-06-29 16:37 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/05792.shtml)
-- 2026-06-29 16:38 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/3179491.shtml)
-- 2026-06-29 16:34 - [范志毅看好日本淘汰巴西](https://www.share.minike.top/Article/details/1911434620.shtml)
-- 2026-06-29 16:20 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/874406776559.shtml)
-- 2026-06-29 16:24 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/328417092.shtml)
-- 2026-06-29 16:22 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/59907278.shtml)
-- 2026-06-29 16:37 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/0621754.shtml)
-- 2026-06-29 16:15 - [世界杯看到肖战了](http://www.share.kurohicncr.top/Article/details/653640710.shtml)
-- 2026-06-29 16:20 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.kurohicncr.top/Article/details/71528252696.shtml)
+- 2026-06-29 16:24 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/615077.shtml)
+- 2026-06-29 16:30 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/246378.shtml)
+- 2026-06-29 16:35 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/04973513341.shtml)
+- 2026-06-29 16:28 - [金牌调解](http://www.share.kurohicncr.top/Article/details/52857939107.shtml)
+- 2026-06-29 16:30 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/9131581.shtml)
+- 2026-06-29 16:46 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/89820.shtml)
+- 2026-06-29 16:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/333524278.shtml)
+- 2026-06-29 16:19 - [滾石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/497339585346.shtml)
+- 2026-06-29 16:20 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/80582867.shtml)
+- 2026-06-29 16:27 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/866555.shtml)
+- 2026-06-29 16:27 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/1016374.shtml)
+- 2026-06-29 16:18 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/474077013.shtml)
+- 2026-06-29 16:35 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/058396628026.shtml)
+- 2026-06-29 16:31 - [媒体：中国田径压力与期待并存](http://www.share.kurohicncr.top/Article/details/176901.shtml)
+- 2026-06-29 16:23 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/67991489.shtml)

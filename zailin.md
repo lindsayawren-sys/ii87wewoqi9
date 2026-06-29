@@ -1,56 +1,60 @@
-# 厦门举办连横逝世九十周年纪念座谈会
+# 股价“腰斩”，章建平减仓，葛卫东坚守
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-中新社厦门4月21日电 (吴冠标)“纪念连横先生逝世九十周年座谈会”21日在厦门集美举办，连横曾孙连胜文一行赴会并参观集美“台商之家”。 台湾史学家连横祖籍福建省漳州府龙溪县马崎社，曾两度在厦门办报、居住，其穷十年之功著《台湾通史》，记述台湾与大陆的历史渊源，被誉为“台湾的太史公”和“台湾文化界第一人”。 连胜文分享了重读《台湾通史》的感悟。他表示，小时候能背诵序言却不太理解，
+6月27日，江淮汽车发布关于回购股份事项前十名股东及前十名无限售条件股东持股情况的公告。 根据公告，截至6月23日，股东方文艳（牛散章建平妻子）持有江淮汽车2665.02万股，较6月9日的3588.52万股减少923.5万股。按照减持期间（6月10日至23日）区间均价31.39元/股估算，其套现约2.9亿元。 章建平的撤退不止于此。其关联的知春精选一期私募基金，截至6月9日持有
 
 ## 正文
 
-中新社厦门4月21日电 (吴冠标)“纪念连横先生逝世九十周年座谈会”21日在厦门集美举办，连横曾孙连胜文一行赴会并参观集美“台商之家”。
+6月27日，江淮汽车发布关于回购股份事项前十名股东及前十名无限售条件股东持股情况的公告。
 
-台湾史学家连横祖籍福建省漳州府龙溪县马崎社，曾两度在厦门办报、居住，其穷十年之功著《台湾通史》，记述台湾与大陆的历史渊源，被誉为“台湾的太史公”和“台湾文化界第一人”。
+根据公告，截至6月23日，股东方文艳（牛散章建平妻子）持有江淮汽车2665.02万股，较6月9日的3588.52万股减少923.5万股。
 
-连胜文分享了重读《台湾通史》的感悟。
+按照减持期间（6月10日至23日）区间均价31.39元/股估算，其套现约2.9亿元。
 
-他表示，小时候能背诵序言却不太理解，随着年龄增大，对这部著作的感触愈深。
+章建平的撤退不止于此。
 
-“尤其是‘筚路蓝缕，以启山林’一句，它所展现的，是中华民族不怕苦、不怕难、脚踏实地的精神。
+其关联的知春精选一期私募基金，截至6月9日持有江淮汽车3702.47万股，位列第四大股东；到6月23日已撤出前十大股东之列。
 
-” 现场，厦门大学台湾研究院副院长刘奎、《台湾通史》译注本总统稿人邓孔昭等专家学者，围绕连横的史学思想、爱国精神及其当代价值展开研讨。
+值得注意的是，另一位牛散葛卫东及其两位关联人对江淮汽车的持股则纹丝不动。
 
-刘奎指出，《台湾通史》明确提出“台湾之人，中国之人也，而又闽粤之族也”，揭示台湾与祖国大陆在政治、经济、文化等方面的历史渊源，并以史讴歌台湾先民的开拓精神，歌颂台湾民众矢志不渝的爱国情怀，“今天我们纪念连横先生，正是要传承发扬他求真务实的治史精神。
+截至6月23日，葛卫东持有江淮汽车3049.35万股，王萍（葛卫东妻子）持股2475.61万股，葛贵莲（葛卫东关联人）持股1661.6万股，持股数量均在6月9日至23日期间未发生变化。
 
-” 本次活动由福建省连横文化研究院与厦门大学台湾研究院共同主办。
+此外，由于知春精选一期私募基金的撤出，葛卫东另一关联人持股情况浮出水面，截至6月23日，葛贵兰（葛卫东关联人）持股1262.2万股，新进前十大股东之列。
 
 ## 相关推荐
 
-- 2026-06-29 16:32 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 16:37 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 16:12 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 16:27 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 16:32 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 16:18 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 16:27 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 16:34 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 16:23 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 16:17 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 16:36 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 16:36 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 16:20 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 16:21 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 16:34 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 16:47 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 16:35 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 16:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 16:18 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 16:21 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 16:36 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 16:45 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 16:31 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 16:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:37 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/1500371.shtml)
-- 2026-06-29 16:17 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.minike.top/Article/details/57835470768.shtml)
-- 2026-06-29 16:16 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/6079432.shtml)
-- 2026-06-29 16:24 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/369171.shtml)
-- 2026-06-29 16:26 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/119205108.shtml)
-- 2026-06-29 16:21 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.minike.top/Article/details/45006266353.shtml)
-- 2026-06-29 16:36 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/8220288.shtml)
-- 2026-06-29 16:28 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/91835612.shtml)
-- 2026-06-29 16:32 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/7028937.shtml)
-- 2026-06-29 16:24 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/72097.shtml)
-- 2026-06-29 16:24 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/02357771518.shtml)
-- 2026-06-29 16:39 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/19522364.shtml)
-- 2026-06-29 16:21 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/21449.shtml)
-- 2026-06-29 16:16 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/333906452700.shtml)
-- 2026-06-29 16:38 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/2834159915.shtml)
+- 2026-06-29 16:22 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/261989.shtml)
+- 2026-06-29 16:25 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/5896775229.shtml)
+- 2026-06-29 16:31 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/1398061.shtml)
+- 2026-06-29 16:26 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/260925.shtml)
+- 2026-06-29 16:40 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/6913149966.shtml)
+- 2026-06-29 16:31 - [恋与深空发放补偿未得到玩家认可](http://www.blog.minike.top/Article/details/2901033.shtml)
+- 2026-06-29 16:38 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/5686530.shtml)
+- 2026-06-29 16:37 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/8740296102.shtml)
+- 2026-06-29 16:36 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/77879571.shtml)
+- 2026-06-29 16:27 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.kurohicncr.top/Article/details/98999.shtml)
+- 2026-06-29 16:23 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/3384915.shtml)
+- 2026-06-29 16:29 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/61804700.shtml)
+- 2026-06-29 16:35 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/12655.shtml)
+- 2026-06-29 16:29 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/98769046.shtml)
+- 2026-06-29 16:44 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/851861906539.shtml)

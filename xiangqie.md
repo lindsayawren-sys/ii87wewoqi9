@@ -1,55 +1,49 @@
-# 日本7.7级地震已致6人受伤 气象厅提醒防范后续地震
+# 日本千叶县发生5.8级地震 东京等多地震感强烈
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-中新网4月21日电 据日本广播协会(NHK)报道，日本内阁官房长官木原稔表示，截至当地时间21日上午8时，20日下午日本东北部海域发生的7.7级地震已致2人重伤，4人轻伤。 日本气象厅还对北海道及三陆地区近海发布“后续地震注意信息”，提醒防范可能发生的后续强震。对此，木原稔称，“政府将与地方政府和有关机构紧密合作，继续保持紧张感开展应对工作。” 据报道，受此次地震影响，宫崎县石
+中新网6月26日电 据日本气象厅消息，当地时间6月26日12时46分左右，日本千叶县东北部发生5.8级地震，震源深度50千米。 据日本广播协会(NHK)报道，此次地震没有引发海啸的风险。 报道称，千叶县、茨城县、东京等多地震感强烈。
 
 ## 正文
 
-中新网4月21日电 据日本广播协会(NHK)报道，日本内阁官房长官木原稔表示，截至当地时间21日上午8时，20日下午日本东北部海域发生的7.7级地震已致2人重伤，4人轻伤。
+中新网6月26日电 据日本气象厅消息，当地时间6月26日12时46分左右，日本千叶县东北部发生5.8级地震，震源深度50千米。
 
-日本气象厅还对北海道及三陆地区近海发布“后续地震注意信息”，提醒防范可能发生的后续强震。
+据日本广播协会(NHK)报道，此次地震没有引发海啸的风险。
 
-对此，木原稔称，“政府将与地方政府和有关机构紧密合作，继续保持紧张感开展应对工作。
-
-” 据报道，受此次地震影响，宫崎县石卷市出现道路塌陷的情况。
-
-青森县还报告多处建筑受损。
-
-据此前报道，日本气象厅20日说，日本东北部海域当天发生7.4级地震，随后将地震震级修正为7.5级，又修正为7.7级。
-
-日本青森县、东京都、北海道、宫城县在内的多地有强烈震感。
+报道称，千叶县、茨城县、东京等多地震感强烈。
 
 ## 相关推荐
 
-- 2026-06-29 16:30 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 16:34 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 16:19 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 16:40 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 16:12 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 16:37 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 16:20 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 16:20 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 16:39 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 16:31 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 16:29 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 16:25 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 16:36 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 16:22 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 16:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 16:29 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 16:32 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 16:36 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 16:46 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 16:34 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 16:35 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 16:33 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 16:18 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 16:31 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:16 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/824866607446.shtml)
-- 2026-06-29 16:20 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.minike.top/Article/details/86493820527.shtml)
-- 2026-06-29 16:36 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/568996302770.shtml)
-- 2026-06-29 16:25 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/6498326.shtml)
-- 2026-06-29 16:12 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/84481494997.shtml)
-- 2026-06-29 16:33 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/3195233632.shtml)
-- 2026-06-29 16:33 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/76662825.shtml)
-- 2026-06-29 16:37 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/39835731.shtml)
-- 2026-06-29 16:30 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/6455346317.shtml)
-- 2026-06-29 16:20 - [博主：黄金和原油回落不等于风险消失](http://www.blog.kurohicncr.top/Article/details/2117054939.shtml)
-- 2026-06-29 16:23 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/656739282.shtml)
-- 2026-06-29 16:35 - [徐昕暂不参加NBA夏季联赛](http://www.share.kurohicncr.top/Article/details/97407520.shtml)
-- 2026-06-29 16:36 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/382654119199.shtml)
-- 2026-06-29 16:21 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/85919219.shtml)
-- 2026-06-29 16:28 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/991391066662.shtml)
+- 2026-06-29 16:46 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/10687206745.shtml)
+- 2026-06-29 16:20 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/37069.shtml)
+- 2026-06-29 16:20 - [A股割裂行情有变化了吗](https://www.share.minike.top/Article/details/280154.shtml)
+- 2026-06-29 16:37 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/64969844.shtml)
+- 2026-06-29 16:34 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/488685519.shtml)
+- 2026-06-29 16:43 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.kurohicncr.top/Article/details/903812295.shtml)
+- 2026-06-29 16:26 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/3296765.shtml)
+- 2026-06-29 16:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/12394.shtml)
+- 2026-06-29 16:46 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/3155794.shtml)
+- 2026-06-29 16:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/1457073.shtml)
+- 2026-06-29 16:45 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/4918056604.shtml)
+- 2026-06-29 16:30 - [唐艺昕告别浪姐千字长文](http://www.share.kurohicncr.top/Article/details/313013917.shtml)
+- 2026-06-29 16:46 - [美的“卡bug”空调在欧洲卖爆](https://www.share.minike.top/Article/details/72751395.shtml)
+- 2026-06-29 16:31 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/150974.shtml)
+- 2026-06-29 16:46 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/984690053.shtml)

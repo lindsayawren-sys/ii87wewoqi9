@@ -1,58 +1,46 @@
-# 关键时期推进 R2 电动汽车上市之际，Rivian工厂遭龙卷风破坏
+# 委内瑞拉最大机场已部分恢复运营 中新社记者紧急赶往现场
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-核心要点 美国消费者新闻与商业频道获悉，电动汽车制造商 Rivian 首席执行官 RJ・斯卡林格周日晚间向员工发送通知称，上周末一场龙卷风损毁了该公司位于伊利诺伊州中部的部分工厂设施。 斯卡林格称，龙卷风直接登陆厂区。受影响区域此前被用于 Rivian 即将上市的 R2 车型的零部件仓储及物流作业 ——R2 是公司至关重要的战略车型，计划于今年春季开售。 斯卡林格表示，受损区域
+发布时间：2026年06月29日 08:06 来源：中国新闻网 当地时间6月28日，委内瑞拉最大机场已部分恢复运营。中新社记者搭乘巴西至委内瑞拉的第一趟航班紧急赶往委内瑞拉。(记者 林春茵 制作 侯诗蕊） 责任编辑：【刘欢】
 
 ## 正文
 
-核心要点 美国消费者新闻与商业频道获悉，电动汽车制造商 Rivian 首席执行官 RJ・斯卡林格周日晚间向员工发送通知称，上周末一场龙卷风损毁了该公司位于伊利诺伊州中部的部分工厂设施。
+发布时间：2026年06月29日 08:06 来源：中国新闻网 当地时间6月28日，委内瑞拉最大机场已部分恢复运营。
 
-斯卡林格称，龙卷风直接登陆厂区。
+中新社记者搭乘巴西至委内瑞拉的第一趟航班紧急赶往委内瑞拉。
 
-受影响区域此前被用于 Rivian 即将上市的 R2 车型的零部件仓储及物流作业 ——R2 是公司至关重要的战略车型，计划于今年春季开售。
-
-斯卡林格表示，受损区域的生产运营预计在本周恢复，而工厂总装线等其他核心区域均按计划正常运行。
-
-公司发言人透露，此次事件暂无人员受伤报告。
-
-“尽管 2 号厂房遭受损坏并在评估完成前暂时关闭，但我可以万分欣慰地告知大家，厂区内无人受伤。
-
-” 斯卡林格在致员工信中说道。
-
-他还表示，公司 “将在掌握更多信息后及时通报，目前我们的首要任务是保障伊利诺伊州诺默尔工厂团队的安全并提供支持”。
+(记者 林春茵 制作 侯诗蕊） 责任编辑：【刘欢】
 
 ## 相关推荐
 
-- 2026-06-29 16:22 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 16:26 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 16:35 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 16:28 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 16:22 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 16:26 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 16:20 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 16:24 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 16:34 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 16:31 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 16:34 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 16:31 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 16:26 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 16:24 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 16:31 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 16:33 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 16:23 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 16:19 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 16:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 16:40 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 16:46 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 16:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:20 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/6965909.shtml)
-- 2026-06-29 16:33 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/82087891.shtml)
-- 2026-06-29 16:28 - [博主：全球股市进入“AI极端共振”](https://www.blog.kurohicncr.top/Article/details/1546760246.shtml)
-- 2026-06-29 16:31 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/82778.shtml)
-- 2026-06-29 16:12 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/54322577.shtml)
-- 2026-06-29 16:33 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/803275343.shtml)
-- 2026-06-29 16:21 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/3735048.shtml)
-- 2026-06-29 16:37 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/82701.shtml)
-- 2026-06-29 16:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/747770727.shtml)
-- 2026-06-29 16:12 - [毒液2](http://www.share.minike.top/Article/details/364317738.shtml)
-- 2026-06-29 16:28 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/0599843473.shtml)
-- 2026-06-29 16:30 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/83978.shtml)
-- 2026-06-29 16:40 - [把古诗里的动作换成加班](http://www.share.minike.top/Article/details/457765182.shtml)
-- 2026-06-29 16:32 - [南昌市委书记调整](http://www.share.kurohicncr.top/Article/details/8146234.shtml)
-- 2026-06-29 16:20 - [毒液2](http://www.blog.kurohicncr.top/Article/details/9019691.shtml)
+- 2026-06-29 16:19 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/8737806.shtml)
+- 2026-06-29 16:23 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/2225857491.shtml)
+- 2026-06-29 16:29 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/46721.shtml)
+- 2026-06-29 16:29 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/901392378005.shtml)
+- 2026-06-29 16:34 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/7060068.shtml)
+- 2026-06-29 16:45 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/484124279.shtml)
+- 2026-06-29 16:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/37252578073.shtml)
+- 2026-06-29 16:43 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/69579918457.shtml)
+- 2026-06-29 16:45 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/8340002.shtml)
+- 2026-06-29 16:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/75298426.shtml)
+- 2026-06-29 16:44 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/346365948888.shtml)
+- 2026-06-29 16:28 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/396947362405.shtml)
+- 2026-06-29 16:46 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/9719396005.shtml)
+- 2026-06-29 16:35 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/787025122839.shtml)
+- 2026-06-29 16:18 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/26297524025.shtml)

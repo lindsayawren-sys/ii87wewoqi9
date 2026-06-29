@@ -1,59 +1,60 @@
-# 信安世纪(688201)投资者索赔分析
+# 嘉兴南湖：沉浸式叙事空间讲述鲜活红色历史
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-2026年4月18日，信安世纪（维权）发布的《关于前期会计差错更正、定期报告更正及2025年度业绩预告暨业绩快报更正的公告》。在这份修正公告中，公司对2025年研发投入资本化进行了调整，导致已披露的《2025年第一季度报告》《2025年半年度报告》《2025年第三季度报告》各期财务报表以及《2025年年度业绩预告》和《2025年度业绩快报公告》中的财务数据存在差错。部分股民或许
+中新社浙江嘉兴6月26日电 题：嘉兴南湖：沉浸式叙事空间讲述鲜活红色历史 作者 黄彦君 “亲眼见到复原的红船，书中历史好像‘活’了起来。”在浙江嘉兴南湖湖心岛上，来自江西的“00后”游客郑佳涵端详着泊在岸边的著名红船说。 1921年夏，中共一大在上海秘密召开，但因受巡捕袭扰而被迫中断，代表们辗转至嘉兴南湖一艘画舫上继续开会。正是这次会议，庄严宣告中国共产党诞生。 不过，当年举行
 
 ## 正文
 
-2026年4月18日，信安世纪（维权）发布的《关于前期会计差错更正、定期报告更正及2025年度业绩预告暨业绩快报更正的公告》。
+中新社浙江嘉兴6月26日电 题：嘉兴南湖：沉浸式叙事空间讲述鲜活红色历史 作者 黄彦君 “亲眼见到复原的红船，书中历史好像‘活’了起来。
 
-在这份修正公告中，公司对2025年研发投入资本化进行了调整，导致已披露的《2025年第一季度报告》《2025年半年度报告》《2025年第三季度报告》各期财务报表以及《2025年年度业绩预告》和《2025年度业绩快报公告》中的财务数据存在差错。
+”在浙江嘉兴南湖湖心岛上，来自江西的“00后”游客郑佳涵端详着泊在岸边的著名红船说。
 
-部分股民或许存在索赔机会。
+1921年夏，中共一大在上海秘密召开，但因受巡捕袭扰而被迫中断，代表们辗转至嘉兴南湖一艘画舫上继续开会。
 
-徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致损失，可以向有管辖权的法院提起民事赔偿诉讼以维护自己的合法权益，可索赔损失范围包括投资差额损失、印花税及佣金损失。
+正是这次会议，庄严宣告中国共产党诞生。
 
-（徐劲律师专栏） 暂定索赔条件：（信安世纪维权入口） 在2025年4月29日至2026年4月19日买入，并在2026年4月19日后卖出或仍持有而亏损的投资者（最终索赔结果以法院判决为准）。
+不过，当年举行过一大的那艘画舫后来毁于抗日战争期间，现停泊于此的是1959年按原貌精心仿制的红船。
 
-投资者应准备下列材料：身份证复印件，证券账户开户信息确认单（原件加盖证券公司营业部印章），证券交易记录流水（从首次买入该股票至今并加盖证券公司营业部印章，有库存股的还要打印出库存股数）。
+历经数十年，这艘南湖红船已经成为世人了解中共发展历程的必到一站。
 
-（本文由北京市盈科（深圳）律师事务所徐劲律师（执业证号14403200610948623）供稿，不代表新浪财经的立场。
+制作红船模型十余年的浙江省非物质文化遗产“南湖画舫制作技艺”第四代传承人徐薛超认为，红船是有温度的历史载体。
 
-徐劲律师擅长在上市公司虚假陈述案件中为股民维权索赔，执业十余年来，曾代理投资者起诉多家上市公司成功索赔。
+近年来，南湖“红色游”升温，他与团队努力开发贴合年轻人审美的冰箱贴、挂件等文创产品，方便人们“带红船回家”。
 
 ## 相关推荐
 
-- 2026-06-29 16:38 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 16:17 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 16:31 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 16:18 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 16:27 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 16:18 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 16:18 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 16:41 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 16:25 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 16:13 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 16:21 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 16:36 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 16:20 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 16:22 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 16:37 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 16:41 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 16:30 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 16:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 16:32 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 16:22 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 16:35 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 16:43 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 16:35 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 16:41 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 16:38 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 16:18 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 16:43 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:15 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/876021796.shtml)
-- 2026-06-29 16:14 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/594901054.shtml)
-- 2026-06-29 16:33 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/50742.shtml)
-- 2026-06-29 16:30 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/953124.shtml)
-- 2026-06-29 16:36 - [央视起底直播诈骗连环套](http://www.blog.kurohicncr.top/Article/details/86501488615.shtml)
-- 2026-06-29 16:22 - [博主：全球股市进入“AI极端共振”](http://www.blog.minike.top/Article/details/20628777.shtml)
-- 2026-06-29 16:39 - [网警提醒4类高考查分陷阱考生速看](http://www.share.minike.top/Article/details/45879926.shtml)
-- 2026-06-29 16:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/0214557.shtml)
-- 2026-06-29 16:21 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/9391138171.shtml)
-- 2026-06-29 16:12 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/594734286545.shtml)
-- 2026-06-29 16:38 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/9907022358.shtml)
-- 2026-06-29 16:31 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/01038148673.shtml)
-- 2026-06-29 16:17 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/15229.shtml)
-- 2026-06-29 16:18 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/4679131386.shtml)
-- 2026-06-29 16:21 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/6737312.shtml)
+- 2026-06-29 16:28 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/41667.shtml)
+- 2026-06-29 16:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/32951830.shtml)
+- 2026-06-29 16:39 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/043942288545.shtml)
+- 2026-06-29 16:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/7162539.shtml)
+- 2026-06-29 16:36 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/45993151279.shtml)
+- 2026-06-29 16:43 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/670069494518.shtml)
+- 2026-06-29 16:43 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/7375600.shtml)
+- 2026-06-29 16:37 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/483829468.shtml)
+- 2026-06-29 16:28 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/282977.shtml)
+- 2026-06-29 16:28 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/427974469.shtml)
+- 2026-06-29 16:47 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/763122448191.shtml)
+- 2026-06-29 16:28 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/221038.shtml)
+- 2026-06-29 16:31 - [业内：全球市场迎来结构性投资窗口](https://www.blog.minike.top/Article/details/0962486.shtml)
+- 2026-06-29 16:42 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/2202339004.shtml)
+- 2026-06-29 16:46 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/7307324.shtml)

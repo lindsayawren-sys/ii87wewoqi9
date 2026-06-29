@@ -1,56 +1,54 @@
-# 时隔六年甘肃银行豪掷17.78亿分红，背后有何考量？
+# 比亚迪集中公布多起名誉维权胜诉案件，李云飞：对于黑公关和黑媒体绝不容忍
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-蓝鲸新闻4月21日讯（记者 金磊）近日，甘肃银行分红引发市场关注。该行董事会建议，向全体股东每10股派发人民币1.18元（含税）股息，合计派发股息17.78亿元。而2025年，该行全年实现归母净利润为5.88亿元。 年报显示，截至报告期末，甘肃银行合并口径下的保留盈利为52.21亿元、总权益约343.75亿元。因而，此次约17.78亿元的分红派息更多基于此前留存收益安排分配。以
+新浪科技讯 6月26日晚间消息，比亚迪法务部发布公告，集中披露多起网络名誉维权胜诉案件，公示了一批恶意造谣、抹黑诋毁品牌的自媒体侵权判决，从严惩处恶意诋毁营造健康行业生态，以法律手段打击汽车行业“黑公关”不良风气，守护企业合法权益与品牌口碑。 随后，比亚迪集团品牌及公关处总经理李云飞转发比亚迪法务发文，并表示：“对于黑公关和黑媒体，我们绝不容忍！将一追到底，绝不姑息！如有更多线
 
 ## 正文
 
-蓝鲸新闻4月21日讯（记者 金磊）近日，甘肃银行分红引发市场关注。
+新浪科技讯 6月26日晚间消息，比亚迪法务部发布公告，集中披露多起网络名誉维权胜诉案件，公示了一批恶意造谣、抹黑诋毁品牌的自媒体侵权判决，从严惩处恶意诋毁营造健康行业生态，以法律手段打击汽车行业“黑公关”不良风气，守护企业合法权益与品牌口碑。
 
-该行董事会建议，向全体股东每10股派发人民币1.18元（含税）股息，合计派发股息17.78亿元。
+随后，比亚迪集团品牌及公关处总经理李云飞转发比亚迪法务发文，并表示：“对于黑公关和黑媒体，我们绝不容忍！
 
-而2025年，该行全年实现归母净利润为5.88亿元。
+将一追到底，绝不姑息！
 
-年报显示，截至报告期末，甘肃银行合并口径下的保留盈利为52.21亿元、总权益约343.75亿元。
+如有更多线索，欢迎举报，最高奖励500万元，长期有效！
 
-因而，此次约17.78亿元的分红派息更多基于此前留存收益安排分配。
+” 此次公布的胜诉案例并非个例，回顾比亚迪近年多起维权胜诉判决案例：博主姚*强（抖音“大秦军陕团”）捏造方程豹相关虚假信息、构成商业诋毁，被判赔偿201万元；“龙哥讲电车”、“满格电新能源”长期散布品牌不实负面信息，被判赔偿200万元；“王悟空说车”贬损方程豹车型，侵害品牌名誉权，被判赔偿31.38万元；“龙猪-集车”长期歪曲事实、持续诋毁比亚迪，被判赔偿201.87万元。
 
-以此计算，甘肃银行此次分红额约相当于其2025年末保留盈利的34.1%、总权益的5.2%。
+2021年，比亚迪宣布悬赏5万至100万元打击恶意“黑公关”，后续又将举报奖励提升到5万至500万元且长期有效。
 
-蓝鲸新闻注意到，甘肃银行上市六年未派息，翻查此前的公告可以发现，甘肃银行给出的原因多为“为夯实本行发展基础，综合考虑未来长远发展需要等因素”。
-
-有市场人士分析，时隔六年进行大额分红，一方面是照顾到长期投资人的情绪，但另一方面也要权衡银行长远发展。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 16:12 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 16:14 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 16:19 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 16:27 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 16:12 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 16:19 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 16:41 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 16:20 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 16:18 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 16:17 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 16:38 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 16:21 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 16:34 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 16:27 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 16:24 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 16:24 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 16:34 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 16:23 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 16:34 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 16:26 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:40 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/729243977.shtml)
-- 2026-06-29 16:17 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.kurohicncr.top/Article/details/986714515326.shtml)
-- 2026-06-29 16:29 - [崔韩率还以为韩娱来新人了](https://www.share.kurohicncr.top/Article/details/9771767.shtml)
-- 2026-06-29 16:41 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/3287769148.shtml)
-- 2026-06-29 16:35 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/64776.shtml)
-- 2026-06-29 16:12 - [博主：全球股市进入“AI极端共振”](https://www.share.minike.top/Article/details/483831630173.shtml)
-- 2026-06-29 16:29 - [爱很美味](https://www.blog.minike.top/Article/details/44158389.shtml)
-- 2026-06-29 16:16 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/580227551.shtml)
-- 2026-06-29 16:41 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/30584898.shtml)
-- 2026-06-29 16:41 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/85623024410.shtml)
-- 2026-06-29 16:18 - [唐艺昕告别浪姐千字长文](https://www.blog.kurohicncr.top/Article/details/57492941.shtml)
-- 2026-06-29 16:36 - [刘烨16岁儿子诺一颜值](https://www.blog.kurohicncr.top/Article/details/211125.shtml)
-- 2026-06-29 16:20 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/788896.shtml)
-- 2026-06-29 16:40 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/5206779.shtml)
-- 2026-06-29 16:30 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/849814805049.shtml)
+- 2026-06-29 16:30 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/375975069881.shtml)
+- 2026-06-29 16:44 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/71321.shtml)
+- 2026-06-29 16:46 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/911845432.shtml)
+- 2026-06-29 16:27 - [首尔商铺禁止洪明甫入内](https://www.share.minike.top/Article/details/74903463049.shtml)
+- 2026-06-29 16:18 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/33656085456.shtml)
+- 2026-06-29 16:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/264287271.shtml)
+- 2026-06-29 16:46 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/32686.shtml)
+- 2026-06-29 16:38 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/396203001794.shtml)
+- 2026-06-29 16:33 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/30300975.shtml)
+- 2026-06-29 16:31 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/1761499.shtml)
+- 2026-06-29 16:28 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/268713616417.shtml)
+- 2026-06-29 16:30 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/3392421.shtml)
+- 2026-06-29 16:44 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/167154145842.shtml)
+- 2026-06-29 16:28 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/7283738425.shtml)
+- 2026-06-29 16:45 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/452190.shtml)

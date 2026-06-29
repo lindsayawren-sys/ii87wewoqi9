@@ -1,58 +1,60 @@
-# 夏氏台胞公祭大禹陵 追念华夏先祖
+# 韩股一度暴跌8%暂停交易 三星和SK海力士跌幅均逾9%
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-中新社浙江绍兴4月20日电 (项菁)2026年公祭大禹陵典礼20日在浙江绍兴大禹陵前举行，包括台湾夏氏宗亲代表在内，近80名台湾同胞前来追念华夏先祖。 当日9时50分，典礼开始，全体参祭人员肃立雅静。随后，敬献花篮、敬献黄酒、恭读祭文、颂唱《大禹纪念歌》、献祭舞等环节依次进行。 大禹是中华民族治水英雄，也是华夏第一代王朝夏朝的奠基者。夏氏是大禹后裔主流姓氏之一。 “第一次来时，
+韩国股市周五重挫，芯片制造商股票再次遭到抛售，凸显出它们对全球AI市场情绪波动的高度敏感性。 Kospi指数一度下跌8.2%，抹去了前一交易日的涨幅，促使韩国交易所暂停交易20分钟，这是本周第二次暂停交易。三星电子和SK海力士的跌幅均超过9%。外国投资者在早盘抛售了价值2.7万亿韩元（约17亿美元）的Kospi指数成分股。 这波跌势与周四的大涨形成急剧反转。当时美光发布乐观预测
 
 ## 正文
 
-中新社浙江绍兴4月20日电 (项菁)2026年公祭大禹陵典礼20日在浙江绍兴大禹陵前举行，包括台湾夏氏宗亲代表在内，近80名台湾同胞前来追念华夏先祖。
+韩国股市周五重挫，芯片制造商股票再次遭到抛售，凸显出它们对全球AI市场情绪波动的高度敏感性。
 
-当日9时50分，典礼开始，全体参祭人员肃立雅静。
+Kospi指数一度下跌8.2%，抹去了前一交易日的涨幅，促使韩国交易所暂停交易20分钟，这是本周第二次暂停交易。
 
-随后，敬献花篮、敬献黄酒、恭读祭文、颂唱《大禹纪念歌》、献祭舞等环节依次进行。
+三星电子和SK海力士的跌幅均超过9%。
 
-大禹是中华民族治水英雄，也是华夏第一代王朝夏朝的奠基者。
+外国投资者在早盘抛售了价值2.7万亿韩元（约17亿美元）的Kospi指数成分股。
 
-夏氏是大禹后裔主流姓氏之一。
+这波跌势与周四的大涨形成急剧反转。
 
-“第一次来时，翠柏才刚刚种下，如今已是参天大树。
+当时美光发布乐观预测，加上SK海力士准备赴美上市，带动市场看好AI交易热潮仍具延续性。
 
-”年近古稀的台北市夏氏宗亲会理事长夏发凡感慨万千。
+但投资人随后开始消化多项新发展，市场情绪转趋保守，包括苹果因存储芯片短缺而上调产品价格，以及市场忧心OpenAI可能将首次公开募股（IPO）推迟到明年。
 
-自20多岁起，夏发凡几乎每年跨越海峡拜谒大禹陵，“老祖宗在这边，根在这边。
+IG International市场分析师Fabien Yip表示，苹果作为全球最大的零部件采购商之一，都无法吸收成本上升的压力，这对需求价格弹性及记忆体芯片利润率能否维持，带来了真正的疑问。
 
 ## 相关推荐
 
-- 2026-06-29 16:28 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 16:14 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 16:36 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 16:14 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 16:37 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 16:32 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 16:12 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 16:20 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 16:15 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 16:14 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 16:13 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 16:27 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 16:23 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 16:30 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 16:40 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 16:24 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 16:18 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 16:39 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 16:42 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 16:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 16:31 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 16:38 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 16:41 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 16:24 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 16:27 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 16:32 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/2064844741.shtml)
-- 2026-06-29 16:36 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/781710235.shtml)
-- 2026-06-29 16:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/060912156780.shtml)
-- 2026-06-29 16:40 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/69036276389.shtml)
-- 2026-06-29 16:18 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/779834644280.shtml)
-- 2026-06-29 16:17 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/152940.shtml)
-- 2026-06-29 16:33 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/810767.shtml)
-- 2026-06-29 16:38 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/82016200.shtml)
-- 2026-06-29 16:40 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/490013917.shtml)
-- 2026-06-29 16:13 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/9945662248.shtml)
-- 2026-06-29 16:12 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/75410789710.shtml)
-- 2026-06-29 16:25 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/9024246870.shtml)
-- 2026-06-29 16:34 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/8106665.shtml)
-- 2026-06-29 16:41 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/969587349307.shtml)
-- 2026-06-29 16:36 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/956973600695.shtml)
+- 2026-06-29 16:28 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/64404930468.shtml)
+- 2026-06-29 16:19 - [周生如故](https://www.blog.minike.top/Article/details/454458442515.shtml)
+- 2026-06-29 16:29 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/3209822.shtml)
+- 2026-06-29 16:32 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/172281.shtml)
+- 2026-06-29 16:20 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/096684667.shtml)
+- 2026-06-29 16:26 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/739762.shtml)
+- 2026-06-29 16:40 - [绘画区你赢了](https://www.share.minike.top/Article/details/923987.shtml)
+- 2026-06-29 16:33 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/862227260510.shtml)
+- 2026-06-29 16:22 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/49805730.shtml)
+- 2026-06-29 16:45 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/2276702402.shtml)
+- 2026-06-29 16:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/38955537.shtml)
+- 2026-06-29 16:34 - [一生一世](http://www.blog.kurohicncr.top/Article/details/28709138.shtml)
+- 2026-06-29 16:30 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/3545536198.shtml)
+- 2026-06-29 16:24 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/9573238815.shtml)
+- 2026-06-29 16:31 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/618507.shtml)

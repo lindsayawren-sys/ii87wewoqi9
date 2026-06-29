@@ -1,52 +1,59 @@
-# 营业部最青睐个股曝光 6股净买入超亿元
+# 花海逐风燃情开跑 宁夏兴庆以体为媒激活美丽经济
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-证券时报·数据宝统计，4月21日龙虎榜中营业部资金净买入7.76亿元，其中，净买入的个股23只，净卖出的个股19只。净买入较多个股分别是顺灏股份、巨力索具（维权）、天通股份等，净买入金额占当日成交额比例达11.06%、4.62%、2.71%。此外，营业部净卖出居前个股分别为康盛股份、英维克、佳力图等，净卖出金额占当日成交额比例达9.18%、30.60%、11.57%。4月21日
+中新网银川6月27日电 (记者 李佩珊)6月27日，2026兴庆区玫瑰跑在宁夏银川鲜花港兴庆花卉小镇浪漫启幕。2000余名跑友驰骋5.20公里沉浸式花海赛道，在馥郁玫瑰芬芳中逐风奔跑，开启一场浪漫的全民健身盛宴。本次活动也正式拉开“花漾塞上 悦享生活”兴庆区花卉产业系列推广活动的序幕。 清晨的花卉小镇花香四溢、人声熙攘。参赛选手身着印有玫瑰花的专属粉色赛服，早早抵达现场，在缤纷
 
 ## 正文
 
-证券时报·数据宝统计，4月21日龙虎榜中营业部资金净买入7.76亿元，其中，净买入的个股23只，净卖出的个股19只。
+中新网银川6月27日电 (记者 李佩珊)6月27日，2026兴庆区玫瑰跑在宁夏银川鲜花港兴庆花卉小镇浪漫启幕。
 
-净买入较多个股分别是顺灏股份、巨力索具（维权）、天通股份等，净买入金额占当日成交额比例达11.06%、4.62%、2.71%。
+2000余名跑友驰骋5.20公里沉浸式花海赛道，在馥郁玫瑰芬芳中逐风奔跑，开启一场浪漫的全民健身盛宴。
 
-此外，营业部净卖出居前个股分别为康盛股份、英维克、佳力图等，净卖出金额占当日成交额比例达9.18%、30.60%、11.57%。
+本次活动也正式拉开“花漾塞上 悦享生活”兴庆区花卉产业系列推广活动的序幕。
 
-4月21日龙虎榜营业部净买卖个股排名（数据释义：根据沪深交易所每日盘后公布的龙虎榜数据，买入金额减去卖出金额得到当日营业部净买入额。
+清晨的花卉小镇花香四溢、人声熙攘。
 
-）（文章来源：证券时报网）
+参赛选手身着印有玫瑰花的专属粉色赛服，早早抵达现场，在缤纷花海打卡点驻足拍照、交流跑步心得，跟随动感音乐热身舒展，满怀期待等候赛事开启。
+
+随着发令枪响，全体选手整装出发、奋勇向前。
+
+赛道沿途繁花簇拥、步步皆景，清风裹挟着清甜花香，让跑友沉浸式感受运动活力与自然美景的完美交融。
+
+亚运会马拉松冠军何杰倾情助阵，全程与大众跑友并肩驰骋，并在赛后分享逐梦励志故事，为赛事增添别样光彩。
 
 ## 相关推荐
 
-- 2026-06-29 16:34 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 16:19 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 16:35 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 16:29 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 16:37 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 16:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 16:36 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 16:39 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 16:40 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 16:38 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 16:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 16:14 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 16:47 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 16:25 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 16:20 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 16:30 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 16:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 16:22 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 16:22 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 16:26 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 16:29 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 16:26 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 16:47 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 16:41 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 16:22 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:34 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/58731.shtml)
-- 2026-06-29 16:32 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.kurohicncr.top/Article/details/93813968830.shtml)
-- 2026-06-29 16:13 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/968607710016.shtml)
-- 2026-06-29 16:27 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/671589.shtml)
-- 2026-06-29 16:12 - [斗破苍穹](http://www.blog.minike.top/Article/details/203537.shtml)
-- 2026-06-29 16:22 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.minike.top/Article/details/2958659.shtml)
-- 2026-06-29 16:24 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/025658.shtml)
-- 2026-06-29 16:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/297361468243.shtml)
-- 2026-06-29 16:25 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/35731503326.shtml)
-- 2026-06-29 16:23 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/896215.shtml)
-- 2026-06-29 16:31 - [时光音乐会](https://www.blog.minike.top/Article/details/6417308484.shtml)
-- 2026-06-29 16:25 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/177803.shtml)
-- 2026-06-29 16:14 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/688965.shtml)
-- 2026-06-29 16:33 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/581168200.shtml)
-- 2026-06-29 16:27 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/2282512567.shtml)
+- 2026-06-29 16:26 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/6403838.shtml)
+- 2026-06-29 16:42 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/239831019.shtml)
+- 2026-06-29 16:19 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/949288.shtml)
+- 2026-06-29 16:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/423662604261.shtml)
+- 2026-06-29 16:20 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/28030929.shtml)
+- 2026-06-29 16:47 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/3293085707.shtml)
+- 2026-06-29 16:47 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/76571806.shtml)
+- 2026-06-29 16:28 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/656470084148.shtml)
+- 2026-06-29 16:27 - [王楚钦3-0周启豪 晋级32强](http://www.blog.minike.top/Article/details/8793997863.shtml)
+- 2026-06-29 16:44 - [天道](https://www.share.minike.top/Article/details/22582.shtml)
+- 2026-06-29 16:18 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/92881813167.shtml)
+- 2026-06-29 16:28 - [众星恭喜吴建豪](https://www.blog.kurohicncr.top/Article/details/79383853448.shtml)
+- 2026-06-29 16:44 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.kurohicncr.top/Article/details/19600600611.shtml)
+- 2026-06-29 16:21 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/079253580141.shtml)
+- 2026-06-29 16:47 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/4193777.shtml)

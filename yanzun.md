@@ -1,59 +1,58 @@
-# 博雷顿：博雷顿节能获3800万元增资 将聚焦于矿业相关业务
+# 梁锦松出任西湖大学校董 希望与更年轻的人一起奋斗
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-博雷顿（01333）公布，于2026年4月21日，公司的非全资附属公司博雷顿智电、间接附属公司博雷顿节能与投资人订立了一份增资协议。根据增资协议，陈方明先生将以货币出资人民币1，425万元，周曦先生将以货币出资人民币 2，125万元，熊重任先生将以货币出资人民币250万元，合计以货币出资人民币 3，800万元对博雷顿节能进行增资扩股。 本次增资前，博雷顿节能为公司的间接附属公司
+中新网杭州6月27日电(林波)6月27日，据西湖大学官网消息，香港特别行政区前财政司司长、南丰集团董事长、新风天域集团董事长兼联合创始人梁锦松，正式加入西湖大学董事会。 2018年2月，西湖大学获教育部批准成立。这是新中国第一所社会力量举办、国家重点支持的新型研究型大学，遵循“高起点、小而精、研究型”的办学定位。 西湖大学校长施一公这样定义他心中的顶尖大学——“大部分人认为，大
 
 ## 正文
 
-博雷顿（01333）公布，于2026年4月21日，公司的非全资附属公司博雷顿智电、间接附属公司博雷顿节能与投资人订立了一份增资协议。
+中新网杭州6月27日电(林波)6月27日，据西湖大学官网消息，香港特别行政区前财政司司长、南丰集团董事长、新风天域集团董事长兼联合创始人梁锦松，正式加入西湖大学董事会。
 
-根据增资协议，陈方明先生将以货币出资人民币1，425万元，周曦先生将以货币出资人民币 2，125万元，熊重任先生将以货币出资人民币250万元，合计以货币出资人民币 3，800万元对博雷顿节能进行增资扩股。
+2018年2月，西湖大学获教育部批准成立。
 
-本次增资前，博雷顿节能为公司的间接附属公司。
+这是新中国第一所社会力量举办、国家重点支持的新型研究型大学，遵循“高起点、小而精、研究型”的办学定位。
 
-本次增资完成后，博雷顿节能的注册资本将由人民币1，200万元增至人民币5，000万元，博雷顿智电于目标公司的持股比例将由100%下降至24%，目标公司将不再为公司的附属公司，其财务业绩将不再计入集团合并财务报表。
+西湖大学校长施一公这样定义他心中的顶尖大学——“大部分人认为，大学之大是规模、社会影响之大。
 
-公告称，本增资符合集团及目标公司的战略发展规划，有助于目标公司增强资本实力、优化股权结构及公司治理。
+其实大学之大是大师之大、学术之大，是代表人类在今天探索之大。
 
-引入投资人作为战略伙伴，将为目标公司带来更多产业资源（包括：矿区运营、矿权获取以及矿业人才）和资金支持，有利于其聚焦矿业领域的业务发展及市场开拓，提升独立发展能力，矿区市场的开拓有利于公司零碳矿山解决方案的导入示范，进而形成明显的协同效应。
+” 梁锦松表示，他与施一公相识已超过十年。
 
-责任编辑：卢昱君
+“施一公校长给我的印象很深，很聪明，但是也非常谦逊和温和。
+
+” 梁锦松曾出任香港特别行政区财政司司长，也是香港教育统筹委员会前主席、大学教育资助委员会(UGC)前主席。
 
 ## 相关推荐
 
-- 2026-06-29 16:25 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 16:22 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 16:41 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 16:13 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 16:36 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 16:23 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 16:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 16:17 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 16:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 16:26 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 16:39 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 16:13 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 16:21 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 16:30 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 16:31 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 16:30 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 16:31 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 16:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 16:35 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 16:29 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 16:30 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 16:27 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 16:46 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 16:28 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 16:38 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 16:47 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 16:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:41 - [端午节加班工资应该怎么算](https://www.share.kurohicncr.top/Article/details/06570881997.shtml)
-- 2026-06-29 16:29 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/72128684.shtml)
-- 2026-06-29 16:20 - [日本前锋言论激怒巴西](http://www.blog.kurohicncr.top/Article/details/2395035.shtml)
-- 2026-06-29 16:30 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/25614.shtml)
-- 2026-06-29 16:35 - [疑似吴建豪老婆正脸照](http://www.blog.kurohicncr.top/Article/details/79189.shtml)
-- 2026-06-29 16:34 - [人形机器人](http://www.share.minike.top/Article/details/10499502662.shtml)
-- 2026-06-29 16:36 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.kurohicncr.top/Article/details/705630839998.shtml)
-- 2026-06-29 16:41 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/16726.shtml)
-- 2026-06-29 16:39 - [省市招考专家解读山西高考志愿政策](http://www.blog.minike.top/Article/details/68751776337.shtml)
-- 2026-06-29 16:30 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/45632.shtml)
-- 2026-06-29 16:34 - [警方回应东鹏饮料董事长不喝东鹏](https://www.blog.kurohicncr.top/Article/details/6894759557.shtml)
-- 2026-06-29 16:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/2370327206.shtml)
-- 2026-06-29 16:13 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/167212193289.shtml)
-- 2026-06-29 16:38 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/727482.shtml)
-- 2026-06-29 16:31 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/313622.shtml)
+- 2026-06-29 16:29 - [媒体：高考后消费应量力而行适度有度](http://www.share.minike.top/Article/details/289798.shtml)
+- 2026-06-29 16:31 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/329792007.shtml)
+- 2026-06-29 16:34 - [BB大王横店拍戏](http://www.blog.kurohicncr.top/Article/details/3366306.shtml)
+- 2026-06-29 16:27 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/4840456.shtml)
+- 2026-06-29 16:36 - [四川宜宾地震](http://www.blog.minike.top/Article/details/3492201.shtml)
+- 2026-06-29 16:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/439291606.shtml)
+- 2026-06-29 16:38 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/290615111756.shtml)
+- 2026-06-29 16:43 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/59835.shtml)
+- 2026-06-29 16:22 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/5753608262.shtml)
+- 2026-06-29 16:37 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/923320733128.shtml)
+- 2026-06-29 16:32 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/74103.shtml)
+- 2026-06-29 16:36 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/14378185.shtml)
+- 2026-06-29 16:29 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/25544605587.shtml)
+- 2026-06-29 16:34 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/817256.shtml)
+- 2026-06-29 16:22 - [范志毅看好日本淘汰巴西](https://www.share.minike.top/Article/details/2650789544.shtml)

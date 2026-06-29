@@ -1,56 +1,59 @@
-# 一只股票拖垮利润表：国盛证券一季度利润蒸发97.91%，今日跌停
+# 麦肯锡：中国是“全球最硬核的健身房”
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-专题：国盛证券被HTT拖垮，一季度净利暴跌近九成 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月20日，国盛证券披露2026年第一季度业绩快报：实现营业总收入2.96亿元，同比下降28.82%；归母净利润仅146.87万元，同比暴跌97.91%；扣非净利润276.70万元，同比下降95.89%。今日公司股价应声跌停，拖累证券板块整体承压。 一季度净
+经济热点快评丨麦肯锡：中国是“全球最硬核的健身房” 随着全球市场不确定增加、供应链重构，不少跨国企业寻找可替代的制造与消费市场，试图寻找 “下一个中国”。不过，麦肯锡中国区主席倪以理近日接受美国《财富》杂志采访时表示：“你听到了各种各样的声音。我们正试图从中国分散风险。我们正试图降低对中国的依赖。但你找不到另一个中国。如今世界上根本不存在第二个中国。”倪以理还将中国形容为“全球
 
 ## 正文
 
-专题：国盛证券被HTT拖垮，一季度净利暴跌近九成 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+经济热点快评丨麦肯锡：中国是“全球最硬核的健身房” 随着全球市场不确定增加、供应链重构，不少跨国企业寻找可替代的制造与消费市场，试图寻找 “下一个中国”。
 
-4月20日，国盛证券披露2026年第一季度业绩快报：实现营业总收入2.96亿元，同比下降28.82%；归母净利润仅146.87万元，同比暴跌97.91%；扣非净利润276.70万元，同比下降95.89%。
+不过，麦肯锡中国区主席倪以理近日接受美国《财富》杂志采访时表示：“你听到了各种各样的声音。
 
-今日公司股价应声跌停，拖累证券板块整体承压。
+我们正试图从中国分散风险。
 
-一季度净利暴跌近九成，一只股票“拖垮”利润表 国盛证券在公告中明确表示，业绩大幅下滑的主要原因系“公司子公司本期持有的HTT股票受市值波动影响，大幅减少公司利润总额及净利润所致”。
+我们正试图降低对中国的依赖。
 
-HTT即原纽交所上市公司趣店（Qudian），后者于2025年12月22日更名为High Templar Tech Limited，股票代码同步变更为HTT。
+但你找不到另一个中国。
 
-2026年第一季度，HTT股价从2025年末的3.55美元跌至3月末的1.94美元，区间跌幅约45.35%，接近腰斩。
+如今世界上根本不存在第二个中国。
 
-截至4月20日，股价小幅反弹至2.53美元，仍处历史低位。
+”倪以理还将中国形容为“全球最硬核的健身房”，这里磨炼出了极具竞争力的企业。
 
-目前国盛证券持有HTT约1263.62万股，持股比例约7.5%，为第二大股东。
+这句话并非否定其他经济体的发展潜力，而是指全球范围内，没有国家能完美复刻中国完整的产业、市场与创新综合优势，未来全球增长、产业创新与投资机遇的主要市场中，中国依然是必选项。
 
 ## 相关推荐
 
-- 2026-06-29 16:26 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 16:39 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 16:17 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 16:39 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 16:18 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 16:38 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 16:21 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 16:22 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 16:29 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 16:20 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 16:38 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 16:23 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 16:18 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 16:21 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 16:38 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 16:29 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 16:21 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 16:20 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 16:43 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 16:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 16:39 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 16:40 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 16:26 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:35 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/05366153785.shtml)
-- 2026-06-29 16:14 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/3070849.shtml)
-- 2026-06-29 16:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/72853758788.shtml)
-- 2026-06-29 16:32 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.minike.top/Article/details/037784882245.shtml)
-- 2026-06-29 16:30 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/353078404.shtml)
-- 2026-06-29 16:14 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/9471254747.shtml)
-- 2026-06-29 16:32 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/997798418.shtml)
-- 2026-06-29 16:33 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/8951907781.shtml)
-- 2026-06-29 16:41 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/79062425767.shtml)
-- 2026-06-29 16:16 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/956901580857.shtml)
-- 2026-06-29 16:35 - [王安宇尊重田曦薇的一切选择](https://www.share.minike.top/Article/details/417580981650.shtml)
-- 2026-06-29 16:30 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/85482774.shtml)
-- 2026-06-29 16:18 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/226350072118.shtml)
-- 2026-06-29 16:16 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/47264.shtml)
-- 2026-06-29 16:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/773391783.shtml)
+- 2026-06-29 16:28 - [斗破苍穹](https://www.blog.minike.top/Article/details/930214718245.shtml)
+- 2026-06-29 16:47 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/72953666.shtml)
+- 2026-06-29 16:26 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/98267.shtml)
+- 2026-06-29 16:30 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/66213989347.shtml)
+- 2026-06-29 16:38 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/852867797788.shtml)
+- 2026-06-29 16:41 - [普京介绍前线战事](https://www.share.minike.top/Article/details/39292.shtml)
+- 2026-06-29 16:24 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/479464.shtml)
+- 2026-06-29 16:36 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/385387211.shtml)
+- 2026-06-29 16:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/380787.shtml)
+- 2026-06-29 16:20 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/520888.shtml)
+- 2026-06-29 16:39 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/558029602.shtml)
+- 2026-06-29 16:29 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/61315.shtml)
+- 2026-06-29 16:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/035550414.shtml)
+- 2026-06-29 16:30 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/09763909143.shtml)
+- 2026-06-29 16:30 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/33482284.shtml)

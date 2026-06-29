@@ -1,58 +1,54 @@
-# 工信部最新发声！事关算电协同！电力ETF华宝（159146）悄然吸金超3亿元！基金经理火线解读！
+# 习近平会见洪森：共守和平、共谋发展、共创繁荣，扎实推进中柬命运共同体建设
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-周二（4月21日），电力板块表现活跃，中证全指电力公用事业指数收涨逾1%。成份股大面积飘红，浙江新能、宝新能源、粤电力A、广安爱众等4股涨停封板，晋控电力、陕西能源、乐山电力、江苏新能等多股涨超5%。 热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）场内收涨1.49%站上所有均线，放量成交近4000万元！全天溢价交易，买盘资金尤为活跃，单日获净申购105
+6月26日上午，中共中央总书记、国家主席习近平在人民大会堂会见柬埔寨人民党主席、参议院主席洪森。 习近平指出，中方一贯将柬埔寨作为周边外交重点方向，坚定支持柬埔寨维护国家主权和安全、走出符合自身国情的发展道路。中方愿同柬方一道，共守和平、共谋发展、共创繁荣，扎实推进中柬命运共同体建设，为推动构建人类命运共同体树立典范。 洪森说：“感谢您刚才热情洋溢的欢迎致辞，我也完全赞同您对两
 
 ## 正文
 
-周二（4月21日），电力板块表现活跃，中证全指电力公用事业指数收涨逾1%。
+6月26日上午，中共中央总书记、国家主席习近平在人民大会堂会见柬埔寨人民党主席、参议院主席洪森。
 
-成份股大面积飘红，浙江新能、宝新能源、粤电力A、广安爱众等4股涨停封板，晋控电力、陕西能源、乐山电力、江苏新能等多股涨超5%。
+习近平指出，中方一贯将柬埔寨作为周边外交重点方向，坚定支持柬埔寨维护国家主权和安全、走出符合自身国情的发展道路。
 
-热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）场内收涨1.49%站上所有均线，放量成交近4000万元！
+中方愿同柬方一道，共守和平、共谋发展、共创繁荣，扎实推进中柬命运共同体建设，为推动构建人类命运共同体树立典范。
 
-全天溢价交易，买盘资金尤为活跃，单日获净申购1050万份，此前已悄然吸金超3亿元。
+洪森说：“感谢您刚才热情洋溢的欢迎致辞，我也完全赞同您对两国铁杆友谊以及携手推动构建新时代全天候柬中命运共同体的积极评价。
 
-消息面上，证券时报报道称，4月21日，国新办举行新闻发布会介绍2026年一季度工业和信息化发展情况，工信部副部长张云明表示，近年来，算力基础设施已成为驱动人工智能发展的关键底座。
+我非常高兴能同您再次见面，您是柬埔寨人民的老朋友、真朋友，也是最值得信赖倚重的朋友。
 
-目前工信部正在开展算电协同政策研究和标准制定。
-
-电力ETF华宝（159146）基金经理曹旭辰指出，电力板块近期表现较强主要受“算电协同”政策预期驱动，当前行情仍以短线资金博弈为主，但未来算电协同方向的政策催化有望持续增多。
-
-此外，电力板块后市真正的机会或在于基本面逻辑的切换。
+” 总监制丨申勇 监制丨龚雪辉 记者丨王鹏飞 卢心雨 邢彬 马喆 摄像丨李铮 马超 段德文 李增仁 张宇 赵龙 录音丨程爱华 翻译丨和平
 
 ## 相关推荐
 
-- 2026-06-29 16:25 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 16:21 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 16:35 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 16:36 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 16:18 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-29 16:21 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 16:41 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 16:18 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 16:34 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 16:14 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 16:30 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 16:26 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 16:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 16:42 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 16:42 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 16:35 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 16:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 16:18 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 16:30 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 16:26 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 16:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 16:22 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 16:25 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 16:42 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:19 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/63774520290.shtml)
-- 2026-06-29 16:40 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/15053102876.shtml)
-- 2026-06-29 16:14 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/662774321.shtml)
-- 2026-06-29 16:14 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/765803834.shtml)
-- 2026-06-29 16:14 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/54606.shtml)
-- 2026-06-29 16:19 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/437129093.shtml)
-- 2026-06-29 16:28 - [周生如故](https://www.share.minike.top/Article/details/80565.shtml)
-- 2026-06-29 16:27 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.minike.top/Article/details/983107786381.shtml)
-- 2026-06-29 16:39 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/6972897908.shtml)
-- 2026-06-29 16:17 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/16152729.shtml)
-- 2026-06-29 16:41 - [重度抑郁女孩没钱去做心理咨询](https://www.share.minike.top/Article/details/923965.shtml)
-- 2026-06-29 16:15 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/91914031.shtml)
-- 2026-06-29 16:40 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/5116581.shtml)
-- 2026-06-29 16:15 - [AG 宫斗](http://www.blog.minike.top/Article/details/7239138926.shtml)
-- 2026-06-29 16:31 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/49095.shtml)
+- 2026-06-29 16:45 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/6404950.shtml)
+- 2026-06-29 16:39 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/969437544.shtml)
+- 2026-06-29 16:22 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/29981438.shtml)
+- 2026-06-29 16:38 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/2470212.shtml)
+- 2026-06-29 16:47 - [光与夜之恋](https://www.share.minike.top/Article/details/540798257192.shtml)
+- 2026-06-29 16:18 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/018267273.shtml)
+- 2026-06-29 16:46 - [送你一朵小红花](http://www.share.minike.top/Article/details/965180.shtml)
+- 2026-06-29 16:32 - [沙丘](https://www.share.kurohicncr.top/Article/details/661870.shtml)
+- 2026-06-29 16:42 - [抓特务票房破亿](https://www.share.kurohicncr.top/Article/details/360123006.shtml)
+- 2026-06-29 16:30 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/2815705049.shtml)
+- 2026-06-29 16:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/2588407.shtml)
+- 2026-06-29 16:18 - [美国大满贯首日国乒主力均取胜](https://www.share.minike.top/Article/details/71114508892.shtml)
+- 2026-06-29 16:32 - [光与夜之恋](https://www.share.minike.top/Article/details/714573224801.shtml)
+- 2026-06-29 16:31 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/34441.shtml)
+- 2026-06-29 16:28 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/8530612.shtml)

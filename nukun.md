@@ -1,58 +1,60 @@
-# 印尼三一一大学孔院举办“国际中文日”主题活动
+# 郑丽文与唐湘龙对谈访陆感受：大陆高度的文化自信超乎预期、令人感动
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-中新网雅加达4月21日电 (记者 李志全)印度尼西亚三一一大学孔子学院(简称“三一一孔院”)21日举办“古蜀之光，点亮梭罗之梦”主题活动。50余名印尼青年学子通过一场跨越时空的创意对话，感受中华文化的独特魅力。 活动以三星堆文化为切入点，将古蜀文明符号与印尼当代青年成长愿景相结合，构建起一场别具匠心的文化体验。三一一孔院中方院长侯梦瑶以三星堆“千里眼”“顺风耳”为喻，寄语青年学
+中新网6月26日电 (燕新台)据台媒报道，中国国民党主席郑丽文近日接受台湾时事评论员唐湘龙采访。她在回顾此前的大陆之行时感慨，大陆展现出的高度文化自信“超乎我很多的预期跟期待”。 郑丽文表示，大陆不仅建成了世界第一的国家大剧院，在科技领域也走在世界最前沿，而在生活细节层面，更呈现出一种全面的“文艺的复兴”。 她特别提到，大陆方面在故宫请他们喝下午茶，喝的是手冲咖啡，吃的是西式甜
 
 ## 正文
 
-中新网雅加达4月21日电 (记者 李志全)印度尼西亚三一一大学孔子学院(简称“三一一孔院”)21日举办“古蜀之光，点亮梭罗之梦”主题活动。
+中新网6月26日电 (燕新台)据台媒报道，中国国民党主席郑丽文近日接受台湾时事评论员唐湘龙采访。
 
-50余名印尼青年学子通过一场跨越时空的创意对话，感受中华文化的独特魅力。
+她在回顾此前的大陆之行时感慨，大陆展现出的高度文化自信“超乎我很多的预期跟期待”。
 
-活动以三星堆文化为切入点，将古蜀文明符号与印尼当代青年成长愿景相结合，构建起一场别具匠心的文化体验。
+郑丽文表示，大陆不仅建成了世界第一的国家大剧院，在科技领域也走在世界最前沿，而在生活细节层面，更呈现出一种全面的“文艺的复兴”。
 
-三一一孔院中方院长侯梦瑶以三星堆“千里眼”“顺风耳”为喻，寄语青年学子：“中文就是当代的‘千里眼’和‘顺风耳’，它能帮助你们看见更多彩的未来，倾听更广阔的世界。
+她特别提到，大陆方面在故宫请他们喝下午茶，喝的是手冲咖啡，吃的是西式甜点。
 
-” 活动现场宣读了来自三一一孔院中方合作院校——中国西华大学的“梦想邀请信”。
+在郑丽文看来，敢于在故宫这样的空间里用现代的方式接待客人，本身就说明了一种自信和底气。
 
-正在该校参与“2+2”本科双学位项目的印尼留学生通过视频连线，分享在成都的学习与生活体验，向在场学子发出“追梦之约”。
+唐湘龙在访谈中也直言，“最大的感动就是中国人的自信在大陆极为丰沛”。
 
-在互动环节中，学生们开启以三星堆文化为主题设计的“神秘盲盒”，一件件融合古蜀元素的文创作品引发阵阵惊叹。
+据此前报道，郑丽文于4月7日至12日率国民党访问团到江苏、上海、北京参观访问。
 
-学生围绕“医生”“记者”“教师”等职业理想展开创作，将文化体验转化为具象表达。
+这是国民党主席时隔10年再次率团访问大陆。
 
 ## 相关推荐
 
-- 2026-06-29 16:36 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 16:16 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 16:18 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 16:32 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 16:32 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 16:24 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 16:17 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 16:29 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 16:28 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 16:13 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 16:31 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 16:28 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 16:27 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 16:38 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 16:39 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 16:27 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 16:32 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 16:43 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 16:32 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 16:31 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 16:30 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 16:31 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 16:38 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 16:21 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 16:45 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 16:24 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:27 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/626761158960.shtml)
-- 2026-06-29 16:21 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/30933.shtml)
-- 2026-06-29 16:30 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/210088.shtml)
-- 2026-06-29 16:13 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/418136859199.shtml)
-- 2026-06-29 16:17 - [美人鱼](http://www.blog.minike.top/Article/details/799900749.shtml)
-- 2026-06-29 16:22 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/42592856235.shtml)
-- 2026-06-29 16:19 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/739447.shtml)
-- 2026-06-29 16:29 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/93115276.shtml)
-- 2026-06-29 16:35 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/780406.shtml)
-- 2026-06-29 16:12 - [逃狱兄弟](https://www.blog.minike.top/Article/details/8197279.shtml)
-- 2026-06-29 16:27 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/668427.shtml)
-- 2026-06-29 16:38 - [恋与深空发放补偿未得到玩家认可](https://www.blog.minike.top/Article/details/958916060353.shtml)
-- 2026-06-29 16:34 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/91834960804.shtml)
-- 2026-06-29 16:39 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/9501692194.shtml)
-- 2026-06-29 16:34 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/95122858.shtml)
+- 2026-06-29 16:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/694430.shtml)
+- 2026-06-29 16:36 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/9725429.shtml)
+- 2026-06-29 16:30 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/006265117747.shtml)
+- 2026-06-29 16:19 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/15655.shtml)
+- 2026-06-29 16:39 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/684845943.shtml)
+- 2026-06-29 16:41 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/795022.shtml)
+- 2026-06-29 16:46 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/6405186.shtml)
+- 2026-06-29 16:43 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/57922830.shtml)
+- 2026-06-29 16:33 - [TFING全员黑西装](https://www.share.minike.top/Article/details/2651354.shtml)
+- 2026-06-29 16:40 - [男孩复读一年减重20斤涨分111分](http://www.share.minike.top/Article/details/132286528161.shtml)
+- 2026-06-29 16:34 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/73442.shtml)
+- 2026-06-29 16:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/201236.shtml)
+- 2026-06-29 16:24 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.minike.top/Article/details/027869291.shtml)
+- 2026-06-29 16:36 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/22251284113.shtml)
+- 2026-06-29 16:47 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.kurohicncr.top/Article/details/676118.shtml)

@@ -1,59 +1,54 @@
-# 闪送2025年业绩“扭亏为盈”：专注C端“一对一”模式见效，但规模瓶颈与增长停滞风险浮现
+# 广东落地全国首批民营企业再贷款线上交易业务
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-主打“一对一急送”高端定位的即时配送平台闪送（BingEx Limited， FLX.O），其2025年财务表现呈现出与行业巨头截然不同的轨迹。根据其发布的业绩，公司2025年总收入为39.92亿元，同比下滑10.7%；但净利润成功扭亏为盈，录得1.09亿元，而2024年同期为净亏损1.46亿元。这份“增收未增利”却“减收反增利”的财报，清晰刻画了闪送在差异化赛道上的取舍与面临
+中新网广州6月26日电 (记者 许青青)据中国人民银行广东省分行介绍，中国人民银行25日正式上线民营企业再贷款线上交易业务，当日，中国人民银行广东省分行指导辖内阳江市分行、云浮市分行成功以线上交易方式为4家地方法人金融机构发放民营企业再贷款，业务类型涵盖信用方式和券款对付结算(DVP)方式，标志着民营企业再贷款线上交易业务在广东率先落地。据介绍，民营企业再贷款线上交易业务依托全
 
 ## 正文
 
-主打“一对一急送”高端定位的即时配送平台闪送（BingEx Limited， FLX.O），其2025年财务表现呈现出与行业巨头截然不同的轨迹。
+中新网广州6月26日电 (记者 许青青)据中国人民银行广东省分行介绍，中国人民银行25日正式上线民营企业再贷款线上交易业务，当日，中国人民银行广东省分行指导辖内阳江市分行、云浮市分行成功以线上交易方式为4家地方法人金融机构发放民营企业再贷款，业务类型涵盖信用方式和券款对付结算(DVP)方式，标志着民营企业再贷款线上交易业务在广东率先落地。
 
-根据其发布的业绩，公司2025年总收入为39.92亿元，同比下滑10.7%；但净利润成功扭亏为盈，录得1.09亿元，而2024年同期为净亏损1.46亿元。
+据介绍，民营企业再贷款线上交易业务依托全国银行间同业拆借中心系统完成合同签署、债券质押、资金发放和收回，业务办理效率显著提升。
 
-这份“增收未增利”却“减收反增利”的财报，清晰刻画了闪送在差异化赛道上的取舍与面临的挑战。
+传统线下2-3个工作日的业务办理周期最快压缩至10分钟左右办结，极大提升央行政策资金投放效能。
 
-“舍规模、保利润”的战略选择 闪送业绩的核心特征是：收入收缩，利润释放。
+为扎实推动民营企业再贷款线上交易业务在广东顺利落地，中国人民银行广东省分行尽早谋划，多措并举。
 
-营收下降主要源于整体订单规模的调整。
+其中，协助总行推进再贷款线上交易系统建设，围绕“授信额度管理”等核心功能提出业务需求和开发建议，作为民营企业再贷款线上交易试点行之一，组织辖内3家地方法人金融机构参与联调测试，强化业务落地保障。
 
-与之相对，公司通过专注于高价值的“一对一专人直送”模式，提升了订单的变现效率和利润率。
+中国人民银行广东省分行表示，将用好民营企业再贷款线上交易模式，发挥结构性货币政策工具的牵引带动作用，引导地方法人金融机构不断优化金融服务，满足民营企业多元化的融资需求，以数字化赋能货币政策落地见效，助力广东民营经济高质量发展。
 
-首席财务官Luke Tang在业绩声明中强调，是“差异化的、按需专送模式和专注于运营效率”使得公司在激烈竞争中保持了稳定表现。
-
-这表明，闪送主动放弃了在广谱、低价市场与美团、顺丰同城等巨头烧钱血拼，转而收缩战线，深耕对价格相对不敏感、对服务质量和安全性要求更高的细分市场，从而实现了盈利能力的逆转。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 16:22 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 16:22 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 16:17 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 16:41 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 16:24 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 16:36 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 16:33 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 16:31 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 16:41 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 16:14 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 16:39 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 16:41 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 16:43 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 16:19 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 16:48 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 16:26 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 16:28 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 16:46 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 16:26 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 16:33 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 16:41 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 16:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:20 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/27395212.shtml)
-- 2026-06-29 16:35 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/8042357.shtml)
-- 2026-06-29 16:12 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/311136.shtml)
-- 2026-06-29 16:16 - [起风了](https://www.blog.minike.top/Article/details/56099454.shtml)
-- 2026-06-29 16:22 - [德国VS巴拉圭前瞻](http://www.share.minike.top/Article/details/527538.shtml)
-- 2026-06-29 16:25 - [评论员：日菲勾连各有盘算](http://www.share.minike.top/Article/details/945920438722.shtml)
-- 2026-06-29 16:29 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/64765980451.shtml)
-- 2026-06-29 16:32 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.kurohicncr.top/Article/details/943308902395.shtml)
-- 2026-06-29 16:22 - [人类对空调和其他家电有多双标](https://www.blog.kurohicncr.top/Article/details/632512792126.shtml)
-- 2026-06-29 16:39 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/567047181.shtml)
-- 2026-06-29 16:36 - [媒体：中国田径压力与期待并存](http://www.share.kurohicncr.top/Article/details/418519397452.shtml)
-- 2026-06-29 16:12 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/2156702156.shtml)
-- 2026-06-29 16:17 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/23969144280.shtml)
-- 2026-06-29 16:36 - [斛珠夫人](http://www.blog.minike.top/Article/details/2035119279.shtml)
-- 2026-06-29 16:25 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/1511404265.shtml)
+- 2026-06-29 16:38 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/80292828154.shtml)
+- 2026-06-29 16:29 - [抓特务票房破亿](http://www.share.kurohicncr.top/Article/details/3042122140.shtml)
+- 2026-06-29 16:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/51787243640.shtml)
+- 2026-06-29 16:18 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/57333474.shtml)
+- 2026-06-29 16:22 - [德国VS巴拉圭前瞻](http://www.blog.minike.top/Article/details/5793080.shtml)
+- 2026-06-29 16:34 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/833578811662.shtml)
+- 2026-06-29 16:42 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/39715060823.shtml)
+- 2026-06-29 16:34 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/248918732736.shtml)
+- 2026-06-29 16:25 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/67503201562.shtml)
+- 2026-06-29 16:25 - [金牌调解](https://www.blog.minike.top/Article/details/603111276209.shtml)
+- 2026-06-29 16:25 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/3019596.shtml)
+- 2026-06-29 16:45 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/8064915225.shtml)
+- 2026-06-29 16:22 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/0021257583.shtml)
+- 2026-06-29 16:28 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/3809346.shtml)
+- 2026-06-29 16:48 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/685228035889.shtml)

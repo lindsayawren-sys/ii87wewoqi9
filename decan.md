@@ -1,60 +1,56 @@
-# 西藏社会主义学院开展民族团结进步法专题讲座
+# 白鸽在线IPO获242倍超额认购：资本先热了，利润还没来
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-中新网拉萨4月21日电 (记者 赵朗)实现中华民族伟大复兴的法治保障——《中华人民共和国民族团结进步促进法》专题讲座20日在拉萨市举行。 全国人大民族委员会法案室原主任彭建华受西藏社会主义学院《凝聚讲坛》邀请向该院干部职工、学员及宗教界代表进行了授课。会上，他介绍，这部新时代民族工作领域的基本法律，是新时代党的民族理论和历史性成就的法治化成果，是实现中华民族伟大复兴的法治保障。
+来源：腾讯财经 文|张翊然 编辑|刘鹏 三次递表冲击港股，带着“AI场景险保险科技第一股”的概念光环，白鸽在线（02672.HK）将于6月29日正式登陆港交所主板。 公告显示，白鸽在线本次全球发售3334.44万H股，其中香港公开发售333.46万H股，占比10%。最终发售价定为每股15.60港元，本次全球发售所得款项总额约为5.20亿港元，扣除估计应付上市开支后，募资净额约为
 
 ## 正文
 
-中新网拉萨4月21日电 (记者 赵朗)实现中华民族伟大复兴的法治保障——《中华人民共和国民族团结进步促进法》专题讲座20日在拉萨市举行。
+来源：腾讯财经 文|张翊然 编辑|刘鹏 三次递表冲击港股，带着“AI场景险保险科技第一股”的概念光环，白鸽在线（02672.HK）将于6月29日正式登陆港交所主板。
 
-全国人大民族委员会法案室原主任彭建华受西藏社会主义学院《凝聚讲坛》邀请向该院干部职工、学员及宗教界代表进行了授课。
+公告显示，白鸽在线本次全球发售3334.44万H股，其中香港公开发售333.46万H股，占比10%。
 
-会上，他介绍，这部新时代民族工作领域的基本法律，是新时代党的民族理论和历史性成就的法治化成果，是实现中华民族伟大复兴的法治保障。
+最终发售价定为每股15.60港元，本次全球发售所得款项总额约为5.20亿港元，扣除估计应付上市开支后，募资净额约为4.66亿港元。
 
-他表示，该法律第二章作出具体规定，明确以社会主义核心价值观为引领，引导各族群众坚定“五个认同”、树立正确“五观”。
+香港公开发售接获44599份有效申请，超额认购242.05倍。
 
-对增进中华文化认同和构建中华文明标识体系作出具体规定。
+尽管超购突破100倍门槛，但公司未触发回拨机制，公开发售份额仍维持10%，国际发售获2.44倍认购，承配人95名。
 
-明确规定国家全面推广普及国家通用语言文字，分别对教育教学用语用字、公务用语用字、公共场合使用国家通用语言文字等方面作出具体规定。
+6月26日暗盘交易显示，白鸽在线收报59.70港元，较招股价15.60港元上涨282.69%，盘中最高触及70.05港元，每手账面盈利8820港元。
 
-彭建华还说，新时代制定民族团结进步促进法，就是要发挥好法治固根本、稳预期、利长远的作用，维护社会主义法治统一和尊严，用法律保障民族团结、维护各族群众合法权益，依法治理民族事务，不断提高民族事务治理能力和水平。
+不过，本次IPO仅引入两名基石投资者，合计认购金额2000万港元，约占全球发售规模的3.3%至3.8%。
 
-西藏羊日岗寺帕洛活佛是藏传佛教直贡噶举派“米拉日巴道歌”第42代传人，同时也是西藏佛学院的经师。
+图源东方财富App 但热闹的认购和暗盘涨幅，并不能完全遮住白鸽在线的基本面疑问。
 
 ## 相关推荐
 
-- 2026-06-29 16:19 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 16:23 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 16:19 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 16:31 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 16:41 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 16:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 16:27 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 16:17 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 16:36 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 16:17 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 16:20 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 16:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 16:40 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 16:17 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 16:44 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 16:22 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 16:30 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 16:37 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 16:43 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 16:36 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 16:45 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 16:43 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 16:31 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 16:42 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:19 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/43750.shtml)
-- 2026-06-29 16:22 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/249118.shtml)
-- 2026-06-29 16:22 - [范志毅看好日本淘汰巴西](http://www.share.kurohicncr.top/Article/details/019780970.shtml)
-- 2026-06-29 16:20 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/355173.shtml)
-- 2026-06-29 16:28 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/29442.shtml)
-- 2026-06-29 16:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/134202285372.shtml)
-- 2026-06-29 16:17 - [差点没看懂白鹿丞磊这段意识流](https://www.share.kurohicncr.top/Article/details/5862840.shtml)
-- 2026-06-29 16:20 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/058819.shtml)
-- 2026-06-29 16:28 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/46695020.shtml)
-- 2026-06-29 16:37 - [第一炉香](https://www.share.kurohicncr.top/Article/details/346302031765.shtml)
-- 2026-06-29 16:33 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/43287523325.shtml)
-- 2026-06-29 16:40 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/2691498.shtml)
-- 2026-06-29 16:17 - [金刚川](https://www.share.minike.top/Article/details/207230220249.shtml)
-- 2026-06-29 16:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/71636695.shtml)
-- 2026-06-29 16:27 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.kurohicncr.top/Article/details/683759662113.shtml)
+- 2026-06-29 16:27 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/8290667.shtml)
+- 2026-06-29 16:21 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/62768336865.shtml)
+- 2026-06-29 16:23 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/7357391.shtml)
+- 2026-06-29 16:23 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/79652566265.shtml)
+- 2026-06-29 16:25 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/83670412865.shtml)
+- 2026-06-29 16:25 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/02480775210.shtml)
+- 2026-06-29 16:38 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/939983.shtml)
+- 2026-06-29 16:35 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/558859653644.shtml)
+- 2026-06-29 16:21 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/232271.shtml)
+- 2026-06-29 16:39 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/40208.shtml)
+- 2026-06-29 16:40 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.minike.top/Article/details/829838019.shtml)
+- 2026-06-29 16:18 - [BB大王横店拍戏](http://www.blog.kurohicncr.top/Article/details/830966448.shtml)
+- 2026-06-29 16:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/3905678.shtml)
+- 2026-06-29 16:40 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/606996.shtml)
+- 2026-06-29 16:47 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/275860.shtml)

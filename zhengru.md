@@ -1,56 +1,59 @@
-# 马斯克无视法国检方传唤，科技巨头与欧洲裂痕再加深
+# 光纤板块集体大跌
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-埃隆·马斯克与欧洲监管机构之间的紧张关系再度升级。这位科技亿万富翁周一被曝无视法国检方的正式传唤，拒绝就涉嫌操纵社交媒体算法的指控出庭作证，此举进一步加剧了欧洲对大型科技公司的警惕情绪。 无视司法传唤 法国巴黎检察机关数月前对马斯克及其旗下社交平台X发起调查，指控平台通过算法机制系统性放大特定内容，涉嫌市场操纵及误导用户。检方多次尝试安排问询，但马斯克始终未予回应。法国司法消息
+早盘，光纤概念持续调整。特发信息（000070）封跌停，截至午间收盘跌停板上有7.4万手封单，报22.29元/股。 多只光纤概念股集体大跌。截至午间收盘，杭电股份、中天科技等多股跌停，长进光子跌超12%，长盈通跌近10%。 今年以来光纤板块涨幅惊人，是A股表现最强的板块之一。本轮暴涨的核心驱动力是AI算力基建带来的光纤需求爆发，光纤价格今年以来持续暴涨。而作为光纤制造“母体”的
 
 ## 正文
 
-埃隆·马斯克与欧洲监管机构之间的紧张关系再度升级。
+早盘，光纤概念持续调整。
 
-这位科技亿万富翁周一被曝无视法国检方的正式传唤，拒绝就涉嫌操纵社交媒体算法的指控出庭作证，此举进一步加剧了欧洲对大型科技公司的警惕情绪。
+特发信息（000070）封跌停，截至午间收盘跌停板上有7.4万手封单，报22.29元/股。
 
-无视司法传唤 法国巴黎检察机关数月前对马斯克及其旗下社交平台X发起调查，指控平台通过算法机制系统性放大特定内容，涉嫌市场操纵及误导用户。
+多只光纤概念股集体大跌。
 
-检方多次尝试安排问询，但马斯克始终未予回应。
+截至午间收盘，杭电股份、中天科技等多股跌停，长进光子跌超12%，长盈通跌近10%。
 
-法国司法消息人士透露，若马斯克继续无视传唤，当局可能采取包括签发欧洲逮捕令在内的进一步行动。
+今年以来光纤板块涨幅惊人，是A股表现最强的板块之一。
 
-马斯克的律师团队则以“缺乏司法管辖权”为由拒绝配合。
+本轮暴涨的核心驱动力是AI算力基建带来的光纤需求爆发，光纤价格今年以来持续暴涨。
 
-数字主权之争 此次对峙恰逢欧盟全面推进《数字服务法案》落地实施。
-
-该法案要求大型平台对内容审核算法保持透明，违者面临全球营业额6%的巨额罚款。
+而作为光纤制造“母体”的光纤预制棒（下称“光棒”）价格也较2025年初快速上涨：通用G.652D光棒报价涨幅超过180%；用于数据中心高密度布线的G.657.A2类光棒，每等效芯公里报价则由22元至30元涨到160元，涨幅近550%。
 
 ## 相关推荐
 
-- 2026-06-29 16:12 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 16:39 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 16:13 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 16:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 16:31 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 16:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 16:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 16:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 16:22 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 16:17 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 16:21 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 16:18 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 16:30 - [韩国国脚无缘上亿韩元奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 16:20 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 16:34 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 16:24 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 16:37 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 16:46 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 16:35 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 16:34 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 16:19 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 16:38 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 16:22 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 16:46 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 16:19 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:22 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/37359697272.shtml)
-- 2026-06-29 16:35 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/247029094907.shtml)
-- 2026-06-29 16:34 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/54251997466.shtml)
-- 2026-06-29 16:36 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/26154897007.shtml)
-- 2026-06-29 16:22 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/487860740595.shtml)
-- 2026-06-29 16:22 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/823141464111.shtml)
-- 2026-06-29 16:16 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/64884558.shtml)
-- 2026-06-29 16:21 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/5082454515.shtml)
-- 2026-06-29 16:26 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/28578824400.shtml)
-- 2026-06-29 16:16 - [叠纸](https://www.blog.kurohicncr.top/Article/details/0067763127.shtml)
-- 2026-06-29 16:29 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/02224628478.shtml)
-- 2026-06-29 16:36 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/6497321.shtml)
-- 2026-06-29 16:14 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/829538.shtml)
-- 2026-06-29 16:35 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/18797421480.shtml)
-- 2026-06-29 16:31 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/70727.shtml)
+- 2026-06-29 16:43 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.kurohicncr.top/Article/details/53303090.shtml)
+- 2026-06-29 16:37 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/655188014.shtml)
+- 2026-06-29 16:28 - [南昌市委书记调整](http://www.share.minike.top/Article/details/74492428236.shtml)
+- 2026-06-29 16:47 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/0648099740.shtml)
+- 2026-06-29 16:37 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/30147498.shtml)
+- 2026-06-29 16:21 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/155046.shtml)
+- 2026-06-29 16:43 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/82026242101.shtml)
+- 2026-06-29 16:28 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/208318524096.shtml)
+- 2026-06-29 16:30 - [刘烨16岁儿子诺一颜值](https://www.blog.kurohicncr.top/Article/details/23626046068.shtml)
+- 2026-06-29 16:18 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/261814845.shtml)
+- 2026-06-29 16:44 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/79835119.shtml)
+- 2026-06-29 16:39 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/62826050104.shtml)
+- 2026-06-29 16:34 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/5619122.shtml)
+- 2026-06-29 16:21 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/0790718.shtml)
+- 2026-06-29 16:42 - [叠纸](https://www.blog.minike.top/Article/details/36188640.shtml)

@@ -1,59 +1,47 @@
-# “白大褂”直播带货？警惕保健品营销陷阱
+# 习近平会见孟加拉国总理：构建新时代中孟命运共同体
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-近期，一些私域直播、社群营销打着“健康讲座”“专家直播”等旗号，专门针对老年人进行保健产品等推销。对此，国家卫生健康委发出四点提示。 国家卫生健康委新闻发言人胡强强介绍，一些推销保健产品的营销号上，有的由“演员”假扮成“医学专家”按稿宣讲，有的夸大、篡改保健产品的功效从而高价销售，还有的通过送礼品、听课领福利等方式引流，再以“健康焦虑”“情感陪伴”等话术层层诱导消费者，侵害老年
+发布时间：2026年06月26日 21:31 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 正文
 
-近期，一些私域直播、社群营销打着“健康讲座”“专家直播”等旗号，专门针对老年人进行保健产品等推销。
-
-对此，国家卫生健康委发出四点提示。
-
-国家卫生健康委新闻发言人胡强强介绍，一些推销保健产品的营销号上，有的由“演员”假扮成“医学专家”按稿宣讲，有的夸大、篡改保健产品的功效从而高价销售，还有的通过送礼品、听课领福利等方式引流，再以“健康焦虑”“情感陪伴”等话术层层诱导消费者，侵害老年人的健康权益和财产安全。
-
-国家卫生健康委提醒大家：第一，凡是打着“专家讲座”“白大褂推荐”等旗号销售相关产品的，都要提高警惕，更不要因所谓专家的“头衔包装”和虚假的“案例见证”而盲目下单。
-
-所谓“专家”标榜的“头衔”越多越大，往往欺诈可能性越高。
-
-第二，警惕“送礼品、领红包、听课领福利”等引流手段。
-
-此类私域营销往往先以小恩小惠的形式获取信任，再通过反复宣讲、情感拉近、焦虑渲染等方式推销。
-
-家属要多关注老年人的入群、听课、下单等情况。
+发布时间：2026年06月26日 21:31 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 16:12 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 16:15 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 16:22 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 16:26 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 16:29 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 16:39 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 16:29 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 16:16 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 16:19 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 16:39 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 16:27 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 16:37 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 16:35 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 16:28 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 16:20 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 16:44 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 16:28 - [7款商保创新药“转道”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 16:23 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 16:23 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 16:42 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 16:44 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 16:46 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 16:46 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 16:19 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 16:41 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 16:18 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 16:32 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 16:40 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/738703.shtml)
-- 2026-06-29 16:30 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/90379984.shtml)
-- 2026-06-29 16:40 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/922077236492.shtml)
-- 2026-06-29 16:33 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/33348.shtml)
-- 2026-06-29 16:28 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/7069174.shtml)
-- 2026-06-29 16:18 - [重度抑郁女孩没钱去做心理咨询](https://www.share.minike.top/Article/details/241271948.shtml)
-- 2026-06-29 16:34 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/70204896.shtml)
-- 2026-06-29 16:21 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/7691157.shtml)
-- 2026-06-29 16:26 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/01608568907.shtml)
-- 2026-06-29 16:38 - [未成年少女长期吸毒导致卧床不起](https://www.blog.minike.top/Article/details/20163952.shtml)
-- 2026-06-29 16:14 - [博主：美航母沦为毒品集散窝点](https://www.blog.minike.top/Article/details/1228881741.shtml)
-- 2026-06-29 16:26 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.kurohicncr.top/Article/details/111066051.shtml)
-- 2026-06-29 16:25 - [爸爸当家](https://www.share.minike.top/Article/details/98766821.shtml)
-- 2026-06-29 16:17 - [业内：全球市场迎来结构性投资窗口](http://www.share.minike.top/Article/details/8718459556.shtml)
-- 2026-06-29 16:18 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/894495600442.shtml)
+- 2026-06-29 16:23 - [恋与深空发放补偿未得到玩家认可](https://www.blog.kurohicncr.top/Article/details/82903.shtml)
+- 2026-06-29 16:41 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/078609184328.shtml)
+- 2026-06-29 16:26 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/209323.shtml)
+- 2026-06-29 16:22 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/9096696091.shtml)
+- 2026-06-29 16:31 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/96663857894.shtml)
+- 2026-06-29 16:33 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/3139665.shtml)
+- 2026-06-29 16:36 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/377992972.shtml)
+- 2026-06-29 16:33 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/645076732.shtml)
+- 2026-06-29 16:37 - [世界杯上那些封神的门将](https://www.blog.kurohicncr.top/Article/details/8354109357.shtml)
+- 2026-06-29 16:41 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.minike.top/Article/details/81233569861.shtml)
+- 2026-06-29 16:21 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/622274.shtml)
+- 2026-06-29 16:37 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/08278980100.shtml)
+- 2026-06-29 16:40 - [青春环游记第三季](https://www.share.minike.top/Article/details/869942259584.shtml)
+- 2026-06-29 16:40 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/258028.shtml)
+- 2026-06-29 16:43 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/483304300828.shtml)

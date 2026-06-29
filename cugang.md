@@ -1,59 +1,58 @@
-# 4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞
+# 上调！国际评级机构出手！中信、中金首次获评A类
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、特朗普延长对伊停火，称伊朗政府 “严重分裂” 2、伊朗通过巴基斯坦告知美国 将不会参加周三的会谈 3、Adobe宣布250亿美元股票回购计划 此前AI颠覆担忧拖累股价 4、库克亮相苹果员工大会 试图平息外界对卸任CEO原因的猜测 5、亚马逊推出GLP-1减肥项目计划，承诺提供“快速、便捷”的获取途径 6、美联储主席候选人沃什强
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近日，国际评级机构惠誉评级发布最新报告，对多家国内券商进行了评级。 评级报告显示，中信证券、中金公司被评为“A-”，成为国内首批获得惠誉“A-”国际主体评级的证券公司。与此同时，中信建投、广发证券、兴业证券等多家券商评级均为B类。 中金公司表示，本次上调有助于增强国际投资者信心，吸引更多长期优质资本的关注与
 
 ## 正文
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、特朗普延长对伊停火，称伊朗政府 “严重分裂” 2、伊朗通过巴基斯坦告知美国 将不会参加周三的会谈 3、Adobe宣布250亿美元股票回购计划 此前AI颠覆担忧拖累股价 4、库克亮相苹果员工大会 试图平息外界对卸任CEO原因的猜测 5、亚马逊推出GLP-1减肥项目计划，承诺提供“快速、便捷”的获取途径 6、美联储主席候选人沃什强调独立性 但对利率路径含糊其辞 特朗普延长对伊停火，称伊朗政府 “严重分裂” 美国总统特朗普于周二宣布延长美国对伊朗的停火，称鉴于德黑兰政府 “严重分裂”，延长停火实属必要。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-特朗普表示，停火将持续 “直至” 伊朗领导人及代表提交一份结束与美国、以色列战争的 “统一方案” 为止。
+近日，国际评级机构惠誉评级发布最新报告，对多家国内券商进行了评级。
 
-特朗普此前曾表示，停火将于周三到期。
+评级报告显示，中信证券、中金公司被评为“A-”，成为国内首批获得惠誉“A-”国际主体评级的证券公司。
 
-伊朗通过巴基斯坦告知美国 将不会参加周三的会谈 据半官方的塔斯尼姆通讯社援引消息人士报道，伊朗谈判团队已通过巴基斯坦中间人告知美方，伊朗将不会出席周三在伊斯兰堡举行的会谈。
+与此同时，中信建投、广发证券、兴业证券等多家券商评级均为B类。
 
-伊朗不出席的原因有很多，包括美国实施海上封锁以及违反其他承诺。
+中金公司表示，本次上调有助于增强国际投资者信心，吸引更多长期优质资本的关注与配置。
 
-Adobe宣布250亿美元股票回购计划 此前AI颠覆担忧拖累股价 Adobe未来四年内将回购多达250亿美元股票，此前人工智能颠覆担忧导致该股股价下跌。
+中信证券称，评级提升将进一步拓宽境外融资渠道、降低跨境资金成本，为公司深耕全球资本市场、开展国际化经营筑牢信用根基。
 
-这项新的授权“直接体现了我们对强劲现金流以及为投资者创造长期价值的信心，”公司首席财务官Dan Durn周二在声明中表示。
+中信、中金首次获得“A-” 6月26日，惠誉评级发布最新报告，将中金公司及全资子公司中金国际的长期发行人主体评级由“BBB+”上调至“A-”，展望稳定，股东支持评级同步由“bbb+”上调至“a-”。
 
-该股周二在纽约盘后上涨约2%，此前收盘价报247.18美元。
+本次评级调整后，中金公司的惠誉国际评级达到国内券商的最高评级水平。
 
 ## 相关推荐
 
-- 2026-06-29 16:38 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 16:33 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 16:29 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 16:36 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 16:41 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 16:24 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 16:16 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 16:41 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 16:30 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 16:36 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 16:39 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 16:34 - [驻日美军航母沦为“毒窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 16:17 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 16:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 16:19 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 16:19 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 16:37 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 16:28 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 16:41 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 16:47 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 16:30 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 16:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 16:39 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 16:42 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 16:45 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:32 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/966657958656.shtml)
-- 2026-06-29 16:33 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/803652434731.shtml)
-- 2026-06-29 16:26 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/06056753.shtml)
-- 2026-06-29 16:12 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/9367616.shtml)
-- 2026-06-29 16:12 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/62612.shtml)
-- 2026-06-29 16:35 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/157185.shtml)
-- 2026-06-29 16:38 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/139143212.shtml)
-- 2026-06-29 16:15 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/7655271909.shtml)
-- 2026-06-29 16:31 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.minike.top/Article/details/191194.shtml)
-- 2026-06-29 16:12 - [毒液2](https://www.blog.minike.top/Article/details/60301438.shtml)
-- 2026-06-29 16:22 - [爸爸当家](https://www.share.minike.top/Article/details/0284743.shtml)
-- 2026-06-29 16:14 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/8184463.shtml)
-- 2026-06-29 16:24 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.minike.top/Article/details/42803.shtml)
-- 2026-06-29 16:29 - [BB大王横店拍戏](https://www.share.kurohicncr.top/Article/details/04540570560.shtml)
-- 2026-06-29 16:33 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/319217586.shtml)
+- 2026-06-29 16:35 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.minike.top/Article/details/733455337.shtml)
+- 2026-06-29 16:31 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/25870195196.shtml)
+- 2026-06-29 16:30 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/21357014605.shtml)
+- 2026-06-29 16:45 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/8574573008.shtml)
+- 2026-06-29 16:39 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/192829305449.shtml)
+- 2026-06-29 16:28 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.share.minike.top/Article/details/306056323.shtml)
+- 2026-06-29 16:40 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/70434.shtml)
+- 2026-06-29 16:39 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/069385330.shtml)
+- 2026-06-29 16:18 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/8498365.shtml)
+- 2026-06-29 16:46 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/4818971064.shtml)
+- 2026-06-29 16:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/59843307348.shtml)
+- 2026-06-29 16:37 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/47042324.shtml)
+- 2026-06-29 16:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/28409268829.shtml)
+- 2026-06-29 16:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/0633111448.shtml)
+- 2026-06-29 16:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/6316143.shtml)

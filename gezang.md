@@ -1,58 +1,58 @@
-# 全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证
+# “封面级豪宅”外墙铝板变涂料？深圳中洲湾迎海二期被指货不对板
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-中新社北京4月21日电 (记者 庞无忌)记者21日从中国广核集团(简称“中广核”)获悉，由中广核自主研发的全球开口最大——8.6米熔盐槽式集热器成套装备及工艺，当日在青海省德令哈市中广核光热试验基地中试平台完成技术验证。这标志着中国全面掌握熔盐槽式集热核心技术，为国内大型熔盐槽式光热项目的规模化发展奠定基础。 “该中试平台由槽式集热系统、储热系统、蒸汽发生系统等构成，是目前全球
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：华夏时报 6月23日，深圳市中洲投资控股股份有限公司（000042.SZ，下称“中洲控股”）股价封上涨停板，报9.9元/股，全日涨幅达10%。 盘面热度之下，其位于深圳福田核心片区的豪宅项目中洲湾·迎海二期（备案名：中洲滨海华府三期），却正陷入一场“货不对板”的品质争议。 距离合同约定的9月交付仅剩不足三个月，业主们发现项
 
 ## 正文
 
-中新社北京4月21日电 (记者 庞无忌)记者21日从中国广核集团(简称“中广核”)获悉，由中广核自主研发的全球开口最大——8.6米熔盐槽式集热器成套装备及工艺，当日在青海省德令哈市中广核光热试验基地中试平台完成技术验证。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：华夏时报 6月23日，深圳市中洲投资控股股份有限公司（000042.SZ，下称“中洲控股”）股价封上涨停板，报9.9元/股，全日涨幅达10%。
 
-这标志着中国全面掌握熔盐槽式集热核心技术，为国内大型熔盐槽式光热项目的规模化发展奠定基础。
+盘面热度之下，其位于深圳福田核心片区的豪宅项目中洲湾·迎海二期（备案名：中洲滨海华府三期），却正陷入一场“货不对板”的品质争议。
 
-“该中试平台由槽式集热系统、储热系统、蒸汽发生系统等构成，是目前全球开口尺寸最大的标准熔盐槽式集热器测试系统。
+距离合同约定的9月交付仅剩不足三个月，业主们发现项目外立面大面积缩减铝板用料、以石漆涂料替代，与已交付的一期形成显著视觉落差，地下车库、泳池配套缩水等问题同步发酵。
 
-其中，槽式集热系统作为核心组成部分，采用标准模块化设计，有效集热面积5970平方米，由4组长度182米、开口8.6米的集热器阵列组成。
+而据其最新披露的2025年年报，中洲控股全年归母净亏损超9亿元，存货跌价累计计提规模突破50亿元。
 
-”中广核光热技术型号首席专家尹航表示，该集热技术采用熔盐作为传热介质，聚光比达107.5倍，可实现290摄氏度进口至550摄氏度出口的稳定运行，实现储能温差达260摄氏度，是传统导热油系统的2.6倍，电网调峰保障能力显著增强。
+项目减配风波的背后，是这家老牌深圳房企在行业深度调整期，品质承诺与成本压力之间的尖锐博弈。
 
-该成套装备的关键设备——包括集热器支架、柔性连接组件、就地控制器和支架精度面形检测装置等，均由中广核牵头国内产业链优势企业完成攻关，实现核心技术100%自主可控。
+品质落差 当阳台的铝板与涂料成了品质分水岭，千万豪宅背后的真实面纱或许比想象中更薄。
 
-针对熔盐槽式光热技术的运行痛点，中广核还系统开展了集热管预热、大流速排气与压缩空气排盐、无人机检测、系统防凝以及阻抗加热等技术攻关，形成全套成熟工艺与设备方案，并在中试平台进行了验证。
+作为深圳福田一线海景房的进阶产品，迎海二期2024年3月入市时备案均价约9.24万元/平方米，较迎海一期8.53万元/平方米的备案均价高出约8.3%，单套总价区间735万至1368万元，开盘首日去化近半，揽金超27亿元。
 
-光热发电兼具调峰电源和长时储能双重功能。
+购房业主向《华夏时报》记者表示，销售阶段，官方宣传材料中明确标注外立面采用铝板材质，售楼处沙盘亦按全铝板立面进行展示，叠加销售人员的统一口径，均明确表示项目外立面采用高端铝板材质，交付品质与已入市的迎海一期保持一致。
 
 ## 相关推荐
 
-- 2026-06-29 16:22 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 16:37 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 16:18 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 16:30 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 16:23 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 16:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 16:31 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 16:34 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 16:29 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 16:14 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 16:29 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 16:41 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 16:21 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 16:30 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 16:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 16:32 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 16:33 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 16:38 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 16:26 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 16:28 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 16:35 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 16:36 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 16:23 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 16:21 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/143397843.shtml)
-- 2026-06-29 16:31 - [美人鱼](http://www.share.kurohicncr.top/Article/details/1660293533.shtml)
-- 2026-06-29 16:27 - [德国VS巴拉圭前瞻](https://www.blog.minike.top/Article/details/887726313.shtml)
-- 2026-06-29 16:31 - [和周杰伦在演唱会合唱了](https://www.share.minike.top/Article/details/354856.shtml)
-- 2026-06-29 16:20 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/8750036.shtml)
-- 2026-06-29 16:23 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/3206446781.shtml)
-- 2026-06-29 16:32 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.minike.top/Article/details/657129578.shtml)
-- 2026-06-29 16:36 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/34259285049.shtml)
-- 2026-06-29 16:37 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/0948310792.shtml)
-- 2026-06-29 16:21 - [博主：美航母沦为毒品集散窝点](http://www.share.minike.top/Article/details/34169383998.shtml)
-- 2026-06-29 16:20 - [南部战区位南海海域进行例行巡航](https://www.blog.kurohicncr.top/Article/details/58887107235.shtml)
-- 2026-06-29 16:33 - [斗破苍穹](https://www.share.minike.top/Article/details/3381437789.shtml)
-- 2026-06-29 16:38 - [斛珠夫人](https://www.share.minike.top/Article/details/82917685.shtml)
-- 2026-06-29 16:24 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/5566526.shtml)
-- 2026-06-29 16:16 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/651357995725.shtml)
+- 2026-06-29 16:35 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/1755358.shtml)
+- 2026-06-29 16:46 - [金刚川](http://www.share.minike.top/Article/details/85930.shtml)
+- 2026-06-29 16:46 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/707732.shtml)
+- 2026-06-29 16:19 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/4841706504.shtml)
+- 2026-06-29 16:20 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/200746.shtml)
+- 2026-06-29 16:32 - [王楚钦3-0周启豪 晋级32强](https://www.blog.kurohicncr.top/Article/details/88801824928.shtml)
+- 2026-06-29 16:24 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/4549454.shtml)
+- 2026-06-29 16:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/936073120.shtml)
+- 2026-06-29 16:35 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/1068389.shtml)
+- 2026-06-29 16:48 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.kurohicncr.top/Article/details/543391454141.shtml)
+- 2026-06-29 16:25 - [扬名立万](https://www.share.minike.top/Article/details/377336.shtml)
+- 2026-06-29 16:42 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/36414500577.shtml)
+- 2026-06-29 16:27 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/23363256.shtml)
+- 2026-06-29 16:24 - [上海一小区水池内出现一条鳄鱼](http://www.share.kurohicncr.top/Article/details/359920579181.shtml)
+- 2026-06-29 16:25 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/645363132.shtml)

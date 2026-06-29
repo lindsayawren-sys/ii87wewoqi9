@@ -1,61 +1,57 @@
-# 文件显示，SpaceX IPO后马斯克及内部人士将保留投票控制权
+# 从三机跃升到叠“豆腐块”——驻香港部队双营开放侧记
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-路透社审阅的 SpaceX IPO 申请文件节选内容显示，该公司计划在首次公开募股后巩固创始人埃隆・马斯克的控制权，向他及少数内部人士授予超级投票权股份，使其投票权凌驾于其他投资者之上。 这份本月秘密提交的招股说明书，披露了该公司最新的财务状况与公司治理细节。 IPO 完成后，马斯克将继续担任首席执行官、首席技术官，并出任 SpaceX 九人董事会的董事长。 文件节选显示，尽管
+中新社香港6月27日电 题：从三机跃升到叠“豆腐块”——驻香港部队双营开放侧记 中新社记者 刘玥晴 邱兆翔 晴空之下，视野开阔，两架直-10K和一架直-20直升机依次从中国人民解放军驻香港部队(简称“驻香港部队”)石岗军营停机坪起飞，默契配合完成低空突击和掩护机降等模拟演示，压轴献上三机跃升、空中“开花”等精彩表演，收获现场观众连绵热烈的掌声。 这一幕出自27日驻香港部队202
 
 ## 正文
 
-路透社审阅的 SpaceX IPO 申请文件节选内容显示，该公司计划在首次公开募股后巩固创始人埃隆・马斯克的控制权，向他及少数内部人士授予超级投票权股份，使其投票权凌驾于其他投资者之上。
+中新社香港6月27日电 题：从三机跃升到叠“豆腐块”——驻香港部队双营开放侧记 中新社记者 刘玥晴 邱兆翔 晴空之下，视野开阔，两架直-10K和一架直-20直升机依次从中国人民解放军驻香港部队(简称“驻香港部队”)石岗军营停机坪起飞，默契配合完成低空突击和掩护机降等模拟演示，压轴献上三机跃升、空中“开花”等精彩表演，收获现场观众连绵热烈的掌声。
 
-这份本月秘密提交的招股说明书，披露了该公司最新的财务状况与公司治理细节。
+这一幕出自27日驻香港部队2026年度军营开放活动。
 
-IPO 完成后，马斯克将继续担任首席执行官、首席技术官，并出任 SpaceX 九人董事会的董事长。
+为庆祝香港回归祖国暨中国人民解放军进驻香港29周年，进一步增进与香港社会各界的沟通交流，驻香港部队于6月20日和21日面向香港市民开放昂船洲军营，27日和28日开放石岗军营与新围军营。
 
-文件节选显示，尽管马斯克去年年薪仅为 54，080 美元，但在公司上市后，他有望通过股权获得数十亿美元收益。
+“第一次驾驶直升机在这么多香港市民面前表演，我非常自豪，谢谢大家特意前来观看。
 
-SpaceX 此次上市目标估值约为 1.75 万亿美元，计划融资 750 亿美元，有望成为史上规模最大的首次公开募股。
+”参与上述直升机演示的驻香港部队空军少校梁智艺受访时表示，低空风切变给此次飞行操作带来一定挑战，但也能够检验部队平日训练的扎实成果。
 
-路透社此前报道，SpaceX公司的总裁兼首席运营官格温・肖特韦尔去年总薪酬为 8580 万美元，首席财务官布雷特・约翰森薪酬为 980 万美元。
+“请市民们放心，驻香港部队有能力、有信心捍卫香港的繁荣和安宁。
 
-分析师日活动 部分高管正推动马斯克的上市计划，本周将为华尔街分析师举行为期三天的会议，首日将参观并听取位于得克萨斯州博卡奇卡的 SpaceX 星舰基地发射设施介绍。
+” 来自巴基斯坦的乌斯曼(Usman)已在港工作两年，这是他首次走进驻香港部队军营。
 
-文件节选显示，SpaceX 将采用双层股权结构：B 类股份每股拥有 10 票投票权，权力集中在马斯克及少数内部人士手中；面向公众投资者发行的 A 类股份则每股仅 1 票投票权。
+“没想到军营开放的程度这么高，让我们可以近距离观看武装直升机。
 
 ## 相关推荐
 
-- 2026-06-29 16:35 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 16:31 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 16:22 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 16:36 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 16:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 16:41 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 16:39 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 16:15 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 16:27 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 16:12 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 16:14 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 16:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 16:12 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 16:33 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 16:27 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 16:43 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 16:34 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 16:24 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 16:33 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 16:42 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 16:40 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 16:40 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 16:44 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 16:29 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 16:23 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 16:41 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:23 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/3174870706.shtml)
-- 2026-06-29 16:40 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/232000966.shtml)
-- 2026-06-29 16:26 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/64641446330.shtml)
-- 2026-06-29 16:29 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/84961777722.shtml)
-- 2026-06-29 16:35 - [广东一地发现极危植物新物种](https://www.blog.minike.top/Article/details/1519846.shtml)
-- 2026-06-29 16:41 - [42岁郭碧婷纯素颜状态](https://www.share.minike.top/Article/details/828067.shtml)
-- 2026-06-29 16:41 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/09201.shtml)
-- 2026-06-29 16:21 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/8031757.shtml)
-- 2026-06-29 16:31 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/08132471830.shtml)
-- 2026-06-29 16:16 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/522012792.shtml)
-- 2026-06-29 16:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/758108093434.shtml)
-- 2026-06-29 16:38 - [把古诗里的动作换成加班](http://www.share.minike.top/Article/details/148478803279.shtml)
-- 2026-06-29 16:30 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/792465.shtml)
-- 2026-06-29 16:16 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/08738220440.shtml)
-- 2026-06-29 16:13 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/204260.shtml)
+- 2026-06-29 16:37 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/53883.shtml)
+- 2026-06-29 16:41 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/85952.shtml)
+- 2026-06-29 16:32 - [端午节加班工资应该怎么算](http://www.share.kurohicncr.top/Article/details/495762529706.shtml)
+- 2026-06-29 16:41 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/7215676.shtml)
+- 2026-06-29 16:37 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/98779964918.shtml)
+- 2026-06-29 16:39 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/41149586.shtml)
+- 2026-06-29 16:28 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/254977.shtml)
+- 2026-06-29 16:23 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/527999.shtml)
+- 2026-06-29 16:36 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/21842.shtml)
+- 2026-06-29 16:36 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/44602.shtml)
+- 2026-06-29 16:38 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/5911881.shtml)
+- 2026-06-29 16:20 - [医院大厅放钢琴是形式主义吗](http://www.blog.kurohicncr.top/Article/details/756413538783.shtml)
+- 2026-06-29 16:47 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/032625.shtml)
+- 2026-06-29 16:33 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/7982906.shtml)
+- 2026-06-29 16:36 - [给阿嬷的情书海外口碑](https://www.blog.kurohicncr.top/Article/details/963226.shtml)

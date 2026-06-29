@@ -1,57 +1,57 @@
-# 广西交易团“智”造出海出圈 广交会斩获颇丰
+# 2026年广州莲花山荷花季开幕 营造诗情荷塘意境
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-中新网南宁4月22日电 (王以照)广西壮族自治区商务厅4月21日介绍，第139届广交会一期举办期间，广西交易团紧扣“先进制造”主题，组织企业亮相新能源汽车、工程机械、电子消费品等核心展区，并同步开展多场经贸活动，成果丰硕。 在新能源汽车及智慧出行领域，东风柳州汽车有限公司首次以“商用车+乘用车”双展位展出四款海外车型，开展首日收获采购商有效留资超100批，与东南亚、中东、南美、
+中新网广州6月27日电 (记者 程景伟)2026年广州莲花山荷花季27日在广州番禺莲花山正式拉开帷幕。 在莲花仙境内，现场展出1200余个莲花品种及超600个精品睡莲品种，品类繁多、千姿百态，共同打造华南地区规模领先的莲荷园艺盛宴。其中，大莲塘以彰显节日喜庆的粉色系莲花为主打花，融合友谊牡丹莲、粉霸王等优秀荷花品种，在视觉上铺展出一幅层次分明的渐变红色美学长卷，辅以各色常开常艳
 
 ## 正文
 
-中新网南宁4月22日电 (王以照)广西壮族自治区商务厅4月21日介绍，第139届广交会一期举办期间，广西交易团紧扣“先进制造”主题，组织企业亮相新能源汽车、工程机械、电子消费品等核心展区，并同步开展多场经贸活动，成果丰硕。
+中新网广州6月27日电 (记者 程景伟)2026年广州莲花山荷花季27日在广州番禺莲花山正式拉开帷幕。
 
-在新能源汽车及智慧出行领域，东风柳州汽车有限公司首次以“商用车+乘用车”双展位展出四款海外车型，开展首日收获采购商有效留资超100批，与东南亚、中东、南美、非洲等地采购商现场签订谅解备忘录，覆盖右舵新能源乘用车、露营车、商用车等品类。
+在莲花仙境内，现场展出1200余个莲花品种及超600个精品睡莲品种，品类繁多、千姿百态，共同打造华南地区规模领先的莲荷园艺盛宴。
 
-广西汽车集团携旗下五菱工业、五菱新能源亮相展会，集中展示了集团在新能源整车、非道路车、定制客车等领域的创新成果，现场吸引了多国客商洽谈。
+其中，大莲塘以彰显节日喜庆的粉色系莲花为主打花，融合友谊牡丹莲、粉霸王等优秀荷花品种，在视觉上铺展出一幅层次分明的渐变红色美学长卷，辅以各色常开常艳的睡莲与极富设计感的园艺造景，营造出诗情满满的荷塘意境。
 
-在工程机械领域，广西玉柴装备科技有限公司全球首发Y90-2PB工程机械设备，斩获东欧、南美、非洲批量订单，首批意向订单超300台。
+荷花季期间，这里还上演“莲仙荷梦——莲花仙子快闪表演”，水袖舞动间，莲香沁人心脾。
 
-广西徐沃工程机械设备有限公司首展新型碎木机及全自动伐木机，精准对接巴西、葡萄牙、英国、爱尔兰等专业采购商，已敲定多位高意向客户工厂考察行程。
+值得一提的是，莲花山景区经过三年的潜心钻研和反复培育，此次集中推出三个自主繁育的莲花品种，分别名为“莲峰金胭”“莲峰绛珠”和“莲峰礼花”，展现荷花睡莲专类园建设成果。
 
-在加工机械设备领域，广西瑞杰炉渣装备制造有限公司首次参展，展示炉渣资源化处理成套装备，吸引18个国家和地区采购商超120批次，11家明确合作意向，意向订单金额预计超680万元。
+作为本次荷花季的一出大戏，山水实景舞剧《山海莲鸣·花朝千年》在莲花山仙境湖舞台上演。
 
-展会期间，广西交易团举办多场供应商采购商对接活动。
+近50名专业演员倾情演绎，以自然山水为幕布，打造多场景沉浸式国风视听盛宴。
 
-东风柳州汽车有限公司在第139届广交会粤港澳大湾区产供链对接会(中国香港专场)上成功与采购商达成新能源计程车意向合作订单。
+剧目深度串联莲荷文化、莲峰印象、十二花神三大核心元素，构建层次饱满、意境悠远的完整叙事体系，为游客带来沉浸式、高质感的文旅体验。
 
 ## 相关推荐
 
-- 2026-06-29 16:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 16:27 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 16:25 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 16:39 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 16:26 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 16:38 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 16:39 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 16:35 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 16:20 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 16:38 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 16:17 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 16:30 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 16:31 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 16:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 16:18 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 16:18 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 16:20 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 16:45 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 16:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 16:35 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 16:31 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 16:20 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:14 - [毒液2](http://www.blog.minike.top/Article/details/706205.shtml)
-- 2026-06-29 16:18 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/314151839.shtml)
-- 2026-06-29 16:31 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/327419785.shtml)
-- 2026-06-29 16:23 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/558328.shtml)
-- 2026-06-29 16:13 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/373849.shtml)
-- 2026-06-29 16:33 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/6796908.shtml)
-- 2026-06-29 16:16 - [小鹏MONAL03预售定档7月2日](http://www.blog.kurohicncr.top/Article/details/44907.shtml)
-- 2026-06-29 16:34 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/056256.shtml)
-- 2026-06-29 16:13 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/0915282.shtml)
-- 2026-06-29 16:29 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/4951594069.shtml)
-- 2026-06-29 16:35 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/0761639.shtml)
-- 2026-06-29 16:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/34023.shtml)
-- 2026-06-29 16:35 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.minike.top/Article/details/807756.shtml)
-- 2026-06-29 16:33 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/97476984.shtml)
-- 2026-06-29 16:14 - [欧洲多国激辩“装不装空调”](http://www.share.kurohicncr.top/Article/details/23735022065.shtml)
+- 2026-06-29 16:26 - [世界杯十大帅哥必吃榜](http://www.share.minike.top/Article/details/59611.shtml)
+- 2026-06-29 16:26 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/92207229588.shtml)
+- 2026-06-29 16:37 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/880347596.shtml)
+- 2026-06-29 16:21 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/50082332862.shtml)
+- 2026-06-29 16:28 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/7217446387.shtml)
+- 2026-06-29 16:22 - [媒体：网络测评不能只剩“生意”](http://www.share.kurohicncr.top/Article/details/681707059534.shtml)
+- 2026-06-29 16:21 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/392447092.shtml)
+- 2026-06-29 16:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/448454750.shtml)
+- 2026-06-29 16:25 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/5246418.shtml)
+- 2026-06-29 16:31 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/100856845575.shtml)
+- 2026-06-29 16:46 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/12856379756.shtml)
+- 2026-06-29 16:22 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/90648080.shtml)
+- 2026-06-29 16:38 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/93279410573.shtml)
+- 2026-06-29 16:33 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/66526177084.shtml)
+- 2026-06-29 16:28 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/55383462.shtml)

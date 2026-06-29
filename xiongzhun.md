@@ -1,50 +1,60 @@
-# 光线传媒拟使用不超35亿闲置自有资金购买理财产品
+# 习近平会见孟加拉国总理：构建新时代中孟命运共同体
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-4月21日晚间，光线传媒（300251.SZ）发布公告称，公司于2026年4月21日召开第六届董事会第十五次会议，审议通过了《关于使用闲置自有资金购买理财产品的议案》。为最大限度发挥公司闲置资金的作用，提高资金使用效率，实现收益最大化，在不影响公司正常经营及确保资金安全的前提下，公司（含子公司）拟在不超过35亿元额度内使用闲置自有资金择机购买理财产品。授权期限自董事会审议通过之
+6月26日上午，国家主席习近平在北京人民大会堂会见来华正式访问的孟加拉国总理塔里克。两国领导人共同宣布构建新时代中孟命运共同体，推动两国关系向更高水平发展。 习近平表示，中方始终高度重视发展中孟关系，坚持面向全体孟加拉国人民的睦邻友好政策。无论国际形势如何变化，中方都将坚持中孟友好大方向不动摇，始终做孟方值得信赖的好朋友、好邻居、好伙伴。 塔里克说：“尊敬的习主席，早上好。我非
 
 ## 正文
 
-4月21日晚间，光线传媒（300251.SZ）发布公告称，公司于2026年4月21日召开第六届董事会第十五次会议，审议通过了《关于使用闲置自有资金购买理财产品的议案》。
+6月26日上午，国家主席习近平在北京人民大会堂会见来华正式访问的孟加拉国总理塔里克。
 
-为最大限度发挥公司闲置资金的作用，提高资金使用效率，实现收益最大化，在不影响公司正常经营及确保资金安全的前提下，公司（含子公司）拟在不超过35亿元额度内使用闲置自有资金择机购买理财产品。
+两国领导人共同宣布构建新时代中孟命运共同体，推动两国关系向更高水平发展。
 
-授权期限自董事会审议通过之日起一年内有效，在上述额度及期限内，资金可滚动使用。
+习近平表示，中方始终高度重视发展中孟关系，坚持面向全体孟加拉国人民的睦邻友好政策。
 
-（央广财经）（文章来源：央广财经）
+无论国际形势如何变化，中方都将坚持中孟友好大方向不动摇，始终做孟方值得信赖的好朋友、好邻居、好伙伴。
+
+塔里克说：“尊敬的习主席，早上好。
+
+我非常高兴也很荣幸能够来到伟大的中国，中国一直是我们最珍视、最值得信赖的伙伴。
+
+我们高度钦佩中国在您强有力的领导下，在短时间内取得了伟大发展成就。
+
+中国式现代化是孟加拉国学习的典范。
 
 ## 相关推荐
 
-- 2026-06-29 16:34 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 16:19 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 16:39 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 16:24 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 16:33 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 16:39 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 16:17 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 16:21 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 16:35 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 16:30 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 16:35 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 16:38 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 16:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 16:32 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 16:31 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 16:36 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 16:33 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 16:23 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 16:18 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 16:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 16:30 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 16:25 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 16:45 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 16:36 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 16:33 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 16:35 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:25 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/36039.shtml)
-- 2026-06-29 16:41 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/15779071686.shtml)
-- 2026-06-29 16:41 - [天道](http://www.blog.kurohicncr.top/Article/details/059690.shtml)
-- 2026-06-29 16:37 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/312045425.shtml)
-- 2026-06-29 16:25 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/3828795.shtml)
-- 2026-06-29 16:30 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/64081.shtml)
-- 2026-06-29 16:23 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/02153354.shtml)
-- 2026-06-29 16:41 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.kurohicncr.top/Article/details/59837536630.shtml)
-- 2026-06-29 16:23 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/18781939.shtml)
-- 2026-06-29 16:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/7271359.shtml)
-- 2026-06-29 16:31 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/56849842637.shtml)
-- 2026-06-29 16:23 - [周生如故](https://www.blog.minike.top/Article/details/78718225648.shtml)
-- 2026-06-29 16:37 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/3287836.shtml)
-- 2026-06-29 16:18 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/9801724610.shtml)
-- 2026-06-29 16:34 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/208254563.shtml)
+- 2026-06-29 16:21 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/416425.shtml)
+- 2026-06-29 16:34 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/757585.shtml)
+- 2026-06-29 16:24 - [徐昕暂不参加NBA夏季联赛](http://www.share.kurohicncr.top/Article/details/13876547.shtml)
+- 2026-06-29 16:34 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/35957.shtml)
+- 2026-06-29 16:26 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/84226498198.shtml)
+- 2026-06-29 16:41 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/177488082228.shtml)
+- 2026-06-29 16:38 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/34985402.shtml)
+- 2026-06-29 16:41 - [博主：全球股市进入“AI极端共振”](http://www.blog.kurohicncr.top/Article/details/3739163012.shtml)
+- 2026-06-29 16:29 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/8380576564.shtml)
+- 2026-06-29 16:28 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/239404693.shtml)
+- 2026-06-29 16:46 - [依法管制阻遏日方军事化危险动向](http://www.share.minike.top/Article/details/725247581794.shtml)
+- 2026-06-29 16:36 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/21142.shtml)
+- 2026-06-29 16:20 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/5312152365.shtml)
+- 2026-06-29 16:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/1722799163.shtml)
+- 2026-06-29 16:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/077417176704.shtml)

@@ -1,59 +1,47 @@
-# 中国首批航天员赵传东现身羊城 带民众探索神奇太空
+# 大党丨我们的名字，叫中国共产党
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-中新网广州4月21日电 (记者 王坚)为迎接第十一个“中国航天日”和中国航天事业创建70周年，中国首批航天员赵传东近日在广州以《星空浩瀚 探索无限》为题，分享了参与航天事业的亲身经历和有趣故事，并带领现场近500名观众进行航天员模拟宣誓与问答互动。 据介绍，此次活动由广东科学中心与“云来繁星探太空”联合主办。活动以“跟着电影做科普”为主题，通过电影点映、航天员科普讲堂、航天主题
+发布时间：2026年06月29日 08:01 来源：央视新闻客户端 责任编辑：【韦俊龙】
 
 ## 正文
 
-中新网广州4月21日电 (记者 王坚)为迎接第十一个“中国航天日”和中国航天事业创建70周年，中国首批航天员赵传东近日在广州以《星空浩瀚 探索无限》为题，分享了参与航天事业的亲身经历和有趣故事，并带领现场近500名观众进行航天员模拟宣誓与问答互动。
-
-据介绍，此次活动由广东科学中心与“云来繁星探太空”联合主办。
-
-活动以“跟着电影做科普”为主题，通过电影点映、航天员科普讲堂、航天主题展览相结合的形式，向公众生动呈现中国探月工程的伟大成就，弘扬载人航天精神。
-
-活动现场，由国家航天局新闻宣传中心联合出品的纪录电影《登月》(第一部)在吉尼斯世界纪录世界最大科技馆——广东科学中心的巨幕影院放映。
-
-该影片聚焦嫦娥六号人类首次月球背面采样返回的53天任务历程。
-
-影片首次向公众公开探测器、运载火箭、发射回收、深空测控和地面应用五大系统的一线画面。
-
-活动特邀赵传东进行专题分享。
-
-他于1998年入选中国首批航天员，曾荣立个人二等功一次、三等功两次，现任“科普中国”航空航天领域专家。
+发布时间：2026年06月29日 08:01 来源：央视新闻客户端 责任编辑：【韦俊龙】
 
 ## 相关推荐
 
-- 2026-06-29 16:24 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 16:38 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 16:18 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 16:14 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 16:25 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 16:23 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 16:18 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 16:13 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 16:17 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 16:15 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 16:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 16:38 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 16:19 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 16:26 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 16:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 16:47 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 16:27 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 16:42 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 16:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 16:26 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 16:20 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 16:42 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 16:35 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 16:27 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 16:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 16:31 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 16:30 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 16:29 - [王俊凯命名方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:25 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/224961088.shtml)
-- 2026-06-29 16:26 - [天价门票抬高美加墨世界杯观赛门槛](http://www.share.minike.top/Article/details/6714238.shtml)
-- 2026-06-29 16:24 - [天道](https://www.share.kurohicncr.top/Article/details/931342671635.shtml)
-- 2026-06-29 16:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/60826062.shtml)
-- 2026-06-29 16:29 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/231801981.shtml)
-- 2026-06-29 16:40 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/51795941310.shtml)
-- 2026-06-29 16:19 - [普京承认俄出现燃料危机](http://www.share.minike.top/Article/details/95949.shtml)
-- 2026-06-29 16:29 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/29905097454.shtml)
-- 2026-06-29 16:30 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/24210.shtml)
-- 2026-06-29 16:22 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/20728.shtml)
-- 2026-06-29 16:29 - [上海一小区水池内出现一条鳄鱼](http://www.share.minike.top/Article/details/113170.shtml)
-- 2026-06-29 16:41 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/108030652745.shtml)
-- 2026-06-29 16:32 - [金刚川](https://www.share.minike.top/Article/details/888292278699.shtml)
-- 2026-06-29 16:38 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/01731446.shtml)
-- 2026-06-29 16:23 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/0356016919.shtml)
+- 2026-06-29 16:48 - [流金岁月](https://www.blog.minike.top/Article/details/91918619.shtml)
+- 2026-06-29 16:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/90827440.shtml)
+- 2026-06-29 16:19 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/4979724292.shtml)
+- 2026-06-29 16:41 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/780083884.shtml)
+- 2026-06-29 16:47 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/19213979.shtml)
+- 2026-06-29 16:35 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/01308972347.shtml)
+- 2026-06-29 16:39 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/083595412446.shtml)
+- 2026-06-29 16:30 - [央视起底直播诈骗连环套](http://www.share.kurohicncr.top/Article/details/24808.shtml)
+- 2026-06-29 16:18 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/890845.shtml)
+- 2026-06-29 16:32 - [东方风云榜红毯](http://www.share.minike.top/Article/details/125669.shtml)
+- 2026-06-29 16:27 - [扫黑风暴](https://www.share.minike.top/Article/details/68942480115.shtml)
+- 2026-06-29 16:21 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/09125.shtml)
+- 2026-06-29 16:31 - [送你一朵小红花](http://www.blog.minike.top/Article/details/35011590517.shtml)
+- 2026-06-29 16:28 - [速度与激情9](https://www.blog.minike.top/Article/details/5203595779.shtml)
+- 2026-06-29 16:36 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/68212.shtml)

@@ -1,57 +1,56 @@
-# 华泰期货：美国宣布延长停火，中东局势前景不明
+# *ST益通索赔新进展 部分股民提交起诉
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 康远宁 市场要闻与重要数据 1、 截至当天收盘，纽约商品交易所5月交货的轻质原油期货价格上涨3.40美元，收于每桶94.69美元，涨幅为3.72%；6月交货的伦敦布伦特原油期货价格上涨4.46美元，收于每桶99.39美元，涨幅为4.7%。SC原油主力合约收涨1.28%，报639元/桶。（来源：Bloomberg） 2、 据路透社报道，在伊朗战争导致全球能
+近日，投资者诉北京诚益通控制技术集团股份有限公司（简称：诚益通、*ST益通（维权），代码：300430）证券虚假陈述责任纠纷案取得新进展。 曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据相关公告，诚益通涉嫌证券虚假陈述，部分股民已提交起诉材料。（厉健律师专栏） 案情回溯，2026年4 月30日，诚益通披露了《关于公司股票交易被实施退市风险警示叠加
 
 ## 正文
 
-来源：华泰期货 作者： 康远宁 市场要闻与重要数据 1、 截至当天收盘，纽约商品交易所5月交货的轻质原油期货价格上涨3.40美元，收于每桶94.69美元，涨幅为3.72%；6月交货的伦敦布伦特原油期货价格上涨4.46美元，收于每桶99.39美元，涨幅为4.7%。
+近日，投资者诉北京诚益通控制技术集团股份有限公司（简称：诚益通、*ST益通（维权），代码：300430）证券虚假陈述责任纠纷案取得新进展。
 
-SC原油主力合约收涨1.28%，报639元/桶。
+曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据相关公告，诚益通涉嫌证券虚假陈述，部分股民已提交起诉材料。
 
-（来源：Bloomberg） 2、 据路透社报道，在伊朗战争导致全球能源价格上涨之际，美国内政部和能源部的负责人将于当地时间周四与埃克森美孚石油和雪佛龙等能源公司的首席执行官举行电话会议，讨论他们提高石油和天然气产量的潜力。
+（厉健律师专栏） 案情回溯，2026年4 月30日，诚益通披露了《关于公司股票交易被实施退市风险警示叠加其他风险警示暨停 牌的公告》。
 
-油价正在恢复到2022年俄乌冲突后的水平，这对特朗普的共和党同僚来说是11月中期选举中的一个风险。
+2026年5月8日，诚益通发布《关于股票交易严重异常波动的公告》。
 
-这次电话会议由白宫组织。
+公告显示：因信永中和会计师事务所（特殊普通合伙） 出具了无法表示意见的审计报告以及否定意见的内部控制审计报告，触及《深圳 证券交易所创业板股票上市规则》第10.3.1条、第9.4条的规定，公司股票自2026 年5月6日开市起被实行“退市风险警示”、“其他风险警示”，股票简称由“诚益通”变更为“*ST益通”，证券代码仍为“300430”，敬请广大投资者注意投资风险。
 
-（来源：Bloomberg） 3、 美国总统特朗普表示，他预计与伊朗的协议将很快宣布，并称该协议将为美国带来“免费石油”和“自由通行的霍尔木兹海峡”。
+公司股票交易价格连续三个交易日（2026年5月6日、2026年5月7日、2026年5月8日）收盘价格跌幅偏离值累计超过50%以上，根据深圳证券交易所有关规定，属于股票交易严重异常波动。
 
-特朗普在被问及经济和油价时表示，目前油价低于此前预期。
+根据最高人民法院虚假陈述司法解释，上市公司等因证券虚假陈述行为导致投资者权益受损，投资者可以依法起诉索赔，索赔范围包括投资差额损失、佣金和印花税损失。
 
-他说：“如果你看看油价和我们支付的价格，大约只有人们原本预期的一半，前提是你做了我必须做的事情。
+“我们正在分批代理股民起诉。
 
 ## 相关推荐
 
-- 2026-06-29 16:35 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 16:20 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 16:41 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 16:15 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 16:16 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 16:13 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 16:13 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 16:37 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 16:20 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 16:13 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 16:24 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 16:36 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 16:43 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 16:31 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 16:40 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 16:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 16:18 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 16:35 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 16:29 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 16:35 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 16:30 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:24 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/21352578.shtml)
-- 2026-06-29 16:28 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/85901.shtml)
-- 2026-06-29 16:37 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/436239.shtml)
-- 2026-06-29 16:28 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/393269683347.shtml)
-- 2026-06-29 16:28 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/70632.shtml)
-- 2026-06-29 16:30 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/959361.shtml)
-- 2026-06-29 16:30 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/52135.shtml)
-- 2026-06-29 16:19 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/66775632.shtml)
-- 2026-06-29 16:32 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/9920626.shtml)
-- 2026-06-29 16:33 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/66621.shtml)
-- 2026-06-29 16:24 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/784846911.shtml)
-- 2026-06-29 16:37 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/29187276.shtml)
-- 2026-06-29 16:25 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/11041718834.shtml)
-- 2026-06-29 16:31 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/17356895061.shtml)
-- 2026-06-29 16:37 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/79725150773.shtml)
+- 2026-06-29 16:37 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/424243680745.shtml)
+- 2026-06-29 16:39 - [未成年少女长期吸毒导致卧床不起](http://www.blog.kurohicncr.top/Article/details/758145.shtml)
+- 2026-06-29 16:24 - [一生一世](https://www.blog.minike.top/Article/details/36483751729.shtml)
+- 2026-06-29 16:18 - [中国战机大片上新](https://www.share.minike.top/Article/details/97031.shtml)
+- 2026-06-29 16:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/52177046.shtml)
+- 2026-06-29 16:46 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/911942472854.shtml)
+- 2026-06-29 16:19 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/50511995.shtml)
+- 2026-06-29 16:40 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/6139018.shtml)
+- 2026-06-29 16:32 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/05544978.shtml)
+- 2026-06-29 16:37 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/03474113023.shtml)
+- 2026-06-29 16:21 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/40712.shtml)
+- 2026-06-29 16:40 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/3611260.shtml)
+- 2026-06-29 16:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/1227677479.shtml)
+- 2026-06-29 16:32 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/64825.shtml)
+- 2026-06-29 16:34 - [恋与深空 731](https://www.blog.kurohicncr.top/Article/details/67625760346.shtml)

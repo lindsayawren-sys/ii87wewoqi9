@@ -1,58 +1,59 @@
-# ASMPT公布第一季度业绩 持续经营业务盈利约3.24亿港元同比增长192.9%
+# AI造假与场景虚构成新痛点 “618”消费维权舆情分析报告发布
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-ASMPT（00522）公布2026年第一季度业绩，持续经营业务销售收入为港币 39.7 亿元（5.08 亿美元），高于销售收入预测的中位数，按季增长 0.2%，按年亦增长 32.0%。 新增订单总额为港币 56.7 亿元（7.27 亿美元），远超预期，按季增长 46.0%，按年亦增长 71.6%，创下四年来新高。经调整毛利率为 39.5%，按季上升 357 点子，按年则下降
+中国消费者协会今天（26日）发布“618”消费维权 【下载黑猫投诉客户端】舆情分析报告显示，利用互联网舆情监测系统，在6月1日至6月20日共计20天监测期内共监测到“吐槽类”消费维权信息1917839条。监测发现，2026年“618”消费者吐槽主要集中于定价套路、商品质量、不当营销、售后不力等方面。 （一）定价套路：规则复杂化与定价差异化加剧信息不对称 长周期大促下价格频繁波动
 
 ## 正文
 
-ASMPT（00522）公布2026年第一季度业绩，持续经营业务销售收入为港币 39.7 亿元（5.08 亿美元），高于销售收入预测的中位数，按季增长 0.2%，按年亦增长 32.0%。
+中国消费者协会今天（26日）发布“618”消费维权 【下载黑猫投诉客户端】舆情分析报告显示，利用互联网舆情监测系统，在6月1日至6月20日共计20天监测期内共监测到“吐槽类”消费维权信息1917839条。
 
-新增订单总额为港币 56.7 亿元（7.27 亿美元），远超预期，按季增长 46.0%，按年亦增长 71.6%，创下四年来新高。
+监测发现，2026年“618”消费者吐槽主要集中于定价套路、商品质量、不当营销、售后不力等方面。
 
-经调整毛利率为 39.5%，按季上升 357 点子，按年则下降 151 点子。
+（一）定价套路：规则复杂化与定价差异化加剧信息不对称 长周期大促下价格频繁波动，叠加各类券种嵌套、会员专属价等多重规则，使得消费者比价成本攀升，价格信任基础被削弱。
 
-盈利约3.24亿港元，环比减少70.8%，同比增长192.9%。
+例1：电商平台会员套娃式“优惠券” 消费者王先生在社交平台发帖投诉拼多多V3会员退款陷阱。
 
-经调整盈利为港币 3.35 亿元，由经营利润增加所推动按季增加 123.8%，按年亦增长 193.5%。
+王先生称，他计划购买百亿补贴价1949元的Apple Watch Series 11，下单前咨询优惠问题，客服推荐68元开通V3会员领大额券，并明确承诺“未领取或未使用等级礼包优惠券，可在30天内申请退款”。
 
-公告称，经调整毛利率按季改善归因于半导体解决方案分部的较高毛利率及销售收入贡献增加。
+开通会员后，商品价格仍为1949元，消费者申请退会员费却遭拒。
 
-按年下降则由于表面贴装技术解决方案分部的销售收入贡献较高。
+客服称其已使用200元会员专属券，但实际上1949元就是该商品百亿补贴原价，平台只是将价格拆分为“原价2149元-会员券200元”，且下单时系统自动绑定优惠券，消费者无选择权，导致“未使用可退”的承诺根本无法兑现。
 
-此外，集团预期2026年第二季度的销售收入将在 5.4 亿美元至 6.0 亿美元之间，以其中位数 5.7 亿美元计按季增长 12.2%，按年亦增长 37.0%，高于市场预期。
+例2：优惠券发放“看人下菜碟” 北京张先生反映，其参与某电商平台“618”大促时发现，有的用户拥有自己所没有的大额满减券。
 
 ## 相关推荐
 
-- 2026-06-29 16:37 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 16:39 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 16:38 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 16:14 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 16:22 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 16:27 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 16:36 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 16:27 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 16:17 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 16:35 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 16:19 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 16:33 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 16:47 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 16:43 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 16:34 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 16:31 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 16:36 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 16:47 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 16:44 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 16:47 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 16:24 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 16:23 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 16:28 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 16:38 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 16:34 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:39 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/699943.shtml)
-- 2026-06-29 16:28 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/835221.shtml)
-- 2026-06-29 16:14 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/643558018.shtml)
-- 2026-06-29 16:31 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/476426.shtml)
-- 2026-06-29 16:36 - [滾石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/110752053298.shtml)
-- 2026-06-29 16:21 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/3111091474.shtml)
-- 2026-06-29 16:21 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/81669.shtml)
-- 2026-06-29 16:22 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/025442349066.shtml)
-- 2026-06-29 16:15 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/01829420.shtml)
-- 2026-06-29 16:25 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/1651170286.shtml)
-- 2026-06-29 16:31 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/870780205530.shtml)
-- 2026-06-29 16:23 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/4074546.shtml)
-- 2026-06-29 16:13 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/813720.shtml)
-- 2026-06-29 16:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/1890696.shtml)
-- 2026-06-29 16:37 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/53281.shtml)
+- 2026-06-29 16:35 - [恋与深空失控领地](http://www.share.minike.top/Article/details/34752278.shtml)
+- 2026-06-29 16:34 - [一生一世](https://www.blog.kurohicncr.top/Article/details/11732407956.shtml)
+- 2026-06-29 16:29 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/6789338.shtml)
+- 2026-06-29 16:46 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/35666.shtml)
+- 2026-06-29 16:44 - [天道](https://www.blog.minike.top/Article/details/39635026522.shtml)
+- 2026-06-29 16:19 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/7934437352.shtml)
+- 2026-06-29 16:19 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/69596986.shtml)
+- 2026-06-29 16:42 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/138837832637.shtml)
+- 2026-06-29 16:43 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/883925702.shtml)
+- 2026-06-29 16:44 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/9026499.shtml)
+- 2026-06-29 16:42 - [未成年少女长期吸毒导致卧床不起](https://www.share.minike.top/Article/details/92597676.shtml)
+- 2026-06-29 16:20 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/80203.shtml)
+- 2026-06-29 16:41 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/35232000333.shtml)
+- 2026-06-29 16:23 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/761171.shtml)
+- 2026-06-29 16:23 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/107960771362.shtml)

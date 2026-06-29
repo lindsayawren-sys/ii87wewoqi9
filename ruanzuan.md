@@ -1,61 +1,58 @@
-# 2025-2026赛季全国男子篮球联赛收官
+# 美国6月密歇根大学消费者信心指数终值为49.5 预估为50
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-中新网4月22日电 2025-2026赛季全国男子篮球联赛(NBL)于21日晚收官。在总决赛第三场比赛中，手握冠军点的香港金牛队主场以99:72战胜上海玄鸟队，从而以总比分3:0横扫对手成功卫冕，队史首次在主场捧起NBL总冠军奖杯，也成为联赛历史上首支实现三连冠的球队。 本赛季NBL联赛共有14家俱乐部参与角逐，比赛于2025年12月20日启幕，分为常规赛与季后赛两个阶段。经过
+密歇根大学6月消费者信心指数终值为49.5，此前公布的初值为48.9；前月为44.8。 32位经济学家的预测区间为48.9至53。 预期指数为50.7，而初值为49.3，前值为44.1。 当前经济状况指数为47.7；初值为48.4，前值为45.8。 对未来一年价格中值变化幅度的预期为4.6%，初值为4.6%，前月为4.8%。 对未来5-10年价格中值变化幅度的预期为3.3%，初
 
 ## 正文
 
-中新网4月22日电 2025-2026赛季全国男子篮球联赛(NBL)于21日晚收官。
+密歇根大学6月消费者信心指数终值为49.5，此前公布的初值为48.9；前月为44.8。
 
-在总决赛第三场比赛中，手握冠军点的香港金牛队主场以99:72战胜上海玄鸟队，从而以总比分3:0横扫对手成功卫冕，队史首次在主场捧起NBL总冠军奖杯，也成为联赛历史上首支实现三连冠的球队。
+32位经济学家的预测区间为48.9至53。
 
-本赛季NBL联赛共有14家俱乐部参与角逐，比赛于2025年12月20日启幕，分为常规赛与季后赛两个阶段。
+预期指数为50.7，而初值为49.3，前值为44.1。
 
-经过激烈角逐，香港金牛队与上海玄鸟队会师总决赛。
+当前经济状况指数为47.7；初值为48.4，前值为45.8。
 
-在总决赛前两场比赛中，香港金牛队展现出卫冕冠军的强大统治力。
+对未来一年价格中值变化幅度的预期为4.6%，初值为4.6%，前月为4.8%。
 
-总决赛首战做客上海，董健在关键时刻命中三分完成准绝杀，帮助球队以79:76险胜对手，取得系列赛开门红。
+对未来5-10年价格中值变化幅度的预期为3.3%，初值为3.4%，前月为3.9%。
 
-次战回到主场，香港金牛全队火力全开，以117:65大胜对手，拿下赛点。
-
-21日晚进行的第三战中，香港金牛队延续了此前的出色状态，首节即逼迫对手出现6次失误，同时在进攻端打出一波14-0的冲击波，建立起两位数的领先优势。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 16:20 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 16:21 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 16:30 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 16:23 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 16:13 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 16:20 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 16:13 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 16:36 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 16:34 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 16:16 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 16:13 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 16:29 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 16:17 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 16:14 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 16:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 16:35 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 16:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 16:20 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 16:32 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 16:25 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 16:33 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 16:25 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 16:32 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 16:30 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 16:27 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 16:33 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 16:22 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 16:18 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 16:47 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:27 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/33702640.shtml)
-- 2026-06-29 16:14 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/9944323.shtml)
-- 2026-06-29 16:16 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/02970.shtml)
-- 2026-06-29 16:24 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/37146.shtml)
-- 2026-06-29 16:25 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.minike.top/Article/details/32808075.shtml)
-- 2026-06-29 16:28 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/143890331.shtml)
-- 2026-06-29 16:32 - [急先锋](https://www.share.minike.top/Article/details/6458159.shtml)
-- 2026-06-29 16:32 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/16789498745.shtml)
-- 2026-06-29 16:26 - [欧盟为什么越来越倾向贸易保护](https://www.share.minike.top/Article/details/263593.shtml)
-- 2026-06-29 16:29 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/56372144.shtml)
-- 2026-06-29 16:36 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/319415232189.shtml)
-- 2026-06-29 16:32 - [极限挑战第一季](https://www.share.minike.top/Article/details/3068641.shtml)
-- 2026-06-29 16:22 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/88377101985.shtml)
-- 2026-06-29 16:16 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/00277500063.shtml)
-- 2026-06-29 16:39 - [四川宜宾地震](http://www.blog.minike.top/Article/details/71347870357.shtml)
+- 2026-06-29 16:39 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/99100.shtml)
+- 2026-06-29 16:20 - [抓特务票房破亿](http://www.share.minike.top/Article/details/670468124479.shtml)
+- 2026-06-29 16:18 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/842730939.shtml)
+- 2026-06-29 16:41 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/14512528548.shtml)
+- 2026-06-29 16:29 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/297186.shtml)
+- 2026-06-29 16:29 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/464099004458.shtml)
+- 2026-06-29 16:40 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/29976665.shtml)
+- 2026-06-29 16:42 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/3889406.shtml)
+- 2026-06-29 16:30 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/63494.shtml)
+- 2026-06-29 16:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/7320105114.shtml)
+- 2026-06-29 16:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/0383277.shtml)
+- 2026-06-29 16:25 - [抓特务票房破亿](http://www.share.minike.top/Article/details/828278.shtml)
+- 2026-06-29 16:38 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/57896.shtml)
+- 2026-06-29 16:20 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/535371749748.shtml)
+- 2026-06-29 16:29 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/279126434126.shtml)

@@ -1,59 +1,50 @@
-# 以法治之力铸牢中华民族共同体意识
+# 深圳校企联合发布精密具身协作智能体 两大创新平台揭牌
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-坚持依法治国是中国特色解决民族问题正确道路的重要内涵。制定民族团结进步促进法，是坚持法治方向、回应时代之问、进一步完善民族工作法治化保障的重大举措，也是顺应中华民族共同体发展大势、推进民族事务治理现代化的必然要求。习近平总书记指出，“要在法治轨道上治理民族事务，维护社会主义法制统一和法治尊严，推进民族事务治理体系和治理能力现代化。”制定民族团结进步促进法，以国家立法形式将新时代
+发布时间：2026年06月27日 16:04 来源：中国新闻网 6月25日，深圳信息职业技术大学(下称“深信大”)与深圳思谋信息科技有限公司(下称“思谋科技”)联合举办“智联精益·谋启未来——工业具身智能产教融合成果发布暨创新平台揭牌活动”，为工业AI领域“人才培养—技术研发—产业落地”闭环的打通提供了可借鉴的实践范例。 当日，由校企联合研制的“精密具身协作智能体”发布，该智能
 
 ## 正文
 
-坚持依法治国是中国特色解决民族问题正确道路的重要内涵。
+发布时间：2026年06月27日 16:04 来源：中国新闻网 6月25日，深圳信息职业技术大学(下称“深信大”)与深圳思谋信息科技有限公司(下称“思谋科技”)联合举办“智联精益·谋启未来——工业具身智能产教融合成果发布暨创新平台揭牌活动”，为工业AI领域“人才培养—技术研发—产业落地”闭环的打通提供了可借鉴的实践范例。
 
-制定民族团结进步促进法，是坚持法治方向、回应时代之问、进一步完善民族工作法治化保障的重大举措，也是顺应中华民族共同体发展大势、推进民族事务治理现代化的必然要求。
+当日，由校企联合研制的“精密具身协作智能体”发布，该智能体产品聚焦破解电子产品精密接口通电测试高度依赖人工、传统测试方案泛化能力不足、部署适配门槛高、难以匹配柔性生产节拍等行业共性痛点。
 
-习近平总书记指出，“要在法治轨道上治理民族事务，维护社会主义法制统一和法治尊严，推进民族事务治理体系和治理能力现代化。
-
-”制定民族团结进步促进法，以国家立法形式将新时代党在民族工作中取得的重大理论和实践成果转化为国家意志，标志着我国民族事务治理法治化水平迈上新的台阶。
-
-以法治之力维护中华民族大团结，以公平公正为原则健全铸牢中华民族共同体意识制度机制，必将为民族关系的正确处理、民族问题的正确解决提供法治引领和规范，从而为强国建设、民族复兴汇聚强大力量。
-
-以宪法法律权威确立民族工作的根本保障 民族团结进步促进法是新时代实施宪法有关规定、处理民族事务和开展民族工作的基本法律，以宪法法律权威为民族工作高质量发展提供了根本保障。
-
-党的十八大以来，以习近平同志为核心的党中央提出铸牢中华民族共同体意识重大原创性论断，就民族工作作出一系列重大决策部署。
-
-其核心要义“十二个必须”深刻回答了新时代民族工作举什么旗、走什么路、坚持什么原则、实现什么目标等根本性问题，是马克思主义民族理论中国化时代化的最新成果。
+韦杰夫 李曙 广东报道 责任编辑：【王凯】
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 16:40 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 16:38 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 16:24 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 16:40 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 16:17 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 16:39 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 16:20 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 16:13 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 16:22 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 16:38 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 16:15 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 16:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 16:27 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 16:21 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 16:21 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 16:46 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 16:41 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 16:36 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 16:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 16:40 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 16:33 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 16:24 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 16:33 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 16:45 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 16:47 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 16:27 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:26 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/90443.shtml)
-- 2026-06-29 16:20 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/74589.shtml)
-- 2026-06-29 16:18 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/9403414.shtml)
-- 2026-06-29 16:30 - [央视起底直播诈骗连环套](http://www.blog.kurohicncr.top/Article/details/422025916308.shtml)
-- 2026-06-29 16:30 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/90446.shtml)
-- 2026-06-29 16:35 - [AG 宫斗](https://www.blog.minike.top/Article/details/36391.shtml)
-- 2026-06-29 16:13 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/3559069480.shtml)
-- 2026-06-29 16:36 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/35428053.shtml)
-- 2026-06-29 16:15 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/28554745.shtml)
-- 2026-06-29 16:15 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/57353636.shtml)
-- 2026-06-29 16:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/769194963240.shtml)
-- 2026-06-29 16:23 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/333605518.shtml)
-- 2026-06-29 16:30 - [爱很美味](https://www.share.minike.top/Article/details/732107645837.shtml)
-- 2026-06-29 16:26 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/309062624.shtml)
-- 2026-06-29 16:26 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/64244594.shtml)
+- 2026-06-29 16:25 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/64385389582.shtml)
+- 2026-06-29 16:19 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/41696382640.shtml)
+- 2026-06-29 16:44 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/0161072167.shtml)
+- 2026-06-29 16:37 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/300038.shtml)
+- 2026-06-29 16:42 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/45936142983.shtml)
+- 2026-06-29 16:43 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/4600582.shtml)
+- 2026-06-29 16:38 - [广东一地发现极危植物新物种](http://www.share.kurohicncr.top/Article/details/23487418.shtml)
+- 2026-06-29 16:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/85862.shtml)
+- 2026-06-29 16:39 - [首尔商铺禁止洪明甫入内](https://www.share.kurohicncr.top/Article/details/23861573.shtml)
+- 2026-06-29 16:42 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/070466.shtml)
+- 2026-06-29 16:38 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/876613857716.shtml)
+- 2026-06-29 16:37 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/6433126.shtml)
+- 2026-06-29 16:24 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/475414.shtml)
+- 2026-06-29 16:23 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/660056655.shtml)
+- 2026-06-29 16:32 - [博主：美航母沦为毒品集散窝点](https://www.blog.kurohicncr.top/Article/details/6827349.shtml)

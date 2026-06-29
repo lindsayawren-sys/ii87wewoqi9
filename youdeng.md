@@ -1,61 +1,52 @@
-# 利好！千亿巨头，股价大涨
+# 广西6条河流7个水文站出现超警洪水
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月21日，A股锂矿板块走强。截至收盘，天齐锂业涨5.82%，股价为70.71元/股，市值为1206亿元，永杉锂业、江特电机、赣锋锂业等多只股票上涨。 4月20日晚间，天齐锂业披露2026年第一季度业绩预告。报告期内，公司预计实现归属于上市公司股东的净利润17亿元至20亿元，同比大幅增长1530.31%至1
+中新网南宁6月26日电(周也茹)广西壮族自治区水文中心26日提供的信息显示，6月25日8时至26日8时，据水文部门监测，钦州、贵港、玉林及河池等市部分地区降暴雨到大暴雨，局地特大暴雨，日雨量较大的有钦州市浦北县三合镇290.0毫米，贵港市桂平市罗秀镇187.5毫米。受局地强降雨及上游来水影响，广西共有龙江、右江支流澄碧河及洛清江支流西河等6条河流7个水文站出现超警0.06米至1
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网南宁6月26日电(周也茹)广西壮族自治区水文中心26日提供的信息显示，6月25日8时至26日8时，据水文部门监测，钦州、贵港、玉林及河池等市部分地区降暴雨到大暴雨，局地特大暴雨，日雨量较大的有钦州市浦北县三合镇290.0毫米，贵港市桂平市罗秀镇187.5毫米。
 
-4月21日，A股锂矿板块走强。
+受局地强降雨及上游来水影响，广西共有龙江、右江支流澄碧河及洛清江支流西河等6条河流7个水文站出现超警0.06米至1.58米的洪水。
 
-截至收盘，天齐锂业涨5.82%，股价为70.71元/股，市值为1206亿元，永杉锂业、江特电机、赣锋锂业等多只股票上涨。
+26日8时，广西仍有龙江、右江支流田州河、红水河支流龙头河3条河流3个水文站超警0.18米至1.48米；西江梧州水文站水位16.15米(警戒水位18.5米)，流量23600立方米每秒，缓慢退水中。
 
-4月20日晚间，天齐锂业披露2026年第一季度业绩预告。
+广西壮族自治区水文中心预测，未来24小时，南流江、北流河、郁江部分支流、贺江、平陆运河、茅岭江及大风江等江河可能出现1米至3米涨水过程，其中南流江上游及支流武利江，郁江支流武思江等江河将出现警戒水位左右的洪水。
 
-报告期内，公司预计实现归属于上市公司股东的净利润17亿元至20亿元，同比大幅增长1530.31%至1818.01%；预计实现的扣非净利润为16亿元至19.6亿元，同比增长3501.54%至4311.88%。
+玉林、钦州、贺州、贵港、梧州及崇左等市部分中小河流可能出现超警洪水。
 
-公告显示，一季度，天齐锂业净利润同比大幅预增的主要原因有两方面：一是受益于新能源产业发展与下游需求增长等多重利好因素驱动，公司今年第一季度的主要锂产品售价较上年同期均明显增长；二是报告期内确认的对重要联营公司Sociedad Química y Minera de Chile S.A．的投资收益同比大幅增长。
-
-随着全球能源转型步伐加快，锂电池产业在经历前期调整后，正迎来新一轮景气周期。
-
-截至目前，已有多家锂业上市公司披露的一季度业绩或预告均出现大幅增长。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:33 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 16:17 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 16:29 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 16:18 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 16:40 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 16:21 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 16:34 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 16:26 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 16:22 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 16:14 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 16:24 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 16:39 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 16:25 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 16:17 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 16:22 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 16:44 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 16:23 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 16:33 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 16:38 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 16:36 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 16:28 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 16:37 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 16:43 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 16:20 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 16:18 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:16 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/4946573.shtml)
-- 2026-06-29 16:23 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/53292.shtml)
-- 2026-06-29 16:19 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/43419.shtml)
-- 2026-06-29 16:22 - [扫黑风暴](http://www.share.minike.top/Article/details/43053.shtml)
-- 2026-06-29 16:40 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/9517285125.shtml)
-- 2026-06-29 16:36 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/856385755971.shtml)
-- 2026-06-29 16:38 - [挪威王储妃长子2次强奸被判4年](https://www.blog.minike.top/Article/details/686214.shtml)
-- 2026-06-29 16:37 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/235241.shtml)
-- 2026-06-29 16:12 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/494796502.shtml)
-- 2026-06-29 16:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/180543506.shtml)
-- 2026-06-29 16:13 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/36916391.shtml)
-- 2026-06-29 16:40 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/88367.shtml)
-- 2026-06-29 16:24 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/4511837524.shtml)
-- 2026-06-29 16:16 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/2429037.shtml)
-- 2026-06-29 16:14 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/88270291439.shtml)
+- 2026-06-29 16:36 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/79687274.shtml)
+- 2026-06-29 16:22 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/76238179.shtml)
+- 2026-06-29 16:40 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/57680.shtml)
+- 2026-06-29 16:29 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/910287727909.shtml)
+- 2026-06-29 16:39 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/28866310.shtml)
+- 2026-06-29 16:46 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/55583.shtml)
+- 2026-06-29 16:32 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/442584.shtml)
+- 2026-06-29 16:43 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/879996.shtml)
+- 2026-06-29 16:37 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/626047.shtml)
+- 2026-06-29 16:23 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/0589623308.shtml)
+- 2026-06-29 16:36 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/53209371.shtml)
+- 2026-06-29 16:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/34361832180.shtml)
+- 2026-06-29 16:36 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/940738466.shtml)
+- 2026-06-29 16:26 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/301377941.shtml)
+- 2026-06-29 16:23 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/2612344.shtml)

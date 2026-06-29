@@ -1,57 +1,46 @@
-# 爱奇艺高管回应AI演员争议：超100位艺人已入驻纳豆Pro，AI生成内容将经演员本人确认
+# 号称轻便透气“折叠头盔”能否守护安全？ 电商平台售卖 商家声称“坚固耐摔”
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-来源：三言财经 2026爱奇艺世界·大会在北京举行，爱奇艺高级副总裁刘文峰与副总裁、首席AI科学家谢丹铭接受新浪科技等对话。 会上，爱奇艺宣布已有超100位深度合作艺人同意入驻旗下AI智能体平台纳豆Pro艺人库。但此后，张若昀、于和伟、王楚然、李一桐等多位未入驻艺人接连发文称“未签署AI授权”，引发巨大舆论争议。 刘文峰在对话中强调，演员的商业逻辑并未改变，仍由经纪公司对接项目
+发布时间：2026年06月26日 09:07 来源：央视新闻 责任编辑：【韦俊龙】
 
 ## 正文
 
-来源：三言财经 2026爱奇艺世界·大会在北京举行，爱奇艺高级副总裁刘文峰与副总裁、首席AI科学家谢丹铭接受新浪科技等对话。
-
-会上，爱奇艺宣布已有超100位深度合作艺人同意入驻旗下AI智能体平台纳豆Pro艺人库。
-
-但此后，张若昀、于和伟、王楚然、李一桐等多位未入驻艺人接连发文称“未签署AI授权”，引发巨大舆论争议。
-
-刘文峰在对话中强调，演员的商业逻辑并未改变，仍由经纪公司对接项目。
-
-他表示，艺人签约后可能无需到场拍摄每一场戏，部分内容由AI生成并经演员确认，“本质上还是演员自己在演”。
-
-他认为，短期内AI作品加入大众熟悉的真人面孔可提升受欢迎程度，爱奇艺将发挥撮合作用满足各方需求。
-
-从技术层面看，AI生成真人已具备支撑长篇剧情拍摄的能力，部分镜头下已难以区分AI生成与真人表演。
-
-针对观众接受度问题，刘文峰表示市场讨论的AI演员分为两类，即模仿真人的AI和现实中不存在的全新AI演员，后者类似动漫形象，受众接受度正逐步提升。
+发布时间：2026年06月26日 09:07 来源：央视新闻 责任编辑：【韦俊龙】
 
 ## 相关推荐
 
-- 2026-06-29 16:20 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 16:21 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 16:19 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 16:20 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 16:37 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 16:25 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 16:32 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 16:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 16:21 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 16:20 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 16:40 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 16:46 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 16:31 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 16:34 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 16:30 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 16:21 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 16:35 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 16:42 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 16:40 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 16:38 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 16:47 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 16:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 16:39 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 16:28 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 16:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:19 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/7276149.shtml)
-- 2026-06-29 16:41 - [媒体：高考后消费应量力而行适度有度](https://www.blog.kurohicncr.top/Article/details/417854.shtml)
-- 2026-06-29 16:41 - [博主：黄金和原油回落不等于风险消失](http://www.blog.kurohicncr.top/Article/details/74227208335.shtml)
-- 2026-06-29 16:27 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/19759.shtml)
-- 2026-06-29 16:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/7761492671.shtml)
-- 2026-06-29 16:13 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/6978506616.shtml)
-- 2026-06-29 16:22 - [这一刀 会很帅](http://www.share.minike.top/Article/details/816766137882.shtml)
-- 2026-06-29 16:16 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/448852.shtml)
-- 2026-06-29 16:30 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/277907.shtml)
-- 2026-06-29 16:32 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.minike.top/Article/details/80075984031.shtml)
-- 2026-06-29 16:18 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.kurohicncr.top/Article/details/5356251267.shtml)
-- 2026-06-29 16:12 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/35506.shtml)
-- 2026-06-29 16:26 - [爱很美味](https://www.share.minike.top/Article/details/527426.shtml)
-- 2026-06-29 16:17 - [黄金也扛不住了](http://www.share.minike.top/Article/details/535357407237.shtml)
-- 2026-06-29 16:31 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.kurohicncr.top/Article/details/2231128491.shtml)
+- 2026-06-29 16:38 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/690596.shtml)
+- 2026-06-29 16:25 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/63146.shtml)
+- 2026-06-29 16:21 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/007985.shtml)
+- 2026-06-29 16:40 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/06757613400.shtml)
+- 2026-06-29 16:19 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/14508359.shtml)
+- 2026-06-29 16:28 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/8785752548.shtml)
+- 2026-06-29 16:30 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/389282.shtml)
+- 2026-06-29 16:42 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/997372095.shtml)
+- 2026-06-29 16:41 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.minike.top/Article/details/5412592.shtml)
+- 2026-06-29 16:41 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/3507511709.shtml)
+- 2026-06-29 16:31 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/195596443.shtml)
+- 2026-06-29 16:41 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/665206.shtml)
+- 2026-06-29 16:18 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/092407009.shtml)
+- 2026-06-29 16:38 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/93573927560.shtml)
+- 2026-06-29 16:22 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/306502.shtml)

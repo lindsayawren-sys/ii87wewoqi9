@@ -1,58 +1,58 @@
-# 一席沉浸式中国国风宴，凭啥让中外宾客为之着迷？
+# 今年以来厦金“小三通”客运航线出入境旅客量突破百万人次
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-中新网上海4月21日电 题：一席沉浸式中国国风宴，凭啥让中外宾客为之着迷？ 中新网记者 李佳佳 当《诗酒长安》的乐声托起盛唐的舞袖，当“太白醉江鲜”的醇香轻落于席间，位于上海浦东的蜀宴赋华东首店内，一席富丽堂皇的沉浸式国风盛宴，让中外宾客久久移不开目光。 物质丰裕的时代，当人们走进一家餐厅，究竟在为什么买单？ 华东师范大学思勉人文高等研究院院长方笑一给出了他的观察：“消费者是愿
+中新社厦门6月26日电 (吴冠标 付佳萍)厦门边检总站高崎边检站26日通报称，截至当天15时，今年以来厦金“小三通”客运航线出入境旅客量突破100万人次，较去年提前44天实现该节点，刷新该航线通航以来破百万人次客流最快纪录。厦金“小三通”客运航线是两岸人员往来的“黄金通道”。今年以来，两岸民众往来意愿持续高涨，该航线客流始终保持高位运行。目前该航线每日稳定开行24个往返船班，口
 
 ## 正文
 
-中新网上海4月21日电 题：一席沉浸式中国国风宴，凭啥让中外宾客为之着迷？
+中新社厦门6月26日电 (吴冠标 付佳萍)厦门边检总站高崎边检站26日通报称，截至当天15时，今年以来厦金“小三通”客运航线出入境旅客量突破100万人次，较去年提前44天实现该节点，刷新该航线通航以来破百万人次客流最快纪录。
 
-中新网记者 李佳佳 当《诗酒长安》的乐声托起盛唐的舞袖，当“太白醉江鲜”的醇香轻落于席间，位于上海浦东的蜀宴赋华东首店内，一席富丽堂皇的沉浸式国风盛宴，让中外宾客久久移不开目光。
+厦金“小三通”客运航线是两岸人员往来的“黄金通道”。
 
-物质丰裕的时代，当人们走进一家餐厅，究竟在为什么买单？
+今年以来，两岸民众往来意愿持续高涨，该航线客流始终保持高位运行。
 
-华东师范大学思勉人文高等研究院院长方笑一给出了他的观察：“消费者是愿意为了氛围和故事支付溢价的。
+目前该航线每日稳定开行24个往返船班，口岸根据实时客流动态灵活加开加班船，保障旅客顺畅出行。
 
-”在他看来，如今的餐饮已不再是一个满足口腹之欲的行为，而是承载了更多的文化附加值和情感附加值。
+据高崎边检站介绍，今年该航线的百万人次客流呈现出“结构扩容、群体多元、互动活跃”的特点。
 
-数字佐证了方笑一的观察。
+台胞出入境数量超80万人次，同比增长超35%，创通航以来同期新高。
 
-自2025年9月7日蜀宴赋在上海浦东开出华东首店以来，每日开设午宴、晚宴两场，节假日上座率超90%，外籍游客日均占比超25%，单日最高海外用户占比超50%，并呈现持续攀升态势。
+同时，福建、上海居民赴金门旅游政策红利持续释放，“厦门+金门”联游产品带动两岸旅游市场升温，两岸“双向互动、常来常往”的格局正加速形成。
 
-不仅是中国本土消费者，就连外籍游客也被席间演绎的中国传统文化所吸引。
+“虽然每日船班班次仅为2019年的三分之二，但今年日均出入境旅客达到约5600人次，高于2019年的4900人次。
 
 ## 相关推荐
 
-- 2026-06-29 16:27 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 16:12 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-29 16:28 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 16:38 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 16:34 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 16:41 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 16:39 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 16:15 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 16:20 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 16:35 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 16:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 16:35 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 16:19 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 16:22 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 16:46 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 16:31 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 16:35 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 16:35 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 16:30 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 16:30 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 16:23 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 16:47 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 16:24 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 16:27 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:21 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/316777.shtml)
-- 2026-06-29 16:37 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/92327.shtml)
-- 2026-06-29 16:19 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/5466852644.shtml)
-- 2026-06-29 16:38 - [毒液2](http://www.blog.kurohicncr.top/Article/details/179574020011.shtml)
-- 2026-06-29 16:31 - [媒体：高考后消费应量力而行适度有度](https://www.share.minike.top/Article/details/032290876387.shtml)
-- 2026-06-29 16:16 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/87382632816.shtml)
-- 2026-06-29 16:17 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/48110.shtml)
-- 2026-06-29 16:36 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/3960837965.shtml)
-- 2026-06-29 16:28 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/94097131977.shtml)
-- 2026-06-29 16:27 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/588058.shtml)
-- 2026-06-29 16:30 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/29953473031.shtml)
-- 2026-06-29 16:32 - [业内：全球市场迎来结构性投资窗口](https://www.blog.kurohicncr.top/Article/details/044047585.shtml)
-- 2026-06-29 16:38 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/9735379988.shtml)
-- 2026-06-29 16:32 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/546499869.shtml)
-- 2026-06-29 16:13 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/87323937600.shtml)
+- 2026-06-29 16:42 - [美国大满贯首日国乒主力均取胜](https://www.share.kurohicncr.top/Article/details/99128016375.shtml)
+- 2026-06-29 16:24 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/516677060.shtml)
+- 2026-06-29 16:28 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/516217.shtml)
+- 2026-06-29 16:19 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/8149586928.shtml)
+- 2026-06-29 16:44 - [欧盟为什么越来越倾向贸易保护](https://www.share.minike.top/Article/details/57926132057.shtml)
+- 2026-06-29 16:27 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/6419169.shtml)
+- 2026-06-29 16:23 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/8573683.shtml)
+- 2026-06-29 16:35 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/5921358.shtml)
+- 2026-06-29 16:43 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/90132990.shtml)
+- 2026-06-29 16:43 - [世界杯十大帅哥必吃榜](https://www.blog.kurohicncr.top/Article/details/9838638.shtml)
+- 2026-06-29 16:27 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/952224453982.shtml)
+- 2026-06-29 16:40 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/321832281218.shtml)
+- 2026-06-29 16:34 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/045019.shtml)
+- 2026-06-29 16:40 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/4006353.shtml)
+- 2026-06-29 16:23 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/39982669.shtml)

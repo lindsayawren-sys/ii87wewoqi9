@@ -1,60 +1,51 @@
-# 印度信实公司顾问因涉嫌无人机进口贿赂案在印度被捕
+# 背刺6.78亿用户，WPS吃相有点难看
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-印度中央调查局周日宣布，逮捕了一名民航总局高级官员和一名信实工业高级管理人员，两人涉嫌就无人机进口审批达成贿赂协议。 中央调查局称，涉事双方已商定以150万卢比的价格加快处理三份与Asteria Aerospace无人机进口相关的申请。Asteria是信实工业科技子公司Jio Platforms的旗下企业，由亿万富翁穆克什·安巴尼领导。 被捕人员为民航总局适航总局副局长穆达瓦特
+发布时间：2026年06月26日 20:10 来源：中国新闻网 近日，话题“被wps背刺了”冲上热搜，撕开了许多职场人的隐痛。表面上看，这是一个关于软件缓存的技术问题。但深层次看，作为全球月活设备数突破6.78亿、已成为国产头部办公软件之一的“国民级”应用，打着“云同步”的旗号，行“偷占C盘”之实，WPS的吃相，确实有点难看。(民生调查局)(佟奕萱 查志远) 责任编辑：【程春雨
 
 ## 正文
 
-印度中央调查局周日宣布，逮捕了一名民航总局高级官员和一名信实工业高级管理人员，两人涉嫌就无人机进口审批达成贿赂协议。
+发布时间：2026年06月26日 20:10 来源：中国新闻网 近日，话题“被wps背刺了”冲上热搜，撕开了许多职场人的隐痛。
 
-中央调查局称，涉事双方已商定以150万卢比的价格加快处理三份与Asteria Aerospace无人机进口相关的申请。
+表面上看，这是一个关于软件缓存的技术问题。
 
-Asteria是信实工业科技子公司Jio Platforms的旗下企业，由亿万富翁穆克什·安巴尼领导。
+但深层次看，作为全球月活设备数突破6.78亿、已成为国产头部办公软件之一的“国民级”应用，打着“云同步”的旗号，行“偷占C盘”之实，WPS的吃相，确实有点难看。
 
-被捕人员为民航总局适航总局副局长穆达瓦特·德武拉和信实工业高级副总裁巴拉特·马图尔。
-
-两人于周六在德里被捕，现场缴获25万卢比现金。
-
-随后对德武拉住所及其他地点的搜查又发现了370万卢比现金以及金银币和多台电子设备。
-
-根据起诉书，贿赂金额定为每份申请文件50万卢比。
-
-4月17日，马图尔在民航总局办公室会见德武拉，后者承诺当天完成审批，并要求次日将款项送至德里印度理工学院天桥附近。
+(民生调查局)(佟奕萱 查志远) 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-29 16:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 16:36 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 16:13 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 16:18 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 16:25 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 16:29 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 16:24 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 16:17 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 16:41 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 16:31 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 16:41 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 16:34 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 16:19 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 16:32 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 16:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 16:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 16:38 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 16:46 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 16:25 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 16:47 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 16:21 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 16:33 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 16:20 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 16:19 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 16:27 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 16:36 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 16:34 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:20 - [港股爆发 美团百度阿里等集体大涨](http://www.share.minike.top/Article/details/662996808.shtml)
-- 2026-06-29 16:32 - [中国空间站为什么要升级扩容](https://www.blog.kurohicncr.top/Article/details/8649388692.shtml)
-- 2026-06-29 16:17 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/566590638334.shtml)
-- 2026-06-29 16:28 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/089543169.shtml)
-- 2026-06-29 16:32 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/9539935558.shtml)
-- 2026-06-29 16:24 - [教育部发布高考志愿填报预警](http://www.blog.minike.top/Article/details/829692.shtml)
-- 2026-06-29 16:29 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/4557590.shtml)
-- 2026-06-29 16:23 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/660716397233.shtml)
-- 2026-06-29 16:26 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/749334280.shtml)
-- 2026-06-29 16:25 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/18943453173.shtml)
-- 2026-06-29 16:36 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/90518053.shtml)
-- 2026-06-29 16:22 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/477689516282.shtml)
-- 2026-06-29 16:26 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/44250695238.shtml)
-- 2026-06-29 16:38 - [韩国国脚无缘上亿韩元奖金](https://www.blog.kurohicncr.top/Article/details/82455339199.shtml)
-- 2026-06-29 16:33 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/0567901792.shtml)
+- 2026-06-29 16:31 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/05388906826.shtml)
+- 2026-06-29 16:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/78934116235.shtml)
+- 2026-06-29 16:22 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/49969.shtml)
+- 2026-06-29 16:45 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/5733899685.shtml)
+- 2026-06-29 16:23 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/66335930364.shtml)
+- 2026-06-29 16:32 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/59835.shtml)
+- 2026-06-29 16:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/42032383.shtml)
+- 2026-06-29 16:34 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/14536401805.shtml)
+- 2026-06-29 16:22 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/37405916086.shtml)
+- 2026-06-29 16:31 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/83213230.shtml)
+- 2026-06-29 16:38 - [沉睡花园](http://www.blog.minike.top/Article/details/706503129644.shtml)
+- 2026-06-29 16:40 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/064255395.shtml)
+- 2026-06-29 16:20 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/157547719234.shtml)
+- 2026-06-29 16:29 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/36500.shtml)
+- 2026-06-29 16:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/420495.shtml)

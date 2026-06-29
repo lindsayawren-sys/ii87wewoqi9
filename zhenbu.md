@@ -1,57 +1,56 @@
-# 向优、向新、向绿——江苏制造业企业高质量发展一线微观察
+# 以资本定力托举 浙江如何当好创新“合伙人”？
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-制造业高质量发展指数连续5年居全国首位；国家先进制造业集群增至14个，实现设区市全覆盖…… 作为拉动全国经济增长的“火车头”之一。近年来，江苏制造业企业沿着经济高质量发展的轨道，向优、向新、向绿一路“疾驰”。 制造业是立国之本、强国之基。“十五五”规划纲要明确，要加快建设制造强国。从江海平原到徐淮大地，江苏制造业企业在高质量发展的道路上正不断迈进。 记者：陈洋、林凯、李博 新华
+中新网杭州6月26日电(奚金燕)今年上半年，杭州接连迎来德国、比利时、老挝、缅甸等国政要，他们不约而同把“六小龙”企业列入考察行程，这样的密度前所未有。从另一维度观察，如今在全球资本视野中，杭州的创新故事，既是可复制的样本，又是可连接的节点。 这一现象，正是浙江科创资本赋能产业升级的生动缩影。身处新一轮科技革命与产业变革的周期拐点，浙江着力构建长期耐心资本生态，积极引导各类基金
 
 ## 正文
 
-制造业高质量发展指数连续5年居全国首位；国家先进制造业集群增至14个，实现设区市全覆盖…… 作为拉动全国经济增长的“火车头”之一。
+中新网杭州6月26日电(奚金燕)今年上半年，杭州接连迎来德国、比利时、老挝、缅甸等国政要，他们不约而同把“六小龙”企业列入考察行程，这样的密度前所未有。
 
-近年来，江苏制造业企业沿着经济高质量发展的轨道，向优、向新、向绿一路“疾驰”。
+从另一维度观察，如今在全球资本视野中，杭州的创新故事，既是可复制的样本，又是可连接的节点。
 
-制造业是立国之本、强国之基。
+这一现象，正是浙江科创资本赋能产业升级的生动缩影。
 
-“十五五”规划纲要明确，要加快建设制造强国。
+身处新一轮科技革命与产业变革的周期拐点，浙江着力构建长期耐心资本生态，积极引导各类基金聚焦“投早、投小、投硬科技、投长期”，打造陪伴式、共生式“合伙人”服务生态，助力“六小龙”、张雪机车等一批硬核科创企业走向国际赛道。
 
-从江海平原到徐淮大地，江苏制造业企业在高质量发展的道路上正不断迈进。
+资本定力：多层次构建耐心资本体系 在瞬息万变的资本市场，外界对于浙江“耐心资本”的集中关注，始于张雪机车一战出圈。
 
-记者：陈洋、林凯、李博 新华社音视频部制作
+此前，一辆中国摩托车，在2026世界超级摩托车锦标赛(WSBK)夺下赛季第六冠。
+
+这背后不仅是一场中国民族品牌的突围战，也是浙江“耐心资本”的一份精彩答卷。
+
+原来早在张雪机车“夺冠”前两个月，浙江省创业投资集团(简称浙创投)A轮领投9000万元。
 
 ## 相关推荐
 
-- 2026-06-29 16:33 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 16:27 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 16:33 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 16:18 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 16:23 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 16:22 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 16:37 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 16:32 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 16:25 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 16:25 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 16:21 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 16:20 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 16:19 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 16:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 16:29 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 16:41 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 16:39 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 16:34 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 16:39 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 16:40 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 16:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 16:37 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 16:27 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 16:21 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 16:30 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:32 - [7款商保创新药“转道”](http://www.share.kurohicncr.top/Article/details/267355.shtml)
-- 2026-06-29 16:40 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/0563749.shtml)
-- 2026-06-29 16:41 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/47131897958.shtml)
-- 2026-06-29 16:27 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/51970681.shtml)
-- 2026-06-29 16:22 - [一见倾心](https://www.share.kurohicncr.top/Article/details/397478.shtml)
-- 2026-06-29 16:14 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/96962.shtml)
-- 2026-06-29 16:25 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/977648212373.shtml)
-- 2026-06-29 16:25 - [叠纸](http://www.blog.minike.top/Article/details/38852.shtml)
-- 2026-06-29 16:40 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/77489.shtml)
-- 2026-06-29 16:29 - [12所大学更正招生目录](https://www.share.kurohicncr.top/Article/details/1999942508.shtml)
-- 2026-06-29 16:19 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/95322116.shtml)
-- 2026-06-29 16:37 - [世界杯欧美八大豪强悉数出线](http://www.share.kurohicncr.top/Article/details/31681.shtml)
-- 2026-06-29 16:34 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/616979760587.shtml)
-- 2026-06-29 16:25 - [世界杯十大帅哥必吃榜](https://www.blog.minike.top/Article/details/398620.shtml)
-- 2026-06-29 16:14 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/1496560295.shtml)
+- 2026-06-29 16:45 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/20240108364.shtml)
+- 2026-06-29 16:31 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/6063127410.shtml)
+- 2026-06-29 16:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/8186288865.shtml)
+- 2026-06-29 16:25 - [第一炉香](https://www.share.minike.top/Article/details/049658304936.shtml)
+- 2026-06-29 16:18 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/28547377113.shtml)
+- 2026-06-29 16:29 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/86337322.shtml)
+- 2026-06-29 16:36 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/19307635848.shtml)
+- 2026-06-29 16:35 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/775906.shtml)
+- 2026-06-29 16:42 - [逃狱兄弟](https://www.blog.minike.top/Article/details/65868532.shtml)
+- 2026-06-29 16:25 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/256960.shtml)
+- 2026-06-29 16:40 - [广东一地发现极危植物新物种](https://www.blog.minike.top/Article/details/6295175785.shtml)
+- 2026-06-29 16:31 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/262084708548.shtml)
+- 2026-06-29 16:38 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/716901043053.shtml)
+- 2026-06-29 16:24 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/462832.shtml)
+- 2026-06-29 16:23 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/4623544.shtml)

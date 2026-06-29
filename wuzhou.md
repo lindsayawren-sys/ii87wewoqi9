@@ -1,57 +1,54 @@
-# 劲方医药-B午前涨超4% 公司公布泛RAS抑制剂GFH276临床前研究数据
+# SpaceX计划为美国消费者推出新的星链移动服务
 
-> 更新时间：2026-06-29 16:42:03 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-劲方医药-B（02595）盘中涨近6%，截至发稿，股价上涨4.41%，现报45.94港元，成交额2121.73万港元。 劲方医药宣布，公司自主开发的口服Pan RAS（ON）抑制剂GFH276临床前研究数据，于当地时间4月21日登陆美国癌症研究协会（AACR）年会壁报展示。壁报显示GFH276在多种RAS突变的动物模型中，以低至1/3剂量即可达到或超越RMC-6236的抑瘤效果
+据媒体援引知情人士消息，埃隆·马斯克旗下的SpaceX已向投资者透露，公司计划为美国消费者推出一项全新的星链移动服务。 SpaceX总裁兼首席运营官格温·肖特韦尔在首次公开募股路演期间表示，公司正在考虑推出一款星链零售产品。 该公司可能自行建设覆盖美国的地面移动网络，但此举需要星链向个人用户销售移动合约。 SpaceX未对评论请求作出回应。责任编辑：王永生
 
 ## 正文
 
-劲方医药-B（02595）盘中涨近6%，截至发稿，股价上涨4.41%，现报45.94港元，成交额2121.73万港元。
+据媒体援引知情人士消息，埃隆·马斯克旗下的SpaceX已向投资者透露，公司计划为美国消费者推出一项全新的星链移动服务。
 
-劲方医药宣布，公司自主开发的口服Pan RAS（ON）抑制剂GFH276临床前研究数据，于当地时间4月21日登陆美国癌症研究协会（AACR）年会壁报展示。
+SpaceX总裁兼首席运营官格温·肖特韦尔在首次公开募股路演期间表示，公司正在考虑推出一款星链零售产品。
 
-壁报显示GFH276在多种RAS突变的动物模型中，以低至1/3剂量即可达到或超越RMC-6236的抑瘤效果。
+该公司可能自行建设覆盖美国的地面移动网络，但此举需要星链向个人用户销售移动合约。
 
-此外，GFH276与西妥昔单抗、化疗药物或PD-1单抗分别联用的动物实验中，可展现显著的抑瘤增效及无瘤生存期延长。
+SpaceX未对评论请求作出回应。
 
-据悉，GFH276为全球第三款进入临床试验的Pan RAS抑制剂，并在临床早期数据中显示契合临床前疗效及安全性的初步结果。
-
-责任编辑：卢昱君
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 16:16 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 16:39 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 16:22 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 16:40 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 16:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 16:18 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 16:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 16:19 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 16:22 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 16:33 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 16:39 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 16:13 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 16:33 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 16:23 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 16:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 16:44 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 16:21 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 16:23 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 16:37 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 16:43 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 16:26 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 16:38 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 16:30 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 16:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 16:36 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 16:27 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 16:26 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 16:34 - [7款商保创新药“转道”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 16:44 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:24 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/808941967.shtml)
-- 2026-06-29 16:39 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/7363320.shtml)
-- 2026-06-29 16:41 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/932062.shtml)
-- 2026-06-29 16:34 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.minike.top/Article/details/487736.shtml)
-- 2026-06-29 16:31 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/720695944237.shtml)
-- 2026-06-29 16:12 - [欧洲人驾车200公里抢购中国空调](https://www.share.kurohicncr.top/Article/details/395763619068.shtml)
-- 2026-06-29 16:25 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/674575.shtml)
-- 2026-06-29 16:27 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/231735.shtml)
-- 2026-06-29 16:31 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/19540853.shtml)
-- 2026-06-29 16:39 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/8619192.shtml)
-- 2026-06-29 16:27 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/96439615.shtml)
-- 2026-06-29 16:20 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/30496581039.shtml)
-- 2026-06-29 16:31 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/6718163.shtml)
-- 2026-06-29 16:25 - [王楚钦3-0周启豪 晋级32强](https://www.share.kurohicncr.top/Article/details/4486400463.shtml)
-- 2026-06-29 16:34 - [博主：全球股市进入“AI极端共振”](http://www.share.kurohicncr.top/Article/details/02406121547.shtml)
+- 2026-06-29 16:34 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/12858.shtml)
+- 2026-06-29 16:22 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/212917121352.shtml)
+- 2026-06-29 16:43 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/18317056.shtml)
+- 2026-06-29 16:22 - [天道](http://www.share.minike.top/Article/details/35400347487.shtml)
+- 2026-06-29 16:33 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.kurohicncr.top/Article/details/41086.shtml)
+- 2026-06-29 16:41 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/7855298735.shtml)
+- 2026-06-29 16:19 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/25233.shtml)
+- 2026-06-29 16:34 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/36470.shtml)
+- 2026-06-29 16:24 - [天道](https://www.share.kurohicncr.top/Article/details/7675144695.shtml)
+- 2026-06-29 16:35 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/63226553.shtml)
+- 2026-06-29 16:33 - [送你一朵小红花](http://www.share.minike.top/Article/details/4312135.shtml)
+- 2026-06-29 16:46 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/15575.shtml)
+- 2026-06-29 16:29 - [夏天被这些虫子咬了可能致命](http://www.blog.minike.top/Article/details/566264224876.shtml)
+- 2026-06-29 16:31 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/8643552451.shtml)
+- 2026-06-29 16:31 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/309820814879.shtml)

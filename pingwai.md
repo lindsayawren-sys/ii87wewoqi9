@@ -1,60 +1,60 @@
-# 方正证券净利润市占率增速位列第三 自营业务规模复苏但收益率仍有待提升
+# 发帖、拉几个人，就能开发一款APP……小主意“搓”出大生意
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-时间进入4月，各家券商纷纷交出2025年业绩单。 这一份份财报并不只是证券业2025年末的格局快照，更是对过去五年的阶段性总结。据SAC数据，全行业150家证券公司2025年度实现营业收入5411.71亿元，较2020年增长20.67%，全行业实现净利润2194.39亿元，较2020年增长39.30%，券商业整体取得丰硕成果。 而观察其中各家券商，则是有人欢喜有人忧。 截至4月
+小主意“搓”出大生意(“融”观中国) ——“‘手搓经济’一线观察”系列报道① “想做一个用AI给老年人聊天写回忆录的APP，有没有伙伴一起？”这是许婷2025年1月在小红书上发的一篇帖子。 靠发帖，拉几个人，就能开发出一款APP？这在过去几乎是天方夜谭。在传统互联网企业，一个APP团队通常需要项目经理、界面设计、开发工程师、测试工程师等八九个工作组的几十号人。可借助AI，拉着帖
 
 ## 正文
 
-时间进入4月，各家券商纷纷交出2025年业绩单。
+小主意“搓”出大生意(“融”观中国) ——“‘手搓经济’一线观察”系列报道① “想做一个用AI给老年人聊天写回忆录的APP，有没有伙伴一起？
 
-这一份份财报并不只是证券业2025年末的格局快照，更是对过去五年的阶段性总结。
+”这是许婷2025年1月在小红书上发的一篇帖子。
 
-据SAC数据，全行业150家证券公司2025年度实现营业收入5411.71亿元，较2020年增长20.67%，全行业实现净利润2194.39亿元，较2020年增长39.30%，券商业整体取得丰硕成果。
+靠发帖，拉几个人，就能开发出一款APP？
 
-而观察其中各家券商，则是有人欢喜有人忧。
+这在过去几乎是天方夜谭。
 
-截至4月21日，已有29家券商发布年报，若按照近五年净利润市占率变化情况进行排序，则正数前三名分别为国泰海通（存在合并因素）、中信证券、方正证券，倒数前三名分别为兴业证券、中金公司、中信建投。
+在传统互联网企业，一个APP团队通常需要项目经理、界面设计、开发工程师、测试工程师等八九个工作组的几十号人。
 
-（注：由于财政部2025年7月8日发布标准仓单交易相关会计处理实施问答，该规则实施后相关业务不再确认为收入，2025年营收市占率变化存在扭曲，故在此不作为排序指标） 其中，排名靠前的券商要么是头部券商（中信证券、广发证券），要么是存在期内并表因素（国泰海通、国联民生），而排名第三的方正证券是唯一一家不存在并表因素的中型券商，比较引人注目。
+可借助AI，拉着帖子吸引来的三四个伙伴，这款老年人回忆录APP还真被许婷“手搓”了出来。
 
-方正证券市占率增速靠前主要由两个原因： 一是存在低基数效应，2021年恰在方正证券的自营业绩低点。
+如今，帖子里描述的产品已进入公测。
 
-由于彼时原控股股东方正集团的破产重整事件，方正证券的负债端受到影响，连续多年偿还债务导致筹资活动现金流持续为负，公司重资产业务被迫收缩。
+许婷的经历并非孤例。
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 16:40 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 16:17 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 16:34 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 16:40 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 16:33 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 16:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 16:30 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 16:20 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 16:32 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 16:21 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 16:12 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 16:35 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 16:22 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 16:26 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 16:33 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 16:44 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 16:37 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 16:45 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 16:44 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 16:44 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 16:44 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 16:24 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 16:44 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 16:24 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 16:33 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 16:47 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 16:28 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:38 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/462064.shtml)
-- 2026-06-29 16:28 - [滾石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/1727126362.shtml)
-- 2026-06-29 16:38 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/554888737763.shtml)
-- 2026-06-29 16:27 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/8062311794.shtml)
-- 2026-06-29 16:30 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/183115104728.shtml)
-- 2026-06-29 16:41 - [世界杯上那些封神的门将](https://www.share.kurohicncr.top/Article/details/9736498.shtml)
-- 2026-06-29 16:25 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/98697488950.shtml)
-- 2026-06-29 16:29 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/4780457.shtml)
-- 2026-06-29 16:33 - [啊啊啊](http://www.blog.minike.top/Article/details/1916175.shtml)
-- 2026-06-29 16:35 - [四川宜宾地震](http://www.share.minike.top/Article/details/911762.shtml)
-- 2026-06-29 16:41 - [普京承认俄出现燃料危机](http://www.share.minike.top/Article/details/894807445.shtml)
-- 2026-06-29 16:12 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/135410054.shtml)
-- 2026-06-29 16:35 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/75245838.shtml)
-- 2026-06-29 16:27 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/600560948520.shtml)
-- 2026-06-29 16:21 - [流金岁月](https://www.blog.minike.top/Article/details/956389.shtml)
+- 2026-06-29 16:29 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/0601572.shtml)
+- 2026-06-29 16:28 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/518523.shtml)
+- 2026-06-29 16:26 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/9223038547.shtml)
+- 2026-06-29 16:20 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/600597164977.shtml)
+- 2026-06-29 16:47 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/9354257979.shtml)
+- 2026-06-29 16:33 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/176835.shtml)
+- 2026-06-29 16:33 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/495606.shtml)
+- 2026-06-29 16:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/493319.shtml)
+- 2026-06-29 16:46 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/03769129928.shtml)
+- 2026-06-29 16:24 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/783150522.shtml)
+- 2026-06-29 16:46 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/096129379.shtml)
+- 2026-06-29 16:42 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/62271.shtml)
+- 2026-06-29 16:27 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/6178947.shtml)
+- 2026-06-29 16:33 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/646875739270.shtml)
+- 2026-06-29 16:20 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/7013621167.shtml)

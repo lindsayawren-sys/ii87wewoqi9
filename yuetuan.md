@@ -1,57 +1,61 @@
-# 酒价内参4月22日价格发布：古井贡古20上涨6元
+# （美加墨世界杯）葡萄牙队0比0战平哥伦比亚队 两队携手出线
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月22日延续回升态势。如果主要单品各取一瓶整体打包售卖，今日总售价为9926元，较昨日上涨21元，升至近13日最高位。市场连续三日修复，终端交投情绪继续改善，但核心单品涨跌分化依然显著。 今日白酒市场11大单品七涨四跌，赢家优势明显。上
+中新社迈阿密6月28日电 (记者 沙晗汀)2026年美加墨世界杯K组小组赛最后一轮葡萄牙队对哥伦比亚队的比赛当地时间27日晚在美国佛罗里达州迈阿密体育场举行，最终两队以0比0战平，携手小组出线。 上半场比赛，两队均获得多次射门机会，但都未取得进球。下半场比赛，葡萄牙队控球占据优势，但未能攻破哥伦比亚队的密集防守。在比赛临近结束时，哥伦比亚队打入一球，但被判越位在先。 最终，哥伦
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月22日延续回升态势。
+中新社迈阿密6月28日电 (记者 沙晗汀)2026年美加墨世界杯K组小组赛最后一轮葡萄牙队对哥伦比亚队的比赛当地时间27日晚在美国佛罗里达州迈阿密体育场举行，最终两队以0比0战平，携手小组出线。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9926元，较昨日上涨21元，升至近13日最高位。
+上半场比赛，两队均获得多次射门机会，但都未取得进球。
 
-市场连续三日修复，终端交投情绪继续改善，但核心单品涨跌分化依然显著。
+下半场比赛，葡萄牙队控球占据优势，但未能攻破哥伦比亚队的密集防守。
 
-今日白酒市场11大单品七涨四跌，赢家优势明显。
+在比赛临近结束时，哥伦比亚队打入一球，但被判越位在先。
 
-上涨方面，青花汾20涨幅居前，上涨8元/瓶，创下近一个月最大单日涨幅，价格升至近一个月最高，一举突破近期交易区间；古井贡古20上涨6元/瓶，连续两日上行，价格再度刷新本月最高；国窖1573与青花郎均上涨5元/瓶，其中国窖1573价格收获五连阳，亦创近一个月最高；精品茅台上涨4元/瓶，三连涨走势稳健；习酒君品、水晶剑南春均上涨2元/瓶。
+最终，哥伦比亚队在小组赛中两胜一平积7分排名第一，葡萄牙队一胜两平积5分排名第二。
 
-下跌方面，洋河梦之蓝M6+下跌4元/瓶；飞天茅台与五粮液1618均下跌3元/瓶；五粮液普五八代小幅回落1元/瓶。
+淘汰赛，哥伦比亚队将对阵加纳队，葡萄牙队将迎战克罗地亚队。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+当天迈阿密气温高达30摄氏度。
 
-随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
+整个迈阿密体育场座无虚席，大批哥伦比亚队和葡萄牙队的球迷来到现场为球队呐喊助威。
 
 ## 相关推荐
 
-- 2026-06-29 16:29 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 16:30 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 16:35 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 16:35 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 16:19 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 16:32 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 16:37 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 16:26 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 16:14 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 16:32 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 16:25 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 16:22 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 16:36 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 16:33 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 16:46 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 16:22 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 16:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 16:23 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 16:21 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 16:47 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 16:27 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 16:20 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 16:31 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 16:18 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 16:43 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 16:37 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:12 - [爸爸当家](http://www.blog.minike.top/Article/details/8198984221.shtml)
-- 2026-06-29 16:14 - [爸爸当家](https://www.share.minike.top/Article/details/10208.shtml)
-- 2026-06-29 16:30 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/993373655.shtml)
-- 2026-06-29 16:30 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/38272974103.shtml)
-- 2026-06-29 16:35 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/19116.shtml)
-- 2026-06-29 16:15 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/903278272.shtml)
-- 2026-06-29 16:35 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.minike.top/Article/details/52338.shtml)
-- 2026-06-29 16:21 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/4037679.shtml)
-- 2026-06-29 16:25 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/8945158.shtml)
-- 2026-06-29 16:39 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/35946140.shtml)
-- 2026-06-29 16:34 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/695616398268.shtml)
-- 2026-06-29 16:29 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/31803847.shtml)
-- 2026-06-29 16:35 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/27710385024.shtml)
-- 2026-06-29 16:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/2647132.shtml)
-- 2026-06-29 16:23 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/797088558.shtml)
+- 2026-06-29 16:19 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/17099585.shtml)
+- 2026-06-29 16:37 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/131112412.shtml)
+- 2026-06-29 16:36 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.kurohicncr.top/Article/details/924476.shtml)
+- 2026-06-29 16:41 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/252373.shtml)
+- 2026-06-29 16:26 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/242144919.shtml)
+- 2026-06-29 16:22 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/75230956.shtml)
+- 2026-06-29 16:18 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/398271971451.shtml)
+- 2026-06-29 16:33 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/6984291.shtml)
+- 2026-06-29 16:40 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/660510.shtml)
+- 2026-06-29 16:18 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/017447.shtml)
+- 2026-06-29 16:29 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/69828228.shtml)
+- 2026-06-29 16:30 - [媒体：中国田径压力与期待并存](http://www.blog.kurohicncr.top/Article/details/44901483924.shtml)
+- 2026-06-29 16:40 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/7090007.shtml)
+- 2026-06-29 16:39 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/6627239941.shtml)
+- 2026-06-29 16:29 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/6265492.shtml)

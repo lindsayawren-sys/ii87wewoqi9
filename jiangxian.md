@@ -1,60 +1,61 @@
-# 特朗普对伊朗冲突期间股市反弹感到意外：原以为道指会暴跌20%
+# 海南自贸港“工业心脏”加快建设零碳园区低碳城市
 
-> 更新时间：2026-06-29 16:42:02 UTC+8
+> 更新时间：2026-06-29 16:48:02 UTC+8
 
 ## 摘要
 
-美国总统唐纳德・特朗普周二表示，他对伊朗冲突期间股市展现出的韧性感到意外，原本以为会造成更严重的金融冲击。 在接受采访时，特朗普称，他此前预计道琼斯工业平均指数和标普500指数会暴跌20%（即熊市标准），而油价将飙升至每桶200美元。 “如果当时有人告诉我，油价只会到90美元，而不是200美元，坦白说我会很惊讶，”特朗普在节目中表示，“你知道发生了什么吗？油轮找到了其他货源。它
+中新网儋州6月26日电 (记者 王子谦)记者25日从海南省儋州市举行的新闻发布会上了解到，作为海南自贸港的“样板间”和“工业心脏”，儋州洋浦正加快建设新型能源体系，争取早日建成零碳产业园区和低碳城市。 海南全岛封关运作后，儋州洋浦先进制造业、现代服务业、高新技术产业不断扩容，绿色电力消费需求持续上涨。海南低碳岛建设方案、清洁能源岛新型电力系统建设方案等文件明确支持儋州市2030
 
 ## 正文
 
-美国总统唐纳德・特朗普周二表示，他对伊朗冲突期间股市展现出的韧性感到意外，原本以为会造成更严重的金融冲击。
+中新网儋州6月26日电 (记者 王子谦)记者25日从海南省儋州市举行的新闻发布会上了解到，作为海南自贸港的“样板间”和“工业心脏”，儋州洋浦正加快建设新型能源体系，争取早日建成零碳产业园区和低碳城市。
 
-在接受采访时，特朗普称，他此前预计道琼斯工业平均指数和标普500指数会暴跌20%（即熊市标准），而油价将飙升至每桶200美元。
+海南全岛封关运作后，儋州洋浦先进制造业、现代服务业、高新技术产业不断扩容，绿色电力消费需求持续上涨。
 
-“如果当时有人告诉我，油价只会到90美元，而不是200美元，坦白说我会很惊讶，”特朗普在节目中表示，“你知道发生了什么吗？
+海南低碳岛建设方案、清洁能源岛新型电力系统建设方案等文件明确支持儋州市2030年建成新型电力系统示范区，争取入选新型电力系统建设能力提升试点城市。
 
-油轮找到了其他货源。
+中共儋州市委常委、副市长肖谦介绍，目前该市正在加快构建“核电+风电+光伏+储能”多能互补供给格局，具备建设新型能源体系的资源基础。
 
-它们驶往得克萨斯州、路易斯安那州，驶往阿拉斯加，驶往其他地方。
+今日儋州市和海南电网公司、海南核电公司、华能昌江核电公司协商达成共识，推进和实现碳达峰的实施路径为“新型电力系统-新型能源体系-零碳园区低碳城市”。
 
-这是一个惊人的现象。
+在新型电力系统建设上，2030年儋州市全域将形成相对独立的新型电网，海南核电通过“点对网”的方式直接接入儋州洋浦地区220KV电网。
 
-” 对于他常用来衡量经济成功与否的股市，特朗普表示，冲突爆发时他预计会出现大幅抛售。
+新型电网依托海南500KV“口”字型电网，以核电为主供电源，海上风电、陆上风电、光伏等新能源作为补充，新型储能和天然气发电调节，实现核电、新能源和儋州洋浦区域的产业融合发展。
 
-“看看标普500指数，现在的点位和我们刚开战时差不多。
+在新型能源体系建设上，儋州市将推进非化石能源消费倍增与终端用能电气化改造行动。
 
 ## 相关推荐
 
-- 2026-06-29 16:26 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 16:14 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 16:34 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 16:21 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 16:18 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 16:23 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 16:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 16:39 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 16:33 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 16:17 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 16:32 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 16:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 16:14 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 16:28 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 16:21 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 16:34 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 16:37 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 16:34 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 16:43 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 16:43 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 16:25 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 16:29 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 16:38 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 16:33 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 16:30 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 16:32 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 16:21 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 16:46 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 16:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:31 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/8538938770.shtml)
-- 2026-06-29 16:32 - [天价门票抬高美加墨世界杯观赛门槛](http://www.share.kurohicncr.top/Article/details/23160697.shtml)
-- 2026-06-29 16:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/98923.shtml)
-- 2026-06-29 16:29 - [波兰创该国高温纪录](http://www.blog.kurohicncr.top/Article/details/903286.shtml)
-- 2026-06-29 16:26 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/213081826.shtml)
-- 2026-06-29 16:30 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.minike.top/Article/details/62771.shtml)
-- 2026-06-29 16:24 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/42923662.shtml)
-- 2026-06-29 16:21 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/683552180.shtml)
-- 2026-06-29 16:18 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/5275675.shtml)
-- 2026-06-29 16:24 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/92356.shtml)
-- 2026-06-29 16:18 - [抓特务票房破亿](https://www.share.minike.top/Article/details/88393687694.shtml)
-- 2026-06-29 16:27 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/760343.shtml)
-- 2026-06-29 16:14 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/92964656.shtml)
-- 2026-06-29 16:20 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/74421914.shtml)
-- 2026-06-29 16:29 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/0526032.shtml)
+- 2026-06-29 16:45 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/523404.shtml)
+- 2026-06-29 16:33 - [请回答王牌2019](http://www.share.minike.top/Article/details/80480788.shtml)
+- 2026-06-29 16:25 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/79781883732.shtml)
+- 2026-06-29 16:45 - [乔家的儿女](http://www.blog.minike.top/Article/details/138443943414.shtml)
+- 2026-06-29 16:38 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/03608.shtml)
+- 2026-06-29 16:21 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/29365.shtml)
+- 2026-06-29 16:36 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/6960693.shtml)
+- 2026-06-29 16:34 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/566661.shtml)
+- 2026-06-29 16:33 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/864253.shtml)
+- 2026-06-29 16:19 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/17257.shtml)
+- 2026-06-29 16:29 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/318698927.shtml)
+- 2026-06-29 16:20 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/7769748755.shtml)
+- 2026-06-29 16:46 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/58365486802.shtml)
+- 2026-06-29 16:39 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/56536831438.shtml)
+- 2026-06-29 16:26 - [央视曝光涉黄App诈骗陷阱](http://www.blog.minike.top/Article/details/787428362.shtml)
