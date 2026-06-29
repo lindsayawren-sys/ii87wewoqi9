@@ -1,55 +1,60 @@
-# 以总理内塔尼亚胡牙病就医出院 贪腐案庭审作证再度提前结束
+# 日本资料馆拟修改南京大屠杀表述 中方回应
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-以色列总理办公室证实，本雅明・内塔尼亚胡在耶路撒冷哈达萨艾因凯雷姆医院接受牙科治疗后，已于昨晚出院。 相关消息传出后，总理办公室当晚回应称，内塔尼亚胡入院仅为接受牙科诊疗。此前多起事件引发外界质疑，认为其团队刻意隐瞒健康状况，有关他整体身体状况的猜测也持续发酵。 总理办公室补充表示，因外交事务安排，内塔尼亚胡今日将提前退出贪腐案庭审。 昨日的庭审同样以外交及安全事务为由提前结束
+中新网北京6月5日电 (记者 李京泽 黄钰钦)中国外交部发言人毛宁6月5日主持例行记者会。 有记者提问：据报道，日本长崎市计划在2026年度内完成对长崎核爆资料馆展板的更新工作。相关人士透露，馆内有关南京大屠杀的展板文案计划将不再使用“大屠杀”，改为“杀害众多平民和俘虏的南京事件”。中方对此有何评论？ 毛宁：南京大屠杀是日本军国主义犯下的残暴罪行，铁证如山，不容篡改。东京审判明
 
 ## 正文
 
-以色列总理办公室证实，本雅明・内塔尼亚胡在耶路撒冷哈达萨艾因凯雷姆医院接受牙科治疗后，已于昨晚出院。
+中新网北京6月5日电 (记者 李京泽 黄钰钦)中国外交部发言人毛宁6月5日主持例行记者会。
 
-相关消息传出后，总理办公室当晚回应称，内塔尼亚胡入院仅为接受牙科诊疗。
+有记者提问：据报道，日本长崎市计划在2026年度内完成对长崎核爆资料馆展板的更新工作。
 
-此前多起事件引发外界质疑，认为其团队刻意隐瞒健康状况，有关他整体身体状况的猜测也持续发酵。
+相关人士透露，馆内有关南京大屠杀的展板文案计划将不再使用“大屠杀”，改为“杀害众多平民和俘虏的南京事件”。
 
-总理办公室补充表示，因外交事务安排，内塔尼亚胡今日将提前退出贪腐案庭审。
+中方对此有何评论？
 
-昨日的庭审同样以外交及安全事务为由提前结束。
+毛宁：南京大屠杀是日本军国主义犯下的残暴罪行，铁证如山，不容篡改。
 
-这场庭审的作证环节已多次延期，内塔尼亚胡也频频申请取消或缩短庭审时长。
+东京审判明确认定日军在南京的暴行是“屠杀”，而不是所谓“事件”。
 
-责任编辑：陈钰嘉
+《远东国际军事法庭判决书》用专章论述“日军在南京的暴行”，通过大量幸存者证词、第三方外籍人士记录和日军档案，以国际司法判决形式判定了侵华日军制造南京大屠杀的滔天罪行。
+
+南京大屠杀元凶松井石根作为甲级战犯被处以绞刑。
 
 ## 相关推荐
 
-- 2026-06-29 15:19 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 15:09 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 15:21 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 15:22 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 15:23 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 14:56 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 15:17 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 15:17 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 15:09 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 15:11 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 15:08 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 15:23 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 15:19 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 15:28 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 15:22 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 15:11 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 15:27 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 15:04 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 15:01 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 15:12 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 15:18 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 15:04 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 15:14 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 15:06 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 15:14 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:15 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/2903053659.shtml)
-- 2026-06-29 14:58 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/9103978602.shtml)
-- 2026-06-29 15:21 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.kurohicncr.top/Article/details/41632.shtml)
-- 2026-06-29 15:10 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/746112064.shtml)
-- 2026-06-29 14:57 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/1614868.shtml)
-- 2026-06-29 15:09 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.kurohicncr.top/Article/details/624931.shtml)
-- 2026-06-29 15:16 - [双高胎](http://www.share.minike.top/Article/details/6237354.shtml)
-- 2026-06-29 15:07 - [实习期把公司领导开除了](http://www.blog.minike.top/Article/details/3931026398.shtml)
-- 2026-06-29 15:17 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/186918.shtml)
-- 2026-06-29 15:16 - [周生如故](https://www.share.kurohicncr.top/Article/details/82623689414.shtml)
-- 2026-06-29 14:58 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/37891.shtml)
-- 2026-06-29 15:06 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/91065084348.shtml)
-- 2026-06-29 14:55 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/721207.shtml)
-- 2026-06-29 14:57 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/259151.shtml)
-- 2026-06-29 15:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/884194361211.shtml)
+- 2026-06-29 15:02 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/7762884.shtml)
+- 2026-06-29 15:00 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/78528370143.shtml)
+- 2026-06-29 15:22 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/2557044237.shtml)
+- 2026-06-29 15:07 - [航空运输旅客服务质量国标将实施](https://www.share.kurohicncr.top/Article/details/070906314844.shtml)
+- 2026-06-29 15:16 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/988326528081.shtml)
+- 2026-06-29 15:18 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/7821951755.shtml)
+- 2026-06-29 15:00 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/904713.shtml)
+- 2026-06-29 15:05 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/560560333.shtml)
+- 2026-06-29 15:15 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/2781788401.shtml)
+- 2026-06-29 15:03 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/6881760094.shtml)
+- 2026-06-29 15:01 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/9692133.shtml)
+- 2026-06-29 15:29 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/61454.shtml)
+- 2026-06-29 15:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/715379.shtml)
+- 2026-06-29 15:02 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/426149966.shtml)
+- 2026-06-29 15:11 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/30531863.shtml)

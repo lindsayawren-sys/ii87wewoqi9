@@ -1,56 +1,58 @@
-# 联想集团早盘大涨超11%再创新高 公司业绩大超预期
+# 一封寄给董事长的手写信
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-联想集团（00992）早盘大涨超11%，高见17.66港元，再创历史新高。截至发稿，股价上涨11.30%，现报17.53港元，成交额22.93亿港元。 联想集团近日发布2025/2026财年全年业绩报告。财报显示，公司全年营收达5899亿元人民币，同比增长20.3%；调整后净利润同比增长42.1%，增速约为营收增速的两倍，双双创下历史新高。第四财季单季表现尤为亮眼：营收近150
+5月初的一天，一封厚厚的挂号信，寄到了我爱我家上海公司总部。牛皮纸信封上工工整整地写着地址和收件人。在微信可以秒回、邮件可以群发的今天，这样一封手写信，显得格外郑重。 这是一封感谢信。写信的是一位70多岁的上海业主，汪阿姨。她在信里感谢了一位经纪人——我爱我家上海公司瑞浦路店的刘舜尧。但奇怪的是，汪阿姨的房子，并没有在我爱我家成交。 没有成交，为什么还要专门写一封感谢信呢？故事
 
 ## 正文
 
-联想集团（00992）早盘大涨超11%，高见17.66港元，再创历史新高。
+5月初的一天，一封厚厚的挂号信，寄到了我爱我家上海公司总部。
 
-截至发稿，股价上涨11.30%，现报17.53港元，成交额22.93亿港元。
+牛皮纸信封上工工整整地写着地址和收件人。
 
-联想集团近日发布2025/2026财年全年业绩报告。
+在微信可以秒回、邮件可以群发的今天，这样一封手写信，显得格外郑重。
 
-财报显示，公司全年营收达5899亿元人民币，同比增长20.3%；调整后净利润同比增长42.1%，增速约为营收增速的两倍，双双创下历史新高。
+这是一封感谢信。
 
-第四财季单季表现尤为亮眼：营收近1500亿元，同比增长27.1%，创近20个季度最高增速；按照香港财务报告准则口径下的净利润同比增长479.5%，调整后净利润同比翻番。
+写信的是一位70多岁的上海业主，汪阿姨。
 
-值得关注的是，财报显示，第四财季联想AI相关业务收入同比增长84%，占集团总营收比重提升至38%。
+她在信里感谢了一位经纪人——我爱我家上海公司瑞浦路店的刘舜尧。
 
-全年AI相关营收同比实现翻倍增长，增速达105%。
+但奇怪的是，汪阿姨的房子，并没有在我爱我家成交。
 
-责任编辑：卢昱君
+没有成交，为什么还要专门写一封感谢信呢？
 
 ## 相关推荐
 
-- 2026-06-29 15:07 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 14:56 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 15:10 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 15:01 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 14:59 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 15:06 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 15:10 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 15:15 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 15:04 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 14:56 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 15:26 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 15:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 15:22 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 15:06 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 15:14 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 15:28 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 15:11 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 15:04 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 15:11 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 15:15 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 15:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 15:19 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:08 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/23576047082.shtml)
-- 2026-06-29 14:56 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/9065925.shtml)
-- 2026-06-29 14:58 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/92795285513.shtml)
-- 2026-06-29 15:20 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/594605.shtml)
-- 2026-06-29 15:13 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/31162.shtml)
-- 2026-06-29 14:58 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.kurohicncr.top/Article/details/16532955.shtml)
-- 2026-06-29 15:01 - [毕业群都在出什么东西](https://www.share.minike.top/Article/details/359039352.shtml)
-- 2026-06-29 14:55 - [崔韩率还以为韩娱来新人了](http://www.blog.kurohicncr.top/Article/details/45581704.shtml)
-- 2026-06-29 15:08 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/2015975.shtml)
-- 2026-06-29 14:59 - [首尔商铺禁止洪明甫入内](https://www.blog.minike.top/Article/details/021439673.shtml)
-- 2026-06-29 14:59 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/64954358.shtml)
-- 2026-06-29 15:03 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/410384695199.shtml)
-- 2026-06-29 15:07 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/276283.shtml)
-- 2026-06-29 15:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/3409234.shtml)
-- 2026-06-29 15:08 - [爸爸当家](https://www.share.minike.top/Article/details/48766924.shtml)
+- 2026-06-29 15:17 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/8088850660.shtml)
+- 2026-06-29 15:05 - [锐评浪姐7总决赛](https://www.blog.kurohicncr.top/Article/details/919276186897.shtml)
+- 2026-06-29 15:24 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/575490605455.shtml)
+- 2026-06-29 15:16 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.kurohicncr.top/Article/details/753351245076.shtml)
+- 2026-06-29 15:20 - [媒体：网络测评不能只剩“生意”](http://www.blog.minike.top/Article/details/115863.shtml)
+- 2026-06-29 15:03 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/701346.shtml)
+- 2026-06-29 15:05 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.kurohicncr.top/Article/details/0071743.shtml)
+- 2026-06-29 15:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/0111938278.shtml)
+- 2026-06-29 15:05 - [哈兰德之歌火到国外](https://www.share.kurohicncr.top/Article/details/5254192422.shtml)
+- 2026-06-29 15:10 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/55008349776.shtml)
+- 2026-06-29 15:22 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/02894592.shtml)
+- 2026-06-29 15:12 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/76488135.shtml)
+- 2026-06-29 15:04 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/65878.shtml)
+- 2026-06-29 15:22 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/8893512.shtml)
+- 2026-06-29 15:17 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/804052401674.shtml)

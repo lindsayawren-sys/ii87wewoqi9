@@ -1,46 +1,59 @@
-# 伊朗民众：美国不可信 必须高度警惕
+# Meta计划推出Hatch智能AI助手，高端订阅月费最高或将达200美元
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月27日 09:45 来源：央视新闻 责任编辑：【王祎】
+据内部文件透露，Meta 集团正筹划面向普通消费者推出 OpenClaw 衍生版 AI 智能助手产品，高端版本月度订阅费定价最高或至 200 美元，该定价对标头部 AI 巨头的旗舰付费产品。 《信息》杂志查阅项目内部文档并结合知情人士消息：这款产品暂定命名为 Hatch，将采用阶梯式定价方案，顶配会员定价 199.99 美元 / 月，对应更高额度的使用配额；不过产品最终售价尚未
 
 ## 正文
 
-发布时间：2026年05月27日 09:45 来源：央视新闻 责任编辑：【王祎】
+据内部文件透露，Meta 集团正筹划面向普通消费者推出 OpenClaw 衍生版 AI 智能助手产品，高端版本月度订阅费定价最高或至 200 美元，该定价对标头部 AI 巨头的旗舰付费产品。
+
+《信息》杂志查阅项目内部文档并结合知情人士消息：这款产品暂定命名为 Hatch，将采用阶梯式定价方案，顶配会员定价 199.99 美元 / 月，对应更高额度的使用配额；不过产品最终售价尚未敲定。
+
+从产品内测版截图来看，Hatch 功能覆盖面广泛：既能依托自然语言快速可视化编程生成软件，也可帮用户规划日历行程、代发邮件。
+
+用户仅需用日常口语下达指令，例如 “帮我制作一款健身追踪小程序”，Hatch 就能自动生成可直接运行的应用工具，操作逻辑和可视化编程类软件一致。
+
+上线付费顶配版后，Meta 将直接和 OpenAI、Anthropic 等头部 AI 厂商正面竞争，上述企业的 AI 编程与智能助手均已积累庞大付费用户：OpenAI 的 ChatGPT 专业版、Anthropic 克劳德顶配 Max 套餐定价恰好都是 200 美元 / 月。
+
+此前已有报道指出，Hatch 本质是开源项目 OpenClaw 的民用落地版本。
+
+OpenClaw 在科技圈内热度很高，但上手门槛复杂。
+
+该新品是 Meta 首席执行官扎克伯格重要战略一环：开辟全新收入来源，用以分摊公司在 AI 算力基建、大模型研发上的巨额投入。
 
 ## 相关推荐
 
-- 2026-06-29 14:54 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 15:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 15:22 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 15:02 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 15:14 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 14:57 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 14:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 15:16 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 15:18 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 15:01 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 14:57 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 15:12 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 15:10 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 15:16 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 15:28 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 15:26 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 15:17 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 15:25 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 15:19 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 15:14 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 15:07 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 15:23 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 15:27 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 15:24 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 15:15 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 15:08 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 15:03 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/321777796.shtml)
-- 2026-06-29 15:18 - [灿如繁星定档](https://www.blog.minike.top/Article/details/217165816397.shtml)
-- 2026-06-29 15:11 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/9523045389.shtml)
-- 2026-06-29 15:16 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/04464613035.shtml)
-- 2026-06-29 14:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/2706993.shtml)
-- 2026-06-29 15:22 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/605741091.shtml)
-- 2026-06-29 15:18 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/2895178.shtml)
-- 2026-06-29 15:20 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/7501960.shtml)
-- 2026-06-29 15:15 - [普京介绍前线战事](http://www.share.kurohicncr.top/Article/details/6254904638.shtml)
-- 2026-06-29 14:56 - [詹俊预测德国大胜巴拉圭](https://www.share.kurohicncr.top/Article/details/86624.shtml)
-- 2026-06-29 15:10 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/2380043.shtml)
-- 2026-06-29 15:23 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/205489860942.shtml)
-- 2026-06-29 15:08 - [逆天祖国人](http://www.share.minike.top/Article/details/99195717650.shtml)
-- 2026-06-29 15:08 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/501897.shtml)
-- 2026-06-29 15:04 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/18162726264.shtml)
+- 2026-06-29 15:08 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/66667809798.shtml)
+- 2026-06-29 15:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/7613596.shtml)
+- 2026-06-29 15:19 - [迈巴赫提车第二天发现大灯起雾](http://www.share.minike.top/Article/details/04401995.shtml)
+- 2026-06-29 15:15 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/35075837975.shtml)
+- 2026-06-29 15:04 - [普京介绍前线战事](https://www.blog.minike.top/Article/details/26880.shtml)
+- 2026-06-29 15:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/27170196307.shtml)
+- 2026-06-29 15:15 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/2548909.shtml)
+- 2026-06-29 15:06 - [以前不让妆女二可以艳压女主](https://www.blog.kurohicncr.top/Article/details/18058.shtml)
+- 2026-06-29 15:14 - [吴建豪老婆](http://www.blog.kurohicncr.top/Article/details/94951.shtml)
+- 2026-06-29 15:16 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/6269136601.shtml)
+- 2026-06-29 15:04 - [时光音乐会](http://www.blog.minike.top/Article/details/671335.shtml)
+- 2026-06-29 15:09 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/14139944.shtml)
+- 2026-06-29 15:19 - [普京称考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/18121289.shtml)
+- 2026-06-29 15:02 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/1751115541.shtml)
+- 2026-06-29 15:09 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/135412398935.shtml)

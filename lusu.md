@@ -1,58 +1,54 @@
-# 酒价内参5月27日价格发布：洋河梦之蓝M6+小幅上涨1元/瓶
+# 英博数首次公开EBFlex私有化算力管理平台
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月27日整体小幅回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9941元，较昨日温和上涨15元。近期市场在低位反复震荡，今日出现小幅修复，终端交投情绪略有回暖，但核心单品涨跌分化依然显著。 今日白酒市场11大单品七涨四跌，赢家占据
+6月4日消息，在近日举行的2026年中国图象图形大会（CCIG 2026）上，英博首次对外公开EBFlex私有化算力管理平台。通过EBCloud公有云智算服务与EBFlex私有化算力管理平台的组合，英博数科希望为高校科研场景提供覆盖“本地算力治理+云端弹性补充”的科研算力服务。 英博数科副总裁秦伟俊在演讲中提到，高校科研算力当前主要面临三类痛点：首先是算力供给难，其次是算力使用
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月27日整体小幅回升。
+6月4日消息，在近日举行的2026年中国图象图形大会（CCIG 2026）上，英博首次对外公开EBFlex私有化算力管理平台。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9941元，较昨日温和上涨15元。
+通过EBCloud公有云智算服务与EBFlex私有化算力管理平台的组合，英博数科希望为高校科研场景提供覆盖“本地算力治理+云端弹性补充”的科研算力服务。
 
-近期市场在低位反复震荡，今日出现小幅修复，终端交投情绪略有回暖，但核心单品涨跌分化依然显著。
+英博数科副总裁秦伟俊在演讲中提到，高校科研算力当前主要面临三类痛点：首先是算力供给难，其次是算力使用难，第三是算力管理难。
 
-今日白酒市场11大单品七涨四跌，赢家占据明显上风。
+基于这些问题，英博数科认为，高校科研算力建设正在从“资源采购型”走向“平台服务型”。
 
-上涨方面，古井贡古20涨幅居前，上涨10元/瓶，自月内低位快速拉升；青花郎上涨6元/瓶，斩获三连阳，创下月内最高价纪录；青花汾20上涨4元/瓶；水晶剑南春上涨3元/瓶；精品茅台上涨2元/瓶；国窖1573与洋河梦之蓝M6+均小幅上涨1元/瓶，后者再度站上600元关口。
+高校需要的不只是更多GPU设备，而是一套能够把资源供给、科研使用和日常管理连接起来的算力服务体系。
 
-下跌方面，五粮液普五八代跌幅居前，下跌6元/瓶，平近一个月最大跌幅，价格在二连跌后已快速下探至月内最低位，近期其价格中枢亦呈明显下移态势；飞天茅台、五粮液1618与习酒君品均下跌2元/瓶，其中习酒君品再创月内新低，近一月价格中枢的下移幅度较大。
+秦伟俊介绍，EBFlex的核心价值主要体现在四个方面：提升GPU利用率，减少资源空转；支持权限与配额管理，适配不同师生、课题组和项目需求；降低运维门槛，帮助管理员统一纳管本地算力资源；加速科研产出，让科研人员把更多时间投入到实验和创新本身。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
-
-随着元旦官方i茅台平台开售1499元/瓶的飞天茅台(3月31日上调至1539元/瓶)，1月9日开售2299元/瓶的精品茅台(5月16日上调至2359元/瓶)，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
+责任编辑：郭栩彤
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 15:14 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 15:02 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 15:14 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 15:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 15:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 15:01 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 15:02 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 14:58 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 15:23 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 15:02 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 15:20 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 15:21 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 15:04 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 15:07 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 15:26 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 15:16 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 15:09 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 15:14 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 15:04 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 15:01 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 15:19 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/19575040109.shtml)
-- 2026-06-29 15:02 - [久坐小心“死臀综合征”](https://www.blog.minike.top/Article/details/987707893615.shtml)
-- 2026-06-29 15:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/1020154.shtml)
-- 2026-06-29 14:58 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/0664824853.shtml)
-- 2026-06-29 15:05 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/23273136.shtml)
-- 2026-06-29 15:03 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/275648281.shtml)
-- 2026-06-29 15:18 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/747105725.shtml)
-- 2026-06-29 15:19 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/9787552467.shtml)
-- 2026-06-29 15:20 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.minike.top/Article/details/459974.shtml)
-- 2026-06-29 15:21 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.kurohicncr.top/Article/details/7836204.shtml)
-- 2026-06-29 15:05 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/4110635795.shtml)
-- 2026-06-29 14:57 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/640718318.shtml)
-- 2026-06-29 15:09 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/565517674.shtml)
-- 2026-06-29 15:08 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/27081.shtml)
-- 2026-06-29 15:13 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/5089456867.shtml)
+- 2026-06-29 15:23 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/2727824113.shtml)
+- 2026-06-29 15:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/67746655.shtml)
+- 2026-06-29 15:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/425647374093.shtml)
+- 2026-06-29 15:06 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/18031.shtml)
+- 2026-06-29 15:29 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/120486469906.shtml)
+- 2026-06-29 15:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/16434402.shtml)
+- 2026-06-29 15:09 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/694118026.shtml)
+- 2026-06-29 15:03 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/04270.shtml)
+- 2026-06-29 15:25 - [北极荒岛生存挑战](http://www.blog.kurohicncr.top/Article/details/95280203711.shtml)
+- 2026-06-29 15:28 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/40535.shtml)
+- 2026-06-29 15:26 - [博主：美航母沦为毒品集散窝点](http://www.blog.minike.top/Article/details/6851934.shtml)
+- 2026-06-29 15:29 - [以前不让妆女二可以艳压女主](https://www.blog.minike.top/Article/details/92183485.shtml)
+- 2026-06-29 15:11 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/77300.shtml)
+- 2026-06-29 15:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/498655094.shtml)
+- 2026-06-29 15:29 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/5681358.shtml)

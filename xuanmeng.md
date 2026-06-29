@@ -1,61 +1,59 @@
-# 国有大行第二轮“集体补血”即将开启！
+# 香港上海青浦联会成立两周年 聚力拓宽经贸合作新空间
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-来源：金融时报 5月22日，3000亿元特别国债正式启动发行，支持国有大行补充资本。 今年的《政府工作报告》明确，拟发行特别国债3000亿元，支持国有大型商业银行补充资本。日前，财政部披露了2026年一般国债、特别国债发行的有关安排。根据发行计划，本次3000亿元中央金融机构注资特别国债分两期发行，其中，5年期品种已于5月22日启动发行，7年期将于6月12日发行，付息方式为按年
+中新网上海6月5日电(范宇斌)近日，香港上海青浦联会举办成立2周年庆典暨青浦城市推介活动。活动以乡情为纽带、以合作为主线，汇聚沪港两地各界嘉宾，共叙情谊、共话发展、共绘蓝图，进一步深化上海青浦与香港的交流联动，推动两地在经贸、文化、社区等领域携手并进。 香港上海青浦联会会长陈文彬回顾香港上海青浦联会两年来扎根香港、联结青浦的发展历程。他表示，香港上海青浦联会将持续发挥桥梁作用，
 
 ## 正文
 
-来源：金融时报 5月22日，3000亿元特别国债正式启动发行，支持国有大行补充资本。
+中新网上海6月5日电(范宇斌)近日，香港上海青浦联会举办成立2周年庆典暨青浦城市推介活动。
 
-今年的《政府工作报告》明确，拟发行特别国债3000亿元，支持国有大型商业银行补充资本。
+活动以乡情为纽带、以合作为主线，汇聚沪港两地各界嘉宾，共叙情谊、共话发展、共绘蓝图，进一步深化上海青浦与香港的交流联动，推动两地在经贸、文化、社区等领域携手并进。
 
-日前，财政部披露了2026年一般国债、特别国债发行的有关安排。
+香港上海青浦联会会长陈文彬回顾香港上海青浦联会两年来扎根香港、联结青浦的发展历程。
 
-根据发行计划，本次3000亿元中央金融机构注资特别国债分两期发行，其中，5年期品种已于5月22日启动发行，7年期将于6月12日发行，付息方式为按年付息。
+他表示，香港上海青浦联会将持续发挥桥梁作用，当好沪港交流的联络员、情谊的维系者、合作的推动者。
 
-事实上，这已是国有大行迎来的第二轮“集体补血”。
+上海市青浦区海外联谊会会长张得志寄语香港上海青浦联会继续深耕两地，依托香港区位优势与青浦发展机遇，搭建更多交流合作平台，推动沪港资源互通、优势互补，促进两地民心相融、事业共进。
 
-2025年，财政部已发行5000亿元特别国债，定向注资中国银行、建设银行、交通银行、邮储银行四家国有大行。
+活动现场同步举行委任状颁发仪式。
 
-截至去年6月底，四大行通过向特定对象发行A股股票的形式合计募集资金5200亿元。
+香港中联办社团联络部副部长胡启明、上海市青浦区工商联党组书记陈卫群共同为新任副会长及理事颁发委任状，勉励受聘人员履职尽责、担当作为，同心协力为联会发展、为沪港两地交流贡献力量。
 
-根据去年的注资情况，5000亿元资金分散投放于上述四家国有大行。
+香港海诚物流董事长、全港各区工商联副会长王子维，申科香港集团有限公司总经理刘辉、香港中华工商总会执行主席兼行政总裁陈峰、香港卓川服务外包有限公司总经理盛小宝当选香港上海青浦联会副会长。
 
 ## 相关推荐
 
-- 2026-06-29 15:01 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 15:02 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 15:14 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 15:08 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 15:19 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 15:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 15:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 15:23 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 15:17 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 15:10 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 15:11 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 14:59 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 15:17 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 14:54 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 14:54 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 15:03 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 15:06 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 15:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 15:07 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 15:00 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 15:13 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 15:25 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 15:20 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 15:04 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 15:03 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 15:20 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 15:08 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 15:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:00 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/204582608.shtml)
-- 2026-06-29 15:15 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/9429743.shtml)
-- 2026-06-29 15:17 - [爱很美味](https://www.blog.minike.top/Article/details/87047.shtml)
-- 2026-06-29 15:08 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.minike.top/Article/details/01354.shtml)
-- 2026-06-29 15:08 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/556276.shtml)
-- 2026-06-29 14:55 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/80536273169.shtml)
-- 2026-06-29 15:12 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/67493833.shtml)
-- 2026-06-29 15:19 - [医药股集体爆发](http://www.blog.minike.top/Article/details/2205222.shtml)
-- 2026-06-29 15:04 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/4894857262.shtml)
-- 2026-06-29 15:19 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/53423909.shtml)
-- 2026-06-29 15:03 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/15137.shtml)
-- 2026-06-29 15:18 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/76705034.shtml)
-- 2026-06-29 15:18 - [手游300亿数据或被军事化运用](http://www.blog.kurohicncr.top/Article/details/204651647.shtml)
-- 2026-06-29 15:09 - [宜宾5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/21737.shtml)
-- 2026-06-29 15:08 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/82102437.shtml)
+- 2026-06-29 15:00 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/714326.shtml)
+- 2026-06-29 15:02 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/22699339401.shtml)
+- 2026-06-29 15:14 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/18480698.shtml)
+- 2026-06-29 15:19 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/874877.shtml)
+- 2026-06-29 15:10 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/2231618832.shtml)
+- 2026-06-29 15:14 - [斗破苍穹](https://www.share.minike.top/Article/details/3651619025.shtml)
+- 2026-06-29 15:28 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/912606047651.shtml)
+- 2026-06-29 15:03 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/01091526497.shtml)
+- 2026-06-29 15:04 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/48280586780.shtml)
+- 2026-06-29 15:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/766919.shtml)
+- 2026-06-29 15:11 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/20309781.shtml)
+- 2026-06-29 15:25 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/50483493833.shtml)
+- 2026-06-29 15:26 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/06133086574.shtml)
+- 2026-06-29 15:12 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/95908527.shtml)
+- 2026-06-29 15:26 - [北极荒岛生存挑战](https://www.blog.minike.top/Article/details/50931412.shtml)

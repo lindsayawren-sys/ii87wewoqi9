@@ -1,60 +1,59 @@
-# 第四届重庆都市艺术节启幕 邀公众共赴艺术之约
+# 多只热门牛股，密集提示风险
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月27日电 (记者 钟旖)26日晚，第四届重庆都市艺术节暨四川美术学院2026毕业作品展艺术游正式启幕。 作为重庆文化的一张“金名片”，本届重庆都市艺术节以“开放的六月”为主题，以“1+2+N”为主体框架，将持续至6月26日，推动艺术与大众的共鸣、高校与城市的互哺，让艺术走进都市、走近江岸、走向大众，实现“处处有戏，全民共享”的城市文化氛围。 具体来看，“1+2+N
+6月4日晚间，华特气体、江海股份、鼎通科技等多只热门股密集发布股票交易异常波动公告说明相关情况，并提示风险。 华特气体：氦气产品价格已有明显下降趋势 华特气体6月4日晚间公告，公司股票于6月3日、6月4日连续2个交易日内日收盘价格涨幅偏离值累计超过30%。根据有关规定，属于股票交易异常波动。 截至公告披露日，公司关注到市场出现关于氦气产品价格调整的传闻，经公司核实，截至目前，氦
 
 ## 正文
 
-中新网重庆5月27日电 (记者 钟旖)26日晚，第四届重庆都市艺术节暨四川美术学院2026毕业作品展艺术游正式启幕。
+6月4日晚间，华特气体、江海股份、鼎通科技等多只热门股密集发布股票交易异常波动公告说明相关情况，并提示风险。
 
-作为重庆文化的一张“金名片”，本届重庆都市艺术节以“开放的六月”为主题，以“1+2+N”为主体框架，将持续至6月26日，推动艺术与大众的共鸣、高校与城市的互哺，让艺术走进都市、走近江岸、走向大众，实现“处处有戏，全民共享”的城市文化氛围。
+华特气体：氦气产品价格已有明显下降趋势 华特气体6月4日晚间公告，公司股票于6月3日、6月4日连续2个交易日内日收盘价格涨幅偏离值累计超过30%。
 
-具体来看，“1+2+N”中，“1”为一个现象级城市艺术事件——“开放的六月”四川美术学院2026毕业作品展艺术游系列活动；“2”为“江岸艺术现场”、“星火计划”青年艺术共创月两大城市艺术品牌活动，将举办9场户外演出，开展6场艺术交流互动、8场艺术赋能城市快闪、13场成果展示交流；“N”则为全城特色艺术系列活动。
+根据有关规定，属于股票交易异常波动。
 
-记者了解到，作为本届艺术节的重头戏之一，四川美术学院2026毕业作品展也将于5月27日起对公众开放，持续至6月28日。
+截至公告披露日，公司关注到市场出现关于氦气产品价格调整的传闻，经公司核实，截至目前，氦气相关产品销售价格距高位已经有明显下降的趋势，价格受地缘政治、全球供应等因素影响波动较大，未来价格仍存在回落的可能，提请投资者理性看待相关市场传闻，勿过度放大单一产品价格波动对公司业绩的影响。
 
-展览汇集了1500余名本科生与600余名研究生创作的上万件作品。
+Wind数据显示，6月4日，华特气体股价收报203.6元/股，涨幅为15.5%，总市值为255亿元，今年以来，该股股价累计涨幅为254.77%。
 
-作品中，既有扎根中国大地、回应时代命题的宏大叙事，亦有对巴渝文脉肌理的深情抚摸与细腻捕捉；既有携手长安、赛力斯等企业打破边界的协同创新，亦不乏运用人工智能、虚拟制片等前沿技术进行的先锋实验，全方位展示了青年学子的“青春答卷”。
+江海股份：没有片式多层陶瓷电容器业务 江海股份6月4日晚发布公告称，公司股票连续3个交易日收盘价格涨幅偏离值累计超过20%，属于交易异常波动。
 
-与此同时，重庆市各区县大剧场、美术馆将集中推出100余场精品剧目演出、30余场主题展览，让两江四岸、山城街巷等城市公共空间成为可触摸、可体验、可参与的艺术场地，构建可玩、可赏、可听、可感、可互动的沉浸式艺术场景，形成“展览+山水+光影+音乐+时尚”的城市艺术新范式，让市民和游客在游览中感受艺术、在休闲中体验文化，充分彰显重庆独有的城市魅力。
+公司表示，公司目前超级电容器、MLPC的规模、营收占比及其在AI服务器电源上的应用都较小。
 
-惠民是艺术节的一大亮点。
+另外，公司没有片式多层陶瓷电容器（MLCC）业务，也没有投产MLCC的计划。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 14:57 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 15:04 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 15:09 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 15:10 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 15:23 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 15:08 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 15:07 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 15:00 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 15:10 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 15:13 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 15:13 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 14:57 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 15:20 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 15:12 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 15:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 15:14 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 15:04 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 15:06 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 15:17 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 15:14 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 15:12 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 15:25 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 15:21 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 15:13 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 15:13 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 15:03 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/83185613158.shtml)
-- 2026-06-29 15:12 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/5032845.shtml)
-- 2026-06-29 14:58 - [一生一世](https://www.share.minike.top/Article/details/156275641461.shtml)
-- 2026-06-29 15:11 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/84541051.shtml)
-- 2026-06-29 15:07 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/306114.shtml)
-- 2026-06-29 15:22 - [端午节加班工资应该怎么算](https://www.blog.minike.top/Article/details/55221383808.shtml)
-- 2026-06-29 15:05 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/025559.shtml)
-- 2026-06-29 15:08 - [急先锋](https://www.blog.minike.top/Article/details/95254.shtml)
-- 2026-06-29 15:05 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/501008775507.shtml)
-- 2026-06-29 15:19 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/1358948.shtml)
-- 2026-06-29 15:09 - [世界杯十大帅哥必吃榜](https://www.share.minike.top/Article/details/52980074178.shtml)
-- 2026-06-29 14:59 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/1939412.shtml)
-- 2026-06-29 15:18 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/8576901.shtml)
-- 2026-06-29 15:08 - [美国近12万名科技员工被解雇](http://www.share.minike.top/Article/details/36207.shtml)
-- 2026-06-29 14:57 - [大范围炎热天气将至](https://www.blog.minike.top/Article/details/83234.shtml)
+- 2026-06-29 15:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/857606.shtml)
+- 2026-06-29 15:11 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/04051.shtml)
+- 2026-06-29 15:26 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.kurohicncr.top/Article/details/3829527181.shtml)
+- 2026-06-29 15:14 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/2444249.shtml)
+- 2026-06-29 15:28 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/294202314953.shtml)
+- 2026-06-29 15:11 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/093490280697.shtml)
+- 2026-06-29 15:16 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/7849901681.shtml)
+- 2026-06-29 15:16 - [世界杯欧美八大豪强悉数出线](https://www.share.minike.top/Article/details/00941.shtml)
+- 2026-06-29 15:04 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/06534.shtml)
+- 2026-06-29 15:20 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/38127918.shtml)
+- 2026-06-29 15:09 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/88086663339.shtml)
+- 2026-06-29 15:05 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/4664808861.shtml)
+- 2026-06-29 15:19 - [复盘曾沛慈浪姐夺冠之路](https://www.share.minike.top/Article/details/68451.shtml)
+- 2026-06-29 15:16 - [叶一茜森碟一起回北京了](https://www.share.minike.top/Article/details/55008.shtml)
+- 2026-06-29 15:02 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/882809283758.shtml)

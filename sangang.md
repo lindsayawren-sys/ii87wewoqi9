@@ -1,61 +1,42 @@
-# 法拉利推出纯电动超跑Luce：售价64万美元 乔尼・艾夫操刀设计
+# 乌拉圭宣布对中国公民免签
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-这款新车命名源自意大利语中的 “光芒”。如今电动汽车在美国市场热度消退，法拉利推出 Luce，也将考验顶级富豪群体的购车意愿。 内容速览 法拉利正式发布首款纯电动车型 Luce，由苹果前设计主管乔尼・艾夫联合设计，售价 64 万美元。 这是一款大量运用玻璃材质、主打通透采光与宽绰空间的电动座驾，和传统印象中的法拉利截然不同。 本周日，这家欧洲市值最高的汽车厂商，正式揭开了旗下首
+新华社快讯：乌拉圭外交部长卢贝特金4日宣布，这一南美国家将对中国公民免签。
 
 ## 正文
 
-这款新车命名源自意大利语中的 “光芒”。
-
-如今电动汽车在美国市场热度消退，法拉利推出 Luce，也将考验顶级富豪群体的购车意愿。
-
-内容速览 法拉利正式发布首款纯电动车型 Luce，由苹果前设计主管乔尼・艾夫联合设计，售价 64 万美元。
-
-这是一款大量运用玻璃材质、主打通透采光与宽绰空间的电动座驾，和传统印象中的法拉利截然不同。
-
-本周日，这家欧洲市值最高的汽车厂商，正式揭开了旗下首款无内燃机车型的面纱。
-
-新车名为Luce（读音：卢切），名字取自意大利语里的 “光芒”。
-
-当前电动汽车在美国这一全球顶级豪华车市场遇冷，这款车型也将检验超级富豪对电动车的接受度。
-
-该车由知名设计师、苹果前高管乔尼・艾夫参与打造。
+新华社快讯：乌拉圭外交部长卢贝特金4日宣布，这一南美国家将对中国公民免签。
 
 ## 相关推荐
 
-- 2026-06-29 14:57 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 15:13 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 15:12 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 15:15 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 15:22 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 15:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 15:19 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 15:03 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 15:19 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 14:59 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 15:08 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 15:19 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 15:18 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 15:07 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 15:08 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 15:25 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 15:20 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 15:09 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 15:11 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 15:06 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 15:04 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 15:07 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 15:10 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 15:26 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 15:02 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/92288.shtml)
-- 2026-06-29 14:57 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/36714.shtml)
-- 2026-06-29 15:05 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/04254.shtml)
-- 2026-06-29 15:03 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/259833398324.shtml)
-- 2026-06-29 14:59 - [人民日报评“AI脸看腻了”](http://www.share.kurohicncr.top/Article/details/9258470.shtml)
-- 2026-06-29 15:22 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/16967775741.shtml)
-- 2026-06-29 15:17 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/451789410508.shtml)
-- 2026-06-29 15:22 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/41905227614.shtml)
-- 2026-06-29 15:04 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/868690.shtml)
-- 2026-06-29 15:20 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/76752.shtml)
-- 2026-06-29 15:12 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/0618254.shtml)
-- 2026-06-29 14:58 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/72315959884.shtml)
-- 2026-06-29 15:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/25251.shtml)
-- 2026-06-29 14:59 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/696314588422.shtml)
-- 2026-06-29 15:04 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/43061.shtml)
+- 2026-06-29 15:20 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/497894469.shtml)
+- 2026-06-29 15:05 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/10309930.shtml)
+- 2026-06-29 15:05 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/7903830963.shtml)
+- 2026-06-29 15:01 - [沉睡花园](https://www.share.minike.top/Article/details/58466.shtml)
+- 2026-06-29 15:22 - [青春环游记第三季](http://www.share.minike.top/Article/details/17810263.shtml)
+- 2026-06-29 15:08 - [ENC瓦中国香港负印度数据图](http://www.blog.minike.top/Article/details/4205679279.shtml)
+- 2026-06-29 15:04 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/212648688.shtml)
+- 2026-06-29 15:18 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/16408312.shtml)
+- 2026-06-29 15:02 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/515008465897.shtml)
+- 2026-06-29 15:03 - [啊啊啊](http://www.blog.minike.top/Article/details/09991592.shtml)
+- 2026-06-29 15:06 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/04649185685.shtml)
+- 2026-06-29 15:27 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/7141473949.shtml)
+- 2026-06-29 15:24 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/27201.shtml)
+- 2026-06-29 15:10 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/1414888569.shtml)
+- 2026-06-29 15:22 - [吴磊爱上回收了](https://www.blog.minike.top/Article/details/04999332922.shtml)

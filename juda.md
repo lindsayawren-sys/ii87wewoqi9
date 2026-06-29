@@ -1,57 +1,57 @@
-# FSD布局加速、L3落地见效，资金借道智能驾驶ETF华泰柏瑞（516520）积极布局产业机会
+# 三年来鄂企RCEP进出口享惠货值64.4亿元
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-特斯拉FSD在华布局加速、国产L3落地成效显著，智能驾驶行业近期迎来多重利好催化，产业链发展节奏持续提速，资金也积极借道智能驾驶ETF华泰柏瑞（516520）等相关产品布局智驾产业机遇。 一方面，5月21日特斯拉官方宣布监督版FSD（完全自动驾驶能力）正式登陆中国市场，该版FSD采用了接近端到端AI大模型的路线，通过海量真实路况视频训练神经网络，让系统理解复杂道路环境，与国产智
+中新网武汉6月4日电 (武一力 李晶鑫)今年6月，《区域全面经济伙伴关系协定》(RCEP)对15个成员国全面生效迎来三周年。记者4日从武汉海关获悉，3年来， RCEP政策红利持续释放，湖北企业进出口享惠货值达64.4亿元(人民币，下同)。据武汉海关统计，2023年6月至今，湖北省RCEP进口享惠货值13.92亿元、企业享受关税减让3398.13万元，出口申领优惠原产地证书及声明
 
 ## 正文
 
-特斯拉FSD在华布局加速、国产L3落地成效显著，智能驾驶行业近期迎来多重利好催化，产业链发展节奏持续提速，资金也积极借道智能驾驶ETF华泰柏瑞（516520）等相关产品布局智驾产业机遇。
+中新网武汉6月4日电 (武一力 李晶鑫)今年6月，《区域全面经济伙伴关系协定》(RCEP)对15个成员国全面生效迎来三周年。
 
-一方面，5月21日特斯拉官方宣布监督版FSD（完全自动驾驶能力）正式登陆中国市场，该版FSD采用了接近端到端AI大模型的路线，通过海量真实路况视频训练神经网络，让系统理解复杂道路环境，与国产智驾则更多采用多传感器冗余、激光雷达预埋、车云协同及本地化场景训练的模式存在明显不同。
+记者4日从武汉海关获悉，3年来， RCEP政策红利持续释放，湖北企业进出口享惠货值达64.4亿元(人民币，下同)。
 
-特斯拉在华布局加快，不仅将推动全球智驾行业算法进化，也或从竞争烈度层面促使行业加快提升技术成熟度和商业落地的速度。
+据武汉海关统计，2023年6月至今，湖北省RCEP进口享惠货值13.92亿元、企业享受关税减让3398.13万元，出口申领优惠原产地证书及声明1.82万份、享惠货值50.48亿元。
 
-另一方面，自工信部于2025年12月15日首次发放L3级有条件自动驾驶准许许可，准许其分别在北京、重庆指定区域上路以来，国产L3级自动驾驶开始场景化落地。
+湖北某化工产品贸易企业长期从RCEP成员国新加坡采购进口货物。
 
-实际效果层面，重庆首批46辆L3自动驾驶车辆在内环、渝都大道等指定拥堵路段试点运营，已累计激活里程超15万公里，L3级自动驾驶在拥堵路段叠加复杂地形的顺利落地，让全行业看到了成熟的应用场景。
+该企业业务经理李蓉介绍，RCEP实施以来，企业主力进口商品优惠关税税率逐年下调，多款产品实现零关税进口，产品价格优势进一步凸显。
 
-交银国际认为，特斯拉FSD准入是对智能驾驶软件价值和L3硬件增量的共同催化。
+企业通过RCEP原产地证明享受协定优惠，3年来，累计获得进口关税成本节省超120万元，订单量保持稳定增长。
 
-此外，2026下半年L3量产落地将成为国内智驾产业链的重要验证窗口，若L3从试点走向更明确的量产交付，将强化激光雷达、域控/中央计算平台、高精定位等智能驾驶细分方向的增量逻辑。
+湖北一家国家级专精特新“小巨人”企业凭借RCEP协定红利，出口韩国的牛磺酸享惠货值达9875.9万元。
 
-行业高景气吸引增量资金布局智能驾驶ETF华泰柏瑞（516520）。
+“我们申请的RCEP证书‘秒’签发，为公司深耕海外市场注入活力。
 
 ## 相关推荐
 
-- 2026-06-29 15:14 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 15:15 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 15:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 14:54 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 15:10 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 15:00 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 15:13 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 15:16 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 15:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 14:59 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 14:59 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 15:13 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 15:27 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 15:20 - [链博会上的机器人太全能了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 15:22 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 15:20 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 15:20 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 15:07 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 15:29 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 15:01 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 15:08 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 15:25 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:13 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/7606971328.shtml)
-- 2026-06-29 14:55 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.kurohicncr.top/Article/details/2042202.shtml)
-- 2026-06-29 15:15 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/102682495414.shtml)
-- 2026-06-29 14:56 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/28790.shtml)
-- 2026-06-29 15:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/365943279211.shtml)
-- 2026-06-29 14:57 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/83415191.shtml)
-- 2026-06-29 15:11 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/80285776.shtml)
-- 2026-06-29 15:01 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.minike.top/Article/details/17103911.shtml)
-- 2026-06-29 15:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/4356217.shtml)
-- 2026-06-29 14:54 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/091857559.shtml)
-- 2026-06-29 15:03 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/321156978.shtml)
-- 2026-06-29 15:22 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/094598.shtml)
-- 2026-06-29 15:12 - [世界杯超牛补水广告出现了](http://www.share.kurohicncr.top/Article/details/110413459110.shtml)
-- 2026-06-29 15:12 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/41923051.shtml)
-- 2026-06-29 15:20 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/769537.shtml)
+- 2026-06-29 15:00 - [金刚川](http://www.blog.minike.top/Article/details/99091073.shtml)
+- 2026-06-29 15:09 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/07628729187.shtml)
+- 2026-06-29 15:22 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/79994.shtml)
+- 2026-06-29 15:18 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/600231.shtml)
+- 2026-06-29 15:08 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/47138820319.shtml)
+- 2026-06-29 15:19 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/6320928888.shtml)
+- 2026-06-29 15:00 - [灿如繁星定档](https://www.blog.minike.top/Article/details/938966940.shtml)
+- 2026-06-29 15:05 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/482664278.shtml)
+- 2026-06-29 15:26 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/55537.shtml)
+- 2026-06-29 15:24 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/90152.shtml)
+- 2026-06-29 15:26 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/8547483275.shtml)
+- 2026-06-29 15:07 - [毒液2](http://www.share.kurohicncr.top/Article/details/671949959.shtml)
+- 2026-06-29 15:02 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/994305999.shtml)
+- 2026-06-29 15:26 - [国家体育总局政策法规司原副司长获刑](https://www.share.kurohicncr.top/Article/details/7710239015.shtml)
+- 2026-06-29 15:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/1746110.shtml)

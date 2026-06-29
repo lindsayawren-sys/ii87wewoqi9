@@ -1,54 +1,61 @@
-# 伊朗强调美伊谅解备忘录公布时应解冻120亿美元资产
+# 芯片股延续跌势 博通财报引发板块重挫
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-伊朗半官方的塔斯尼姆通讯社报道，据接近谈判团队的消息人士透露，伊朗强调与美国的谅解备忘录在宣布时，伊朗被冻结的约240亿美元资产中的一半应予以解冻。 并称其余一半应在60天内完成转移。 伊朗代表团赴卡塔尔谈判旨在就资金落实及获取途径达成共识。 会谈“总体上是积极的，并推动了整体谈判的进展。” 谈判期间必须解冻伊朗被冻结的资产。责任编辑：江学思
+芯片股周五盘前延续跌势，此前一个交易日该板块因博通财报引发集体抛售。博通自身股价盘前再跌约1%，继周四大跌12.5%后继续承压。AMD盘前跌近3%，英特尔跌超2.5%，Arm跌约5%，英伟达表现相对抗跌，仅下滑约1%。 此番抛售的导火索是博通周三盘后发布的第二财季财报。尽管该公司当季业绩超出预期——非GAAP每股收益2.44美元，营收221.9亿美元，同比增长48%——但市场对
 
 ## 正文
 
-伊朗半官方的塔斯尼姆通讯社报道，据接近谈判团队的消息人士透露，伊朗强调与美国的谅解备忘录在宣布时，伊朗被冻结的约240亿美元资产中的一半应予以解冻。
+芯片股周五盘前延续跌势，此前一个交易日该板块因博通财报引发集体抛售。
 
-并称其余一半应在60天内完成转移。
+博通自身股价盘前再跌约1%，继周四大跌12.5%后继续承压。
 
-伊朗代表团赴卡塔尔谈判旨在就资金落实及获取途径达成共识。
+AMD盘前跌近3%，英特尔跌超2.5%，Arm跌约5%，英伟达表现相对抗跌，仅下滑约1%。
 
-会谈“总体上是积极的，并推动了整体谈判的进展。
+此番抛售的导火索是博通周三盘后发布的第二财季财报。
 
-” 谈判期间必须解冻伊朗被冻结的资产。
+尽管该公司当季业绩超出预期——非GAAP每股收益2.44美元，营收221.9亿美元，同比增长48%——但市场对其人工智能芯片业务的展望感到失望。
 
-责任编辑：江学思
+博通预计第三财季AI半导体营收约为160亿美元，虽同比增长超过200%，但仍低于分析师普遍预期的172亿美元。
+
+此外，公司重申2027财年AI芯片营收目标为“超过1000亿美元”，未能如市场所愿大幅上调，引发投资者抛售。
+
+博通的暴跌迅速蔓延至整个芯片板块。
 
 ## 相关推荐
 
-- 2026-06-29 15:04 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 15:07 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 15:08 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 15:11 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 14:54 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 15:02 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 15:01 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 15:01 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 15:22 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 15:17 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 15:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 15:09 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 15:24 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 15:27 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 15:21 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 15:05 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 15:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 15:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 15:02 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 15:03 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 15:02 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 15:11 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 15:08 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 15:12 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 15:21 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 15:25 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 15:28 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:00 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.minike.top/Article/details/365719.shtml)
-- 2026-06-29 15:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/20114138343.shtml)
-- 2026-06-29 15:10 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/08832777809.shtml)
-- 2026-06-29 15:18 - [起风了](http://www.blog.minike.top/Article/details/3424611880.shtml)
-- 2026-06-29 15:04 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/370955152800.shtml)
-- 2026-06-29 15:01 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/25565459313.shtml)
-- 2026-06-29 14:59 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/1265651.shtml)
-- 2026-06-29 15:12 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/17229534.shtml)
-- 2026-06-29 15:10 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/8165090.shtml)
-- 2026-06-29 15:05 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/64105446372.shtml)
-- 2026-06-29 15:15 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/039329953.shtml)
-- 2026-06-29 15:06 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/7246032.shtml)
-- 2026-06-29 15:21 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/431723.shtml)
-- 2026-06-29 15:18 - [张一山回应与杨紫友情](https://www.blog.kurohicncr.top/Article/details/0279811.shtml)
-- 2026-06-29 14:57 - [媒体：网络测评不能只剩“生意”](https://www.share.kurohicncr.top/Article/details/280563.shtml)
+- 2026-06-29 15:10 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/88000.shtml)
+- 2026-06-29 15:09 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/05568383.shtml)
+- 2026-06-29 15:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/168305206.shtml)
+- 2026-06-29 15:20 - [哈兰德之歌火到国外](https://www.share.kurohicncr.top/Article/details/732817.shtml)
+- 2026-06-29 15:04 - [3D打印不是工业革命，它是……](https://www.share.minike.top/Article/details/918219.shtml)
+- 2026-06-29 15:26 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/536551.shtml)
+- 2026-06-29 15:06 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/176314704524.shtml)
+- 2026-06-29 15:22 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/342620004.shtml)
+- 2026-06-29 15:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/18690125.shtml)
+- 2026-06-29 15:00 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/21142240.shtml)
+- 2026-06-29 15:20 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/226629753.shtml)
+- 2026-06-29 15:18 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/3470718.shtml)
+- 2026-06-29 15:18 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/407979685.shtml)
+- 2026-06-29 15:04 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/536558778.shtml)
+- 2026-06-29 15:25 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/7789668284.shtml)

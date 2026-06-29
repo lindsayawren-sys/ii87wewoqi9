@@ -1,58 +1,61 @@
-# 柳州地震理赔启动，不用自己买的巨灾保险怎么用？
+# 韩国劳动部长呼吁三星等科技公司分享超额利润
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-来源：金融时报 近期，广西柳州市柳南区连续发生5.2级地震，造成人员伤亡和房屋财产损失。国家防灾减灾救灾委员会迅速启动国家四级救灾应急响应，国家发展改革委安排中央预算内投资5000万元，广西壮族自治区财政及柳州市本级也紧急调度拨付大量资金，用于应急救灾和灾后恢复。 在国家救灾资金高效运转的同时，另一张“看不见的安全网”——巨灾保险，也在悄然发挥作用。依托柳州市巨灾民生综合保险试
+韩国雇佣劳动部长官金荣训周五呼吁该国主要科技公司分享其巨额意外利润，并警告称，人工智能热潮带来的芯片行业前所未有的收益可能会加剧贫富差距。 金荣训在接受采访时表示，像三星电子这样业绩超过盈利目标的公司，在扣除税款后，应该考虑与供应商、分包商及其员工分享超额利润，因为他们对公司发展做出了贡献。 他表示，韩国政府、企业、工会和供应商应该就如何分配这些“超额利润”以及如何缩小大型企业
 
 ## 正文
 
-来源：金融时报 近期，广西柳州市柳南区连续发生5.2级地震，造成人员伤亡和房屋财产损失。
+韩国雇佣劳动部长官金荣训周五呼吁该国主要科技公司分享其巨额意外利润，并警告称，人工智能热潮带来的芯片行业前所未有的收益可能会加剧贫富差距。
 
-国家防灾减灾救灾委员会迅速启动国家四级救灾应急响应，国家发展改革委安排中央预算内投资5000万元，广西壮族自治区财政及柳州市本级也紧急调度拨付大量资金，用于应急救灾和灾后恢复。
+金荣训在接受采访时表示，像三星电子这样业绩超过盈利目标的公司，在扣除税款后，应该考虑与供应商、分包商及其员工分享超额利润，因为他们对公司发展做出了贡献。
 
-在国家救灾资金高效运转的同时，另一张“看不见的安全网”——巨灾保险，也在悄然发挥作用。
+他表示，韩国政府、企业、工会和供应商应该就如何分配这些“超额利润”以及如何缩小大型企业集团与小型供应商之间的差距展开公开对话。
 
-依托柳州市巨灾民生综合保险试点优势，本次地震灾害已全部纳入保障范围。
+金荣训曾是一名劳工维权人士，他此前帮助三星与其工会达成一项最后一刻的薪酬协议，避免了一场大规模罢工，并为三星的存储芯片工人带来了丰厚的奖金。
 
-柳州市财政局数据显示，截至5月22日7时，辖内保险机构累计接报理赔案件24件，估损金额2898万元，已完成赔付12件，赔付金额115万元。
+“我们应该通过社会对话来制定新的分配规则，”金荣训在采访中说，“不可否认，三星取得的卓越成就离不开劳资双方的共同努力。
 
-然而，不少群众仍心存疑惑：巨灾保险是什么？
+三星的成功也离不开1700家供应商，以及当地社区的贡献，包括水和电的供应。
 
-受灾后怎么用？
+” 金荣训于5月下旬首次提出就如何处理企业超额利润展开公开对话的想法，此后他表示计划就此问题举办论坛。
 
-保费由谁出？
+他在周五的采访中阐述了他对超额利润的定义以及如何分配这些利润（例如调整供应商价格）的看法。
 
 ## 相关推荐
 
-- 2026-06-29 15:06 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 15:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 15:08 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 14:55 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 15:09 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 14:58 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 15:17 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 15:01 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 15:15 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 15:01 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 15:12 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 14:57 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 15:27 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 15:17 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 15:08 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 15:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 15:10 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 15:28 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 15:13 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 15:01 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 15:22 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 15:18 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 15:11 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 15:06 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 15:26 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 15:01 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 15:22 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:17 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/033331.shtml)
-- 2026-06-29 15:22 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/5269292336.shtml)
-- 2026-06-29 15:16 - [TOP 无畏契约](https://www.share.kurohicncr.top/Article/details/2838066.shtml)
-- 2026-06-29 14:56 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/48172.shtml)
-- 2026-06-29 15:11 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/45001367897.shtml)
-- 2026-06-29 15:03 - [极限挑战第一季](http://www.blog.minike.top/Article/details/810492.shtml)
-- 2026-06-29 15:23 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/574096.shtml)
-- 2026-06-29 14:55 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/68466.shtml)
-- 2026-06-29 15:19 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/441530422.shtml)
-- 2026-06-29 15:12 - [起风了](https://www.blog.kurohicncr.top/Article/details/78949040.shtml)
-- 2026-06-29 15:03 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/7968173.shtml)
-- 2026-06-29 15:20 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/970935.shtml)
-- 2026-06-29 14:54 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/7355745409.shtml)
-- 2026-06-29 15:17 - [上海一小区水池内出现一条鳄鱼](http://www.share.minike.top/Article/details/912576033055.shtml)
-- 2026-06-29 15:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/1341929985.shtml)
+- 2026-06-29 15:29 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.kurohicncr.top/Article/details/473297.shtml)
+- 2026-06-29 15:10 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/636285.shtml)
+- 2026-06-29 15:06 - [未来5年全国能源体系将呈现这些特征](https://www.share.kurohicncr.top/Article/details/2082660.shtml)
+- 2026-06-29 15:00 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.minike.top/Article/details/93067.shtml)
+- 2026-06-29 15:26 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/2904419.shtml)
+- 2026-06-29 15:25 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/519642093891.shtml)
+- 2026-06-29 15:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/7227835063.shtml)
+- 2026-06-29 15:20 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/01846.shtml)
+- 2026-06-29 15:29 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.kurohicncr.top/Article/details/580288094324.shtml)
+- 2026-06-29 15:05 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/50851312147.shtml)
+- 2026-06-29 15:28 - [叶一茜森碟一起回北京了](http://www.share.kurohicncr.top/Article/details/35339001335.shtml)
+- 2026-06-29 15:24 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.minike.top/Article/details/0438412474.shtml)
+- 2026-06-29 15:26 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/29545260277.shtml)
+- 2026-06-29 15:08 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/086360642.shtml)
+- 2026-06-29 15:05 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/88822447568.shtml)

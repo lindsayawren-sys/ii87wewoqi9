@@ -1,57 +1,60 @@
-# 布伦特油价周二上涨，美军打击行动与特朗普模糊表态令市场紧绷
+# 古巴方面回应美国最新对古制裁
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-布伦特原油价格周二上涨，因美军在伊朗南部实施打击，且美国总统唐纳德·特朗普就美伊谈判发出喜忧参半的信号，令交易员保持紧张。 截至美国东部时间上午7：59，国际基准布伦特原油上涨3%，至每桶99.03美元。美国西得克萨斯中质原油7月期货较上周五收盘价下跌4%，至每桶92.73美元。周一因美国阵亡将士纪念日假期，WTI未进行结算。 美国军方表示，其在伊朗南部实施了自卫打击，目标是涉
+中新社北京6月5日电 当地时间4日，美国宣布将古巴国家主席迪亚斯-卡内尔及其妻子等多人和多个实体列入制裁名单。古巴方面当日对此予以回应。 美国财政部外国资产控制办公室4日发布消息称，新增针对古巴的制裁名单中包括5名个人和5个实体。除古巴国家主席夫妇外，还包括古巴革命领袖劳尔·卡斯特罗的儿子亚历杭德罗·卡斯特罗等人。 迪亚斯-卡内尔当日在社交媒体上说，美方这些措施旨在进一步强化对
 
 ## 正文
 
-布伦特原油价格周二上涨，因美军在伊朗南部实施打击，且美国总统唐纳德·特朗普就美伊谈判发出喜忧参半的信号，令交易员保持紧张。
+中新社北京6月5日电 当地时间4日，美国宣布将古巴国家主席迪亚斯-卡内尔及其妻子等多人和多个实体列入制裁名单。
 
-截至美国东部时间上午7：59，国际基准布伦特原油上涨3%，至每桶99.03美元。
+古巴方面当日对此予以回应。
 
-美国西得克萨斯中质原油7月期货较上周五收盘价下跌4%，至每桶92.73美元。
+美国财政部外国资产控制办公室4日发布消息称，新增针对古巴的制裁名单中包括5名个人和5个实体。
 
-周一因美国阵亡将士纪念日假期，WTI未进行结算。
+除古巴国家主席夫妇外，还包括古巴革命领袖劳尔·卡斯特罗的儿子亚历杭德罗·卡斯特罗等人。
 
-美国军方表示，其在伊朗南部实施了自卫打击，目标是涉嫌试图布设水雷的船只以及导弹发射阵地。
+迪亚斯-卡内尔当日在社交媒体上说，美方这些措施旨在进一步强化对古巴的封锁，并加剧古巴与美国之间的对抗局面。
 
-美国中央司令部表示，这些行动旨在保护我们的部队免受伊朗军队造成的威胁。
+这种政治上的短视做法，与美国近几周来针对古巴实施的一系列强制性措施一脉相承，其目的都是损害古巴人民的利益。
 
-责任编辑：张俊 SF065
+迪亚斯-卡内尔说，美国政府的侵略性和恶劣行径，“将遭遇我们迎接最严峻局面、抵御帝国主义冲击的坚定决心”。
+
+古巴外长布鲁诺·罗德里格斯当日在社交媒体上发文称，美国政府最新对古制裁是美国干涉主义计划的最新表现，意在把古巴塑造成美国国家安全的威胁。
 
 ## 相关推荐
 
-- 2026-06-29 15:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 15:22 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 15:00 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 15:17 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 15:17 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 15:11 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 15:17 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 15:20 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 15:13 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 15:01 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 15:05 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 14:54 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 15:01 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 15:12 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 15:23 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 15:08 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 15:29 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 15:15 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 15:08 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 15:24 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 15:09 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 15:02 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 15:04 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 15:16 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 15:19 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 15:05 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 15:17 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:11 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/31998.shtml)
-- 2026-06-29 15:19 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/258974110595.shtml)
-- 2026-06-29 14:54 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/1972701992.shtml)
-- 2026-06-29 15:24 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/726583.shtml)
-- 2026-06-29 15:15 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.kurohicncr.top/Article/details/565637874529.shtml)
-- 2026-06-29 15:13 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/79342241482.shtml)
-- 2026-06-29 15:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/33660.shtml)
-- 2026-06-29 15:03 - [把古诗里的动作换成加班](https://www.blog.kurohicncr.top/Article/details/76865.shtml)
-- 2026-06-29 15:05 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/80312411620.shtml)
-- 2026-06-29 15:18 - [ENC瓦中国香港负印度数据图](https://www.blog.kurohicncr.top/Article/details/5928574.shtml)
-- 2026-06-29 14:56 - [血糖高的人能吃西瓜吗](http://www.blog.kurohicncr.top/Article/details/1285620.shtml)
-- 2026-06-29 15:06 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/263580201.shtml)
-- 2026-06-29 15:17 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/698819.shtml)
-- 2026-06-29 15:03 - [佛得角到底在哪个“角”](https://www.share.kurohicncr.top/Article/details/4247487013.shtml)
-- 2026-06-29 15:03 - [斛珠夫人](http://www.blog.minike.top/Article/details/109841.shtml)
+- 2026-06-29 15:08 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/2045311.shtml)
+- 2026-06-29 15:05 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/830966090163.shtml)
+- 2026-06-29 15:06 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/21677750.shtml)
+- 2026-06-29 15:00 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/286399918170.shtml)
+- 2026-06-29 15:00 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/3480307.shtml)
+- 2026-06-29 15:03 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/633991.shtml)
+- 2026-06-29 15:01 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/9515815.shtml)
+- 2026-06-29 15:03 - [工作靠AI算不算职场作弊](http://www.share.kurohicncr.top/Article/details/601977.shtml)
+- 2026-06-29 15:24 - [美媒：空警-3000服役即成全球最强](https://www.blog.minike.top/Article/details/215539799735.shtml)
+- 2026-06-29 15:05 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/24990.shtml)
+- 2026-06-29 15:14 - [AG 钟意](http://www.blog.kurohicncr.top/Article/details/48052506.shtml)
+- 2026-06-29 15:25 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/30818922.shtml)
+- 2026-06-29 15:08 - [沙丘](https://www.blog.kurohicncr.top/Article/details/33925837.shtml)
+- 2026-06-29 15:00 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/89934544.shtml)
+- 2026-06-29 15:04 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/13398.shtml)

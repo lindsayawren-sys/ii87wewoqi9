@@ -1,57 +1,58 @@
-# 4家A股公司将集体退市，一股一年涨停33次
+# 002859，突传新消息！融资资金加仓多只固态电池概念股（附名单）
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨莫丽娟 编辑丨张颖国 随着2025年财报审计的尘埃落定，A股市场新一轮的“优胜劣汰”大幕彻底拉开。2026年5月下旬，四家上市公司纷纷公告告别A股。*ST国化（维权）、*ST华嵘（维权）、*ST熊猫（维权）以及此前已收到告知书的*ST万方（维权）等多只
+二季度以来，融资资金加仓多只固态电池概念股。 今日（6月4日）盘后，洁美科技（002859）发布关于股票交易异常波动的公告。公司股票于6月2日、6月3日、6月4日连续3个交易日收盘价格涨幅偏离值累计超过20%，属于股票交易异常波动的情况。值得关注的是，本次异动公告距离上次发布异动公告的6月1日，仅过去三天。 洁美科技表示，公司前期披露的信息不存在需要补充、更正之处；内外部经营环
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+二季度以来，融资资金加仓多只固态电池概念股。
 
-记者丨莫丽娟 编辑丨张颖国 随着2025年财报审计的尘埃落定，A股市场新一轮的“优胜劣汰”大幕彻底拉开。
+今日（6月4日）盘后，洁美科技（002859）发布关于股票交易异常波动的公告。
 
-2026年5月下旬，四家上市公司纷纷公告告别A股。
+公司股票于6月2日、6月3日、6月4日连续3个交易日收盘价格涨幅偏离值累计超过20%，属于股票交易异常波动的情况。
 
-*ST国化（维权）、*ST华嵘（维权）、*ST熊猫（维权）以及此前已收到告知书的*ST万方（维权）等多只股票，因触及财务类或审计意见类退市指标，被终止上市。
+值得关注的是，本次异动公告距离上次发布异动公告的6月1日，仅过去三天。
 
-对于持有这些股票的投资者而言，比退市更令人心寒的是财报背后的财务造假、业绩大变脸及信息披露违规。
+洁美科技表示，公司前期披露的信息不存在需要补充、更正之处；内外部经营环境未发生重大变化，经营情况正常；不存在关于公司的应披露而未披露的重大事项。
 
-退市只是公司失去了上市交易资格，但上市公司的主体资格依然存在，必须对其存续期间的违法行为负责。
+请广大投资者理性投资，注意风险。
 
-一年涨停33次，涨停当晚拉响退市警报 *ST华嵘（600421）曾是A股市场备受关注的股票——该公司近一年涨停次数高达33次，在发布业绩修正公告当天仍以涨停收盘，被标注为“大牛股”。
+公司主营业务为电子封装材料、电子级薄膜材料、复合集流体即复合铝箔、复合铜箔、涂碳复合铝箔等。
 
-风光背后暗藏危机。
+目前公司电子封装材料经营情况稳定，电子级薄膜材料处于放量期，2025年度电子级薄膜材料营业收入为2.60亿元，营业收入占比为12.37%。
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 15:17 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 14:55 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 14:56 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 14:57 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 15:11 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 15:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 15:06 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 15:10 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 15:01 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 15:01 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 15:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 15:00 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 15:26 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 15:14 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 15:16 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 15:11 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 15:02 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 15:06 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 15:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 15:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 15:13 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 15:08 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [20年前的周杰伦](http://www.blog.kurohicncr.top/Article/details/7414736452.shtml)
-- 2026-06-29 15:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/3121239.shtml)
-- 2026-06-29 15:11 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/94705873.shtml)
-- 2026-06-29 15:12 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/935936307991.shtml)
-- 2026-06-29 14:57 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/4760941.shtml)
-- 2026-06-29 15:20 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/6681649775.shtml)
-- 2026-06-29 15:13 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/847472.shtml)
-- 2026-06-29 15:20 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/42239954.shtml)
-- 2026-06-29 15:21 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/38453948180.shtml)
-- 2026-06-29 15:09 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/21759421.shtml)
-- 2026-06-29 15:05 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/11696.shtml)
-- 2026-06-29 14:59 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/844161.shtml)
-- 2026-06-29 15:03 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/50489961.shtml)
-- 2026-06-29 15:15 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/3143918818.shtml)
-- 2026-06-29 15:18 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/076353541416.shtml)
+- 2026-06-29 15:24 - [中国创新药股价要反攻了吗](http://www.share.minike.top/Article/details/462914442305.shtml)
+- 2026-06-29 15:19 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/35869050.shtml)
+- 2026-06-29 15:11 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/9892746206.shtml)
+- 2026-06-29 15:16 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/045253.shtml)
+- 2026-06-29 15:19 - [吴磊爱上回收了](https://www.blog.minike.top/Article/details/9971765785.shtml)
+- 2026-06-29 15:13 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/0558083401.shtml)
+- 2026-06-29 15:17 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/45302.shtml)
+- 2026-06-29 15:28 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/496378135361.shtml)
+- 2026-06-29 15:08 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/67450.shtml)
+- 2026-06-29 15:06 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/02518299935.shtml)
+- 2026-06-29 15:18 - [上班主打一个薪尽自然凉](http://www.blog.kurohicncr.top/Article/details/90858113649.shtml)
+- 2026-06-29 15:00 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/759525.shtml)
+- 2026-06-29 15:15 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/756487.shtml)
+- 2026-06-29 15:15 - [韩国记者：解码“合肥模式”](http://www.blog.minike.top/Article/details/8566167119.shtml)
+- 2026-06-29 15:09 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/57844580285.shtml)

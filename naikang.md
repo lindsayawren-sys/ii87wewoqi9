@@ -1,57 +1,56 @@
-# 优步拟提高报价竞购Delivery Hero 股东期望每股不低于40欧元
+# 博通财报暴雷：AI指引未达顶标，股价暴跌15%
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-在115亿欧元的初步收购要约遭拒后，优步正考虑提高对德国外卖巨头Delivery Hero的收购报价。多位股东表示，期望收购价格能够超过每股40欧元，对应公司整体估值约130亿欧元。 Delivery Hero上周六发布声明确认，已收到优步提出的每股33欧元的初步收购要约，对公司估值超过100亿欧元。然而，这一报价遭到主要股东拒绝。知情人士透露，优步随后向一位大股东提出每股38
+尽管交出了一份创纪录的财报，美国芯片巨头博通却在盘后交易中股价暴跌15%，上演了经典的“买预期，卖事实”行情。 美东时间6月3日盘后，博通公布了2026财年第二财季业绩。数据显示，公司营收达221.9亿美元，同比增长48%，创下历史新高；调整后每股收益为2.44美元，高于市场预期的2.40美元。其中，备受关注的AI半导体业务表现尤为抢眼，收入高达108亿美元，同比激增143%，
 
 ## 正文
 
-在115亿欧元的初步收购要约遭拒后，优步正考虑提高对德国外卖巨头Delivery Hero的收购报价。
+尽管交出了一份创纪录的财报，美国芯片巨头博通却在盘后交易中股价暴跌15%，上演了经典的“买预期，卖事实”行情。
 
-多位股东表示，期望收购价格能够超过每股40欧元，对应公司整体估值约130亿欧元。
+美东时间6月3日盘后，博通公布了2026财年第二财季业绩。
 
-Delivery Hero上周六发布声明确认，已收到优步提出的每股33欧元的初步收购要约，对公司估值超过100亿欧元。
+数据显示，公司营收达221.9亿美元，同比增长48%，创下历史新高；调整后每股收益为2.44美元，高于市场预期的2.40美元。
 
-然而，这一报价遭到主要股东拒绝。
+其中，备受关注的AI半导体业务表现尤为抢眼，收入高达108亿美元，同比激增143%，成为推动增长的核心引擎。
 
-知情人士透露，优步随后向一位大股东提出每股38欧元的新价码，但仍未被接受。
+然而，亮眼的数据并未能阻止股价“跳水”。
 
-优步董事会已于上周六召开会议，评估收购进展并讨论是否进一步提高报价。
+博通当季总营收略低于分析师预期的222.7亿美元，同时基础设施软件业务营收71.8亿美元，也未达到73.2亿美元的预期。
 
-与此同时，优步持续增持Delivery Hero股份。
+但真正导致市场抛售的，是管理层对未来业绩的谨慎展望。
 
-公司披露，其持股比例已从约7%提升至19.5%，成为Delivery Hero第一大股东，并通过衍生品额外持有5.6%的相关权益。
+尽管博通预计第三财季总营收将达294亿美元，超出预期，但其核心的AI芯片收入指引为160亿美元，低于部分分析师预期的172亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 15:04 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 15:03 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 15:22 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 15:09 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 15:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 14:54 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 15:19 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 14:57 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 14:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 14:59 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 15:11 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 15:08 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 15:14 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 15:04 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 15:15 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 15:02 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 15:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 15:01 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 15:16 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 15:01 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 15:01 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:01 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/01908380.shtml)
-- 2026-06-29 15:05 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/8964150.shtml)
-- 2026-06-29 15:19 - [上海一小区水池内出现一条鳄鱼](https://www.blog.kurohicncr.top/Article/details/508657936786.shtml)
-- 2026-06-29 15:07 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/488464544.shtml)
-- 2026-06-29 15:10 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/9567103.shtml)
-- 2026-06-29 15:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/57332.shtml)
-- 2026-06-29 15:13 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/623723510600.shtml)
-- 2026-06-29 15:06 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/08681.shtml)
-- 2026-06-29 14:56 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.minike.top/Article/details/9381248.shtml)
-- 2026-06-29 15:07 - [欧委会总部只给高层开空调](https://www.blog.kurohicncr.top/Article/details/4738908.shtml)
-- 2026-06-29 15:11 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/785378.shtml)
-- 2026-06-29 15:06 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/46855708.shtml)
-- 2026-06-29 15:18 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/798713910.shtml)
-- 2026-06-29 14:55 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/67511.shtml)
-- 2026-06-29 15:03 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/7258564386.shtml)
+- 2026-06-29 15:06 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/25774613.shtml)
+- 2026-06-29 15:12 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/866532942.shtml)
+- 2026-06-29 15:03 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/522906612.shtml)
+- 2026-06-29 15:26 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/45259139.shtml)
+- 2026-06-29 15:17 - [苹果回应恋与深空低分](http://www.share.minike.top/Article/details/8094280.shtml)
+- 2026-06-29 15:15 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/768039342328.shtml)
+- 2026-06-29 15:27 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/6748605103.shtml)
+- 2026-06-29 15:04 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/8832588985.shtml)
+- 2026-06-29 15:23 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/0708390.shtml)
+- 2026-06-29 15:21 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/92659753218.shtml)
+- 2026-06-29 15:23 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/297662313.shtml)
+- 2026-06-29 15:02 - [东部机场集团新增釜山航线](https://www.share.minike.top/Article/details/6114064.shtml)
+- 2026-06-29 15:06 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/18471.shtml)
+- 2026-06-29 15:24 - [美媒：空警-3000服役即成全球最强](http://www.share.minike.top/Article/details/07735.shtml)
+- 2026-06-29 15:06 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/23382624997.shtml)

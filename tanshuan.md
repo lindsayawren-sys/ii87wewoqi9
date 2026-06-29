@@ -1,57 +1,58 @@
-# 从“看天”到“看屏”：云南茶咖产业共谱数智新篇
+# 湖北仙桃市委统一战线工作领导小组会议召开
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网云南保山5月26日电 题：从“看天”到“看屏”：云南茶咖产业共谱数智新篇 作者 时文枝 时下，随着气温攀升，在云南省保山市潞江镇的辛家山千亩精品咖啡示范基地(以下简称基地)内，频繁升空的无人机穿梭于咖啡林间，开展病虫害巡检工作。 “当前仍是病虫害高发期。”基地负责人杨江春日前受访时称，依托AI大数据模型分析，该基地近日已人工投放三万余只花绒寄甲和管氏肿腿蜂，精准防治天牛虫
+仙桃市委统一战线工作领导小组会议召开 6月3日，仙桃市委书记孙道军主持召开市委统一战线工作领导小组会议，深入学习贯彻习近平总书记关于做好新时代党的统一战线工作的重要思想，传达贯彻省委统一战线工作领导小组会议精神，听取全市统战工作情况汇报，审议相关文件，研究部署下阶段重点任务。市委常委、统战部部长颜志超参加会议。 会议指出 今年是中国共产党成立105周年，是“十五五”开局之年，做
 
 ## 正文
 
-中新网云南保山5月26日电 题：从“看天”到“看屏”：云南茶咖产业共谱数智新篇 作者 时文枝 时下，随着气温攀升，在云南省保山市潞江镇的辛家山千亩精品咖啡示范基地(以下简称基地)内，频繁升空的无人机穿梭于咖啡林间，开展病虫害巡检工作。
+仙桃市委统一战线工作领导小组会议召开 6月3日，仙桃市委书记孙道军主持召开市委统一战线工作领导小组会议，深入学习贯彻习近平总书记关于做好新时代党的统一战线工作的重要思想，传达贯彻省委统一战线工作领导小组会议精神，听取全市统战工作情况汇报，审议相关文件，研究部署下阶段重点任务。
 
-“当前仍是病虫害高发期。
+市委常委、统战部部长颜志超参加会议。
 
-”基地负责人杨江春日前受访时称，依托AI大数据模型分析，该基地近日已人工投放三万余只花绒寄甲和管氏肿腿蜂，精准防治天牛虫害。
+会议指出 今年是中国共产党成立105周年，是“十五五”开局之年，做好统战工作意义重大。
 
-云南是中国最大的咖啡产区，种植面积和产量均占全国98%以上。
+要把稳统战之“舵”，在思想引领上同向同行。
 
-潞江镇是云南重要咖啡产地之一，以优质小粒咖啡闻名，但当地多为山地地形，种植环境复杂、管理粗放等问题长期困扰咖农咖企。
+以深入开展树立和践行正确政绩观学习教育为抓手，统筹抓好党外知识分子和新的社会阶层人士、非公有制经济人士、民族宗教界人士的学习教育，确保新时代统战工作沿着正确方向前进。
 
-“传统方式难以为继，尤其是病虫害防控，往往发现时已大面积扩散。
+要彰显统战之“为”，在服务发展上敢闯敢干。
 
-”杨江春说。
+要当好服务企业的“先锋”，深入开展“大调研、大走访、解难题”活动，推动优化营商环境“五件套”工作机制落到实处，让更多企业扎根仙桃、大展宏图。
 
-为破解困局，2024年基地引入由中国移动云南公司保山分公司联合保山学院、浙江理工大学、西北工业大学等多所高校打造的“云智农链”平台。
+要当好对外招商的“红娘”，打好沔商牌、小米牌，充分发挥台商的资源优势和台协的桥梁纽带作用，配合开展好湖北·武汉台湾周等鄂台经贸交流，擦亮海峡两岸产业合作创新服务示范基地“金字招牌”。
 
 ## 相关推荐
 
-- 2026-06-29 15:21 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 14:57 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 15:00 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 15:23 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 15:00 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 15:06 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 15:17 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 15:06 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 14:58 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 15:05 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 14:56 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 15:09 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 15:23 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 15:16 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 15:19 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 15:19 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 15:12 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 15:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 15:21 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 15:19 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 15:12 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 15:19 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 15:21 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:07 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/4936347425.shtml)
-- 2026-06-29 14:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/971372462706.shtml)
-- 2026-06-29 15:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/52433121445.shtml)
-- 2026-06-29 14:55 - [女生雨天开车发现雨刮条被掰走](https://www.blog.kurohicncr.top/Article/details/08563998.shtml)
-- 2026-06-29 15:10 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/08055.shtml)
-- 2026-06-29 15:19 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/700825904.shtml)
-- 2026-06-29 15:12 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/65870.shtml)
-- 2026-06-29 15:07 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/236652168786.shtml)
-- 2026-06-29 15:07 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/7366080.shtml)
-- 2026-06-29 15:08 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/139920238.shtml)
-- 2026-06-29 15:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/4476123.shtml)
-- 2026-06-29 14:55 - [明星大侦探第四季](http://www.share.minike.top/Article/details/116525.shtml)
-- 2026-06-29 15:15 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/3533660415.shtml)
-- 2026-06-29 15:08 - [毒液2](http://www.blog.kurohicncr.top/Article/details/46275281389.shtml)
-- 2026-06-29 15:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/38089583.shtml)
+- 2026-06-29 15:24 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/26118589.shtml)
+- 2026-06-29 15:24 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/141904058911.shtml)
+- 2026-06-29 15:06 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/475213.shtml)
+- 2026-06-29 15:15 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/030494904738.shtml)
+- 2026-06-29 15:13 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/88762218773.shtml)
+- 2026-06-29 15:20 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/00983.shtml)
+- 2026-06-29 15:14 - [发反科学内容为何会有200万粉丝](https://www.blog.minike.top/Article/details/25421777033.shtml)
+- 2026-06-29 15:14 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/886352600.shtml)
+- 2026-06-29 15:07 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/088868671380.shtml)
+- 2026-06-29 15:08 - [曝歌手第七期帮唱阵容](http://www.share.minike.top/Article/details/07693.shtml)
+- 2026-06-29 15:29 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/615856611.shtml)
+- 2026-06-29 15:19 - [链博会上的机器人太全能了](http://www.share.minike.top/Article/details/840133221645.shtml)
+- 2026-06-29 15:09 - [媒体：高考后消费应量力而行适度有度](https://www.share.kurohicncr.top/Article/details/51292537.shtml)
+- 2026-06-29 15:08 - [记者率先试乘西十高铁](http://www.blog.kurohicncr.top/Article/details/326418.shtml)
+- 2026-06-29 15:12 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/5928421717.shtml)

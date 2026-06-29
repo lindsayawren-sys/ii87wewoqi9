@@ -1,52 +1,59 @@
-# 威胜控股：惟远能源新增海外业务合约总金额超人民币16亿元
+# 二连板华源控股：股权穿透后，公司间接持有宇树科技的比例约0.003%
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-威胜控股（03393）发布公告，本公司的附属公司惟远能源技术股份有限公司（惟远能源）于2026年截至本公告日期间新增海外业务合约总金额超人民币16亿元，主要涵盖数据中心关键基础设施及相关解决方案，以及重合器等海外配电产品。 该等海外订单的快速增长，充分彰显本集团在海外数据中心市场的核心竞争力以及海外配电市场的拓展成效，符合本集团全球化战略布局，亦反映国际市场对本集团技术实力与交
+人民财讯6月4日电，连续两个交易日涨停的华源控股（002787）6月4日发布股票交易异常波动公告，公司主营业务目前仍然是金属及塑料包装产品的生产与销售。公司于2025年12月收购的无锡暖芯半导体科技有限公司主营业务为温控设备，2026年2月收购的寰鼎集成电路（上海）有限公司主营业务为半导体设备及相关耗材的研发、销售与技术服务。无锡暖芯和上海寰鼎的主营产品为半导体设备的辅助设备，
 
 ## 正文
 
-威胜控股（03393）发布公告，本公司的附属公司惟远能源技术股份有限公司（惟远能源）于2026年截至本公告日期间新增海外业务合约总金额超人民币16亿元，主要涵盖数据中心关键基础设施及相关解决方案，以及重合器等海外配电产品。
+人民财讯6月4日电，连续两个交易日涨停的华源控股（002787）6月4日发布股票交易异常波动公告，公司主营业务目前仍然是金属及塑料包装产品的生产与销售。
 
-该等海外订单的快速增长，充分彰显本集团在海外数据中心市场的核心竞争力以及海外配电市场的拓展成效，符合本集团全球化战略布局，亦反映国际市场对本集团技术实力与交付能力的高度认可。
+公司于2025年12月收购的无锡暖芯半导体科技有限公司主营业务为温控设备，2026年2月收购的寰鼎集成电路（上海）有限公司主营业务为半导体设备及相关耗材的研发、销售与技术服务。
 
-董事会认为，上述订单的取得，进一步巩固了本集团在数据中心基础设施领域的领先地位，将有助提升本集团未来收入基础，并对本集团2026年度的经营业绩产生积极影响。
+无锡暖芯和上海寰鼎的主营产品为半导体设备的辅助设备，相比半导体主设备而言市场规模较小。
 
-责任编辑：卢昱君
+公司2026年一季度半导体业务并表营业收入约1000万元，占公司整体营业收入比例较低，对公司整体经营业绩贡献有限。
+
+上述收购的公司可能存在业绩波动风险、收购整合风险以及商誉减值风险等，且鉴于半导体温控设备及耗材设备的发展受技术迭代、市场竞争、客户认证周期等多种因素影响，未来业务发展存在不确定性，短期内对公司整体经营业绩贡献有限。
+
+公司子公司苏州华源创业投资合伙企业（有限合伙）间接参投的天津君万弘毅企业管理咨询合伙企业（有限合伙）投资了宇树科技股份有限公司（简称“宇树科技”），股权穿透后，公司间接持有宇树科技的比例约0.003%。
+
+公司间接投资金额较小，投资占比低，无法对其决策产生影响，上述投资对公司业绩不产生重要影响。
+
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-29 14:57 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 14:58 - [医药股集体爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 15:16 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 15:15 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 15:21 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 15:06 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 15:04 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 15:23 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 15:19 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 15:03 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 15:11 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 15:09 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 15:00 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 15:22 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 15:17 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 15:24 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 15:14 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 15:05 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 15:20 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 15:07 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 15:19 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 15:21 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 15:19 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 15:28 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 15:18 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 15:19 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:02 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/43599566.shtml)
-- 2026-06-29 15:11 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/6623549.shtml)
-- 2026-06-29 15:16 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/845566.shtml)
-- 2026-06-29 15:20 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/838313206422.shtml)
-- 2026-06-29 15:11 - [恋与深空底线不该被娱乐化](https://www.blog.kurohicncr.top/Article/details/930993746562.shtml)
-- 2026-06-29 14:55 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/6709990.shtml)
-- 2026-06-29 14:55 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/08569.shtml)
-- 2026-06-29 15:14 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/75550.shtml)
-- 2026-06-29 15:21 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/18038542.shtml)
-- 2026-06-29 15:20 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/41310583307.shtml)
-- 2026-06-29 15:12 - [5万块的威力](http://www.share.minike.top/Article/details/67926974.shtml)
-- 2026-06-29 15:14 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.kurohicncr.top/Article/details/807028.shtml)
-- 2026-06-29 15:10 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/1027235.shtml)
-- 2026-06-29 15:04 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/46324334.shtml)
-- 2026-06-29 14:54 - [端午节加班工资应该怎么算](https://www.blog.minike.top/Article/details/798533311521.shtml)
+- 2026-06-29 15:01 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/845919.shtml)
+- 2026-06-29 15:25 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/292418395415.shtml)
+- 2026-06-29 15:28 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/323627000.shtml)
+- 2026-06-29 15:20 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/93578226.shtml)
+- 2026-06-29 15:29 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/227232.shtml)
+- 2026-06-29 15:22 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/1620011.shtml)
+- 2026-06-29 15:04 - [媒体：网络测评不能只剩“生意”](https://www.share.kurohicncr.top/Article/details/5688150029.shtml)
+- 2026-06-29 15:16 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.minike.top/Article/details/17249507.shtml)
+- 2026-06-29 15:05 - [毕业群都在出什么东西](https://www.share.minike.top/Article/details/03820614598.shtml)
+- 2026-06-29 15:13 - [袁隆平院士 不容诋毁！](http://www.blog.kurohicncr.top/Article/details/28815138934.shtml)
+- 2026-06-29 15:05 - [锐评浪姐7总决赛](https://www.blog.minike.top/Article/details/910186864214.shtml)
+- 2026-06-29 15:02 - [扬名立万](https://www.share.kurohicncr.top/Article/details/9522529.shtml)
+- 2026-06-29 15:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/245452607.shtml)
+- 2026-06-29 15:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/83875958.shtml)
+- 2026-06-29 15:07 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/9972000.shtml)

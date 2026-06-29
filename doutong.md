@@ -1,59 +1,56 @@
-# 860亿合肥芯片龙头大涨10%，赴港IPO有新进展
+# 高盛预估至 2030 年 SpaceX 累计现金消耗规模达 3500 亿美元
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-记者丨孙燕 编辑丨卜羽勤 骆一帆 中国大陆第三大晶圆代工厂，“A+H”布局再进一步。 5月22日晚间，晶合集成（688249.SH）公告表示其港股上市申请已获得证监会备案，拟发行不超过24859.2万股境外上市普通股并在香港联合交易所上市。 继2023年5月登陆科创板后，晶合集成于2025年8月启动赴港上市计划，次月向香港联交所递交申请并刊发资料。因该申请半年后失效，晶合集成于
+高盛本周向潜在投资者披露的预测数据称，该行分析师预计，SpaceX今明两年合计现金消耗1200亿美元，2024至2030年再消耗2300亿美元，合计3500亿美元。 高盛预测，SpaceX至2028年资本开支总额约3600亿美元，其中约八成资金将投向人工智能业务。 相关预测显示，SpaceX2030年营收有望达到4740亿美元，人工智能业务收入占总营收的三分之二；对比去年187
 
 ## 正文
 
-记者丨孙燕 编辑丨卜羽勤 骆一帆 中国大陆第三大晶圆代工厂，“A+H”布局再进一步。
+高盛本周向潜在投资者披露的预测数据称，该行分析师预计，SpaceX今明两年合计现金消耗1200亿美元，2024至2030年再消耗2300亿美元，合计3500亿美元。
 
-5月22日晚间，晶合集成（688249.SH）公告表示其港股上市申请已获得证监会备案，拟发行不超过24859.2万股境外上市普通股并在香港联合交易所上市。
+高盛预测，SpaceX至2028年资本开支总额约3600亿美元，其中约八成资金将投向人工智能业务。
 
-继2023年5月登陆科创板后，晶合集成于2025年8月启动赴港上市计划，次月向香港联交所递交申请并刊发资料。
+相关预测显示，SpaceX2030年营收有望达到4740亿美元，人工智能业务收入占总营收的三分之二；对比去年187亿美元的营收，增幅将达25倍。
 
-因该申请半年后失效，晶合集成于2026年3月重新递交并刊发申请资料。
+高盛预计SpaceX今年营收将翻倍至380亿美元，增长主要源于其与Anthropic达成的合作项目。
 
-此次获证监会备案，预示着该公司“A+H”双资本平台格局即将成型。
+作为SpaceX首次公开募股（IPO）的牵头投行，高盛向媒体表示不予置评。
 
-晶圆代工行业高度集中，2025年全球十大晶圆代工企业合计占96.9%的市场份额。
-
-中芯国际、华虹集团与晶合集成作为三家稳居榜单的“中国力量”，被业界并称为中国晶圆代工的“铁三角”。
-
-其中，按晶圆代工营收计，2025年晶合集成是全球第九大、中国大陆第三大晶圆代工企业，市场份额分别为0.9%及8.7%。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 14:56 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 15:21 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 15:17 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 15:09 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 15:21 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 14:58 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 15:19 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 15:01 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 15:18 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 15:10 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 15:15 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 15:24 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 15:00 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 15:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 15:10 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 15:25 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 15:10 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 15:07 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 15:30 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 15:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 15:01 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 15:19 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 15:19 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 15:18 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 15:29 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 15:23 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/255952569506.shtml)
-- 2026-06-29 15:06 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/709578.shtml)
-- 2026-06-29 15:09 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/7121304948.shtml)
-- 2026-06-29 15:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/7094007.shtml)
-- 2026-06-29 15:15 - [周生如故](http://www.share.minike.top/Article/details/0943133.shtml)
-- 2026-06-29 15:12 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/938482.shtml)
-- 2026-06-29 15:14 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/248050886.shtml)
-- 2026-06-29 15:23 - [周杰伦演唱会真的好多人啊](https://www.share.minike.top/Article/details/273932967465.shtml)
-- 2026-06-29 15:11 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/379473564.shtml)
-- 2026-06-29 14:54 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/712818472.shtml)
-- 2026-06-29 15:13 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/3897265708.shtml)
-- 2026-06-29 15:20 - [韩媒破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/43642347533.shtml)
-- 2026-06-29 15:21 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/364342.shtml)
-- 2026-06-29 15:11 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.kurohicncr.top/Article/details/6670238829.shtml)
-- 2026-06-29 15:16 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/209668359.shtml)
+- 2026-06-29 15:27 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/12455931994.shtml)
+- 2026-06-29 15:02 - [毒液2](https://www.blog.kurohicncr.top/Article/details/8694213.shtml)
+- 2026-06-29 15:00 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/4457079045.shtml)
+- 2026-06-29 15:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/378274146.shtml)
+- 2026-06-29 15:25 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/32361552153.shtml)
+- 2026-06-29 15:29 - [Canna纳尔8-0对位单杀Doran](https://www.share.minike.top/Article/details/824778578.shtml)
+- 2026-06-29 15:26 - [马斯克也站到了光里](https://www.share.minike.top/Article/details/4095363.shtml)
+- 2026-06-29 15:04 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/579827.shtml)
+- 2026-06-29 15:26 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/7348031.shtml)
+- 2026-06-29 15:09 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/594517.shtml)
+- 2026-06-29 15:10 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/606140884.shtml)
+- 2026-06-29 15:09 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/089477.shtml)
+- 2026-06-29 15:04 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/028457316.shtml)
+- 2026-06-29 15:12 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/30303188321.shtml)
+- 2026-06-29 15:04 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/6556230917.shtml)

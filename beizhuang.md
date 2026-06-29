@@ -1,56 +1,48 @@
-# “高质量发展民企行·智造广东”网评引导活动启动
+# 怡亚通：公司与英伟达无直接业务合作关系
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网广州5月25日电 (记者 许青青)据全国工商联官方微信25日消息，“高质量发展民企行·智造广东”网评引导活动当日在北京启动。活动由中央网信办网络社会工作局、全国工商联宣传教育部、中国互联网发展基金会主办，广东省工商联、广东省委网信办、中国互联网新闻中心承办，组织媒体记者、网络文明伙伴等20余人赴广东实地参访民营企业并开展相关报道。全国工商联党组成员、副主席汪鸿雁出席启动仪
+登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月5日，怡亚通在互动平台回答投资者提问时表示，公司严格按照相关法律法规履行信息披露义务，与英伟达无直接业务合作关系。（文章来源：证券日报）
 
 ## 正文
 
-中新网广州5月25日电 (记者 许青青)据全国工商联官方微信25日消息，“高质量发展民企行·智造广东”网评引导活动当日在北京启动。
+登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月5日，怡亚通在互动平台回答投资者提问时表示，公司严格按照相关法律法规履行信息披露义务，与英伟达无直接业务合作关系。
 
-活动由中央网信办网络社会工作局、全国工商联宣传教育部、中国互联网发展基金会主办，广东省工商联、广东省委网信办、中国互联网新闻中心承办，组织媒体记者、网络文明伙伴等20余人赴广东实地参访民营企业并开展相关报道。
-
-全国工商联党组成员、副主席汪鸿雁出席启动仪式并讲话。
-
-汪鸿雁表示，党的十八大以来，在以习近平同志为核心的党中央坚强领导下，我国民营经济发展迈上新台阶，在稳定增长、促进创新、增加就业、改善民生等方面发挥了重要作用。
-
-希望参加活动的媒体记者、网络文明伙伴坚持团结稳定鼓劲、正面宣传为主的工作方针，发挥各自优势共同讲好广东民营企业高质量发展故事，展现民营经济高质量发展成效，唱响“中国经济光明论”，为“十五五”时期民营经济发展开好局、起好步营造更好的舆论氛围。
-
-启动仪式以线上线下相结合的方式举行。
-
-中央网信办网络社会工作局、全国工商联宣传教育部、中国互联网新闻中心、广东省工商联主要负责同志和有关工作人员，参加活动的在京媒体记者、网络文明伙伴参加启动仪式。
-
-(完)
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 15:11 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 15:15 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 15:04 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 15:23 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 14:58 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 15:18 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 14:58 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 15:07 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 15:09 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 15:15 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 15:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 15:19 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 15:16 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 15:10 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 15:16 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 15:08 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 15:25 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 15:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 15:06 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 15:27 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 15:19 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 15:19 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 15:27 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 15:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:59 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/793410318643.shtml)
-- 2026-06-29 14:58 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/4718731.shtml)
-- 2026-06-29 15:09 - [金价银价下跌 油价上涨](https://www.blog.kurohicncr.top/Article/details/2211634526.shtml)
-- 2026-06-29 15:04 - [首尔商铺禁止洪明甫入内](http://www.share.minike.top/Article/details/660438.shtml)
-- 2026-06-29 14:58 - [绘画区你赢了](https://www.share.minike.top/Article/details/82454.shtml)
-- 2026-06-29 15:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/38143515.shtml)
-- 2026-06-29 15:04 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/8624337.shtml)
-- 2026-06-29 14:58 - [吴昕要助理买的药6年前已停产](https://www.blog.kurohicncr.top/Article/details/0983295.shtml)
-- 2026-06-29 14:59 - [千与千寻](https://www.blog.minike.top/Article/details/340475580.shtml)
-- 2026-06-29 15:06 - [20年前的周杰伦](http://www.blog.kurohicncr.top/Article/details/2813024365.shtml)
-- 2026-06-29 15:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/966463.shtml)
-- 2026-06-29 14:57 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/00309247550.shtml)
-- 2026-06-29 15:11 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/089791122.shtml)
-- 2026-06-29 14:59 - [内马尔能上场15分钟](https://www.blog.minike.top/Article/details/028570.shtml)
-- 2026-06-29 15:03 - [Canna纳尔8-0对位单杀Doran](https://www.share.kurohicncr.top/Article/details/9552379.shtml)
+- 2026-06-29 15:24 - [博主：美航母沦为毒品集散窝点](https://www.blog.minike.top/Article/details/452802.shtml)
+- 2026-06-29 15:09 - [评论员：日菲勾连各有盘算](https://www.blog.minike.top/Article/details/93413.shtml)
+- 2026-06-29 15:28 - [上班主打一个薪尽自然凉](http://www.blog.minike.top/Article/details/623296914.shtml)
+- 2026-06-29 15:01 - [美伊同意停止互袭](http://www.share.minike.top/Article/details/7142711.shtml)
+- 2026-06-29 15:15 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/1068496.shtml)
+- 2026-06-29 15:28 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/5771494.shtml)
+- 2026-06-29 15:26 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/101211917970.shtml)
+- 2026-06-29 15:11 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/259887.shtml)
+- 2026-06-29 15:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/4904386510.shtml)
+- 2026-06-29 15:15 - [陈靖可虞书欣领衔主演](https://www.share.minike.top/Article/details/216767064807.shtml)
+- 2026-06-29 15:14 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/6285075058.shtml)
+- 2026-06-29 15:02 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/1246273.shtml)
+- 2026-06-29 15:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/188833736206.shtml)
+- 2026-06-29 15:12 - [博主：全球股市进入“AI极端共振”](http://www.blog.kurohicncr.top/Article/details/45010212669.shtml)
+- 2026-06-29 15:27 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/010181.shtml)

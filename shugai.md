@@ -1,57 +1,61 @@
-# 台湾作词人方文山：跨界创作让传统文化焕新稿件
+# 波音CEO：全新总装线7月6日投产737MAX客机
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月25日电(郭其钰)“文字的力量很强大。对于我来说，汉字是一种特别的文化养分、文化基因，或者说文化符号。”5月25日，台湾作词人方文山在浙江杭州接受中新社采访时说。 当日，由方文山联合创办的闻山礼坊文创馆在杭州大运河畔开馆。该馆聚焦文创产品研发、两岸文化交流等，致力于打造一个集文化展示、创意孵化、交流合作、体验消费于一体的综合性文创空间。 对两岸歌迷而言，方文山是中
+核心要点 波音首席执行官凯利・奥特伯格周五透露，公司7 月 6 日将在西雅图北部新建的总装生产线开工制造 737MAX 客机。 奥特伯格表示：“我们新增的这条生产线和伦顿现有厂区生产线配置完全一致。7 月 6 日首架飞机正式上线装配，再过约一个月，第四条总装线就将正式投产。” 这条坐落于华盛顿州埃弗雷特的全新 737MAX的总装线，是波音实现月产 52 架目标的关键抓手，该产能
 
 ## 正文
 
-中新网杭州5月25日电(郭其钰)“文字的力量很强大。
+核心要点 波音首席执行官凯利・奥特伯格周五透露，公司7 月 6 日将在西雅图北部新建的总装生产线开工制造 737MAX 客机。
 
-对于我来说，汉字是一种特别的文化养分、文化基因，或者说文化符号。
+奥特伯格表示：“我们新增的这条生产线和伦顿现有厂区生产线配置完全一致。
 
-”5月25日，台湾作词人方文山在浙江杭州接受中新社采访时说。
+7 月 6 日首架飞机正式上线装配，再过约一个月，第四条总装线就将正式投产。
 
-当日，由方文山联合创办的闻山礼坊文创馆在杭州大运河畔开馆。
+” 这条坐落于华盛顿州埃弗雷特的全新 737MAX的总装线，是波音实现月产 52 架目标的关键抓手，该产能规划计划于明年达成。
 
-该馆聚焦文创产品研发、两岸文化交流等，致力于打造一个集文化展示、创意孵化、交流合作、体验消费于一体的综合性文创空间。
+今年波音已将 737MAX 月产量从 42 架提升至 47 架，目前维持该产能水平。
 
-对两岸歌迷而言，方文山是中国风歌词的代表人物。
+尽管波音有意提速生产、提升交付量，但产能受美国联邦航空管理局（FAA）监管约束。
 
-从《东风破》到《青花瓷》，他笔下的文字随音乐而流动，构筑出极具画面感的东方美学意境，成为一代人的文化记忆。
+2024 年 1 月阿拉斯加航空一架 737MAX 客机发生舱门塞脱落事故后，FAA 出台管控政策，限制波音产能扩张。
 
-“我一直习惯于将文字和音乐结合，音乐让文字有了画面感。
+该安全事故促使监管部门针对波音生产环节的质量与安全隐患展开长期核查。
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 15:19 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 15:06 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 14:58 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 15:22 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 15:19 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 14:59 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 15:04 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 15:04 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-29 15:13 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 14:55 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 15:27 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 15:13 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 15:05 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 15:24 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 15:09 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 15:29 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 15:01 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 15:04 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 15:18 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 15:13 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 15:29 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 15:07 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 15:05 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 15:18 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 15:08 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:00 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/1651064.shtml)
-- 2026-06-29 15:11 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/02469954684.shtml)
-- 2026-06-29 15:01 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.minike.top/Article/details/607851712.shtml)
-- 2026-06-29 15:04 - [人民日报评“AI脸看腻了”](http://www.share.kurohicncr.top/Article/details/716965.shtml)
-- 2026-06-29 15:01 - [实习期把公司领导开除了](http://www.share.kurohicncr.top/Article/details/7734059.shtml)
-- 2026-06-29 14:58 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/839816.shtml)
-- 2026-06-29 15:20 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/21094581663.shtml)
-- 2026-06-29 15:00 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/8660037436.shtml)
-- 2026-06-29 15:04 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.kurohicncr.top/Article/details/91509596.shtml)
-- 2026-06-29 14:58 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/9168781760.shtml)
-- 2026-06-29 15:21 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.minike.top/Article/details/74529.shtml)
-- 2026-06-29 15:21 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/0151701541.shtml)
-- 2026-06-29 15:02 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.minike.top/Article/details/97533951.shtml)
-- 2026-06-29 15:23 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/9526173307.shtml)
-- 2026-06-29 15:05 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/14545.shtml)
+- 2026-06-29 15:12 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/65154.shtml)
+- 2026-06-29 15:03 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/3962477.shtml)
+- 2026-06-29 15:08 - [医院大厅放钢琴是形式主义吗](https://www.share.minike.top/Article/details/63597006025.shtml)
+- 2026-06-29 15:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/49260.shtml)
+- 2026-06-29 15:17 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/5230092.shtml)
+- 2026-06-29 15:18 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/652299289.shtml)
+- 2026-06-29 15:10 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.kurohicncr.top/Article/details/11342517576.shtml)
+- 2026-06-29 15:01 - [明星大侦探第四季](https://www.share.minike.top/Article/details/8689671.shtml)
+- 2026-06-29 15:27 - [金牌调解](http://www.share.minike.top/Article/details/49557.shtml)
+- 2026-06-29 15:10 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/515144703050.shtml)
+- 2026-06-29 15:18 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/5314299.shtml)
+- 2026-06-29 15:08 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/434637210.shtml)
+- 2026-06-29 15:13 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/6352097160.shtml)
+- 2026-06-29 15:03 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/3273708.shtml)
+- 2026-06-29 15:26 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/34932601.shtml)

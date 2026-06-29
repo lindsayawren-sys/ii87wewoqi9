@@ -1,56 +1,56 @@
-# 向日葵（300111）股民索赔再提交立案，英飞拓（002528）索赔案再获法院立案
+# （寻味中华｜节令）收麦插秧芒种忙 不误农时岁序长
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月25日，上海久诚律师事务所股票索赔律师许峰代理的向日葵（维权）（300111）虚假陈述引发的投资者索赔案再向绍兴市中级人民法院提交一次立案。（许峰律师专栏） 许峰律师代理的向日葵投资者索赔案已获得绍兴市中级人民法院立案，目前正在等待法院的下一步安排。律师团队目前还在继续推进后续案件的立案工作，还在继续接受其他投资者
+中新社济南6月5日电 题：收麦插秧芒种忙 不误农时岁序长 中新社记者 赵晓 “芒种芒种，连收带种。”6月5日，中国迎来二十四节气中唯一直接指导农事活动的芒种。北方冬麦快收，南方青稻忙种，一收一种间，千里沃野铺展“农忙图”。 《周礼》载：“泽草所生，种之芒种。”“芒”指麦子、水稻等作物谷壳上的小毛刺，后引申为有芒作物。芒种一到，带芒谷物进入收种关键期，中国“三夏”生产(夏收、夏种
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月25日，上海久诚律师事务所股票索赔律师许峰代理的向日葵（维权）（300111）虚假陈述引发的投资者索赔案再向绍兴市中级人民法院提交一次立案。
+中新社济南6月5日电 题：收麦插秧芒种忙 不误农时岁序长 中新社记者 赵晓 “芒种芒种，连收带种。
 
-（许峰律师专栏） 许峰律师代理的向日葵投资者索赔案已获得绍兴市中级人民法院立案，目前正在等待法院的下一步安排。
+”6月5日，中国迎来二十四节气中唯一直接指导农事活动的芒种。
 
-律师团队目前还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+北方冬麦快收，南方青稻忙种，一收一种间，千里沃野铺展“农忙图”。
 
-2026年4月8日晚，向日葵公告收到浙江证监局出具的《行政处罚决定书》，经查明，当事人存在以下违法事实： 2025年9月22日，向日葵披露《发行股份及支付现金购买资产并募集配套资金暨关联交易预案》（以下简称《预案》），称公司拟通过发行股份及支付现金的方式购买漳州兮璞材料科技有限公司（以下简称兮璞材料）100%股权、浙江贝得药业有限公司40%股权，并募集配套资金，交易预计构成重大资产重组。
+《周礼》载：“泽草所生，种之芒种。
 
-《预案》披露兮璞材料的主要盈利模式为“定制化代工+自主生产”相结合。
+”“芒”指麦子、水稻等作物谷壳上的小毛刺，后引申为有芒作物。
 
-截至披露日，兮璞材料自有工厂仍在建、尚不具备自主生产能力，且主要产品系标准化产品，前述主要盈利模式存在误导性陈述。
+芒种一到，带芒谷物进入收种关键期，中国“三夏”生产(夏收、夏种、夏管)大规模展开。
 
-《预案》披露后，向日葵股价连续3个交易日涨停、成交量显著放大。
+山东农业大学公共管理学院教授孙金荣接受中新社记者采访时介绍，时下，北方旱作农业区最紧迫的农事是收割冬小麦；南方稻作区随着气温升高、雨水增多，当务之急是栽种晚稻。
 
-2025年12月26日，深圳证券交易所针对前述《预案》事项向公司下发《关注函》。
+在山东小麦主产区滕州，76.5万亩麦浪翻涌如金。
 
 ## 相关推荐
 
-- 2026-06-29 14:58 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 15:10 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 15:15 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 14:57 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 14:55 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 15:05 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 15:15 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 15:01 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 15:04 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 15:20 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 15:25 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 15:27 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 15:08 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 15:01 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 15:07 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 15:02 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 15:02 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 15:28 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 15:04 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 15:19 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:09 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/671937089.shtml)
-- 2026-06-29 15:02 - [爸爸当家](https://www.share.minike.top/Article/details/7362586.shtml)
-- 2026-06-29 15:15 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/951003696.shtml)
-- 2026-06-29 14:57 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/16892097758.shtml)
-- 2026-06-29 15:08 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.kurohicncr.top/Article/details/99494.shtml)
-- 2026-06-29 15:08 - [发反科学内容为何会有200万粉丝](http://www.blog.kurohicncr.top/Article/details/1034950.shtml)
-- 2026-06-29 15:18 - [宜宾5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/04626.shtml)
-- 2026-06-29 15:01 - [上班主打一个薪尽自然凉](https://www.share.minike.top/Article/details/99734275692.shtml)
-- 2026-06-29 15:02 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/5003128992.shtml)
-- 2026-06-29 15:07 - [扬名立万](https://www.share.kurohicncr.top/Article/details/49209981886.shtml)
-- 2026-06-29 15:06 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.kurohicncr.top/Article/details/655998218557.shtml)
-- 2026-06-29 15:21 - [扫黑风暴](https://www.blog.minike.top/Article/details/906933.shtml)
-- 2026-06-29 14:58 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/27573240.shtml)
-- 2026-06-29 15:22 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/0885159.shtml)
-- 2026-06-29 15:05 - [中国战机大片上新](https://www.share.minike.top/Article/details/55416.shtml)
+- 2026-06-29 15:23 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/29337062591.shtml)
+- 2026-06-29 15:02 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/210494884791.shtml)
+- 2026-06-29 15:00 - [马斯克也站到了光里](https://www.share.kurohicncr.top/Article/details/03215098969.shtml)
+- 2026-06-29 15:18 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/95257608.shtml)
+- 2026-06-29 15:06 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/09135.shtml)
+- 2026-06-29 15:14 - [端午节加班工资应该怎么算](https://www.share.kurohicncr.top/Article/details/983150983.shtml)
+- 2026-06-29 15:03 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/00344023.shtml)
+- 2026-06-29 15:03 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/4238629.shtml)
+- 2026-06-29 15:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/71972198.shtml)
+- 2026-06-29 15:20 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/489266679227.shtml)
+- 2026-06-29 15:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/2734489697.shtml)
+- 2026-06-29 15:15 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/31300.shtml)
+- 2026-06-29 15:13 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/8234468.shtml)
+- 2026-06-29 15:04 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/87914778775.shtml)
+- 2026-06-29 15:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/13940697.shtml)

@@ -1,48 +1,56 @@
-# 山东青州：特巡警冒雨执勤 过路司机车窗抛伞暖人心
+# 送别“百变配角”魏宗万
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月26日 17:50 来源：中国新闻网 5月25日傍晚，山东省青州市一处正值晚高峰的路口，公安特巡警队员杨云建正在冒雨疏导交通，一辆过路车的车窗突然降下，车内司机快速向执勤队员抛出一把雨伞。此时，一辆救护车紧急通过路口，杨云建优先疏导急救车辆通行，在救护车顺利通过后，返回捡拾雨伞。(来源：青州公安 作者：王艳 刘峰) 责任编辑：【魏聪聪】
+中新社上海6月5日电 (记者 王笈 康玉湛)知名表演艺术家魏宗万告别会6月5日在上海龙华殡仪馆举行，魏宗万的亲朋好友、影迷等前来送别这位深耕舞台与荧幕六十余载的“百变配角”。 魏宗万1938年出生于上海，本月1日在上海华东医院去世。 他1963年从上海戏剧学院表演系毕业后，进入上海人民艺术剧院任演员。初入舞台时，他常年跑龙套、演配角，哪怕戏份寥寥，也认真揣摩、用心演绎。加之对演
 
 ## 正文
 
-发布时间：2026年05月26日 17:50 来源：中国新闻网 5月25日傍晚，山东省青州市一处正值晚高峰的路口，公安特巡警队员杨云建正在冒雨疏导交通，一辆过路车的车窗突然降下，车内司机快速向执勤队员抛出一把雨伞。
+中新社上海6月5日电 (记者 王笈 康玉湛)知名表演艺术家魏宗万告别会6月5日在上海龙华殡仪馆举行，魏宗万的亲朋好友、影迷等前来送别这位深耕舞台与荧幕六十余载的“百变配角”。
 
-此时，一辆救护车紧急通过路口，杨云建优先疏导急救车辆通行，在救护车顺利通过后，返回捡拾雨伞。
+魏宗万1938年出生于上海，本月1日在上海华东医院去世。
 
-(来源：青州公安 作者：王艳 刘峰) 责任编辑：【魏聪聪】
+他1963年从上海戏剧学院表演系毕业后，进入上海人民艺术剧院任演员。
+
+初入舞台时，他常年跑龙套、演配角，哪怕戏份寥寥，也认真揣摩、用心演绎。
+
+加之对演戏的满腔热情，他从一个个小角色里走了出来。
+
+40多岁时，魏宗万凭借电影《一个和八个》正式亮相大银幕。
+
+此后，他以“千人千面”的演技，在话剧、电影、电视剧等领域塑造了无数经典形象。
+
+魏宗万在1994年版电视剧《三国演义》里演活了乱世枭雄司马懿，以“鹰视狼顾”的神态、克制内敛的表演，精准演绎出人物的隐忍、多疑与深谋，被观众评价为难以复刻的经典；1998年版电视剧《水浒传》中，他又摇身一变，将奸佞狡诈、趋炎附势的高俅刻画得入木三分。
 
 ## 相关推荐
 
-- 2026-06-29 15:19 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 15:02 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 15:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 15:20 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 15:00 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 15:15 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 14:57 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 15:04 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 15:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 15:05 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 15:09 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 15:21 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 15:21 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 15:19 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 15:25 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 15:26 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 15:16 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 15:16 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 15:24 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 15:07 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 15:15 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 15:09 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:04 - [民进党为什么拼命抹黑统战](http://www.share.minike.top/Article/details/559869702984.shtml)
-- 2026-06-29 15:12 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/7203481504.shtml)
-- 2026-06-29 15:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/240772.shtml)
-- 2026-06-29 15:07 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/3637213.shtml)
-- 2026-06-29 14:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/877088133519.shtml)
-- 2026-06-29 15:17 - [中国战机大片上新](http://www.share.minike.top/Article/details/772716899104.shtml)
-- 2026-06-29 15:12 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/81397403799.shtml)
-- 2026-06-29 14:59 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/7149379192.shtml)
-- 2026-06-29 14:57 - [恋与深空失控领地](https://www.share.minike.top/Article/details/68901614.shtml)
-- 2026-06-29 15:11 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.minike.top/Article/details/99090901.shtml)
-- 2026-06-29 14:56 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/3204351.shtml)
-- 2026-06-29 15:16 - [明星大侦探第四季](https://www.share.minike.top/Article/details/33620.shtml)
-- 2026-06-29 15:23 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.share.minike.top/Article/details/3595398884.shtml)
-- 2026-06-29 15:19 - [民进党为什么拼命抹黑统战](http://www.blog.kurohicncr.top/Article/details/44259.shtml)
-- 2026-06-29 15:16 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/07120.shtml)
+- 2026-06-29 15:02 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/55456904136.shtml)
+- 2026-06-29 15:24 - [韩媒破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/0129608195.shtml)
+- 2026-06-29 15:04 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/481683417221.shtml)
+- 2026-06-29 15:14 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/52987.shtml)
+- 2026-06-29 15:29 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/5110401.shtml)
+- 2026-06-29 15:03 - [急先锋](https://www.share.kurohicncr.top/Article/details/0672155.shtml)
+- 2026-06-29 15:08 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/08564699233.shtml)
+- 2026-06-29 15:07 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/4274860870.shtml)
+- 2026-06-29 15:24 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/8497025.shtml)
+- 2026-06-29 15:15 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/20305.shtml)
+- 2026-06-29 15:29 - [首尔商铺禁止洪明甫入内](https://www.blog.minike.top/Article/details/7883062.shtml)
+- 2026-06-29 15:04 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/173025.shtml)
+- 2026-06-29 15:07 - [北极荒岛生存挑战](https://www.blog.kurohicncr.top/Article/details/3113284.shtml)
+- 2026-06-29 15:17 - [医药股集体爆发](https://www.share.minike.top/Article/details/87086267179.shtml)
+- 2026-06-29 15:17 - [警方回应东鹏饮料董事长不喝东鹏](https://www.blog.minike.top/Article/details/217232640950.shtml)

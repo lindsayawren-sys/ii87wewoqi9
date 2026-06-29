@@ -1,60 +1,48 @@
-# 德国人的麻辣烫店，美国人的新能源梦——中国职教课堂上的洋面孔
+# 范华获批担任贝莱德建信理财总经理
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！办一所学校，最难的是什么？有人说是师资，有人说是生源，还有人说是一份坚守。可对于很多外国人来说，最难的却是：如何在地球的另一端，学一门地道的中国手艺。 两个看似毫不相干的故事，就这样相遇了。一位是来自德国的美食爱好者，一位是越洋而来的美国汽车学子。他们各自怀揣着不同的梦想，不约而同走进了中国东方教育集团（0
+6月5日金融一线消息，上海金融监管局发布《关于范华贝莱德建信理财有限责任公司总经理任职资格的批复》，核准范华贝莱德建信理财有限责任公司总经理的任职资格。 公开资料显示，范华曾在美国高盛公司工作11年，任高盛全球风险模型部主管；随后在中国投资有限责任公司工作10年，历任资产配置部、债券与绝对收益部总监。2019年，范华加入招商银行理财子公司任首席权益投资官；2022年9月出任贝莱
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月5日金融一线消息，上海金融监管局发布《关于范华贝莱德建信理财有限责任公司总经理任职资格的批复》，核准范华贝莱德建信理财有限责任公司总经理的任职资格。
 
-办一所学校，最难的是什么？
+公开资料显示，范华曾在美国高盛公司工作11年，任高盛全球风险模型部主管；随后在中国投资有限责任公司工作10年，历任资产配置部、债券与绝对收益部总监。
 
-有人说是师资，有人说是生源，还有人说是一份坚守。
+2019年，范华加入招商银行理财子公司任首席权益投资官；2022年9月出任贝莱德建信理财总经理；2024年1月升任贝莱德中国区负责人，同年2月正式就任贝莱德基金董事长。
 
-可对于很多外国人来说，最难的却是：如何在地球的另一端，学一门地道的中国手艺。
-
-两个看似毫不相干的故事，就这样相遇了。
-
-一位是来自德国的美食爱好者，一位是越洋而来的美国汽车学子。
-
-他们各自怀揣着不同的梦想，不约而同走进了中国东方教育集团（00667.HK）的校门。
-
-越洋学新能源 最近，一位名叫Ahmed的美国青年走进了万通汽车教育的校区。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 15:05 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 15:10 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 15:11 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 15:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 15:23 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 15:12 - [7款商保创新药“转道”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 14:54 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 15:01 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 15:00 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 14:58 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 15:09 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 15:10 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 15:11 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 15:11 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 15:03 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 15:03 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 15:28 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 15:03 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 15:22 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 15:09 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 15:01 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 15:14 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 15:07 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 15:06 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:23 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/64394893499.shtml)
-- 2026-06-29 15:23 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/071226042476.shtml)
-- 2026-06-29 14:57 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/759160378.shtml)
-- 2026-06-29 14:55 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.kurohicncr.top/Article/details/57287.shtml)
-- 2026-06-29 15:08 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/5093259172.shtml)
-- 2026-06-29 14:56 - [加拿大绝杀南非晋级](http://www.share.minike.top/Article/details/14389537641.shtml)
-- 2026-06-29 15:16 - [汪东城回应45岁婚约](http://www.blog.minike.top/Article/details/5688662375.shtml)
-- 2026-06-29 15:23 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/213687807.shtml)
-- 2026-06-29 15:01 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/058275643064.shtml)
-- 2026-06-29 15:02 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/234214.shtml)
-- 2026-06-29 14:55 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/136587972.shtml)
-- 2026-06-29 15:03 - [A股](http://www.share.minike.top/Article/details/0467621137.shtml)
-- 2026-06-29 15:14 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/012266.shtml)
-- 2026-06-29 15:16 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/669897580274.shtml)
-- 2026-06-29 15:16 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/8948695.shtml)
+- 2026-06-29 15:03 - [手游300亿数据或被军事化运用](http://www.blog.minike.top/Article/details/269556.shtml)
+- 2026-06-29 15:00 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/9203429.shtml)
+- 2026-06-29 15:17 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/89316760523.shtml)
+- 2026-06-29 15:27 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/293449322968.shtml)
+- 2026-06-29 15:25 - [宜宾5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/75792708.shtml)
+- 2026-06-29 15:03 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/448622821210.shtml)
+- 2026-06-29 15:10 - [欧委会总部只给高层开空调](http://www.share.kurohicncr.top/Article/details/066023571735.shtml)
+- 2026-06-29 15:14 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/6731839.shtml)
+- 2026-06-29 15:17 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/0226176.shtml)
+- 2026-06-29 15:13 - [给阿嬷的情书海外口碑](https://www.share.minike.top/Article/details/07148.shtml)
+- 2026-06-29 15:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/118243.shtml)
+- 2026-06-29 15:17 - [四川宜宾地震](http://www.blog.minike.top/Article/details/06863.shtml)
+- 2026-06-29 15:20 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/761901.shtml)
+- 2026-06-29 15:24 - [志愿选择倒计时！浙大学生送祝福](http://www.share.kurohicncr.top/Article/details/32784.shtml)
+- 2026-06-29 15:06 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.minike.top/Article/details/577106079941.shtml)

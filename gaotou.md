@@ -1,54 +1,58 @@
-# 广东将推动服务与制造“同船出海”
+# Avery Dennison任命Danny Allouche为材料集团总裁
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新社广州5月26日电 (记者 程景伟)广东省省长孟凡利26日在广州举行的“开局起步‘十五五’”广东专场新闻发布会上回答中新社记者提问时称，广东将抓好服务贸易，推动广东服务与广东制造“同船出海”。 近年来，广东全力稳外贸，去年全省货物贸易进出口9.49万亿元(人民币，下同)、同比增长4.4%；今年一季度，全省货物贸易进出口2.54万亿元、同比增长19.4%。 今年一季度，广东对
+美国材料科学和数字识别解决方案提供商艾利丹尼森公司今日宣布，任命Danny Allouche为材料集团总裁，该任命立即生效。Allouche将直接向公司总裁兼首席执行官Deon Stander汇报工作。 Allouche已在艾利丹尼森任职超过16年，担任过多个领导职务。自2016年起，他领导公司的全球战略和企业投资组合发展活动，最近担任高级副总裁兼首席战略和企业发展官。在这一职
 
 ## 正文
 
-中新社广州5月26日电 (记者 程景伟)广东省省长孟凡利26日在广州举行的“开局起步‘十五五’”广东专场新闻发布会上回答中新社记者提问时称，广东将抓好服务贸易，推动广东服务与广东制造“同船出海”。
+美国材料科学和数字识别解决方案提供商艾利丹尼森公司今日宣布，任命Danny Allouche为材料集团总裁，该任命立即生效。
 
-近年来，广东全力稳外贸，去年全省货物贸易进出口9.49万亿元(人民币，下同)、同比增长4.4%；今年一季度，全省货物贸易进出口2.54万亿元、同比增长19.4%。
+Allouche将直接向公司总裁兼首席执行官Deon Stander汇报工作。
 
-今年一季度，广东对传统伙伴和新兴市场出口均保持较好增长，集成电路、锂电池、3D打印机、无人机等都同比增长50%以上。
+Allouche已在艾利丹尼森任职超过16年，担任过多个领导职务。
 
-孟凡利表示，广东将积极培育外贸新动能，促进跨境电商高端化、品牌化、智能化发展，大力发展数字贸易、绿色贸易，培育壮大市场采购、保税维修等新业态；同时，积极扩大高品质消费品、重要装备和关键零部件、农产品进口，做大进口业务规模，大力推动内外贸一体化发展。
+自2016年起，他领导公司的全球战略和企业投资组合发展活动，最近担任高级副总裁兼首席战略和企业发展官。
 
-孟凡利称，广东要引进更多外资企业，发挥好外资企业在开发国际市场、联通国内市场上的独特作用；支持有实力的省内企业高质量“走出去”，延伸产业链条、丰富贸易渠道，带动更多广东产品“走出去”。
+在这一职位上，他还负责监督公司的所有并购和风险投资活动。
 
-粤开证券首席经济学家、研究院院长罗志恒接受记者采访时称，当前，在逆全球化回潮、全球产业链重构的背景下，广东企业呈现出有韧性、有活力的特征，产品不断迭代升级，产业链通过中间品、资本品高端化增强国际市场竞争力，同时布局更加多元的市场，有效对冲了单一市场风险和经贸摩擦影响。
+Allouche还曾在2024年底短暂兼任艾利丹尼森临时首席财务官。
 
-(完)
+在谈到此次任命时，Stander表示：“多年来，Danny在塑造材料集团和艾利丹尼森的战略方向方面发挥了至关重要的作用。
+
+他对我们的材料业务有深刻的了解，一直担任领导层的思想伙伴，并支持关键的业务项目，包括战略性并购活动。
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 15:19 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 15:12 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 15:01 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 15:15 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 15:09 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 15:16 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 15:05 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 15:21 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 15:02 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 15:26 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 15:09 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 15:19 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 15:28 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 15:26 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 15:27 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 15:09 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 15:02 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 15:12 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 15:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 15:12 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 15:21 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:11 - [105年初心滚烫](https://www.blog.kurohicncr.top/Article/details/47708.shtml)
-- 2026-06-29 14:58 - [周杰伦演唱会真的好多人啊](https://www.blog.kurohicncr.top/Article/details/016991159.shtml)
-- 2026-06-29 15:17 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/6818747187.shtml)
-- 2026-06-29 14:55 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/13117451.shtml)
-- 2026-06-29 15:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/93335631685.shtml)
-- 2026-06-29 15:15 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/81559.shtml)
-- 2026-06-29 15:03 - [沙丘](https://www.blog.minike.top/Article/details/97180.shtml)
-- 2026-06-29 15:20 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/9390192.shtml)
-- 2026-06-29 15:15 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/097775043227.shtml)
-- 2026-06-29 15:03 - [医院大厅放钢琴是形式主义吗](http://www.share.minike.top/Article/details/07514800.shtml)
-- 2026-06-29 15:08 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/915024327623.shtml)
-- 2026-06-29 15:18 - [扬名立万](https://www.share.minike.top/Article/details/0511460.shtml)
-- 2026-06-29 15:09 - [市民骑哈啰单车79分钟付30元](http://www.share.kurohicncr.top/Article/details/143172800.shtml)
-- 2026-06-29 15:23 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/25819.shtml)
-- 2026-06-29 15:06 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/196750179013.shtml)
+- 2026-06-29 15:10 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/13536312332.shtml)
+- 2026-06-29 15:20 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/686725.shtml)
+- 2026-06-29 15:27 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/82713411886.shtml)
+- 2026-06-29 15:13 - [王楚钦3-0周启豪 晋级32强](http://www.blog.kurohicncr.top/Article/details/85508707799.shtml)
+- 2026-06-29 15:11 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/07023766948.shtml)
+- 2026-06-29 15:00 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/38351754.shtml)
+- 2026-06-29 15:01 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/36798007.shtml)
+- 2026-06-29 15:05 - [高市早苗口齿不清被质疑醉酒](https://www.blog.minike.top/Article/details/8163832.shtml)
+- 2026-06-29 15:16 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/2042413588.shtml)
+- 2026-06-29 15:17 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.minike.top/Article/details/02040130.shtml)
+- 2026-06-29 15:17 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/284134768.shtml)
+- 2026-06-29 15:21 - [媒体：网络测评不能只剩“生意”](https://www.share.minike.top/Article/details/8371487.shtml)
+- 2026-06-29 15:20 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/23307.shtml)
+- 2026-06-29 15:14 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/712181188.shtml)
+- 2026-06-29 15:15 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.kurohicncr.top/Article/details/63700.shtml)

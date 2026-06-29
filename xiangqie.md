@@ -1,57 +1,56 @@
-# 韩国股市今年以来飙升100% 强劲涨势盖过互联网泡沫时期
+# 国际友谊赛中国男足2：1胜新加坡
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-韩国股市今年以来已经飙升100%，超过互联网泡沫破裂前夕以及韩国上世纪80年代末工业繁荣时期的历史性升势。 在SK海力士和三星电子大涨的带动下，韩国Kospi指数不断刷新纪录，在短短数月内便从5000点飙升至8000点。该指数周三一度上涨5.1%。 今年尚未过半，Kospi指数的表现已经可与纳斯达克100指数1999年上涨102%的走势相提并论，当时正值互联网泡沫破裂前夕。 不
+中新社北京6月5日电 当地时间6月5日在新加坡惹兰勿刹体育场举行的一场国际足球友谊赛中，中国男足2:1战胜新加坡队，替补出场的老将武磊达成国家队百场成就。 中国男足在6月国际比赛日窗口期迎来两场友谊赛，分别与新加坡队和泰国队交手。两场友谊赛均为国际足联A级赛事，比赛结果计入世界排名积分系统，中国队需抢分提升国际足联排名，并为2027年亚洲杯备战练兵。 赛前中国队排名世界第94位
 
 ## 正文
 
-韩国股市今年以来已经飙升100%，超过互联网泡沫破裂前夕以及韩国上世纪80年代末工业繁荣时期的历史性升势。
+中新社北京6月5日电 当地时间6月5日在新加坡惹兰勿刹体育场举行的一场国际足球友谊赛中，中国男足2:1战胜新加坡队，替补出场的老将武磊达成国家队百场成就。
 
-在SK海力士和三星电子大涨的带动下，韩国Kospi指数不断刷新纪录，在短短数月内便从5000点飙升至8000点。
+中国男足在6月国际比赛日窗口期迎来两场友谊赛，分别与新加坡队和泰国队交手。
 
-该指数周三一度上涨5.1%。
+两场友谊赛均为国际足联A级赛事，比赛结果计入世界排名积分系统，中国队需抢分提升国际足联排名，并为2027年亚洲杯备战练兵。
 
-今年尚未过半，Kospi指数的表现已经可与纳斯达克100指数1999年上涨102%的走势相提并论，当时正值互联网泡沫破裂前夕。
+赛前中国队排名世界第94位，新加坡队第147位。
 
-不过，很少有市场观察人士就韩国股市发出警告，他们认为，全球对存储芯片的需求出现结构性变化，正从周期性波动转向更持久的增长趋势。
+尽管纸面实力占优，但在两年前的美加墨世界杯亚洲区预选赛36强赛中，国足客场2:2遭新加坡逼平。
 
-责任编辑：王永生
+此役，两位U23球员李昊、毛伟杰首发迎来国家队首秀。
+
+比赛伊始，中国队快速进入状态。
+
+上半场第16分钟，谢文能传中，塞尔吉尼奥头球攻入个人国足生涯首球，中国队1:0领先。
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 14:55 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 15:11 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 15:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 15:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 15:09 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 15:02 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 15:11 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 15:08 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 15:08 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 15:19 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 15:09 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 14:58 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 15:00 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 15:23 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 15:16 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 15:10 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 15:23 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 15:29 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 15:24 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 15:13 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 15:18 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 15:29 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 15:18 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 15:04 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/6823522.shtml)
-- 2026-06-29 15:07 - [民进党为什么拼命抹黑统战](http://www.blog.minike.top/Article/details/809834711.shtml)
-- 2026-06-29 15:13 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/7245188.shtml)
-- 2026-06-29 15:08 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/836789310856.shtml)
-- 2026-06-29 15:22 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/88978.shtml)
-- 2026-06-29 14:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/39236489376.shtml)
-- 2026-06-29 15:01 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/4912195405.shtml)
-- 2026-06-29 15:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/85495783764.shtml)
-- 2026-06-29 15:14 - [扬名立万](https://www.blog.minike.top/Article/details/114307.shtml)
-- 2026-06-29 15:20 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/710960104311.shtml)
-- 2026-06-29 15:09 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/1769482.shtml)
-- 2026-06-29 15:08 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.kurohicncr.top/Article/details/138007862.shtml)
-- 2026-06-29 15:13 - [吴昕要助理买的药6年前已停产](http://www.share.minike.top/Article/details/71509115849.shtml)
-- 2026-06-29 14:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/86532.shtml)
-- 2026-06-29 15:03 - [比亚迪市值为何蒸发8000亿](http://www.share.kurohicncr.top/Article/details/8007579.shtml)
+- 2026-06-29 15:22 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.kurohicncr.top/Article/details/2445997250.shtml)
+- 2026-06-29 15:09 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/4871088520.shtml)
+- 2026-06-29 15:02 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.minike.top/Article/details/8405185.shtml)
+- 2026-06-29 15:06 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/635999.shtml)
+- 2026-06-29 15:10 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/47555928.shtml)
+- 2026-06-29 15:02 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/387734.shtml)
+- 2026-06-29 15:24 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/34074246464.shtml)
+- 2026-06-29 15:09 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/554953609776.shtml)
+- 2026-06-29 15:20 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/5629628549.shtml)
+- 2026-06-29 15:08 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/09116305.shtml)
+- 2026-06-29 15:10 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/220385.shtml)
+- 2026-06-29 15:26 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/434093036282.shtml)
+- 2026-06-29 15:04 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/1597474.shtml)
+- 2026-06-29 15:01 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/60202931717.shtml)
+- 2026-06-29 15:19 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/119957536.shtml)

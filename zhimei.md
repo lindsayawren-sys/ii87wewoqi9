@@ -1,45 +1,57 @@
-# 以军空袭加沙中部和南部 至少8人死亡
+# 软银单日暴跌12%：高杠杆豪赌AI的狂欢与警钟
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月27日 09:45 来源：央视新闻 责任编辑：【王祎】
+在6月1日成为日本市值第一仅两天后，软银集团周四遭遇猛烈抛售，股价暴跌逾11%，市值瞬间蒸发超5万亿日元，并拖累其持有的Arm股价盘前重挫5%。这记警钟提醒市场：AI狂热背后，高杠杆押注的风险正在积聚。 这轮暴跌的导火索是市场对软银“ALL IN”策略的深度担忧。为了支撑对OpenAI累计或达600亿美元的巨额投资，软银背负了沉重债务，截至2025年底独立计息债务已高达约104
 
 ## 正文
 
-发布时间：2026年05月27日 09:45 来源：央视新闻 责任编辑：【王祎】
+在6月1日成为日本市值第一仅两天后，软银集团周四遭遇猛烈抛售，股价暴跌逾11%，市值瞬间蒸发超5万亿日元，并拖累其持有的Arm股价盘前重挫5%。
+
+这记警钟提醒市场：AI狂热背后，高杠杆押注的风险正在积聚。
+
+这轮暴跌的导火索是市场对软银“ALL IN”策略的深度担忧。
+
+为了支撑对OpenAI累计或达600亿美元的巨额投资，软银背负了沉重债务，截至2025年底独立计息债务已高达约1040亿美元。
+
+标普全球已因此将软银评级展望下调至“负面”，直言其财务状况可能因过度集中投资OpenAI而恶化。
+
+暴跌恰逢AI竞赛格局生变。
+
+就在软银重注押宝OpenAI之际，其主要竞争对手Anthropic刚秘密提交IPO申请，其最新估值已高达9650亿美元，首次超越OpenAI。
+
+市场担心，随着xAI、Anthropic等对手加速上市并瓜分市场，软银的集中押注风险正在放大。
 
 ## 相关推荐
 
-- 2026-06-29 15:23 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 15:22 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 14:59 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 15:00 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 15:01 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 15:01 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 14:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 15:17 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 15:04 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 15:10 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 15:08 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 15:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 15:09 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 15:03 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 15:27 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 15:00 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 15:02 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 15:06 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 15:29 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 15:28 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 15:21 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 15:00 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 15:13 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 15:00 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/11894396.shtml)
-- 2026-06-29 15:13 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/26522159.shtml)
-- 2026-06-29 14:59 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/029996440.shtml)
-- 2026-06-29 15:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/5586537726.shtml)
-- 2026-06-29 15:10 - [詹俊预测德国大胜巴拉圭](https://www.share.minike.top/Article/details/78024.shtml)
-- 2026-06-29 14:57 - [链博会上的机器人太全能了](http://www.share.minike.top/Article/details/743095390.shtml)
-- 2026-06-29 15:21 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/80275.shtml)
-- 2026-06-29 15:11 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/360211462155.shtml)
-- 2026-06-29 15:03 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/6460984011.shtml)
-- 2026-06-29 15:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/285019088471.shtml)
-- 2026-06-29 15:12 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/466967.shtml)
-- 2026-06-29 15:08 - [急先锋](http://www.share.kurohicncr.top/Article/details/6497881926.shtml)
-- 2026-06-29 15:08 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/0868320582.shtml)
-- 2026-06-29 15:15 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/85494.shtml)
-- 2026-06-29 15:20 - [3D打印不是工业革命，它是……](http://www.share.kurohicncr.top/Article/details/979555686.shtml)
+- 2026-06-29 15:01 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.minike.top/Article/details/30947000223.shtml)
+- 2026-06-29 15:19 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/423991.shtml)
+- 2026-06-29 15:27 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/782415.shtml)
+- 2026-06-29 15:29 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/08090003.shtml)
+- 2026-06-29 15:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/22335157827.shtml)
+- 2026-06-29 15:12 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/20827615116.shtml)
+- 2026-06-29 15:13 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/897001259.shtml)
+- 2026-06-29 15:13 - [叶一茜森碟一起回北京了](http://www.share.kurohicncr.top/Article/details/70853347.shtml)
+- 2026-06-29 15:02 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/595986.shtml)
+- 2026-06-29 15:17 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/67460295.shtml)
+- 2026-06-29 15:15 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/382478025.shtml)
+- 2026-06-29 15:17 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/139926068.shtml)
+- 2026-06-29 15:08 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/61669.shtml)
+- 2026-06-29 15:22 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/02958846.shtml)
+- 2026-06-29 15:18 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/5388474.shtml)

@@ -1,57 +1,61 @@
-# 香港中旅第一季度收入为11亿港元 同比增长13%
+# 由人民评判，让政绩经得起检验
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-香港中旅（00308）发布公告，集团于截至2026年3月31日止3个月取得收入为11.0亿港元，较2025年第一季度增长13%；并于第一季度取得未包括投资性物业公允价值变动的调整净利润为1.3亿港元，较2025年第一季度增长101%。剔除本年度不再纳入集团合并报表的旅游地产业务后，集团第一季度收入与2025年同期对比增长23%。 2026年第一季度旅游景区及相关业务接待人数合共
+作者：刘德中(中国社会科学院马克思主义研究院研究员)；张宁(中国社会科学院政治学研究所干部) 习近平总书记指出，“为民造福是最大政绩”，“业绩好不好，要看群众实际感受，由群众来评判”。政绩的标准是为民造福，政绩好不好也理应由人民说了算。干部干事创业、创造政绩，出发点和落脚点都是为了人民，一项工作算不算实绩，不能自以为是、仅凭自我判定，而应该以人民群众的真实感受、客观评价作为最终
 
 ## 正文
 
-香港中旅（00308）发布公告，集团于截至2026年3月31日止3个月取得收入为11.0亿港元，较2025年第一季度增长13%；并于第一季度取得未包括投资性物业公允价值变动的调整净利润为1.3亿港元，较2025年第一季度增长101%。
+作者：刘德中(中国社会科学院马克思主义研究院研究员)；张宁(中国社会科学院政治学研究所干部) 习近平总书记指出，“为民造福是最大政绩”，“业绩好不好，要看群众实际感受，由群众来评判”。
 
-剔除本年度不再纳入集团合并报表的旅游地产业务后，集团第一季度收入与2025年同期对比增长23%。
+政绩的标准是为民造福，政绩好不好也理应由人民说了算。
 
-2026年第一季度旅游景区及相关业务接待人数合共约615万人次，较2025年第一季度增长19%。
+干部干事创业、创造政绩，出发点和落脚点都是为了人民，一项工作算不算实绩，不能自以为是、仅凭自我判定，而应该以人民群众的真实感受、客观评价作为最终标尺。
 
-第一季度收入增长主要由于（i）集团于2025年10月27日完成收购的吉林省松花湖国际度假区开发有限公司及中旅（北京）冰雪体育发展有限公司，为集团带来新的收入增长点；（ii）集团其他存量项目接待人数上升导致收入上升。
+总而言之，人民是党的工作的最高裁决者和最终评判者，无疑也应该是政绩的最终评价者。
 
-第一季度利润增长主要由于集团于2025年12月22日透过实物分派完成将旅游地产业务从集团分拆，旅游地产业务的财务业绩自实物分派完成当日起从集团的综合财务报表中分拆，集团实现剥离持续亏损企业；及集团的旅游景区及相关业务收入上升。
+衡量干部业绩好不好，关键要看老百姓口碑好不好。
 
-责任编辑：卢昱君
+这与老百姓所说“金杯银杯不如群众口碑，金奖银奖不如群众夸奖”是一致的。
+
+因此，必须把群众满意度纳入政绩考核的“硬指标”，不断提升群众评价在选人用人中的权重。
+
+那么，怎样做出得到群众公认的业绩？
 
 ## 相关推荐
 
-- 2026-06-29 15:13 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 14:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 15:02 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 15:12 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 15:17 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 14:59 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 15:17 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 15:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 15:19 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 14:57 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 14:54 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 15:20 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 14:54 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 15:11 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 15:21 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 15:03 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 15:19 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 15:12 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 15:10 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 15:14 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 15:09 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 15:29 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 15:18 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 15:12 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 15:19 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 15:16 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 15:28 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 15:05 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 15:05 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 15:17 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/20978.shtml)
-- 2026-06-29 15:21 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/97430171982.shtml)
-- 2026-06-29 15:18 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/30585.shtml)
-- 2026-06-29 14:59 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/50691.shtml)
-- 2026-06-29 14:55 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/26330.shtml)
-- 2026-06-29 15:06 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/318380505393.shtml)
-- 2026-06-29 15:10 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/067459090599.shtml)
-- 2026-06-29 15:20 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/72635.shtml)
-- 2026-06-29 15:07 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/50592.shtml)
-- 2026-06-29 15:07 - [南非老帅布罗斯的梦没能做完](http://www.blog.kurohicncr.top/Article/details/84310726042.shtml)
-- 2026-06-29 15:11 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/2279740148.shtml)
-- 2026-06-29 15:01 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/61473688214.shtml)
-- 2026-06-29 15:04 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/631063.shtml)
-- 2026-06-29 15:10 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/842502617180.shtml)
-- 2026-06-29 15:01 - [送你一朵小红花](http://www.share.minike.top/Article/details/756565190216.shtml)
+- 2026-06-29 15:23 - [央视起底直播诈骗连环套](http://www.blog.minike.top/Article/details/279893107.shtml)
+- 2026-06-29 15:20 - [哈兰德之歌火到国外](https://www.blog.minike.top/Article/details/086515637752.shtml)
+- 2026-06-29 15:06 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/3074677.shtml)
+- 2026-06-29 15:22 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/13814.shtml)
+- 2026-06-29 15:24 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/88026.shtml)
+- 2026-06-29 15:25 - [德国VS巴拉圭前瞻](http://www.share.kurohicncr.top/Article/details/55475370.shtml)
+- 2026-06-29 15:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/18045936117.shtml)
+- 2026-06-29 15:14 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/8774114.shtml)
+- 2026-06-29 15:09 - [血糖高的人能吃西瓜吗](https://www.blog.kurohicncr.top/Article/details/89845603.shtml)
+- 2026-06-29 15:15 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/277647.shtml)
+- 2026-06-29 15:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/563906646.shtml)
+- 2026-06-29 15:00 - [扫黑风暴](https://www.blog.minike.top/Article/details/77206.shtml)
+- 2026-06-29 15:14 - [啊啊啊](http://www.share.minike.top/Article/details/27922070.shtml)
+- 2026-06-29 15:16 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/393932182.shtml)
+- 2026-06-29 15:08 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/779387035851.shtml)

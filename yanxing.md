@@ -1,60 +1,61 @@
-# 中国国民党副主席萧旭岑：两岸重在民族认同和政治互信
+# 美债市场“野兽”咆哮回归 凸性对冲恐加剧波动
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新社杭州5月26日电 (郭其钰)“中国国民党当前两岸路线的目标，就是与两岸各界及有关各方持续努力，推动两岸关系和平发展，促进台湾社会繁荣兴旺。”中国国民党副主席萧旭岑26日在浙江杭州表示，为实现前述目标，两岸重在强化民族认同、增进政治互信。当日，2026浙江·台湾合作周在杭州开幕，萧旭岑受邀出席并致辞。 萧旭岑引用台湾史学家连横在《台湾通史》中所言“台湾之人，中国之人也”，申
+上个月美国债市抛售最严重的时期，Vishal Khanduja察觉到了一个不同寻常的情况。 当时，最长期美债收益率飙升至19年高点，期货抛售巨浪席卷市场，抵押贷款支持证券首当其冲。 对于在华尔街从业二十载的摩根士丹利投资管理投资组合经理Khanduja来说，这是一个明显信号：许多像他一样的人正争先恐后地从事受益于美债进一步下跌的交易，以此防范住房债券进一步下跌的风险。这种策略被
 
 ## 正文
 
-中新社杭州5月26日电 (郭其钰)“中国国民党当前两岸路线的目标，就是与两岸各界及有关各方持续努力，推动两岸关系和平发展，促进台湾社会繁荣兴旺。
+上个月美国债市抛售最严重的时期，Vishal Khanduja察觉到了一个不同寻常的情况。
 
-”中国国民党副主席萧旭岑26日在浙江杭州表示，为实现前述目标，两岸重在强化民族认同、增进政治互信。
+当时，最长期美债收益率飙升至19年高点，期货抛售巨浪席卷市场，抵押贷款支持证券首当其冲。
 
-当日，2026浙江·台湾合作周在杭州开幕，萧旭岑受邀出席并致辞。
+对于在华尔街从业二十载的摩根士丹利投资管理投资组合经理Khanduja来说，这是一个明显信号：许多像他一样的人正争先恐后地从事受益于美债进一步下跌的交易，以此防范住房债券进一步下跌的风险。
 
-萧旭岑引用台湾史学家连横在《台湾通史》中所言“台湾之人，中国之人也”，申明从民族认同的立场来看，道道地地的台湾人也是堂堂正正的中国人。
+这种策略被称为凸性对冲。
 
-“两岸在近代历史上，基于中国人的立场，有守护家园、传承文化，抵抗外敌入侵、挽救民族危亡的共同经历。
+“这可是件大事，”他说。
 
-”萧旭岑提到连横曾在杭州玛瑙寺研究整理文史资料致力于保存台湾的中华文脉，以及浙江金华“台湾义勇队”为抗战胜利和台湾光复作出不朽贡献等史实，并表示，珍惜共同渊源、发扬共同记忆，强化大陆和台湾同属一个民族、共享一个文化的认知，两岸同胞的和谐相处会更有感情基础。
+“我们很长一段时间都没讨论过它了。
 
-谈及政治互信，萧旭岑明确表示其核心就是“坚持‘九二共识’、反对‘台独’。
+” 这种策略的复兴势头正逐渐增强，有可能给31万亿美元美债市场注入新的波动性。
 
-” 他提到，今年2月，国共两党智库论坛时隔十年重启，达成十五项共同意见，重新引领推进两岸互利融合的民意。
+受中东动荡局势、美联储领导层更换、政府债务激增以及人工智能投资热潮（通过大量发行新债进行融资）影响，美债市场本已饱受冲击。
 
 ## 相关推荐
 
-- 2026-06-29 14:59 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 15:20 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 15:15 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 14:54 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 15:03 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 15:19 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 15:16 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 15:05 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 15:14 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 14:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 14:59 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 15:12 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 15:21 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 15:18 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 15:18 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 15:24 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 15:11 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 15:12 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 15:02 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 15:19 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 15:23 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 15:29 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 15:01 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 15:07 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 15:19 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 15:15 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 15:00 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 15:06 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 15:06 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:09 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/22863955.shtml)
-- 2026-06-29 15:07 - [中方回应对日本相关出口管制措施](http://www.share.kurohicncr.top/Article/details/4039174656.shtml)
-- 2026-06-29 15:15 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/582369566.shtml)
-- 2026-06-29 15:19 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/743996442.shtml)
-- 2026-06-29 15:04 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/92119.shtml)
-- 2026-06-29 15:04 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/7524107.shtml)
-- 2026-06-29 15:05 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/123776206178.shtml)
-- 2026-06-29 15:23 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/0522619290.shtml)
-- 2026-06-29 15:21 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/187486382430.shtml)
-- 2026-06-29 15:06 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/973037286654.shtml)
-- 2026-06-29 15:13 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/46557.shtml)
-- 2026-06-29 15:08 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/3220694714.shtml)
-- 2026-06-29 14:54 - [久坐小心“死臀综合征”](http://www.blog.kurohicncr.top/Article/details/823734.shtml)
-- 2026-06-29 15:10 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/09665.shtml)
-- 2026-06-29 15:00 - [袁隆平院士 不容诋毁！](http://www.share.minike.top/Article/details/909541540.shtml)
+- 2026-06-29 15:21 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/38249.shtml)
+- 2026-06-29 15:00 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.minike.top/Article/details/486711.shtml)
+- 2026-06-29 15:00 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/080642631645.shtml)
+- 2026-06-29 15:12 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/5620627921.shtml)
+- 2026-06-29 15:05 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.kurohicncr.top/Article/details/4877064112.shtml)
+- 2026-06-29 15:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/56539133514.shtml)
+- 2026-06-29 15:00 - [一生一世](http://www.blog.minike.top/Article/details/8954073.shtml)
+- 2026-06-29 15:12 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/24744.shtml)
+- 2026-06-29 15:15 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/619034855.shtml)
+- 2026-06-29 15:24 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/126685140.shtml)
+- 2026-06-29 15:04 - [男孩复读一年减重20斤涨分111分](http://www.share.minike.top/Article/details/6008123.shtml)
+- 2026-06-29 15:28 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/604609.shtml)
+- 2026-06-29 15:09 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/732813180532.shtml)
+- 2026-06-29 15:02 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/72957985752.shtml)
+- 2026-06-29 15:16 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/78577.shtml)

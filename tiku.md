@@ -1,61 +1,59 @@
-# 新疆新农人用镜头推介家乡好物 赋能乡村振兴
+# Matador Resources与Energy Transfer签署战略协议 提升天然气变现能力
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐5月26日电 (袁鹏冲)从一名返乡创业扎根家乡的新疆生产建设兵团职工，到拥有16.6万粉丝的乡土自媒体达人，37岁的刘思思，用四年时光完成一场质朴而热烈的乡土奔赴。 2022年，刘思思返乡创业，开始深耕种植产业、自媒体传播，记录兵团风貌、推介本地好物、传递新疆温情，让真实鲜活的新疆乡村故事走出戈壁、走向大众。 田间寻初心 烟火乡土解锁助农新赛道 “最初返乡种地，劳
+Matador Resources Company近日宣布，已与Energy Transfer LP的关联公司签订多项协议，包括一项天然气供应协议及独立的天然气液体协议。此次交易旨在改善公司的综合定价净回报，并降低2026年下半年对Waha Hub定价的风险敞口。 根据协议，Matador将其特拉华盆地多个来源的天然气液体产品进行专项指定并出售给Energy Transfer。
 
 ## 正文
 
-中新网乌鲁木齐5月26日电 (袁鹏冲)从一名返乡创业扎根家乡的新疆生产建设兵团职工，到拥有16.6万粉丝的乡土自媒体达人，37岁的刘思思，用四年时光完成一场质朴而热烈的乡土奔赴。
+Matador Resources Company近日宣布，已与Energy Transfer LP的关联公司签订多项协议，包括一项天然气供应协议及独立的天然气液体协议。
 
-2022年，刘思思返乡创业，开始深耕种植产业、自媒体传播，记录兵团风貌、推介本地好物、传递新疆温情，让真实鲜活的新疆乡村故事走出戈壁、走向大众。
+此次交易旨在改善公司的综合定价净回报，并降低2026年下半年对Waha Hub定价的风险敞口。
 
-田间寻初心 烟火乡土解锁助农新赛道 “最初返乡种地，劳作之余望着远山蓝天，内心倍感安宁，就随手用手机记录下来。
+根据协议，Matador将其特拉华盆地多个来源的天然气液体产品进行专项指定并出售给Energy Transfer。
 
-”刘思思坦言，返乡之初，她只是专注小麦种植，闲暇时拍摄家乡风光以及邻里煮肉、熬奶茶的日常烟火场景。
+这一安排是公司为在二叠纪盆地天然气产量激增的背景下保障价格所做的最新努力。
 
-一次次随手记录，让她发现了大众对新疆的全新认知需求。
+此次合作的核心背景在于运输能力的衔接。
 
-一条普通的传统磨面短视频，评论区满是购买咨询，让她坚定了自媒体助农的初心。
+2025年10月30日，Matador已在Energy Transfer的Hugh Brinson管道上确保了每日50万MMBtu的固定运输容量，可将天然气从二叠纪盆地输送至历史上需求和定价显著高于Waha Hub的销售点。
 
-巴里坤独特的气候条件让当地小麦年均日照超3000小时，昼夜大温差让麦粒紧实饱满、蛋白质含量充足，自带天然麦香。
+此次新签署的天然气供应协议预计将在Hugh Brinson管道的运输协议生效前起到“桥梁”作用，使公司能够在此过渡期内为其部分天然气产量实现更高的价格。
 
-作为本地种植户，刘思思全程跟进小麦春种、秋收、晾晒、磨制全过程，坚持传统工艺磨面，采用低温打磨方式，保留麦芯与麦芽原生营养，无添加、不萃取，最大程度锁住粮食本味。
+该协议同时预计将为Energy Transfer提供天然气，以满足AI驱动的数据中心及发电市场日益增长的需求。
 
 ## 相关推荐
 
-- 2026-06-29 15:20 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 14:55 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 15:19 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 15:07 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 15:00 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 14:56 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 15:21 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 15:16 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 15:14 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 15:19 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 15:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 15:01 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 15:19 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 15:21 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 15:09 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 15:03 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 15:14 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 15:27 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 15:07 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 15:13 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 15:21 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 15:04 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 15:20 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 15:25 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 15:13 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 15:11 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 15:23 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 15:05 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [NBA交易](https://www.blog.minike.top/Article/details/99769542.shtml)
-- 2026-06-29 15:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/049922926882.shtml)
-- 2026-06-29 15:11 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/44866930.shtml)
-- 2026-06-29 15:03 - [久坐小心“死臀综合征”](http://www.share.minike.top/Article/details/9744538.shtml)
-- 2026-06-29 15:05 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/646791.shtml)
-- 2026-06-29 15:20 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/289210017060.shtml)
-- 2026-06-29 15:12 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/175227.shtml)
-- 2026-06-29 15:08 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.kurohicncr.top/Article/details/851256.shtml)
-- 2026-06-29 15:07 - [久坐小心“死臀综合征”](http://www.blog.minike.top/Article/details/4572987208.shtml)
-- 2026-06-29 15:00 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/49150773.shtml)
-- 2026-06-29 15:17 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/357640.shtml)
-- 2026-06-29 15:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/59055309.shtml)
-- 2026-06-29 15:21 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/46051570332.shtml)
-- 2026-06-29 15:10 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/022266909418.shtml)
-- 2026-06-29 15:06 - [时光音乐会](http://www.blog.minike.top/Article/details/61990283.shtml)
+- 2026-06-29 15:01 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/29956.shtml)
+- 2026-06-29 15:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/1710974667.shtml)
+- 2026-06-29 15:13 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/19609283097.shtml)
+- 2026-06-29 15:12 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/872426362992.shtml)
+- 2026-06-29 15:08 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/859205796.shtml)
+- 2026-06-29 15:11 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/280973730599.shtml)
+- 2026-06-29 15:15 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/50736.shtml)
+- 2026-06-29 15:18 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/86071.shtml)
+- 2026-06-29 15:24 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/13454.shtml)
+- 2026-06-29 15:03 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/245793799807.shtml)
+- 2026-06-29 15:21 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/24741404135.shtml)
+- 2026-06-29 15:21 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/46436.shtml)
+- 2026-06-29 15:23 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/41018720515.shtml)
+- 2026-06-29 15:23 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/4668983994.shtml)
+- 2026-06-29 15:18 - [给阿嬷的情书海外口碑](https://www.blog.minike.top/Article/details/821789372.shtml)

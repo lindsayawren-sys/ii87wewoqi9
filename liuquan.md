@@ -1,58 +1,56 @@
-# 首钢朗泽于5月26日至5月29日招股 拟全球发售4000万股
+# 美国股市：纳斯达克100指数创逾一年最大跌幅 交易员撤离科技股
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-首钢朗泽（02553）于2026年5月26日至2026年5月29日招股，该公司拟全球发售4000万股H股（视乎超额配股权行使与否而定），其中香港发售占10%（可予重新分配），国际发售占90%（可予重新分配及视乎超额配股权行使与否而定），另有15%超额配股权。发售价将为每股发售股份14.60港元-17.10港元，每手200股，预期H股将于2026年6月3日上午九时正开始在联交所买
+华尔街历史性的周度连涨告一段落。科技股抛售以及债券收益率走高冲击美股，早前发布的强劲就业报告推高了对美联储下一步利率动作将是加息的押注。 对估值的担忧日益加剧，推动标普500指数收跌2.6%，未能实现连续第十周上涨。 该指数11个板块中有5个日间上涨，消费必需品和公用事业板块领涨。 标普500指数中的信息科技板块重挫5.8%，瑞银一篮子受益于人工智能的股票猛跌7.0%，NuSc
 
 ## 正文
 
-首钢朗泽（02553）于2026年5月26日至2026年5月29日招股，该公司拟全球发售4000万股H股（视乎超额配股权行使与否而定），其中香港发售占10%（可予重新分配），国际发售占90%（可予重新分配及视乎超额配股权行使与否而定），另有15%超额配股权。
+华尔街历史性的周度连涨告一段落。
 
-发售价将为每股发售股份14.60港元-17.10港元，每手200股，预期H股将于2026年6月3日上午九时正开始在联交所买卖。
+科技股抛售以及债券收益率走高冲击美股，早前发布的强劲就业报告推高了对美联储下一步利率动作将是加息的押注。
 
-截至2023年、2024年及2025年12月31日止年度，公司的收入分别为人民币5.93亿元、人民币5.64亿元及人民币5.22亿元。
+对估值的担忧日益加剧，推动标普500指数收跌2.6%，未能实现连续第十周上涨。
 
-公司的主要收入来自销售乙醇及微生物蛋白以及沼气和粗醇等副产品，同时公司也为寻求在其设施中实施公司专有的合成生物技术的工业客户提供低碳综合性解决方案。
+该指数11个板块中有5个日间上涨，消费必需品和公用事业板块领涨。
 
-公司将自全球发售收到的所得款项净额将为：约4.87亿港元（相当于约人民币4.25亿元），假设每股股份发售价为14.60港元（即最低发售价）；约5.33亿港元（相当于约人民币4.66亿元），假设每股股份发售价为15.85港元（即发售价范围的中位值）；或约5.8亿港元（相当于约人民币5.06亿元），假设每股股份发售价为17.10港元（即最高发售价）。
+标普500指数中的信息科技板块重挫5.8%，瑞银一篮子受益于人工智能的股票猛跌7.0%，NuScale Power、Oklo Inc．和美满电子跌幅最大。
 
-约24.5%的所得款项净额预计将在未来两年用于公司的河北首朗二期生产设施。
+露露乐蒙收跌8.6%，北美业务表现恶化导致这家运动服饰公司下调了全年预期。
 
-约24.8%的所得款项净额预计将于未来两年用于资助公司在内蒙古包头建设和开发SAF生产设施（SAF设施）的费用。
+纳斯达克100指数收跌4.8%，创2025年4月以来最大跌幅。
 
-约15.7%的所得款项净额预计将用于未来三年内菌株、生产设备及工艺以及公司智能生产管理系统的研究与开发，以提升公司的生产效率。
+一项衡量芯片制造商的指标下滑10%。
 
 ## 相关推荐
 
-- 2026-06-29 15:13 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 15:14 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 15:14 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 14:56 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 15:09 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 15:12 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 15:01 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 15:23 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 15:09 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 15:13 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 14:57 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 15:19 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 15:01 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 15:06 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 15:20 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 15:29 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 15:15 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 15:02 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 15:17 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 15:09 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 15:21 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 15:05 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:24 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/0638387323.shtml)
-- 2026-06-29 14:58 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.minike.top/Article/details/501872272.shtml)
-- 2026-06-29 15:22 - [龟梨和也田中美奈实结婚](https://www.blog.kurohicncr.top/Article/details/587531843.shtml)
-- 2026-06-29 15:02 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/7291706539.shtml)
-- 2026-06-29 15:10 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/860757.shtml)
-- 2026-06-29 15:12 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/5143690257.shtml)
-- 2026-06-29 14:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/1105815.shtml)
-- 2026-06-29 14:55 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/44626983911.shtml)
-- 2026-06-29 14:59 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/289191928304.shtml)
-- 2026-06-29 15:11 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/44093044.shtml)
-- 2026-06-29 15:09 - [美伊同意停止互袭](http://www.share.kurohicncr.top/Article/details/5536997.shtml)
-- 2026-06-29 15:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/37694209.shtml)
-- 2026-06-29 15:09 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/168370.shtml)
-- 2026-06-29 15:12 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/136932085579.shtml)
-- 2026-06-29 15:00 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/448875108477.shtml)
+- 2026-06-29 15:11 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/30684719765.shtml)
+- 2026-06-29 15:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/60473.shtml)
+- 2026-06-29 15:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/094203.shtml)
+- 2026-06-29 15:13 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/14458501297.shtml)
+- 2026-06-29 15:26 - [李在明称韩国足协任命了无能之人](http://www.blog.minike.top/Article/details/71031222.shtml)
+- 2026-06-29 15:15 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/15398.shtml)
+- 2026-06-29 15:10 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/82637093358.shtml)
+- 2026-06-29 15:15 - [急先锋](http://www.blog.kurohicncr.top/Article/details/74473.shtml)
+- 2026-06-29 15:15 - [首尔商铺禁止洪明甫入内](https://www.share.minike.top/Article/details/3526369.shtml)
+- 2026-06-29 15:05 - [航空运输旅客服务质量国标将实施](http://www.share.minike.top/Article/details/06986178.shtml)
+- 2026-06-29 15:09 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/5493272.shtml)
+- 2026-06-29 15:24 - [沙丘](https://www.blog.kurohicncr.top/Article/details/7782475.shtml)
+- 2026-06-29 15:17 - [普京介绍前线战事](http://www.share.kurohicncr.top/Article/details/822963028855.shtml)
+- 2026-06-29 15:23 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/482002947815.shtml)
+- 2026-06-29 15:10 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/58093.shtml)

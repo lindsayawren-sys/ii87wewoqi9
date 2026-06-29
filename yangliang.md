@@ -1,58 +1,57 @@
-# 2026年1—4月份规模以上工业企业利润较快增长
+# 华裔新生代参访江西萍乡 看发展寻商机品文化
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网5月27日电 据国家统计局网站消息，5月27日，国家统计局工业司首席统计师于卫宁解读2026年1—4月份工业企业利润数据：1—4月份，工业生产较快增长，工业品价格回升，带动工业企业利润增长加快，装备制造业和高技术制造业等新动能行业引领作用明显，工业企业效益持续改善。工业企业利润较快增长。1—4月份，全国规模以上工业企业利润同比增长18.2%，较1—3月份加快2.7个百分点
+中新网萍乡6月5日电 (刘力鑫 吴鹏泉)“最近电影《给阿嬷的情书》很火，不少华裔企业家看完后都深受触动，我的曾祖辈当年也远赴南洋打拼。”5日，广州低碳总部园集团有限公司副总经理黄烁在第三届“‘侨’见萍乡青春逐梦”华裔新生代交流活动上说，老一辈华侨情系家国，如今华裔新生代企业家赓续“侨缘”，助力海内外经贸协作、人文互通。 6月3日至5日，由萍乡市委统战部主办，上栗县委统战部承办的
 
 ## 正文
 
-中新网5月27日电 据国家统计局网站消息，5月27日，国家统计局工业司首席统计师于卫宁解读2026年1—4月份工业企业利润数据：1—4月份，工业生产较快增长，工业品价格回升，带动工业企业利润增长加快，装备制造业和高技术制造业等新动能行业引领作用明显，工业企业效益持续改善。
+中新网萍乡6月5日电 (刘力鑫 吴鹏泉)“最近电影《给阿嬷的情书》很火，不少华裔企业家看完后都深受触动，我的曾祖辈当年也远赴南洋打拼。
 
-工业企业利润较快增长。
+”5日，广州低碳总部园集团有限公司副总经理黄烁在第三届“‘侨’见萍乡青春逐梦”华裔新生代交流活动上说，老一辈华侨情系家国，如今华裔新生代企业家赓续“侨缘”，助力海内外经贸协作、人文互通。
 
-1—4月份，全国规模以上工业企业利润同比增长18.2%，较1—3月份加快2.7个百分点。
+6月3日至5日，由萍乡市委统战部主办，上栗县委统战部承办的第三届“‘侨’见萍乡青春逐梦”华裔新生代交流活动走进萍乡，二十余位华裔青年企业家深入产业园区、红色地标、生态景区等地参访，感受萍乡产业发展活力、深厚历史人文底蕴与优质生态资源，探寻各领域的合作机遇。
 
-从三大门类看，1—4月份，采矿业、制造业分别增长26.0%、20.4%，较1—3月份分别加快9.8个、1.3个百分点；电力、热力、燃气及水生产和供应业下降1.9%，降幅较1—3月份收窄1.3个百分点。
+在位于萍乡上栗县的赣湘合作产业园，交流团先后前往了电子信息企业、食品企业和赣湘合作产业园展厅参访。
 
-4月份，全国规模以上工业企业利润增长24.7%。
+一家电子信息企业的智能化锂电生产线吸引了斐济华人文化艺术经济联合会副秘书长黄庆华的目光。
 
-工业企业营收稳定增长。
+参观时，他不停向企业负责人详细了解产品技术、海外拓展等方面情况。
 
-工业生产保持较快增长，工业生产者出厂价格回升，共同推动工业企业营业收入稳定增长。
+黄庆华告诉记者，他希望能够依托自己的相关资源，助力萍乡企业“走出去”，开拓广阔的海外市场。
 
-1—4月份，全国规模以上工业企业营业收入同比增长5.2%，较1—3月份加快0.2个百分点。
+“南非华人对中式速冻食品需求旺盛，这家公司的产品品质高、品类丰富，高度适配海外华人饮食需求。
 
 ## 相关推荐
 
-- 2026-06-29 15:05 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 15:00 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 15:17 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 15:11 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 15:11 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 15:13 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 15:04 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 14:54 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 14:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 14:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 15:20 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 15:14 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 15:21 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 15:02 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 15:00 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 15:09 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 15:21 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 15:11 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 15:24 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 15:07 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 15:23 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 15:26 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 15:11 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:58 - [5万块的威力](http://www.share.minike.top/Article/details/44187173.shtml)
-- 2026-06-29 15:02 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/5750570.shtml)
-- 2026-06-29 15:12 - [爱很美味](http://www.share.kurohicncr.top/Article/details/088879.shtml)
-- 2026-06-29 15:19 - [内马尔能上场15分钟](http://www.blog.minike.top/Article/details/667411.shtml)
-- 2026-06-29 14:59 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.minike.top/Article/details/4602291314.shtml)
-- 2026-06-29 14:54 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/324800.shtml)
-- 2026-06-29 14:58 - [爱很美味](http://www.share.minike.top/Article/details/09318615763.shtml)
-- 2026-06-29 15:05 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/2384694634.shtml)
-- 2026-06-29 15:15 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/5160837.shtml)
-- 2026-06-29 15:16 - [我和我的家乡](https://www.share.minike.top/Article/details/5085955303.shtml)
-- 2026-06-29 14:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/7822545874.shtml)
-- 2026-06-29 15:03 - [恋与深空底线不该被娱乐化](https://www.share.kurohicncr.top/Article/details/56973.shtml)
-- 2026-06-29 15:02 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/1687577531.shtml)
-- 2026-06-29 15:02 - [医药股集体爆发](https://www.share.minike.top/Article/details/94799104.shtml)
-- 2026-06-29 15:05 - [上海一小区水池内出现一条鳄鱼](https://www.blog.minike.top/Article/details/29942.shtml)
+- 2026-06-29 15:22 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/611895012961.shtml)
+- 2026-06-29 15:26 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/645457736850.shtml)
+- 2026-06-29 15:04 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/535813036680.shtml)
+- 2026-06-29 15:09 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/52191088.shtml)
+- 2026-06-29 15:03 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/07621602884.shtml)
+- 2026-06-29 15:09 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/0307872780.shtml)
+- 2026-06-29 15:26 - [新一代影后杨紫](http://www.blog.minike.top/Article/details/861276444521.shtml)
+- 2026-06-29 15:11 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/44018249.shtml)
+- 2026-06-29 15:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/2914954908.shtml)
+- 2026-06-29 15:10 - [天道](https://www.share.kurohicncr.top/Article/details/51332610315.shtml)
+- 2026-06-29 15:10 - [周杰伦演唱会真的好多人啊](http://www.blog.minike.top/Article/details/83729.shtml)
+- 2026-06-29 15:23 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/58296096.shtml)
+- 2026-06-29 15:00 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/0150334.shtml)
+- 2026-06-29 15:18 - [市民骑哈啰单车79分钟付30元](http://www.share.kurohicncr.top/Article/details/20475.shtml)
+- 2026-06-29 15:28 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/7278064.shtml)

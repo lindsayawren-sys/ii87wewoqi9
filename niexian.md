@@ -1,61 +1,57 @@
-# 作家肖复兴：AI难以代替人类写作
+# 贺兰山下上演民族团结进步杯足球赛 以球联谊促交融
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月25日电(记者 上官云)“写作的风格受作者的写作态度影响，写作的态度又与作家本人的生活经历密切相关。”聊起写作，作家肖复兴给出了上述观点。 大约四十多年前，肖复兴开始发表作品，曾获得冰心散文奖等多个奖项。写老北京的风土人情，写寻常的生活见闻，他的笔触低调朴素，但却总是亲切自然。 于生活小事中见真情，这是他的一大写作特点。近日，在接受中新网记者采访时，肖复兴回应了“
+中新网银川6月5日电 (记者 李佩珊)6月5日，一场以“中华民族一家亲”为主题的民族团结进步杯足球赛在贺兰山下的宁夏银川市西夏区开赛。来自西夏区机关、社区、高校等单位的16支代表队、近300名运动员齐聚绿茵场，在轻松热烈的氛围中以球会友、切磋交流。 本次赛事是西夏区民族团结进步“六共”主题群众文体活动，赛程为期15天，采用九人制男子足球赛制。参赛队员涵盖各行各业、多个民族的体育
 
 ## 正文
 
-中新网北京5月25日电(记者 上官云)“写作的风格受作者的写作态度影响，写作的态度又与作家本人的生活经历密切相关。
+中新网银川6月5日电 (记者 李佩珊)6月5日，一场以“中华民族一家亲”为主题的民族团结进步杯足球赛在贺兰山下的宁夏银川市西夏区开赛。
 
-”聊起写作，作家肖复兴给出了上述观点。
+来自西夏区机关、社区、高校等单位的16支代表队、近300名运动员齐聚绿茵场，在轻松热烈的氛围中以球会友、切磋交流。
 
-大约四十多年前，肖复兴开始发表作品，曾获得冰心散文奖等多个奖项。
+本次赛事是西夏区民族团结进步“六共”主题群众文体活动，赛程为期15天，采用九人制男子足球赛制。
 
-写老北京的风土人情，写寻常的生活见闻，他的笔触低调朴素，但却总是亲切自然。
+参赛队员涵盖各行各业、多个民族的体育爱好者，覆盖面广、群众参与热情高。
 
-于生活小事中见真情，这是他的一大写作特点。
+赛事淡化竞技排名，侧重互动联谊，依托足球搭建各族群众沟通往来、加深了解的交流平台。
 
-近日，在接受中新网记者采访时，肖复兴回应了“封笔”的说法。
+开赛当日，赛场暖意融融、人气高涨。
 
-提及“AI写作”，他强调“我手写我心，AI难写我心”。
+各方阵有序入场、精神抖擞，尽显朝气蓬勃的精神风貌。
 
-回应“封笔”：只是不再写儿童文学 肖复兴的儿童文学写作之旅，始于十年前：2016年，他出版了首部儿童文学长篇小说《红脸儿》，以细腻而又富于诗意的笔触，描绘出上世纪50年代几个孩子之间的友情故事。
+开赛哨响后，绿茵场上火力全开，球员们驰骋奔跑、默契配合，攻防转换节奏轻快，大家全力拼搏又友善包容，尽情享受运动带来的快乐。
 
 ## 相关推荐
 
-- 2026-06-29 15:11 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 15:17 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 15:16 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 15:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 14:55 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 15:22 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 15:23 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 15:13 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 14:55 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 15:00 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 15:03 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 15:10 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 15:14 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 15:02 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 15:03 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 15:21 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 15:20 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 15:03 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 15:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 15:27 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 15:27 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 15:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 15:05 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 15:07 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 15:09 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 15:03 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/143987616.shtml)
-- 2026-06-29 15:05 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/9751784840.shtml)
-- 2026-06-29 15:19 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/894266329624.shtml)
-- 2026-06-29 14:55 - [Canna纳尔8-0对位单杀Doran](https://www.share.minike.top/Article/details/193118027806.shtml)
-- 2026-06-29 15:14 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.kurohicncr.top/Article/details/47629341418.shtml)
-- 2026-06-29 15:22 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.kurohicncr.top/Article/details/262842556.shtml)
-- 2026-06-29 15:06 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/02074121.shtml)
-- 2026-06-29 15:07 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/1477118.shtml)
-- 2026-06-29 15:18 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/3792742074.shtml)
-- 2026-06-29 15:06 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/06570.shtml)
-- 2026-06-29 15:18 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/9604051.shtml)
-- 2026-06-29 15:03 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/62481009192.shtml)
-- 2026-06-29 15:14 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/33011928686.shtml)
-- 2026-06-29 15:06 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/729458.shtml)
-- 2026-06-29 14:56 - [一生一世](http://www.share.minike.top/Article/details/24628781227.shtml)
+- 2026-06-29 15:02 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/95174.shtml)
+- 2026-06-29 15:25 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/17520566.shtml)
+- 2026-06-29 15:29 - [普京称考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/27637555041.shtml)
+- 2026-06-29 15:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/65070803100.shtml)
+- 2026-06-29 15:26 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.minike.top/Article/details/2914984.shtml)
+- 2026-06-29 15:13 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/76320.shtml)
+- 2026-06-29 15:08 - [叶一茜森碟一起回北京了](https://www.blog.minike.top/Article/details/71777054.shtml)
+- 2026-06-29 15:20 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/53796.shtml)
+- 2026-06-29 15:22 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/39859846.shtml)
+- 2026-06-29 15:01 - [7款商保创新药“转道”](https://www.share.minike.top/Article/details/06741.shtml)
+- 2026-06-29 15:09 - [媒体：高考后消费应量力而行适度有度](https://www.blog.kurohicncr.top/Article/details/3837409.shtml)
+- 2026-06-29 15:27 - [急先锋](http://www.blog.minike.top/Article/details/009389.shtml)
+- 2026-06-29 15:26 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/111511408323.shtml)
+- 2026-06-29 15:03 - [市民骑哈啰单车79分钟付30元](https://www.blog.kurohicncr.top/Article/details/74477.shtml)
+- 2026-06-29 15:04 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/33532373.shtml)

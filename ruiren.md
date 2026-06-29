@@ -1,58 +1,47 @@
-# 港商港企走进广西人大 共推桂港务实合作提质升级
+# 中国平安集团旗下两家持牌支付机构合并 平安付注册资本增至11.7亿元
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月26日电(韦佳秀)“港商港企走进广西人大 携手共促桂港务实合作”座谈会25日在南宁举办，多位港商港企代表与广西重点外向型企业代表齐聚广西人民会堂，围绕科技创新、文化旅游、跨境贸易等领域深入交流，共商桂港合作发展。 广西壮族自治区人大常委会副主任、党组副书记农生文表示，香港是广西第一大外资来源地。截至2025年底，香港在桂累计设立港资企业近3800家，实际使用港资金
+6月5日金融一线消息，央行非银行支付机构重大事项变更许可信息公示显示，同意平安付电子支付有限公司合并平安付科技服务有限公司，合并后，平安付电子支付有限公司注册资本增至11.6958亿元、《支付业务许可证》业务类型增加预付卡发行与受理（全国），平安付科技服务有限公司终止支付业务并注销《支付业务许可证》。同意平安付电子支付有限公司主要出资人由上海捷银电子商务有限公司变更为平安壹钱包
 
 ## 正文
 
-中新网南宁5月26日电(韦佳秀)“港商港企走进广西人大 携手共促桂港务实合作”座谈会25日在南宁举办，多位港商港企代表与广西重点外向型企业代表齐聚广西人民会堂，围绕科技创新、文化旅游、跨境贸易等领域深入交流，共商桂港合作发展。
+6月5日金融一线消息，央行非银行支付机构重大事项变更许可信息公示显示，同意平安付电子支付有限公司合并平安付科技服务有限公司，合并后，平安付电子支付有限公司注册资本增至11.6958亿元、《支付业务许可证》业务类型增加预付卡发行与受理（全国），平安付科技服务有限公司终止支付业务并注销《支付业务许可证》。
 
-广西壮族自治区人大常委会副主任、党组副书记农生文表示，香港是广西第一大外资来源地。
+同意平安付电子支付有限公司主要出资人由上海捷银电子商务有限公司变更为平安壹钱包电子商务有限公司。
 
-截至2025年底，香港在桂累计设立港资企业近3800家，实际使用港资金额超110亿美元；2025年桂港贸易额108亿元人民币，同比增长21.9%。
-
-下一步，桂港两地将依托各自区位优势与资源禀赋，携手布局产业链、供应链、创新链，持续深化跨境贸易、金融、物流领域合作，共同开拓东盟市场。
-
-广西香港商会会长潘家穰表示，商会将发挥桂港沟通桥梁作用，依托全国首个香港青年(内地)创业服务中心，深化与香港多所高校合作，推动AI+农业、AI+供应链等产业项目落地。
-
-他期待桂港携手共建广西优质农产品出口标准化示范基地，打造南宁—香港—国际一站式跨境出口供应链枢纽，不断拓宽外销通道，助力桂品出海。
-
-广西中医药大学副校长唐振宇称，该校计划在中医诊疗、中医养生、药膳餐饮等方面，打造一批面向海内外的银发康养精品项目。
-
-他提到，学校对广西道地药材“桂十味”进行闭环式研究和开发，可以与港商在国际贸易和全球供应链业务上形成优势互补，希望借助香港国际质量标准认证体系及跨境金融优势，推动广西高品质中医药产品、大健康服务走向东盟及更广阔的国际市场。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 14:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 15:03 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 15:19 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 15:04 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 15:02 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 15:17 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 14:59 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 15:16 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 15:15 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 15:16 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 15:17 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 15:08 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 15:13 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 15:05 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 15:10 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 15:14 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 15:08 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 15:21 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 15:21 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 15:01 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 15:08 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 15:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 15:29 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:03 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/83760.shtml)
-- 2026-06-29 15:20 - [TOP 无畏契约](http://www.share.minike.top/Article/details/078818721.shtml)
-- 2026-06-29 15:10 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/031680341542.shtml)
-- 2026-06-29 14:56 - [周生如故](https://www.share.minike.top/Article/details/97968790987.shtml)
-- 2026-06-29 15:05 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/2485207454.shtml)
-- 2026-06-29 15:00 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/91497.shtml)
-- 2026-06-29 14:58 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/267742.shtml)
-- 2026-06-29 15:15 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/326672.shtml)
-- 2026-06-29 15:04 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/251593935712.shtml)
-- 2026-06-29 15:07 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/933863589.shtml)
-- 2026-06-29 15:11 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/85729983.shtml)
-- 2026-06-29 15:03 - [以前不让妆女二可以艳压女主](http://www.share.minike.top/Article/details/68646.shtml)
-- 2026-06-29 15:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/261570.shtml)
-- 2026-06-29 15:14 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/89974594106.shtml)
-- 2026-06-29 15:01 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/6846081.shtml)
+- 2026-06-29 15:13 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/059708310.shtml)
+- 2026-06-29 15:07 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/60958.shtml)
+- 2026-06-29 15:19 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/36949293869.shtml)
+- 2026-06-29 15:02 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/20732829.shtml)
+- 2026-06-29 15:24 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/8777985332.shtml)
+- 2026-06-29 15:02 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/9892230.shtml)
+- 2026-06-29 15:06 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/384672600448.shtml)
+- 2026-06-29 15:21 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/41205.shtml)
+- 2026-06-29 15:02 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/39282702598.shtml)
+- 2026-06-29 15:18 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/972635790.shtml)
+- 2026-06-29 15:14 - [滾石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/8746455925.shtml)
+- 2026-06-29 15:26 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/883871826.shtml)
+- 2026-06-29 15:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/1630826155.shtml)
+- 2026-06-29 15:03 - [德国VS巴拉圭前瞻](https://www.blog.minike.top/Article/details/423679.shtml)
+- 2026-06-29 15:18 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/451745947.shtml)

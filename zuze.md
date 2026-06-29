@@ -1,59 +1,59 @@
-# 国台办驳斥马英九不能访陆传闻
+# Compass Pathways为17名新员工授予股权激励 加快商业团队扩张
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网5月27日电 5月27日，国台办举行例行新闻发布会。有记者问：马英九基金会一直大力推进两岸交流。日前台媒报道，传闻马英九去年访问大陆时有情绪管控不佳问题，大陆方面内部达成共识，不再让马英九访问大陆。请问对此有何评论？国台办发言人陈斌华表示，所谓“大陆有关部门达成共识不再让马英九先生访问大陆”的说法纯属捕风捉影，是彻彻底底的谣言。近年来，马英九基金会开展了系列两岸交流活动，
+临床阶段生物技术公司Compass Pathways周五宣布，根据纳斯达克上市规则第5635（c）（4）条，向17名新聘非执行员工授予股权激励奖励。这是该公司自今年5月启动新员工激励计划以来的第二次大规模授予。 根据公告，此次授予的股权奖励包括可购买总计15.7万股美国存托股的期权，以及针对英国员工的限制性股份单位或名义成本期权，共覆盖约7.47万股。期权行权价格为每股14.1
 
 ## 正文
 
-中新网5月27日电 5月27日，国台办举行例行新闻发布会。
+临床阶段生物技术公司Compass Pathways周五宣布，根据纳斯达克上市规则第5635（c）（4）条，向17名新聘非执行员工授予股权激励奖励。
 
-有记者问：马英九基金会一直大力推进两岸交流。
+这是该公司自今年5月启动新员工激励计划以来的第二次大规模授予。
 
-日前台媒报道，传闻马英九去年访问大陆时有情绪管控不佳问题，大陆方面内部达成共识，不再让马英九访问大陆。
+根据公告，此次授予的股权奖励包括可购买总计15.7万股美国存托股的期权，以及针对英国员工的限制性股份单位或名义成本期权，共覆盖约7.47万股。
 
-请问对此有何评论？
+期权行权价格为每股14.19美元，即授予日公司美国存托股在纳斯达克全球精选市场的收盘价。
 
-国台办发言人陈斌华表示，所谓“大陆有关部门达成共识不再让马英九先生访问大陆”的说法纯属捕风捉影，是彻彻底底的谣言。
+这些股权奖励将在四年内分批解锁：期权类奖励在第一年周年日解锁25%，剩余75%在随后三年内按月等额分期解锁；限制性股份单位则在四年内每年等额解锁。
 
-近年来，马英九基金会开展了系列两岸交流活动，促进了两岸同胞特别是青年交流往来。
+所有奖励均以员工持续受雇为条件，旨在吸引和留住关键人才。
 
-两岸同胞都是中国人、一家人，走亲走近、走到一起的大潮流是任何力量都阻挡不了的。
+近期的连续授予与公司正在加快推进的商业化准备密切相关。
 
-(中新网“燕新台”工作室)
+该公司核心在研产品COMP360（一种合成裸盖菇素疗法）用于治疗难治性抑郁症的新药申请已启动滚动提交，预计第三季度提交最终数据包。
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 15:22 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 15:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 14:54 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 14:59 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 15:22 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 15:23 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 15:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 15:21 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 15:00 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 15:20 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 14:56 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 15:19 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 15:29 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 15:11 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 15:21 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 15:10 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 15:19 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 15:02 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 15:05 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 15:22 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 15:08 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 15:07 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 15:18 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 15:24 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 15:01 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/64703584671.shtml)
-- 2026-06-29 15:12 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/76836067054.shtml)
-- 2026-06-29 15:03 - [金价银价下跌 油价上涨](https://www.blog.kurohicncr.top/Article/details/7218858.shtml)
-- 2026-06-29 15:18 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/8196298150.shtml)
-- 2026-06-29 15:09 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/1229433758.shtml)
-- 2026-06-29 15:20 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/801828421941.shtml)
-- 2026-06-29 14:56 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/757882494.shtml)
-- 2026-06-29 14:59 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/94835817.shtml)
-- 2026-06-29 15:02 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/9242203.shtml)
-- 2026-06-29 15:20 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.kurohicncr.top/Article/details/2584780.shtml)
-- 2026-06-29 15:13 - [105年初心滚烫](http://www.blog.minike.top/Article/details/896074266258.shtml)
-- 2026-06-29 15:17 - [乔家的儿女](http://www.blog.minike.top/Article/details/5384481913.shtml)
-- 2026-06-29 14:59 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/9963368.shtml)
-- 2026-06-29 15:22 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/209807.shtml)
-- 2026-06-29 14:58 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/600595145.shtml)
+- 2026-06-29 15:08 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/580585792122.shtml)
+- 2026-06-29 15:10 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/699872446.shtml)
+- 2026-06-29 15:14 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/291181925784.shtml)
+- 2026-06-29 15:23 - [第一炉香](http://www.share.minike.top/Article/details/729142632.shtml)
+- 2026-06-29 15:02 - [爱很美味](http://www.blog.minike.top/Article/details/771593744295.shtml)
+- 2026-06-29 15:03 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/06155807.shtml)
+- 2026-06-29 15:11 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/32574188547.shtml)
+- 2026-06-29 15:19 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/24800.shtml)
+- 2026-06-29 15:14 - [宜宾5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/000770.shtml)
+- 2026-06-29 15:15 - [媒体：高考后消费应量力而行适度有度](https://www.share.minike.top/Article/details/999751843754.shtml)
+- 2026-06-29 15:29 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/65379170562.shtml)
+- 2026-06-29 15:07 - [东部机场集团新增釜山航线](https://www.blog.minike.top/Article/details/993194.shtml)
+- 2026-06-29 15:10 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/1141587.shtml)
+- 2026-06-29 15:07 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.kurohicncr.top/Article/details/64985018.shtml)
+- 2026-06-29 15:00 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/050396314836.shtml)

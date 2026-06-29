@@ -1,58 +1,52 @@
-# 中国—东盟中心举办老挝电影之夜
+# ETF座次重新洗牌 资金“换挡”重塑市场生态
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-2026年5月22日，中国—东盟中心与老挝驻华大使馆共同举办“东盟(老挝)电影之夜”活动。中国—东盟中心秘书长史忠俊大使、老挝驻华大使夫人苏佳敏女士、老挝驻华大使馆副馆长普瓦公使出席活动。东盟国家驻华使馆外交官、中国和东盟国家学生代表等60余人参加本次活动。 史忠俊强调，2026年是中老建交65周年暨中老友好年，为此中国—东盟中心以老中关系主题为重点，举办了一系列活动。本次电影
+转自：证券时报 人民财讯6月5日电，今年以来，大额资金持续撤出宽基ETF，给头部基金管理人带来了不小的规模冲击。同时，这些头部机构充分利用A股的结构性行情，在相对细分的热门行业主题ETF赛道上挖掘增量机会，ETF的竞争格局同步出现变动。 6月3日，易方达基金凭借6185.19亿元的ETF管理规模问鼎市场，坐上境内ETF基金管理人的“头把交椅”。在当前ETF管理规模排名前十的基金
 
 ## 正文
 
-2026年5月22日，中国—东盟中心与老挝驻华大使馆共同举办“东盟(老挝)电影之夜”活动。
+转自：证券时报 人民财讯6月5日电，今年以来，大额资金持续撤出宽基ETF，给头部基金管理人带来了不小的规模冲击。
 
-中国—东盟中心秘书长史忠俊大使、老挝驻华大使夫人苏佳敏女士、老挝驻华大使馆副馆长普瓦公使出席活动。
+同时，这些头部机构充分利用A股的结构性行情，在相对细分的热门行业主题ETF赛道上挖掘增量机会，ETF的竞争格局同步出现变动。
 
-东盟国家驻华使馆外交官、中国和东盟国家学生代表等60余人参加本次活动。
+6月3日，易方达基金凭借6185.19亿元的ETF管理规模问鼎市场，坐上境内ETF基金管理人的“头把交椅”。
 
-史忠俊强调，2026年是中老建交65周年暨中老友好年，为此中国—东盟中心以老中关系主题为重点，举办了一系列活动。
+在当前ETF管理规模排名前十的基金管理人中，除易方达基金外，国泰基金、广发基金、博时基金、华安基金的最新位次相比年初均有提升。
 
-本次电影之夜既是一场文化盛会，也是对两国人民深厚友谊的致敬。
+当资金逻辑从全市场贝塔配置转向细分行业阿尔法收益挖掘，业内人士认为，境内ETF市场生态正发生全方位重构，未来前瞻布局细分赛道、提高精细化运作程度、夯实产品流动性壁垒、搭建多元化产品矩阵、完善机构定制与投顾生态等将成为ETF竞争的重要方向。
 
-普瓦对中国—东盟中心联合主办此次活动表示诚挚感谢。
-
-他表示，电影作为人文交流的重要媒介，见证了老中两国间密切合作，增进了彼此了解。
-
-本次活动展现了老挝文化特色与社会价值理念，希望通过本次活动进一步增进老挝与各国之间的情感交流与友好关系。
+责任编辑：江钰涵
 
 ## 相关推荐
 
-- 2026-06-29 15:23 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 15:20 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 15:22 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 15:03 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 14:57 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 15:18 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 15:07 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 14:58 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 14:59 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 15:09 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 15:19 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 14:58 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 15:25 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 15:08 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 15:28 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 15:24 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 15:15 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 15:26 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 15:14 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 15:17 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 15:19 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 15:00 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:58 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/7011982160.shtml)
-- 2026-06-29 14:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/86768594719.shtml)
-- 2026-06-29 15:06 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/33705.shtml)
-- 2026-06-29 15:18 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/719601159.shtml)
-- 2026-06-29 14:55 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/399761042307.shtml)
-- 2026-06-29 14:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/62584227.shtml)
-- 2026-06-29 15:04 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/16852761.shtml)
-- 2026-06-29 15:16 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/36477285.shtml)
-- 2026-06-29 15:02 - [中国避暑神器在欧洲卖爆了](http://www.share.kurohicncr.top/Article/details/31545959025.shtml)
-- 2026-06-29 15:04 - [世界杯用球成部分门将噩梦](https://www.blog.kurohicncr.top/Article/details/6324030735.shtml)
-- 2026-06-29 14:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/275821.shtml)
-- 2026-06-29 15:13 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/4625953.shtml)
-- 2026-06-29 15:22 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/027349.shtml)
-- 2026-06-29 15:13 - [专家建议城乡居民养老金增至每月千元](http://www.share.kurohicncr.top/Article/details/35801.shtml)
-- 2026-06-29 15:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/347916503991.shtml)
+- 2026-06-29 15:11 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/785928.shtml)
+- 2026-06-29 15:09 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/73682495355.shtml)
+- 2026-06-29 15:12 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/058239437.shtml)
+- 2026-06-29 15:27 - [天道](https://www.blog.minike.top/Article/details/28474.shtml)
+- 2026-06-29 15:06 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/169830264430.shtml)
+- 2026-06-29 15:24 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/09769.shtml)
+- 2026-06-29 15:16 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/21115528.shtml)
+- 2026-06-29 15:16 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/2973060.shtml)
+- 2026-06-29 15:05 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/60082890691.shtml)
+- 2026-06-29 15:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/7969361.shtml)
+- 2026-06-29 15:16 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/660051282.shtml)
+- 2026-06-29 15:09 - [东部机场集团新增釜山航线](http://www.blog.minike.top/Article/details/61341.shtml)
+- 2026-06-29 15:17 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.kurohicncr.top/Article/details/150391.shtml)
+- 2026-06-29 15:19 - [世界杯欧美八大豪强悉数出线](https://www.blog.minike.top/Article/details/17206.shtml)
+- 2026-06-29 15:00 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/85999743363.shtml)

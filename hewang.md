@@ -1,55 +1,57 @@
-# 国台办回应两岸两会联系停摆十年
+# 山东多措并举“唤醒”沉睡资源 赋能城乡存量发展
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网5月27日电 5月27日，国台办举行例行新闻发布会。有记者问：对于海协会与台湾海基会联系机制停摆10年，陆委会称，“停摆原因是大陆设下不可接受的政治前提，是对方决定要停摆的”。请问对此有何评论？ 国台办发言人陈斌华表示，1992年海协会与台湾海基会达成体现一个中国原则的“九二共识”，明确界定了两岸关系的性质。正是在这一政治基础上，两会开启协商谈判，签署了一系列协议，让两岸
+中新网济南6月5日电(周艺伟)在菏泽鲁西新区岳程街道许楼社区，一处闲置多年的老旧办公楼经过改造，变身600多平方米的文化书院。剪纸工坊里巧手翻飞，串珠课堂上指尖传艺，书画室内笔墨铺陈……各类接地气的文化活动在该书院常态化开展，成为居民休闲娱乐的平台。“以前这里荒草丛生，现在天天有活动，我们在家门口就能学手艺、看书画。”社区居民周效忠说。 文化阵地焕然一新，社区环境也同步提质。许
 
 ## 正文
 
-中新网5月27日电 5月27日，国台办举行例行新闻发布会。
+中新网济南6月5日电(周艺伟)在菏泽鲁西新区岳程街道许楼社区，一处闲置多年的老旧办公楼经过改造，变身600多平方米的文化书院。
 
-有记者问：对于海协会与台湾海基会联系机制停摆10年，陆委会称，“停摆原因是大陆设下不可接受的政治前提，是对方决定要停摆的”。
+剪纸工坊里巧手翻飞，串珠课堂上指尖传艺，书画室内笔墨铺陈……各类接地气的文化活动在该书院常态化开展，成为居民休闲娱乐的平台。
 
-请问对此有何评论？
+“以前这里荒草丛生，现在天天有活动，我们在家门口就能学手艺、看书画。
 
-国台办发言人陈斌华表示，1992年海协会与台湾海基会达成体现一个中国原则的“九二共识”，明确界定了两岸关系的性质。
+”社区居民周效忠说。
 
-正是在这一政治基础上，两会开启协商谈判，签署了一系列协议，让两岸同胞都从中受益。
+文化阵地焕然一新，社区环境也同步提质。
 
-民进党当局顽固坚持“台独”分裂立场，拒不承认“九二共识”，单方面破坏两岸对话协商的政治基础，这是两会对话协商停摆的根本原因，也是台海局势紧张动荡的根源。
+许楼社区对10余亩闲置地块进行系统整治，清理杂物、平整土地，栽种花草林木，增设长廊凉亭，打造出一座免费对外开放的便民植物园。
 
-(中新网“燕新台”工作室)
+园内栽有3000余株牡丹、4000余株芍药，再搭配桂花、雪松等植物，实现三季有花、美景常驻。
+
+这样的变化，正在山东多地社区、乡村发生。
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 14:56 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 15:19 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 15:03 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 15:10 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 15:02 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 14:54 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 15:00 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 14:59 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 15:02 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 15:09 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 15:25 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 15:16 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 15:09 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 15:15 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 15:28 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 15:08 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 15:01 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 15:06 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 15:13 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 15:16 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 15:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/4003412773.shtml)
-- 2026-06-29 15:06 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/73828210163.shtml)
-- 2026-06-29 15:07 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/8355389.shtml)
-- 2026-06-29 15:05 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.kurohicncr.top/Article/details/59397497.shtml)
-- 2026-06-29 14:56 - [高考公平需要延伸到志愿填报这一环](http://www.share.minike.top/Article/details/39029101903.shtml)
-- 2026-06-29 14:56 - [拄拐少年高考663分：用行动回报社会](http://www.share.minike.top/Article/details/4644984803.shtml)
-- 2026-06-29 15:19 - [李连杰回应网传不管前妻俩女儿](http://www.blog.minike.top/Article/details/44225824.shtml)
-- 2026-06-29 15:04 - [时光音乐会](http://www.share.minike.top/Article/details/8821071.shtml)
-- 2026-06-29 15:15 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/798042538311.shtml)
-- 2026-06-29 15:14 - [吴磊爱上回收了](https://www.share.kurohicncr.top/Article/details/428670325988.shtml)
-- 2026-06-29 15:14 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/61605.shtml)
-- 2026-06-29 15:05 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/1305417.shtml)
-- 2026-06-29 15:09 - [恋与深空底线不该被娱乐化](http://www.share.kurohicncr.top/Article/details/9176556.shtml)
-- 2026-06-29 14:57 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.minike.top/Article/details/66743989.shtml)
-- 2026-06-29 15:06 - [事关个税 明日截止请抓紧办理](http://www.blog.kurohicncr.top/Article/details/4571797570.shtml)
+- 2026-06-29 15:13 - [起风了](https://www.blog.minike.top/Article/details/431060698.shtml)
+- 2026-06-29 15:27 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/238230879.shtml)
+- 2026-06-29 15:25 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/624305440.shtml)
+- 2026-06-29 15:04 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/5324884727.shtml)
+- 2026-06-29 15:22 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.kurohicncr.top/Article/details/10742855.shtml)
+- 2026-06-29 15:11 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.minike.top/Article/details/61568571360.shtml)
+- 2026-06-29 15:14 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/9060139842.shtml)
+- 2026-06-29 15:21 - [滾石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/79578798296.shtml)
+- 2026-06-29 15:05 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/993813969.shtml)
+- 2026-06-29 15:18 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/657271777.shtml)
+- 2026-06-29 15:23 - [四川宜宾地震](http://www.share.minike.top/Article/details/83669357.shtml)
+- 2026-06-29 15:13 - [智界V9成为高端圈层共同选择](http://www.blog.minike.top/Article/details/53430091637.shtml)
+- 2026-06-29 15:06 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/6938422859.shtml)
+- 2026-06-29 15:12 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/5187065.shtml)
+- 2026-06-29 15:01 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/165796679.shtml)

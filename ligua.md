@@ -1,55 +1,61 @@
-# 日经指数或因持续的AI热潮而上涨
+# 北京国际文旅消费博览会开幕 国际展区面积同比增三成
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-随着对人工智能（AI）的热情持续，带动隔夜美国芯片股上涨，日本股市可能会走高。新加坡交易所的日经指数期货上涨1.2%，至65885点。投资者正关注美伊可能达成的和平协议的进展及其对能源价格的影响。日经指数周二下跌0.2%，至64996.09点。责任编辑：王永生
+中新社北京6月5日电 (记者 徐婧)2026北京国际文旅消费博览会5日开幕，包括中国在内的18个国家参展，国际展区展览面积同比增加30%；参展单位达637家，同比增长26%。 本届展会融合B2B专业交易展、特色主题展、大众体验展于一体，构建专业交易与大众消费双轮驱动模式，促进全球文旅资源链接与全产业链协同发展。国际展区面积扩大，汇聚法国、澳大利亚、柬埔寨、菲律宾等国家和地区的文
 
 ## 正文
 
-随着对人工智能（AI）的热情持续，带动隔夜美国芯片股上涨，日本股市可能会走高。
+中新社北京6月5日电 (记者 徐婧)2026北京国际文旅消费博览会5日开幕，包括中国在内的18个国家参展，国际展区展览面积同比增加30%；参展单位达637家，同比增长26%。
 
-新加坡交易所的日经指数期货上涨1.2%，至65885点。
+本届展会融合B2B专业交易展、特色主题展、大众体验展于一体，构建专业交易与大众消费双轮驱动模式，促进全球文旅资源链接与全产业链协同发展。
 
-投资者正关注美伊可能达成的和平协议的进展及其对能源价格的影响。
+国际展区面积扩大，汇聚法国、澳大利亚、柬埔寨、菲律宾等国家和地区的文旅机构，呈现跨越国界的好物盛宴。
 
-日经指数周二下跌0.2%，至64996.09点。
+柬埔寨将于今年6月15日至10月15日期间对中国公民试行免签政策。
 
-责任编辑：王永生
+在柬埔寨展区，吴哥窟、木雕等当地特色元素吸引观众前来咨询。
+
+工作人员姚金刚说，除了展示吴哥窟等知名景点，展区还带来香蕉干、香料、腰果等特产，希望让更多中国游客了解当地文化，走进柬埔寨。
+
+来自中国12个省区市的30个城市参展。
+
+江苏、广东、内蒙古等地集中展示地方精品、科创成果与地域文化，搭建跨区域交流与资源共享平台；八达岭长城、金海湖、古北水镇、青龙峡等景区亮相，大运河礼物、国图创新等机构参展，北京16个区全景展现古今交融的首都文旅画卷。
 
 ## 相关推荐
 
-- 2026-06-29 15:14 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 15:14 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 15:19 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 15:05 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 15:11 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 15:02 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 14:57 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 15:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 15:22 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 15:11 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 15:14 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 15:10 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 15:09 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 15:07 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 15:10 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 15:07 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 15:27 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 15:06 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 15:01 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 15:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 15:07 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 15:28 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 15:04 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 15:22 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 15:06 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 15:21 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 15:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 15:16 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 15:10 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 15:23 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:55 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/610450649.shtml)
-- 2026-06-29 15:04 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.kurohicncr.top/Article/details/80907719.shtml)
-- 2026-06-29 15:01 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/50754.shtml)
-- 2026-06-29 15:06 - [明星大侦探第四季](https://www.share.minike.top/Article/details/5188327.shtml)
-- 2026-06-29 15:12 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/9178478.shtml)
-- 2026-06-29 14:55 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/513654.shtml)
-- 2026-06-29 15:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/61043482.shtml)
-- 2026-06-29 14:58 - [A股](https://www.blog.kurohicncr.top/Article/details/066000786.shtml)
-- 2026-06-29 15:01 - [上海一小区水池内出现一条鳄鱼](http://www.blog.kurohicncr.top/Article/details/200086.shtml)
-- 2026-06-29 15:17 - [新一代影后杨紫](https://www.share.minike.top/Article/details/979106196.shtml)
-- 2026-06-29 15:11 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.kurohicncr.top/Article/details/4031076028.shtml)
-- 2026-06-29 15:17 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/966758839019.shtml)
-- 2026-06-29 15:10 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.kurohicncr.top/Article/details/51286.shtml)
-- 2026-06-29 15:09 - [森保一：日本队要亲手改写历史](http://www.blog.minike.top/Article/details/6669175669.shtml)
-- 2026-06-29 15:02 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/376379435.shtml)
+- 2026-06-29 15:20 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.kurohicncr.top/Article/details/99160261.shtml)
+- 2026-06-29 15:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/6329418708.shtml)
+- 2026-06-29 15:18 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/052101.shtml)
+- 2026-06-29 15:11 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/1490920.shtml)
+- 2026-06-29 15:10 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/740024.shtml)
+- 2026-06-29 15:11 - [AG 钟意](http://www.share.minike.top/Article/details/95994336033.shtml)
+- 2026-06-29 15:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/30164248932.shtml)
+- 2026-06-29 15:26 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/82799.shtml)
+- 2026-06-29 15:10 - [美媒：空警-3000服役即成全球最强](https://www.share.kurohicncr.top/Article/details/456418971.shtml)
+- 2026-06-29 15:11 - [巴基斯坦军方打死29名武装分子](http://www.share.minike.top/Article/details/34549472.shtml)
+- 2026-06-29 15:05 - [欧盟为什么越来越倾向贸易保护](https://www.blog.kurohicncr.top/Article/details/747478970556.shtml)
+- 2026-06-29 15:04 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/478959194.shtml)
+- 2026-06-29 15:15 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/31117775007.shtml)
+- 2026-06-29 15:23 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/11490242778.shtml)
+- 2026-06-29 15:24 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/2256769.shtml)

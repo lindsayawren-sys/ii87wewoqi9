@@ -1,59 +1,56 @@
-# 京东集团与三一集团签订战略合作协议，推动先进制造业与现代服务业深度融合
+# “无事不扰 有求必应”，南京立法规范涉企行政检查
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-5月25日，京东集团与三一集团在北京签署战略合作协议。京东集团SEC副主席、京东集团CEO许冉与三一集团董事伏卫忠共同出席，并见证双方有关负责人完成签约。 双方自2017年建立伙伴关系，本次战略合作升级，将重点围绕数智采购供应链服务、海外供应链协同、物流仓储、AI数智化转型、车辆及装备采购、运力电动化生态圈共建、线上协同销售等领域深化联动，推动先进制造业与现代服务业深度融合，助
+中新网南京6月4日电 (常慕城)《南京市规范涉企行政检查办法》(以下简称《检查办法》)自2026年6月15日起施行，标志着南京市涉企行政检查从专项整治迈入常态、长效新阶段。4日上午，南京市召开新闻发布会，介绍《检查办法》立法以及规范涉企行政检查工作开展相关情况。 针对企业反映的多头检查、标准不一、随意检查、维权不畅等问题，南京市出台针对性规范举措。严把检查准入关口，严格审核执法
 
 ## 正文
 
-5月25日，京东集团与三一集团在北京签署战略合作协议。
+中新网南京6月4日电 (常慕城)《南京市规范涉企行政检查办法》(以下简称《检查办法》)自2026年6月15日起施行，标志着南京市涉企行政检查从专项整治迈入常态、长效新阶段。
 
-京东集团SEC副主席、京东集团CEO许冉与三一集团董事伏卫忠共同出席，并见证双方有关负责人完成签约。
+4日上午，南京市召开新闻发布会，介绍《检查办法》立法以及规范涉企行政检查工作开展相关情况。
 
-双方自2017年建立伙伴关系，本次战略合作升级，将重点围绕数智采购供应链服务、海外供应链协同、物流仓储、AI数智化转型、车辆及装备采购、运力电动化生态圈共建、线上协同销售等领域深化联动，推动先进制造业与现代服务业深度融合，助力产业数智化转型与绿色低碳发展。
+针对企业反映的多头检查、标准不一、随意检查、维权不畅等问题，南京市出台针对性规范举措。
 
-双方依托京东一站式智能化采购服务体系，深化全品类物资采购合作，全面覆盖办公日用、生产作业、工装基建、市场营销、员工福利等场景；借助京东工业“太璞”数实一体化供应链方案，助力三一集团物料标准化管理；强化海外供应链协同，加强海外备件仓储运输、跨境采购、境外商旅等板块合作；搭建产前、厂内、成品、售后全链路一体化物流体系，落地智能仓储、智慧园区数字化方案；基于京东 AI大模型与算力技术优势，持续拓展数字化应用新场景；稳步推进金融保险配套服务，同步开展工程机械设备线上推广、采购租赁合作，合力打造运力、装备、补能网络于一体的电动化产业生态。
+严把检查准入关口，严格审核执法主体资质、严格执行年度检查计划，严禁无依据、随意化、粗放式执法检查，从源头杜绝监管乱象；统一全市执法标准，建立跨部门执法标准冲突协调机制，统一执法程序、裁量尺度和处置规范，彻底解决不同部门、不同区域执法口径不一的问题；降低经营干扰，推行检查双向预约、执法经济影响评估制度，严控突击式、运动式检查，最大限度减少对企业正常生产经营的影响；强化企业权益保障，明确行政执法“五个严禁”“八个不得”刚性红线，依托全市行政执法和监督一体化平台畅通企业投诉维权渠道，实现企业诉求受理、处置、整改、反馈全闭环。
 
-未来，双方将充分发挥各自资源与产业优势，持续挖掘社会责任、国际业务、产业协同等领域合作潜力，携手构建互利共赢的长期战略伙伴关系，为中国制造业高端化、智能化、绿色化转型升级注入强劲动能。
+“过去，我们曾面临多头检查、重复迎检的困扰，一定程度上分散了精力、增加了成本、影响了效率。
 
-三一集团是全球领先的高端装备制造企业，以全球化、数智化、低碳化“三化”战略为引领，聚焦工程机械、资源开发与物流装备、新能源与电力装备三大核心领域，业务遍布180多个国家和地区，稳居全球行业第一方阵。
+”中国石化集团南京化学工业有限公司副总经理王世华表示，此次南京以立法形式系统构建涉企行政检查全链条法治化治理体系，打造看得见、摸得着的优质营商环境，让企业更有信心扎根南京、深耕主业。
 
-京东集团定位于“以供应链为基础的技术与服务企业”，业务覆盖零售、物流、科技、金融、服务、健康、产发和工业等领域，2025年位列《财富》世界500强第44位、中国民营企业500强首位。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:57 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 15:18 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 15:23 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 14:57 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 15:04 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 15:14 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 15:09 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 14:57 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 15:07 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 15:11 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 14:55 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 15:05 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 15:09 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 15:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 15:11 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 15:05 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 15:21 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 15:12 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 15:22 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 15:01 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 15:02 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 15:06 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 15:22 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 15:24 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 15:12 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 15:09 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 15:00 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/56630834.shtml)
-- 2026-06-29 15:14 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/424401742.shtml)
-- 2026-06-29 15:14 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/2506436.shtml)
-- 2026-06-29 14:55 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/44124.shtml)
-- 2026-06-29 15:14 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/1760488908.shtml)
-- 2026-06-29 15:13 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/9244642786.shtml)
-- 2026-06-29 15:17 - [链博会上的机器人太全能了](https://www.share.kurohicncr.top/Article/details/7269162008.shtml)
-- 2026-06-29 15:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/219805.shtml)
-- 2026-06-29 15:16 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/1830319.shtml)
-- 2026-06-29 15:06 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/6069737043.shtml)
-- 2026-06-29 15:22 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.kurohicncr.top/Article/details/844100.shtml)
-- 2026-06-29 15:22 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/852090421088.shtml)
-- 2026-06-29 15:03 - [7款商保创新药“转道”](https://www.blog.minike.top/Article/details/70407640219.shtml)
-- 2026-06-29 15:19 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/167159968.shtml)
-- 2026-06-29 15:10 - [欧委会总部只给高层开空调](http://www.share.minike.top/Article/details/578777580.shtml)
+- 2026-06-29 15:17 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/48004811.shtml)
+- 2026-06-29 15:29 - [美国近12万名科技员工被解雇](https://www.blog.minike.top/Article/details/2421871530.shtml)
+- 2026-06-29 15:04 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/25165008.shtml)
+- 2026-06-29 15:21 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.minike.top/Article/details/89588067929.shtml)
+- 2026-06-29 15:19 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.kurohicncr.top/Article/details/74372447.shtml)
+- 2026-06-29 15:23 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/294470.shtml)
+- 2026-06-29 15:17 - [苹果回应恋与深空低分](https://www.share.kurohicncr.top/Article/details/173624970.shtml)
+- 2026-06-29 15:15 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/6875427.shtml)
+- 2026-06-29 15:13 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/99777995.shtml)
+- 2026-06-29 15:20 - [四川宜宾地震](https://www.share.minike.top/Article/details/0321610.shtml)
+- 2026-06-29 15:07 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/1126404.shtml)
+- 2026-06-29 15:11 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/071345768.shtml)
+- 2026-06-29 15:12 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/9758798.shtml)
+- 2026-06-29 15:19 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.minike.top/Article/details/67702538.shtml)
+- 2026-06-29 15:04 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/98060485.shtml)

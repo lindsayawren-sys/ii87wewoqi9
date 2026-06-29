@@ -1,61 +1,43 @@
-# GTCFX:金价区间整理待突破
+# 云南省红河州政协原党组成员、副主席苏畅被查
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-5月26日，GTCFX关注到，黄金期货在最新交易时段继续围绕高位区间整理，Investing.com更新的技术稿显示，金价运行在4510美元至4595美元附近的窄幅区间内，市场正在等待更清晰的突破信号。GTCFX表示，这种走势并不代表方向已经完成选择，反而说明短线资金在美元指数、收益率和避险需求之间反复权衡。 从盘面结构看，GTCFX认为，黄金在4550美元上方仍保留一定承接，
+中新网6月4日电 据云南省纪委监委消息：云南省红河州政协原党组成员、副主席苏畅涉嫌严重违纪违法，目前正接受云南省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-5月26日，GTCFX关注到，黄金期货在最新交易时段继续围绕高位区间整理，Investing.com更新的技术稿显示，金价运行在4510美元至4595美元附近的窄幅区间内，市场正在等待更清晰的突破信号。
-
-GTCFX表示，这种走势并不代表方向已经完成选择，反而说明短线资金在美元指数、收益率和避险需求之间反复权衡。
-
-从盘面结构看，GTCFX认为，黄金在4550美元上方仍保留一定承接，但上方4595美元至4615美元区域的抛压也较为集中。
-
-报道显示，实时行情中金价一度靠近4571美元附近，日内跌幅约0.7%，与此同时白银、原油和美债收益率也出现同步波动，使贵金属短线交易节奏更依赖关键价位确认。
-
-市场数据显示，美元指数维持在99附近，美债收益率回落对无息资产形成一定支撑，但金价未能顺势大幅上行，说明买盘仍在等待更明确的宏观触发因素。
-
-分析人士认为，当价格长时间处在窄区间内，突破后的波动往往会被放大，交易者更需要关注区间上沿和下沿的有效站稳情况。
-
-从资金行为看，短线多空双方都缺少压倒性优势。
-
-若金价重新站上4595美元并放量延伸，可能带动趋势跟随资金回补；若跌破4510美元附近支撑，前期防守仓位则可能转向更谨慎。
+中新网6月4日电 据云南省纪委监委消息：云南省红河州政协原党组成员、副主席苏畅涉嫌严重违纪违法，目前正接受云南省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 14:55 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 15:09 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 14:57 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 15:07 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 15:06 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 15:08 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 15:11 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 15:05 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 15:09 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 15:11 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 15:11 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 15:09 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 15:09 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 15:03 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 15:09 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 15:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 15:15 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 15:00 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 15:01 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 15:27 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 15:22 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 15:13 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 15:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 15:04 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 15:19 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/91474.shtml)
-- 2026-06-29 15:02 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/22785815696.shtml)
-- 2026-06-29 14:57 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/8003892135.shtml)
-- 2026-06-29 15:14 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/01954.shtml)
-- 2026-06-29 15:13 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/1456103845.shtml)
-- 2026-06-29 15:13 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/46213.shtml)
-- 2026-06-29 15:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/89614140.shtml)
-- 2026-06-29 14:58 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/9139126.shtml)
-- 2026-06-29 15:09 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/948239436.shtml)
-- 2026-06-29 15:17 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/88943116.shtml)
-- 2026-06-29 15:07 - [女心理师](http://www.blog.kurohicncr.top/Article/details/624003.shtml)
-- 2026-06-29 15:05 - [普京介绍前线战事](http://www.blog.minike.top/Article/details/77236.shtml)
-- 2026-06-29 15:06 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/294848812.shtml)
-- 2026-06-29 15:11 - [世界杯十大帅哥必吃榜](http://www.blog.minike.top/Article/details/0414667113.shtml)
-- 2026-06-29 15:10 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/62027.shtml)
+- 2026-06-29 15:17 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/24196775271.shtml)
+- 2026-06-29 15:20 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/106881070.shtml)
+- 2026-06-29 15:24 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/02065460.shtml)
+- 2026-06-29 15:07 - [急先锋](https://www.share.kurohicncr.top/Article/details/038125.shtml)
+- 2026-06-29 15:25 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/8967170045.shtml)
+- 2026-06-29 15:27 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/1017086.shtml)
+- 2026-06-29 15:09 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/43984734.shtml)
+- 2026-06-29 15:15 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/371634569.shtml)
+- 2026-06-29 15:07 - [20年前的周杰伦](https://www.share.minike.top/Article/details/69668472934.shtml)
+- 2026-06-29 15:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/923404378579.shtml)
+- 2026-06-29 15:16 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/908006061.shtml)
+- 2026-06-29 15:04 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/08295408.shtml)
+- 2026-06-29 15:18 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/4222699.shtml)
+- 2026-06-29 15:01 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/542414307525.shtml)
+- 2026-06-29 15:04 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/99760261195.shtml)

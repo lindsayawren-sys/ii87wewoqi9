@@ -1,57 +1,43 @@
-# 上市银行效率比拼：人均创收江苏银行最高，人均创利成都银行最强
+# 厦门海关原副关长、一级巡视员邓光文接受审查调查
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 杨志锦 界面新闻编辑 | 王姝 在低利率背景下，人均效率成为观察银行经营质效的新窗口——谁能在低息差环境中用更少的人创造更多的价值，谁就掌握了穿越周期的主动权。 界面新闻记者根据同花顺ifind整理发现，2025年江苏银行（600919．SH）以412万元的人均创收水平位列A股上市银行第一位，成都银行（601838.SH）则以169万元的人均创利居首。 从银行
+中新网6月5日电 据中央纪委国家监委驻海关总署纪检监察组、山西省纪委监委消息，厦门海关原副关长、一级巡视员邓光文涉嫌严重违纪违法，目前正在接受中央纪委国家监委驻海关总署纪检监察组纪律审查和山西省运城市监察委员会监察调查。
 
 ## 正文
 
-界面新闻记者 | 杨志锦 界面新闻编辑 | 王姝 在低利率背景下，人均效率成为观察银行经营质效的新窗口——谁能在低息差环境中用更少的人创造更多的价值，谁就掌握了穿越周期的主动权。
-
-界面新闻记者根据同花顺ifind整理发现，2025年江苏银行（600919．SH）以412万元的人均创收水平位列A股上市银行第一位，成都银行（601838.SH）则以169万元的人均创利居首。
-
-从银行类型看，优质城商行的人均创收和创利双双位居上市银行前列，而国有大行人均创收能力普遍低于行业平均。
-
-此外，即便零售业务承压，招商银行（600036.SH，03968．HK）人均创利仍居上市银行第六位。
-
-如何理解这些排序差异？
-
-背后又藏着怎样的经营密码？
-
-国有大行人均创收普遍不高 商业银行人均营收和人均盈利是衡量银行经营效率的核心指标，简单而言就是平均一个员工一年创造了多少营收、利润。
-
-界面新闻记者根据同花顺ifind数据统计显示，2025年42家A股上市银行员工一共261万人，合计实现营业收入5.7万亿元，相当于人均创造营业收入220万元。
+中新网6月5日电 据中央纪委国家监委驻海关总署纪检监察组、山西省纪委监委消息，厦门海关原副关长、一级巡视员邓光文涉嫌严重违纪违法，目前正在接受中央纪委国家监委驻海关总署纪检监察组纪律审查和山西省运城市监察委员会监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 15:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 15:09 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 15:09 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 15:20 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 15:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 15:18 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 15:17 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 15:10 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 14:59 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 15:12 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 15:17 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 15:17 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 15:00 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 15:09 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 15:06 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 15:24 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 15:18 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 15:19 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 15:23 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 15:13 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 15:23 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:21 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/425553437.shtml)
-- 2026-06-29 15:01 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/996065261076.shtml)
-- 2026-06-29 15:15 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/034894.shtml)
-- 2026-06-29 15:13 - [普京：俄面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/3961449573.shtml)
-- 2026-06-29 15:08 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/464294599.shtml)
-- 2026-06-29 15:09 - [梅朗雄主张法国退出北约](https://www.blog.kurohicncr.top/Article/details/40874403.shtml)
-- 2026-06-29 14:55 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/04171.shtml)
-- 2026-06-29 15:17 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/1680339.shtml)
-- 2026-06-29 14:56 - [医院大厅放钢琴是形式主义吗](http://www.share.kurohicncr.top/Article/details/4195383.shtml)
-- 2026-06-29 15:18 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/18298758137.shtml)
-- 2026-06-29 15:20 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/39363465.shtml)
-- 2026-06-29 15:02 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/666015542.shtml)
-- 2026-06-29 15:15 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/286920.shtml)
-- 2026-06-29 15:19 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/902894655507.shtml)
-- 2026-06-29 15:05 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/36665897474.shtml)
+- 2026-06-29 15:01 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/9907374108.shtml)
+- 2026-06-29 15:00 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/33665.shtml)
+- 2026-06-29 15:17 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.kurohicncr.top/Article/details/7946907.shtml)
+- 2026-06-29 15:11 - [医院大厅放钢琴是形式主义吗](http://www.blog.kurohicncr.top/Article/details/49122452.shtml)
+- 2026-06-29 15:28 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/59041846455.shtml)
+- 2026-06-29 15:10 - [手游300亿数据或被军事化运用](http://www.blog.minike.top/Article/details/5884287653.shtml)
+- 2026-06-29 15:00 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/6647357272.shtml)
+- 2026-06-29 15:22 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/115626287774.shtml)
+- 2026-06-29 15:16 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/537304259549.shtml)
+- 2026-06-29 15:15 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/501550.shtml)
+- 2026-06-29 15:07 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/719050447305.shtml)
+- 2026-06-29 15:17 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.kurohicncr.top/Article/details/91689.shtml)
+- 2026-06-29 15:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/2195732577.shtml)
+- 2026-06-29 15:12 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/462045556790.shtml)
+- 2026-06-29 15:18 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/135308239.shtml)

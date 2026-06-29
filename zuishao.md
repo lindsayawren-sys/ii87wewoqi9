@@ -1,53 +1,61 @@
-# 韩国金融监督院称三星成韩国负债最多企业集团
+# 建设银行被罚70万元：重要信息系统投产变更风险管控不到位等
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-韩国金融监管机构周二表示，三星已成为韩国负债最多的企业集团，到2025年底总负债超过了SK集团。 芯片制造商SK海力士的母公司SK集团排名落至第三位，现代汽车排名第二；之后是乐天第四，LG第五。 总体而言，共有42家企业集团被认定为高负债企业，上一年为41家。 截至去年底，这些集团的银行信贷未偿余额为386.9万亿韩元（2，550亿美元），比上年增长4.1%。责任编辑：于健 S
+6月5日金融一线消息，国家金融监督管理总局行政处罚信息公示列表显示，中国建设银行股份有限公司因重要信息系统投产变更风险管控不到位、重要信息系统应急管理不足等，被罚70万元。 序号 当事人名称 主要违法违规 行为 行政处罚内容 作出决定机关 1 中国工商银行股份有限公司 重要信息系统投产变更风险管控不到位、未按规定报告重要信息系统突发事件等。 对中国工商银行股份有限公司罚款105
 
 ## 正文
 
-韩国金融监管机构周二表示，三星已成为韩国负债最多的企业集团，到2025年底总负债超过了SK集团。
+6月5日金融一线消息，国家金融监督管理总局行政处罚信息公示列表显示，中国建设银行股份有限公司因重要信息系统投产变更风险管控不到位、重要信息系统应急管理不足等，被罚70万元。
 
-芯片制造商SK海力士的母公司SK集团排名落至第三位，现代汽车排名第二；之后是乐天第四，LG第五。
+序号 当事人名称 主要违法违规 行为 行政处罚内容 作出决定机关 1 中国工商银行股份有限公司 重要信息系统投产变更风险管控不到位、未按规定报告重要信息系统突发事件等。
 
-总体而言，共有42家企业集团被认定为高负债企业，上一年为41家。
+对中国工商银行股份有限公司罚款105万元。
 
-截至去年底，这些集团的银行信贷未偿余额为386.9万亿韩元（2，550亿美元），比上年增长4.1%。
+金融监管总局 2 中国建设银行股份有限公司 重要信息系统投产变更风险管控不到位、重要信息系统应急管理不足等。
 
-责任编辑：于健 SF069
+对中国建设银行股份有限公司罚款70万元。
+
+金融监管总局 3 交通银行股份有限公司 灾备恢复能力建设不足、重要信息系统应急管理不足等。
+
+对交通银行股份有限公司罚款80万元。
+
+金融监管总局 4 中信银行股份有限公司及相关责任人员 相关贷款、信用卡等业务管理不审慎。
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 15:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 15:07 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 15:17 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 15:03 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 15:19 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 14:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 14:54 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 15:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 15:03 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 15:16 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 15:20 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 15:06 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 15:27 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 15:14 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 15:01 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 15:22 - [世界杯用球成部分门将噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 15:01 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 15:05 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 15:20 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 15:07 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 15:11 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 15:02 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 15:02 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 15:01 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 15:10 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 15:17 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 15:27 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:15 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/336695496.shtml)
-- 2026-06-29 14:59 - [双高胎](https://www.blog.kurohicncr.top/Article/details/951145992686.shtml)
-- 2026-06-29 15:08 - [周生如故](http://www.share.kurohicncr.top/Article/details/6015078.shtml)
-- 2026-06-29 14:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/5506956.shtml)
-- 2026-06-29 15:22 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/9650534.shtml)
-- 2026-06-29 15:19 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/2930105570.shtml)
-- 2026-06-29 15:19 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/4604466375.shtml)
-- 2026-06-29 15:08 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/598210.shtml)
-- 2026-06-29 15:07 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/829140612420.shtml)
-- 2026-06-29 15:07 - [扬名立万](http://www.blog.minike.top/Article/details/1281801.shtml)
-- 2026-06-29 15:22 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/60214.shtml)
-- 2026-06-29 15:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/7040575831.shtml)
-- 2026-06-29 15:19 - [央视起底直播诈骗连环套](https://www.blog.minike.top/Article/details/37882875.shtml)
-- 2026-06-29 15:02 - [新一代影后杨紫](https://www.blog.kurohicncr.top/Article/details/714662.shtml)
-- 2026-06-29 15:05 - [博主：全球股市进入“AI极端共振”](http://www.share.kurohicncr.top/Article/details/362291.shtml)
+- 2026-06-29 15:10 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/532260215.shtml)
+- 2026-06-29 15:09 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/116632175.shtml)
+- 2026-06-29 15:26 - [这一刀 会很帅](http://www.share.minike.top/Article/details/065837079.shtml)
+- 2026-06-29 15:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/4227886799.shtml)
+- 2026-06-29 15:29 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.minike.top/Article/details/2782776.shtml)
+- 2026-06-29 15:16 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/99358.shtml)
+- 2026-06-29 15:28 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/833227497038.shtml)
+- 2026-06-29 15:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/246082.shtml)
+- 2026-06-29 15:07 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/372435198496.shtml)
+- 2026-06-29 15:13 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/19451.shtml)
+- 2026-06-29 15:20 - [乔家的儿女](http://www.blog.minike.top/Article/details/591000.shtml)
+- 2026-06-29 15:22 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/542849802.shtml)
+- 2026-06-29 15:02 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/4178314.shtml)
+- 2026-06-29 15:23 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/63590.shtml)
+- 2026-06-29 15:16 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.minike.top/Article/details/93793512769.shtml)

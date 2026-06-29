@@ -1,53 +1,58 @@
-# 国台办批台当局不让贴大陆旅游广告
+# 深耕中外文体交流 渝籍华侨献策三峡体育产业国际化发展
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网5月27日电 5月27日，国台办举行例行新闻发布会。有记者问：近日，台北国际观光博览会开幕，台湾观光部门却要求岛内旅游业者不得张贴赴大陆旅游的广告和文案，引发岛内旅游业界不满和批评。请问对此有何评论？ 国台办发言人陈斌华表示，民进党当局刻意阻挠两岸旅游交流，既违背市场规律，也损害台湾同胞和旅游业者的正当权益。事实再次说明，两岸旅游问题的症结和障碍在于民进党当局干扰阻挠。民
+中新网重庆6月5日电 (记者 钟旖)“重庆有这么好的山水资源，可因地制宜打造国际化的原创赛事IP。”5日，在三峡地区进行生态考察参访的2026“一带一路”华侨华人合作发展大会嘉宾，中国侨商联合会理事、美国陕西总商会副会长范海兰谈及重庆的文体发展，提出如是构想。 连日来，阔别家乡已久的范海兰一路走，一路看，一路思索。她驻足巫山，放眼望去，长江峡谷群山连绵、江域辽阔；登临奉节“三峡
 
 ## 正文
 
-中新网5月27日电 5月27日，国台办举行例行新闻发布会。
+中新网重庆6月5日电 (记者 钟旖)“重庆有这么好的山水资源，可因地制宜打造国际化的原创赛事IP。
 
-有记者问：近日，台北国际观光博览会开幕，台湾观光部门却要求岛内旅游业者不得张贴赴大陆旅游的广告和文案，引发岛内旅游业界不满和批评。
+”5日，在三峡地区进行生态考察参访的2026“一带一路”华侨华人合作发展大会嘉宾，中国侨商联合会理事、美国陕西总商会副会长范海兰谈及重庆的文体发展，提出如是构想。
 
-请问对此有何评论？
+连日来，阔别家乡已久的范海兰一路走，一路看，一路思索。
 
-国台办发言人陈斌华表示，民进党当局刻意阻挠两岸旅游交流，既违背市场规律，也损害台湾同胞和旅游业者的正当权益。
+她驻足巫山，放眼望去，长江峡谷群山连绵、江域辽阔；登临奉节“三峡之巅”，观奇峰叠嶂、大江奔涌，风光无限；漫步云阳，环湖绿道如丝带般蜿蜒，感受人文与自然交融之美。
 
-事实再次说明，两岸旅游问题的症结和障碍在于民进党当局干扰阻挠。
+结合实地考察，范海兰建议，三峡地区可重点发展户外运动，利用山地优势开展徒步、登山、山地自行车等活动，在安全可控的水域发展龙舟、桨板等水上项目，走出别具三峡特色的体育产业差异化发展路径。
 
-民进党当局应顺应民意，尽早撤除“禁团令”等不合理禁限，为两岸旅游交流合作创造有利条件。
+范海兰是重庆忠县人。
+
+1999年起便离开家乡，先后受聘于新加坡、美国等地的体育机构及政府文旅体育部门，长期从事公共体育管理与国际文体交流工作。
+
+无论走到哪里，重庆始终是她心头的牵挂。
 
 ## 相关推荐
 
-- 2026-06-29 15:15 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 15:08 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 15:14 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 14:55 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 15:09 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 15:06 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 15:01 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 15:22 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 15:14 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 15:13 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 15:00 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 15:27 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 15:19 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 15:01 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 15:23 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 15:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 15:18 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 15:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 15:24 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 15:20 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 15:11 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 15:29 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 15:19 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/7091243.shtml)
-- 2026-06-29 15:10 - [德国队前往比赛场地遭遇囧途](http://www.share.kurohicncr.top/Article/details/25542524120.shtml)
-- 2026-06-29 15:23 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/9461921149.shtml)
-- 2026-06-29 15:18 - [张一山回应与杨紫友情](https://www.share.kurohicncr.top/Article/details/674854.shtml)
-- 2026-06-29 15:12 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/996131349.shtml)
-- 2026-06-29 15:04 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.kurohicncr.top/Article/details/080373.shtml)
-- 2026-06-29 15:15 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/46664734.shtml)
-- 2026-06-29 15:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/98606464217.shtml)
-- 2026-06-29 15:12 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.kurohicncr.top/Article/details/72762516133.shtml)
-- 2026-06-29 15:01 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/09861174180.shtml)
-- 2026-06-29 14:57 - [NBA交易](http://www.share.minike.top/Article/details/294102724206.shtml)
-- 2026-06-29 15:04 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/892198640429.shtml)
-- 2026-06-29 15:08 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/040363.shtml)
-- 2026-06-29 14:58 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/64216.shtml)
-- 2026-06-29 14:57 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/981667.shtml)
+- 2026-06-29 15:23 - [绘画区你赢了](http://www.blog.minike.top/Article/details/547451642.shtml)
+- 2026-06-29 15:27 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/69255055171.shtml)
+- 2026-06-29 15:27 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/0169766227.shtml)
+- 2026-06-29 15:24 - [流金岁月](https://www.blog.minike.top/Article/details/388779073614.shtml)
+- 2026-06-29 15:16 - [和阿根廷球员家属一起看球](https://www.share.kurohicncr.top/Article/details/210611254.shtml)
+- 2026-06-29 15:09 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/99456842.shtml)
+- 2026-06-29 15:02 - [崔韩率还以为韩娱来新人了](http://www.share.kurohicncr.top/Article/details/3300545936.shtml)
+- 2026-06-29 15:26 - [市民骑哈啰单车79分钟付30元](http://www.blog.minike.top/Article/details/888087126.shtml)
+- 2026-06-29 15:05 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/50056417.shtml)
+- 2026-06-29 15:15 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/39540.shtml)
+- 2026-06-29 15:07 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/816746.shtml)
+- 2026-06-29 15:14 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/74363.shtml)
+- 2026-06-29 15:20 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/8153003947.shtml)
+- 2026-06-29 15:13 - [勇敢的心第二部](http://www.share.minike.top/Article/details/06714843.shtml)
+- 2026-06-29 15:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/893384955.shtml)

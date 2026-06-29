@@ -1,52 +1,56 @@
-# 多起中国公民遭电诈案件发生 驻印尼使馆提醒防范电信诈骗
+# “千帆星座”组网卫星成功发射，SpaceX上市在即，华宝基金通用航空ETF（159231）劲涨逾2%
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网5月27日电 据中国驻印尼大使馆微信公众号消息，近期，中国驻印尼使领馆接到多起中国公民遭遇电诈的求助案件，不少同胞蒙受惨重经济损失。有迹象表明，越来越多曾在柬埔寨等国从事电诈的人员正转移至印尼作案，印尼方已捣毁多处电诈窝点。当前在印尼发生的电诈类型主要有冒充政府机构工作人员诈骗、换汇诈骗、签证诈骗、“杀猪盘”“仙人跳”诈骗、买卖投资诈骗等。 中国驻印尼使领馆提醒广大中国公
+6月5日，商业航天久违领涨，海格通信一度涨停，航天电子大涨逾6%。通用航空ETF华宝（159231）震荡走强，场内价格现涨2.14%。 消息面上，2026年6月4日，我国在太原卫星发射中心使用长征六号甲运载火箭，成功将垣信卫星的18颗“千帆星座”组网卫星送入预定轨道，所有卫星状态正常，发射任务取得圆满成功。 海外方面，SpaceX IPO催化商业航天板块情绪。 当地时间6月3日
 
 ## 正文
 
-中新网5月27日电 据中国驻印尼大使馆微信公众号消息，近期，中国驻印尼使领馆接到多起中国公民遭遇电诈的求助案件，不少同胞蒙受惨重经济损失。
+6月5日，商业航天久违领涨，海格通信一度涨停，航天电子大涨逾6%。
 
-有迹象表明，越来越多曾在柬埔寨等国从事电诈的人员正转移至印尼作案，印尼方已捣毁多处电诈窝点。
+通用航空ETF华宝（159231）震荡走强，场内价格现涨2.14%。
 
-当前在印尼发生的电诈类型主要有冒充政府机构工作人员诈骗、换汇诈骗、签证诈骗、“杀猪盘”“仙人跳”诈骗、买卖投资诈骗等。
+消息面上，2026年6月4日，我国在太原卫星发射中心使用长征六号甲运载火箭，成功将垣信卫星的18颗“千帆星座”组网卫星送入预定轨道，所有卫星状态正常，发射任务取得圆满成功。
 
-中国驻印尼使领馆提醒广大中国公民提高安全防范意识，警惕各类诈骗陷阱，不向陌生人透露个人信息，更不要轻易转账或点击不明链接，切实保护自身财产安全。
+海外方面，SpaceX IPO催化商业航天板块情绪。
 
-如不幸上当受骗，请尽快报警，并向中国驻印尼使领馆求助。
+当地时间6月3日，SpaceX向美国证监会提交文件，计划以每股135美元价格募资750亿美元，目估值达1.77万亿美元，将于6月12日在纳斯达克挂牌。
 
-印尼报警电话：+62-110 印尼急救电话：+62-119 外交部全球领事保护与服务应急热线： +86-10-12308 / 65612308 驻印尼使馆领事保护与协助电话： +62-21-5764135 驻泗水总领馆领事保护与协助电话： +62-31-5678284 驻棉兰总领馆领事保护与协助电话： +62-8116137652 驻登巴萨总领馆领事保护与协助电话： +62-361-239902
+东方证券分析指出，看好6月商业航天板块触底反弹。
+
+上周商业航天板块出现明显调整，可能由于风偏调整、SpaceX估值或将下修，以及国内产业端火箭卫星的研发等进度有所推迟等因素共同导致，展望6-7月，国内火箭与卫星端催化不断，海外SpaceX也即将上市，我们认为商业航天作为强主题性赛道，整体板块的关注度有望快速上升，看好SpaceX链配套公司、火箭端关键环节以及国内卫星端新一代技术提前布局的核心公司。
+
+大国之翼，大展鸿图！
 
 ## 相关推荐
 
-- 2026-06-29 15:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 15:16 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 15:04 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 15:23 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 15:04 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 15:07 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 14:54 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 15:07 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 14:56 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 15:05 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 15:02 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 15:29 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 15:04 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 15:16 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 15:10 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 15:19 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 15:05 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 15:01 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 15:04 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 15:02 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:19 - [普京介绍前线战事](http://www.share.kurohicncr.top/Article/details/956985.shtml)
-- 2026-06-29 14:58 - [詹俊预测德国大胜巴拉圭](http://www.blog.minike.top/Article/details/92437.shtml)
-- 2026-06-29 15:19 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/4894835172.shtml)
-- 2026-06-29 15:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/78529674930.shtml)
-- 2026-06-29 15:12 - [央视起底直播诈骗连环套](http://www.blog.minike.top/Article/details/6700153.shtml)
-- 2026-06-29 15:14 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/577593769.shtml)
-- 2026-06-29 15:03 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/4152240785.shtml)
-- 2026-06-29 15:03 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.kurohicncr.top/Article/details/729220231318.shtml)
-- 2026-06-29 15:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/84498047827.shtml)
-- 2026-06-29 14:57 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/4301016.shtml)
-- 2026-06-29 15:13 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.minike.top/Article/details/456729.shtml)
-- 2026-06-29 15:03 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/017920.shtml)
-- 2026-06-29 15:04 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.minike.top/Article/details/19431548.shtml)
-- 2026-06-29 15:07 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/23073783973.shtml)
-- 2026-06-29 15:16 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/3289328341.shtml)
+- 2026-06-29 15:14 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/87297.shtml)
+- 2026-06-29 15:02 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/1172491128.shtml)
+- 2026-06-29 15:03 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/2179257305.shtml)
+- 2026-06-29 15:24 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/91172899.shtml)
+- 2026-06-29 15:07 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/467750391.shtml)
+- 2026-06-29 15:09 - [我和我的家乡](http://www.share.minike.top/Article/details/4187985.shtml)
+- 2026-06-29 15:24 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/7944213675.shtml)
+- 2026-06-29 15:02 - [极限挑战第一季](https://www.blog.minike.top/Article/details/0780972467.shtml)
+- 2026-06-29 15:12 - [世界杯十大帅哥必吃榜](http://www.blog.kurohicncr.top/Article/details/1643219144.shtml)
+- 2026-06-29 15:24 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/57723046.shtml)
+- 2026-06-29 15:04 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/56395.shtml)
+- 2026-06-29 15:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/433325831038.shtml)
+- 2026-06-29 15:08 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/951235447.shtml)
+- 2026-06-29 15:00 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/81559.shtml)
+- 2026-06-29 15:14 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/877705.shtml)

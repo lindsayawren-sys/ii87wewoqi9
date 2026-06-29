@@ -1,60 +1,45 @@
-# 凭祥外贸“换芯”记
+# 江苏银行：2026年6月26日召开2025年年度股东会
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-广西云-广西日报记者 管林华 通讯员 邱 洁 黄 聪 实习生 郑星宇 5月19日9时许，南疆国门凭祥友谊关口岸迎来了繁忙时刻。越南司机阮文雄驾驶货车驶入智能卡口，摇下车窗，面部对准摄像头——车辆放行声音响起，栏杆上抬。从停车到放行，不足3分钟。他拿起副驾驶座上的咖啡杯，打开盖子，热咖啡的白气袅袅飘散。 “以前过关要等一两个小时。”他用中文说，“现在咖啡还没凉，人就过来了。” 友
+证券日报网讯 6月5日，江苏银行发布公告称，公司将于2026年6月26日召开2025年年度股东会。（文章来源：证券日报）
 
 ## 正文
 
-广西云-广西日报记者 管林华 通讯员 邱 洁 黄 聪 实习生 郑星宇 5月19日9时许，南疆国门凭祥友谊关口岸迎来了繁忙时刻。
+证券日报网讯 6月5日，江苏银行发布公告称，公司将于2026年6月26日召开2025年年度股东会。
 
-越南司机阮文雄驾驶货车驶入智能卡口，摇下车窗，面部对准摄像头——车辆放行声音响起，栏杆上抬。
-
-从停车到放行，不足3分钟。
-
-他拿起副驾驶座上的咖啡杯，打开盖子，热咖啡的白气袅袅飘散。
-
-“以前过关要等一两个小时。
-
-”他用中文说，“现在咖啡还没凉，人就过来了。
-
-” 友谊关，中国通往东盟最便捷的陆路口岸。
-
-每天，上千辆跨境货车享受“秒级通关”。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 15:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 15:22 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 15:09 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 15:04 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 15:04 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 15:13 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 15:00 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 14:59 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 15:21 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 15:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 15:12 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 14:56 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 15:20 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 15:25 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 15:22 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 15:09 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 15:12 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 15:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 15:17 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 15:13 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 15:14 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 15:25 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 15:13 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 15:00 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/807232437.shtml)
-- 2026-06-29 15:05 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/557086731.shtml)
-- 2026-06-29 15:18 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/5242098066.shtml)
-- 2026-06-29 14:57 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/553064310176.shtml)
-- 2026-06-29 15:17 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/40338420.shtml)
-- 2026-06-29 15:22 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.minike.top/Article/details/7215809.shtml)
-- 2026-06-29 15:21 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/540371277907.shtml)
-- 2026-06-29 15:14 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/9910793651.shtml)
-- 2026-06-29 15:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/34034745894.shtml)
-- 2026-06-29 15:01 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/141620305.shtml)
-- 2026-06-29 15:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/23335.shtml)
-- 2026-06-29 15:03 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/010259013.shtml)
-- 2026-06-29 15:07 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.kurohicncr.top/Article/details/210009013.shtml)
-- 2026-06-29 14:56 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/505930999226.shtml)
-- 2026-06-29 14:57 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/52013.shtml)
+- 2026-06-29 15:29 - [我和我的家乡](http://www.share.minike.top/Article/details/900933.shtml)
+- 2026-06-29 15:27 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/78431030.shtml)
+- 2026-06-29 15:02 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/039846825438.shtml)
+- 2026-06-29 15:23 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.minike.top/Article/details/994961878103.shtml)
+- 2026-06-29 15:05 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/2505980.shtml)
+- 2026-06-29 15:08 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/698038.shtml)
+- 2026-06-29 15:04 - [张一山回应与杨紫友情](http://www.share.kurohicncr.top/Article/details/369662953849.shtml)
+- 2026-06-29 15:02 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/600500357.shtml)
+- 2026-06-29 15:11 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/21423484.shtml)
+- 2026-06-29 15:09 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/84428.shtml)
+- 2026-06-29 15:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/51784705.shtml)
+- 2026-06-29 15:18 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/5560770.shtml)
+- 2026-06-29 15:04 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/05236816820.shtml)
+- 2026-06-29 15:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/891725759.shtml)
+- 2026-06-29 15:18 - [欧盟为什么越来越倾向贸易保护](https://www.blog.minike.top/Article/details/0745742288.shtml)

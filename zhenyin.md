@@ -1,55 +1,61 @@
-# 工商银行成功发行600亿元二级资本债券
+# 生态环境部发布《2025中国生态环境状况公报》
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-来源：中国工商银行 近日，工商银行在全国银行间市场成功发行600亿元二级资本债券，创今年以来全市场同品种债券最大发行规模。本期债券品种为10年期固定利率债券，在第5年末附有条件的发行人赎回权，票面利率1.90%。 本次发行得到市场高度认可，获得近160家各类投资者的踊跃认购，全场认购倍数近2倍，彰显了工商银行在资本市场的良好形象和市场影响力。工商银行将通过本次发行进一步优化资本
+中新网6月5日电 据生态环境部微信公众号消息，2026年6月5日，生态环境部正式发布《2025中国生态环境状况公报》。2025年，全国生态环境质量持续改善，环境安全形势保持稳定。“十四五”期间，主要污染物排放总量持续下降，生态环境保持改善态势、向好趋势。一、环境空气质量持续向好 地级及以上城市环境空气细颗粒物(PM2.5)平均浓度为28.0微克/立方米，比2024年下降4.4%
 
 ## 正文
 
-来源：中国工商银行 近日，工商银行在全国银行间市场成功发行600亿元二级资本债券，创今年以来全市场同品种债券最大发行规模。
+中新网6月5日电 据生态环境部微信公众号消息，2026年6月5日，生态环境部正式发布《2025中国生态环境状况公报》。
 
-本期债券品种为10年期固定利率债券，在第5年末附有条件的发行人赎回权，票面利率1.90%。
+2025年，全国生态环境质量持续改善，环境安全形势保持稳定。
 
-本次发行得到市场高度认可，获得近160家各类投资者的踊跃认购，全场认购倍数近2倍，彰显了工商银行在资本市场的良好形象和市场影响力。
+“十四五”期间，主要污染物排放总量持续下降，生态环境保持改善态势、向好趋势。
 
-工商银行将通过本次发行进一步优化资本结构、增强风险抵御能力、夯实服务实体经济的基础。
+一、环境空气质量持续向好 地级及以上城市环境空气细颗粒物(PM2.5)平均浓度为28.0微克/立方米，比2024年下降4.4%。
 
-工商银行将在监管机构的指导下，持续强化资本管理效能，提升风险防范和可持续发展能力，积极发挥领军银行作用，加大对实体经济的优质金融供给，为经济社会高质量发展贡献力量。
+全国环境空气质量达标城市共246个，比2024年增加24个。
 
-责任编辑：秦艺
+“十四五”期间，全国城市环境空气PM2.5浓度累计下降20%，重污染天数减少25%；京津冀及周边地区、汾渭平原PM2.5浓度比2020年分别下降27.7%、32.1%。
+
+二、地表水环境质量稳定改善，地下水水质保持稳定 全国地表水Ⅰ—Ⅲ类水质断面比例为91.4%，连续两年保持在90%以上；劣Ⅴ类水质断面比例为0.6%。
+
+全国地下水Ⅰ—Ⅳ类水质点位比例为76.8%。
 
 ## 相关推荐
 
-- 2026-06-29 14:55 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 15:21 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 15:10 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 15:13 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 14:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 15:23 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 15:20 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 15:23 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 15:05 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 15:02 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 15:08 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-29 14:57 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 15:13 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 15:07 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 15:30 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 15:09 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 15:27 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 15:16 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 15:05 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 15:03 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 15:01 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 15:05 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 15:14 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 15:18 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 15:22 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 15:08 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 15:22 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 15:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/5375759.shtml)
-- 2026-06-29 15:14 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/7406790.shtml)
-- 2026-06-29 14:59 - [千与千寻](http://www.share.minike.top/Article/details/91480.shtml)
-- 2026-06-29 15:09 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/10718907.shtml)
-- 2026-06-29 15:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/4186493101.shtml)
-- 2026-06-29 15:19 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/39299.shtml)
-- 2026-06-29 15:03 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/468452699.shtml)
-- 2026-06-29 15:22 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/318920562.shtml)
-- 2026-06-29 15:11 - [20年前的周杰伦](http://www.share.minike.top/Article/details/6704709307.shtml)
-- 2026-06-29 15:07 - [事关个税 明日截止请抓紧办理](https://www.blog.minike.top/Article/details/774811148.shtml)
-- 2026-06-29 15:11 - [李在明称韩国足协任命了无能之人](https://www.share.minike.top/Article/details/7991174946.shtml)
-- 2026-06-29 14:57 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/813786593.shtml)
-- 2026-06-29 15:18 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/355417565.shtml)
-- 2026-06-29 15:06 - [袁隆平院士 不容诋毁！](http://www.share.minike.top/Article/details/4734052503.shtml)
-- 2026-06-29 15:19 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/79622749.shtml)
+- 2026-06-29 15:24 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/2245804830.shtml)
+- 2026-06-29 15:09 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/3566023365.shtml)
+- 2026-06-29 15:09 - [美的空调 卡bug](https://www.share.minike.top/Article/details/517427.shtml)
+- 2026-06-29 15:05 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/140629.shtml)
+- 2026-06-29 15:09 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/82368484.shtml)
+- 2026-06-29 15:29 - [沉睡花园](https://www.share.minike.top/Article/details/73685962.shtml)
+- 2026-06-29 15:28 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.blog.kurohicncr.top/Article/details/9202871473.shtml)
+- 2026-06-29 15:22 - [上海一小区水池内出现一条鳄鱼](https://www.blog.minike.top/Article/details/0417136.shtml)
+- 2026-06-29 15:02 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/2539665.shtml)
+- 2026-06-29 15:23 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/169611225.shtml)
+- 2026-06-29 15:27 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/422854591.shtml)
+- 2026-06-29 15:07 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/76277513276.shtml)
+- 2026-06-29 15:01 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/006217.shtml)
+- 2026-06-29 15:26 - [105年初心滚烫](https://www.blog.kurohicncr.top/Article/details/9551073.shtml)
+- 2026-06-29 15:27 - [南部战区位南海海域进行例行巡航](https://www.blog.kurohicncr.top/Article/details/367761495.shtml)

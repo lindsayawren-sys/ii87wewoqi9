@@ -1,59 +1,61 @@
-# 趋同交易33亿！华泰资管养出史上最大“老鼠仓”
+# 6月4日白银晚评：银价反弹受到阻碍！利率前景指引银价多空方向
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-来源丨深蓝财经 撰文丨王鑫 原本拿着百万甚至千万年薪，却喂不饱一颗贪心。 2026年5月15日，曾经在金融界风头无两的华泰资管（华泰资产管理有限公司）前高级投资经理刘建义迎来了终局审判。 上海市第三中级人民法院一锤定音，判决他5年有期徒刑，外加2100万元刑事罚金。刘建义自愿认罪。 加上此前监管部门没一罚二的6432万元行政处罚，他的犯罪成本，逼近了9000万。这大概是有史以来
+金投网 北京时间周四（6月4日）欧盘时段，美元指数小幅回落，目前交投于99.385附近，现货白银目前交投于73.32美元/盎司，今日开盘于72.79美元/盎司，截至发稿白银价格最高上探73.90美元/盎司，最低触及72.41美元/盎司，基本面关注美国将公布5月挑战者企业裁员人数，美国至5月30日当周初请失业金人数以及5月全球供应链压力指数，美联储巴尔金将参与谈话。 【基本面解析
 
 ## 正文
 
-来源丨深蓝财经 撰文丨王鑫 原本拿着百万甚至千万年薪，却喂不饱一颗贪心。
+金投网 北京时间周四（6月4日）欧盘时段，美元指数小幅回落，目前交投于99.385附近，现货白银目前交投于73.32美元/盎司，今日开盘于72.79美元/盎司，截至发稿白银价格最高上探73.90美元/盎司，最低触及72.41美元/盎司，基本面关注美国将公布5月挑战者企业裁员人数，美国至5月30日当周初请失业金人数以及5月全球供应链压力指数，美联储巴尔金将参与谈话。
 
-2026年5月15日，曾经在金融界风头无两的华泰资管（华泰资产管理有限公司）前高级投资经理刘建义迎来了终局审判。
+【基本面解析】 以色列与黎巴嫩周三在华盛顿举行的美国主导谈判后同意实施停火。
 
-上海市第三中级人民法院一锤定音，判决他5年有期徒刑，外加2100万元刑事罚金。
+联合声明称，停火前提是伊朗支持的真主党完全停止火力攻击，并其武装人员从黎巴嫩南部撤离。
 
-刘建义自愿认罪。
+与此同时，美国众议院通过决议，寻求阻止总统特朗普对伊朗采取进一步军事行动。
 
-加上此前监管部门没一罚二的6432万元行政处罚，他的犯罪成本，逼近了9000万。
+这些进展提升了结束美以对伊朗长达三个月战争的希望，促使美元出现温和回调，从而为银价反弹提供了支撑。
 
-这大概是有史以来，保险资管领域最昂贵的一顿“牢饭”。
+美国方面，周三公布的5月ADP就业数据好于预期，为周五非农数据奠定了积极基调。
 
-此案涉及的趋同交易金额高达33.64亿元，创下了史无前例的纪录。
+数据显示，美国私营部门新增就业12.2万人，高于预期的11.7万人和前值10.5万人，表明劳动力市场仍具韧性。
 
-这些数字背后，更让人细思极恐的是一个巨大的问号：手握万亿资产、光环满身的华泰资管，为何让一个“内鬼”在眼皮底下运作了整整两年半？
+若周五非农数据同样强劲，可能进一步强化市场对美联储维持紧缩立场的预期。
 
 ## 相关推荐
 
-- 2026-06-29 14:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 15:14 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 15:01 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 15:12 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 15:14 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 15:03 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 15:02 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 15:21 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 15:17 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 15:14 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 14:57 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 15:00 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 15:03 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 15:22 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 15:14 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 15:20 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 15:07 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 15:16 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 15:27 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 15:27 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 15:01 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 15:20 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 15:30 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 15:14 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 15:08 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 15:09 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 15:10 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 15:00 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/435355.shtml)
-- 2026-06-29 15:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/3405056668.shtml)
-- 2026-06-29 15:04 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/3316773.shtml)
-- 2026-06-29 15:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/2931573.shtml)
-- 2026-06-29 15:06 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/7384291.shtml)
-- 2026-06-29 14:55 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/0781965.shtml)
-- 2026-06-29 14:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/88733.shtml)
-- 2026-06-29 14:58 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/85953.shtml)
-- 2026-06-29 15:07 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/95898691.shtml)
-- 2026-06-29 14:56 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/76392945.shtml)
-- 2026-06-29 15:19 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/70150424.shtml)
-- 2026-06-29 15:09 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/935578327.shtml)
-- 2026-06-29 14:56 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/9597986.shtml)
-- 2026-06-29 14:57 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/58183407.shtml)
-- 2026-06-29 15:10 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/421645.shtml)
+- 2026-06-29 15:06 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/964026543.shtml)
+- 2026-06-29 15:08 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/002023605.shtml)
+- 2026-06-29 15:09 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/84828866.shtml)
+- 2026-06-29 15:18 - [斗破苍穹](https://www.share.minike.top/Article/details/72047797288.shtml)
+- 2026-06-29 15:08 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/866927886294.shtml)
+- 2026-06-29 15:28 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/08407335.shtml)
+- 2026-06-29 15:12 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/108148878456.shtml)
+- 2026-06-29 15:13 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/068139566.shtml)
+- 2026-06-29 15:24 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/34085.shtml)
+- 2026-06-29 15:18 - [送你一朵小红花](http://www.share.minike.top/Article/details/996126939506.shtml)
+- 2026-06-29 15:20 - [T1 vs KC MSI](https://www.share.minike.top/Article/details/50378.shtml)
+- 2026-06-29 15:29 - [小娘惹](http://www.share.kurohicncr.top/Article/details/1046682.shtml)
+- 2026-06-29 15:28 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/62850.shtml)
+- 2026-06-29 15:02 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/56827170114.shtml)
+- 2026-06-29 15:14 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/7336108132.shtml)

@@ -1,58 +1,57 @@
-# 伊朗示意将恢复网络，民众却心存疑虑
+# 广州港亚欧航线运力升级 保障湾区企业旺季出运需求
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-伊朗总统此前宣布，历经88天多的断网状态后，网络将恢复至抗议活动前的水平。但时隔一日，当地民众表示网络依旧处于受限状态。 伊朗官方媒体报道了总统的相关指令，原定在今日全面恢复全国网络。然而两名德黑兰居民称，网络连接状况并未出现明显改善。 伊朗官员及分析人士表示，总统此番表态，似乎意味着他与反对恢复网络的强硬派之间出现了权力博弈。伊朗最高国家安全委员会掌握着包括网络管控在内所有安
+【欧洲专线】广州港亚欧航线运力升级 保障湾区企业旺季出运需求 中新社广州6月5日电 (记者 蔡敏婕)地中海航运(MSC)旗下亚欧精品干线——JADE航线首船完成集装箱装卸作业，5日凌晨在广州港南沙港区发运。JADE航线以载箱量更大的船型保障粤港澳大湾区企业欧线旺季出运需求。 欧美下半年圣诞备货启动，珠三角家电、机电、轻工、跨境电商订单集中出货，舱位供不应求，船公司针对性填补舱位
 
 ## 正文
 
-伊朗总统此前宣布，历经88天多的断网状态后，网络将恢复至抗议活动前的水平。
+【欧洲专线】广州港亚欧航线运力升级 保障湾区企业旺季出运需求 中新社广州6月5日电 (记者 蔡敏婕)地中海航运(MSC)旗下亚欧精品干线——JADE航线首船完成集装箱装卸作业，5日凌晨在广州港南沙港区发运。
 
-但时隔一日，当地民众表示网络依旧处于受限状态。
+JADE航线以载箱量更大的船型保障粤港澳大湾区企业欧线旺季出运需求。
 
-伊朗官方媒体报道了总统的相关指令，原定在今日全面恢复全国网络。
+欧美下半年圣诞备货启动，珠三角家电、机电、轻工、跨境电商订单集中出货，舱位供不应求，船公司针对性填补舱位缺口。
 
-然而两名德黑兰居民称，网络连接状况并未出现明显改善。
+作为地中海航运重点打造的亚欧精品干线，JADE航线由16艘24000标准箱级超大型集装箱船运营，挂靠港口涉及新加坡、法国、西班牙等欧亚国家。
 
-伊朗官员及分析人士表示，总统此番表态，似乎意味着他与反对恢复网络的强硬派之间出现了权力博弈。
+该航线在运力配置及运输时效上实现双重提升，不仅可稳定覆盖西班牙、法国、意大利等欧洲核心市场，还能高效衔接北非及地中海东岸物流网络。
 
-伊朗最高国家安全委员会掌握着包括网络管控在内所有安全事务的最终决策权，总统以及立场保守的伊斯兰革命卫队指挥官均为该委员会成员。
+JADE航线挂靠南沙港区，将有效缓解粤港澳大湾区企业欧线旺季舱位紧张的局面，提升供应链整体运转效能。
 
-总部位于加州、关注伊朗网络自由的非营利科技机构“网络自由先锋”理事会成员表示：“总统并非最终决策者。
+南沙港区一直是地中海航运深耕华南市场的核心战略支点。
 
-他试图营造一种态势，即一旦与美国达成和平协议，网络就会恢复正常。
+近年来，双方合作不断迈向纵深，航线网络日益加密、舱位规模稳步攀升。
 
 ## 相关推荐
 
-- 2026-06-29 15:17 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 15:18 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 15:20 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 14:58 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 14:59 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 14:54 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 15:01 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 14:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 14:56 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 15:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 14:58 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 15:19 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 15:18 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 15:20 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 15:02 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 15:22 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 15:11 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 15:10 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 15:20 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 15:21 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 15:05 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 15:03 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 15:20 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:02 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/37641140.shtml)
-- 2026-06-29 14:58 - [金价银价下跌 油价上涨](http://www.share.kurohicncr.top/Article/details/9006080810.shtml)
-- 2026-06-29 15:15 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/307225.shtml)
-- 2026-06-29 15:00 - [血糖高的人能吃西瓜吗](https://www.share.kurohicncr.top/Article/details/327846.shtml)
-- 2026-06-29 15:15 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/22738165680.shtml)
-- 2026-06-29 15:23 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/77223.shtml)
-- 2026-06-29 15:12 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/874635.shtml)
-- 2026-06-29 15:13 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/319324.shtml)
-- 2026-06-29 15:18 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/4332752823.shtml)
-- 2026-06-29 15:01 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/4635440.shtml)
-- 2026-06-29 15:20 - [中国战机大片上新](https://www.share.minike.top/Article/details/258780.shtml)
-- 2026-06-29 15:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/840796.shtml)
-- 2026-06-29 15:11 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/749776002.shtml)
-- 2026-06-29 15:13 - [崔韩率还以为韩娱来新人了](https://www.blog.minike.top/Article/details/0284045.shtml)
-- 2026-06-29 15:23 - [金价银价下跌 油价上涨](http://www.blog.minike.top/Article/details/942803473.shtml)
+- 2026-06-29 15:01 - [直击宜宾地震：监控剧烈摇晃](https://www.share.minike.top/Article/details/7244149813.shtml)
+- 2026-06-29 15:14 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/45190149339.shtml)
+- 2026-06-29 15:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/56098.shtml)
+- 2026-06-29 15:20 - [王楚钦3比0周启豪](http://www.share.minike.top/Article/details/6090208.shtml)
+- 2026-06-29 15:10 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/5907113.shtml)
+- 2026-06-29 15:13 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/014678.shtml)
+- 2026-06-29 15:29 - [中方回应对日本相关出口管制措施](https://www.share.kurohicncr.top/Article/details/294723.shtml)
+- 2026-06-29 15:29 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/658552795.shtml)
+- 2026-06-29 15:02 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/51241.shtml)
+- 2026-06-29 15:27 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.kurohicncr.top/Article/details/10743.shtml)
+- 2026-06-29 15:26 - [一见倾心](http://www.share.minike.top/Article/details/657638330063.shtml)
+- 2026-06-29 15:19 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/939432210.shtml)
+- 2026-06-29 15:29 - [滾石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/7023184.shtml)
+- 2026-06-29 15:05 - [手游300亿数据或被军事化运用](https://www.share.minike.top/Article/details/55323094.shtml)
+- 2026-06-29 15:26 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/419010603584.shtml)

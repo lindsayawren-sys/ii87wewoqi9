@@ -1,55 +1,49 @@
-# 2026年国际“碳中和与能源智联”论坛在京举行
+# 宝丰能源：目前新疆项目已上报国家发展改革委审核
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月25日电 (记者 高凯)2026年国际“碳中和与能源智联”论坛日前在北京落幕。论坛上，多位国内外知名专家学者围绕碳中和与能源系统转型相关话题进行主旨报告分享和领袖圆桌讨论，“碳中和与能源系统转型的理论发展”“能源转型与碳量网络技术”“能源转型支撑技术与数智化”三个平行论坛同步开展。 作为由清华大学牵头发起的CNEST多边合作计划举办的第二届国际年度论坛，大会吸引了
+登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月5日，宝丰能源在互动平台回答投资者提问时表示，目前新疆项目已上报国家发展改革委审核。取得重大进展时，公司将及时履行信息披露义务。（文章来源：证券日报）
 
 ## 正文
 
-中新网北京5月25日电 (记者 高凯)2026年国际“碳中和与能源智联”论坛日前在北京落幕。
+登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月5日，宝丰能源在互动平台回答投资者提问时表示，目前新疆项目已上报国家发展改革委审核。
 
-论坛上，多位国内外知名专家学者围绕碳中和与能源系统转型相关话题进行主旨报告分享和领袖圆桌讨论，“碳中和与能源系统转型的理论发展”“能源转型与碳量网络技术”“能源转型支撑技术与数智化”三个平行论坛同步开展。
+取得重大进展时，公司将及时履行信息披露义务。
 
-作为由清华大学牵头发起的CNEST多边合作计划举办的第二届国际年度论坛，大会吸引了来自21个国家的480余位高校、科研机构、企业人士以及国际组织代表参会，在去年发布《CNEST北京倡议》基础上，逐步形成“北京共识”，进一步凝练CNEST科学目标与问题、推动国际合作与成果共享，助力全球碳中和目标实现。
-
-活动中，诺贝尔奖获得者、新加坡国立大学教授康斯坦丁·诺沃肖洛夫，中国科学院院士、清华大学车辆与运载学院教授欧阳明高，国际应用系统分析研究所(IIASA)杰出荣休学者、前副总干事及代理总干事内博伊沙·纳基切诺维奇，中国科学院院士、中国科学院工程热物理研究所研究员金红光，加拿大工程院院士、IEEE院士、香港理工大学电气及电子工程系主任、教授钟志勇，美国国家工程院院士、宁波东方理工大学常务副校长、讲席教授张东晓作了主旨报告分享。
-
-据悉，此次论坛由清华大学牵头主办、清华大学碳中和研究院牵头承办。
-
-(完)
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 14:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 15:16 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 15:14 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 15:16 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 15:20 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 15:12 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 15:19 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 15:17 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 14:54 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 15:16 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 15:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 14:57 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 15:19 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 15:19 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 15:15 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 15:23 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 15:25 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 15:09 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 15:16 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 15:08 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 15:27 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 15:12 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 15:17 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 15:00 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 15:04 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 15:26 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:02 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/81358372025.shtml)
-- 2026-06-29 15:20 - [光与夜之恋](http://www.share.minike.top/Article/details/671617.shtml)
-- 2026-06-29 15:17 - [扬名立万](https://www.share.minike.top/Article/details/830385378.shtml)
-- 2026-06-29 14:55 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/731360775497.shtml)
-- 2026-06-29 15:11 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/173320.shtml)
-- 2026-06-29 15:10 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/782137501171.shtml)
-- 2026-06-29 15:00 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.kurohicncr.top/Article/details/97190395075.shtml)
-- 2026-06-29 14:59 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/650702081487.shtml)
-- 2026-06-29 15:02 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/502993729525.shtml)
-- 2026-06-29 15:02 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/30052628999.shtml)
-- 2026-06-29 15:21 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/8545953238.shtml)
-- 2026-06-29 14:58 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/48982.shtml)
-- 2026-06-29 15:19 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/54540.shtml)
-- 2026-06-29 15:17 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/48222.shtml)
-- 2026-06-29 14:57 - [链博会上的机器人太全能了](http://www.blog.kurohicncr.top/Article/details/72524867.shtml)
+- 2026-06-29 15:00 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.kurohicncr.top/Article/details/47526.shtml)
+- 2026-06-29 15:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/32061.shtml)
+- 2026-06-29 15:01 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/6602311.shtml)
+- 2026-06-29 15:22 - [斛珠夫人](https://www.share.minike.top/Article/details/54122.shtml)
+- 2026-06-29 15:20 - [毒液2](http://www.share.minike.top/Article/details/18870.shtml)
+- 2026-06-29 15:22 - [AG冠军五人组轮换](https://www.blog.minike.top/Article/details/2397731376.shtml)
+- 2026-06-29 15:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/7252660.shtml)
+- 2026-06-29 15:10 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/12588077.shtml)
+- 2026-06-29 15:23 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/133530495.shtml)
+- 2026-06-29 15:03 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/6917246.shtml)
+- 2026-06-29 15:08 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/9406676938.shtml)
+- 2026-06-29 15:23 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.kurohicncr.top/Article/details/6264500.shtml)
+- 2026-06-29 15:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/2300624.shtml)
+- 2026-06-29 15:29 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.minike.top/Article/details/42542.shtml)
+- 2026-06-29 15:27 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/123391269917.shtml)

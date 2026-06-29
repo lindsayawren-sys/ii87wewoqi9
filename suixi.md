@@ -1,61 +1,57 @@
-# 调查：日本日经指数涨势迅猛跑赢同侪 2027年料升至69,000点再创新高
+# 谷歌正在其云部门悄悄进行裁员
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-分析师在路透的一项调查中表示，尽管日经指数的迅猛上涨速度令预测人士难以跟上，但在人工智能热潮和强劲的企业盈利驱动下，日经指数将继续创下历史新高。 在日经225指数于周一创下65，408.87点的历史高点后，路透调查的预测中值显示，分析师预计该指数到明年年底将升至69，000点，改写新高纪录。日经指数周二收盘报64，996.09点。 野村证券宏观研究主管Yunosuke Iked
+两名知情人士对媒体表示，过去两周在Google Cloud任职的员工已遭裁员。 知情人士称，谷歌旗下顶级安全部门之一、定期发布黑客研究报告的威胁情报小组（Threat Intelligence Group）昨日也受到影响。一些员工已在LinkedIn上发文谈及裁员情况。 他们补充称，此次裁员并不限于该部门，还波及谷歌2022年收购的网络安全公司Mandiant以及Google
 
 ## 正文
 
-分析师在路透的一项调查中表示，尽管日经指数的迅猛上涨速度令预测人士难以跟上，但在人工智能热潮和强劲的企业盈利驱动下，日经指数将继续创下历史新高。
+两名知情人士对媒体表示，过去两周在Google Cloud任职的员工已遭裁员。
 
-在日经225指数于周一创下65，408.87点的历史高点后，路透调查的预测中值显示，分析师预计该指数到明年年底将升至69，000点，改写新高纪录。
+知情人士称，谷歌旗下顶级安全部门之一、定期发布黑客研究报告的威胁情报小组（Threat Intelligence Group）昨日也受到影响。
 
-日经指数周二收盘报64，996.09点。
+一些员工已在LinkedIn上发文谈及裁员情况。
 
-野村证券宏观研究主管Yunosuke Ikeda对股市看涨，但日经指数的上涨速度已超出其预期——他此前原预测该指数到12月将达到63，000点，一年后达到65，000点。
+他们补充称，此次裁员并不限于该部门，还波及谷歌2022年收购的网络安全公司Mandiant以及Google Cloud内的其他团队。
 
-他表示，作为一名预测者，这轮涨势“实在太过迅猛，难以跟上”。
+尚不清楚具体有多少人受到影响，以及为何此时进行裁员。
 
-在回答一个附加问题的12位受访者中，有七人表示，与三个月前相比，他们对AI热潮推动股市表现的看法基本保持不变。
+其中一名知情人士表示，在某个案中，谷歌以有必要将资源重新投入人工智能等增长领域为由，为其裁员举措辩护。
 
-其余五人表示更加乐观。
+谷歌一名发言人表示，公司“会定期评估内部架构，以确保我们能以最佳状态应对客户与产业不断变化的需求”。
 
-与此同时，野村证券的Ikeda表示，对人工智能的乐观情绪，并非股市继续上涨的必要条件。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 14:59 - [恋与深空 731](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 15:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 15:14 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 15:08 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 15:19 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 15:15 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 15:19 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 15:23 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 15:17 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 15:13 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 15:01 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 15:02 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 15:07 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 15:06 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 15:20 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 15:08 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 15:26 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 15:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 15:28 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 15:05 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 15:00 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 15:05 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 15:11 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 15:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 15:27 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 15:22 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/5161999.shtml)
-- 2026-06-29 14:57 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/4904758.shtml)
-- 2026-06-29 14:56 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/14572150.shtml)
-- 2026-06-29 14:59 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/73503.shtml)
-- 2026-06-29 15:01 - [媒体人：警惕日本再次成战争加害国](http://www.share.kurohicncr.top/Article/details/62246065.shtml)
-- 2026-06-29 15:17 - [森保一：日本队要亲手改写历史](https://www.share.minike.top/Article/details/63040634702.shtml)
-- 2026-06-29 14:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/22020.shtml)
-- 2026-06-29 14:56 - [发反科学内容为何会有200万粉丝](https://www.share.kurohicncr.top/Article/details/626477494991.shtml)
-- 2026-06-29 15:06 - [网警提醒4类高考查分陷阱考生速看](https://www.share.minike.top/Article/details/183358017613.shtml)
-- 2026-06-29 14:58 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/454756.shtml)
-- 2026-06-29 14:56 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/62624506.shtml)
-- 2026-06-29 15:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/7752877.shtml)
-- 2026-06-29 15:00 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/9400084356.shtml)
-- 2026-06-29 15:02 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/938687.shtml)
-- 2026-06-29 15:05 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/139136.shtml)
+- 2026-06-29 15:04 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/35398.shtml)
+- 2026-06-29 15:13 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/3827042998.shtml)
+- 2026-06-29 15:27 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.blog.minike.top/Article/details/728237.shtml)
+- 2026-06-29 15:07 - [美人鱼](https://www.share.kurohicncr.top/Article/details/2016179033.shtml)
+- 2026-06-29 15:19 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/799369059.shtml)
+- 2026-06-29 15:03 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/088070.shtml)
+- 2026-06-29 15:01 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/861623.shtml)
+- 2026-06-29 15:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/621674.shtml)
+- 2026-06-29 15:01 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/392736.shtml)
+- 2026-06-29 15:08 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/9357371671.shtml)
+- 2026-06-29 15:22 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/33402937114.shtml)
+- 2026-06-29 15:05 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/85127110.shtml)
+- 2026-06-29 15:09 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/382831651.shtml)
+- 2026-06-29 15:01 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/28755693164.shtml)
+- 2026-06-29 15:18 - [3D打印不是工业革命，它是……](https://www.blog.minike.top/Article/details/58684.shtml)

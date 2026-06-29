@@ -1,56 +1,52 @@
-# 青海西宁：萌娃庆“六一”
+# 自6月4日24时起，国内汽、柴油价格每吨分别下调525元、505元
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-“纸面上的安全堡垒”难守“人命关天”的安全生产防线不到1个月，“巴铁”总统、总理为何先后访华？写出《给阿嬷的情书》的人们，怎么可能是“神秘渗透者”！龙卷风为何近期多发？遇到时该跑还是躲？避险指南收好"无证泡茶"被批量举报 消费维权与恶意索赔的边界在哪？运营商集体把Token价格打下来了，背后是一盘怎样的棋？被网暴女干部，这四段视频，让人泪目中新网评：安全生产 不能只靠“开会看监
+中新网6月4日电 据国家发改委网站消息，5月21日国内成品油价格调整以来，国际市场原油价格震荡下行后近日有所回升，本次调价的前10个工作日平均价格低于上次调价前10个工作日平均价格。根据国际市场油价变化情况，自6月4日24时起，国内汽、柴油(标准品)价格每吨分别下调525元、505元。 中石油、中石化、中海油公司及其他原油加工企业要组织好成品油生产和调运，确保市场稳定供应，严格
 
 ## 正文
 
-“纸面上的安全堡垒”难守“人命关天”的安全生产防线不到1个月，“巴铁”总统、总理为何先后访华？
+中新网6月4日电 据国家发改委网站消息，5月21日国内成品油价格调整以来，国际市场原油价格震荡下行后近日有所回升，本次调价的前10个工作日平均价格低于上次调价前10个工作日平均价格。
 
-写出《给阿嬷的情书》的人们，怎么可能是“神秘渗透者”！
+根据国际市场油价变化情况，自6月4日24时起，国内汽、柴油(标准品)价格每吨分别下调525元、505元。
 
-龙卷风为何近期多发？
+中石油、中石化、中海油公司及其他原油加工企业要组织好成品油生产和调运，确保市场稳定供应，严格执行国家价格政策。
 
-遇到时该跑还是躲？
+各地相关部门要加大市场监督检查力度，严厉查处不执行国家价格政策的行为，维护正常市场秩序。
 
-避险指南收好"无证泡茶"被批量举报 消费维权与恶意索赔的边界在哪？
+消费者可通过12315平台举报价格违法行为。
 
-运营商集体把Token价格打下来了，背后是一盘怎样的棋？
-
-被网暴女干部，这四段视频，让人泪目中新网评：安全生产 不能只靠“开会看监控”为何今年暴雨来得又早又强？
-
-气象专家详解紧急提醒！
+附：各省(区、市)和中心城市汽、柴油最高零售价格
 
 ## 相关推荐
 
-- 2026-06-29 15:12 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 15:04 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 15:15 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 15:00 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 15:18 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 15:18 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 15:08 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 15:10 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 14:54 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 14:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 15:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 15:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 15:04 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 15:14 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 15:07 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 15:08 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 15:05 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 15:13 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 15:11 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 15:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:02 - [千与千寻](https://www.blog.minike.top/Article/details/848945795.shtml)
-- 2026-06-29 15:01 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/51402.shtml)
-- 2026-06-29 15:07 - [撒旦的腋窝是什么比喻](http://www.share.kurohicncr.top/Article/details/49228046655.shtml)
-- 2026-06-29 15:16 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/525165888.shtml)
-- 2026-06-29 15:11 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/934952526.shtml)
-- 2026-06-29 15:11 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/06576.shtml)
-- 2026-06-29 15:20 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/122937746438.shtml)
-- 2026-06-29 14:59 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/22680340686.shtml)
-- 2026-06-29 15:12 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/81347602691.shtml)
-- 2026-06-29 15:12 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/30778.shtml)
-- 2026-06-29 15:19 - [众星恭喜吴建豪](https://www.share.kurohicncr.top/Article/details/5905088334.shtml)
-- 2026-06-29 15:23 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/239174002810.shtml)
-- 2026-06-29 15:04 - [金价银价下跌 油价上涨](http://www.blog.minike.top/Article/details/20833596485.shtml)
-- 2026-06-29 15:20 - [教育部发布高考志愿填报预警](http://www.blog.minike.top/Article/details/6846447041.shtml)
-- 2026-06-29 15:20 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/6193137385.shtml)
+- 2026-06-29 15:16 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/865064.shtml)
+- 2026-06-29 15:28 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/159817.shtml)
+- 2026-06-29 15:21 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/6236758826.shtml)
+- 2026-06-29 15:22 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/30161.shtml)
+- 2026-06-29 15:29 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/55949236710.shtml)
+- 2026-06-29 15:11 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/6718636577.shtml)
+- 2026-06-29 15:11 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/4506505859.shtml)
+- 2026-06-29 15:06 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/624901422811.shtml)
+- 2026-06-29 15:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/56787810.shtml)
+- 2026-06-29 15:04 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/523614220.shtml)
+- 2026-06-29 15:08 - [女心理师](http://www.share.kurohicncr.top/Article/details/5608667786.shtml)
+- 2026-06-29 15:01 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/3828949.shtml)
+- 2026-06-29 15:02 - [Canna纳尔8-0对位单杀Doran](http://www.blog.minike.top/Article/details/646063728.shtml)
+- 2026-06-29 15:16 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/699718.shtml)
+- 2026-06-29 15:05 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/538995.shtml)

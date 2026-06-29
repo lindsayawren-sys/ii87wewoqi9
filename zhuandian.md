@@ -1,59 +1,53 @@
-# 每天该吃多少膳食纤维？专家给出标准量
+# 郑州银行：上调关联方授信额度 新增河南资管45亿元授信额度
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-健康中国丨每天该吃多少膳食纤维？专家给出标准量 膳食纤维是人体不可缺少的物质，不仅能够促进肠道蠕动、滋养肠道有益菌，还能缩短有害物质在肠道的停留时间，降低肠癌风险。每天摄入多少膳食纤维最健康？ 成人每天推荐摄入25-30克膳食纤维 北京大学肿瘤医院胃肠肿瘤中心主任医师陕飞介绍，成人每天推荐摄入25-30克膳食纤维。水果每天别超过500克，既可以摄取足够的膳食纤维，又避免摄入过多
+6月4日金融一线消息，郑州银行发布公告，该行董事会审议通过调整2026年度日常关联交易预计额度的议案，拟新增河南资产管理有限公司及其关联企业45亿元授信类业务额度。相关事项此前经独立董事专门会议全票审议通过，董事会审议时关联董事依规回避表决，本次调整额度将与原有年度关联交易额度方案合并，一并提交股东大会审议，届时相关关联股东也需回避投票。河南资产管理有限公司因受郑州银行股东所属
 
 ## 正文
 
-健康中国丨每天该吃多少膳食纤维？
+6月4日金融一线消息，郑州银行发布公告，该行董事会审议通过调整2026年度日常关联交易预计额度的议案，拟新增河南资产管理有限公司及其关联企业45亿元授信类业务额度。
 
-专家给出标准量 膳食纤维是人体不可缺少的物质，不仅能够促进肠道蠕动、滋养肠道有益菌，还能缩短有害物质在肠道的停留时间，降低肠癌风险。
+相关事项此前经独立董事专门会议全票审议通过，董事会审议时关联董事依规回避表决，本次调整额度将与原有年度关联交易额度方案合并，一并提交股东大会审议，届时相关关联股东也需回避投票。
 
-每天摄入多少膳食纤维最健康？
+河南资产管理有限公司因受郑州银行股东所属集团管控被认定为关联方，本次授信额度仅为年度交易预估上限，不代表实质授信承诺，实际业务落地以银行审批批复为准。
 
-成人每天推荐摄入25-30克膳食纤维 北京大学肿瘤医院胃肠肿瘤中心主任医师陕飞介绍，成人每天推荐摄入25-30克膳食纤维。
+本次关联交易遵循市场化公允定价，交易条件不优于非关联客户，属于银行常规经营业务，相关业务落地不会对郑州银行经营与股东权益产生不利影响。
 
-水果每天别超过500克，既可以摄取足够的膳食纤维，又避免摄入过多糖。
-
-杂粮每天150-250克，做杂粮饭的话，杂粮别超过一半。
-
-菌菇类每天50-100克。
-
-蔬菜也控制在500克左右。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 15:13 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 15:01 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 15:18 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 15:15 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 15:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 15:16 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 15:19 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 15:16 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 15:10 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 15:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 14:56 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 15:04 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 15:19 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 15:10 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 15:27 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 15:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 15:13 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 15:20 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 15:01 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 15:18 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 15:28 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 15:07 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 15:21 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 15:11 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 15:22 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 15:25 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:59 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/334972.shtml)
-- 2026-06-29 14:57 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/1553626153.shtml)
-- 2026-06-29 15:05 - [时光音乐会](http://www.share.minike.top/Article/details/8226785038.shtml)
-- 2026-06-29 15:08 - [斛珠夫人](https://www.share.minike.top/Article/details/722475323079.shtml)
-- 2026-06-29 15:01 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/914645.shtml)
-- 2026-06-29 15:20 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/865287937924.shtml)
-- 2026-06-29 15:03 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.minike.top/Article/details/02123256.shtml)
-- 2026-06-29 15:14 - [东部机场集团新增釜山航线](https://www.share.minike.top/Article/details/04740211368.shtml)
-- 2026-06-29 14:55 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/3862821.shtml)
-- 2026-06-29 15:05 - [詹俊预测德国大胜巴拉圭](http://www.blog.kurohicncr.top/Article/details/200461248.shtml)
-- 2026-06-29 15:23 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/5382679980.shtml)
-- 2026-06-29 15:02 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/366093074.shtml)
-- 2026-06-29 14:58 - [Canna纳尔8-0对位单杀Doran](http://www.blog.minike.top/Article/details/5219543596.shtml)
-- 2026-06-29 15:19 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/754447.shtml)
-- 2026-06-29 14:55 - [这一刀 会很帅](https://www.share.minike.top/Article/details/539922.shtml)
+- 2026-06-29 15:20 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/62322.shtml)
+- 2026-06-29 15:05 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/9241133.shtml)
+- 2026-06-29 15:13 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/452588716087.shtml)
+- 2026-06-29 15:15 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/3233590968.shtml)
+- 2026-06-29 15:11 - [爸爸当家](http://www.blog.minike.top/Article/details/2767259.shtml)
+- 2026-06-29 15:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/432305.shtml)
+- 2026-06-29 15:08 - [市民骑哈啰单车79分钟被收费30元](https://www.share.kurohicncr.top/Article/details/2798972.shtml)
+- 2026-06-29 15:18 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/934685198.shtml)
+- 2026-06-29 15:29 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/005870519.shtml)
+- 2026-06-29 15:03 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/443457.shtml)
+- 2026-06-29 15:06 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/37368488.shtml)
+- 2026-06-29 15:20 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/1824498154.shtml)
+- 2026-06-29 15:24 - [送你一朵小红花](https://www.share.minike.top/Article/details/59922592415.shtml)
+- 2026-06-29 15:14 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/082060563.shtml)
+- 2026-06-29 15:04 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/34525404.shtml)

@@ -1,59 +1,59 @@
-# ATM机数量减少，金融服务永远不能降温
+# 2025年贵州全省法院共审结各类环境资源一审案件3270件
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-原标题：ATM机少了服务不能少 “你多久没用过ATM机了？”当把这个问题抛给身边的年轻朋友时，得到的答案大多是“好几年”或是“记不清了”。中国人民银行近期发布的2026年第一季度支付体系运行总体情况正印证了这一趋势：截至一季度末，全国ATM机具数量已降至72.58万台，较2025年四季度末减少了1.99万台，较2018年三季度末的历史峰值减少了40.28万台。 曾经，一个个银灰
+中新网贵阳6月5日电 (记者 张伟)贵州省高级人民法院5日召开新闻发布会，对外通报2025年贵州法院环境资源审判工作的总体情况，并发布2025年度贵州环境资源审判绿皮书和贵州法院2025年度环境资源审判典型案例。 记者会上获悉，2025年，贵州全省法院共审结各类环境资源一审案件3270件，包含刑事案件539件、民事案件787件、行政案件1944件。其中，不同主体提起的环境公益诉
 
 ## 正文
 
-原标题：ATM机少了服务不能少 “你多久没用过ATM机了？
+中新网贵阳6月5日电 (记者 张伟)贵州省高级人民法院5日召开新闻发布会，对外通报2025年贵州法院环境资源审判工作的总体情况，并发布2025年度贵州环境资源审判绿皮书和贵州法院2025年度环境资源审判典型案例。
 
-”当把这个问题抛给身边的年轻朋友时，得到的答案大多是“好几年”或是“记不清了”。
+记者会上获悉，2025年，贵州全省法院共审结各类环境资源一审案件3270件，包含刑事案件539件、民事案件787件、行政案件1944件。
 
-中国人民银行近期发布的2026年第一季度支付体系运行总体情况正印证了这一趋势：截至一季度末，全国ATM机具数量已降至72.58万台，较2025年四季度末减少了1.99万台，较2018年三季度末的历史峰值减少了40.28万台。
+其中，不同主体提起的环境公益诉讼案件70件、生态环境损害赔偿诉讼22件。
 
-曾经，一个个银灰色的金属柜体是城市街头最温暖的金融符号。
+2025年受理的环境资源一审案件数量较2024年增长1.8%。
 
-24小时不打烊的服务，让“银行下班了”不再是难题。
+贵州全省法院统筹发挥刑事惩戒、民事救济、行政监督、公益诉讼修复协同职能，构建全方位、多层次环境资源司法保护格局。
 
-在移动支付尚未普及的年代，ATM机不仅是存取款的工具，更是无数人出门在外的安全感来源。
+贵州全省法院紧紧围绕生态安全、绿色发展、美丽中国建设大局履职尽责，通过“服务保障人与自然和谐共生的现代化”“服务保障绿色低碳发展”“持续打好污染防治攻坚战”等举措，服务保障高质量发展。
 
-如今，随着扫码支付成为常态，曾经排队取款的热闹场景一去不返，许多ATM机前冷冷清清，甚至成了摆设。
+在服务保障绿色低碳发展方面，2025年，贵州全省法院审结包含碳排放权交易、碳汇认购、核证自愿减排量、碳信用等民事行政案件11件。
 
-ATM机的“退场”，是技术进步与时代发展的结果。
+贵州高院与广东高院签署司法碳汇跨省合作协议，构建跨省认购碳汇替代性修复机制。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 14:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 15:09 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 14:56 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 15:16 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 15:07 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 15:15 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 15:03 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 15:12 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 15:04 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 14:56 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 15:15 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 15:23 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 15:14 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 15:05 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 15:08 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 15:06 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 15:22 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 15:23 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 15:04 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 15:12 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 15:00 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 15:10 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 15:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 15:11 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 15:17 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:05 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/295029780.shtml)
-- 2026-06-29 15:04 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/69979.shtml)
-- 2026-06-29 15:06 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/5735420.shtml)
-- 2026-06-29 15:20 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/330476.shtml)
-- 2026-06-29 15:00 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/2973819332.shtml)
-- 2026-06-29 15:08 - [四川宜宾地震](http://www.share.minike.top/Article/details/3274652487.shtml)
-- 2026-06-29 15:00 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/35496530723.shtml)
-- 2026-06-29 15:07 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/4474388.shtml)
-- 2026-06-29 15:16 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/636938390910.shtml)
-- 2026-06-29 15:08 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/4104630.shtml)
-- 2026-06-29 15:09 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/76289692477.shtml)
-- 2026-06-29 15:22 - [实习期把公司领导开除了](http://www.share.minike.top/Article/details/7286692.shtml)
-- 2026-06-29 15:16 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/5464036292.shtml)
-- 2026-06-29 15:02 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/31648332086.shtml)
-- 2026-06-29 14:57 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/7004500485.shtml)
+- 2026-06-29 15:21 - [李在明称韩国足协任命了无能之人](https://www.blog.kurohicncr.top/Article/details/347063870856.shtml)
+- 2026-06-29 15:12 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/51194.shtml)
+- 2026-06-29 15:04 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/028469663.shtml)
+- 2026-06-29 15:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/952142267374.shtml)
+- 2026-06-29 15:27 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/09245483.shtml)
+- 2026-06-29 15:15 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.minike.top/Article/details/75414472.shtml)
+- 2026-06-29 15:16 - [市民骑哈啰单车79分钟付30元](http://www.blog.minike.top/Article/details/42552493775.shtml)
+- 2026-06-29 15:20 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/98428216409.shtml)
+- 2026-06-29 15:29 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/404698240166.shtml)
+- 2026-06-29 15:23 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.kurohicncr.top/Article/details/36997.shtml)
+- 2026-06-29 15:24 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/6366733291.shtml)
+- 2026-06-29 15:21 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/535736998484.shtml)
+- 2026-06-29 15:09 - [国家体育总局政策法规司原副司长获刑](http://www.blog.kurohicncr.top/Article/details/1797132.shtml)
+- 2026-06-29 15:04 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/49809004987.shtml)
+- 2026-06-29 15:09 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/06492081.shtml)

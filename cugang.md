@@ -1,56 +1,45 @@
-# （台海观澜）廿载守望 在福建泉州读懂“闽台缘”
+# 6月5日央行开展2150亿元7天期逆回购操作
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新社泉州5月27日电 题：廿载守望 在福建泉州读懂“闽台缘” 中新社记者 孙虹 “台胞捐赠的藏品涵盖宗教造像、陶瓷器皿、名人手稿、古籍文献、谱牒家书等多个品类。”中国唯一一座以反映大陆与台湾历史关系为主题的国家一级博物馆——中国闽台缘博物馆馆长郑国防向中新社记者介绍，这些藏品见证了两岸同胞同心共绘闽台缘的深厚情谊。 2006年5月27日，坐落于福建泉州的中国闽台缘博物馆正式对
+中新网6月5日电 据央行网站消息，2026年6月5日中国人民银行以固定利率、数量招标方式开展了2150亿元7天期逆回购操作，全额满足了一级交易商需求。具体情况如下：
 
 ## 正文
 
-中新社泉州5月27日电 题：廿载守望 在福建泉州读懂“闽台缘” 中新社记者 孙虹 “台胞捐赠的藏品涵盖宗教造像、陶瓷器皿、名人手稿、古籍文献、谱牒家书等多个品类。
+中新网6月5日电 据央行网站消息，2026年6月5日中国人民银行以固定利率、数量招标方式开展了2150亿元7天期逆回购操作，全额满足了一级交易商需求。
 
-”中国唯一一座以反映大陆与台湾历史关系为主题的国家一级博物馆——中国闽台缘博物馆馆长郑国防向中新社记者介绍，这些藏品见证了两岸同胞同心共绘闽台缘的深厚情谊。
-
-2006年5月27日，坐落于福建泉州的中国闽台缘博物馆正式对外开放。
-
-20年来，该馆通过各种方式充实文物藏品24560件、馆藏谱牒11456册、两岸家书9649件/套，其中40%的藏品为台胞捐赠；累计接待观众逾1770万人次，其中台胞逾103.8万人次。
-
-“闽台缘”不只体现在馆名，更分布在馆里的各个角落。
-
-郑国防说，馆内收藏着数不尽的两岸故事，见证了300多个两岸家族的团圆、数千位游子的笑与泪。
-
-志愿讲解员黄芳萍还记得，2019年7月自己第一次正式上岗讲解，接待的是一个台湾进香团。
-
-当她用闽南语说出“大家好”时，全团长辈们突然安静下来，有人眼眶泛红。
+具体情况如下：
 
 ## 相关推荐
 
-- 2026-06-29 15:18 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 15:08 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 14:59 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 15:07 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 15:14 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 15:17 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 15:07 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 15:10 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 15:18 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 15:20 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 15:09 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 15:10 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 15:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 15:22 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 15:13 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 15:18 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 15:19 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 15:17 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 15:12 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 15:19 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 15:17 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:54 - [5万块的威力](http://www.share.minike.top/Article/details/9487237.shtml)
-- 2026-06-29 15:09 - [送你一朵小红花](http://www.share.minike.top/Article/details/034219.shtml)
-- 2026-06-29 15:02 - [人民日报评“AI脸看腻了”](https://www.blog.kurohicncr.top/Article/details/4449429044.shtml)
-- 2026-06-29 15:21 - [美国近12万名科技员工被解雇](http://www.share.minike.top/Article/details/767296.shtml)
-- 2026-06-29 15:16 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/398177081.shtml)
-- 2026-06-29 15:18 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/5699238.shtml)
-- 2026-06-29 14:57 - [王楚钦3-0周启豪 晋级32强](https://www.share.kurohicncr.top/Article/details/9650009686.shtml)
-- 2026-06-29 15:21 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/245197166372.shtml)
-- 2026-06-29 15:18 - [王楚钦3-0周启豪 晋级32强](http://www.blog.kurohicncr.top/Article/details/240344686298.shtml)
-- 2026-06-29 15:17 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/40245.shtml)
-- 2026-06-29 15:13 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/182631.shtml)
-- 2026-06-29 15:21 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/3524506153.shtml)
-- 2026-06-29 15:11 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/479067965438.shtml)
-- 2026-06-29 14:57 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/2446822.shtml)
-- 2026-06-29 14:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/286268340.shtml)
+- 2026-06-29 15:24 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/2202824.shtml)
+- 2026-06-29 15:03 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/86691.shtml)
+- 2026-06-29 15:05 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/8688627.shtml)
+- 2026-06-29 15:27 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/122068993713.shtml)
+- 2026-06-29 15:27 - [和阿根廷球员家属一起看球](https://www.share.minike.top/Article/details/325499542.shtml)
+- 2026-06-29 15:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/599996493.shtml)
+- 2026-06-29 15:11 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/79675495624.shtml)
+- 2026-06-29 15:15 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/86321606995.shtml)
+- 2026-06-29 15:22 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/599299.shtml)
+- 2026-06-29 15:15 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/938460750.shtml)
+- 2026-06-29 15:24 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/51705695607.shtml)
+- 2026-06-29 15:08 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/13906.shtml)
+- 2026-06-29 15:11 - [AG 钟意](http://www.blog.minike.top/Article/details/0249626.shtml)
+- 2026-06-29 15:04 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/9726905.shtml)
+- 2026-06-29 15:29 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/3006011.shtml)

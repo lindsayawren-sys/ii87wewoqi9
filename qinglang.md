@@ -1,55 +1,61 @@
-# 四川省住房和城乡建设厅原党组成员、副厅长何洪波被双开
+# 揭开网上彩票店“吃票”黑幕：投注5万元却未收到一张彩票
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网成都5月25日电 (记者 张浪)四川省纪委监委25日消息：日前，经四川省委批准，四川省纪委监委对四川省住房和城乡建设厅原党组成员、副厅长何洪波严重违纪违法问题进行了立案审查调查。 经查，何洪波理想信念丧失，纪法意识淡薄，对党不忠诚不老实，投机取巧，表里不一，说一套、做一套，落实党中央全面从严治党重大决策部署停留在喊口号，千方百计逃避组织审查；无视中央八项规定精神，违规接受
+制造“专业指导”人设诱导彩民网络购彩，暗中截留巨额投注资金 揭开网上彩票店“吃票”黑幕 ◆市民小张在网上一家彩票店以充值兑换积分的方式累计投注足球竞彩类彩票5万余元，却从未收到过一张实体彩票。 ◆涉案犯罪团伙的核心牟利手段是“吃票”：仅对当日最高下注订单真实出票，其余投注资金全部截留，钱款直接流入团伙账户。◆涉案网上彩票店完整复刻了官方体彩的所有玩法、赛事规则与开奖机制，极具迷
 
 ## 正文
 
-中新网成都5月25日电 (记者 张浪)四川省纪委监委25日消息：日前，经四川省委批准，四川省纪委监委对四川省住房和城乡建设厅原党组成员、副厅长何洪波严重违纪违法问题进行了立案审查调查。
+制造“专业指导”人设诱导彩民网络购彩，暗中截留巨额投注资金 揭开网上彩票店“吃票”黑幕 ◆市民小张在网上一家彩票店以充值兑换积分的方式累计投注足球竞彩类彩票5万余元，却从未收到过一张实体彩票。
 
-经查，何洪波理想信念丧失，纪法意识淡薄，对党不忠诚不老实，投机取巧，表里不一，说一套、做一套，落实党中央全面从严治党重大决策部署停留在喊口号，千方百计逃避组织审查；无视中央八项规定精神，违规接受旅游活动安排，违规赠送礼金；违反组织原则，利用职权为他人谋取人事利益，隐瞒不报个人有关事项，在组织函询时不如实说明问题；既想当官，又想发财，长期收受红包礼金，利用职权为亲属谋取私利；违反规定随意干预市场经济活动；私德不修；将党和人民赋予的权力当作攫取利益的工具，利用职务上的便利为他人谋取利益，并收受财物，数额特别巨大。
+◆涉案犯罪团伙的核心牟利手段是“吃票”：仅对当日最高下注订单真实出票，其余投注资金全部截留，钱款直接流入团伙账户。
 
-何洪波严重违反党的政治纪律、组织纪律、廉洁纪律、工作纪律、生活纪律和国家法律法规，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+◆涉案网上彩票店完整复刻了官方体彩的所有玩法、赛事规则与开奖机制，极具迷惑性。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经四川省纪委常委会会议研究并报四川省委批准，决定给予何洪波开除党籍处分；由四川省监委给予其开除公职处分；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+侦查机关向部分彩民询问取证时，不少彩民仍坚信自己是从官方购买的真实彩票。
 
-(完)
+一张只有照片、没有实物的彩票，牵出两个非法售彩犯罪团伙。
+
+看似正规的线上购彩渠道，背后暗藏不法分子精心布设的“吃票”陷阱，犯罪团伙通过收到购彩款后不出票、少出票、一票多卖等手段昧下彩民资金。
+
+投注5万元却未收到一张彩票 2024年10月，湖北省荆门市公安局高新区·掇刀区分局在核查一条涉赌线索时得知，市民小张在某App上一家名为“华中第一店”的网上彩票店，以充值兑换积分的方式累计投注足球竞彩类彩票5万余元，却从未收到过一张实体彩票，客服仅向小张提供遮挡了票号的彩票照片。
+
+“正规体彩必须出具实体票，‘有图无票’意味着投注金很可能没进官方系统。
 
 ## 相关推荐
 
-- 2026-06-29 14:58 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 15:19 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 15:09 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 14:58 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 15:02 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 14:59 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 15:05 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 15:02 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 14:55 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 15:02 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 14:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 15:01 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 15:08 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 15:08 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 14:57 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 15:17 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 15:27 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 15:11 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 15:02 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 15:03 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 15:17 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 15:06 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 15:14 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 15:00 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 15:11 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 15:02 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 15:13 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 15:21 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 15:07 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 15:01 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:03 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.minike.top/Article/details/159551.shtml)
-- 2026-06-29 15:14 - [以前不让妆女二可以艳压女主](http://www.share.kurohicncr.top/Article/details/59522501311.shtml)
-- 2026-06-29 15:19 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/140441.shtml)
-- 2026-06-29 15:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/774023341.shtml)
-- 2026-06-29 15:12 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/3774119934.shtml)
-- 2026-06-29 15:05 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.kurohicncr.top/Article/details/31809971.shtml)
-- 2026-06-29 15:14 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/44578627764.shtml)
-- 2026-06-29 14:56 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/327939.shtml)
-- 2026-06-29 15:16 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/390606727.shtml)
-- 2026-06-29 15:14 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/638145547.shtml)
-- 2026-06-29 15:13 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/881709.shtml)
-- 2026-06-29 14:56 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/125351002294.shtml)
-- 2026-06-29 15:04 - [一见倾心](https://www.share.minike.top/Article/details/822266015700.shtml)
-- 2026-06-29 15:15 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/66171818762.shtml)
-- 2026-06-29 15:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/80411.shtml)
+- 2026-06-29 15:17 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/25200.shtml)
+- 2026-06-29 15:17 - [AG 钟意](https://www.blog.kurohicncr.top/Article/details/96652919797.shtml)
+- 2026-06-29 15:13 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/770528.shtml)
+- 2026-06-29 15:26 - [首尔商铺禁止洪明甫入内](http://www.blog.kurohicncr.top/Article/details/256171186.shtml)
+- 2026-06-29 15:16 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/340550.shtml)
+- 2026-06-29 15:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/33531818044.shtml)
+- 2026-06-29 15:20 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/666524860543.shtml)
+- 2026-06-29 15:13 - [比亚迪市值为何蒸发8000亿](http://www.blog.kurohicncr.top/Article/details/571028092875.shtml)
+- 2026-06-29 15:15 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.minike.top/Article/details/58332.shtml)
+- 2026-06-29 15:17 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/90435.shtml)
+- 2026-06-29 15:07 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/31692985.shtml)
+- 2026-06-29 15:03 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/1095940228.shtml)
+- 2026-06-29 15:16 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/609203797419.shtml)
+- 2026-06-29 15:04 - [TOP 无畏契约](https://www.blog.kurohicncr.top/Article/details/250265.shtml)
+- 2026-06-29 15:13 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.minike.top/Article/details/72870680559.shtml)

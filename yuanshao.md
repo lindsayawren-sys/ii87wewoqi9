@@ -1,57 +1,61 @@
-# 突然！美国发动空袭！伊朗，开火！原油直线拉升
+# 30家广东阳江企业赴云南寻商机
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-美伊局势仍存在变数。 据新华社报道，美军中央司令部发言人25日说，美军当天对伊朗南部的导弹发射阵地和布雷艇发动“自卫性”空袭。作为回应，伊朗方面向阿曼湾的美国军舰开火。伊朗伊斯兰议会国家安全和外交政策委员会主席易卜拉欣·阿齐兹25日晚间警告称，“如果伊朗民族的敌人犯错，我们处于最高戒备状态的武装力量将会作出回应”。 市场层面，国际油价直线拉升，截至北京时间26日09：00，WT
+中新网昆明6月5日电 (罗婕)5日，2026年“广货行天下”夏季行动·昆明站——“广货行天下·阳礼进春城”展销活动在云南省昆明市举行，来自广东省阳江市的30家企业携五金刀剪、餐厨用品、水海产品等百余款特色好物入滇拓市。 此次活动为期三天，由阳江市委宣传部、市商务局主办，云南省广东商会支持。活动现场，30家企业通过线下展销、专场对接、直播带货等形式，集中呈现“中国刀剪之都”“中国
 
 ## 正文
 
-美伊局势仍存在变数。
+中新网昆明6月5日电 (罗婕)5日，2026年“广货行天下”夏季行动·昆明站——“广货行天下·阳礼进春城”展销活动在云南省昆明市举行，来自广东省阳江市的30家企业携五金刀剪、餐厨用品、水海产品等百余款特色好物入滇拓市。
 
-据新华社报道，美军中央司令部发言人25日说，美军当天对伊朗南部的导弹发射阵地和布雷艇发动“自卫性”空袭。
+此次活动为期三天，由阳江市委宣传部、市商务局主办，云南省广东商会支持。
 
-作为回应，伊朗方面向阿曼湾的美国军舰开火。
+活动现场，30家企业通过线下展销、专场对接、直播带货等形式，集中呈现“中国刀剪之都”“中国调味品之都”产业优势，深化粤滇产销对接、挖掘合作空间。
 
-伊朗伊斯兰议会国家安全和外交政策委员会主席易卜拉欣·阿齐兹25日晚间警告称，“如果伊朗民族的敌人犯错，我们处于最高戒备状态的武装力量将会作出回应”。
+开幕式上，广东省阳江市副市长郑伟珍表示，阳江与昆明虽山水相隔，但同属泛珠三角区域合作重要成员，两地人缘相亲、产业互补。
 
-市场层面，国际油价直线拉升，截至北京时间26日09：00，WTI原油期货涨1.62%，布伦特原油期货涨1.85%。
+阳江拥有产品、技术和产能优势，昆明则具备市场、通道与口岸优势，合作空间广阔。
 
-贵金属市场则小幅跳水，现货白银跌超1%，现货黄金跌0.5%。
+据介绍，阳江是粤港澳大湾区重要战略支点城市，其刀剪产能与出口量位居全国前列，汇聚多家调味品产业头部品牌，更有春砂仁、程村蚝、阳江豆豉等国家地理标志产品。
 
-韩国股市假期复市后大幅走强，韩国KOSPI涨超3%，续创历史新高；SK海力士大涨超7%；日本股市一度跳水，日经225指数一度跌近1%，现跌0.15%。
+此次以展促销、以会兴业，旨在依托云南建设面向南亚东南亚辐射中心的区位优势，让阳江好物从“粤西腹地”走向全国、畅销世界。
 
-美国发动“自卫性”空袭 据新华社报道，美军中央司令部发言人25日说，美军当天对伊朗南部的导弹发射阵地和布雷艇发动“自卫性”空袭。
+云南省广东商会会长蔡俊丰介绍，商会扎根云岭二十余载，致力于搭建滇粤经贸合作桥梁。
 
 ## 相关推荐
 
-- 2026-06-29 14:55 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 14:56 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 15:10 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 15:08 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 15:10 - [世界杯用球成部分门将噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 15:19 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 15:23 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 15:02 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 14:59 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 15:15 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 15:08 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 15:25 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 15:27 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 15:03 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 15:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 15:16 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 15:00 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 15:07 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 15:17 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 15:21 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 15:25 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 15:18 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 15:05 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 15:06 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 15:26 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 15:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:09 - [恋与深空评分暴跌至1.8](http://www.blog.kurohicncr.top/Article/details/141746.shtml)
-- 2026-06-29 14:56 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/404929738.shtml)
-- 2026-06-29 14:54 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/0550148.shtml)
-- 2026-06-29 14:56 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/39152827757.shtml)
-- 2026-06-29 15:04 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/764766037840.shtml)
-- 2026-06-29 14:55 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/596764376.shtml)
-- 2026-06-29 15:15 - [海军舰艇编队将赴香港](http://www.share.minike.top/Article/details/6038502.shtml)
-- 2026-06-29 15:01 - [市民骑哈啰单车79分钟付30元](https://www.share.kurohicncr.top/Article/details/84998013856.shtml)
-- 2026-06-29 14:59 - [T1 vs KC MSI](https://www.share.minike.top/Article/details/190249.shtml)
-- 2026-06-29 15:18 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/564907.shtml)
-- 2026-06-29 15:05 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/087797805.shtml)
-- 2026-06-29 15:01 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/2750452.shtml)
-- 2026-06-29 15:19 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/643669.shtml)
-- 2026-06-29 15:20 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/250640.shtml)
-- 2026-06-29 14:54 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/45781.shtml)
+- 2026-06-29 15:06 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/773979.shtml)
+- 2026-06-29 15:07 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/3675761.shtml)
+- 2026-06-29 15:01 - [链博会上的机器人太全能了](http://www.blog.kurohicncr.top/Article/details/7304840.shtml)
+- 2026-06-29 15:20 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/384467505075.shtml)
+- 2026-06-29 15:09 - [TOP 无畏契约](https://www.share.kurohicncr.top/Article/details/385900.shtml)
+- 2026-06-29 15:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/25273271058.shtml)
+- 2026-06-29 15:04 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/048829833.shtml)
+- 2026-06-29 15:18 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/074283395431.shtml)
+- 2026-06-29 15:03 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/548008190912.shtml)
+- 2026-06-29 15:08 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/4783322284.shtml)
+- 2026-06-29 15:14 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/315879.shtml)
+- 2026-06-29 15:26 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/98287459325.shtml)
+- 2026-06-29 15:12 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/29570.shtml)
+- 2026-06-29 15:04 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/42593964.shtml)
+- 2026-06-29 15:13 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/832075861.shtml)

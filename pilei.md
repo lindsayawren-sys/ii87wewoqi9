@@ -1,52 +1,46 @@
-# 马正勇任四川省副省长
+# 卓易信息：2026年6月23日召开2026年第一次临时股东会
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新社成都5月27日电 (单鹏)四川省十四届人大常委会第二十七次会议第二次全体会议27日通过人事任免案，决定任命马正勇为四川省副省长。 公开资料显示，马正勇，男，汉族，1973年1月生，在职研究生，中共党员。 马正勇长期在广东省工作，曾任广州市科技创新委员会党组书记、主任，广州市海珠区委书记，清远市委副书记、市长；2021年7月起在梅州市任职，历任市委副书记、市长、市委书记、市
+证券日报网讯 6月5日，卓易信息发布公告称，公司将于2026年6月23日召开2026年第一次临时股东会。（文章来源：证券日报）
 
 ## 正文
 
-中新社成都5月27日电 (单鹏)四川省十四届人大常委会第二十七次会议第二次全体会议27日通过人事任免案，决定任命马正勇为四川省副省长。
+证券日报网讯 6月5日，卓易信息发布公告称，公司将于2026年6月23日召开2026年第一次临时股东会。
 
-公开资料显示，马正勇，男，汉族，1973年1月生，在职研究生，中共党员。
-
-马正勇长期在广东省工作，曾任广州市科技创新委员会党组书记、主任，广州市海珠区委书记，清远市委副书记、市长；2021年7月起在梅州市任职，历任市委副书记、市长、市委书记、市人大常委会主任。
-
-2025年4月，马正勇任广东省副省长、党组成员，并继续兼任梅州市委书记，至近期履新四川。
-
-(完)
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 15:08 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 15:21 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 15:21 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 15:09 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 14:58 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 15:21 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 15:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 15:20 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 15:14 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 15:15 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 14:55 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 15:02 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 15:12 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 15:09 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 15:20 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 15:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 15:08 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 15:08 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 15:10 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 15:14 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 15:18 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 15:20 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 15:07 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 15:29 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/9234431183.shtml)
-- 2026-06-29 14:56 - [一生一世](http://www.share.kurohicncr.top/Article/details/44974806.shtml)
-- 2026-06-29 15:11 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/1257587.shtml)
-- 2026-06-29 15:17 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/887055415.shtml)
-- 2026-06-29 15:02 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.minike.top/Article/details/3456685.shtml)
-- 2026-06-29 15:22 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/2927978.shtml)
-- 2026-06-29 14:58 - [以前不让妆女二可以艳压女主](http://www.blog.kurohicncr.top/Article/details/829668122.shtml)
-- 2026-06-29 15:16 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/4895370.shtml)
-- 2026-06-29 14:56 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/461706271.shtml)
-- 2026-06-29 15:22 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/49170123.shtml)
-- 2026-06-29 14:57 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/451900.shtml)
-- 2026-06-29 15:15 - [急先锋](https://www.share.kurohicncr.top/Article/details/772806673.shtml)
-- 2026-06-29 15:04 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/08234816.shtml)
-- 2026-06-29 15:03 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/658473354095.shtml)
-- 2026-06-29 15:05 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/851251.shtml)
+- 2026-06-29 15:12 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/37944288972.shtml)
+- 2026-06-29 15:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/0923700.shtml)
+- 2026-06-29 15:26 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/04238.shtml)
+- 2026-06-29 15:25 - [央视起底直播诈骗连环套](http://www.blog.minike.top/Article/details/016352986101.shtml)
+- 2026-06-29 15:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/57949357.shtml)
+- 2026-06-29 15:18 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/05332.shtml)
+- 2026-06-29 15:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/134029.shtml)
+- 2026-06-29 15:18 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/43593.shtml)
+- 2026-06-29 15:02 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/99493.shtml)
+- 2026-06-29 15:24 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/923516567.shtml)
+- 2026-06-29 15:22 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/78235252280.shtml)
+- 2026-06-29 15:19 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/542094357139.shtml)
+- 2026-06-29 15:06 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/7014181.shtml)
+- 2026-06-29 15:28 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/808784.shtml)
+- 2026-06-29 15:16 - [千与千寻](https://www.share.minike.top/Article/details/807118622892.shtml)

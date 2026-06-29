@@ -1,58 +1,47 @@
-# 美伊达成和平协议预期助推铝铜走强，铝价有望创四年新高
+# 财通基金：LOF大涨≠赚钱机会！基金投资者必知的溢价风险
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-来源：华尔街见闻 铝铜价格周二双双走高，铝价有望创下四年来最高收盘价，市场对美伊达成和平协议的谨慎乐观情绪提振了基本金属需求前景。 截至目前，伦敦金属交易所铜价上涨0.4%，报每吨13690美元；铝价上涨0.38%，报每吨3686美元，后者有望创下四年来最高收盘纪录。新加坡交易所铁矿石期货基本持平，报每吨105.10美元。 特朗普表示，与伊朗延长停火协议、重开霍尔木兹海峡的谈判
+专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 责任编辑：石秀珍 SF183
 
 ## 正文
 
-来源：华尔街见闻 铝铜价格周二双双走高，铝价有望创下四年来最高收盘价，市场对美伊达成和平协议的谨慎乐观情绪提振了基本金属需求前景。
+专题：515投资者保护！
 
-截至目前，伦敦金属交易所铜价上涨0.4%，报每吨13690美元；铝价上涨0.38%，报每吨3686美元，后者有望创下四年来最高收盘纪录。
-
-新加坡交易所铁矿石期货基本持平，报每吨105.10美元。
-
-特朗普表示，与伊朗延长停火协议、重开霍尔木兹海峡的谈判正在推进，但据央视新闻，美国国务卿鲁比奥26日表示，协议文本措辞敲定“还需数日”。
-
-尽管波斯湾地区近期再度出现船只及基础设施遭袭事件，停火态势自4月初以来总体维持。
-
-过去两周，随着美伊双方逐步靠近协议，金属价格持续攀升，市场对全球经济增长长期受压、进而拖累制造业金属需求的担忧有所缓解。
-
-铜价还额外受益于人工智能基础设施相关资产的投资热情。
-
-霍尔木兹海峡是全球重要的大宗商品运输通道，其通行受阻直接影响原材料供应预期。
+新浪财经2026年度投教案例评选结果公布 责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 15:07 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 14:56 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 14:55 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 15:05 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 15:08 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 15:07 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 15:04 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 15:09 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 15:11 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 14:54 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 14:55 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 14:55 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 15:09 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 15:05 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 15:14 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 15:00 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 15:09 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 15:03 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 15:10 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 15:04 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 15:21 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 15:26 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 15:12 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 15:16 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 15:19 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/7874283.shtml)
-- 2026-06-29 15:15 - [光与夜之恋](http://www.blog.kurohicncr.top/Article/details/22250497.shtml)
-- 2026-06-29 15:08 - [灿如繁星定档](http://www.blog.minike.top/Article/details/020272891.shtml)
-- 2026-06-29 14:58 - [众星恭喜吴建豪](http://www.blog.minike.top/Article/details/419371980342.shtml)
-- 2026-06-29 15:22 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/303454632965.shtml)
-- 2026-06-29 15:15 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.minike.top/Article/details/33503.shtml)
-- 2026-06-29 14:59 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/351806844.shtml)
-- 2026-06-29 15:14 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/1240152084.shtml)
-- 2026-06-29 15:00 - [欧洲人驾车200公里抢购中国空调](https://www.share.kurohicncr.top/Article/details/20810570.shtml)
-- 2026-06-29 15:08 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/5933378.shtml)
-- 2026-06-29 15:05 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/48509611.shtml)
-- 2026-06-29 15:10 - [逃狱兄弟](http://www.blog.minike.top/Article/details/951572912.shtml)
-- 2026-06-29 15:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/0544862.shtml)
-- 2026-06-29 15:13 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/64767.shtml)
-- 2026-06-29 15:10 - [河南考699分女生已接到清华大学电话](https://www.share.minike.top/Article/details/66091440096.shtml)
+- 2026-06-29 15:24 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.kurohicncr.top/Article/details/47606.shtml)
+- 2026-06-29 15:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/200094699.shtml)
+- 2026-06-29 15:26 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/9680472.shtml)
+- 2026-06-29 15:15 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/2303402397.shtml)
+- 2026-06-29 15:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/284013.shtml)
+- 2026-06-29 15:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/7533975.shtml)
+- 2026-06-29 15:23 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/7985849133.shtml)
+- 2026-06-29 15:10 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.share.kurohicncr.top/Article/details/63340.shtml)
+- 2026-06-29 15:15 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/20825353.shtml)
+- 2026-06-29 15:27 - [美的“卡bug”空调在欧洲卖爆](https://www.share.minike.top/Article/details/25629678.shtml)
+- 2026-06-29 15:16 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/91299660599.shtml)
+- 2026-06-29 15:09 - [美国近12万名科技员工被解雇](https://www.blog.minike.top/Article/details/45434739174.shtml)
+- 2026-06-29 15:12 - [一见倾心](https://www.blog.minike.top/Article/details/05313392.shtml)
+- 2026-06-29 15:12 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/931795471100.shtml)
+- 2026-06-29 15:18 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/50924366.shtml)

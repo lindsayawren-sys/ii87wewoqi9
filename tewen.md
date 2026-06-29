@@ -1,57 +1,61 @@
-# 中国产“预制房”热销海外
+# Meta押注AI健康赛道 重塑消费者战略
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新社广州5月27日电 (记者 许青青)中国产“预制房屋”正热销海外。据广州海关27日消息，今年前4月，广州海关关区企业出口活动房屋14亿元(人民币，下同)，同比增长38.1%。 活动房屋，俗称“预制房”，通过将房屋拆分为若干独立模块，在工厂内完成模块建筑、结构、机电、装修等专业一体化预制和验收，运输至现场完成拼装即可投入使用。相较于传统的房屋，活动房屋具有施工周期短、节能环保
+Meta Platforms首席人工智能官Alexandr Wang近日表示，消费者健康将成为公司未来AI模型的关键差异化方向。随着Meta计划将AI模型扩展至数十亿用户，健康管理领域被定位为“至关重要的应用场景”。 Wang周四透露，Meta旗下超级智能实验室推出的首个大型AI模型Muse Spark，其健康功能已成为最显著优势。尽管Wang坦承Muse Spark“尚未达到
 
 ## 正文
 
-中新社广州5月27日电 (记者 许青青)中国产“预制房屋”正热销海外。
+Meta Platforms首席人工智能官Alexandr Wang近日表示，消费者健康将成为公司未来AI模型的关键差异化方向。
 
-据广州海关27日消息，今年前4月，广州海关关区企业出口活动房屋14亿元(人民币，下同)，同比增长38.1%。
+随着Meta计划将AI模型扩展至数十亿用户，健康管理领域被定位为“至关重要的应用场景”。
 
-活动房屋，俗称“预制房”，通过将房屋拆分为若干独立模块，在工厂内完成模块建筑、结构、机电、装修等专业一体化预制和验收，运输至现场完成拼装即可投入使用。
+Wang周四透露，Meta旗下超级智能实验室推出的首个大型AI模型Muse Spark，其健康功能已成为最显著优势。
 
-相较于传统的房屋，活动房屋具有施工周期短、节能环保、适配性强等突出优势，受到海内外建筑行业青睐。
+尽管Wang坦承Muse Spark“尚未达到Anthropic的Claude和OpenAI的ChatGPT等领先前沿模型的水平”，但其表现已超出内部预期。
 
-广州海关所属肇庆海关近日监管一批销往中国香港地区、重约431吨的活动房屋，这是今年以来，肇庆海关监管出口的第79批活动房屋。
+现年29岁的Wang在加入Meta前是数据标注初创公司Scale AI的创始人。
 
-今年前4月，肇庆海关监管活动房屋出口2.6亿元。
+Meta首席执行官马克·扎克伯格此前对公司AI业务进行大规模重组，其中包括向Scale AI投资140亿美元，这笔交易被广泛视为吸引Wang加盟的关键举措。
 
-广东铝遊家科技有限公司物流经理冼金生介绍，该公司这批出口的活动房屋主要用于香港重大民生工程建造，产品运抵香港后当天即可完成安装，大幅缩短建设周期。
+Wang表示，Muse Spark在开发过程中暴露出较高的生物风险，Meta已在模型发布前采取措施降低这些风险，并因此决定不以开源方式发布该模型。
 
-今年前4月，该公司出口活动房屋货值达1.6亿元，出口货值已超去年全年。
+他强调，安全和隐私是公司的首要考量，因此选择内部控制模型的发布。
 
 ## 相关推荐
 
-- 2026-06-29 15:15 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-29 15:18 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 14:59 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 15:04 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 15:22 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 15:11 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 14:55 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 15:15 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 15:12 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 15:01 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 15:22 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 15:09 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 15:06 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 15:02 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 15:21 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 15:26 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 15:27 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 15:23 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 15:20 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 15:06 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 15:11 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 15:13 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 15:04 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 15:12 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 15:09 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 15:00 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/431589641.shtml)
-- 2026-06-29 15:13 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.kurohicncr.top/Article/details/4199666.shtml)
-- 2026-06-29 15:04 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/725950.shtml)
-- 2026-06-29 15:07 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/256632991401.shtml)
-- 2026-06-29 14:54 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/14608472861.shtml)
-- 2026-06-29 15:01 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/00935601549.shtml)
-- 2026-06-29 15:20 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/145333070301.shtml)
-- 2026-06-29 15:05 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/06011640.shtml)
-- 2026-06-29 15:08 - [给阿嬷的情书海外口碑](http://www.share.kurohicncr.top/Article/details/167898831490.shtml)
-- 2026-06-29 15:22 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/84969008940.shtml)
-- 2026-06-29 15:14 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/03780686046.shtml)
-- 2026-06-29 15:15 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/614141.shtml)
-- 2026-06-29 15:18 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/952572390429.shtml)
-- 2026-06-29 15:03 - [世界杯用球成部分门将噩梦](https://www.share.kurohicncr.top/Article/details/605892924366.shtml)
-- 2026-06-29 15:12 - [时光音乐会](http://www.share.minike.top/Article/details/89045588.shtml)
+- 2026-06-29 15:08 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/92822972015.shtml)
+- 2026-06-29 15:16 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/805275714957.shtml)
+- 2026-06-29 15:19 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/79836904.shtml)
+- 2026-06-29 15:21 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/7987876074.shtml)
+- 2026-06-29 15:06 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/48135152.shtml)
+- 2026-06-29 15:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/0678388301.shtml)
+- 2026-06-29 15:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/323210.shtml)
+- 2026-06-29 15:15 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/212167027.shtml)
+- 2026-06-29 15:03 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/21064.shtml)
+- 2026-06-29 15:22 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/73700832.shtml)
+- 2026-06-29 15:03 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/13639.shtml)
+- 2026-06-29 15:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/490689573.shtml)
+- 2026-06-29 15:26 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/1634726391.shtml)
+- 2026-06-29 15:27 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/9889791.shtml)
+- 2026-06-29 15:11 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/28445.shtml)

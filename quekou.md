@@ -1,50 +1,53 @@
-# 重庆市永川区暴雨灾害致9人死亡11人失联
+# 郑商所增设指定尿素交割厂库及提货点
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月25日 18:27 来源：中国新闻网 截至5月25日15时30分，重庆市永川区暴雨灾害导致9人死亡，11人失联。 5月23日夜间至24日凌晨，重庆市永川区突发瞬时极端特大暴雨引发山洪和地质灾害，导致辖区茶山竹海街道、中山路街道、双石镇等多地出现散点式灾情。 目前，救援处置工作正在全力开展。(记者 肖江川) 责任编辑：【罗攀】
+关于增设指定尿素交割厂库及提货点的公告 〔2026〕82号 根据企业申请，经研究决定，增设安徽泉盛化工有限公司为指定尿素交割厂库，增设成都云图控股股份有限公司指定尿素交割厂库提货点；自本公告发布之日起开展尿素期货业务。相关信息如下。 一、交割厂库具体信息 厂库名称：安徽泉盛化工有限公司 厂库简称：泉盛化工 厂库代码：2035 厂库地址：安徽省定远县炉桥镇盐化工业园区中能大道 联
 
 ## 正文
 
-发布时间：2026年05月25日 18:27 来源：中国新闻网 截至5月25日15时30分，重庆市永川区暴雨灾害导致9人死亡，11人失联。
+关于增设指定尿素交割厂库及提货点的公告 〔2026〕82号 根据企业申请，经研究决定，增设安徽泉盛化工有限公司为指定尿素交割厂库，增设成都云图控股股份有限公司指定尿素交割厂库提货点；自本公告发布之日起开展尿素期货业务。
 
-5月23日夜间至24日凌晨，重庆市永川区突发瞬时极端特大暴雨引发山洪和地质灾害，导致辖区茶山竹海街道、中山路街道、双石镇等多地出现散点式灾情。
+相关信息如下。
 
-目前，救援处置工作正在全力开展。
+一、交割厂库具体信息 厂库名称：安徽泉盛化工有限公司 厂库简称：泉盛化工 厂库代码：2035 厂库地址：安徽省定远县炉桥镇盐化工业园区中能大道 联 系 人：许聪 联系电话：17505506866 日最低发货量：1000吨/天 升 贴 水：0元/吨 二、交割提货点具体信息 成都云图控股股份有限公司的厂库简称、厂库代码、联系人保持不变。
 
-(记者 肖江川) 责任编辑：【罗攀】
+新增提货点：湖北省应城市城中办事处古盐大道以南、大智路以北（应城市新都化工有限责任公司），双方另有约定的除外。
+
+日最低发货量：1500吨/天 升 贴 水：0元/吨 特此公告。
+
+郑州商品交易所 2026年6月4日责任编辑：李铁民
 
 ## 相关推荐
 
-- 2026-06-29 14:55 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 15:10 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 15:14 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 15:02 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 15:20 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 15:15 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 15:12 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 15:08 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 15:05 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 14:55 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 15:10 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 14:55 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 15:01 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 15:04 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 15:29 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 15:08 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 15:07 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 15:23 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 15:23 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 15:24 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 15:21 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 15:18 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 15:12 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:55 - [我和我的家乡](http://www.blog.minike.top/Article/details/8937494.shtml)
-- 2026-06-29 15:10 - [媒体：网络测评不能只剩“生意”](https://www.blog.minike.top/Article/details/6352494899.shtml)
-- 2026-06-29 15:08 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/69907750.shtml)
-- 2026-06-29 14:58 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/43304080213.shtml)
-- 2026-06-29 15:01 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/32586.shtml)
-- 2026-06-29 15:13 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/462530.shtml)
-- 2026-06-29 15:20 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/617838560.shtml)
-- 2026-06-29 15:00 - [《贺子珍》](https://www.blog.minike.top/Article/details/26820269.shtml)
-- 2026-06-29 15:21 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/144202.shtml)
-- 2026-06-29 15:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/568229299.shtml)
-- 2026-06-29 14:59 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/06105745721.shtml)
-- 2026-06-29 14:54 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/25553046756.shtml)
-- 2026-06-29 15:21 - [双高胎](http://www.blog.kurohicncr.top/Article/details/369751642804.shtml)
-- 2026-06-29 15:18 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/292803630.shtml)
-- 2026-06-29 15:20 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/446470742427.shtml)
+- 2026-06-29 15:18 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/2544110.shtml)
+- 2026-06-29 15:00 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/46994931572.shtml)
+- 2026-06-29 15:11 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/52067.shtml)
+- 2026-06-29 15:20 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/1771724.shtml)
+- 2026-06-29 15:22 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/28233721999.shtml)
+- 2026-06-29 15:05 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/803885.shtml)
+- 2026-06-29 15:23 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/81817000.shtml)
+- 2026-06-29 15:13 - [我国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/356162619323.shtml)
+- 2026-06-29 15:26 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/069128529302.shtml)
+- 2026-06-29 15:04 - [苹果ultra2阔折叠已开模测试](http://www.share.kurohicncr.top/Article/details/836432.shtml)
+- 2026-06-29 15:29 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/80179.shtml)
+- 2026-06-29 15:14 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/399716.shtml)
+- 2026-06-29 15:24 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/27217918913.shtml)
+- 2026-06-29 15:28 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/5236598.shtml)
+- 2026-06-29 15:24 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/11046623128.shtml)

@@ -1,57 +1,60 @@
-# 就在明天！韩股迎来三星、SK海力士两倍杠杆ETF，单日涨跌幅可达60%
+# 海南推出30余条银发旅游线路 邀老年人来琼“康养旅居”
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-韩国为抢回流失资金，首次放开个股杠杆产品交易。围绕三星电子和SK海力士的16只杠杆及反向产品周三上市，预计吸引35亿美元资金流入。在散户资金大规模流向海外同类产品的压力下，韩国监管机构完成重大政策转向，首批个股杠杆ETF将于5月27日正式上市。16只基于三星电子和SK海力士的2倍杠杆及反向ETF将于本周三在韩国股市挂牌交易，由三星资管、未来资产、韩国投资、KB、新韩、韩华、Ki
+中新网海口6月5日电 (张茜翼 黄方舟)当“养老”遇见“诗与远方”，海南正试图为老年人打开一种全新的生活方式。记者从5日举行的“海南自贸港政策解读”系列主题新闻发布会——推动养老服务高质量发展专场获悉，海南正加速推进“旅游+养老”深度融合，向全国老年人发出“康养旅居”邀请。海南“旅游+养老”产业已取得多方面积极进展。海南省旅游和文化广电体育厅二级巡视员袁绪良表示，海南不仅推出包
 
 ## 正文
 
-韩国为抢回流失资金，首次放开个股杠杆产品交易。
+中新网海口6月5日电 (张茜翼 黄方舟)当“养老”遇见“诗与远方”，海南正试图为老年人打开一种全新的生活方式。
 
-围绕三星电子和SK海力士的16只杠杆及反向产品周三上市，预计吸引35亿美元资金流入。
+记者从5日举行的“海南自贸港政策解读”系列主题新闻发布会——推动养老服务高质量发展专场获悉，海南正加速推进“旅游+养老”深度融合，向全国老年人发出“康养旅居”邀请。
 
-在散户资金大规模流向海外同类产品的压力下，韩国监管机构完成重大政策转向，首批个股杠杆ETF将于5月27日正式上市。
+海南“旅游+养老”产业已取得多方面积极进展。
 
-16只基于三星电子和SK海力士的2倍杠杆及反向ETF将于本周三在韩国股市挂牌交易，由三星资管、未来资产、韩国投资、KB、新韩、韩华、Kiwoom和韩亚共8家资产管理公司发行。
+海南省旅游和文化广电体育厅二级巡视员袁绪良表示，海南不仅推出包括“博鳌乐城·福寿安康”在内的30余条康养银发旅游线路，还同步优化“银发康养”“银发休闲”“银发游学养”三大主题8条精品线路，以满足多元化需求。
 
-此次推出的直接背景是，跟踪上述两家芯片制造商的香港上市杠杆ETF今年已吸引26亿美元资金流入，监管机构意在将这部分交易活动引回国内。
+在宣传推广方面，海南今年已赴福建宁德、江苏扬州、四川乐山、陕西西安及渭南等13个省市举办“康养旅居看海南”专题推介会。
 
-未来资产证券分析师估计，新的国内基金可能吸引高达5.3万亿韩元（约35亿美元）的资金。
+袁绪良介绍道，由海南省旅游和文化广电体育厅牵头制定的《康养旅居服务规范》已正式发布施行，为行业发展提供标准支撑。
 
-然而，分析师对市场稳定性表达了明确警告。
+此外，海南还通过海南自贸港全球产业招商大会等平台，成功签约“康养+医疗”“铁路+文旅+康养”等产业融合项目，多个重点意向项目也在持续跟进。
 
-由于三星电子和SK海力士市值合计已占Kospi指数近一半，杠杆产品所需的每日机械调仓可能进一步放大市场波动，并加剧指数集中度风险。
+安全与适老服务同样被放在重要位置。
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 15:23 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 14:54 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 15:08 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 15:00 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 14:57 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 15:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 14:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 14:57 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 14:54 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 15:10 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 15:25 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 15:11 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 15:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 15:06 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 15:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 15:22 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 15:18 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 15:28 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 15:15 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 15:18 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 15:22 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 15:17 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 15:01 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 15:18 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/167263.shtml)
-- 2026-06-29 15:00 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/869436.shtml)
-- 2026-06-29 15:01 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/988731.shtml)
-- 2026-06-29 15:23 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/741897.shtml)
-- 2026-06-29 15:02 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.kurohicncr.top/Article/details/91822.shtml)
-- 2026-06-29 15:10 - [袁隆平院士 不容诋毁！](http://www.share.minike.top/Article/details/51796191.shtml)
-- 2026-06-29 15:08 - [爱很美味](http://www.share.kurohicncr.top/Article/details/83458.shtml)
-- 2026-06-29 15:11 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/013654503.shtml)
-- 2026-06-29 15:12 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/03529325774.shtml)
-- 2026-06-29 15:03 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/7441066.shtml)
-- 2026-06-29 15:05 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/3506052599.shtml)
-- 2026-06-29 15:10 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/08806290.shtml)
-- 2026-06-29 14:57 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/06233.shtml)
-- 2026-06-29 15:05 - [民进党为什么拼命抹黑统战](http://www.blog.minike.top/Article/details/625734228.shtml)
-- 2026-06-29 15:18 - [宜宾5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/7369301653.shtml)
+- 2026-06-29 15:29 - [这一刀 会很帅](https://www.share.minike.top/Article/details/527584.shtml)
+- 2026-06-29 15:00 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/93370863.shtml)
+- 2026-06-29 15:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/52234.shtml)
+- 2026-06-29 15:23 - [周生如故](https://www.blog.minike.top/Article/details/97832218.shtml)
+- 2026-06-29 15:21 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/2346600.shtml)
+- 2026-06-29 15:25 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/50280642009.shtml)
+- 2026-06-29 15:28 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/268202534159.shtml)
+- 2026-06-29 15:25 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/04193535908.shtml)
+- 2026-06-29 15:16 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/36149.shtml)
+- 2026-06-29 15:25 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/25389965881.shtml)
+- 2026-06-29 15:12 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/516616435966.shtml)
+- 2026-06-29 15:18 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/9499068.shtml)
+- 2026-06-29 15:23 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/60082912.shtml)
+- 2026-06-29 15:18 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/821754298145.shtml)
+- 2026-06-29 15:10 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/635082177342.shtml)

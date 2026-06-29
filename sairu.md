@@ -1,59 +1,59 @@
-# 云存储巨头创立19载，Dropbox首席执行官休斯顿宣布卸任
+# Alphabet寻求850亿美元融资 股价连跌四周考验投资者胃口
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-核心要点 德鲁・休斯顿在 24 岁时创立 Dropbox，至今已近二十年。这家企业成为硅谷知名品牌，也是首家从 Y Combinator 孵化器一路走来并成功上市的科技公司。 如今 43 岁的休斯顿准备开启新征程。他于周二向员工宣布人事调整：自己将先与新晋的联席首席执行官阿什拉夫・阿尔卡米共同管理公司，之后正式转任执行董事长；阿尔卡米此前担任产品负责人，未来将全面接手首席执行官
+Alphabet正寻求通过出售股票筹集850亿美元，而此时该公司股价正走向连续第四周下跌，创下一年多来最长连跌纪录。一个月前，Alphabet市值曾短暂超越英伟达，此后便一路下滑。 Alphabet本周告诉投资者，正寻求通过股权融资筹集850亿美元，较最初目标增加50亿美元。Niles Investment Management创始人Dan Niles表示，从未想过谷歌需要通过
 
 ## 正文
 
-核心要点 德鲁・休斯顿在 24 岁时创立 Dropbox，至今已近二十年。
+Alphabet正寻求通过出售股票筹集850亿美元，而此时该公司股价正走向连续第四周下跌，创下一年多来最长连跌纪录。
 
-这家企业成为硅谷知名品牌，也是首家从 Y Combinator 孵化器一路走来并成功上市的科技公司。
+一个月前，Alphabet市值曾短暂超越英伟达，此后便一路下滑。
 
-如今 43 岁的休斯顿准备开启新征程。
+Alphabet本周告诉投资者，正寻求通过股权融资筹集850亿美元，较最初目标增加50亿美元。
 
-他于周二向员工宣布人事调整：自己将先与新晋的联席首席执行官阿什拉夫・阿尔卡米共同管理公司，之后正式转任执行董事长；阿尔卡米此前担任产品负责人，未来将全面接手首席执行官一职。
+Niles Investment Management创始人Dan Niles表示，从未想过谷歌需要通过公开市场筹资来支持其支出。
 
-执掌 Dropbox 的近二十年间，休斯顿成绩斐然。
+他指出Alphabet拥有全AI领域最好的规模化技术栈，包括模型、TPU、Android生态、云业务和搜索主导地位，正是这种优势让此次股权融资如此引人注目。
 
-他带领公司开拓云存储市场，正面迎战谷歌、苹果等巨头，凭借大量持股积累了超 20 亿美元身家。
+与同行一样，谷歌正投入创纪录资金建设新数据中心和芯片系统以满足AI算力需求。
 
-但在期望值极高的科技行业，Dropbox 发展早早触及天花板，始终未能成为引领一个时代的标杆品牌。
+公司已将全年资本支出指引从1850亿美元上调至1900亿美元。
 
-目前 Dropbox 市值略超 60 亿美元，较 2018 年上市首日高点缩水一半，也低于 2014 年私募市场给出的 100 亿美元估值。
+自去年11月以来，谷歌已获得超过550亿美元的新债务融资。
 
 ## 相关推荐
 
-- 2026-06-29 14:55 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 15:04 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 15:10 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 15:13 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 15:02 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 15:09 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 15:13 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 15:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 14:54 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 15:23 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 14:58 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 15:00 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 14:58 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 15:10 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 15:07 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 15:15 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 15:10 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 15:16 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 15:13 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 15:23 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 15:02 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 15:26 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 15:03 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 15:03 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 15:18 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 15:25 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:57 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/840588.shtml)
-- 2026-06-29 15:13 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/73018.shtml)
-- 2026-06-29 15:09 - [航空运输旅客服务质量国标将实施](http://www.share.kurohicncr.top/Article/details/226582830800.shtml)
-- 2026-06-29 15:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/8726680795.shtml)
-- 2026-06-29 15:04 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.kurohicncr.top/Article/details/18417352.shtml)
-- 2026-06-29 15:21 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/224468610.shtml)
-- 2026-06-29 15:04 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/267331924057.shtml)
-- 2026-06-29 15:00 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/96165670.shtml)
-- 2026-06-29 14:59 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.kurohicncr.top/Article/details/345040657597.shtml)
-- 2026-06-29 15:02 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/4664956.shtml)
-- 2026-06-29 15:11 - [南非老帅布罗斯的梦没能做完](http://www.share.minike.top/Article/details/52714246179.shtml)
-- 2026-06-29 15:03 - [欧委会总部只给高层开空调](https://www.share.minike.top/Article/details/314067480.shtml)
-- 2026-06-29 15:21 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/77001724.shtml)
-- 2026-06-29 15:19 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/4637943.shtml)
-- 2026-06-29 15:10 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/56884251.shtml)
+- 2026-06-29 15:16 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/802477.shtml)
+- 2026-06-29 15:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/4478887106.shtml)
+- 2026-06-29 15:04 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/2371707.shtml)
+- 2026-06-29 15:27 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/182397237.shtml)
+- 2026-06-29 15:13 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/990408.shtml)
+- 2026-06-29 15:10 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.minike.top/Article/details/4117028.shtml)
+- 2026-06-29 15:21 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/73813.shtml)
+- 2026-06-29 15:10 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/53563288679.shtml)
+- 2026-06-29 15:29 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/15710.shtml)
+- 2026-06-29 15:13 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/204451.shtml)
+- 2026-06-29 15:24 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/13472261.shtml)
+- 2026-06-29 15:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/328591695.shtml)
+- 2026-06-29 15:28 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/19832.shtml)
+- 2026-06-29 15:17 - [博主：全球股市进入“AI极端共振”](http://www.blog.minike.top/Article/details/9919688.shtml)
+- 2026-06-29 15:14 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/865956.shtml)

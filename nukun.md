@@ -1,58 +1,56 @@
-# 重庆永川山洪地灾已导致9人死亡11人失联
+# 富国银行：美股市场仍如坐过山车
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月25日电 (记者 刘相琳)记者25日从重庆永川区获悉，永川区突发瞬时极端特大暴雨引发山洪和地质灾害，已导致9人死亡，11人失联。 5月23日夜间至24日凌晨，重庆市永川区突发瞬时极端特大暴雨引发山洪和地质灾害，导致辖区茶山竹海街道、中山路街道、双石镇等多地出现散点式灾情。汛情发生后，重庆市、区两级防汛抗旱应急指挥部迅速启动应急响应，已投入各类救援力量1827人。截
+富国银行策略师斯科特·雷恩表示，自美以对伊战争爆发以来，所有市场都如同坐上了“过山车”。他预计，即使这场战争结束，市场的大幅波动也不会很快平息。 例如，美国基准西得克萨斯中质原油多次出现单日涨跌幅达5%至10%的情况。美国国债收益率也未能幸免。10年期国债收益率此前为4%，但到3月份已升至4.5%，5月份更是一度触及4.67%的高位，随后又回落至4.45%。 他在给客户的报告中
 
 ## 正文
 
-中新网重庆5月25日电 (记者 刘相琳)记者25日从重庆永川区获悉，永川区突发瞬时极端特大暴雨引发山洪和地质灾害，已导致9人死亡，11人失联。
+富国银行策略师斯科特·雷恩表示，自美以对伊战争爆发以来，所有市场都如同坐上了“过山车”。
 
-5月23日夜间至24日凌晨，重庆市永川区突发瞬时极端特大暴雨引发山洪和地质灾害，导致辖区茶山竹海街道、中山路街道、双石镇等多地出现散点式灾情。
+他预计，即使这场战争结束，市场的大幅波动也不会很快平息。
 
-汛情发生后，重庆市、区两级防汛抗旱应急指挥部迅速启动应急响应，已投入各类救援力量1827人。
+例如，美国基准西得克萨斯中质原油多次出现单日涨跌幅达5%至10%的情况。
 
-截至25日15时30分，共导致9人死亡，11人失联。
+美国国债收益率也未能幸免。
 
-目前，紧急避险转移和紧急安置工作正在有序推进，四批应急物资全部到位，全区生活必需品市场运行平稳。
+10年期国债收益率此前为4%，但到3月份已升至4.5%，5月份更是一度触及4.67%的高位，随后又回落至4.45%。
 
-在抢险救灾方面，当地已投入各类救援力量1827人，其中，各镇街动员镇街、村社两级干部、民兵、志愿者等1367人，渝西支队、区县支队，中交建救援队、消防救援队、蓝天救援队、华岩救援队等投入专业应急救援力量共460人，投入大型救援装备63台套，冲锋舟、救援车辆、单兵救援装备等中小型救援装备上千台套。
+他在给客户的报告中写道：“我们确实看到美国和伊朗都面临着迅速达成协议以恢复全球能源流通的压力。
 
-永川区交通运输委投入25台机械设备、120余名人员，已抢通S544、大薄路等25处阻断，除积水未退路段及宝大路外，其余预计25日18时前抢通；永川区经信委会同通讯、燃气、电力公司完成30个基站、628户供气及52个变压器抢修，3座水厂恢复供水覆盖3.3万人，茶山水厂因道路损毁暂无法排查管线，正组织送水保障。
+但是，即使明天就达成协议，通胀问题仍将成为今年余下时间的前景考量因素之一。
 
-在物资保障方面，永川区应急局会同区发改委累计发放救灾专用单帐篷112件、救灾折叠床482床、毛巾被645张、折叠桌凳94件、应急灯86个、手电筒96个、雨衣80件。
+投资者可以考虑增持那些能够将上涨的投入成本转嫁给商业客户的行业，包括工业气体以及机械与设备行业板块。
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 15:22 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 15:07 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 14:56 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 14:57 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 15:12 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 15:03 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 15:22 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 15:00 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 15:15 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 14:59 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 15:07 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 15:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 15:27 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 15:19 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 15:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 15:18 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 15:14 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 15:17 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 15:19 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 15:19 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 15:03 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/49862681107.shtml)
-- 2026-06-29 15:21 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/467216.shtml)
-- 2026-06-29 15:07 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/914728.shtml)
-- 2026-06-29 15:11 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/26897.shtml)
-- 2026-06-29 15:07 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/3413541.shtml)
-- 2026-06-29 15:12 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/72515648044.shtml)
-- 2026-06-29 15:01 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/274166259.shtml)
-- 2026-06-29 15:13 - [周生如故](https://www.blog.minike.top/Article/details/52153567791.shtml)
-- 2026-06-29 15:06 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/2189137618.shtml)
-- 2026-06-29 15:13 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/9507067.shtml)
-- 2026-06-29 15:14 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/488943510.shtml)
-- 2026-06-29 15:07 - [宜宾5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/091505.shtml)
-- 2026-06-29 14:54 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/619182848547.shtml)
-- 2026-06-29 15:14 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/488807710.shtml)
-- 2026-06-29 15:15 - [7款商保创新药“转道”](https://www.blog.kurohicncr.top/Article/details/3333670893.shtml)
+- 2026-06-29 15:17 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/4576379485.shtml)
+- 2026-06-29 15:00 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/2439095.shtml)
+- 2026-06-29 15:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/07928.shtml)
+- 2026-06-29 15:05 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/6761498557.shtml)
+- 2026-06-29 15:16 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/035795907.shtml)
+- 2026-06-29 15:24 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/8020190961.shtml)
+- 2026-06-29 15:26 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/32059162661.shtml)
+- 2026-06-29 15:14 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/4276417521.shtml)
+- 2026-06-29 15:13 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/4579028771.shtml)
+- 2026-06-29 15:09 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/736863.shtml)
+- 2026-06-29 15:02 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/21300.shtml)
+- 2026-06-29 15:05 - [起风了](http://www.share.minike.top/Article/details/022325554.shtml)
+- 2026-06-29 15:24 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/6722798882.shtml)
+- 2026-06-29 15:16 - [A股](https://www.share.minike.top/Article/details/610161307405.shtml)
+- 2026-06-29 15:15 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/66288964.shtml)

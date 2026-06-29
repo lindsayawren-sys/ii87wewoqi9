@@ -1,60 +1,58 @@
-# 小盘REIT季报盘点：Postal Realty与Chatham Lodging业绩分化
+# 总书记的人民情怀｜“中国可以成功，其他发展中国家同样可以成功”
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-美股房地产投资信托基金一季报披露已近尾声，罗素3000指数中的两只小盘成分股Postal Realty Trust和Chatham Lodging Trust交出了截然不同的成绩单。专注于向美国邮政局出租物业的Postal Realty本季度表现稳健，而Chatham Lodging则受益于科技行业强劲的差旅需求实现业绩增长。 专注于向美国邮政局出租物业的Postal Real
+原标题：“中国可以成功，其他发展中国家同样可以成功”(总书记的人民情怀) 视频：总书记的人民情怀｜“中国可以成功，其他发展中国家同样可以成功”来源：人民日报 实现现代化是近代以来中国人民的不懈追求，也是世界各国人民的共同追求。 “中国可以成功，其他发展中国家同样可以成功。”“我们有坚定推进中国式现代化的决心，也有以高水平对外开放同世界共享发展机遇的胸怀，将以自身发展为全球经济增
 
 ## 正文
 
-美股房地产投资信托基金一季报披露已近尾声，罗素3000指数中的两只小盘成分股Postal Realty Trust和Chatham Lodging Trust交出了截然不同的成绩单。
+原标题：“中国可以成功，其他发展中国家同样可以成功”(总书记的人民情怀) 视频：总书记的人民情怀｜“中国可以成功，其他发展中国家同样可以成功”来源：人民日报 实现现代化是近代以来中国人民的不懈追求，也是世界各国人民的共同追求。
 
-专注于向美国邮政局出租物业的Postal Realty本季度表现稳健，而Chatham Lodging则受益于科技行业强劲的差旅需求实现业绩增长。
+“中国可以成功，其他发展中国家同样可以成功。
 
-专注于向美国邮政局出租物业的Postal Realty本季度表现稳健。
+”“我们有坚定推进中国式现代化的决心，也有以高水平对外开放同世界共享发展机遇的胸怀，将以自身发展为全球经济增长注入信心和动力。
 
-公司营收达2665万美元，同比增长20.3%，超出分析师预期。
+”习近平总书记提出的重要主张、作出的重要论述，植根于中国式现代化的成功实践，彰显了中国与各国在现代化征程上携手同行，共同推进世界现代化、推动构建人类命运共同体的胸怀担当。
 
-归属于普通股股东的净利润为383万美元，即每股0.11美元。
+中国式现代化是全体人民共同富裕的现代化。
 
-更为关键的运营资金指标每股FFO为0.32美元，调整后每股AFFO为0.33美元。
+在习近平总书记带领下，中国始终把实现人民对美好生活的向往作为现代化建设的出发点和落脚点，稳步推进共同富裕。
 
-管理层将2026年每股AFFO指引上调至1.40至1.42美元，同时将全年收购目标提升至1.3亿至1.4亿美元。
+“十五五”规划纲要坚持以人民为中心的发展思想，牢牢把握共同富裕的目标要求，围绕加大保障和改善民生力度、扎实推进全体人民共同富裕作出战略部署，为未来5年中国经济社会发展擘画蓝图，也为世界提供了一份“机遇清单”。
 
-相比之下，酒店REIT Chatham Lodging的表现则更具弹性。
+提前实现联合国2030年可持续发展议程减贫目标，人均国内生产总值连续3年超过1.3万美元，建成全球规模最大的教育体系、社会保障体系、医疗卫生体系……中国式现代化坚持以人民为中心，不让一个人掉队，也为全球提供了生动示范。
 
 ## 相关推荐
 
-- 2026-06-29 15:21 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 14:58 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 15:08 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 15:21 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 15:14 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 15:08 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 15:01 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 14:58 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 15:14 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 15:02 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 15:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 15:21 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 14:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 15:14 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 15:02 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 15:16 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 15:09 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 15:27 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 15:05 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 15:19 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 15:16 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 15:29 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 15:02 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 15:14 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 15:18 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 15:21 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:23 - [四川宜宾地震](https://www.share.minike.top/Article/details/1713170.shtml)
-- 2026-06-29 15:18 - [7款商保创新药“转道”](https://www.share.kurohicncr.top/Article/details/547150154.shtml)
-- 2026-06-29 15:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/95084.shtml)
-- 2026-06-29 15:17 - [血糖高的人能吃西瓜吗](https://www.share.kurohicncr.top/Article/details/3704518344.shtml)
-- 2026-06-29 14:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/92616785.shtml)
-- 2026-06-29 15:06 - [王楚钦周启豪爆分](http://www.blog.kurohicncr.top/Article/details/7857966240.shtml)
-- 2026-06-29 15:19 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/01358902555.shtml)
-- 2026-06-29 15:10 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/31931066.shtml)
-- 2026-06-29 15:20 - [金牌调解](http://www.share.minike.top/Article/details/169099960472.shtml)
-- 2026-06-29 15:05 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/3209668398.shtml)
-- 2026-06-29 14:55 - [王楚钦周启豪爆分](http://www.blog.kurohicncr.top/Article/details/05765300.shtml)
-- 2026-06-29 15:13 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/39685626713.shtml)
-- 2026-06-29 15:01 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/3297700433.shtml)
-- 2026-06-29 15:15 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/8725765976.shtml)
-- 2026-06-29 15:14 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/540699267.shtml)
+- 2026-06-29 15:16 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/6405244.shtml)
+- 2026-06-29 15:04 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/1578471.shtml)
+- 2026-06-29 15:00 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/668806.shtml)
+- 2026-06-29 15:23 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/0586425386.shtml)
+- 2026-06-29 15:03 - [周深双眼皮贴又掉了](http://www.share.minike.top/Article/details/638846.shtml)
+- 2026-06-29 15:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/65428216.shtml)
+- 2026-06-29 15:00 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/43038722452.shtml)
+- 2026-06-29 15:09 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/09108960.shtml)
+- 2026-06-29 15:17 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/99853331.shtml)
+- 2026-06-29 15:14 - [男孩复读一年减重20斤涨分111分](http://www.share.minike.top/Article/details/934030538.shtml)
+- 2026-06-29 15:12 - [明星大侦探第一季](http://www.share.minike.top/Article/details/8875831662.shtml)
+- 2026-06-29 15:13 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/3681893086.shtml)
+- 2026-06-29 15:24 - [沉睡花园](http://www.share.minike.top/Article/details/5775177383.shtml)
+- 2026-06-29 15:20 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/18731607.shtml)
+- 2026-06-29 15:24 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/110867348.shtml)

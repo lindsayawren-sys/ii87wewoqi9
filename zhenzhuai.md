@@ -1,54 +1,58 @@
-# 陕西甘泉发生一起桥梁垮塌事件致3人受伤
+# 王毅会见下任联合国秘书长候选人巴切莱特
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网陕西延安5月25日电 (李一璠)记者25日从陕西省延安市甘泉县交通运输局获悉，受强降雨影响该县境内发生一起桥梁垮塌事件。 当日，甘泉县交通运输局发布情况通报称，5月25日凌晨2时许，受持续强降雨影响，甘泉县与高速公路连接线K5+500处发生山体崩塌，冲击桥墩，导致桥梁垮塌，造成2车受损3人受伤。 伤者已第一时间送医救治，生命体征平稳。险情发生后，市县两级应急、交通、公安、
+中新社北京6月4日电 6月4日，中共中央政治局委员、外交部长王毅在北京会见下任联合国秘书长候选人、智利前总统巴切莱特。 巴切莱特介绍了对国际形势和联合国作用的看法，表示联合国是国际社会合力应对全球性挑战不可或缺的平台。当今世界乱象丛生，我们需要更多而不是更少的多边主义。联合国应通过改革回归初心理念，维护宪章权威，聚焦行动导向，统筹推进和平、发展、人权三大支柱，与时俱进更好应对风
 
 ## 正文
 
-中新网陕西延安5月25日电 (李一璠)记者25日从陕西省延安市甘泉县交通运输局获悉，受强降雨影响该县境内发生一起桥梁垮塌事件。
+中新社北京6月4日电 6月4日，中共中央政治局委员、外交部长王毅在北京会见下任联合国秘书长候选人、智利前总统巴切莱特。
 
-当日，甘泉县交通运输局发布情况通报称，5月25日凌晨2时许，受持续强降雨影响，甘泉县与高速公路连接线K5+500处发生山体崩塌，冲击桥墩，导致桥梁垮塌，造成2车受损3人受伤。
+巴切莱特介绍了对国际形势和联合国作用的看法，表示联合国是国际社会合力应对全球性挑战不可或缺的平台。
 
-伤者已第一时间送医救治，生命体征平稳。
+当今世界乱象丛生，我们需要更多而不是更少的多边主义。
 
-险情发生后，市县两级应急、交通、公安、卫健等部门立即赶赴现场开展救援抢险。
+联合国应通过改革回归初心理念，维护宪章权威，聚焦行动导向，统筹推进和平、发展、人权三大支柱，与时俱进更好应对风险挑战。
 
-官方提示，该路段地质条件复杂，当前桥梁排险抢修工作正在进行，请驾乘人员择道绕行，注意行车安全。
+我坚定奉行一个中国政策，高度赞赏中方长期致力于推动多边主义和联合国事业，愿同中方及国际社会一道，共同强化联合国地位和作用。
 
-(完)
+王毅表示，巴切莱特女士的阐述体现了你对联合国工作的深入思考和推进人类进步事业的责任感与热情。
+
+中国始终是联合国事业的坚定支持者和积极建设者。
+
+上个月我赴纽约主持安理会高级别会议，同各方深入交流。
 
 ## 相关推荐
 
-- 2026-06-29 15:19 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 14:57 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 15:15 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 15:20 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 15:05 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 14:54 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 15:03 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 14:55 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 15:08 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 15:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 15:03 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 15:03 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 15:03 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 15:23 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 15:00 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 15:20 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 15:18 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 15:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 15:25 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 15:01 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 15:02 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 15:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 15:03 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 15:16 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:13 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/01065.shtml)
-- 2026-06-29 14:58 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/7271754.shtml)
-- 2026-06-29 14:56 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/64845159.shtml)
-- 2026-06-29 15:10 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/518398409.shtml)
-- 2026-06-29 15:21 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/1740367.shtml)
-- 2026-06-29 15:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/2241223.shtml)
-- 2026-06-29 15:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/389550944668.shtml)
-- 2026-06-29 15:01 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/819668196600.shtml)
-- 2026-06-29 15:23 - [南非老帅布罗斯的梦没能做完](https://www.blog.kurohicncr.top/Article/details/68989317.shtml)
-- 2026-06-29 15:13 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/4896860646.shtml)
-- 2026-06-29 14:55 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.kurohicncr.top/Article/details/94638697727.shtml)
-- 2026-06-29 15:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/420623.shtml)
-- 2026-06-29 15:18 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/121944.shtml)
-- 2026-06-29 15:15 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/3494806383.shtml)
-- 2026-06-29 15:17 - [教育部发布高考志愿填报预警](http://www.blog.minike.top/Article/details/219435455976.shtml)
+- 2026-06-29 15:14 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/32498437.shtml)
+- 2026-06-29 15:07 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/26923021.shtml)
+- 2026-06-29 15:15 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/2151217206.shtml)
+- 2026-06-29 15:25 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/4870751.shtml)
+- 2026-06-29 15:05 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/4167814181.shtml)
+- 2026-06-29 15:01 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/8541518393.shtml)
+- 2026-06-29 15:20 - [一生一世](https://www.blog.kurohicncr.top/Article/details/81081.shtml)
+- 2026-06-29 15:28 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/0689931937.shtml)
+- 2026-06-29 15:14 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/73424.shtml)
+- 2026-06-29 15:03 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/9749454.shtml)
+- 2026-06-29 15:26 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/4008901777.shtml)
+- 2026-06-29 15:16 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/858505580889.shtml)
+- 2026-06-29 15:04 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/0798498614.shtml)
+- 2026-06-29 15:19 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/73937093185.shtml)
+- 2026-06-29 15:26 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/521309639887.shtml)

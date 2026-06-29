@@ -1,45 +1,52 @@
-# 抖音：AI求真大模型让谣言传播窗口期显著缩短
+# 习近平：中方始终将老挝视作周边外交重要方向
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：财联社） 财联社5月25日电，抖音公布数据：自AI求真大模型上线后，谣言被处置时的平均浏览量下降62%，这意味着谣言内容从发布到被处置的窗口期显著缩短。
+6月5日下午，中共中央总书记、国家主席习近平在人民大会堂同来华进行国事访问的老挝人民革命党中央总书记、国家主席通伦举行会谈。 习近平指出，中方始终将老挝视作周边外交重要方向，坚定支持老挝走符合自身国情的社会主义道路，愿同老方弘扬传统友谊，深化互利合作，密切团结协作，推动中老关系实现新的跃升，携手打造新时代全天候中老命运共同体。 通伦说：“此次率团对中国进行国事访问，我感到十分荣
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月5日下午，中共中央总书记、国家主席习近平在人民大会堂同来华进行国事访问的老挝人民革命党中央总书记、国家主席通伦举行会谈。
 
-（来源：财联社） 财联社5月25日电，抖音公布数据：自AI求真大模型上线后，谣言被处置时的平均浏览量下降62%，这意味着谣言内容从发布到被处置的窗口期显著缩短。
+习近平指出，中方始终将老挝视作周边外交重要方向，坚定支持老挝走符合自身国情的社会主义道路，愿同老方弘扬传统友谊，深化互利合作，密切团结协作，推动中老关系实现新的跃升，携手打造新时代全天候中老命运共同体。
+
+通伦说：“此次率团对中国进行国事访问，我感到十分荣幸。
+
+让我感到尤为高兴的是，能够再次同您举行会晤。
+
+您是老挝党和国家以及老挝人民无比敬重信任的亲密同志和朋友，相信此访将进一步增进老中两党两国高层互信。
+
+” 总监制丨申勇 监制丨许达 记者丨史伟 卢心雨 邢彬 马喆 摄像丨李铮 胡玮 王哈男 章猛 杨波 陆泓宇 录音丨李远 翻译丨覃海芳 赵晓虹 (央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-29 14:58 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 15:18 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 15:23 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 15:15 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 15:09 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 15:20 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 15:15 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 15:06 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 15:22 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 15:06 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 15:19 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 15:19 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 15:15 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 15:21 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 15:25 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 15:27 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 15:10 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 15:22 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 15:03 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 15:11 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 15:14 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:21 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/79522.shtml)
-- 2026-06-29 15:16 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/039008110090.shtml)
-- 2026-06-29 15:04 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/806651561.shtml)
-- 2026-06-29 15:00 - [辽宁葫芦岛一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/0541119242.shtml)
-- 2026-06-29 15:07 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/86258.shtml)
-- 2026-06-29 15:12 - [A股](http://www.share.kurohicncr.top/Article/details/416386600.shtml)
-- 2026-06-29 15:07 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.kurohicncr.top/Article/details/171677018.shtml)
-- 2026-06-29 15:20 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/21682001422.shtml)
-- 2026-06-29 15:19 - [毒液2](http://www.share.minike.top/Article/details/49345909165.shtml)
-- 2026-06-29 15:08 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/02369442954.shtml)
-- 2026-06-29 14:59 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/49164866768.shtml)
-- 2026-06-29 15:16 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/529623369.shtml)
-- 2026-06-29 15:00 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/33860840066.shtml)
-- 2026-06-29 14:59 - [男孩复读一年减重20斤涨分111分](http://www.blog.minike.top/Article/details/37771545526.shtml)
-- 2026-06-29 14:55 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/063494.shtml)
+- 2026-06-29 15:16 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/013908769042.shtml)
+- 2026-06-29 15:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/990241.shtml)
+- 2026-06-29 15:04 - [速度与激情9](https://www.blog.minike.top/Article/details/725581800851.shtml)
+- 2026-06-29 15:21 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/422139.shtml)
+- 2026-06-29 15:11 - [女心理师](http://www.share.minike.top/Article/details/913515072894.shtml)
+- 2026-06-29 15:28 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/3501210.shtml)
+- 2026-06-29 15:10 - [李在明称韩国足协任命了无能之人](https://www.blog.kurohicncr.top/Article/details/62695451657.shtml)
+- 2026-06-29 15:12 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/344906591.shtml)
+- 2026-06-29 15:08 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/29683.shtml)
+- 2026-06-29 15:26 - [速度与激情9](http://www.share.minike.top/Article/details/4111798.shtml)
+- 2026-06-29 15:00 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/023872.shtml)
+- 2026-06-29 15:15 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/8131514.shtml)
+- 2026-06-29 15:20 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/6954667.shtml)
+- 2026-06-29 15:17 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/56861658169.shtml)
+- 2026-06-29 15:21 - [国家体育总局政策法规司原副司长获刑](http://www.blog.minike.top/Article/details/1829009399.shtml)

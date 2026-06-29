@@ -1,56 +1,57 @@
-# 龙虎榜机构新动向：净买入27股 净卖出14股
+# AI数据中心战略推动PowerBank全面品牌重塑
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-5月25日沪指上涨0.96%，盘后龙虎榜数据显示，机构现身41只个股龙虎榜，净买入27只，净卖出14只。证券时报·数据宝统计显示，5月25日机构专用席位现身41只个股龙虎榜，合计净买入25.18亿元。为连续第4日净买入。个股来看，净买入27只，净卖出14只。机构龙虎榜净买卖个股机构专用席位净买入金额最多的是中芯国际，该股今日收盘上涨18.78%，全天换手率为12.61%，成交额
+北美独立能源开发与资产运营商PowerBank Corporation近日宣布完成公司品牌重塑，以反映其将AI计算基础设施和模块化数据中心确立为公司核心战略增长极的转型。 此次品牌重塑包括启用全新公司网站，并将纳斯达克及Cboe加拿大交易所的股票代码由“SUUN”和“SUNN”统一变更为“PBK”。此举标志着PowerBank的业务版图已从太阳能光伏和电池储能，拓展至为AI计算
 
 ## 正文
 
-5月25日沪指上涨0.96%，盘后龙虎榜数据显示，机构现身41只个股龙虎榜，净买入27只，净卖出14只。
+北美独立能源开发与资产运营商PowerBank Corporation近日宣布完成公司品牌重塑，以反映其将AI计算基础设施和模块化数据中心确立为公司核心战略增长极的转型。
 
-证券时报·数据宝统计显示，5月25日机构专用席位现身41只个股龙虎榜，合计净买入25.18亿元。
+此次品牌重塑包括启用全新公司网站，并将纳斯达克及Cboe加拿大交易所的股票代码由“SUUN”和“SUNN”统一变更为“PBK”。
 
-为连续第4日净买入。
+此举标志着PowerBank的业务版图已从太阳能光伏和电池储能，拓展至为AI计算基础设施提供解决方案的新战略领域。
 
-个股来看，净买入27只，净卖出14只。
+PowerBank首席执行官Richard Lu博士表示，新品牌向合作伙伴和投资者传递了一个明确信号：公司正坚定地站在能源与数字基础设施的交汇点。
 
-机构龙虎榜净买卖个股机构专用席位净买入金额最多的是中芯国际，该股今日收盘上涨18.78%，全天换手率为12.61%，成交额为372.54亿元。
+他指出，公司在美国和加拿大拥有超过1吉瓦的太阳能及储能项目储备，这些资产正日益成为分布式AI计算部署的基础。
 
-因日收盘价涨幅达18.78%上榜龙虎榜，前五大买卖营业部中有1家机构专用席位，为买二，合计净买入68086.48万元。
+随着市场对电力保障可靠、成本较低的AI基础设施需求不断增长，PowerBank凭借这一独特优势，能够有效服务于该新兴市场。
 
-资金流向方面，该股全天资金净流入37.94亿元。
+此前，PowerBank已宣布与Nodiac Corp．签署了一份不具约束力的意向书，计划利用其项目组合中的合适站点，共同部署分布式AI计算基础设施。
 
-麦格米特，今日收盘涨停，全天换手率为6.59%，成交额为39.27亿元。
+在推进AI新战略的同时，公司的既定项目也在稳步落地，包括2026年春季在纽约州的九个太阳能及储能项目的启动，以及安大略省SFF 06电池储能项目的商业运营。
 
 ## 相关推荐
 
-- 2026-06-29 15:19 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 15:17 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 15:13 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 15:14 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 15:14 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 15:13 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 15:14 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 15:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 15:01 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 15:12 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 15:22 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 15:12 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 15:29 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 15:04 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 15:10 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 15:14 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 15:23 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 15:11 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 15:28 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 15:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 15:20 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:00 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/35391812655.shtml)
-- 2026-06-29 15:13 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/84101061.shtml)
-- 2026-06-29 15:09 - [赵露思爸爸拍vlog翻车了](https://www.share.kurohicncr.top/Article/details/656963910367.shtml)
-- 2026-06-29 14:56 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/739748.shtml)
-- 2026-06-29 14:55 - [人民日报评“AI脸看腻了”](http://www.share.kurohicncr.top/Article/details/8608265.shtml)
-- 2026-06-29 15:16 - [T1零封KC MSI](http://www.share.minike.top/Article/details/89440479398.shtml)
-- 2026-06-29 15:06 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/0523520024.shtml)
-- 2026-06-29 15:19 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/252258829852.shtml)
-- 2026-06-29 15:13 - [汪东城回应45岁婚约](http://www.blog.minike.top/Article/details/6028595549.shtml)
-- 2026-06-29 15:23 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/25315722868.shtml)
-- 2026-06-29 15:04 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/3734624378.shtml)
-- 2026-06-29 14:54 - [和阿根廷球员家属一起看球](http://www.share.minike.top/Article/details/94452221959.shtml)
-- 2026-06-29 15:11 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/42889546.shtml)
-- 2026-06-29 15:15 - [我和我的家乡](https://www.blog.minike.top/Article/details/74963423548.shtml)
-- 2026-06-29 14:56 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/073209.shtml)
+- 2026-06-29 15:18 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/04632221.shtml)
+- 2026-06-29 15:01 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/18142113382.shtml)
+- 2026-06-29 15:22 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/761823.shtml)
+- 2026-06-29 15:08 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/551550616.shtml)
+- 2026-06-29 15:03 - [以前不让妆女二可以艳压女主](http://www.blog.kurohicncr.top/Article/details/084054.shtml)
+- 2026-06-29 15:21 - [苹果ultra2阔折叠已开模测试](http://www.share.kurohicncr.top/Article/details/7365792553.shtml)
+- 2026-06-29 15:02 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/06449289.shtml)
+- 2026-06-29 15:05 - [毒液2](http://www.share.kurohicncr.top/Article/details/992441.shtml)
+- 2026-06-29 15:02 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/69770.shtml)
+- 2026-06-29 15:23 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/57031831.shtml)
+- 2026-06-29 15:18 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/63123.shtml)
+- 2026-06-29 15:27 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/71186918.shtml)
+- 2026-06-29 15:10 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/564090.shtml)
+- 2026-06-29 15:19 - [美人鱼](http://www.blog.minike.top/Article/details/829195279625.shtml)
+- 2026-06-29 15:14 - [普京称考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/709881987.shtml)

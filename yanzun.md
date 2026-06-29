@@ -1,59 +1,58 @@
-# 让善意被“看见”：数字时代公益如何从感动化为行动
+# 山西高平深耕文旅营销 打造文旅康养魅力小城
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月26日电(记者 郎朗) 大凉山女孩的歌声，从未被那么多人听见。 2025年，微博“人人公益节”的一期探访视频里，她们在教室里、山野间，稚嫩清澈地唱着歌，围着篝火，大声喊出心底的梦想。镜头没有刻意煽情，只是安静地记录。但就是这段画面，连同其他八期“访谈播客+实地探访”节目，累计播放量超过2800万次，相关话题阅读量达1.2亿。 一次“看见”之后，是无数人从“感动”走
+中新网晋城6月5日电 (杨佩佩 裴囡囡)记者5日从山西晋城高平市获悉，当地聚焦“城市形象、特色产品、传播矩阵、目标群体、产业链条、游客口碑”六个关键，坚持大抓文旅、大兴康养，推动文旅康养营销工作更有声势、更有效益。 挖掘炎帝文化，树立城市形象。高平市以“炎帝文化”为统领，依托神农炎帝故里、长平之战发生地、中国古建博物馆、上党梆子之乡“四张文化脸谱”，连续举办神农炎帝系列活动、炎
 
 ## 正文
 
-中新网北京5月26日电(记者 郎朗) 大凉山女孩的歌声，从未被那么多人听见。
+中新网晋城6月5日电 (杨佩佩 裴囡囡)记者5日从山西晋城高平市获悉，当地聚焦“城市形象、特色产品、传播矩阵、目标群体、产业链条、游客口碑”六个关键，坚持大抓文旅、大兴康养，推动文旅康养营销工作更有声势、更有效益。
 
-2025年，微博“人人公益节”的一期探访视频里，她们在教室里、山野间，稚嫩清澈地唱着歌，围着篝火，大声喊出心底的梦想。
+挖掘炎帝文化，树立城市形象。
 
-镜头没有刻意煽情，只是安静地记录。
+高平市以“炎帝文化”为统领，依托神农炎帝故里、长平之战发生地、中国古建博物馆、上党梆子之乡“四张文化脸谱”，连续举办神农炎帝系列活动、炎帝灯会、炎帝庙会、马拉松赛等活动，持续擦亮“问祖炎帝 寻根高平”品牌，提升城市辨识度。
 
-但就是这段画面，连同其他八期“访谈播客+实地探访”节目，累计播放量超过2800万次，相关话题阅读量达1.2亿。
+借助专业力量，打造特色产品。
 
-一次“看见”之后，是无数人从“感动”走向“行动”。
+高平市整合景区、酒店、餐饮、演艺等资源，特别是依托22处国保、22处省保、61个中国传统村落、5个中国历史文化名村，以及潞绸、珐华、上党梆子等非遗代表性项目，创新植入“有喜、有福、有乐、有礼、有戏”等文化元素，开发更多“高平好礼”。
 
-为推动网络公益事业发展，助力网上正能量传播，在首届“数爱无疆”数字公益故事征集展播活动成功举办的基础上，中国网络社会组织联合会联合中国互联网发展基金会、中国新闻网自2025年11月起继续组织开展2025“数爱无疆”数字公益故事征集展播活动。
+同时引进专业团队，建成美术馆、音乐艺术馆等，策划音乐赛事、体育赛事，将专业优势转化为产品优势。
 
-经过相关专家评审，最终遴选出50个最具代表性的数字公益作品。
+整合宣传资源，构建传播矩阵。
 
-微博公益“人人公益节”等公益故事入选其中。
+高平市坚持线上线下联动，构建全方位、立体化的传播矩阵。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 14:58 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 15:02 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 14:57 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 15:15 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 15:11 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 14:56 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 15:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 15:01 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 15:22 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 15:17 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 15:17 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 15:23 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 15:01 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 15:01 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 15:07 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 15:23 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 15:12 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 15:18 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 15:15 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 15:17 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 15:14 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 15:16 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 15:06 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 15:08 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:13 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/3678456.shtml)
-- 2026-06-29 15:14 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/848105845806.shtml)
-- 2026-06-29 14:55 - [医院大厅放钢琴是形式主义吗](http://www.blog.minike.top/Article/details/8586072979.shtml)
-- 2026-06-29 15:15 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.kurohicncr.top/Article/details/31915866389.shtml)
-- 2026-06-29 15:21 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.minike.top/Article/details/88070507589.shtml)
-- 2026-06-29 15:12 - [森保一：日本队要亲手改写历史](http://www.blog.kurohicncr.top/Article/details/95173931.shtml)
-- 2026-06-29 15:17 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/047557351261.shtml)
-- 2026-06-29 15:22 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/05031820.shtml)
-- 2026-06-29 14:56 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/3103233.shtml)
-- 2026-06-29 15:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/3706308743.shtml)
-- 2026-06-29 14:54 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/642304814.shtml)
-- 2026-06-29 15:22 - [一见倾心](https://www.share.kurohicncr.top/Article/details/2313393.shtml)
-- 2026-06-29 15:13 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/24046999.shtml)
-- 2026-06-29 15:10 - [周深双眼皮贴又掉了](http://www.blog.minike.top/Article/details/662049323205.shtml)
-- 2026-06-29 15:07 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/88846051075.shtml)
+- 2026-06-29 15:02 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/9704215653.shtml)
+- 2026-06-29 15:13 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/7265424.shtml)
+- 2026-06-29 15:25 - [我国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/50130804.shtml)
+- 2026-06-29 15:14 - [航空运输旅客服务质量国标将实施](http://www.blog.kurohicncr.top/Article/details/154187.shtml)
+- 2026-06-29 15:15 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/44347927.shtml)
+- 2026-06-29 15:29 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/15127.shtml)
+- 2026-06-29 15:04 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.kurohicncr.top/Article/details/421800929708.shtml)
+- 2026-06-29 15:10 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/5198549200.shtml)
+- 2026-06-29 15:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/1736777.shtml)
+- 2026-06-29 15:01 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/29057514.shtml)
+- 2026-06-29 15:27 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/5091335.shtml)
+- 2026-06-29 15:13 - [乔家的儿女](https://www.blog.minike.top/Article/details/45718257987.shtml)
+- 2026-06-29 15:24 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/961721995388.shtml)
+- 2026-06-29 15:09 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/265914127385.shtml)
+- 2026-06-29 15:21 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/7326813.shtml)

@@ -1,49 +1,61 @@
-# 新城市建设发展根据一般授权发行2764.9万股新股份
+# ATFX解盘:日本央行可能在12:34干预了日元汇率
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-新城市建设发展（00456）发布公告，根据日期为2026年5月4日的认购协议及日期为2026年5月5日的补充协议，公司于2026年5月22日根据一般授权发行2764.9万股新股份。责任编辑：卢昱君
+专题：ATFX外汇专栏投稿 6月4日，ATFX解盘：北京时间今日12点34分，日元汇率出现异动。一分钟时间里，USDJPY从最高点到159.93，下跌至最低点159.58，跌幅35基点，远超日常活动范围。行情异动出现的时间点，没有重磅数据发布，也没有关键人物讲话，基本可以确定是日本央行的干预政策。 ▲ATFX图 昨日15：30，日本首相高市早苗对日元汇率发表评论，她表示，随时根
 
 ## 正文
 
-新城市建设发展（00456）发布公告，根据日期为2026年5月4日的认购协议及日期为2026年5月5日的补充协议，公司于2026年5月22日根据一般授权发行2764.9万股新股份。
+专题：ATFX外汇专栏投稿 6月4日，ATFX解盘：北京时间今日12点34分，日元汇率出现异动。
 
-责任编辑：卢昱君
+一分钟时间里，USDJPY从最高点到159.93，下跌至最低点159.58，跌幅35基点，远超日常活动范围。
+
+行情异动出现的时间点，没有重磅数据发布，也没有关键人物讲话，基本可以确定是日本央行的干预政策。
+
+▲ATFX图 昨日15：30，日本首相高市早苗对日元汇率发表评论，她表示，随时根据需要对汇率市场进行适当措施，因为投机行为正在明显影响市场。
+
+日本央行极有可能通过今日12：34分的卖出美元操作，提振日元汇率，呼应高市早苗的评论。
+
+根据官方数据，今年五月份，日本央行为了改变日元相对美元持续贬值的趋势，动用11.7349万亿日元，在外汇市场卖出美元，以提振日元币值。
+
+USDJPY的小时级别走势图，流下了大量长下影的K线，足见日本央行干预汇率的决心。
+
+今日分钟级别USDJPY的长下影线，是以往汇率干预政策的延续。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 15:08 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 14:59 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 15:12 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 15:15 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 14:56 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 15:12 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 15:09 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 15:08 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 15:02 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 15:21 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 15:06 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 15:18 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 14:57 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 15:02 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 15:08 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 15:29 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 15:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 15:12 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 15:04 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 15:23 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 15:07 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 15:02 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 15:26 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 15:16 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 15:13 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 15:21 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 15:11 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 15:20 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 15:09 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/2378342.shtml)
-- 2026-06-29 15:02 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/660805738.shtml)
-- 2026-06-29 15:00 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/103552.shtml)
-- 2026-06-29 14:58 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/931451.shtml)
-- 2026-06-29 15:19 - [ENC瓦中国香港负印度数据图](http://www.share.kurohicncr.top/Article/details/6738588.shtml)
-- 2026-06-29 15:19 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/94789157686.shtml)
-- 2026-06-29 15:11 - [TOP 无畏契约](https://www.blog.kurohicncr.top/Article/details/017176464.shtml)
-- 2026-06-29 15:00 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/180540212801.shtml)
-- 2026-06-29 15:05 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/167101.shtml)
-- 2026-06-29 14:57 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/53461141412.shtml)
-- 2026-06-29 15:09 - [袁隆平院士 不容诋毁！](http://www.blog.kurohicncr.top/Article/details/520999778778.shtml)
-- 2026-06-29 15:08 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/9159393750.shtml)
-- 2026-06-29 15:03 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/56549746445.shtml)
-- 2026-06-29 15:19 - [吴建豪老婆](http://www.blog.kurohicncr.top/Article/details/964139552750.shtml)
-- 2026-06-29 14:57 - [天道](https://www.blog.kurohicncr.top/Article/details/29343.shtml)
+- 2026-06-29 15:03 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/90889.shtml)
+- 2026-06-29 15:14 - [李在明称韩国足协任命了无能之人](http://www.blog.minike.top/Article/details/30338447905.shtml)
+- 2026-06-29 15:00 - [高市早苗口齿不清被质疑醉酒](https://www.blog.minike.top/Article/details/071970661559.shtml)
+- 2026-06-29 15:22 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/857558575.shtml)
+- 2026-06-29 15:00 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/26425.shtml)
+- 2026-06-29 15:27 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/6198452.shtml)
+- 2026-06-29 15:16 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/60179.shtml)
+- 2026-06-29 15:22 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/95277885349.shtml)
+- 2026-06-29 15:08 - [TLAW vs DCG MSI](https://www.share.kurohicncr.top/Article/details/73857170134.shtml)
+- 2026-06-29 15:16 - [恋与深空 731](https://www.blog.minike.top/Article/details/14477.shtml)
+- 2026-06-29 15:21 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/57102.shtml)
+- 2026-06-29 15:12 - [TLAW vs DCG MSI](https://www.blog.minike.top/Article/details/822849.shtml)
+- 2026-06-29 15:05 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/2693757443.shtml)
+- 2026-06-29 15:29 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/05150318.shtml)
+- 2026-06-29 15:19 - [民进党为什么拼命抹黑统战](https://www.blog.minike.top/Article/details/51954319192.shtml)

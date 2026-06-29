@@ -1,55 +1,61 @@
-# *ST闻泰：控股股东闻天下所持公司股份全部被司法冻结
+# 688051，终止重大重组
 
-> 更新时间：2026-06-29 15:24:03 UTC+8
+> 更新时间：2026-06-29 15:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月25日电 (记者 陈康亮)闻泰科技股份有限公司(下称*ST闻泰)25日发布公告称，公司控股股东闻天下所持有的约1.54亿股公司股份(占公司总股本12.37%)全部被司法冻结，冻结期限自2026年5月22日至2029年5月21日。*ST闻泰表示，本次冻结系因控股股东闻天下、实控人张学政与姜照柏之间的合同纠纷仲裁案引发，姜照柏申请财产保全所致。 根据闻天下说明，闻天下
+来源：中国基金报 【导读】佳华科技宣布终止重大资产重组事项 中国基金报记者 忆山 6月5日，佳华科技发布公告称，公司董事会于当日审议通过了《关于终止发行股份及支付现金购买资产并募集配套资金暨关联交易事项的议案》，同意公司终止本次发行股份及支付现金购买资产并募集配套资金暨关联交易事项，并授权公司管理层全权办理本次终止相关事宜。 核心条款未能达成一致意见 去年11月，佳华科技宣布，
 
 ## 正文
 
-中新网北京5月25日电 (记者 陈康亮)闻泰科技股份有限公司(下称*ST闻泰)25日发布公告称，公司控股股东闻天下所持有的约1.54亿股公司股份(占公司总股本12.37%)全部被司法冻结，冻结期限自2026年5月22日至2029年5月21日。
+来源：中国基金报 【导读】佳华科技宣布终止重大资产重组事项 中国基金报记者 忆山 6月5日，佳华科技发布公告称，公司董事会于当日审议通过了《关于终止发行股份及支付现金购买资产并募集配套资金暨关联交易事项的议案》，同意公司终止本次发行股份及支付现金购买资产并募集配套资金暨关联交易事项，并授权公司管理层全权办理本次终止相关事宜。
 
-*ST闻泰表示，本次冻结系因控股股东闻天下、实控人张学政与姜照柏之间的合同纠纷仲裁案引发，姜照柏申请财产保全所致。
+核心条款未能达成一致意见 去年11月，佳华科技宣布，公司拟通过发行股份及支付现金的方式购买数盾信息科技股份有限公司（以下简称数盾科技）90%的股份，并募集配套资金。
 
-根据闻天下说明，闻天下不存在债务逾期或违约记录情况，不存在主体或债项信用等级下调的情形：除本次司法冻结涉及的案件外，不存在因债务问题引发的重大诉讼或仲裁。
+本次交易预计达到《上市公司重大资产重组管理办法》规定的重大资产重组标准，预计构成关联交易。
 
-闻天下亦不存在非经营性资金占用、违规担保等侵害公司利益的情形。
+资料显示，数盾科技成立于2002年，是一家以密码技术为核心的信息安全整体解决方案提供商，产品覆盖密码芯片、密码板卡模组、密码整机设备、密码平台系统等领域。
 
-*ST闻泰表示，本次股份被司法冻结不会对公司的正常经营及公司治理等产生影响，不会导致公司控制权发生变更。
+佳华科技是一家打通感知层、平台层、应用层的物联网大数据企业。
 
-目前，公司生产经营、管理情况正常，上述事项不会对公司生产经营产生不利影响。
+公司以数据为核心，聚焦生态环境“双碳”领域和智慧城市综合应用，为政企用户提供物联网软硬件产品、解决方案及数据运营服务。
 
-(完)
+佳华科技曾表示，通过本次交易，公司可以结合双方技术优势、开展技术协同开发，共享研发平台、关键技术人才等，共同探索人工智能、区块链、云计算、大数据等技术在物联网大数据领域的应用，巩固和提升其对下游客户的综合服务能力，拓展更多的下游应用场景，从而进一步提升上市公司核心竞争力。
+
+对于该项交易终止原因，佳华科技在最新公告中表示，自本次交易启动以来，公司及相关方积极推进各项工作，但由于综合考虑目前市场环境较本次交易筹划初期已发生一定变化，交易双方就核心条款进行了多轮磋商，但最终未能达成一致意见，为切实维护公司及广大投资者的长远利益，经公司审慎研究，决定终止本次交易事项。
 
 ## 相关推荐
 
-- 2026-06-29 14:57 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 15:06 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 15:11 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 15:04 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 14:55 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 14:58 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 15:20 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 15:21 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 15:03 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 14:58 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 14:59 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 15:08 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 15:28 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 15:19 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 15:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 15:03 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 15:01 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 15:00 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 15:27 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 15:12 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 15:08 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 15:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 15:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 15:22 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 15:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 15:13 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/1465785.shtml)
-- 2026-06-29 15:13 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/823771011.shtml)
-- 2026-06-29 14:54 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/169450760415.shtml)
-- 2026-06-29 15:22 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/26370.shtml)
-- 2026-06-29 15:21 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/080789437045.shtml)
-- 2026-06-29 14:55 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/56260376659.shtml)
-- 2026-06-29 15:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/121230004144.shtml)
-- 2026-06-29 15:01 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/88112.shtml)
-- 2026-06-29 15:23 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/50223.shtml)
-- 2026-06-29 15:01 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/19199884.shtml)
-- 2026-06-29 15:11 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/84037003.shtml)
-- 2026-06-29 14:55 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/838620.shtml)
-- 2026-06-29 15:22 - [7款商保创新药“转道”](http://www.share.kurohicncr.top/Article/details/14653821.shtml)
-- 2026-06-29 14:59 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/295179931798.shtml)
-- 2026-06-29 15:00 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/5589778112.shtml)
+- 2026-06-29 15:23 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/64085370.shtml)
+- 2026-06-29 15:25 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/727275990072.shtml)
+- 2026-06-29 15:26 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/64049482989.shtml)
+- 2026-06-29 15:07 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/10234480315.shtml)
+- 2026-06-29 15:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/513632832714.shtml)
+- 2026-06-29 15:08 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/360564.shtml)
+- 2026-06-29 15:22 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/026238.shtml)
+- 2026-06-29 15:16 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/94199.shtml)
+- 2026-06-29 15:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/95758295186.shtml)
+- 2026-06-29 15:06 - [女生雨天开车发现雨刮条被掰走](http://www.blog.minike.top/Article/details/799231273.shtml)
+- 2026-06-29 15:14 - [韩国记者：解码“合肥模式”](https://www.share.minike.top/Article/details/710711.shtml)
+- 2026-06-29 15:15 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.minike.top/Article/details/706307742947.shtml)
+- 2026-06-29 15:09 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/817930604975.shtml)
+- 2026-06-29 15:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/938993463221.shtml)
+- 2026-06-29 15:15 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/3460158.shtml)
