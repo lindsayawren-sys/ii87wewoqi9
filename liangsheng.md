@@ -1,56 +1,58 @@
-# 李强同越南总理黎明兴通电话
+# （乡村行·看振兴）山西万荣：小葫芦“雕”出致富路
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新社北京6月15日电 6月15日上午，中国国务院总理李强应约同越南总理黎明兴通电话。 李强表示，今年4月，习近平总书记、国家主席同访华的苏林总书记、国家主席举行会晤，就构建更高水平具有战略意义的中越命运共同体达成重要共识。近段时期，两国各部门各地方加紧推进访问成果落实，取得积极进展。中越有着深厚传统友谊。中方始终将越南视为周边外交的优先方向，愿同越方一道遵循两党两国最高领导人
+中新网运城4月10日电 题：山西万荣：小葫芦“雕”出致富路 作者 高雨晴 郭夏楠 烙画、浮雕等传统工艺尽显匠心，山水花鸟、民俗纹样活灵活现。在山西万荣县解店镇王通葫芦种植专业合作社，一件件精美的葫芦工艺品，既承载着传统手工艺的深厚底蕴，也撑起当地民众的致富梦，成为解店镇特色产业发展的亮眼名片。 2025年6月，万荣县解店镇太贾村以“盘活闲置资源、壮大村集体经济”为目标，主动对接
 
 ## 正文
 
-中新社北京6月15日电 6月15日上午，中国国务院总理李强应约同越南总理黎明兴通电话。
+中新网运城4月10日电 题：山西万荣：小葫芦“雕”出致富路 作者 高雨晴 郭夏楠 烙画、浮雕等传统工艺尽显匠心，山水花鸟、民俗纹样活灵活现。
 
-李强表示，今年4月，习近平总书记、国家主席同访华的苏林总书记、国家主席举行会晤，就构建更高水平具有战略意义的中越命运共同体达成重要共识。
+在山西万荣县解店镇王通葫芦种植专业合作社，一件件精美的葫芦工艺品，既承载着传统手工艺的深厚底蕴，也撑起当地民众的致富梦，成为解店镇特色产业发展的亮眼名片。
 
-近段时期，两国各部门各地方加紧推进访问成果落实，取得积极进展。
+2025年6月，万荣县解店镇太贾村以“盘活闲置资源、壮大村集体经济”为目标，主动对接王通葫芦种植专业合作社，将闲置老校园改造升级为创业沃土，助力合作社深耕葫芦全产业链，把小葫芦打造成富民产业。
 
-中越有着深厚传统友谊。
+合作社立足本地种植优势，优选优质葫芦品种开展规模化种植，从源头严把原料品质关；同时深挖传统葫芦工艺精髓，汇聚当地民间手工艺人，构建起集葫芦种植、工艺创作、文创研发、生产加工、线上线下销售于一体的完整产业体系，实现葫芦产业闭环发展。
 
-中方始终将越南视为周边外交的优先方向，愿同越方一道遵循两党两国最高领导人战略引领，加强团结互信，拓展互利合作，更好促进两国共同发展繁荣。
+合作社负责人李国勤介绍，合作社的葫芦工艺品品类丰富、工艺精湛，摒弃单一制作模式，深度融合多种非遗技艺，产品涵盖工艺摆件、文创礼品、家居饰品等品类，既保留传统民俗韵味，又贴合现代市场审美，深受消费者青睐。
 
-李强指出，中方愿同越方深入对接发展战略，推动两国贸易不断扩面提质，推进基础设施互联互通，加快跨境经济合作区建设，拓展能源矿产、数字经济、人工智能、金融等领域合作，实现更高水平互利共赢。
+依托蓬勃发展的葫芦产业，合作社积极带动当地民众就业增收，重点吸纳有绘画、手工功底的村民参与工艺制作、产品打磨、订单整理等工作，量身定制灵活就业岗位，让村民凭借传统手艺实现家门口就业。
 
-双方要共同办好“中越旅游合作年”等活动，落实“小而美”民生项目，妥善管控海上分歧，夯实两国友好民意基础。
+目前，合作社已带动40余名村民稳定就业。
 
-当前全球单边主义、保护主义抬头，中方愿同越方加强在联合国、世贸组织等多边机制协调配合，相互支持办好今明两年的亚太经合组织领导人非正式会议，推动建设开放型亚太经济，维护自由贸易和经济全球化。
+与此同时，合作社开设抖音直播，拓宽销售渠道，依托网络平台将葫芦产品销往全国各地。
 
 ## 相关推荐
 
-- 2026-06-30 05:35 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 05:27 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 05:33 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 05:22 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 05:14 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 05:28 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 05:23 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-30 05:17 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 05:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 05:06 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 05:22 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 05:23 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 05:17 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 05:15 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 05:35 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 05:34 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 05:21 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 05:38 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 05:16 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 05:12 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 05:20 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 05:35 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:10 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/991183.shtml)
-- 2026-06-30 05:17 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/82218579.shtml)
-- 2026-06-30 05:22 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/37267.shtml)
-- 2026-06-30 05:27 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/587582.shtml)
-- 2026-06-30 05:06 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.minike.top/Article/details/598845357051.shtml)
-- 2026-06-30 05:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/190845987.shtml)
-- 2026-06-30 05:35 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/605826913.shtml)
-- 2026-06-30 05:06 - [内马尔替补](http://www.share.minike.top/Article/details/83981718.shtml)
-- 2026-06-30 05:19 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/257219.shtml)
-- 2026-06-30 05:33 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/4494300759.shtml)
-- 2026-06-30 05:07 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/7903181763.shtml)
-- 2026-06-30 05:34 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/28327979727.shtml)
-- 2026-06-30 05:12 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/39434.shtml)
-- 2026-06-30 05:18 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/41397091.shtml)
-- 2026-06-30 05:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/36422.shtml)
+- 2026-06-30 05:32 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/49193.shtml)
+- 2026-06-30 05:30 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/449972783.shtml)
+- 2026-06-30 05:41 - [千与千寻](http://www.share.kurohicncr.top/Article/details/629324011577.shtml)
+- 2026-06-30 05:15 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/28641.shtml)
+- 2026-06-30 05:36 - [女心理师](http://www.share.minike.top/Article/details/11586.shtml)
+- 2026-06-30 05:29 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/68605584090.shtml)
+- 2026-06-30 05:39 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/99892945449.shtml)
+- 2026-06-30 05:13 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/9185884.shtml)
+- 2026-06-30 05:37 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/561392.shtml)
+- 2026-06-30 05:31 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/681220266583.shtml)
+- 2026-06-30 05:19 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/6952569483.shtml)
+- 2026-06-30 05:12 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/04166168.shtml)
+- 2026-06-30 05:18 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/667349.shtml)
+- 2026-06-30 05:18 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/650032576193.shtml)
+- 2026-06-30 05:28 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/251165169725.shtml)

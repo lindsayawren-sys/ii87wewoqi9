@@ -1,59 +1,57 @@
-# 近一年收益超402%，这位基金经理，如何破解规模魔咒？
+# 一季度1.85亿人次出入境 同比上升13.5%
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-公募行业向来有个难以打破的规律：规模偏小的基金凭借调仓灵活性，更容易跑出亮眼收益，而规模做大之后，许多产品都难以延续强势业绩，往往会陷入净值增长放缓的困境。 规模增长后，调仓难度、流动性压力随之增加。因而，想要在规模暴涨之后依旧守住业绩优势，历来是公募投资中极难完成的挑战。 但一位任职公募仅一年多的基金经理，却凭借一套内涵稳定且极具爆发力的投资打法，上演了一场惊艳行业的“大象起
+国家移民管理局4月10日发布2026年一季度移民管理主要数据。一季度，全国移民管理机构累计查验出入境人员1.85亿人次，同比上升13.5%。其中内地(大陆)居民9166.2万人次、港澳台居民7249.1万人次、外国人2133.3万人次，同比分别上升14.2%、10.3%、22.3%。免签入境外国人占入境外国人的77.9%。 一季度，全国移民管理机构累计查验出入境交通运输工具10
 
 ## 正文
 
-公募行业向来有个难以打破的规律：规模偏小的基金凭借调仓灵活性，更容易跑出亮眼收益，而规模做大之后，许多产品都难以延续强势业绩，往往会陷入净值增长放缓的困境。
+国家移民管理局4月10日发布2026年一季度移民管理主要数据。
 
-规模增长后，调仓难度、流动性压力随之增加。
+一季度，全国移民管理机构累计查验出入境人员1.85亿人次，同比上升13.5%。
 
-因而，想要在规模暴涨之后依旧守住业绩优势，历来是公募投资中极难完成的挑战。
+其中内地(大陆)居民9166.2万人次、港澳台居民7249.1万人次、外国人2133.3万人次，同比分别上升14.2%、10.3%、22.3%。
 
-但一位任职公募仅一年多的基金经理，却凭借一套内涵稳定且极具爆发力的投资打法，上演了一场惊艳行业的“大象起舞”。
+免签入境外国人占入境外国人的77.9%。
 
-去年3月起，现任华商基金权益投资部总经理的张明昕开始正式管理公募产品，截至今年6月4日，其管理的华商均衡成长混合A近一年（2025.6.5 - 2026.6.4）回报高达402.05%，同期业绩比较基准收益率43.07%，超额收益358.98%。
+一季度，全国移民管理机构累计查验出入境交通运输工具1009.8万架(列、艘、辆)次，同比上升18.9%。
 
-虽来到公募领域仅一年多时间，但张明昕实际上自2008年底加入证券行业至今已有超17年（具有10.5年证券从业经历，其中5.3年证券研究经历、5.2年证券投资经历），历经券商资管、保险资管等多类机构历练，见证过多轮完整市场周期，也吃透了不同逻辑的投资体系。
+共签发普通护照520.1万本、内地(大陆)居民往来港澳台证件签注2688万张(件)次，签发港澳台居民来往内地(大陆)通行证54.1万张；签发外国人签证证件40.6万证次。
 
-张明昕 特许金融分析师（CFA） 华商基金权益投资部总经理 华商均衡成长混合等基金经理 早在AI产业萌芽初期，他就扎根产业深入研究，沉淀出独树一帜的产业认知。
-
-在本轮AI产业上涨中，他精准抓住斜率最陡峭的细分领域，实现了极强业绩弹性。
+记者：孙鹏程、刘硕 海报制作：孙鹏程 新华社国内部出品
 
 ## 相关推荐
 
-- 2026-06-30 05:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 05:35 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 05:35 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-30 05:17 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 05:29 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 05:12 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 05:30 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-30 05:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 05:30 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 05:07 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 05:07 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 05:29 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 05:09 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 05:22 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-30 05:28 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 05:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 05:26 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 05:17 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 05:23 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 05:12 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 05:27 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 05:39 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 05:33 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 05:20 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 05:29 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 05:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:08 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/556298037661.shtml)
-- 2026-06-30 05:17 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/008326752.shtml)
-- 2026-06-30 05:14 - [毒液2](http://www.blog.kurohicncr.top/Article/details/17080461.shtml)
-- 2026-06-30 05:28 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/755327784.shtml)
-- 2026-06-30 05:33 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/1700551.shtml)
-- 2026-06-30 05:33 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/4277896.shtml)
-- 2026-06-30 05:18 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/82477.shtml)
-- 2026-06-30 05:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/0831657653.shtml)
-- 2026-06-30 05:15 - [电影后室值得看吗](http://www.share.minike.top/Article/details/73410433.shtml)
-- 2026-06-30 05:17 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/6837902853.shtml)
-- 2026-06-30 05:27 - [世界杯](https://www.share.minike.top/Article/details/999845005338.shtml)
-- 2026-06-30 05:15 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/05731163.shtml)
-- 2026-06-30 05:06 - [流金岁月](https://www.blog.minike.top/Article/details/58136602.shtml)
-- 2026-06-30 05:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/695913.shtml)
-- 2026-06-30 05:29 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/38756915043.shtml)
+- 2026-06-30 05:28 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/345065.shtml)
+- 2026-06-30 05:35 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/63659.shtml)
+- 2026-06-30 05:23 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/34408670728.shtml)
+- 2026-06-30 05:39 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/4810901079.shtml)
+- 2026-06-30 05:33 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/66639383.shtml)
+- 2026-06-30 05:40 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/98788.shtml)
+- 2026-06-30 05:39 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/01481.shtml)
+- 2026-06-30 05:32 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/10640.shtml)
+- 2026-06-30 05:33 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/8247814.shtml)
+- 2026-06-30 05:23 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/44979611.shtml)
+- 2026-06-30 05:32 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/99803.shtml)
+- 2026-06-30 05:31 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/1014481.shtml)
+- 2026-06-30 05:33 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/582306621259.shtml)
+- 2026-06-30 05:18 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/8344045147.shtml)
+- 2026-06-30 05:29 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/441413.shtml)

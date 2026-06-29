@@ -1,61 +1,58 @@
-# 特朗普过去24小时都忙了什么？（2026-06-16）
+# “双管齐下”保安全 浙江推进“三小”治理守护医药消费环境
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十数据 1． 声称多艘装载石油船只正通过霍尔木兹海峡——当地时间6月15日，特朗普在社交媒体平台“真实社交”发文称，已有船只开始通过霍尔木兹海峡运输原油并驶离相关水域。 2． 将于周五签署协议后公布文本 油价跌了股市涨了——特朗普表示，霍尔木兹海峡于周五完全开放，协议已全部（以电子方式）签署。将在周
+中新网杭州4月10日电 (潘沁文)“一手抓源头治理，一手抓协同治理，‘双管齐下’守牢安全底线，让群众用药更放心。”4月10日，在浙江深化药品监管改革促进医药产业高水平安全高质量发展新闻发布会上，浙江省药品监督管理局(以下简称“浙江省药监局”)党组书记、局长王状武介绍了该省药品监管部门如何保障药品质量高水平安全。 “药品监管工作一头连着经济社会发展，一头连着千家万户健康。”王状武
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网杭州4月10日电 (潘沁文)“一手抓源头治理，一手抓协同治理，‘双管齐下’守牢安全底线，让群众用药更放心。
 
-来源：金十数据 1． 声称多艘装载石油船只正通过霍尔木兹海峡——当地时间6月15日，特朗普在社交媒体平台“真实社交”发文称，已有船只开始通过霍尔木兹海峡运输原油并驶离相关水域。
+”4月10日，在浙江深化药品监管改革促进医药产业高水平安全高质量发展新闻发布会上，浙江省药品监督管理局(以下简称“浙江省药监局”)党组书记、局长王状武介绍了该省药品监管部门如何保障药品质量高水平安全。
 
-2． 将于周五签署协议后公布文本 油价跌了股市涨了——特朗普表示，霍尔木兹海峡于周五完全开放，协议已全部（以电子方式）签署。
+“药品监管工作一头连着经济社会发展，一头连着千家万户健康。
 
-将在周五之后公布伊朗协议文本。
+”王状武表示，该局坚持统筹发展和安全，通过高效能的监管，推动浙江药品安全态势稳定向好、医药产业发展稳中有进。
 
-他强调，重要的是油价大幅下跌而股市正在上涨。
+线下监管方面，值得关注的是，针对小药店、小诊所、小美容店(“三小”)经营者药品安全意识和合规能力相对薄弱等问题，去年，该省多部门联合开展“三小”经营使用药品安全问题专项治理，重点整治从非法渠道购买药械、不按规定销售处方药、销售和使用过期药械等行为。
 
-3． 弄混3亿和3000亿——当地时间6月16日凌晨，特朗普在社交平台发文称，“有关‘美国将向伊朗支付3亿美元’的报道是假新闻。
+从具体举措来看，采用集中培训、网络自学、上门服务、自查自纠等方式开展合规指导，共合规指导“三小”主体62418家，推动114家小药店依法调整经营范围；坚持有投诉举报的必查、有违法违规主观故意的必查、有风险隐患的必查、有危害后果的必查，共查办“三小”违法案件14431件；推动“三小”治理常态长效，发布典型案例423个，制定主体合规、协同治理、能力提升等方面的长效机制215个。
 
-”而伊朗媒体昨天披露的伊美谅解备忘录14项条款中涉及具体金额的一项为：美国及其盟友有必要提出对伊朗的重建计划，金额至少3000亿美元。
+线上监管方面，针对网络消费建立“药械化网络消费纠纷调解服务站”，“十四五”期间，浙江省药监局共收到并办结投诉举报、意见建议等8574件，有力维护了医药消费环境良好秩序。
 
-4． 伊朗协议谈判进入第二阶段 美国不会在伊朗投入任何资金——特朗普16日称，美国和伊朗已成功在线上签署谅解备忘录，现在美伊协议谈判已进入第二阶段。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:23 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-30 05:26 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 05:10 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 05:22 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 05:29 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 05:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 05:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-30 05:21 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 05:22 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 05:30 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 05:06 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 05:32 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 05:33 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 05:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 05:27 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 05:26 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 05:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-30 05:40 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-30 05:32 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 05:25 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 05:19 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 05:26 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 05:14 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 05:34 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 05:28 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 05:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 05:32 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:30 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/212974.shtml)
-- 2026-06-30 05:18 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/6249983.shtml)
-- 2026-06-30 05:18 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/637646712043.shtml)
-- 2026-06-30 05:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/54602036310.shtml)
-- 2026-06-30 05:26 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/2114253.shtml)
-- 2026-06-30 05:07 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/58441545.shtml)
-- 2026-06-30 05:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/80307.shtml)
-- 2026-06-30 05:30 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/18808266.shtml)
-- 2026-06-30 05:32 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/933214168326.shtml)
-- 2026-06-30 05:31 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/1119455.shtml)
-- 2026-06-30 05:08 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/8219213614.shtml)
-- 2026-06-30 05:25 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/792497438724.shtml)
-- 2026-06-30 05:10 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/174088036981.shtml)
-- 2026-06-30 05:32 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/914243604.shtml)
-- 2026-06-30 05:27 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/37811218.shtml)
+- 2026-06-30 05:27 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/67126425.shtml)
+- 2026-06-30 05:26 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/30205.shtml)
+- 2026-06-30 05:37 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/3350097563.shtml)
+- 2026-06-30 05:14 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/87699.shtml)
+- 2026-06-30 05:12 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/4588009388.shtml)
+- 2026-06-30 05:30 - [周生如故](https://www.share.minike.top/Article/details/517593084000.shtml)
+- 2026-06-30 05:21 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/10798212178.shtml)
+- 2026-06-30 05:25 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/547081576785.shtml)
+- 2026-06-30 05:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/439393053.shtml)
+- 2026-06-30 05:38 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/558589677.shtml)
+- 2026-06-30 05:23 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/45019263326.shtml)
+- 2026-06-30 05:26 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/55689561.shtml)
+- 2026-06-30 05:38 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/39701769045.shtml)
+- 2026-06-30 05:27 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/6992000022.shtml)
+- 2026-06-30 05:23 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/9329376296.shtml)

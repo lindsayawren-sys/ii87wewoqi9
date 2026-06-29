@@ -1,57 +1,60 @@
-# 必胜客被卖了，价格182亿元
+# （乡村行·看振兴）内蒙古乡村观察：中坚农民带动乡村向新发展
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-记者丨刘婧汐 易佳颖 编辑丨唐铮玮 梁明 陶力 6月16日晚，百胜餐饮集团宣布，已达成最终协议，以总计27亿美元（约人民币182.43亿）的价格分两笔交易出售必胜客业务。其中，私募股权公司LongRange Capital收购除中国大陆以外的必胜客业务，百胜中国控股有限公司收购中国大陆的必胜客业务。预计两项交易将于2026年第三季度完成。 与此同时，中国最大的餐饮集团百胜中国控
+中新网赤峰4月10日电 题：内蒙古乡村观察：中坚农民带动乡村向新发展 作者 奥蓝 梁佳靓 张梓垚 在内蒙古自治区赤峰市巴林左旗，有一群扎根乡土的创业者，他们以创新之力激活乡村振兴“一池春水”，让乡村既有烟火气，更有发展劲。 “怀揣深厚农耕情怀，又具备现代产业思维；既是连接传统农业与现代产业的重要纽带，也是激活乡村内生动力的关键力量。”林东镇党委副书记赵赛亮在接受记者采访时说，这
 
 ## 正文
 
-记者丨刘婧汐 易佳颖 编辑丨唐铮玮 梁明 陶力 6月16日晚，百胜餐饮集团宣布，已达成最终协议，以总计27亿美元（约人民币182.43亿）的价格分两笔交易出售必胜客业务。
+中新网赤峰4月10日电 题：内蒙古乡村观察：中坚农民带动乡村向新发展 作者 奥蓝 梁佳靓 张梓垚 在内蒙古自治区赤峰市巴林左旗，有一群扎根乡土的创业者，他们以创新之力激活乡村振兴“一池春水”，让乡村既有烟火气，更有发展劲。
 
-其中，私募股权公司LongRange Capital收购除中国大陆以外的必胜客业务，百胜中国控股有限公司收购中国大陆的必胜客业务。
+“怀揣深厚农耕情怀，又具备现代产业思维；既是连接传统农业与现代产业的重要纽带，也是激活乡村内生动力的关键力量。
 
-预计两项交易将于2026年第三季度完成。
+”林东镇党委副书记赵赛亮在接受记者采访时说，这些年轻人还有一个别名：中坚农民。
 
-与此同时，中国最大的餐饮集团百胜中国控股有限公司宣布，已与Yum！
+公开材料称，中坚农民是指长期在乡村从事农业兼业经营，经济社会关系主要在村庄的青壮年农民群体。
 
-Brands （美国的百胜环球公司） 签署最终协议，以12亿美元现金对价收购必胜客品牌在中国大陆的所有权。
+他们并非外出务工的农民工，也不是完全依赖农业的小规模农户，而是通过适度规模经营、兼业等方式，在农村实现稳定收入并维持完整家庭生活的“在地化”农民。
 
-交易完成后，百胜中国将从必胜客品牌在中国大陆的“独家特许经营商”转变为“品牌所有者”，必胜客中国将无须再向Yum！
+连日来，记者走进巴林左旗，感受中坚农民在带动家乡发展过程中展现的蓬勃力量。
 
-Brands支付特许经营费。
+技术破局，种出高效农业 眼下正值辣椒育苗黄金期，也是种子萌发的关键阶段。
 
-责任编辑：刘万里 SF014
+记者见到返乡大学生张雨鑫时，她正在大棚里为辣椒苗覆盖地膜。
 
 ## 相关推荐
 
-- 2026-06-30 05:32 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 05:08 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 05:27 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 05:08 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 05:27 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 05:20 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 05:35 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 05:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 05:10 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 05:21 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 05:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 05:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 05:25 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 05:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 05:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 05:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 05:14 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 05:15 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 05:23 - [日本淘汰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 05:38 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 05:36 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 05:37 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 05:16 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 05:29 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 05:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:16 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/5013386464.shtml)
-- 2026-06-30 05:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/2328762403.shtml)
-- 2026-06-30 05:23 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/05481500478.shtml)
-- 2026-06-30 05:18 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/4438388.shtml)
-- 2026-06-30 05:26 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/6230113002.shtml)
-- 2026-06-30 05:22 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/77923.shtml)
-- 2026-06-30 05:21 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/5054449147.shtml)
-- 2026-06-30 05:32 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/23469525410.shtml)
-- 2026-06-30 05:28 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/97474.shtml)
-- 2026-06-30 05:09 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/737343759931.shtml)
-- 2026-06-30 05:22 - [世界杯](https://www.blog.kurohicncr.top/Article/details/45840140.shtml)
-- 2026-06-30 05:16 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/3127558941.shtml)
-- 2026-06-30 05:16 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/87686489.shtml)
-- 2026-06-30 05:22 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/97987730096.shtml)
-- 2026-06-30 05:16 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/344639699.shtml)
+- 2026-06-30 05:20 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/22688.shtml)
+- 2026-06-30 05:22 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/94065.shtml)
+- 2026-06-30 05:23 - [《贺子珍》](https://www.blog.minike.top/Article/details/280358454853.shtml)
+- 2026-06-30 05:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/55415.shtml)
+- 2026-06-30 05:20 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/95514712.shtml)
+- 2026-06-30 05:14 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/07415365.shtml)
+- 2026-06-30 05:25 - [爱很美味](http://www.share.kurohicncr.top/Article/details/37499032477.shtml)
+- 2026-06-30 05:33 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/56822998.shtml)
+- 2026-06-30 05:22 - [青春环游记第三季](https://www.blog.minike.top/Article/details/768017736087.shtml)
+- 2026-06-30 05:24 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/600002.shtml)
+- 2026-06-30 05:29 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/03778.shtml)
+- 2026-06-30 05:25 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/74001247.shtml)
+- 2026-06-30 05:41 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/28254731.shtml)
+- 2026-06-30 05:17 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/72790282414.shtml)
+- 2026-06-30 05:27 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/245129.shtml)

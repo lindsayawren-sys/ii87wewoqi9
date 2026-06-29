@@ -1,61 +1,59 @@
-# 李萌：AI的泡沫不是本质问题 AI的金融属性强弱才是
+# 习近平主席贺信激励中美各界人士拉紧友谊纽带
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-专题：第十届中关村数字金融大会 编者按： 6月11日，2026第十届中关村数字金融与金融安全大会在北京中关村国际技术交易中心隆重举办。作为国内金融科技领域极具影响力的行业品牌盛会，大会深耕数字金融创新与金融安全领域十年，持续聚焦行业前沿趋势与高质量发展核心议题。本届大会以“智能体与OPC协同 共筑金融科技新生态”为主题，重点围绕智能体应用、词元经济、一人公司新业态、金融数智化转
+原标题：再续“乒乓情缘” 推进友好事业——习近平主席贺信激励中美各界人士拉紧友谊纽带 4月10日，国家主席习近平向中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式致贺信。 中美各界人士表示，习近平主席贺信高度评价“乒乓外交”的历史和现实意义，鼓励两国各界人士特别是青年一代相知相亲、携手前行，为两国关系注入强大动力和温暖能量。要在贺信精神指引下，以满腔热情和扎
 
 ## 正文
 
-专题：第十届中关村数字金融大会 编者按： 6月11日，2026第十届中关村数字金融与金融安全大会在北京中关村国际技术交易中心隆重举办。
+原标题：再续“乒乓情缘” 推进友好事业——习近平主席贺信激励中美各界人士拉紧友谊纽带 4月10日，国家主席习近平向中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式致贺信。
 
-作为国内金融科技领域极具影响力的行业品牌盛会，大会深耕数字金融创新与金融安全领域十年，持续聚焦行业前沿趋势与高质量发展核心议题。
+中美各界人士表示，习近平主席贺信高度评价“乒乓外交”的历史和现实意义，鼓励两国各界人士特别是青年一代相知相亲、携手前行，为两国关系注入强大动力和温暖能量。
 
-本届大会以“智能体与OPC协同 共筑金融科技新生态”为主题，重点围绕智能体应用、词元经济、一人公司新业态、金融数智化转型与金融安全治理等核心内容开展深度研讨。
+要在贺信精神指引下，以满腔热情和扎实行动让“乒乓外交”精神在新时代发扬光大，为推动中美关系稳定、健康、可持续发展作出新贡献。
 
-十四届全国政协委员、科学技术部原副部长李萌先生，出席本次大会，并发表题为《AI的泡沫不是本质问题 AI的金融属性强弱才是》的主题演讲。
+从历史中汲取智慧和力量 “55年前，中美老一辈领导人以卓越的政治智慧和战略远见，重新开启两国人民友好往来的大门，成就了‘小球转动大球’的历史佳话。
 
-李萌指出，辩证看待AI泡沫，关键在于AI是否发展出“过强金融属性”。
+”习近平主席在贺信中回顾的“乒乓外交”传奇故事，让纪念大会现场所有人再次重温半个多世纪前难忘的温暖记忆。
 
-早期适度的泡沫基本符合技术革命一般规律，李萌认为当前算力市场呈现供不应求“卖方市场”特征，但应用层等领域存在估值虚高问题；如果AI金融属性过度泛化，将引发类似房地产的风险放大效应。
+1971年，在日本举行的第31届世界乒乓球锦标赛上，美国队球员科恩和中国队庄则栋的握手，成为举世瞩目的瞬间。
 
-李萌进一步指出，中国应建立“强金融支持、弱金融属性”的金融支持AI发展战略，在创新金融工具的同时，防止AI滑向过度金融化，始终将金融服务锚定在AI为实体经济服务上。
+之后，美国乒乓球代表团受邀访华，打破了双方曾隔绝对立逾20年的坚冰，中美关系自此开始松动、转圜、恢复、发展。
 
-演讲全文： 大家下午好！
+当时年仅15岁的朱迪·霍夫罗斯特是美方代表团中年纪最小的成员。
 
 ## 相关推荐
 
-- 2026-06-30 05:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-30 05:12 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 05:27 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-30 05:09 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 05:23 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-30 05:10 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 05:18 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 05:06 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 05:22 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 05:15 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 05:22 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 05:11 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 05:13 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 05:33 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 05:13 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 05:28 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-30 05:12 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 05:15 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 05:34 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 05:38 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 05:38 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 05:26 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 05:36 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 05:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-30 05:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 05:25 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 05:28 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 05:12 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:24 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/230457696509.shtml)
-- 2026-06-30 05:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/16099104.shtml)
-- 2026-06-30 05:26 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/874436.shtml)
-- 2026-06-30 05:20 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/420615.shtml)
-- 2026-06-30 05:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/0397155969.shtml)
-- 2026-06-30 05:06 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/084768212.shtml)
-- 2026-06-30 05:12 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/690125517.shtml)
-- 2026-06-30 05:28 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/238022304.shtml)
-- 2026-06-30 05:25 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/625557926312.shtml)
-- 2026-06-30 05:17 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/04781.shtml)
-- 2026-06-30 05:12 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/145171166.shtml)
-- 2026-06-30 05:24 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/091432728320.shtml)
-- 2026-06-30 05:34 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/06136690.shtml)
-- 2026-06-30 05:26 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/3174155.shtml)
-- 2026-06-30 05:11 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/720870298.shtml)
+- 2026-06-30 05:17 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/239142455766.shtml)
+- 2026-06-30 05:31 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/70119935.shtml)
+- 2026-06-30 05:22 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/53680806333.shtml)
+- 2026-06-30 05:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/18674001363.shtml)
+- 2026-06-30 05:15 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/7158640.shtml)
+- 2026-06-30 05:41 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/26917546611.shtml)
+- 2026-06-30 05:41 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/38000426.shtml)
+- 2026-06-30 05:27 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/46191647.shtml)
+- 2026-06-30 05:28 - [日本进球](http://www.share.kurohicncr.top/Article/details/71627582674.shtml)
+- 2026-06-30 05:24 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/36048.shtml)
+- 2026-06-30 05:23 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/6855331.shtml)
+- 2026-06-30 05:23 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/4123143.shtml)
+- 2026-06-30 05:33 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/24528.shtml)
+- 2026-06-30 05:32 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/68408.shtml)
+- 2026-06-30 05:27 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/41394.shtml)

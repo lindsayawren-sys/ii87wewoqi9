@@ -1,57 +1,58 @@
-# （聚焦海峡论坛）第二届海峡慈善论坛在福州开幕
+# 嘉兴海宁：新的社会阶层人士聚力东西部协作 同心帮扶共绘黑水“新图景”
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新社福州6月15日电 (叶秋云)第十八届海峡论坛·第二届海峡慈善论坛15日在福建福州开幕。来自海峡两岸及港澳地区的慈善领域专家学者、公益慈善组织负责人等近500人与会。 台湾旺旺集团副董事长周锡玮在开幕式致辞中分享了他与福建的渊源及参与公益慈善的故事。他在接受中新社采访时表示，大陆始终以善意对待两岸同胞，尤其关心台湾农民、渔民等群体的需求，每当台湾农产品滞销或遭遇灾害、困境时
+近年来，海宁市委统战部紧扣“同心共富”主线，团结引领全市广大新的社会阶层人士以“社会公益暖民心、产业帮扶强根基、文化互融聚情谊”为路径，持续深化与四川黑水县的跨区域结对帮扶，实现海宁与黑水在东西部协作、共同富裕路上的“双向奔赴”。从“单点帮扶”到“全域覆盖” 织密民生保障网 “我要好好学习，将来去海宁看看！”在黑水县芦花镇二古鲁村，7岁的泽郎卓玛接过海宁市新联会送来的书包和助学
 
 ## 正文
 
-中新社福州6月15日电 (叶秋云)第十八届海峡论坛·第二届海峡慈善论坛15日在福建福州开幕。
+近年来，海宁市委统战部紧扣“同心共富”主线，团结引领全市广大新的社会阶层人士以“社会公益暖民心、产业帮扶强根基、文化互融聚情谊”为路径，持续深化与四川黑水县的跨区域结对帮扶，实现海宁与黑水在东西部协作、共同富裕路上的“双向奔赴”。
 
-来自海峡两岸及港澳地区的慈善领域专家学者、公益慈善组织负责人等近500人与会。
+从“单点帮扶”到“全域覆盖” 织密民生保障网 “我要好好学习，将来去海宁看看！
 
-台湾旺旺集团副董事长周锡玮在开幕式致辞中分享了他与福建的渊源及参与公益慈善的故事。
+”在黑水县芦花镇二古鲁村，7岁的泽郎卓玛接过海宁市新联会送来的书包和助学金。
 
-他在接受中新社采访时表示，大陆始终以善意对待两岸同胞，尤其关心台湾农民、渔民等群体的需求，每当台湾农产品滞销或遭遇灾害、困境时，大陆都会主动伸出援手。
+海宁爱心人士的资助，让这个品学兼优却家境困难的孩子坚定了求学信念。
 
-论坛上，7位来自海峡两岸及港澳地区的专家学者、慈善业界代表围绕“公益慈善与人心融合”等议题，就慈善事业创新、两岸公益协作、基层社会治理等内容发表主题演讲。
+这一幕，正是海宁市新的社会阶层人士以公益为纽带，架起“山海连心桥”的温暖写照。
 
-台胞杨文山回忆了其在2009年汶川大地震一周年之际赴汶川大地震灾区捐赠台商台企物资的经历。
+自2020年起，在海宁市委统战部的牵线搭桥下，海宁市新联会联合爱心联盟等社会组织，共同发起“海宁·黑水红军后代成长关爱”项目。
 
-他说，慈善是心与心、生命对生命的碰触，“我体会到公益带来的温暖，也真切感受到与大陆土地、同胞紧密相连的归属感”。
+通过前期精准摸排，项目为18户家庭的25名红军后代建立帮扶档案，提供从小学到大学的全程助学金支持，累计投入帮扶资金近10万元。
 
-福建省海峡两岸助残志愿者协会会长王永澄介绍，协会成立近一年来，聚焦两岸残疾人群体实际需求，在福建推动设立两岸残疾人养老示范点与盲人按摩医院，联动福建本地院校推进盲人特色科教班落地，推动两岸残疾人证件互通、职业技能联合培训等，在扶危济困中增进两岸同胞情谊，在守望相助中凝聚融合共识。
+在各方努力下，已有4名黑水红军后代来到浙江接受教育。
 
 ## 相关推荐
 
-- 2026-06-30 05:34 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 05:14 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 05:32 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 05:29 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 05:11 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 05:29 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 05:06 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 05:32 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 05:12 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 05:29 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 05:32 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 05:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 05:32 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 05:31 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 05:38 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 05:15 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 05:36 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 05:21 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 05:23 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 05:22 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 05:24 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 05:40 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 05:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:26 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/301750034878.shtml)
-- 2026-06-30 05:21 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/99938091149.shtml)
-- 2026-06-30 05:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/273940.shtml)
-- 2026-06-30 05:25 - [苗族银饰](http://www.share.minike.top/Article/details/855759431195.shtml)
-- 2026-06-30 05:33 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/87365359966.shtml)
-- 2026-06-30 05:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/29582748135.shtml)
-- 2026-06-30 05:07 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/6265011922.shtml)
-- 2026-06-30 05:17 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/707487382879.shtml)
-- 2026-06-30 05:20 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/01893644341.shtml)
-- 2026-06-30 05:19 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/836616260.shtml)
-- 2026-06-30 05:25 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/192034230573.shtml)
-- 2026-06-30 05:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/21432.shtml)
-- 2026-06-30 05:34 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/0899640.shtml)
-- 2026-06-30 05:07 - [周生如故](https://www.share.minike.top/Article/details/918743815761.shtml)
-- 2026-06-30 05:17 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/2954608.shtml)
+- 2026-06-30 05:28 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/4043401.shtml)
+- 2026-06-30 05:26 - [千与千寻](http://www.share.kurohicncr.top/Article/details/20094.shtml)
+- 2026-06-30 05:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/4811071.shtml)
+- 2026-06-30 05:33 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/93470820.shtml)
+- 2026-06-30 05:13 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/33878055402.shtml)
+- 2026-06-30 05:21 - [恋与深空 巧合](http://www.share.minike.top/Article/details/32813.shtml)
+- 2026-06-30 05:28 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/60698808284.shtml)
+- 2026-06-30 05:40 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/32656096.shtml)
+- 2026-06-30 05:14 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/540445433.shtml)
+- 2026-06-30 05:17 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/733426183111.shtml)
+- 2026-06-30 05:28 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/4856907.shtml)
+- 2026-06-30 05:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/62009142894.shtml)
+- 2026-06-30 05:21 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/7896781.shtml)
+- 2026-06-30 05:16 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/330869.shtml)
+- 2026-06-30 05:29 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/5111318867.shtml)

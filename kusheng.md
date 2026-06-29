@@ -1,60 +1,53 @@
-# 美国高级官员：美伊已签署谅解备忘录
+# 美国副总统万斯启程前去谈判之际警告伊朗不要“耍我们”
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-据美国方面15日消息，美国总统特朗普和副总统万斯、伊朗伊斯兰议会议长卡利巴夫都已经以电子方式签署了美伊谅解备忘录。 当日，一名美国高级官员表示，“我们与伊朗签署了一份谅解备忘录，特朗普和万斯已签署，卡利巴夫也已签署”。 该官员表示，协议规定立即开放霍尔木兹海峡并解除美国对伊朗的封锁。海峡内的交通量即刻起将大幅增加。 该官员还表示，备忘录细节将在未来24至48小时内公布，解冻资金
+美国副总统万斯周五表示，他期待与伊朗进行积极谈判，在启程前往巴基斯坦举行会谈之际，他警告德黑兰方面不要“耍我们”。 万斯在离开华盛顿前对记者表示：“我们期待此次谈判，我认为会谈将取得积极成果。” 万斯称：“正如美国总统所言，如果伊朗方面愿意本着诚意进行谈判，我们当然愿意伸出友好之手。如果他们试图耍弄我们，那么他们会发现谈判团队并不会对此买账。”责任编辑：李肇孚
 
 ## 正文
 
-据美国方面15日消息，美国总统特朗普和副总统万斯、伊朗伊斯兰议会议长卡利巴夫都已经以电子方式签署了美伊谅解备忘录。
+美国副总统万斯周五表示，他期待与伊朗进行积极谈判，在启程前往巴基斯坦举行会谈之际，他警告德黑兰方面不要“耍我们”。
 
-当日，一名美国高级官员表示，“我们与伊朗签署了一份谅解备忘录，特朗普和万斯已签署，卡利巴夫也已签署”。
+万斯在离开华盛顿前对记者表示：“我们期待此次谈判，我认为会谈将取得积极成果。
 
-该官员表示，协议规定立即开放霍尔木兹海峡并解除美国对伊朗的封锁。
+” 万斯称：“正如美国总统所言，如果伊朗方面愿意本着诚意进行谈判，我们当然愿意伸出友好之手。
 
-海峡内的交通量即刻起将大幅增加。
+如果他们试图耍弄我们，那么他们会发现谈判团队并不会对此买账。
 
-该官员还表示，备忘录细节将在未来24至48小时内公布，解冻资金与制裁减免将视履约情况而定。
-
-根据备忘录，美方计划在下一阶段谈判期间维持目前的军事态势，在达成最终协议后削减军事力量。
-
-美高级官员：伊朗议会议长已获最高领袖授权进行谈判并签署协议 该官员称，据美方了解，伊朗议会议长卡利巴夫已获最高领袖授权签署协议并开展谈判。
-
-此外，美国对阿曼在战前谈判期间的表现感到不满。
+”责任编辑：李肇孚
 
 ## 相关推荐
 
-- 2026-06-30 05:12 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 05:10 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 05:35 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 05:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 05:12 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 05:20 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 05:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 05:07 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 05:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 05:19 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 05:27 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 05:11 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 05:33 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 05:23 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 05:23 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 05:16 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 05:17 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 05:32 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 05:20 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 05:33 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 05:29 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 05:20 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 05:36 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 05:39 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 05:41 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 05:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 05:22 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:24 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/447177672718.shtml)
-- 2026-06-30 05:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/121677747.shtml)
-- 2026-06-30 05:12 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/754488899682.shtml)
-- 2026-06-30 05:11 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/5919430276.shtml)
-- 2026-06-30 05:28 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/0071645660.shtml)
-- 2026-06-30 05:31 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/2264639.shtml)
-- 2026-06-30 05:33 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/06413405566.shtml)
-- 2026-06-30 05:31 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/94272206871.shtml)
-- 2026-06-30 05:26 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/202047.shtml)
-- 2026-06-30 05:12 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/65257743550.shtml)
-- 2026-06-30 05:11 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/416871472.shtml)
-- 2026-06-30 05:29 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/83562339908.shtml)
-- 2026-06-30 05:32 - [巴西绝杀](https://www.share.minike.top/Article/details/3179106.shtml)
-- 2026-06-30 05:18 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/25917897.shtml)
-- 2026-06-30 05:21 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/792031677403.shtml)
+- 2026-06-30 05:24 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/48224841675.shtml)
+- 2026-06-30 05:33 - [一见倾心](https://www.share.kurohicncr.top/Article/details/57658421473.shtml)
+- 2026-06-30 05:17 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/402812996650.shtml)
+- 2026-06-30 05:35 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/2621702456.shtml)
+- 2026-06-30 05:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/7133901.shtml)
+- 2026-06-30 05:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/530458887867.shtml)
+- 2026-06-30 05:21 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/817135880447.shtml)
+- 2026-06-30 05:40 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/018118184.shtml)
+- 2026-06-30 05:14 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/37699.shtml)
+- 2026-06-30 05:12 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/87319579307.shtml)
+- 2026-06-30 05:28 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/41446648623.shtml)
+- 2026-06-30 05:13 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/016980897976.shtml)
+- 2026-06-30 05:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/701309071.shtml)
+- 2026-06-30 05:19 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/87357.shtml)
+- 2026-06-30 05:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/80177397016.shtml)

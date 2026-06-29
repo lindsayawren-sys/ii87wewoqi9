@@ -1,60 +1,61 @@
-# 李强主持国务院第二十次专题学习
+# CBCX:滞胀压力持续下金价震荡承压运行
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-新华社北京6月15日电6月15日，国务院以“强化主体功能区战略实施，促进区域协调发展”为主题，进行第二十次专题学习。国务院总理李强在主持学习时强调，要深入学习贯彻习近平总书记关于实施主体功能区战略的重要指示精神和党中央有关决策部署，立足各地资源禀赋和比较优势，统筹优化农业、生态、城镇等各类空间布局，进一步健全主体功能区制度，分区分类施策，促进形成主体功能明显、优势互补、高质量发
+4月10日，黄金市场近期表现依然偏弱，在经济增长放缓与通胀压力并存的背景下，未能形成明显的上行动能。CBCX认为，尽管宏观环境逐步呈现出类似滞胀的特征，但市场对黄金的避险需求并未同步增强，这反映出当前资金更倾向于观望而非积极布局贵金属资产。从价格表现来看，金价整体维持区间震荡，短期内缺乏突破关键阻力的驱动力。 最新经济数据显示，增长动能有所减弱。数据显示，第四季度国内生产总值终
 
 ## 正文
 
-新华社北京6月15日电6月15日，国务院以“强化主体功能区战略实施，促进区域协调发展”为主题，进行第二十次专题学习。
+4月10日，黄金市场近期表现依然偏弱，在经济增长放缓与通胀压力并存的背景下，未能形成明显的上行动能。
 
-国务院总理李强在主持学习时强调，要深入学习贯彻习近平总书记关于实施主体功能区战略的重要指示精神和党中央有关决策部署，立足各地资源禀赋和比较优势，统筹优化农业、生态、城镇等各类空间布局，进一步健全主体功能区制度，分区分类施策，促进形成主体功能明显、优势互补、高质量发展的国土空间开发保护新格局，为推动区域协调发展、优化重大生产力布局提供有力支撑。
+CBCX认为，尽管宏观环境逐步呈现出类似滞胀的特征，但市场对黄金的避险需求并未同步增强，这反映出当前资金更倾向于观望而非积极布局贵金属资产。
 
-中国科学院院士、中科院地理科学与资源研究所研究员樊杰作讲解。
+从价格表现来看，金价整体维持区间震荡，短期内缺乏突破关键阻力的驱动力。
 
-国务院副总理何立峰、刘国中，国务委员谌贻琴作交流发言。
+最新经济数据显示，增长动能有所减弱。
 
-李强在听取讲解和交流发言后指出，这些年来，主体功能区战略从理念到实践取得重大进展，战略格局基本形成，“三区三线”全面划定。
+数据显示，第四季度国内生产总值终值增长约0.5%，低于此前约0.7%的修正值，也明显不及最初约1.4%的预估水平，表明经济扩张节奏持续放缓。
 
-进入“十五五”时期，面对新的形势和任务，要深刻认识主体功能区战略的基础性作用、全局性影响，强化主体功能区战略实施，以钉钉子精神抓好推进落实。
+与此同时，市场普遍认为该数据存在一定滞后性，对当前阶段的参考意义有限。
 
-李强指出，要聚焦突出矛盾，找准切入点，更大力度推动主体功能区战略有效落地。
+CBCX认为，尽管如此，增长下修仍强化了市场对经济放缓的预期，但尚未形成足以推动黄金大幅上涨的共识。
 
-要优化主体功能区划，推动空间治理更加精准精细。
+在通胀方面，核心个人消费支出指数维持相对稳定。
 
 ## 相关推荐
 
-- 2026-06-30 05:27 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 05:11 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 05:12 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 05:29 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 05:35 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 05:08 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 05:06 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 05:14 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 05:09 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 05:19 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 05:20 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 05:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 05:35 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 05:10 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 05:23 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 05:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 05:38 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 05:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 05:22 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 05:21 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 05:38 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 05:39 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 05:14 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 05:21 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 05:21 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 05:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 05:14 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 05:28 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 05:39 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:14 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/690835.shtml)
-- 2026-06-30 05:11 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/693181824878.shtml)
-- 2026-06-30 05:08 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/112471060776.shtml)
-- 2026-06-30 05:28 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/98242063.shtml)
-- 2026-06-30 05:14 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/794371459270.shtml)
-- 2026-06-30 05:24 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/891547582.shtml)
-- 2026-06-30 05:22 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/95657421757.shtml)
-- 2026-06-30 05:12 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/424022132077.shtml)
-- 2026-06-30 05:35 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/30680.shtml)
-- 2026-06-30 05:29 - [日本淘汰](https://www.blog.minike.top/Article/details/68244507.shtml)
-- 2026-06-30 05:24 - [周生如故](http://www.blog.kurohicncr.top/Article/details/005798962262.shtml)
-- 2026-06-30 05:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/12458.shtml)
-- 2026-06-30 05:09 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/12845.shtml)
-- 2026-06-30 05:21 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/1916110.shtml)
-- 2026-06-30 05:13 - [一见倾心](https://www.blog.minike.top/Article/details/76648928.shtml)
+- 2026-06-30 05:16 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/0723854577.shtml)
+- 2026-06-30 05:23 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/58125722778.shtml)
+- 2026-06-30 05:26 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/72796552.shtml)
+- 2026-06-30 05:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/9731440700.shtml)
+- 2026-06-30 05:31 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/675280393556.shtml)
+- 2026-06-30 05:28 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/21068634236.shtml)
+- 2026-06-30 05:40 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/37369778242.shtml)
+- 2026-06-30 05:30 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/553604092.shtml)
+- 2026-06-30 05:15 - [孙兴慜道歉](https://www.share.minike.top/Article/details/004819121497.shtml)
+- 2026-06-30 05:35 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/96192827680.shtml)
+- 2026-06-30 05:14 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/561163.shtml)
+- 2026-06-30 05:36 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/452864.shtml)
+- 2026-06-30 05:12 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/60624263354.shtml)
+- 2026-06-30 05:32 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/63417181513.shtml)
+- 2026-06-30 05:29 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/685749412.shtml)

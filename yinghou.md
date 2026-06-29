@@ -1,56 +1,46 @@
-# 1400亿山姆遭约谈，拷问极速达
+# 极兔速递-W第一季度包裹量合计83.26亿件 同比增长26.2%
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-狂飙的山姆，摊上事了。 6月15日，监管机构披露，已依法对沃尔玛（中国）投资有限公司，即山姆总部的负责人进行责任约谈，主要针对其门店及网店多发的食安问题。 这可谓是对山姆的系统性问责。 “针对约谈中监管部门指出的问题与整改要求，我们完全认可、深刻反思并诚恳接受。”山姆相关负责人回应《21CBR》称。 山姆已公开表示，已由管理层牵头，成立专项整改工作组，启动全渠道、全链路专项自查
+极兔速递-W（01519）发布公告，于2026年第一季度，包裹量合计83.26亿件，同比增长26.2%。责任编辑：卢昱君
 
 ## 正文
 
-狂飙的山姆，摊上事了。
+极兔速递-W（01519）发布公告，于2026年第一季度，包裹量合计83.26亿件，同比增长26.2%。
 
-6月15日，监管机构披露，已依法对沃尔玛（中国）投资有限公司，即山姆总部的负责人进行责任约谈，主要针对其门店及网店多发的食安问题。
-
-这可谓是对山姆的系统性问责。
-
-“针对约谈中监管部门指出的问题与整改要求，我们完全认可、深刻反思并诚恳接受。
-
-”山姆相关负责人回应《21CBR》称。
-
-山姆已公开表示，已由管理层牵头，成立专项整改工作组，启动全渠道、全链路专项自查整改。
-
-记者查询公开信息，发现山姆线上配送服务“极速达”已多次卷入食安纷争，暴露出短板。
-
-“过去几年，山姆在中国的门店和前置仓数量翻倍增长，只是，供应链的精细化管理、冷链监控、人员培训没能跟上速度。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 05:07 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 05:34 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 05:35 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 05:18 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 05:27 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 05:17 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 05:31 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 05:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-30 05:25 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 05:20 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 05:25 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 05:14 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 05:36 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 05:34 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 05:20 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 05:17 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 05:31 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 05:37 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 05:33 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 05:15 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 05:12 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:09 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/642920687372.shtml)
-- 2026-06-30 05:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/271576983.shtml)
-- 2026-06-30 05:12 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/388685.shtml)
-- 2026-06-30 05:29 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/124770801.shtml)
-- 2026-06-30 05:08 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/08458255501.shtml)
-- 2026-06-30 05:28 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/57800821.shtml)
-- 2026-06-30 05:13 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/3586153.shtml)
-- 2026-06-30 05:21 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/970539754.shtml)
-- 2026-06-30 05:31 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/3350197086.shtml)
-- 2026-06-30 05:24 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/48435030431.shtml)
-- 2026-06-30 05:06 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/32886960.shtml)
-- 2026-06-30 05:12 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/90697.shtml)
-- 2026-06-30 05:29 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/49978007049.shtml)
-- 2026-06-30 05:17 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/1613143.shtml)
-- 2026-06-30 05:26 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/24059.shtml)
+- 2026-06-30 05:28 - [日本领先巴西](https://www.share.minike.top/Article/details/713501566841.shtml)
+- 2026-06-30 05:36 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/566371881.shtml)
+- 2026-06-30 05:35 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/5936009559.shtml)
+- 2026-06-30 05:12 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/321570.shtml)
+- 2026-06-30 05:12 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/02896.shtml)
+- 2026-06-30 05:17 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/40600383.shtml)
+- 2026-06-30 05:22 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/68861.shtml)
+- 2026-06-30 05:17 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/575060947548.shtml)
+- 2026-06-30 05:18 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/2046760484.shtml)
+- 2026-06-30 05:37 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/132526489.shtml)
+- 2026-06-30 05:33 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/52823588.shtml)
+- 2026-06-30 05:24 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/160609087826.shtml)
+- 2026-06-30 05:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/879561265305.shtml)
+- 2026-06-30 05:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/069351508016.shtml)
+- 2026-06-30 05:14 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/44872132987.shtml)

@@ -1,57 +1,56 @@
-# 前5月中国固定资产投资约17.85万亿元
+# 新疆博物馆：让文物讲好中华民族共同体故事
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新社北京6月16日电 (记者 陈溯)中国国家统计局16日公布的数据显示，1至5月，中国固定资产投资(不含农户)178512亿元(人民币，下同)，同比下降4.1%；扣除房地产开发的固定资产投资下降1.2%。 在当天举行的国新办新闻发布会上，国家统计局新闻发言人付凌晖表示，1至5月，固定资产投资降幅有所扩大，有局部地区高温多雨因素的影响，也是新旧发展动能转换、投资由总量扩张向质量
+发布时间：2026年04月12日 15:26 来源：中国新闻网 近日，走进位于乌鲁木齐市的新疆维吾尔自治区博物馆，游客们在各类文创前挑选文创产品。2022年起，新疆博物馆启动“文创代替文物走出去”计划，到目前为止，已经研发了12个系列，1500多个品类的文创产品，包括帆布袋、围巾、瓷器等。 为讲好铸牢中华民族共同体意识故事，新疆博物馆还在展厅设计上不断创新，让文物“开口说话”。
 
 ## 正文
 
-中新社北京6月16日电 (记者 陈溯)中国国家统计局16日公布的数据显示，1至5月，中国固定资产投资(不含农户)178512亿元(人民币，下同)，同比下降4.1%；扣除房地产开发的固定资产投资下降1.2%。
+发布时间：2026年04月12日 15:26 来源：中国新闻网 近日，走进位于乌鲁木齐市的新疆维吾尔自治区博物馆，游客们在各类文创前挑选文创产品。
 
-在当天举行的国新办新闻发布会上，国家统计局新闻发言人付凌晖表示，1至5月，固定资产投资降幅有所扩大，有局部地区高温多雨因素的影响，也是新旧发展动能转换、投资由总量扩张向质量提升转变的客观反映。
+2022年起，新疆博物馆启动“文创代替文物走出去”计划，到目前为止，已经研发了12个系列，1500多个品类的文创产品，包括帆布袋、围巾、瓷器等。
 
-“尽管投资增速下降，但在政策持续发力、创新引领增强、民生保障加力这些因素带动下，我们看到，投资结构持续优化，投资在强基础、促转型、惠民生方面发挥了不可替代的重要作用。
+为讲好铸牢中华民族共同体意识故事，新疆博物馆还在展厅设计上不断创新，让文物“开口说话”。
 
-”付凌晖说。
+2025年9月，新疆博物馆推出“国家治理新疆地区历史文物展”，以政治、经济、文化方面的文物，展现历代中央政权对新疆治理的史实。
 
-付凌晖表示，中国基础设施投资稳步增长。
+新疆博物馆还给馆藏文物“五星出东方利中国”锦护臂设置了单独展厅。
 
-今年以来，一批重大基建项目持续推进，“六张网”(水网、新型电网、算力网、新一代通信网、城市地下管网、物流网)等基础设施建设加快布局。
+此外，新疆博物馆在多年前就推出了“流动博物馆”项目，常年让新疆各地的学生、民众近距离接触展厅中的文物，从最初的流动车载大型展板进校园、进社区，到后来的PPT课件，再到去年引入的全息MR和3D文物建模技术，直接将展厅与学校内部的一些网络平台连线直播，让全疆各地学生“走进”展厅。
 
-1至5月，基础设施投资保持小幅增长，增长0.6%。
-
-算力网和新一代通信设施等新基建有序推进，前5月信息传输业投资增长30.4%。
+(左丹丹 新疆乌鲁木齐市报道） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 05:15 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 05:10 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 05:07 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 05:21 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 05:20 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 05:13 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 05:06 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 05:29 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 05:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 05:30 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 05:14 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 05:14 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 05:16 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-30 05:23 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 05:37 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 05:30 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 05:35 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 05:27 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 05:35 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 05:33 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 05:25 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 05:37 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 05:20 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:06 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/82407.shtml)
-- 2026-06-30 05:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/169951886.shtml)
-- 2026-06-30 05:11 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/712506.shtml)
-- 2026-06-30 05:06 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/86523406.shtml)
-- 2026-06-30 05:12 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/8577949938.shtml)
-- 2026-06-30 05:09 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/71923365.shtml)
-- 2026-06-30 05:16 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/10394975802.shtml)
-- 2026-06-30 05:28 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/777888471010.shtml)
-- 2026-06-30 05:18 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/0993345237.shtml)
-- 2026-06-30 05:17 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/59060540.shtml)
-- 2026-06-30 05:32 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/2521371713.shtml)
-- 2026-06-30 05:33 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/6191060.shtml)
-- 2026-06-30 05:14 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/846287515.shtml)
-- 2026-06-30 05:33 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/231020951.shtml)
-- 2026-06-30 05:32 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/226258.shtml)
+- 2026-06-30 05:32 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/636785.shtml)
+- 2026-06-30 05:35 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/39191.shtml)
+- 2026-06-30 05:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/061796200097.shtml)
+- 2026-06-30 05:34 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/86051050561.shtml)
+- 2026-06-30 05:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/763835.shtml)
+- 2026-06-30 05:14 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/32824431399.shtml)
+- 2026-06-30 05:25 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/949187.shtml)
+- 2026-06-30 05:26 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/3991219653.shtml)
+- 2026-06-30 05:38 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/925845975150.shtml)
+- 2026-06-30 05:26 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/7840142723.shtml)
+- 2026-06-30 05:32 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/42559070956.shtml)
+- 2026-06-30 05:31 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/724662792.shtml)
+- 2026-06-30 05:12 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/185372.shtml)
+- 2026-06-30 05:41 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/88852052742.shtml)
+- 2026-06-30 05:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/341447045612.shtml)

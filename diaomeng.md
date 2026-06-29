@@ -1,60 +1,58 @@
-# 端午假期南铁预计发送旅客567.3万人次
+# 2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新网南昌6月15日电(刘力鑫 付森 胡梓威)中国铁路南昌局集团有限公司(以下简称“南铁”)15日发布消息称，2026年端午假期运输期限为6月18日至22日。端午假期运输期间，南铁预计发送旅客567.3万人次，客流最高峰为6月21日，预计发送旅客137万人次。 端午假期运输期间，南铁管内客流以短途探亲流、旅游流为主。长途出行方面，客流主要集中在赣闽两省前往上海、杭州及广深等大中
+中新网菏泽4月11日电 (记者 祁建月 孙婷婷)2026菏泽牡丹国际传播论坛11日在“中国牡丹之都”山东菏泽举行。来自俄罗斯、意大利等国的专家学者齐聚一堂，共议牡丹的国际传播之道。 “中国牡丹装饰着俄罗斯的千家万户。我的花园里就种着28个品种的牡丹，每年春天，都会给我带来惊喜。”受邀参加论坛的俄罗斯奥廖尔国立第一中学校长塔季扬娜·巴库罗娃在分享中流露出对牡丹的深厚感情。她介绍，
 
 ## 正文
 
-中新网南昌6月15日电(刘力鑫 付森 胡梓威)中国铁路南昌局集团有限公司(以下简称“南铁”)15日发布消息称，2026年端午假期运输期限为6月18日至22日。
+中新网菏泽4月11日电 (记者 祁建月 孙婷婷)2026菏泽牡丹国际传播论坛11日在“中国牡丹之都”山东菏泽举行。
 
-端午假期运输期间，南铁预计发送旅客567.3万人次，客流最高峰为6月21日，预计发送旅客137万人次。
+来自俄罗斯、意大利等国的专家学者齐聚一堂，共议牡丹的国际传播之道。
 
-端午假期运输期间，南铁管内客流以短途探亲流、旅游流为主。
+“中国牡丹装饰着俄罗斯的千家万户。
 
-长途出行方面，客流主要集中在赣闽两省前往上海、杭州及广深等大中城市和周边省份热门旅游景点方向，预计发送旅客144万人次，同比增长1.8%。
+我的花园里就种着28个品种的牡丹，每年春天，都会给我带来惊喜。
 
-短途客流则集中在南昌、景德镇、上饶、婺源、泉州、平潭等赣闽两省热门旅游城市间，南铁管内预计发送旅客423.3万人次，同比增长2.1%。
+”受邀参加论坛的俄罗斯奥廖尔国立第一中学校长塔季扬娜·巴库罗娃在分享中流露出对牡丹的深厚感情。
 
-为方便旅客端午假期出行，南铁科学分析旅客出行规律，精心制定假日运输方案，预计加开旅客列车615列，其中加开南昌至广州、厦门至上海等方向的夜间高铁67列。
+她介绍，在俄罗斯文化中，牡丹象征着财富、繁荣与华贵，是深受人们喜爱的花卉之一。
 
-为提升旅客端午假期出行体验，萍乡北、赣州西、永安南等车站工作人员精心筹备，将推出形式多样、各具特色的端午民俗文化服务活动，营造浓厚节日氛围。
+“牡丹与初夏的到来、大自然的蓬勃和土地的慷慨紧密相连。
 
-旅客可以在候车间隙编五彩绳、绘端午彩蛋、体验传统游戏、参与民俗问答，在轻松互动中了解端午习俗、感受传统文化魅力。
+”巴库罗娃说，正是以牡丹花为媒，其所在的学校与菏泽开启了文化与教育领域的合作，共同举办交流活动，为校园生活增添了色彩。
 
 ## 相关推荐
 
-- 2026-06-30 05:23 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 05:35 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 05:17 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 05:23 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 05:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 05:24 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 05:13 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 05:17 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 05:33 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 05:14 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 05:06 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 05:26 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 05:07 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 05:16 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 05:27 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 05:31 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 05:36 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 05:34 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 05:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 05:41 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 05:24 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 05:20 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 05:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 05:28 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 05:40 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 05:35 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:10 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/3908385870.shtml)
-- 2026-06-30 05:27 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/696388.shtml)
-- 2026-06-30 05:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/69321686794.shtml)
-- 2026-06-30 05:18 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/09950733.shtml)
-- 2026-06-30 05:36 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/9941321.shtml)
-- 2026-06-30 05:35 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/826196143.shtml)
-- 2026-06-30 05:29 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/28245.shtml)
-- 2026-06-30 05:25 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/564821595099.shtml)
-- 2026-06-30 05:23 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/060378.shtml)
-- 2026-06-30 05:20 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/901427.shtml)
-- 2026-06-30 05:10 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/724459175.shtml)
-- 2026-06-30 05:21 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/0454667838.shtml)
-- 2026-06-30 05:07 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/48374.shtml)
-- 2026-06-30 05:24 - [金牌调解](http://www.share.minike.top/Article/details/183371814.shtml)
-- 2026-06-30 05:15 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/01193.shtml)
+- 2026-06-30 05:28 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/36834.shtml)
+- 2026-06-30 05:38 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/94352.shtml)
+- 2026-06-30 05:36 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/96627374.shtml)
+- 2026-06-30 05:13 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/45563927031.shtml)
+- 2026-06-30 05:20 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/28847.shtml)
+- 2026-06-30 05:39 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/593391.shtml)
+- 2026-06-30 05:26 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/871223250.shtml)
+- 2026-06-30 05:31 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/9249962045.shtml)
+- 2026-06-30 05:40 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/690329009720.shtml)
+- 2026-06-30 05:38 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/51203958.shtml)
+- 2026-06-30 05:38 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/82742681.shtml)
+- 2026-06-30 05:41 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/2554944838.shtml)
+- 2026-06-30 05:40 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/613321901013.shtml)
+- 2026-06-30 05:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/581332837224.shtml)
+- 2026-06-30 05:35 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5464985060.shtml)

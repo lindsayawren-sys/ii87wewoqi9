@@ -1,48 +1,59 @@
-# 中国银行：将派发第三期境内优先股股息25.40亿元
+# 崔东树：推动50岁到70岁人群购车，建议放开驾照限制
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-6月16日金融一线消息，中国银行公告称，公司2026年4月29日董事会会议已审议通过第三期境内优先股（代码360033，简称中行优3）股息派发方案。计息期为2025年6月27日至2026年6月26日，每股优先股派发现金股息3.48元（税前），以发行量7.3亿股计，本次派发现金股息共25.404亿元（税前）。最后交易日为6月25日，股权登记日和除息日为6月26日，股息发放日为6月
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 中国汽车流通协会乘用车市场信息联席分会（乘联分会）秘书长崔东树表示，整个中国车市的增长具有可持续增长潜力，不要用中国的人口变化状态去理解中国车市。中国的人口虽然面临下降的态势，但中国的司机规
 
 ## 正文
 
-6月16日金融一线消息，中国银行公告称，公司2026年4月29日董事会会议已审议通过第三期境内优先股（代码360033，简称中行优3）股息派发方案。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-计息期为2025年6月27日至2026年6月26日，每股优先股派发现金股息3.48元（税前），以发行量7.3亿股计，本次派发现金股息共25.404亿元（税前）。
+中国汽车流通协会乘用车市场信息联席分会（乘联分会）秘书长崔东树表示，整个中国车市的增长具有可持续增长潜力，不要用中国的人口变化状态去理解中国车市。
 
-最后交易日为6月25日，股权登记日和除息日为6月26日，股息发放日为6月29日。
+中国的人口虽然面临下降的态势，但中国的司机规模正以每年两千万的速度增长，所以汽车仍然是消费增长的核心动力，潜力比较大。
 
-责任编辑：李琳琳
+而且中国的消费现在来看，呈现出以中老年人消费为主的特征。
+
+所以，推动中国中老年人购车，是我们行业发展的重要推动方向，而国家政策在这方面起到了很好的作用，尤其是金融拉动消费，起到了重大的推动作用。
+
+此外，他认为未来政策在稳增长方面要做好更多支撑，而且不能光靠短期政策，需要长效政策的支撑。
+
+比如今年给两千亿、去年给三千亿、明年给1500亿，再往后可能就没有了，这种短期政策难以支撑行业长期稳定发展。
+
+他表示，长效政策需要给予一定支持，比如购车支出纳入个税专项抵扣，汽车消费信贷的利息要进行税前扣除，这两个是比较关键的长效措施。
 
 ## 相关推荐
 
-- 2026-06-30 05:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 05:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 05:14 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 05:14 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 05:34 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 05:07 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 05:10 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 05:33 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 05:19 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 05:11 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 05:23 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 05:27 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 05:30 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-30 05:33 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 05:33 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 05:35 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 05:22 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 05:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 05:38 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 05:22 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 05:36 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 05:35 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 05:36 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:32 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/01754.shtml)
-- 2026-06-30 05:22 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/9125587.shtml)
-- 2026-06-30 05:19 - [千与千寻](http://www.share.minike.top/Article/details/90506514.shtml)
-- 2026-06-30 05:31 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/1562223161.shtml)
-- 2026-06-30 05:11 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/85153739.shtml)
-- 2026-06-30 05:29 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/92596.shtml)
-- 2026-06-30 05:24 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/6529039426.shtml)
-- 2026-06-30 05:07 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/07851220.shtml)
-- 2026-06-30 05:17 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/425964235.shtml)
-- 2026-06-30 05:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/94918695.shtml)
-- 2026-06-30 05:15 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/52402.shtml)
-- 2026-06-30 05:07 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/35281846.shtml)
-- 2026-06-30 05:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/107710714264.shtml)
-- 2026-06-30 05:09 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/2661566408.shtml)
-- 2026-06-30 05:15 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/935279.shtml)
+- 2026-06-30 05:21 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/766675.shtml)
+- 2026-06-30 05:13 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/3109800709.shtml)
+- 2026-06-30 05:24 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/54706903.shtml)
+- 2026-06-30 05:26 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/904611418344.shtml)
+- 2026-06-30 05:15 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/9968665.shtml)
+- 2026-06-30 05:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/2625406110.shtml)
+- 2026-06-30 05:13 - [天道](https://www.share.kurohicncr.top/Article/details/7166200.shtml)
+- 2026-06-30 05:14 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/8181498.shtml)
+- 2026-06-30 05:38 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/576523391791.shtml)
+- 2026-06-30 05:23 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/30903.shtml)
+- 2026-06-30 05:37 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/81976.shtml)
+- 2026-06-30 05:21 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/6751029.shtml)
+- 2026-06-30 05:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/0930404.shtml)
+- 2026-06-30 05:23 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/523067.shtml)
+- 2026-06-30 05:38 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/303483755493.shtml)

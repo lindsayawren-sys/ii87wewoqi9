@@ -1,57 +1,57 @@
-# 90多个国家和地区嘉宾参会 夏季达沃斯论坛将于大连启幕
+# 报道：特朗普承诺将在卸任前为政府高级官员颁发特赦令
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新社北京6月16日电 (记者 刘亮)2026年世界经济论坛新领军者年会(又称“夏季达沃斯论坛”)将于6月23日至25日在中国大连举行。这将是夏季达沃斯论坛第九次“牵手”大连，今年参会嘉宾来自全球90多个国家和地区，人数规模创新高。记者16日从世界经济论坛在北京举行的会前新闻发布会上获悉，今年论坛以“规模化创新”为主题，将围绕全球创新发展趋势、中国经济未来发展轨迹、气候与能源系
+据报道，据听取相关言论的人士透露，特朗普已多次向政府高级官员承诺，将在卸任前为他们颁发特赦令。 知情人士称，特朗普在近期一次会议上笑着表示：“我会赦免所有踏入椭圆办公室200英尺范围内的每一个人。” 随着总统反复提及此话，这一“半径范围”似乎在不断扩大。今年早些时候与特朗普会面的另一位人士称，总统曾打趣说要赦免所有踏入10英尺范围内的人。 部分知情人士表示，去年在椭圆办公室旁的
 
 ## 正文
 
-中新社北京6月16日电 (记者 刘亮)2026年世界经济论坛新领军者年会(又称“夏季达沃斯论坛”)将于6月23日至25日在中国大连举行。
+据报道，据听取相关言论的人士透露，特朗普已多次向政府高级官员承诺，将在卸任前为他们颁发特赦令。
 
-这将是夏季达沃斯论坛第九次“牵手”大连，今年参会嘉宾来自全球90多个国家和地区，人数规模创新高。
+知情人士称，特朗普在近期一次会议上笑着表示：“我会赦免所有踏入椭圆办公室200英尺范围内的每一个人。
 
-记者16日从世界经济论坛在北京举行的会前新闻发布会上获悉，今年论坛以“规模化创新”为主题，将围绕全球创新发展趋势、中国经济未来发展轨迹、气候与能源系统、产业转型升级等设置系列议题。
+” 随着总统反复提及此话，这一“半径范围”似乎在不断扩大。
 
-世界经济论坛执行董事梁锦慧在会上介绍，今年年会汇聚来自商业、政府等各界参会嘉宾，目前注册人数已突破1700人。
+今年早些时候与特朗普会面的另一位人士称，总统曾打趣说要赦免所有踏入10英尺范围内的人。
 
-在前沿技术驱动全球经济发展的当下，今年年会将聚焦人工智能、机器人等领域的技术变革，并探讨如何在经济社会中创新和推广这些技术，让普通人的生活从中受益。
+部分知情人士表示，去年在椭圆办公室旁的餐厅与顾问交谈时，特朗普称将在卸任前举办新闻发布会，宣布大规模特赦。
 
-首届新领军者年会于2007年9月在大连拉开帷幕。
+这些人士称，目前尚不清楚他是否会针对特定人员的特定行为提供具体特赦。
 
-大连市市长李强介绍，今年将是夏季达沃斯论坛与大连第九次“牵手”。
-
-今年年会，大连将结合城市定位和产业特色，聚焦“打造现代海洋城市”“能源化工”等议题，推出系列活动。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 05:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 05:31 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 05:22 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 05:29 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 05:08 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 05:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 05:09 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 05:07 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 05:07 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 05:27 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 05:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 05:41 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 05:32 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 05:36 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 05:35 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 05:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 05:34 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 05:12 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 05:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 05:16 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 05:36 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 05:19 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 05:34 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 05:23 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/12807487.shtml)
-- 2026-06-30 05:06 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/67138.shtml)
-- 2026-06-30 05:22 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/8820930.shtml)
-- 2026-06-30 05:24 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/14140.shtml)
-- 2026-06-30 05:24 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/88954494416.shtml)
-- 2026-06-30 05:24 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/73820389.shtml)
-- 2026-06-30 05:09 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/466771.shtml)
-- 2026-06-30 05:35 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/78234402.shtml)
-- 2026-06-30 05:09 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/114849099.shtml)
-- 2026-06-30 05:09 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/5729087.shtml)
-- 2026-06-30 05:07 - [送你一朵小红花](http://www.blog.minike.top/Article/details/503111515227.shtml)
-- 2026-06-30 05:32 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/959494.shtml)
-- 2026-06-30 05:19 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/93761215939.shtml)
-- 2026-06-30 05:15 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/995566329358.shtml)
-- 2026-06-30 05:28 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/819084355119.shtml)
+- 2026-06-30 05:37 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/71178270567.shtml)
+- 2026-06-30 05:14 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/160381759.shtml)
+- 2026-06-30 05:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/0428805443.shtml)
+- 2026-06-30 05:28 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/49639.shtml)
+- 2026-06-30 05:13 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/89949249822.shtml)
+- 2026-06-30 05:25 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/319978407.shtml)
+- 2026-06-30 05:16 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/806125429757.shtml)
+- 2026-06-30 05:13 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/5321468459.shtml)
+- 2026-06-30 05:19 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/54285815.shtml)
+- 2026-06-30 05:39 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/4055820949.shtml)
+- 2026-06-30 05:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/24505142396.shtml)
+- 2026-06-30 05:21 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/851510855503.shtml)
+- 2026-06-30 05:39 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/3936698.shtml)
+- 2026-06-30 05:39 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/1268411.shtml)
+- 2026-06-30 05:38 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/732167245670.shtml)

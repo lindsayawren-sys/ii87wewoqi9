@@ -1,57 +1,42 @@
-# 报告：银发族成当前中国旅游市场最活跃消费力量
+# 【早盘三分钟】4月13日华宝基金ETF早知道
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新社北京6月16日电 (记者 刘文文)中国在线旅游平台同程旅行16日发布的一项报告显示，眼下正值暑期旅游旺季前的出行“黄金窗口期”，银发族成为中国旅游市场最活跃的消费力量。 数据显示，6月份以来，平台上出发地参团的度假产品订单中，55岁以上银发用户预订占比接近七成，较去年同期提升约8个百分点，银发客群出行主导地位愈加凸显。 “银发族不是在旅游，就是在规划下一次旅游。”同程旅行
+责任编辑：杨赐
 
 ## 正文
 
-中新社北京6月16日电 (记者 刘文文)中国在线旅游平台同程旅行16日发布的一项报告显示，眼下正值暑期旅游旺季前的出行“黄金窗口期”，银发族成为中国旅游市场最活跃的消费力量。
-
-数据显示，6月份以来，平台上出发地参团的度假产品订单中，55岁以上银发用户预订占比接近七成，较去年同期提升约8个百分点，银发客群出行主导地位愈加凸显。
-
-“银发族不是在旅游，就是在规划下一次旅游。
-
-”同程旅行度假业务相关负责人表示，不少55岁-75岁的银发活跃用户，一年内会进行3-4次长线出游，且愈发青睐距离较远、自然风光壮丽的目的地，而非传统的城市观光或近郊休闲。
-
-在长线游的带动下，银发族用户平均游玩时间亦不断拉长。
-
-同程旅行数据显示，今年以来，银发团用户平均游玩时间达到7.5天，同比增加2.3天，银发私家团平均游玩时间甚至接近10天。
-
-与此同时，银发族旅游愈发讲究“品质化”，定制小团、私家团及自组团快速兴起。
-
-今年以来，平台上银发出游用户规模较去年同期增长65%。
+责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-30 05:12 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 05:19 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 05:06 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 05:31 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 05:26 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 05:13 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 05:12 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 05:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 05:08 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 05:21 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 05:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 05:28 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 05:26 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 05:21 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 05:32 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 05:35 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 05:21 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 05:40 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 05:36 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 05:39 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 05:16 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/654345074717.shtml)
-- 2026-06-30 05:09 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/16037.shtml)
-- 2026-06-30 05:06 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/256379.shtml)
-- 2026-06-30 05:32 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/987003.shtml)
-- 2026-06-30 05:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/2440204.shtml)
-- 2026-06-30 05:16 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/14855642.shtml)
-- 2026-06-30 05:30 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/45413.shtml)
-- 2026-06-30 05:17 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/800266235918.shtml)
-- 2026-06-30 05:19 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/9279420219.shtml)
-- 2026-06-30 05:33 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/21209329.shtml)
-- 2026-06-30 05:35 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/15124.shtml)
-- 2026-06-30 05:22 - [爱很美味](https://www.share.kurohicncr.top/Article/details/15270.shtml)
-- 2026-06-30 05:32 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/2532189.shtml)
-- 2026-06-30 05:31 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/2370023.shtml)
-- 2026-06-30 05:22 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/732234382.shtml)
+- 2026-06-30 05:15 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/45004227.shtml)
+- 2026-06-30 05:27 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/982622754988.shtml)
+- 2026-06-30 05:34 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/7094733.shtml)
+- 2026-06-30 05:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/60335692.shtml)
+- 2026-06-30 05:15 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/030389216063.shtml)
+- 2026-06-30 05:22 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/218811379770.shtml)
+- 2026-06-30 05:41 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/608279251311.shtml)
+- 2026-06-30 05:30 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/35876449.shtml)
+- 2026-06-30 05:38 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/717311.shtml)
+- 2026-06-30 05:20 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/659616318927.shtml)
+- 2026-06-30 05:23 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/5353724445.shtml)
+- 2026-06-30 05:34 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/8554462.shtml)
+- 2026-06-30 05:23 - [千香](https://www.blog.minike.top/Article/details/32987.shtml)
+- 2026-06-30 05:22 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/09831572.shtml)
+- 2026-06-30 05:21 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/21247613.shtml)

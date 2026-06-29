@@ -1,56 +1,58 @@
-# 国家统计局展望二季度中国经济：长期向好基本面没有变
+# （八闽千姿）闽南盐鸡鲜香美味飘四海
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新社北京6月16日电 (记者 陈溯)展望二季度中国经济，中国国家统计局新闻发言人付凌晖16日在北京表示，经济长期向好的基本面没有变。 在当天的国新办新闻发布会上，付凌晖表示，今年以来，中国经济一季度增势较好，国内生产总值(GDP)同比增长5%。二季度以来，受国际环境复杂变化、国内结构调整压力等影响，部分经济指标出现了增速回落，一些企业经营面临困难。 “但从整个发展大势看，中国
+中新社漳州4月11日电 题：闽南盐鸡鲜香美味飘四海 中新社记者 张金川 “清明假期3天，店里盐鸡销量近2700只，这份闽南传统小吃，是海内外中华儿女寻根路上的乡愁印记。”年逾六旬的闽南盐鸡传统制作技艺代表性传承人蔡建民11日接受中新社记者采访时说。 位于福建省漳州市龙文区蓝田街道蔡坂社区的云洞岩景区，被誉为“闽南第一碑林”，盐鸡正是景区的传统美食。20世纪初，蔡坂就有制作盐鸡的
 
 ## 正文
 
-中新社北京6月16日电 (记者 陈溯)展望二季度中国经济，中国国家统计局新闻发言人付凌晖16日在北京表示，经济长期向好的基本面没有变。
+中新社漳州4月11日电 题：闽南盐鸡鲜香美味飘四海 中新社记者 张金川 “清明假期3天，店里盐鸡销量近2700只，这份闽南传统小吃，是海内外中华儿女寻根路上的乡愁印记。
 
-在当天的国新办新闻发布会上，付凌晖表示，今年以来，中国经济一季度增势较好，国内生产总值(GDP)同比增长5%。
+”年逾六旬的闽南盐鸡传统制作技艺代表性传承人蔡建民11日接受中新社记者采访时说。
 
-二季度以来，受国际环境复杂变化、国内结构调整压力等影响，部分经济指标出现了增速回落，一些企业经营面临困难。
+位于福建省漳州市龙文区蓝田街道蔡坂社区的云洞岩景区，被誉为“闽南第一碑林”，盐鸡正是景区的传统美食。
 
-“但从整个发展大势看，中国经济运行总体平稳、稳中有进的态势没有改变，动能向新、结构向优的特征依然明显。
+20世纪初，蔡坂就有制作盐鸡的传统，制作技艺历经四代人传承，当地凡婚丧、乔迁、庆生、祭祀等大事都少不了盐鸡。
 
-”付凌晖表示，从下阶段情况看，尽管还面临一些困难和挑战，但是经济长期向好的基本面没有变，新质生产力发展培育壮大，改革开放的红利持续释放，宏观政策发力显效，将会继续支撑经济平稳运行、向新向优。
+记者在云洞岩景区道路两旁看到，“盐鸡”招牌随处可见，堪称“盐鸡一条街”。
 
-付凌晖表示，今年以来，面对全球能源市场大幅波动，中国经济顶住了压力，保持平稳增长，展现出了强大韧性。
+蔡坂民众凭借云洞岩美景和传统风味小吃闽南盐鸡吃上了“旅游饭”，日子越过越红火。
 
-统计显示，1至5月，规模以上工业增加值、服务业生产指数分别同比增长5.4%、4.8%，均保持了较快增长；全国城镇调查失业率平均值为5.2%，居民消费价格同比上涨1%，均保持了总体平稳；外贸增长较快，中国货物进出口总额同比增长15.3%；人民币汇率稳中有升，5月末外汇储备稳定在3.4万亿美元以上。
+传承自父辈的手艺，蔡建民夫妇的怣北盐鸡饭店，在此营业已40年，拥有众多粉丝。
 
-此外，中国产业创新引领作用持续显现。
+“清明节前后，众多海外华侨华人及台胞返乡祭祖，纷纷选购盐鸡供奉先祖、慰藉味蕾。
 
 ## 相关推荐
 
-- 2026-06-30 05:11 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 05:11 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 05:08 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 05:11 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 05:23 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 05:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 05:23 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 05:32 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 05:08 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 05:35 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 05:15 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 05:28 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 05:39 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 05:18 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-30 05:26 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 05:18 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 05:37 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 05:35 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 05:28 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 05:30 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 05:34 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 05:17 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:30 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/99184642.shtml)
-- 2026-06-30 05:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/1762473.shtml)
-- 2026-06-30 05:07 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/23034634963.shtml)
-- 2026-06-30 05:24 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/958317598791.shtml)
-- 2026-06-30 05:28 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/04457.shtml)
-- 2026-06-30 05:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/03942.shtml)
-- 2026-06-30 05:18 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/9503981169.shtml)
-- 2026-06-30 05:25 - [沙丘](https://www.share.kurohicncr.top/Article/details/6954125.shtml)
-- 2026-06-30 05:31 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/455073.shtml)
-- 2026-06-30 05:25 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/85439.shtml)
-- 2026-06-30 05:29 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/623598544634.shtml)
-- 2026-06-30 05:24 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/217678523282.shtml)
-- 2026-06-30 05:06 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/371565.shtml)
-- 2026-06-30 05:18 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/33859.shtml)
-- 2026-06-30 05:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/5091721.shtml)
+- 2026-06-30 05:29 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/416293754.shtml)
+- 2026-06-30 05:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/2870469.shtml)
+- 2026-06-30 05:18 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/61225882.shtml)
+- 2026-06-30 05:13 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/955446531.shtml)
+- 2026-06-30 05:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/924694.shtml)
+- 2026-06-30 05:15 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/99034906403.shtml)
+- 2026-06-30 05:26 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/7470184159.shtml)
+- 2026-06-30 05:30 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/020484682526.shtml)
+- 2026-06-30 05:12 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/9547426384.shtml)
+- 2026-06-30 05:23 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/95231329.shtml)
+- 2026-06-30 05:16 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/654101244161.shtml)
+- 2026-06-30 05:36 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/69607.shtml)
+- 2026-06-30 05:18 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/16648630778.shtml)
+- 2026-06-30 05:30 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/0641999.shtml)
+- 2026-06-30 05:15 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/99799191122.shtml)

@@ -1,59 +1,59 @@
-# 科技赋能文脉守护 多元融合构建双遗产新格局
+# 2026江西德兴铁人三项亚洲杯赛鸣枪开赛
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-原标题：科技赋能文脉守护 多元融合构建双遗产新格局 “没想到几百年的老房子还能修得这么好看。”在四川峨眉山万年寺的大雄宝殿前，来自成都的游客张女士感慨道。她5岁的儿子正仰着头，盯着梁架上精美的斗拱结构，眼睛里满是好奇。 这座始建于东晋的千年古寺，刚刚经历了一场“手术”般精细的修缮。大雄宝殿的飞檐下，工程师正用三维扫描仪对木结构进行逐点检测；不远处的砖殿四周，科研人员在檐下小心翼
+中新网江西德兴4月11日电 (王成前 胡坤明)4月11日，2026江西德兴铁人三项亚洲杯赛在德兴市凤凰湖景区鸣枪开赛。来自中国、澳大利亚、奥地利、加拿大、希腊、日本、韩国等11个国家和地区的90名男女优秀组运动员参赛，在秀美山水间展开速度与耐力的激烈角逐。赛段包括游泳1.5公里、自行车44公里、跑步10公里。 当日上午8时30分，男子优秀组赛事率先开赛，此时天空已下起了小雨。代
 
 ## 正文
 
-原标题：科技赋能文脉守护 多元融合构建双遗产新格局 “没想到几百年的老房子还能修得这么好看。
+中新网江西德兴4月11日电 (王成前 胡坤明)4月11日，2026江西德兴铁人三项亚洲杯赛在德兴市凤凰湖景区鸣枪开赛。
 
-”在四川峨眉山万年寺的大雄宝殿前，来自成都的游客张女士感慨道。
+来自中国、澳大利亚、奥地利、加拿大、希腊、日本、韩国等11个国家和地区的90名男女优秀组运动员参赛，在秀美山水间展开速度与耐力的激烈角逐。
 
-她5岁的儿子正仰着头，盯着梁架上精美的斗拱结构，眼睛里满是好奇。
+赛段包括游泳1.5公里、自行车44公里、跑步10公里。
 
-这座始建于东晋的千年古寺，刚刚经历了一场“手术”般精细的修缮。
+当日上午8时30分，男子优秀组赛事率先开赛，此时天空已下起了小雨。
 
-大雄宝殿的飞檐下，工程师正用三维扫描仪对木结构进行逐点检测；不远处的砖殿四周，科研人员在檐下小心翼翼地取样，试图解开这座明代建筑长期渗水的难题。
+代表世界铁人三项联合会参赛的James Corbett，一入水便展现出强劲实力，雨水并未影响他的节奏，在游泳赛段就跻身第一梯队。
 
-近日，记者跟随国家林草局探访峨眉山世界文化与自然双遗产地。
+切换至自行车赛段，湿滑的路面增加了骑行难度，但James Corbett通过精准的控车技术，逐渐拉开与其他选手的差距。
 
-2025年，世界自然保护联盟(IUCN)发布评估结论——峨眉山成为全球极少数实现“四连优”的遗产地，2014、2017、2020、2025年四次蝉联最高等级“GOOD”。
+进入跑步赛段，James Corbett进一步扩大了领先优势，最终以1小时46分43秒的优异成绩夺得男子优秀组冠军。
 
-成绩单的背后，一套涵盖古建修缮、生态管护、科技监测、公众参与的系统化保护体系正在高效运转。
+随后进行的女子优秀组比赛中，雨势陡然增大，给选手们带来了更大挑战。
 
 ## 相关推荐
 
-- 2026-06-30 05:35 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 05:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 05:13 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 05:14 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 05:25 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 05:06 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 05:27 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 05:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 05:26 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 05:13 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 05:16 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 05:08 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 05:07 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 05:36 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 05:33 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 05:40 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 05:14 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 05:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 05:15 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 05:17 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 05:30 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 05:32 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 05:21 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 05:39 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 05:34 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 05:29 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:23 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/53130947460.shtml)
-- 2026-06-30 05:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/88857703.shtml)
-- 2026-06-30 05:31 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/7713419.shtml)
-- 2026-06-30 05:29 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/300259.shtml)
-- 2026-06-30 05:23 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/803663.shtml)
-- 2026-06-30 05:32 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/2734258385.shtml)
-- 2026-06-30 05:13 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/300570.shtml)
-- 2026-06-30 05:24 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/7634684.shtml)
-- 2026-06-30 05:24 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/2300632.shtml)
-- 2026-06-30 05:21 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/6139815.shtml)
-- 2026-06-30 05:34 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/0330367114.shtml)
-- 2026-06-30 05:17 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/4230077689.shtml)
-- 2026-06-30 05:11 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/18103389792.shtml)
-- 2026-06-30 05:28 - [月亮](http://www.share.kurohicncr.top/Article/details/3804324531.shtml)
-- 2026-06-30 05:25 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/35197883.shtml)
+- 2026-06-30 05:13 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/085844.shtml)
+- 2026-06-30 05:31 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/4777831558.shtml)
+- 2026-06-30 05:40 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/1978780.shtml)
+- 2026-06-30 05:17 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/7262345.shtml)
+- 2026-06-30 05:27 - [明星大侦探第一季](https://www.share.minike.top/Article/details/81328.shtml)
+- 2026-06-30 05:26 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/76229659820.shtml)
+- 2026-06-30 05:28 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/49904154.shtml)
+- 2026-06-30 05:14 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/0748984.shtml)
+- 2026-06-30 05:14 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/62693336330.shtml)
+- 2026-06-30 05:24 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/6216763.shtml)
+- 2026-06-30 05:28 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/0303943.shtml)
+- 2026-06-30 05:23 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/631278689471.shtml)
+- 2026-06-30 05:23 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/072739623.shtml)
+- 2026-06-30 05:41 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/9963821.shtml)
+- 2026-06-30 05:28 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/46575740.shtml)

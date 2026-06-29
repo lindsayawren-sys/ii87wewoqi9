@@ -1,58 +1,58 @@
-# 东北冷涡致吉林降水偏多102% 低温寡照影响作物长势
+# 从铁火传承到智造跃升 外籍主持人探访“中国刀剪之乡”
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新网长春6月16日电 (郭佳 张欣彤)受持续活跃的东北冷涡影响，吉林省出现异常多雨天气。记者16日从吉林省气象台获悉，6月1日至今该省平均降水量达82.5毫米，较常年同期偏多102%，未来几日仍将出现明显降雨过程。 吉林省气象台首席预报员云天接受中新网记者采访时表示，本轮异常天气的主导系统为持续稳定的东北冷涡。受稳定环流形势控制，叠加冷空气持续补充，冷涡长期盘踞东北地区上空，
+中新网宁德4月11日电 (记者 吕巧琴 叶茂)从手艺人的传统剪刀制造技艺工坊到数字化生产线，一把剪刀如何完成从“铁火相传”到“智造跃升”的蜕变？ 中新社海外中心和中阿卫视联合打造的2026年《文化中国》系列开篇之作《文化中国·宁德》在福建省宁德市柘荣县启动。11日，中阿卫视主持人阿思玛(Asmaa)实地探访“中国刀剪之乡”柘荣县，感受当地刀剪产业新活力。 走进位于柘荣县城区的传
 
 ## 正文
 
-中新网长春6月16日电 (郭佳 张欣彤)受持续活跃的东北冷涡影响，吉林省出现异常多雨天气。
+中新网宁德4月11日电 (记者 吕巧琴 叶茂)从手艺人的传统剪刀制造技艺工坊到数字化生产线，一把剪刀如何完成从“铁火相传”到“智造跃升”的蜕变？
 
-记者16日从吉林省气象台获悉，6月1日至今该省平均降水量达82.5毫米，较常年同期偏多102%，未来几日仍将出现明显降雨过程。
+中新社海外中心和中阿卫视联合打造的2026年《文化中国》系列开篇之作《文化中国·宁德》在福建省宁德市柘荣县启动。
 
-吉林省气象台首席预报员云天接受中新网记者采访时表示，本轮异常天气的主导系统为持续稳定的东北冷涡。
+11日，中阿卫视主持人阿思玛(Asmaa)实地探访“中国刀剪之乡”柘荣县，感受当地刀剪产业新活力。
 
-受稳定环流形势控制，叠加冷空气持续补充，冷涡长期盘踞东北地区上空，造成吉林省降水显著偏多、气温持续走低。
+走进位于柘荣县城区的传统剪刀制造技艺工坊，下钢、淬火、水磨……柘荣剪刀制造技艺省级非遗代表性传承人林龙醒正按照传统制造技艺锻造剪刀。
 
-云天介绍，今年东北冷涡能长期滞留东北，核心原因是其脱离西风带后失去东移动力。
+“优质碳钢是做好刀剪的基础，这样打造出来的刀剪才能硬度足、韧性好。
 
-与此同时，在贝加尔湖、鄂霍次克海形成的阻塞高压又把它牢牢卡在中间，使它东西移动受阻；而从高纬度南下的冷空气也不断为它补充能量，导致它深厚的冷心结构一直稳定存在，很难消散填塞。
+”林龙醒介绍道，从下钢到成品，一把剪刀要经过20多道工序，每一步都不能省略，差一点火候，剪刀的韧性就不够，“最考验手艺的是淬火和水磨，差一秒都不行。
 
-据吉林省气象台预报，17日至18日吉林省将迎来一轮雷雨过程，中部地区有中到大雨，局地暴雨；19日起，新一轮中到大雨将自西向东覆盖全省。
+” “真的太惊艳了。
 
-吉林省是中国重要商品粮生产基地，持续多雨低温天气已对当地农业生产造成不利影响。
+”阿思玛执铁锤体验捶打后感叹，这是她第一次看到剪刀的传统制造技艺。
 
 ## 相关推荐
 
-- 2026-06-30 05:29 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 05:06 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 05:27 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 05:18 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 05:24 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 05:35 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 05:35 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 05:22 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 05:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-30 05:31 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-30 05:14 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 05:25 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 05:21 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 05:32 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 05:38 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 05:27 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 05:20 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 05:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 05:14 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 05:28 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 05:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 05:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 05:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 05:20 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:14 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/072273.shtml)
-- 2026-06-30 05:24 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/54144.shtml)
-- 2026-06-30 05:33 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/24464395136.shtml)
-- 2026-06-30 05:27 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/70640.shtml)
-- 2026-06-30 05:34 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/47741.shtml)
-- 2026-06-30 05:22 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/500527391.shtml)
-- 2026-06-30 05:26 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/593081065.shtml)
-- 2026-06-30 05:11 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/28514.shtml)
-- 2026-06-30 05:15 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/193636262.shtml)
-- 2026-06-30 05:31 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/732863444.shtml)
-- 2026-06-30 05:14 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/0813769394.shtml)
-- 2026-06-30 05:24 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/88384.shtml)
-- 2026-06-30 05:09 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/90234377.shtml)
-- 2026-06-30 05:10 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/30206.shtml)
-- 2026-06-30 05:19 - [田曦薇没招了](http://www.blog.minike.top/Article/details/40593.shtml)
+- 2026-06-30 05:38 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/34642171024.shtml)
+- 2026-06-30 05:37 - [日本淘汰](http://www.blog.minike.top/Article/details/6378092413.shtml)
+- 2026-06-30 05:19 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/9978498326.shtml)
+- 2026-06-30 05:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/38516136.shtml)
+- 2026-06-30 05:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/9376617312.shtml)
+- 2026-06-30 05:26 - [日本16强魔咒](http://www.blog.minike.top/Article/details/109986417.shtml)
+- 2026-06-30 05:27 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/65926.shtml)
+- 2026-06-30 05:24 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/940380771104.shtml)
+- 2026-06-30 05:33 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/1166374.shtml)
+- 2026-06-30 05:14 - [小娘惹](https://www.blog.minike.top/Article/details/8940789918.shtml)
+- 2026-06-30 05:25 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/70852900473.shtml)
+- 2026-06-30 05:17 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/844194781.shtml)
+- 2026-06-30 05:22 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/9366099.shtml)
+- 2026-06-30 05:28 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/746013040.shtml)
+- 2026-06-30 05:17 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/104022224328.shtml)

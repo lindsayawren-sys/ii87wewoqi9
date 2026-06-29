@@ -1,44 +1,60 @@
-# 四川能投发展将于7月20日派发末期股息每股0.8694元
+# 徐云谈极氪9X海外受追捧：客户主动加价提车，包括劳斯莱斯、宾利用户
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-四川能投发展（01713）发布公告，该公司将于2026年7月20日派发截至2025年12月31日止年度的末期股息每股0.8694元。责任编辑：卢昱君
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。极氪整车研究院院长徐云出席并演讲。 徐云介绍到，极氪9X已经连续5个月蝉联50万级大型SUV的销量冠军，单车成交均价已经超过了53万元。她特别提到，超过80%的用户都来自BBA、保时捷、路虎等
 
 ## 正文
 
-四川能投发展（01713）发布公告，该公司将于2026年7月20日派发截至2025年12月31日止年度的末期股息每股0.8694元。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-责任编辑：卢昱君
+极氪整车研究院院长徐云出席并演讲。
+
+徐云介绍到，极氪9X已经连续5个月蝉联50万级大型SUV的销量冠军，单车成交均价已经超过了53万元。
+
+她特别提到，超过80%的用户都来自BBA、保时捷、路虎等传统豪华品牌。
+
+“用户用真金白银认可了极氪的技术实力。
+
+” 同时，她提到，极氪9X在海外市场也很受欢迎，甚至出现了客户主动加价提车的现象。
+
+这些用户也同样来自于BBA等奢牌，还有劳斯莱斯、宾利的一些用户。
+
+“他们本来就是对汽车领先技术的爱好者或者追逐者，9X可以给他们带来全新的产品体验和动力体验。
 
 ## 相关推荐
 
-- 2026-06-30 05:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 05:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 05:11 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 05:27 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 05:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 05:15 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 05:21 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 05:34 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 05:31 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 05:26 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 05:27 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 05:23 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 05:23 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 05:30 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 05:30 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 05:28 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 05:23 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 05:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 05:15 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 05:29 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 05:18 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 05:29 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 05:19 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 05:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:15 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/074223.shtml)
-- 2026-06-30 05:33 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/24529.shtml)
-- 2026-06-30 05:13 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/1075252.shtml)
-- 2026-06-30 05:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/79612529918.shtml)
-- 2026-06-30 05:12 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/892986.shtml)
-- 2026-06-30 05:17 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/650141.shtml)
-- 2026-06-30 05:35 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/89931524.shtml)
-- 2026-06-30 05:18 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/40678.shtml)
-- 2026-06-30 05:06 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/90272987146.shtml)
-- 2026-06-30 05:16 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/950634662.shtml)
-- 2026-06-30 05:16 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/46456227275.shtml)
-- 2026-06-30 05:12 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/2321317.shtml)
-- 2026-06-30 05:11 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/4544799.shtml)
-- 2026-06-30 05:24 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/43011643147.shtml)
-- 2026-06-30 05:08 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/67838598380.shtml)
+- 2026-06-30 05:13 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/5390785488.shtml)
+- 2026-06-30 05:33 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/622159904170.shtml)
+- 2026-06-30 05:22 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/6376763045.shtml)
+- 2026-06-30 05:12 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/634169672.shtml)
+- 2026-06-30 05:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/7321411388.shtml)
+- 2026-06-30 05:14 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/27644.shtml)
+- 2026-06-30 05:30 - [小娘惹](http://www.share.kurohicncr.top/Article/details/67655044242.shtml)
+- 2026-06-30 05:17 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/74451854.shtml)
+- 2026-06-30 05:34 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/5824545109.shtml)
+- 2026-06-30 05:39 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/6778665065.shtml)
+- 2026-06-30 05:42 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/013472.shtml)
+- 2026-06-30 05:20 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/92747714046.shtml)
+- 2026-06-30 05:29 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/78624.shtml)
+- 2026-06-30 05:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/97329.shtml)
+- 2026-06-30 05:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/56393800.shtml)

@@ -1,59 +1,57 @@
-# 海峡开放+旺季补库双催化！华宝基金化工ETF（516020）单日吸金超3.2亿元！新一轮行情即将开启？
+# 北美票房：“超级马里奥”跃升2026年迄今北美票房榜首
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-随着近期持续上涨，化工板块备受资金关注。数据显示，昨日（6月15日），基础化工板块单日获主力资金净流入额超过141亿元，净流入额在30个中信一级行业中位居第4；近5日，基础化工板块累计吸金额更是超过500亿元，吸金额在30个中信一级行业中高居第2。 化工板块场内热门布局工具化工ETF华宝（516020）亦连续获资金回流。交易所数据显示，截至昨日，化工ETF华宝（516020）已
+中新社洛杉矶4月12日电 (记者 张朔)《超级马里奥银河大电影》(The Super Mario Galaxy Movie)自4月1日亮相以来北美票房迅速突破3亿美元，跃升至2026年迄今北美票房总排行榜首位。 据票房统计网站BoxOfficeMojo4月12日发布的电影市场数据，30部影片北美周末票房(4月10日至12日)报收约1.26亿美元，较前一周末减少约36%。在“超级
 
 ## 正文
 
-随着近期持续上涨，化工板块备受资金关注。
+中新社洛杉矶4月12日电 (记者 张朔)《超级马里奥银河大电影》(The Super Mario Galaxy Movie)自4月1日亮相以来北美票房迅速突破3亿美元，跃升至2026年迄今北美票房总排行榜首位。
 
-数据显示，昨日（6月15日），基础化工板块单日获主力资金净流入额超过141亿元，净流入额在30个中信一级行业中位居第4；近5日，基础化工板块累计吸金额更是超过500亿元，吸金额在30个中信一级行业中高居第2。
+据票房统计网站BoxOfficeMojo4月12日发布的电影市场数据，30部影片北美周末票房(4月10日至12日)报收约1.26亿美元，较前一周末减少约36%。
 
-化工板块场内热门布局工具化工ETF华宝（516020）亦连续获资金回流。
+在“超级马里奥”带动下，北美周末票房连续两个统计周期保持在1亿美元之上。
 
-交易所数据显示，截至昨日，化工ETF华宝（516020）已连续3个交易日获资金净流入，昨日单日净流入额更是高达3.2亿元。
+改编自任天堂经典游戏的奇幻冒险动画片《超级马里奥银河大电影》雄霸北美单日票房冠军；第二个上映周末票房虽环比下跌47.6%，但仍以约6900万美元在最新一期北美周末票房排行榜继续强势领跑。
 
-消息面上，美国与伊朗达成的停战谅解备忘录已经以电子方式完成签署，正式签字仪式将于6月19日在日内瓦举行。
+其平均票房达16106美元，亦再次成为北美周末票房十强中平均票房最高的影片。
 
-谅解备忘录部分条款15日起开始执行，包括霍尔木兹海峡重新开放在内的部分条款，将在19日正式签署后执行。
+这部拥有庞大粉丝群的游戏改编电影北美票房现约3.08亿美元，跃升至2026年迄今北美票房总排行榜首位。
 
-有分析指出，化工行业基本面与估值已接近底部，海峡开放为或打开化工板块中长期布局窗口，建议优先关注二季度业绩预期较好的子行业标的。
+其全球票房现约6.29亿美元，升至2026年迄今全球票房总排行榜次席，票房成绩逼近运动喜剧剧情片《飞驰人生3》。
 
-开源证券指出，临近金九银十旺季，未来随着国内中秋国庆双节、双11以及海外圣诞节、海五等传统消费旺季到来，库存水平较低的中下游或进一步补库，化工品价差或迎来持续修复，建议关注化工板块。
+《你我在托斯卡纳》(You，Me & Tuscany)、“防弹少年团”(BTS)巡演纪录片、《死亡面孔》(Faces of Death)和《8号出口》(Exit 8)等4部新片，冲入最新一期北美周末票房十强。
 
 ## 相关推荐
 
-- 2026-06-30 05:28 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 05:21 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 05:23 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 05:08 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 05:29 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 05:14 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 05:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 05:09 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 05:19 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 05:24 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 05:12 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 05:13 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 05:26 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 05:15 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 05:14 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 05:35 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 05:36 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 05:41 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 05:14 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 05:36 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 05:21 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-30 05:24 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 05:21 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 05:22 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:11 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/429928.shtml)
-- 2026-06-30 05:16 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/312632134.shtml)
-- 2026-06-30 05:06 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/8133391.shtml)
-- 2026-06-30 05:13 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/84212715565.shtml)
-- 2026-06-30 05:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/44842.shtml)
-- 2026-06-30 05:16 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/648024706927.shtml)
-- 2026-06-30 05:16 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/1744104950.shtml)
-- 2026-06-30 05:16 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/8169917588.shtml)
-- 2026-06-30 05:26 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/1941684.shtml)
-- 2026-06-30 05:07 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/22971.shtml)
-- 2026-06-30 05:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/02085.shtml)
-- 2026-06-30 05:31 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/5884768563.shtml)
-- 2026-06-30 05:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/69829707901.shtml)
-- 2026-06-30 05:10 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/164164178787.shtml)
-- 2026-06-30 05:10 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/10783.shtml)
+- 2026-06-30 05:17 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/5637395476.shtml)
+- 2026-06-30 05:31 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/335699.shtml)
+- 2026-06-30 05:29 - [沙丘](https://www.share.kurohicncr.top/Article/details/680293486.shtml)
+- 2026-06-30 05:25 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/77241.shtml)
+- 2026-06-30 05:25 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/3189576769.shtml)
+- 2026-06-30 05:12 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/467848461.shtml)
+- 2026-06-30 05:37 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/493797112.shtml)
+- 2026-06-30 05:28 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/948423823043.shtml)
+- 2026-06-30 05:17 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/001503721.shtml)
+- 2026-06-30 05:34 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/70767398.shtml)
+- 2026-06-30 05:38 - [第一炉香](http://www.share.minike.top/Article/details/470690664.shtml)
+- 2026-06-30 05:41 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/6348597.shtml)
+- 2026-06-30 05:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/533735891.shtml)
+- 2026-06-30 05:26 - [爱很美味](https://www.share.kurohicncr.top/Article/details/064929.shtml)
+- 2026-06-30 05:12 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/33531.shtml)

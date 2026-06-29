@@ -1,57 +1,51 @@
-# 光模块“一哥”“二哥”，成交710亿元！A股第一、第二
+# 创科实业获The Capital Group Companies, Inc.增持272.8万股 每股作价约112.57港元
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日，A股市场高开高走，主要指数全线上涨。沪深两市主力资金净流入超450亿元，创逾2个月新高，较前一交易日净流入规模大幅增加。 今日，上证指数、深证成指、创业板指、科创综指分别上涨1.61%、3.79%、5.30%、4.89%。盘面上，科技股领涨，电路板、光模块、玻璃基板、半导体硅片等板块大涨。 从主
+香港联交所最新资料显示，4月8日，The Capital Group Companies， Inc．增持创科实业（00669）272.8万股，平均每股作价为112.5748港元，总金额约为3.07亿港元。增持后最新持股数目约为1.30亿股，最新持股比例为7.12%。责任编辑：卢昱君
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+香港联交所最新资料显示，4月8日，The Capital Group Companies， Inc．增持创科实业（00669）272.8万股，平均每股作价为112.5748港元，总金额约为3.07亿港元。
 
-6月15日，A股市场高开高走，主要指数全线上涨。
+增持后最新持股数目约为1.30亿股，最新持股比例为7.12%。
 
-沪深两市主力资金净流入超450亿元，创逾2个月新高，较前一交易日净流入规模大幅增加。
-
-今日，上证指数、深证成指、创业板指、科创综指分别上涨1.61%、3.79%、5.30%、4.89%。
-
-盘面上，科技股领涨，电路板、光模块、玻璃基板、半导体硅片等板块大涨。
-
-从主力资金流向上看，沪深两市主力资金净流入459.62亿元，沪深300指数主力资金净流入255.39亿元，与前一交易日的净流入规模相比，均大幅增加。
-
-沪深两市出现主力资金净流入的股票数为2767只，出现主力资金净流出的股票数为2422只。
-
-沪深两市主力资金净流入前十股票中有9只科技股，合计净流入超180亿元。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:17 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 05:14 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 05:20 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 05:20 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 05:11 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 05:13 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 05:17 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 05:17 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 05:18 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 05:06 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 05:34 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 05:31 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 05:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 05:21 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 05:40 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 05:27 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 05:22 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 05:29 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 05:34 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 05:14 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 05:17 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 05:33 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 05:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 05:31 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 05:23 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 05:34 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/4953668724.shtml)
-- 2026-06-30 05:13 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/5596147057.shtml)
-- 2026-06-30 05:28 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/246223140735.shtml)
-- 2026-06-30 05:18 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/8999991.shtml)
-- 2026-06-30 05:32 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/6780144825.shtml)
-- 2026-06-30 05:13 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/91924.shtml)
-- 2026-06-30 05:14 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/608209652.shtml)
-- 2026-06-30 05:31 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/560652891638.shtml)
-- 2026-06-30 05:31 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/1602351866.shtml)
-- 2026-06-30 05:20 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/48577.shtml)
-- 2026-06-30 05:34 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/687318889.shtml)
-- 2026-06-30 05:08 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/421428.shtml)
-- 2026-06-30 05:06 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/3669839217.shtml)
-- 2026-06-30 05:12 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/98295142229.shtml)
-- 2026-06-30 05:09 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/1273102.shtml)
+- 2026-06-30 05:40 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/50687.shtml)
+- 2026-06-30 05:24 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/32670414880.shtml)
+- 2026-06-30 05:15 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/5959194166.shtml)
+- 2026-06-30 05:37 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/3390050.shtml)
+- 2026-06-30 05:27 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/50824061.shtml)
+- 2026-06-30 05:35 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/576398161125.shtml)
+- 2026-06-30 05:37 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/9740967818.shtml)
+- 2026-06-30 05:33 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/383657637.shtml)
+- 2026-06-30 05:37 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/1854286.shtml)
+- 2026-06-30 05:30 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/0916338.shtml)
+- 2026-06-30 05:15 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/34739.shtml)
+- 2026-06-30 05:39 - [美人鱼](http://www.blog.minike.top/Article/details/586390321.shtml)
+- 2026-06-30 05:40 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/786971082.shtml)
+- 2026-06-30 05:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/100059.shtml)
+- 2026-06-30 05:34 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/355621960.shtml)

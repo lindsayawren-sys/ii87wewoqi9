@@ -1,48 +1,58 @@
-# 人民币兑美元中间价报6.8108，下调20点
+# 2026北京半程马拉松收官 王文杰打破全国纪录夺冠
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-6月16日，人民币兑美元中间价报6.8108，下调20点。 美联储6月维持利率不变的概率为98.5% 据CME“美联储观察”：美联储6月维持利率不变的概率为98.5%，累计降息25个基点的概率为1.5%。美联储到7月维持利率不变的概率为91.3%，累计加息25个基点的概率7.4%，累计降息25个基点的概率为1.4%。责任编辑：郭建
+中新网北京4月12日电(记者 刘星晨)4月12日清晨，2026北京半程马拉松鸣枪开跑，赛事终点为奥林匹克公园中心区景观大道。经过角逐，来自清华大学的王文杰以1小时01分15秒的成绩夺得男子组冠军，并打破全国纪录。女子组方面，许双双以1小时09分54秒的成绩率先冲线。 2026年，北京国际长跑节迎来70周年，北京半程马拉松迎来10周年。比赛于4月12日7时鸣枪起跑，起点为天安门广
 
 ## 正文
 
-6月16日，人民币兑美元中间价报6.8108，下调20点。
+中新网北京4月12日电(记者 刘星晨)4月12日清晨，2026北京半程马拉松鸣枪开跑，赛事终点为奥林匹克公园中心区景观大道。
 
-美联储6月维持利率不变的概率为98.5% 据CME“美联储观察”：美联储6月维持利率不变的概率为98.5%，累计降息25个基点的概率为1.5%。
+经过角逐，来自清华大学的王文杰以1小时01分15秒的成绩夺得男子组冠军，并打破全国纪录。
 
-美联储到7月维持利率不变的概率为91.3%，累计加息25个基点的概率7.4%，累计降息25个基点的概率为1.4%。
+女子组方面，许双双以1小时09分54秒的成绩率先冲线。
 
-责任编辑：郭建
+2026年，北京国际长跑节迎来70周年，北京半程马拉松迎来10周年。
+
+比赛于4月12日7时鸣枪起跑，起点为天安门广场，终点是奥林匹克公园中心区景观大道，比赛全程途经东城区、朝阳区。
+
+本次比赛，赛道实现全程“无折返”，尤其在17.5公里后进一步减少弯道，有助于选手冲击PB(个人最好成绩)。
+
+此外，本次海外选手报名人数较2025年大幅增长35%。
+
+比赛开始后，男子组第一集团逐渐成型，王文杰保持着稳定的配速，在10公里处已经建立起领先优势。
 
 ## 相关推荐
 
-- 2026-06-30 05:08 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 05:19 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 05:18 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 05:28 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 05:22 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 05:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 05:24 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 05:12 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 05:15 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 05:09 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 05:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 05:13 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 05:16 - [月亮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 05:29 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 05:35 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 05:31 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 05:24 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 05:14 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 05:16 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 05:22 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 05:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 05:32 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:28 - [起风了](https://www.share.minike.top/Article/details/110495.shtml)
-- 2026-06-30 05:21 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/8624430.shtml)
-- 2026-06-30 05:07 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/58359372.shtml)
-- 2026-06-30 05:24 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/302930.shtml)
-- 2026-06-30 05:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/732254597.shtml)
-- 2026-06-30 05:20 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/99670660729.shtml)
-- 2026-06-30 05:19 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/2168980.shtml)
-- 2026-06-30 05:25 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/952962794.shtml)
-- 2026-06-30 05:29 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/5207088173.shtml)
-- 2026-06-30 05:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/06492176695.shtml)
-- 2026-06-30 05:07 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/39853.shtml)
-- 2026-06-30 05:12 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/724982.shtml)
-- 2026-06-30 05:33 - [内马尔替补](https://www.share.minike.top/Article/details/52220724872.shtml)
-- 2026-06-30 05:19 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/29630.shtml)
-- 2026-06-30 05:19 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/18908271509.shtml)
+- 2026-06-30 05:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/0123784130.shtml)
+- 2026-06-30 05:38 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/597294.shtml)
+- 2026-06-30 05:17 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/81825164.shtml)
+- 2026-06-30 05:14 - [日本16强魔咒](http://www.blog.minike.top/Article/details/0541650.shtml)
+- 2026-06-30 05:36 - [急先锋](https://www.share.kurohicncr.top/Article/details/44005258844.shtml)
+- 2026-06-30 05:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/11041872.shtml)
+- 2026-06-30 05:20 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/2919763159.shtml)
+- 2026-06-30 05:17 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/71040306.shtml)
+- 2026-06-30 05:33 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/9304352025.shtml)
+- 2026-06-30 05:13 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/341828905.shtml)
+- 2026-06-30 05:38 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/4702366413.shtml)
+- 2026-06-30 05:12 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/7084037.shtml)
+- 2026-06-30 05:14 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/2001424670.shtml)
+- 2026-06-30 05:18 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/75437.shtml)
+- 2026-06-30 05:13 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/12574.shtml)

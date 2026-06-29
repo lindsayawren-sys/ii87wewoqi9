@@ -1,61 +1,60 @@
-# 中国科研人员在黄岩岛发现大规模绿海龟种群
+# IBM将支付1700万美元解决美国政府对DEI的调查
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-日前，中国科学院黄岩岛发育演化与生态韧性综合科考队在我国黄岩岛潟湖海草床，发现大规模国家一级保护野生动物绿海龟种群，初步观测数量超50只。 科研人员介绍，黄岩岛潟湖发育有大面积的海草床，近年来，在持续保护下，海草床发育态势良好，分布有圆叶丝粉草、卵叶喜盐草等，是绿海龟的重要食物来源。 此次发现说明，黄岩岛潟湖海草床已经发育出成熟的“珊瑚礁—海草床”复合生态系统，为海龟等物种提供
+IBM已同意支付1700万美元，以了结美国政府对该公司多元化、公平和包容性做法的调查，美国政府在特朗普的第二个任期内对这些做法进行了严厉打击。 该和解协议标志着美国司法部去年成立的名为“民权欺诈倡议”的，利用民事反欺诈法打击多元化与包容性政策的首个解决方案。 特朗普将目标对准了公共和私人组织--从政府机构到私立大学--的“免费教育”做法，民权倡导者称这些做法有助于解决妇女和少数
 
 ## 正文
 
-日前，中国科学院黄岩岛发育演化与生态韧性综合科考队在我国黄岩岛潟湖海草床，发现大规模国家一级保护野生动物绿海龟种群，初步观测数量超50只。
+IBM已同意支付1700万美元，以了结美国政府对该公司多元化、公平和包容性做法的调查，美国政府在特朗普的第二个任期内对这些做法进行了严厉打击。
 
-科研人员介绍，黄岩岛潟湖发育有大面积的海草床，近年来，在持续保护下，海草床发育态势良好，分布有圆叶丝粉草、卵叶喜盐草等，是绿海龟的重要食物来源。
+该和解协议标志着美国司法部去年成立的名为“民权欺诈倡议”的，利用民事反欺诈法打击多元化与包容性政策的首个解决方案。
 
-此次发现说明，黄岩岛潟湖海草床已经发育出成熟的“珊瑚礁—海草床”复合生态系统，为海龟等物种提供了良好的栖息环境。
+特朗普将目标对准了公共和私人组织--从政府机构到私立大学--的“免费教育”做法，民权倡导者称这些做法有助于解决妇女和少数民族等边缘化群体的历史性不平等问题。
 
-与此同时，科考队还在海草床附近发现低潮时出露海面的、正在发育的沙洲，未来或可为绿海龟、玳瑁等物种提供理想的繁殖产卵场，让黄岩岛从海龟、玳瑁的“餐厅”升级为真正的“家园”。
+在司法部与IBM签订的和解协议中，美国政府指控IBM的做法包括使用“多元化调节器”，“将奖金报酬与实现人口统计目标挂钩”。
 
-近年来，南海部分岛礁绿海龟、玳瑁、儒艮等珍稀海洋野生动物种群日益繁盛，证明我国在南海长期开展的生态保护与修复取得一定成效。
+和解协议还称，IBM终止或修改了多项计划和政策，但该公司否认存在非法行为。
 
-我国设立黄岩岛国家级自然保护区，对该海域生态系统与珍稀野生动物资源保护发挥了积极作用。
+“该协议称：”本协议既不是IBM承认其责任，也不是美国承认其索赔没有充分依据。
 
-此次发现是由中国科学院黄岩岛科考队运用无人机巡查技术开展，借助低扰动的新调查手段对绿海龟种群进行识别与跟踪调查应用，并拍摄到了绿海龟成群竞泳的珍贵画面。
+白宫认为，DEI是反功利的，是对白人和男性等群体的歧视。
 
-(新华社 记者杨深深)
+特朗普已签署行政命令，要求联邦承包商和分包商取消DEI。
 
 ## 相关推荐
 
-- 2026-06-30 05:18 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 05:09 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 05:35 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-30 05:34 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 05:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 05:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 05:08 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 05:32 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 05:19 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 05:33 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 05:19 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 05:20 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 05:10 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 05:18 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 05:33 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 05:29 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 05:37 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 05:15 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 05:41 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 05:31 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 05:17 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 05:24 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 05:39 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 05:14 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 05:24 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 05:12 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 05:39 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 05:13 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 05:16 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:18 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/553156202.shtml)
-- 2026-06-30 05:27 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/032697905987.shtml)
-- 2026-06-30 05:33 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/213992226039.shtml)
-- 2026-06-30 05:10 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/376515868.shtml)
-- 2026-06-30 05:25 - [金刚川](https://www.blog.kurohicncr.top/Article/details/91519270553.shtml)
-- 2026-06-30 05:21 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/8421135408.shtml)
-- 2026-06-30 05:17 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/415910737.shtml)
-- 2026-06-30 05:14 - [日本16强魔咒](https://www.share.minike.top/Article/details/36041079.shtml)
-- 2026-06-30 05:11 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/3462000.shtml)
-- 2026-06-30 05:28 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/80609.shtml)
-- 2026-06-30 05:23 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/18276.shtml)
-- 2026-06-30 05:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/04236079.shtml)
-- 2026-06-30 05:15 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/6063168.shtml)
-- 2026-06-30 05:34 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/91450427734.shtml)
-- 2026-06-30 05:10 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/03286.shtml)
+- 2026-06-30 05:39 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/1851857.shtml)
+- 2026-06-30 05:32 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/970456371981.shtml)
+- 2026-06-30 05:20 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/2078040.shtml)
+- 2026-06-30 05:22 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/28583907.shtml)
+- 2026-06-30 05:25 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/87353959089.shtml)
+- 2026-06-30 05:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/6787237.shtml)
+- 2026-06-30 05:28 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/02174219.shtml)
+- 2026-06-30 05:17 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/92199599.shtml)
+- 2026-06-30 05:34 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/682884500.shtml)
+- 2026-06-30 05:19 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/13502059271.shtml)
+- 2026-06-30 05:38 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/1940765.shtml)
+- 2026-06-30 05:31 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/1344790.shtml)
+- 2026-06-30 05:32 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/0946328.shtml)
+- 2026-06-30 05:30 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/60836.shtml)
+- 2026-06-30 05:41 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/601315.shtml)

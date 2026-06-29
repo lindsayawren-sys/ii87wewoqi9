@@ -1,60 +1,56 @@
-# 国际电影制片人协会副主席：“中国唯一国际A类电影节”具有成长性
+# 马萨诸塞州最高法院裁定：Meta必须面临青少年成瘾诉讼
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新社上海6月15日电 (记者 王笈)国际电影制片人协会副主席焦宏奋15日在上海接受中新社记者专访时表示，上海国际电影节(上影节)已成为国际影人每年6月的“固定行程”，是中国电影走向世界、国际影人了解中国的重要窗口。 国际电影制片人协会于今年3月公布的新一轮“A类电影节”认证名单中，上影节凭借优异的考核数据，蝉联“中国唯一国际A类电影节”。 焦宏奋透露，此轮对国际电影节评定认证
+马萨诸塞州最高法院周五裁定，Meta Platforms必须面对该州总检察长提起的诉讼。该诉讼指控这家Facebook和Instagram的母公司故意设计平台功能，使年轻用户上瘾。 裁定要点 马萨诸塞州最高法院的这项裁决，标志着美国州级最高法院首次就《通信规范法》第230条是否适用于此类案件作出审理。该联邦法律通常保护互联网公司免于因用户发布的内容而被起诉。法院认为，第230条
 
 ## 正文
 
-中新社上海6月15日电 (记者 王笈)国际电影制片人协会副主席焦宏奋15日在上海接受中新社记者专访时表示，上海国际电影节(上影节)已成为国际影人每年6月的“固定行程”，是中国电影走向世界、国际影人了解中国的重要窗口。
+马萨诸塞州最高法院周五裁定，Meta Platforms必须面对该州总检察长提起的诉讼。
 
-国际电影制片人协会于今年3月公布的新一轮“A类电影节”认证名单中，上影节凭借优异的考核数据，蝉联“中国唯一国际A类电影节”。
+该诉讼指控这家Facebook和Instagram的母公司故意设计平台功能，使年轻用户上瘾。
 
-焦宏奋透露，此轮对国际电影节评定认证的调整，主要基于两方面原因——一是疫情后，世界各国观众走进电影院的热情下降；二是AR、短视频等新技术、新媒体，给电影带来了新的挑战。
+裁定要点 马萨诸塞州最高法院的这项裁决，标志着美国州级最高法院首次就《通信规范法》第230条是否适用于此类案件作出审理。
 
-“我们遵循国际化、专业化、市场化、规范化、可持续原则，以电影节三年来的真实数据、国际影响力等为指标，对A类电影节做出了相应的调整，根本目的是推动世界电影的高质量、市场化发展，吸引更多观众走进电影院。
+该联邦法律通常保护互联网公司免于因用户发布的内容而被起诉。
 
-” 焦宏奋指出，与戛纳、柏林、威尼斯等“老牌”电影节相比，创办于1993年的上影节正处于年轻阶段，成长性好、具有活力。
+法院认为，第230条不适用于马萨诸塞州指控Meta就其平台安全性作出虚假陈述的部分，因为该州“主要是寻求让Meta为其自身的商业行为承担责任”，而非第三方发布的内容。
 
-“它的展映影片(数量)、上座率、票房都在A类电影节中排在前面，这个城市的观众参与度非常高。
+Meta否认了这些指控，并表示公司采取了广泛措施来保护青少年和年轻用户在其平台上的安全。
 
-从去年到今年，中国电影票房一直位列世界第一，中国银幕数量也稳居世界第一。
+案件背景 该诉讼由马萨诸塞州总检察长安德里亚·乔伊·坎贝尔提起，指控Instagram的推送通知、“点赞”按钮和无尽滚动等功能，旨在利用青少年的心理脆弱性和“错失恐惧症”来获利。
 
-上影节背靠巨大的中国电影市场，一定会吸引更多优秀的国际影人和影片，利用这个平台加强交流、扩大影响。
+诉讼称，内部数据显示该平台正在使儿童成瘾并造成伤害，但高层管理人员拒绝了其研究显示可以改善青少年福祉的修改建议。
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 05:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 05:09 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 05:16 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 05:33 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 05:09 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 05:33 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 05:22 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 05:19 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 05:35 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 05:26 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 05:18 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 05:33 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 05:06 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 05:41 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 05:23 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 05:17 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 05:19 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 05:14 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 05:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 05:33 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 05:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 05:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 05:35 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:16 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/5505263305.shtml)
-- 2026-06-30 05:22 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/0613988.shtml)
-- 2026-06-30 05:18 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/4171360625.shtml)
-- 2026-06-30 05:19 - [千与千寻](http://www.share.kurohicncr.top/Article/details/599065636952.shtml)
-- 2026-06-30 05:17 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/964613250.shtml)
-- 2026-06-30 05:19 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/70223.shtml)
-- 2026-06-30 05:17 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/714622021141.shtml)
-- 2026-06-30 05:35 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/433832.shtml)
-- 2026-06-30 05:30 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/189055.shtml)
-- 2026-06-30 05:13 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/66013958.shtml)
-- 2026-06-30 05:32 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/3168556775.shtml)
-- 2026-06-30 05:26 - [日本16强魔咒](https://www.blog.minike.top/Article/details/70416363.shtml)
-- 2026-06-30 05:25 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/808861124.shtml)
-- 2026-06-30 05:31 - [绘画区你赢了](https://www.blog.minike.top/Article/details/43537874155.shtml)
-- 2026-06-30 05:20 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/70861990.shtml)
+- 2026-06-30 05:33 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/5373345.shtml)
+- 2026-06-30 05:18 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/45521453.shtml)
+- 2026-06-30 05:25 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/75379312.shtml)
+- 2026-06-30 05:39 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/66341413255.shtml)
+- 2026-06-30 05:24 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/81794085.shtml)
+- 2026-06-30 05:41 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/85234693919.shtml)
+- 2026-06-30 05:24 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/798603018147.shtml)
+- 2026-06-30 05:15 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/412120.shtml)
+- 2026-06-30 05:36 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/92376813.shtml)
+- 2026-06-30 05:32 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/35302.shtml)
+- 2026-06-30 05:35 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/3808682046.shtml)
+- 2026-06-30 05:17 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/293059.shtml)
+- 2026-06-30 05:28 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/0441741782.shtml)
+- 2026-06-30 05:27 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/580746654.shtml)
+- 2026-06-30 05:17 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/74053414.shtml)

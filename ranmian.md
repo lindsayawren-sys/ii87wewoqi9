@@ -1,61 +1,60 @@
-# 固定资产不足1亿却要募资12.5亿扩产， 欧尚元应收坏账暴增24倍
+# “券业一哥”中信证券绩后高调领涨，华宝基金券商ETF（512000）狂飙5.48%！创业板人工智能ETF再创历史新高
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 欧尚元智能装备股份有限公司（以下简称“欧尚元”）创业板IPO申请已获受理。作为国内生物制造装备领域的优质企业，公司核心主营分离纯化装备与工业自动化控制系统，精准踩中生物制造产业规模化、高速化发展的行业风口，尤其在阿洛酮糖分离纯化这一热门细分赛道，占据国内较高市场份额，具备细分领域竞争优势。 从招股书披露的数据看，欧尚元近三年业绩
+周五（4月10日）A股主要指数携手上涨，沪指一度重回4000点上方，创业板指放量大涨3.78%，刷新2021年底以来收盘新高。沪深京三市成交额23378亿元，较昨日放量1903亿元。 盘面上，电力设备板块领涨两市，宁德时代登顶A股吸金榜，覆盖创业板+科创板高成长龙头的硬科技宽基——双创50ETF华宝（588330）场内涨幅盘中飙涨超4.1%，创历史新高！光模块双雄中际旭创、新易
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 欧尚元智能装备股份有限公司（以下简称“欧尚元”）创业板IPO申请已获受理。
+周五（4月10日）A股主要指数携手上涨，沪指一度重回4000点上方，创业板指放量大涨3.78%，刷新2021年底以来收盘新高。
 
-作为国内生物制造装备领域的优质企业，公司核心主营分离纯化装备与工业自动化控制系统，精准踩中生物制造产业规模化、高速化发展的行业风口，尤其在阿洛酮糖分离纯化这一热门细分赛道，占据国内较高市场份额，具备细分领域竞争优势。
+沪深京三市成交额23378亿元，较昨日放量1903亿元。
 
-从招股书披露的数据看，欧尚元近三年业绩稳步增长，呈现出良好的成长性。
+盘面上，电力设备板块领涨两市，宁德时代登顶A股吸金榜，覆盖创业板+科创板高成长龙头的硬科技宽基——双创50ETF华宝（588330）场内涨幅盘中飙涨超4.1%，创历史新高！
 
-但亮眼的营收与净利润数据背后，隐藏着诸多不容忽视的经营与财务隐患：应收账款质量持续恶化、坏账损失爆发式激增、存货高企周转低效、核心财务数据相互背离、巨额募资扩产合理性存疑等多重问题交织叠加。
+光模块双雄中际旭创、新易盛股价继续向上突破，双创AI赛道规模、流动性第一*的创业板人工智能ETF华宝（159363）场内涨幅最高上探3.31%，再创上市新高！
 
-对于这家固定资产规模不足1亿元，却计划大手笔募资12.51亿元扩产的企业而言，能否向市场证明业绩增长的可持续性、财务信息披露的真实性，已然成为关注焦点。
+券商板块久违发力，“券业一哥”中信证券绩后高调领涨，涨幅一度超9%，规模近350亿元的顶流券商ETF（512000）场内涨幅摸高5.48%，全天成交额超20亿元，量价齐升。
 
-坏账损失暴增，存货周转率低于同行 依托生物制造产业化的行业红利，以及自身在细分领域的技术与市场优势，欧尚元近三年经营规模持续扩张。
+港股国泰君安国际一度涨40%，A股数字货币概念爆发，同类规模最大*的金融科技ETF华宝（159851）场内上扬3.23%，资金前一日大买超1亿份后，周五继续涌入超5800万份。
 
-招股书数据显示，2023年至2025年，公司经营业绩连续三年正向增长，营业收入分别达到3.6亿元、3.99亿元、5.8亿元；同期归母净利润同步提升，依次为1.07亿元、1.18亿元、1.5亿元。
+港股三大指数集体收红，港股硬科技表现抢眼，直指港股芯片超级周期——同类规模最大、全市场首只聚焦“港股芯片”产业链的港股通信息技术ETF华宝（159131）场内价格盘中拉升2.5%，收涨近1%，日k线自本轮低点3月31日以来，或已走出震荡上行台阶。
 
-不过，光鲜的业绩数据之下，公司营收“含金量”走低，盈利质量隐患凸显。
+中信证券认为，港股有望在4-5月迎来估值扩张行情*。
 
 ## 相关推荐
 
-- 2026-06-30 05:32 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 05:20 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 05:34 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 05:20 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 05:23 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-30 05:09 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 05:30 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 05:09 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 05:24 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 05:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 05:18 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 05:06 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 05:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 05:10 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 05:12 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 05:34 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 05:27 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 05:26 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 05:27 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 05:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 05:17 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 05:28 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 05:36 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 05:23 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 05:29 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 05:14 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 05:30 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 05:32 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 05:28 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:33 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/881567861085.shtml)
-- 2026-06-30 05:21 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/047400508466.shtml)
-- 2026-06-30 05:06 - [85花告别古偶](http://www.share.minike.top/Article/details/57644885.shtml)
-- 2026-06-30 05:21 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/434192.shtml)
-- 2026-06-30 05:31 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/97855.shtml)
-- 2026-06-30 05:23 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/4077126341.shtml)
-- 2026-06-30 05:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/9076461333.shtml)
-- 2026-06-30 05:28 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/80886035293.shtml)
-- 2026-06-30 05:14 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/582687788.shtml)
-- 2026-06-30 05:06 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/152415962.shtml)
-- 2026-06-30 05:17 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/115510303.shtml)
-- 2026-06-30 05:29 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/664511012515.shtml)
-- 2026-06-30 05:29 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/28709345169.shtml)
-- 2026-06-30 05:29 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/89869166264.shtml)
-- 2026-06-30 05:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/75917327.shtml)
+- 2026-06-30 05:14 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/16231523810.shtml)
+- 2026-06-30 05:16 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/7341407.shtml)
+- 2026-06-30 05:15 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/73069484.shtml)
+- 2026-06-30 05:21 - [流金岁月](http://www.share.kurohicncr.top/Article/details/4640420.shtml)
+- 2026-06-30 05:26 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/2226711.shtml)
+- 2026-06-30 05:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/12252277190.shtml)
+- 2026-06-30 05:38 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/32045411.shtml)
+- 2026-06-30 05:20 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/720681.shtml)
+- 2026-06-30 05:21 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/80914675371.shtml)
+- 2026-06-30 05:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/568403.shtml)
+- 2026-06-30 05:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/640682634.shtml)
+- 2026-06-30 05:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/525609.shtml)
+- 2026-06-30 05:24 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/838281070.shtml)
+- 2026-06-30 05:23 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/0334628.shtml)
+- 2026-06-30 05:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/6658893.shtml)

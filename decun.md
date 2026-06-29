@@ -1,58 +1,60 @@
-# 2026中国国际金融展在上海开幕
+# 清华大学教授李克强：智能汽车领域盈利模式并不理想，主要因为安全性不足
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新网上海6月16日电 (高志苗)以“金融强国筑根基 数智创新向未来”为主题的2026中国国际金融展16日在上海世博展览馆开幕。 中国人民银行党委委员、副行长邹澜指出，今年是“十五五”开局之年，站在新的历史起点，要准确把握未来五年的发展目标与任务，践行金融工作政治性、人民性，推动金融高质量发展。坚守初心本源，不断提高金融服务供给对重点领域、薄弱环节需求的适配性和精准性。强化科技
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 清华大学车辆与运载学院教授、智能绿色车辆与交通全国重点实验室主任、国家智能网联汽车创新中心首席科学家李克强表示，当前中国汽车智能化产业已经发展到了一个关键的节点、一个临界点。他认为，在这个发
 
 ## 正文
 
-中新网上海6月16日电 (高志苗)以“金融强国筑根基 数智创新向未来”为主题的2026中国国际金融展16日在上海世博展览馆开幕。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-中国人民银行党委委员、副行长邹澜指出，今年是“十五五”开局之年，站在新的历史起点，要准确把握未来五年的发展目标与任务，践行金融工作政治性、人民性，推动金融高质量发展。
+清华大学车辆与运载学院教授、智能绿色车辆与交通全国重点实验室主任、国家智能网联汽车创新中心首席科学家李克强表示，当前中国汽车智能化产业已经发展到了一个关键的节点、一个临界点。
 
-坚守初心本源，不断提高金融服务供给对重点领域、薄弱环节需求的适配性和精准性。
+他认为，在这个发展过程中，要真正实现高质量、可持续发展，应当尽快解决所面临的一系列挑战性问题。
 
-强化科技引领，加强新阶段金融科技发展顶层设计，稳健务实推动人工智能等新技术落地应用。
+首先，李克强表示，目前为止，尽管行业投入巨大，但在汽车智能化领域，商业闭环及盈利模式并不理想，这一点从各家公司的报表中就能看出。
 
-夯实数字底座，完善市场化、智能化支付服务生态，进一步提升金融基础设施安全可靠性。
+从原因上分析，首先是安全可靠性不足。
 
-深化对外开放，发挥上海金融机构、要素市场、人才队伍的集聚优势，全面提升上海国际金融中心能级。
+“大家试想一下，自动驾驶的首要属性是保证交通的安全，如果安全可靠性无法保障，用户自然不会买单，也就难以形成盈利闭环。
 
-上海市委常委、常务副市长吴伟表示，上海先后落地两轮全球金融科技中心建设方案，全市金融科技发展迈入聚势跃升、提质加速的新阶段。
+”他说。
 
-产业生态加快集聚，数字人民币国际运营中心、沪联金科、国家金融科技认证上海中心、人民银行上海同城数据中心等一批高能级功能性平台相继在沪落地。
+另外，他认为目前在产品定义上存在诸多问题，尚未形成自主闭环，也没有建立起统一的技术规范，这就导致开发成本居高不下；同时，系统的兼容性、架构设计不合理，进一步推高了开发成本。
 
 ## 相关推荐
 
-- 2026-06-30 05:31 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 05:19 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 05:07 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 05:10 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 05:16 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 05:28 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 05:35 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 05:18 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 05:09 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 05:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 05:26 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 05:16 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 05:25 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 05:16 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 05:25 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 05:16 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 05:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 05:19 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 05:32 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 05:18 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 05:18 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 05:17 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 05:38 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 05:34 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 05:15 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 05:29 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:23 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/02624552.shtml)
-- 2026-06-30 05:29 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/644100601454.shtml)
-- 2026-06-30 05:32 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/2734089.shtml)
-- 2026-06-30 05:27 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/70726.shtml)
-- 2026-06-30 05:31 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/496882.shtml)
-- 2026-06-30 05:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/34540759057.shtml)
-- 2026-06-30 05:24 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/390043761.shtml)
-- 2026-06-30 05:28 - [送你一朵小红花](https://www.blog.minike.top/Article/details/787858527872.shtml)
-- 2026-06-30 05:19 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/2396551.shtml)
-- 2026-06-30 05:30 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/5620865835.shtml)
-- 2026-06-30 05:13 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/19311223.shtml)
-- 2026-06-30 05:09 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/6956682893.shtml)
-- 2026-06-30 05:31 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/95759641.shtml)
-- 2026-06-30 05:20 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/083115216882.shtml)
-- 2026-06-30 05:10 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/712819.shtml)
+- 2026-06-30 05:32 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/7649573.shtml)
+- 2026-06-30 05:40 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/78102.shtml)
+- 2026-06-30 05:36 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/04411923.shtml)
+- 2026-06-30 05:42 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/203734760677.shtml)
+- 2026-06-30 05:14 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/0699125.shtml)
+- 2026-06-30 05:41 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/833567364005.shtml)
+- 2026-06-30 05:37 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/04857.shtml)
+- 2026-06-30 05:36 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/8739117.shtml)
+- 2026-06-30 05:15 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/001193.shtml)
+- 2026-06-30 05:36 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/91920.shtml)
+- 2026-06-30 05:18 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/47814.shtml)
+- 2026-06-30 05:28 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/25206.shtml)
+- 2026-06-30 05:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/95040260.shtml)
+- 2026-06-30 05:17 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/393149505.shtml)
+- 2026-06-30 05:31 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/121933985.shtml)

@@ -1,59 +1,54 @@
-# 高通洽谈收购Tenstorrent，加码AI芯片技术实力
+# 中国大型水陆两栖飞机AG600“鲲龙”开展双机编队森林灭火驻防
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-据一位了解本次交易内情的人士透露，高通正洽谈收购 AI 芯片初创企业 Tenstorrent。该知情人士表示，两家公司商讨的交易对价区间至少在 80 亿至 100 亿美元，相较于 Tenstorrent 上一轮估值存在大幅溢价。 目前尚不确定该交易价格是否会像以往芯片初创企业收购案那样，包含与业绩目标挂钩的分期付款条款。双方谈判仍在推进中，交易金额存在调整可能，本次收购谈判也有
+发布时间：2026年04月10日 18:14 来源：中国新闻网 记者从中国航空工业集团获悉，为应对南方春季复杂地形下火灾高发风险，中国自主研制的AG600“鲲龙”大型水陆两栖飞机(以下简称AG600)1102、1103两架日前赴广东开展森林灭火靠前驻防，顺利完成阶段性任务，有力提升广东省航空应急救援能力。 为提升实战灭火能力，AG600“鲲龙”1102架机于4月1日转场梅州，与
 
 ## 正文
 
-据一位了解本次交易内情的人士透露，高通正洽谈收购 AI 芯片初创企业 Tenstorrent。
+发布时间：2026年04月10日 18:14 来源：中国新闻网 记者从中国航空工业集团获悉，为应对南方春季复杂地形下火灾高发风险，中国自主研制的AG600“鲲龙”大型水陆两栖飞机(以下简称AG600)1102、1103两架日前赴广东开展森林灭火靠前驻防，顺利完成阶段性任务，有力提升广东省航空应急救援能力。
 
-该知情人士表示，两家公司商讨的交易对价区间至少在 80 亿至 100 亿美元，相较于 Tenstorrent 上一轮估值存在大幅溢价。
+为提升实战灭火能力，AG600“鲲龙”1102架机于4月1日转场梅州，与1103架机正式开展双机编队驻防任务。
 
-目前尚不确定该交易价格是否会像以往芯片初创企业收购案那样，包含与业绩目标挂钩的分期付款条款。
+此举标志着AG600从单机作业模式向编队协同灭火能力迈出关键一步，拓展了航空灭火任务的响应范围与投水密度。
 
-双方谈判仍在推进中，交易金额存在调整可能，本次收购谈判也有可能最终破裂。
+驻防期间，双机协同配合，共完成飞行34架次，累计飞行76小时46分钟，实施投水训练52次，投水量达624吨。
 
-若顺利完成对 Tenstorrent 的收购，将助力高通扩充自身在人工智能与数据中心芯片领域的产品布局。
-
-高通的营收主要来源于智能手机与个人电脑芯片销售，该公司一直在寻求方式，提升自身在 AI 芯片赛道的竞争力。
-
-去年，高通斥资 24 亿美元收购英国半导体企业阿尔法波半导体，这家公司的核心技术可以大幅提升芯片间的数据传输速率。
-
-今年以来，高通股价累计上涨 29%，公司市值攀升至约 2000 亿美元。
+(记者 阮煜琳 制作 王佳琪 视频来源 中国航空工业集团） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-30 05:31 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 05:15 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 05:30 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 05:13 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 05:22 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 05:24 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 05:12 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 05:20 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 05:13 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 05:35 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 05:29 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 05:28 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 05:28 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 05:14 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 05:31 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 05:29 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 05:33 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 05:24 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 05:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 05:35 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 05:35 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 05:35 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 05:37 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 05:32 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 05:17 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 05:25 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 05:26 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/90136297374.shtml)
-- 2026-06-30 05:23 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/70283817012.shtml)
-- 2026-06-30 05:08 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/38852.shtml)
-- 2026-06-30 05:31 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/85916087.shtml)
-- 2026-06-30 05:20 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/813767892.shtml)
-- 2026-06-30 05:14 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/3065936803.shtml)
-- 2026-06-30 05:13 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/200666630.shtml)
-- 2026-06-30 05:17 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/54914.shtml)
-- 2026-06-30 05:19 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/3580041.shtml)
-- 2026-06-30 05:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/19081410766.shtml)
-- 2026-06-30 05:08 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/050339764863.shtml)
-- 2026-06-30 05:27 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/286852777691.shtml)
-- 2026-06-30 05:14 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/368073.shtml)
-- 2026-06-30 05:17 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/685946.shtml)
-- 2026-06-30 05:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/798233086972.shtml)
+- 2026-06-30 05:39 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/954009.shtml)
+- 2026-06-30 05:29 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/21071103.shtml)
+- 2026-06-30 05:30 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/83589380009.shtml)
+- 2026-06-30 05:37 - [日本淘汰](https://www.blog.minike.top/Article/details/506132251922.shtml)
+- 2026-06-30 05:39 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/6637263629.shtml)
+- 2026-06-30 05:15 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/82225305.shtml)
+- 2026-06-30 05:26 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/115169901694.shtml)
+- 2026-06-30 05:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/9968824.shtml)
+- 2026-06-30 05:18 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/06633109162.shtml)
+- 2026-06-30 05:21 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/6320457138.shtml)
+- 2026-06-30 05:25 - [流金岁月](https://www.share.minike.top/Article/details/4848434.shtml)
+- 2026-06-30 05:28 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/96279.shtml)
+- 2026-06-30 05:14 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/82133.shtml)
+- 2026-06-30 05:36 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/54882.shtml)
+- 2026-06-30 05:28 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/7202639743.shtml)

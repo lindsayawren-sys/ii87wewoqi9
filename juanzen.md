@@ -1,57 +1,58 @@
-# 德国总统施泰因迈尔访问印尼
+# 厄瓜多尔将哥伦比亚进口商品税率提高至100%
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新社雅加达6月15日电 (记者 李志全)德国总统施泰因迈尔15日抵达雅加达，对印度尼西亚进行访问。印尼方面表示，此访对印尼具有重要意义，体现了两国良好关系。 印尼总统普拉博沃当天在雅加达独立宫为施泰因迈尔举行欢迎仪式。随后，两国领导人举行双边会晤，并共同会见记者。印尼总统府表示，此访将进一步推动印尼与德国在多领域的合作。 普拉博沃在联合新闻声明中表示，双方讨论了加强经济、投资
+中新社北京4月10日电 综合消息：厄瓜多尔政府当地时间9日宣布，将针对哥伦比亚进口商品征收的税率从50%上调至100%，今年5月1日起生效。 综合路透社、半岛电视台等媒体消息，厄政府9日发表声明称，由于哥伦比亚未能实施“具体有效的边境安全措施”，厄瓜多尔被迫采取行动。 哥伦比亚方面目前未宣布对等措施，但哥伦比亚总统佩特罗及多名高级官员已发声表示反对。佩特罗在社交媒体上说，厄瓜多
 
 ## 正文
 
-中新社雅加达6月15日电 (记者 李志全)德国总统施泰因迈尔15日抵达雅加达，对印度尼西亚进行访问。
+中新社北京4月10日电 综合消息：厄瓜多尔政府当地时间9日宣布，将针对哥伦比亚进口商品征收的税率从50%上调至100%，今年5月1日起生效。
 
-印尼方面表示，此访对印尼具有重要意义，体现了两国良好关系。
+综合路透社、半岛电视台等媒体消息，厄政府9日发表声明称，由于哥伦比亚未能实施“具体有效的边境安全措施”，厄瓜多尔被迫采取行动。
 
-印尼总统普拉博沃当天在雅加达独立宫为施泰因迈尔举行欢迎仪式。
+哥伦比亚方面目前未宣布对等措施，但哥伦比亚总统佩特罗及多名高级官员已发声表示反对。
 
-随后，两国领导人举行双边会晤，并共同会见记者。
+佩特罗在社交媒体上说，厄瓜多尔此举“简直是骇人听闻”，表明安第斯共同体(安共体)对哥伦比亚已失去意义。
 
-印尼总统府表示，此访将进一步推动印尼与德国在多领域的合作。
+哥伦比亚矿业和能源部长埃德温·帕尔马称，厄瓜多尔再次提高税率的决定是“对历史上一直携手并进的兄弟民族的明显侵略”。
 
-普拉博沃在联合新闻声明中表示，双方讨论了加强经济、投资、能源转型、能源安全、教育及劳工等领域合作，并一致同意继续扩大互利共赢的贸易和投资规模。
+安共体是拉美地区重要的区域经济一体化组织，厄瓜多尔和哥伦比亚均为正式成员国。
 
-在具体合作方面，普拉博沃邀请德国扩大对印尼重点领域投资，包括能源转型、资源深加工、汽车及电动车产业和基础设施建设等，并欢迎德国企业参与印尼半导体产业发展以及关键矿产和稀土供应链合作。
+一段时间以来，厄瓜多尔与哥伦比亚的紧张局势不断升级。
 
-施泰因迈尔称，印尼是东盟地区重要的稳定力量。
+今年1月，厄瓜多尔政府宣布，鉴于厄哥两国边境安全局势严峻及跨境执法合作不力，自2月1日起，对哥伦比亚进口商品征收30%的“安全税”。
 
 ## 相关推荐
 
-- 2026-06-30 05:18 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 05:08 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 05:29 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 05:29 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 05:21 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-30 05:06 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 05:07 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-30 05:28 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 05:12 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 05:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 05:25 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 05:22 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 05:32 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 05:21 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 05:19 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 05:40 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 05:32 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 05:30 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 05:21 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 05:29 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 05:40 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 05:27 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 05:38 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:08 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/624071.shtml)
-- 2026-06-30 05:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/68515489.shtml)
-- 2026-06-30 05:25 - [斛珠夫人](https://www.blog.minike.top/Article/details/10226411965.shtml)
-- 2026-06-30 05:22 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/41474762898.shtml)
-- 2026-06-30 05:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/07431091641.shtml)
-- 2026-06-30 05:23 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/770561.shtml)
-- 2026-06-30 05:33 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/03245646570.shtml)
-- 2026-06-30 05:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/59059.shtml)
-- 2026-06-30 05:07 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/290256012.shtml)
-- 2026-06-30 05:28 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/757000.shtml)
-- 2026-06-30 05:20 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/85205644919.shtml)
-- 2026-06-30 05:26 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/158185999.shtml)
-- 2026-06-30 05:30 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/57585186919.shtml)
-- 2026-06-30 05:23 - [起风了](http://www.share.minike.top/Article/details/07746720.shtml)
-- 2026-06-30 05:20 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/501098209.shtml)
+- 2026-06-30 05:32 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/194208.shtml)
+- 2026-06-30 05:41 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/280602377.shtml)
+- 2026-06-30 05:13 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/49144935674.shtml)
+- 2026-06-30 05:36 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/172660230239.shtml)
+- 2026-06-30 05:34 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/73312083804.shtml)
+- 2026-06-30 05:12 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/7800097677.shtml)
+- 2026-06-30 05:36 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/96004393.shtml)
+- 2026-06-30 05:38 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/867545605818.shtml)
+- 2026-06-30 05:18 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/5828288.shtml)
+- 2026-06-30 05:26 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/910680.shtml)
+- 2026-06-30 05:20 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/991329152.shtml)
+- 2026-06-30 05:26 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/2360992.shtml)
+- 2026-06-30 05:40 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/66708501074.shtml)
+- 2026-06-30 05:15 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/761606809.shtml)
+- 2026-06-30 05:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/26564806341.shtml)

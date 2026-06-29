@@ -1,56 +1,58 @@
-# 澳大利亚央行维持利率4.35%不变，但警示不排除继续加息可能
+# 赛力斯康波：单打独斗的时代已经过去，唯有开放合作、跨界融合才能赢得未来
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-核心要点 澳大利亚储备银行于周二将基准利率维持在 4.35%，同时表态，为履行稳定物价、实现充分就业的政策目标，该行随时准备再度加息。 本次利率决议获得委员会全票通过，与路透社调研的经济学家预期一致。当前澳大利亚政府正全力抑制国内通胀上行压力。 央行在声明中表示，澳大利亚当前通胀水平 “依旧过高”，因此需要维持现金利率不变，以此观察此前多轮加息的滞后效应，以及本轮石油供应中断带
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。赛力斯集团副总裁康波出席并演讲。 康波指出，中国已经成为引领全球汽车产业绿色转型的核心力量。单打独斗的时代已经过去，面对技术迭代加速、供应链重构、全球化竞争加剧，唯有开放合作、跨界融合以及供应
 
 ## 正文
 
-核心要点 澳大利亚储备银行于周二将基准利率维持在 4.35%，同时表态，为履行稳定物价、实现充分就业的政策目标，该行随时准备再度加息。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-本次利率决议获得委员会全票通过，与路透社调研的经济学家预期一致。
+赛力斯集团副总裁康波出席并演讲。
 
-当前澳大利亚政府正全力抑制国内通胀上行压力。
+康波指出，中国已经成为引领全球汽车产业绿色转型的核心力量。
 
-央行在声明中表示，澳大利亚当前通胀水平 “依旧过高”，因此需要维持现金利率不变，以此观察此前多轮加息的滞后效应，以及本轮石油供应中断带来的冲击影响。
+单打独斗的时代已经过去，面对技术迭代加速、供应链重构、全球化竞争加剧，唯有开放合作、跨界融合以及供应链产业链协同才能赢得未来。
 
-利率决议公布后，澳大利亚标普 ASX200 股指小幅下行；澳元兑美元汇率贬值 0.3%，汇价跌至 0.705。
+他强调，真正的创新不是一蹴而就，而是长期的坚持和积累。
 
-尽管美伊已达成终止冲突的相关协议，但澳大利亚央行认为和平进程尚处于初期阶段，全球石油供给紧张的局面仍需要一段时间才能缓解，能源价格将持续高位运行，进而带动通胀居高不下。
+在全球化电动化转型中，突出的挑战是转型难度大、发展不平衡、供应链协同难。
 
-本月早些时候，澳大利亚公布一季度国内生产总值同比增长 2.5%，不及市场预期，增速与上一季度持平。
+如何构建一个高效、韧性、可持续性的全球供应链体系，赛力斯的选择是以开放合作构建共赢生态。
 
-环比来看，一季度 GDP 增幅为 0.3%，低于路透社调研预期的 0.5%，较上一季度 0.9% 的环比增速明显放缓。
+康波表示，当前，中国车企面临着前所未有的机遇，全球消费者对中国制造的认可度正在迅速提升，汽车出海全面提速。
 
 ## 相关推荐
 
-- 2026-06-30 05:30 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 05:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 05:09 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 05:18 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 05:21 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 05:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 05:15 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-30 05:24 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 05:21 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 05:14 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 05:41 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 05:33 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 05:31 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 05:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 05:19 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 05:30 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 05:38 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 05:32 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 05:24 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 05:23 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 05:35 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 05:30 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/595486467.shtml)
-- 2026-06-30 05:15 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/56487106579.shtml)
-- 2026-06-30 05:17 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/417800.shtml)
-- 2026-06-30 05:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/720204456674.shtml)
-- 2026-06-30 05:35 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/57483591.shtml)
-- 2026-06-30 05:35 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/083923940085.shtml)
-- 2026-06-30 05:22 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/90520.shtml)
-- 2026-06-30 05:33 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/55055102861.shtml)
-- 2026-06-30 05:23 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/628547.shtml)
-- 2026-06-30 05:17 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/259834476.shtml)
-- 2026-06-30 05:09 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/994376137.shtml)
-- 2026-06-30 05:35 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/556874.shtml)
-- 2026-06-30 05:14 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/96753942.shtml)
-- 2026-06-30 05:09 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/326117.shtml)
-- 2026-06-30 05:25 - [日本淘汰](http://www.share.minike.top/Article/details/7021289.shtml)
+- 2026-06-30 05:40 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/653831984.shtml)
+- 2026-06-30 05:15 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/6681803.shtml)
+- 2026-06-30 05:34 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/06356895.shtml)
+- 2026-06-30 05:34 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/64219.shtml)
+- 2026-06-30 05:41 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/09115868259.shtml)
+- 2026-06-30 05:21 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/522934608.shtml)
+- 2026-06-30 05:32 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/6798165.shtml)
+- 2026-06-30 05:13 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/342301.shtml)
+- 2026-06-30 05:15 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/59011209518.shtml)
+- 2026-06-30 05:41 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/879088189442.shtml)
+- 2026-06-30 05:16 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/461202449071.shtml)
+- 2026-06-30 05:31 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/8015514706.shtml)
+- 2026-06-30 05:34 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/25551.shtml)
+- 2026-06-30 05:41 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/9354769417.shtml)
+- 2026-06-30 05:20 - [巴西2比1日本](http://www.blog.minike.top/Article/details/224044.shtml)

@@ -1,59 +1,56 @@
-# 探秘百洞峡
+# 北京半程马拉松开跑 中国男子半马新纪录诞生
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 16:31 来源：中国新闻网 百洞峡旅游区位于黄石市阳新县洋港镇，因一条峡谷贯穿百洞而得名。这里有距今5亿年的寒武纪溶洞奇观、风景秀丽的生态峡谷、巍峨险峻的神兵崖壁、惊险刺激的体验项目、炊烟袅袅的古朴村落，是观赏洞峡景观的奇幻秘境，是考察溶洞成因的研学课堂，也是乐享峡谷休闲生活的世外桃源。百洞峡主洞“山海幻境”全长3600米，由6个大洞厅及众多
+中新社北京4月12日电 (记者 邢翀)2026北京国际长跑节-北京半程马拉松12日开跑，起点设置在天安门广场，终点为奥林匹克公园中心区景观大道。经过激烈角逐，中国选手王文杰以1小时01分15秒的成绩夺得男子组冠军，并打破该项目的全国纪录。 北京国际长跑节-北京半程马拉松是中国历史悠久的大众路跑赛事，今年共有2.2万名跑者参与赛事，赛道实现全程“无折返”，尤其在17.5公里后进一
 
 ## 正文
 
-发布时间：2026年06月15日 16:31 来源：中国新闻网 百洞峡旅游区位于黄石市阳新县洋港镇，因一条峡谷贯穿百洞而得名。
+中新社北京4月12日电 (记者 邢翀)2026北京国际长跑节-北京半程马拉松12日开跑，起点设置在天安门广场，终点为奥林匹克公园中心区景观大道。
 
-这里有距今5亿年的寒武纪溶洞奇观、风景秀丽的生态峡谷、巍峨险峻的神兵崖壁、惊险刺激的体验项目、炊烟袅袅的古朴村落，是观赏洞峡景观的奇幻秘境，是考察溶洞成因的研学课堂，也是乐享峡谷休闲生活的世外桃源。
+经过激烈角逐，中国选手王文杰以1小时01分15秒的成绩夺得男子组冠军，并打破该项目的全国纪录。
 
-百洞峡主洞“山海幻境”全长3600米，由6个大洞厅及众多小洞穴组成，常年恒温17℃，冬暖夏凉。
+北京国际长跑节-北京半程马拉松是中国历史悠久的大众路跑赛事，今年共有2.2万名跑者参与赛事，赛道实现全程“无折返”，尤其在17.5公里后进一步减少弯道，有助于选手冲击个人最好成绩。
 
-进入洞中，石笋、石柱、石幔等钟乳石景群气势恢宏、各具形态、令人震撼，堪称“地下艺术宫殿”。
+本次赛事海外选手报名人数较2025年有大幅增长。
 
-在华中地区最大的洞内玻璃观景平台上俯瞰，下方的步道灯宛若银河中闪耀的群星。
+男子组竞争尤为激烈，国内共有8名参赛选手的个人最好成绩在1小时04分之内。
 
-有的钟乳石通体透明，玲珑别致，如琼楼玉宇；还有的钟乳石造型各异，金光闪耀，参差交叠，如龙鳞覆盖。
+比赛中，王文杰保持稳定配速，15公里处已确立了明显领先优势，最终以1小时01分15秒的成绩打破中国男子半马纪录。
 
-洞内天桥、石林、悬崖、绝壁、峰丛幽谷，仿若走进了寒武纪时代，见证地质历史的演化变迁。
+李金豪以1小时03分06秒的成绩获得亚军，王琪以1小时04分37秒的成绩摘得季军。
 
-(周星亮） 责任编辑：【罗攀】
+王文杰还是中国男子万米纪录保持者。
 
 ## 相关推荐
 
-- 2026-06-30 05:21 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 05:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 05:20 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 05:28 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 05:10 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 05:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 05:30 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 05:34 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 05:23 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 05:30 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 05:12 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 05:30 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 05:25 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 05:28 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 05:40 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 05:29 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 05:29 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 05:28 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 05:13 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-30 05:23 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 05:34 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 05:17 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 05:13 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:32 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/39645129677.shtml)
-- 2026-06-30 05:06 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/5920199183.shtml)
-- 2026-06-30 05:22 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/164368288681.shtml)
-- 2026-06-30 05:14 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/048253149.shtml)
-- 2026-06-30 05:10 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/439167.shtml)
-- 2026-06-30 05:22 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/2741897.shtml)
-- 2026-06-30 05:07 - [巴西vs日本](http://www.share.minike.top/Article/details/3538791.shtml)
-- 2026-06-30 05:18 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/273182.shtml)
-- 2026-06-30 05:22 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/96921245.shtml)
-- 2026-06-30 05:22 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/30575.shtml)
-- 2026-06-30 05:27 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/1244453.shtml)
-- 2026-06-30 05:27 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/54699027.shtml)
-- 2026-06-30 05:09 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/849460.shtml)
-- 2026-06-30 05:30 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/36680596673.shtml)
-- 2026-06-30 05:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/06328438691.shtml)
+- 2026-06-30 05:12 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/00172368.shtml)
+- 2026-06-30 05:37 - [逃狱兄弟](https://www.blog.minike.top/Article/details/714412.shtml)
+- 2026-06-30 05:37 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/06265193.shtml)
+- 2026-06-30 05:25 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/481583436518.shtml)
+- 2026-06-30 05:34 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/96323.shtml)
+- 2026-06-30 05:34 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/61862974.shtml)
+- 2026-06-30 05:33 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/99623131576.shtml)
+- 2026-06-30 05:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/017518906.shtml)
+- 2026-06-30 05:34 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/75636.shtml)
+- 2026-06-30 05:36 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/211562018995.shtml)
+- 2026-06-30 05:17 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/85510.shtml)
+- 2026-06-30 05:38 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/908516661854.shtml)
+- 2026-06-30 05:22 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/73619536322.shtml)
+- 2026-06-30 05:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/835424658.shtml)
+- 2026-06-30 05:15 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/01389926.shtml)

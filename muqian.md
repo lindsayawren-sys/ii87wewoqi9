@@ -1,58 +1,48 @@
-# 全国党建工作座谈会在京召开
+# 伊朗警告称将对任何在霍尔木兹海峡的“错误行动”予以报复
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-原标题：全国党建工作座谈会在京召开 蔡奇出席并讲话 李希出席 新华社北京6月15日电 全国党建工作座谈会15日在京召开，中共中央政治局常委、中央书记处书记蔡奇出席会议并讲话，中共中央政治局常委、中央纪律检查委员会书记李希出席会议。 会议认为，党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一
+据伊朗半官方的塔斯尼姆通讯社报道，伊朗伊斯兰革命卫队海军表示，已取得对霍尔木兹海峡的“完全控制”。 声明称：“任何错误的行动都会把敌人困在海峡的致命漩涡里”。责任编辑：李肇孚
 
 ## 正文
 
-原标题：全国党建工作座谈会在京召开 蔡奇出席并讲话 李希出席 新华社北京6月15日电 全国党建工作座谈会15日在京召开，中共中央政治局常委、中央书记处书记蔡奇出席会议并讲话，中共中央政治局常委、中央纪律检查委员会书记李希出席会议。
+据伊朗半官方的塔斯尼姆通讯社报道，伊朗伊斯兰革命卫队海军表示，已取得对霍尔木兹海峡的“完全控制”。
 
-会议认为，党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一系列新理念新思想新战略，形成习近平党建思想。
+声明称：“任何错误的行动都会把敌人困在海峡的致命漩涡里”。
 
-习近平党建思想是习近平新时代中国特色社会主义思想的重要组成部分，为发展马克思主义建党学说作出重大原创性贡献，对强党强国具有重大现实意义和长远指导意义。
-
-会议指出，习近平党建思想是加强新时代党的建设的根本遵循。
-
-这一思想鲜明提出坚持党的领导是中国特色社会主义最本质的特征，坚持党中央集中统一领导，坚持全面从严治党，坚持不忘初心、牢记使命，坚持以党的政治建设为统领，坚持用党的创新理论凝心铸魂，坚持锤炼坚强党性，坚持健全上下贯通、执行有力的组织体系，坚持建设堪当民族复兴重任的高素质干部队伍，坚持推进作风建设常态化长效化，坚持用严明的纪律管全党治全党，坚持一体推进不敢腐不能腐不想腐，坚持制度治党、依规治党，坚持落实管党治党政治责任，内涵丰富、体系严密。
-
-这一思想源自于马克思主义科学理论，植根于中华优秀传统文化，孕育于新时代全面从严治党的伟大实践，具有坚实的实践基础和深厚的理论渊源。
-
-这一思想彰显了坚定的理想信念、高度的历史主动、鲜明的问题导向、强烈的使命担当、深厚的为民情怀、科学的思想方法，明体达用、体用贯通，具有鲜明的理论品格。
-
-这一思想贯通历史、现实和未来，将随着新时代党的建设实践发展而不断丰富和发展。
+责任编辑：李肇孚
 
 ## 相关推荐
 
-- 2026-06-30 05:11 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-30 05:22 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 05:15 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 05:17 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 05:21 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 05:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 05:06 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 05:15 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 05:31 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 05:20 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 05:28 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 05:26 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 05:25 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 05:28 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 05:32 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 05:12 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 05:24 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 05:19 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-30 05:12 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 05:41 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 05:38 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 05:12 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-30 05:33 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 05:32 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:33 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/08464862.shtml)
-- 2026-06-30 05:24 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/0051493.shtml)
-- 2026-06-30 05:28 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/8844888475.shtml)
-- 2026-06-30 05:11 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/004887680044.shtml)
-- 2026-06-30 05:29 - [日本进球](https://www.blog.kurohicncr.top/Article/details/1497845.shtml)
-- 2026-06-30 05:24 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/606435.shtml)
-- 2026-06-30 05:28 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/479530274.shtml)
-- 2026-06-30 05:33 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/14966340155.shtml)
-- 2026-06-30 05:08 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/054807.shtml)
-- 2026-06-30 05:11 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/79289.shtml)
-- 2026-06-30 05:20 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/182304834570.shtml)
-- 2026-06-30 05:10 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/87518571.shtml)
-- 2026-06-30 05:12 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/7248189482.shtml)
-- 2026-06-30 05:12 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/261174355.shtml)
-- 2026-06-30 05:12 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/970028568.shtml)
+- 2026-06-30 05:25 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/9571995479.shtml)
+- 2026-06-30 05:23 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/246713897.shtml)
+- 2026-06-30 05:34 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/3157712.shtml)
+- 2026-06-30 05:13 - [我们的少年时代2](http://www.blog.minike.top/Article/details/277540844379.shtml)
+- 2026-06-30 05:21 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/7939574752.shtml)
+- 2026-06-30 05:37 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/3138890723.shtml)
+- 2026-06-30 05:15 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/03296192594.shtml)
+- 2026-06-30 05:24 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/1940795.shtml)
+- 2026-06-30 05:30 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/932162324.shtml)
+- 2026-06-30 05:39 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/5189232.shtml)
+- 2026-06-30 05:16 - [急先锋](https://www.blog.minike.top/Article/details/572373490761.shtml)
+- 2026-06-30 05:21 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/48043407700.shtml)
+- 2026-06-30 05:40 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/50655497293.shtml)
+- 2026-06-30 05:18 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/447670622888.shtml)
+- 2026-06-30 05:37 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/304581571.shtml)

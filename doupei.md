@@ -1,54 +1,53 @@
-# 青海海西州6.3级地震发生后应急处置全力开展 社会大局平稳有序
+# 广西桂林—韩国清州国际航线首航
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新网西宁6月16日电 (李隽)6月16日17时6分，青海省海西蒙古族藏族自治州大柴旦发生6.3级地震。截至6月16日20时，地震造成1人遇难、4人受伤。据初步核查，本次地震周边50公里内，交通、通信、供电、供水、供气等基础设施运行正常。目前，已启动省级地震灾害II级应急响应，省、州、行委各类专业救援力量已赶赴灾区开展应急处置工作，当地社会大局平稳有序。 地震发生后，青海省委书
+中新社桂林4月12日电 (欧惠兰)4月12日凌晨1时25分，韩国德威航空执飞的TW9613国际航班抵达广西桂林两江国际机场，标志着韩国清州—桂林国际航线首航成功，桂林机场国际航线网络再添新成员。 该航班落地桂林机场后，桂林市文旅部门、桂林机场组织了首航仪式。据悉，此次新航线由德威航空采用波音B737-800机型执飞，航班号为TW9613/9614，计划每周飞行两班，周三、周六从
 
 ## 正文
 
-中新网西宁6月16日电 (李隽)6月16日17时6分，青海省海西蒙古族藏族自治州大柴旦发生6.3级地震。
+中新社桂林4月12日电 (欧惠兰)4月12日凌晨1时25分，韩国德威航空执飞的TW9613国际航班抵达广西桂林两江国际机场，标志着韩国清州—桂林国际航线首航成功，桂林机场国际航线网络再添新成员。
 
-截至6月16日20时，地震造成1人遇难、4人受伤。
+该航班落地桂林机场后，桂林市文旅部门、桂林机场组织了首航仪式。
 
-据初步核查，本次地震周边50公里内，交通、通信、供电、供水、供气等基础设施运行正常。
+据悉，此次新航线由德威航空采用波音B737-800机型执飞，航班号为TW9613/9614，计划每周飞行两班，周三、周六从清州飞往桂林，周四、周日从桂林返回清州。
 
-目前，已启动省级地震灾害II级应急响应，省、州、行委各类专业救援力量已赶赴灾区开展应急处置工作，当地社会大局平稳有序。
+桂林—清州航线是继首尔、釜山之后开通的第三条桂林直飞韩国的定期航线，桂林与韩国之间的空中联系进一步加密，为两地旅客提供了更加便捷的出行选择。
 
-地震发生后，青海省委书记、省人大常委会主任吴晓军，省委副书记、省长罗东川第一时间前往省应急指挥部，召开省抗震救灾指挥部第一次会议，视频调度部署抗震救灾工作。
-
-目前，救灾工作正在有序开展。
+目前，桂林机场出入境城市增加到7个，分别为中国香港、马来西亚吉隆坡、越南河内、越南胡志明市以及韩国首尔、釜山、清州。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-30 05:18 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 05:11 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 05:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 05:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 05:32 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 05:33 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 05:12 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 05:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 05:14 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 05:28 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 05:36 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 05:12 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 05:36 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 05:37 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 05:34 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 05:17 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 05:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 05:22 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 05:28 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 05:18 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 05:38 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:15 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/50218277.shtml)
-- 2026-06-30 05:21 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/3804884228.shtml)
-- 2026-06-30 05:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/44614.shtml)
-- 2026-06-30 05:15 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/6704948477.shtml)
-- 2026-06-30 05:13 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/50903265.shtml)
-- 2026-06-30 05:07 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/547543.shtml)
-- 2026-06-30 05:25 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/5120444885.shtml)
-- 2026-06-30 05:15 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/6197740.shtml)
-- 2026-06-30 05:35 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/8850986.shtml)
-- 2026-06-30 05:27 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/9171063.shtml)
-- 2026-06-30 05:22 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/55039954755.shtml)
-- 2026-06-30 05:22 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/476652.shtml)
-- 2026-06-30 05:27 - [请回答王牌2019](https://www.share.minike.top/Article/details/559617880344.shtml)
-- 2026-06-30 05:23 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/276509742905.shtml)
-- 2026-06-30 05:06 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/732829212.shtml)
+- 2026-06-30 05:30 - [金牌调解](http://www.share.minike.top/Article/details/37364423.shtml)
+- 2026-06-30 05:36 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/72626771359.shtml)
+- 2026-06-30 05:20 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/2113013596.shtml)
+- 2026-06-30 05:32 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/0363463842.shtml)
+- 2026-06-30 05:16 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/6225468290.shtml)
+- 2026-06-30 05:35 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/7072241727.shtml)
+- 2026-06-30 05:14 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/42051.shtml)
+- 2026-06-30 05:34 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/182013.shtml)
+- 2026-06-30 05:34 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/786383598.shtml)
+- 2026-06-30 05:21 - [日本16强魔咒](http://www.share.minike.top/Article/details/50639343903.shtml)
+- 2026-06-30 05:41 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/48248361145.shtml)
+- 2026-06-30 05:26 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/02386814913.shtml)
+- 2026-06-30 05:42 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/794154465891.shtml)
+- 2026-06-30 05:35 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/70954638.shtml)
+- 2026-06-30 05:27 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/26876223072.shtml)

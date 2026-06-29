@@ -1,58 +1,61 @@
-# 聚焦超高清数智新生态 第十二届全球电影产业链发展论坛在沪举办
+# 上海通报一起参保人串通药店虚假购药骗保案 涉案人员及机构被从严处罚
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新网上海6月15日电 (马鑫雯 薛婷艺 许婧)第十二届全球电影产业链发展论坛14日在上海交通大学举办。本次论坛由上海交通大学与美国电影协会联合主办，以“超清视界·数智共生——全球影视产业新生态”为主题，汇聚海内外近百位专家学者及业内人士，共探超高清、数智化浪潮下的全球影视产业创新发展新路径。 上海交大-南加州大学文化创意产业学院党委书记、院长韩挺在论坛上表示，学院将立足前沿学
+中新网上海4月11日电(记者 许婧)医保基金是群众的“看病钱”“救命钱”，基金安全直接关乎广大参保人员切身利益。上海市医保局11日发布一起参保人串通药店虚假购药骗保被行政处罚的典型案例，涉案人员及定点药店均被依法从严行政处罚，彰显医保部门对欺诈骗保行为“零容忍”的坚定态度。经查，此次涉事的上海某大药房宜山路店，为上海市医保定点零售连锁药店；涉案人员高某为上海市职工医保参保人员，
 
 ## 正文
 
-中新网上海6月15日电 (马鑫雯 薛婷艺 许婧)第十二届全球电影产业链发展论坛14日在上海交通大学举办。
+中新网上海4月11日电(记者 许婧)医保基金是群众的“看病钱”“救命钱”，基金安全直接关乎广大参保人员切身利益。
 
-本次论坛由上海交通大学与美国电影协会联合主办，以“超清视界·数智共生——全球影视产业新生态”为主题，汇聚海内外近百位专家学者及业内人士，共探超高清、数智化浪潮下的全球影视产业创新发展新路径。
+上海市医保局11日发布一起参保人串通药店虚假购药骗保被行政处罚的典型案例，涉案人员及定点药店均被依法从严行政处罚，彰显医保部门对欺诈骗保行为“零容忍”的坚定态度。
 
-上海交大-南加州大学文化创意产业学院党委书记、院长韩挺在论坛上表示，学院将立足前沿学术视野，聚焦影视产业跨领域融合，以跨学科创新技术赋能业态升级，促进产学融合、产教融合，助力中国电影产业高质量发展。
+经查，此次涉事的上海某大药房宜山路店，为上海市医保定点零售连锁药店；涉案人员高某为上海市职工医保参保人员，沈某为该药店在职医保药师。
 
-美国电影协会亚太区总裁乌尔米拉·维努戈帕兰(Urmila Venugopalan)认为，人工智能与超高清技术的快速发展，重塑全球电影产业链，带来全新机遇与挑战。
+2025年底，徐汇区医保局接到群众举报线索，反映该定点药店存在违规套现骗取医保基金的违法行为。
 
-她期待海内外电影行业深化创新协作、产业投资与资源共享，携手挖掘全球影视产业发展新潜力。
+医保部门通过调取药店涉案时段医保结算数据、药品追溯码数据、视频监控、询问药师和参保人员等方式，查实2025年7月至8月期间，参保人高某与上海某大药房宜山路店药师沈某勾结，沈某通过将其他顾客自费购买的药品不出库，调入医保柜台进行平账，随后空刷高某提供的4张家人医保卡，从而达到套取医保个人账户资金的目的。
 
-中国电影制片人协会理事长、国际电影制片人协会副主席焦宏奋表示，协会将持续搭建行业交流平台，推动影视产业协同创新，助力行业内容精品化、运营多元化、合作国际化发展。
+违法金额共计7653.09元。
 
-国家广电总局广播电视规划院制播研究所所长、世界超高清视频产业联盟副秘书长宁金辉提出，业界应加强海内外合作，补齐产业发展短板，打通超高清内容生产、分发、用户体验全链条，推动技术与影视产业深度融合，实现产业共生、价值共赢。
+该行为违反《医疗保障基金使用监督管理条例》第二十条相关规定，属于典型的欺诈骗保违法行为。
 
-近年来，我国大力布局超高清产业，将2025年定为“超高清发展年”，推动全产业链协同升级与技术规模化落地。
+2026年3月，属地医保部门根据《医疗保障基金使用监督管理条例》第四十条、第四十一条及《上海市定点医药机构相关人员医保支付资格管理实施细则(试行)》第十三条、第十四条的有关规定，作出以下行政处理处罚：责令改正；责令参保人高某退回医保基金7653.09元，并处3.5倍罚款26785.82元，暂停其医疗费用联网结算12个月；对药师沈某记11分信用处理，暂停其医保支付资格6个月；对该药店处以3.5倍罚款26785.82元，中止医保协议6个月；约谈涉事药店总公司负责人，全面排查其他连锁门店的医保基金使用情况，及时整改存在的问题。
 
 ## 相关推荐
 
-- 2026-06-30 05:23 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 05:21 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 05:32 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 05:35 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 05:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 05:12 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 05:25 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 05:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 05:15 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 05:12 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 05:23 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 05:15 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 05:30 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 05:25 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 05:26 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 05:13 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 05:33 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 05:32 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 05:33 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 05:32 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 05:22 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 05:12 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 05:26 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 05:12 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 05:38 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 05:36 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-30 05:39 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:30 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/10505.shtml)
-- 2026-06-30 05:18 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/1666310.shtml)
-- 2026-06-30 05:08 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/850914640.shtml)
-- 2026-06-30 05:24 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/872325857056.shtml)
-- 2026-06-30 05:11 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/291256791321.shtml)
-- 2026-06-30 05:14 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/609453813.shtml)
-- 2026-06-30 05:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/84121.shtml)
-- 2026-06-30 05:30 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/42925878.shtml)
-- 2026-06-30 05:13 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/9793130.shtml)
-- 2026-06-30 05:16 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/411151638602.shtml)
-- 2026-06-30 05:08 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/400495737.shtml)
-- 2026-06-30 05:12 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/0642133855.shtml)
-- 2026-06-30 05:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/8495467589.shtml)
-- 2026-06-30 05:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/1039723236.shtml)
-- 2026-06-30 05:26 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/13711.shtml)
+- 2026-06-30 05:16 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/19799.shtml)
+- 2026-06-30 05:39 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/4107733.shtml)
+- 2026-06-30 05:33 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/670762526.shtml)
+- 2026-06-30 05:12 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/01075722.shtml)
+- 2026-06-30 05:18 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/525721018544.shtml)
+- 2026-06-30 05:26 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/673078420042.shtml)
+- 2026-06-30 05:15 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/26722622.shtml)
+- 2026-06-30 05:33 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/954540843.shtml)
+- 2026-06-30 05:35 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/800621034.shtml)
+- 2026-06-30 05:15 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/83074695.shtml)
+- 2026-06-30 05:26 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/471200805.shtml)
+- 2026-06-30 05:32 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/893743924.shtml)
+- 2026-06-30 05:27 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/86322827310.shtml)
+- 2026-06-30 05:31 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/802911552.shtml)
+- 2026-06-30 05:27 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/82154748.shtml)

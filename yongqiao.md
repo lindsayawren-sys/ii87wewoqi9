@@ -1,54 +1,61 @@
-# 威胜控股盘中涨超6% 公司拟启动不超2亿港元公开市场回购股份计划
+# WTT太原站收官 中国乒乓选手获四冠
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-威胜控股（03393）盘中涨超6%，截至发稿，股价上涨4.88%，现报23.22港元，成交额4815.58万港元。 威胜控股发布公告，决定启动从公开市场上回购股份的计划，公司将视乎市场情况于合适时间以不超过2亿港元总代价进行股份回购。董事会评估认为公司目前财务状况稳健，拥有足够资源进行上述回购计划，不会影响正常营运。 值得注意的是，威胜控股上月公布，附属惟远能源2026年至今新
+中新社太原4月12日电 (记者 胡健)2026年世界乒乓球职业大联盟(WTT)常规挑战赛太原站12日收官，中国乒乓球新生代选手共斩获四项冠军。 女双决赛中，中国组合石洵瑶/韩菲儿以3比1战胜中国香港组合杜凯琹/吴咏琳。男双决赛上，两对中国组合温瑞博/李和宸与林诗栋/黄友政鏖战五局，最终温瑞博/李和宸以3比2险胜。 女单决赛在两名日本选手之间展开，大藤沙月以4比1击败队友佐藤瞳登
 
 ## 正文
 
-威胜控股（03393）盘中涨超6%，截至发稿，股价上涨4.88%，现报23.22港元，成交额4815.58万港元。
+中新社太原4月12日电 (记者 胡健)2026年世界乒乓球职业大联盟(WTT)常规挑战赛太原站12日收官，中国乒乓球新生代选手共斩获四项冠军。
 
-威胜控股发布公告，决定启动从公开市场上回购股份的计划，公司将视乎市场情况于合适时间以不超过2亿港元总代价进行股份回购。
+女双决赛中，中国组合石洵瑶/韩菲儿以3比1战胜中国香港组合杜凯琹/吴咏琳。
 
-董事会评估认为公司目前财务状况稳健，拥有足够资源进行上述回购计划，不会影响正常营运。
+男双决赛上，两对中国组合温瑞博/李和宸与林诗栋/黄友政鏖战五局，最终温瑞博/李和宸以3比2险胜。
 
-值得注意的是，威胜控股上月公布，附属惟远能源2026年至今新增海外业务合约总金额超16亿元，主要涵盖数据中心关键基础设施及相关解决方案，以及重合器等海外配电产品。
+女单决赛在两名日本选手之间展开，大藤沙月以4比1击败队友佐藤瞳登顶。
 
-董事会认为，上述订单的取得进一步巩固了公司在数据中心基础设施领域的领先地位，将有助于提升未来收入基础，并对2026年度的经营业绩产生积极影响。
+在此前一天的混双决赛中，中国组合黄友政/石洵瑶以3比1战胜中国香港组合黄镇廷/杜凯琹。
 
-责任编辑：卢昱君
+男单决赛在国乒小将温瑞博与日本老将吉村真晴之间展开。
+
+19岁的温瑞博在晋级之路上连克强手，半决赛经历五局战胜队友李天阳，闯入决赛。
+
+决赛中，温瑞博面对经验丰富的吉村真晴，凭借出色的相持能力和关键分处理，最终以4比2战胜对手，加冕本站赛事“双冠王”。
 
 ## 相关推荐
 
-- 2026-06-30 05:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 05:12 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 05:28 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 05:35 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 05:32 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 05:25 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 05:11 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 05:31 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 05:09 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 05:10 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 05:10 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 05:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 05:31 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 05:34 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 05:15 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 05:18 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 05:33 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 05:15 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 05:21 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 05:21 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 05:34 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 05:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 05:33 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 05:25 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 05:20 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 05:38 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 05:26 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:19 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/28471.shtml)
-- 2026-06-30 05:06 - [斗破苍穹](https://www.blog.minike.top/Article/details/32763.shtml)
-- 2026-06-30 05:11 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/805204737.shtml)
-- 2026-06-30 05:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/27768.shtml)
-- 2026-06-30 05:17 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/594488.shtml)
-- 2026-06-30 05:12 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/323917.shtml)
-- 2026-06-30 05:34 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/85507946339.shtml)
-- 2026-06-30 05:26 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/8068628.shtml)
-- 2026-06-30 05:14 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/0818899.shtml)
-- 2026-06-30 05:09 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/407428333777.shtml)
-- 2026-06-30 05:16 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/98791.shtml)
-- 2026-06-30 05:27 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/75856.shtml)
-- 2026-06-30 05:29 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/102763644140.shtml)
-- 2026-06-30 05:26 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/30055.shtml)
-- 2026-06-30 05:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/79561.shtml)
+- 2026-06-30 05:29 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/29858473920.shtml)
+- 2026-06-30 05:30 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/791220681.shtml)
+- 2026-06-30 05:22 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/230291527.shtml)
+- 2026-06-30 05:34 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/9264773493.shtml)
+- 2026-06-30 05:29 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/76942238.shtml)
+- 2026-06-30 05:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/7604497626.shtml)
+- 2026-06-30 05:31 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/6872160.shtml)
+- 2026-06-30 05:21 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/262587220.shtml)
+- 2026-06-30 05:34 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/1682735.shtml)
+- 2026-06-30 05:14 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/011487390506.shtml)
+- 2026-06-30 05:29 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/404984.shtml)
+- 2026-06-30 05:36 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/375278066624.shtml)
+- 2026-06-30 05:22 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/65129472.shtml)
+- 2026-06-30 05:39 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/951208110.shtml)
+- 2026-06-30 05:28 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/039779307898.shtml)

@@ -1,57 +1,59 @@
-# 下半年港股怎么走？多家机构“划重点”
+# 宏观迷雾下有色现“冰火两重天”——铜铝锡争锋，锌价卡位，镍铅承压
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！21世纪经济报道记者 曹媛 近期，光大证券国际、中金公司、中信证券、国泰海通证券等多家机构发布2026年港股下半年投资策略报告。 受国内经济结构性分化、内外流动性双重收紧等因素影响，2026年上半年的港股明显落后于A股和全球股市。Wind数据显示，截至6月16日收盘，恒生指数、恒生中国企业指数、恒生科技指数
+长江有色金属网 期货早盘休市行情： ——4月10日长江现货价格动态： 1#铜价报98450元/吨，涨730元；升水为200元/吨，涨20元；A00铝锭报24540元/吨，涨140元；贴水报60元；0#锌报23690元/吨，跌40元；1#锌报23590元/吨，跌40元；1#铅锭报16775元/吨，跌25元；1#镍报135400元/吨，跌50元；1#锡报376000元/吨，涨600
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+长江有色金属网 期货早盘休市行情： ——4月10日长江现货价格动态： 1#铜价报98450元/吨，涨730元；升水为200元/吨，涨20元；A00铝锭报24540元/吨，涨140元；贴水报60元；0#锌报23690元/吨，跌40元；1#锌报23590元/吨，跌40元；1#铅锭报16775元/吨，跌25元；1#镍报135400元/吨，跌50元；1#锡报376000元/吨，涨6000元； 一、宏观定调：在“降息预期”与“地缘博弈”的夹缝中突围 隔夜全球市场上演了一出“惊魂后的修复”。
 
-21世纪经济报道记者 曹媛 近期，光大证券国际、中金公司、中信证券、国泰海通证券等多家机构发布2026年港股下半年投资策略报告。
+美国3月服务业PMI意外降温至54.0，虽显示扩张动能趋弱，但核心PCE物价指数的粘性（同比3.0%）像一根隐形的线，牵制着美联储的神经。
 
-受国内经济结构性分化、内外流动性双重收紧等因素影响，2026年上半年的港股明显落后于A股和全球股市。
+这意味着，高利率环境或将维持更久，但市场的紧缩恐慌已暂时缓解。
 
-Wind数据显示，截至6月16日收盘，恒生指数、恒生中国企业指数、恒生科技指数今年以来分别累计下跌4.43%、7.56%、15.54%。
+与此同时，中东局势成为了最大的“不确定性因素”。
 
-但港股市场整体呈现“指数走弱、个股分化”特征：AI科技新股、头部大模型标的涨幅亮眼，但传统权重股持续调整；一级市场IPO热度高涨，港交所18C规则吸引大批AI科创企业赴港上市。
+特朗普关于美伊谈判的乐观表态一度提振了风险偏好，美元连续下挫，但以色列对黎巴嫩的空袭又瞬间点燃了避险情绪。
 
-进入下半年，多家机构判断：港股基本面利空已充分消化，估值回归合理区间，叠加海外流动性边际宽松、外资逐步回流，市场整体将以震荡运行为主，全面行情难现，但结构性机会十分清晰。
+霍尔木兹海峡的阴云未散，资金在“贪婪”与“恐惧”之间反复横跳。
 
-上半年港股复盘：内外双重承压，市场分化加剧 综合多家机构观点，上半年港股整体走势偏弱，受基本面、流动性等多重因素影响： 一是国内经济“K型分化”影响指数表现。
+对于有色金属而言，这既是美元走弱的利好，也是需求端不确定性的隐忧。
 
-2026年一季度国内经济数据亮眼、增长态势稳健，但内部分化特征愈发凸显，整体呈现外需与科技强势、内需与消费疲软的格局。
+二、品种深度复盘与逻辑推演 1． 铜：供需错配的“硬通货”，易涨难跌 铜是目前基本面最坚实的品种。
 
 ## 相关推荐
 
-- 2026-06-30 05:21 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 05:14 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 05:33 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 05:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 05:30 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 05:23 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 05:29 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 05:36 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 05:27 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-30 05:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 05:07 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 05:33 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 05:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 05:14 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 05:17 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 05:30 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 05:15 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 05:29 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 05:12 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 05:25 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 05:23 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 05:17 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 05:19 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 05:13 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:11 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/747082.shtml)
-- 2026-06-30 05:17 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/8197639.shtml)
-- 2026-06-30 05:23 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/9088735134.shtml)
-- 2026-06-30 05:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/601646915.shtml)
-- 2026-06-30 05:19 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/965624262.shtml)
-- 2026-06-30 05:21 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/813190329433.shtml)
-- 2026-06-30 05:14 - [张凌赫 客串](http://www.share.minike.top/Article/details/510129769574.shtml)
-- 2026-06-30 05:28 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/0065143.shtml)
-- 2026-06-30 05:06 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/8971666712.shtml)
-- 2026-06-30 05:10 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/394948.shtml)
-- 2026-06-30 05:17 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/73815167659.shtml)
-- 2026-06-30 05:32 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/52688424690.shtml)
-- 2026-06-30 05:35 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/16744993201.shtml)
-- 2026-06-30 05:16 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/405219.shtml)
-- 2026-06-30 05:27 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/6660737.shtml)
+- 2026-06-30 05:23 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/85464080026.shtml)
+- 2026-06-30 05:12 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/2471969.shtml)
+- 2026-06-30 05:20 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/907757474846.shtml)
+- 2026-06-30 05:24 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/3248634.shtml)
+- 2026-06-30 05:38 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/7316845691.shtml)
+- 2026-06-30 05:29 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/40246341.shtml)
+- 2026-06-30 05:41 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/1091105.shtml)
+- 2026-06-30 05:20 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/37487873.shtml)
+- 2026-06-30 05:29 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/8523626.shtml)
+- 2026-06-30 05:38 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/30553.shtml)
+- 2026-06-30 05:36 - [急先锋](http://www.share.kurohicncr.top/Article/details/35410758.shtml)
+- 2026-06-30 05:13 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/12051995.shtml)
+- 2026-06-30 05:37 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/625525.shtml)
+- 2026-06-30 05:14 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/36743625.shtml)
+- 2026-06-30 05:16 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/623403691782.shtml)

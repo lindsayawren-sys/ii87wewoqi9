@@ -1,56 +1,46 @@
-# 别无选择的以色列：接受一个“不完美”的协议，还是与美国彻底撕破脸？
+# 新华社快讯：特朗普称美方“开始清理霍尔木兹海峡”
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-来源：汇通财经APP 汇通财经APP讯——美国总统特朗普达成协议以逐步结束与伊朗的冲突，此举在以色列国内引发警报。以色列高层官员正竭力应对两大难题：一是放松对德黑兰方面压力的后果，二是在与黎巴嫩真主党的冲突问题上，美以关系面临破裂的风险。 由于外界不确定特朗普在协议中究竟同意了哪些条款，紧张气氛进一步加剧。 一位知情人士称，以色列总理内塔尼亚胡正紧急寻求与特朗普会晤，以厘清各项
+专题：美伊谈判最新进展 新华社快讯：美国总统特朗普11日称美方“开始清理霍尔木兹海峡”。责任编辑：赵思远
 
 ## 正文
 
-来源：汇通财经APP 汇通财经APP讯——美国总统特朗普达成协议以逐步结束与伊朗的冲突，此举在以色列国内引发警报。
+专题：美伊谈判最新进展 新华社快讯：美国总统特朗普11日称美方“开始清理霍尔木兹海峡”。
 
-以色列高层官员正竭力应对两大难题：一是放松对德黑兰方面压力的后果，二是在与黎巴嫩真主党的冲突问题上，美以关系面临破裂的风险。
-
-由于外界不确定特朗普在协议中究竟同意了哪些条款，紧张气氛进一步加剧。
-
-一位知情人士称，以色列总理内塔尼亚胡正紧急寻求与特朗普会晤，以厘清各项棘手问题。
-
-空袭险些让协议脱轨，美以公开分歧加深 周末期间，为回应真主党对以色列的袭击，以色列对贝鲁特发动空袭，此举几乎令上述协议脱轨，并引发白宫和调解方在最后关头紧急斡旋，以确保协议得以推进。
-
-特朗普在接受媒体采访时批评了此次空袭，并在社交媒体上表示，以色列必须停止在黎巴嫩全境的攻击。
-
-这一表态与6月早些时候由美国斡旋达成的一项停火协议相左，该协议的条款是，只有在真主党也停止行动的情况下，以色列才需要结束战斗。
-
-据伊朗官方媒体报道，伊朗外长阿拉格齐表示，美国有责任结束以色列在黎巴嫩的攻击和侵略行径。
+责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 05:27 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 05:10 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 05:06 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 05:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 05:11 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 05:27 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 05:25 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 05:18 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 05:35 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 05:41 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 05:14 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 05:35 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 05:16 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 05:32 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 05:22 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 05:37 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 05:18 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 05:21 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 05:34 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 05:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 05:13 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:12 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/4448769118.shtml)
-- 2026-06-30 05:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/0557135977.shtml)
-- 2026-06-30 05:10 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/03198.shtml)
-- 2026-06-30 05:34 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/487612631.shtml)
-- 2026-06-30 05:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/8732027166.shtml)
-- 2026-06-30 05:30 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/66915.shtml)
-- 2026-06-30 05:28 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/4498459397.shtml)
-- 2026-06-30 05:20 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/317586814835.shtml)
-- 2026-06-30 05:31 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/8553125629.shtml)
-- 2026-06-30 05:22 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/53898139.shtml)
-- 2026-06-30 05:07 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/082719.shtml)
-- 2026-06-30 05:20 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/418978591.shtml)
-- 2026-06-30 05:15 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/7808214.shtml)
-- 2026-06-30 05:08 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/6616004621.shtml)
-- 2026-06-30 05:31 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/7708827762.shtml)
+- 2026-06-30 05:30 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/77304530.shtml)
+- 2026-06-30 05:16 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/845744.shtml)
+- 2026-06-30 05:25 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/7001968573.shtml)
+- 2026-06-30 05:39 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/642386781992.shtml)
+- 2026-06-30 05:41 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/064678843.shtml)
+- 2026-06-30 05:41 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/3812316061.shtml)
+- 2026-06-30 05:30 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/402494032.shtml)
+- 2026-06-30 05:14 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/8414135290.shtml)
+- 2026-06-30 05:13 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/14397858.shtml)
+- 2026-06-30 05:14 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/76097600.shtml)
+- 2026-06-30 05:22 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/0014656313.shtml)
+- 2026-06-30 05:12 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/214730606086.shtml)
+- 2026-06-30 05:21 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/0888328255.shtml)
+- 2026-06-30 05:15 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/4315173289.shtml)
+- 2026-06-30 05:24 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/02425860.shtml)

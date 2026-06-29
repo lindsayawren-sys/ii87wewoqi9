@@ -1,61 +1,58 @@
-# “同心·心理茶馆”释放“新”的建设力
+# 外籍记者探访“中国白茶之乡”福鼎：在这里，我看到传统与现代的完美融合
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-一支以教师群体作为专业引领、充满活力且持续成长的心理工作队伍，在毕节赫章悄然崛起。 跨越山海，同心筑梦。“同心·心理茶馆”项目的每一次推进，是中央统战部积极推动和广东省、贵州省统战部门同心聚力、守望相助的生动实践，更是新的社会阶层人士服务基层、助力乡村振兴责任担当的真实写照。 2025年以来，在中央统战部推动下，粤黔统战部门精准对接“毕节所需”与“新阶所长”，由广州市新联会粤港
+中新网宁德4月12日电 (记者 吕巧琴 叶茂)“在这里，我看到传统与现代的完美融合，这就是‘福鼎白茶’走向世界的底气。”中阿卫视主持人阿思玛(Asmaa)12日在福建省宁德福鼎市如是说。 由中新社海外中心和中阿卫视联合打造的《文化中国》系列纪录片，以外籍驻华记者视角，向阿拉伯世界讲述中华优秀传统文化与现代中国发展的故事。当天，该系列2026年开篇之作《文化中国·宁德》摄制组走进
 
 ## 正文
 
-一支以教师群体作为专业引领、充满活力且持续成长的心理工作队伍，在毕节赫章悄然崛起。
+中新网宁德4月12日电 (记者 吕巧琴 叶茂)“在这里，我看到传统与现代的完美融合，这就是‘福鼎白茶’走向世界的底气。
 
-跨越山海，同心筑梦。
+”中阿卫视主持人阿思玛(Asmaa)12日在福建省宁德福鼎市如是说。
 
-“同心·心理茶馆”项目的每一次推进，是中央统战部积极推动和广东省、贵州省统战部门同心聚力、守望相助的生动实践，更是新的社会阶层人士服务基层、助力乡村振兴责任担当的真实写照。
+由中新社海外中心和中阿卫视联合打造的《文化中国》系列纪录片，以外籍驻华记者视角，向阿拉伯世界讲述中华优秀传统文化与现代中国发展的故事。
 
-2025年以来，在中央统战部推动下，粤黔统战部门精准对接“毕节所需”与“新阶所长”，由广州市新联会粤港澳大湾区社会心理服务团发起“同心·心理茶馆”统一战线“地域+领域”心理健康服务项目，为毕节市县域心理健康事业注入了“新”的动力。
+当天，该系列2026年开篇之作《文化中国·宁德》摄制组走进“中国白茶之乡”福鼎市，开启探寻福鼎白茶制作技艺与现代科技深度融合的奇妙之旅。
 
-粤黔携手凝聚“新”合力 2025年11月，广州市委统战部、广州市新联会一行走进贵州省毕节市赫章县金银山街道金银山书院，与中央统战部在赫章挂职干部和街道干部进行座谈交流，研究深入推进“新阶所长”赋能“毕节所需”的着力点，凝聚新的社会阶层人士合力助力毕节高质量发展。
+节目将于5月播出。
 
-赫章县委统战部副部长陶广全表示，在了解到县域心理健康服务体系薄弱、专业人才匮乏的痛点后，广州市新联会专门成立粤港澳大湾区社会心理服务团，量身策划打造“同心·心理茶馆”帮扶项目。
+作为中国六大传统茶类之一，白茶始于唐宋，盛于明清，因成茶芽头肥壮、满披白毫、如银似雪而得名。
 
-为推进毕节市县域心理健康领军人才培养，贵州省委统战部、贵州省中华职教社划拨经费支持开展“同心·心理茶馆”心理工作者实务技能培训班。
+福鼎白茶已有1400多年历史，福鼎市素有“世界白茶在中国，中国白茶在福鼎”之美誉，是中国白茶发源地、中国白茶核心产区和出口基地。
 
-截至目前，培训班已举办两期，为赫章县各中小学、部分医院、县直部门和乡镇(街道)及村(社区)的心理工作或未成年保护工作者提供了6天的专业培训，累计培训学员约140人次。
+在位于磻溪镇的大沁白茶·十三坪知青茶园内，阿思玛在茶农的指导下，以拇指和食指捏住嫩芽根部，轻轻一提，一片带着白毫的鲜叶落入掌心。
 
 ## 相关推荐
 
-- 2026-06-30 05:07 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 05:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 05:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 05:08 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 05:27 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 05:23 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-30 05:34 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 05:24 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 05:16 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 05:06 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 05:12 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 05:25 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 05:13 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 05:23 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 05:35 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 05:32 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 05:35 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 05:21 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 05:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 05:36 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 05:16 - [日本反击率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 05:39 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 05:35 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 05:35 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 05:33 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 05:40 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 05:22 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/60250673988.shtml)
-- 2026-06-30 05:09 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/17654.shtml)
-- 2026-06-30 05:23 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/7852140843.shtml)
-- 2026-06-30 05:06 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/013517032.shtml)
-- 2026-06-30 05:09 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/30577948.shtml)
-- 2026-06-30 05:07 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/378754446.shtml)
-- 2026-06-30 05:18 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/91808155229.shtml)
-- 2026-06-30 05:08 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/29059794.shtml)
-- 2026-06-30 05:23 - [我们的少年时代2](https://www.share.minike.top/Article/details/259545.shtml)
-- 2026-06-30 05:23 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/9790321.shtml)
-- 2026-06-30 05:33 - [小娘惹](http://www.share.kurohicncr.top/Article/details/16665.shtml)
-- 2026-06-30 05:13 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/59851282.shtml)
-- 2026-06-30 05:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/344284140.shtml)
-- 2026-06-30 05:20 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/73682.shtml)
-- 2026-06-30 05:22 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/20462.shtml)
+- 2026-06-30 05:38 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/852970.shtml)
+- 2026-06-30 05:40 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/249174627187.shtml)
+- 2026-06-30 05:12 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/24778077159.shtml)
+- 2026-06-30 05:28 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/9755797471.shtml)
+- 2026-06-30 05:40 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/2445660.shtml)
+- 2026-06-30 05:12 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/2203887.shtml)
+- 2026-06-30 05:41 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/5463176752.shtml)
+- 2026-06-30 05:25 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/61059229.shtml)
+- 2026-06-30 05:30 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/9906112364.shtml)
+- 2026-06-30 05:41 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/007301350.shtml)
+- 2026-06-30 05:34 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/74062527608.shtml)
+- 2026-06-30 05:14 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/820995.shtml)
+- 2026-06-30 05:19 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/605893193898.shtml)
+- 2026-06-30 05:31 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/3350984.shtml)
+- 2026-06-30 05:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/75145.shtml)

@@ -1,61 +1,59 @@
-# 诺和诺德遭黑客组织窃取大量数据并勒索2500万美元
+# 48小时，200颗大脑，一场跨越国界的“脑力马拉松”
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-一个网络勒索组织周二声称，他们从制药巨头诺和诺德公司窃取了超过 1TB 的数据，在向该公司索要2500万美元赎金未果后，正在考虑出售部分数据。 这个名为FulcrumSec的网络勒索组织于2025年10月成立。该组织在其网站上发布长文称，他们潜入诺和诺德的网络长达两个多月，窃取了相关数据。FulcrumSec称，被窃取的数据包括公司源代码、已上市和未上市药物的专有信息、试验数据
+中新网上海4月10日电 题：48小时，200颗大脑，一场跨越国界的“脑力马拉松” 作者 李姝徵 狄权 没有熬夜后的萎靡，没有趴在桌上补觉的人，甚至看不到一杯冷掉的咖啡。4月10日，在上海张江科学会堂，200名刚刚经历48小时极限开发的科创者，此刻正精神抖擞地站在各自的展位前。 “来这边看一下！我们做了一个更懂你且不会失忆的学习搭子。”“你拍张照片，我们能模拟你剪完头发的样子。”
 
 ## 正文
 
-一个网络勒索组织周二声称，他们从制药巨头诺和诺德公司窃取了超过 1TB 的数据，在向该公司索要2500万美元赎金未果后，正在考虑出售部分数据。
+中新网上海4月10日电 题：48小时，200颗大脑，一场跨越国界的“脑力马拉松” 作者 李姝徵 狄权 没有熬夜后的萎靡，没有趴在桌上补觉的人，甚至看不到一杯冷掉的咖啡。
 
-这个名为FulcrumSec的网络勒索组织于2025年10月成立。
+4月10日，在上海张江科学会堂，200名刚刚经历48小时极限开发的科创者，此刻正精神抖擞地站在各自的展位前。
 
-该组织在其网站上发布长文称，他们潜入诺和诺德的网络长达两个多月，窃取了相关数据。
+“来这边看一下！
 
-FulcrumSec称，被窃取的数据包括公司源代码、已上市和未上市药物的专有信息、试验数据、员工、医生和患者数据、公司处理设施相关信息以及内部人工智能模型信息。
+我们做了一个更懂你且不会失忆的学习搭子。
 
-诺和诺德的一位发言人在一封电子邮件中表示，该公司“已注意到有关未经授权从我们系统中复制的数据被发布到网上的指控。
+”“你拍张照片，我们能模拟你剪完头发的样子。
 
-我们非常重视此事，并将继续运营我们的主要平台。
+”“要不要试试给人形机器人设计一个超萌面容？
 
-我们正在与相关部门联系。
+”他们眼睛发亮，语速飞快，争先恐后地招呼着每一个路过的评委和观众。
 
-” FulcrumSec在一封电子邮件中表示，诺和诺德公司的代表于6月3日联系了该组织，大约在FulcrumSec首次联系该公司未具名高管48小时后。
+一个展位挨着一个展位，像极了创意集市。
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 05:28 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 05:12 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 05:07 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 05:07 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 05:33 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 05:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 05:15 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 05:27 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 05:14 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 05:07 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 05:21 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 05:33 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 05:29 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 05:22 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 05:40 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 05:29 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 05:14 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 05:31 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 05:33 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 05:13 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 05:15 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 05:24 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 05:36 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 05:40 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 05:22 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 05:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 05:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:34 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/31235.shtml)
-- 2026-06-30 05:22 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/565933.shtml)
-- 2026-06-30 05:33 - [沙丘](https://www.blog.kurohicncr.top/Article/details/69767.shtml)
-- 2026-06-30 05:17 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/1906030.shtml)
-- 2026-06-30 05:18 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/22412.shtml)
-- 2026-06-30 05:17 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/165349416136.shtml)
-- 2026-06-30 05:24 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/7458002.shtml)
-- 2026-06-30 05:35 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/150806.shtml)
-- 2026-06-30 05:22 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/90100463854.shtml)
-- 2026-06-30 05:12 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/959638.shtml)
-- 2026-06-30 05:26 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/683381619516.shtml)
-- 2026-06-30 05:31 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/372155195.shtml)
-- 2026-06-30 05:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/15277516064.shtml)
-- 2026-06-30 05:08 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/1341227.shtml)
-- 2026-06-30 05:13 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/05546.shtml)
+- 2026-06-30 05:22 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/04875630067.shtml)
+- 2026-06-30 05:23 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/784764592650.shtml)
+- 2026-06-30 05:35 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/219782377.shtml)
+- 2026-06-30 05:26 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/01081.shtml)
+- 2026-06-30 05:38 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/88503187027.shtml)
+- 2026-06-30 05:27 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/0804063099.shtml)
+- 2026-06-30 05:26 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/122292536980.shtml)
+- 2026-06-30 05:15 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/0313018.shtml)
+- 2026-06-30 05:20 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/183407.shtml)
+- 2026-06-30 05:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/941246.shtml)
+- 2026-06-30 05:13 - [第一炉香](https://www.blog.minike.top/Article/details/1670555.shtml)
+- 2026-06-30 05:21 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/0552095.shtml)
+- 2026-06-30 05:38 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/26595633040.shtml)
+- 2026-06-30 05:40 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/63930439.shtml)
+- 2026-06-30 05:18 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/10810952.shtml)

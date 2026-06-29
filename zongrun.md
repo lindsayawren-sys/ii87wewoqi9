@@ -1,51 +1,61 @@
-# 武警官兵抵达青海地震现场 开展救援
+# 里斯战略咨询张云：在AI时代汽车会成为具身智能的一部分，汽车就是车载机器人
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 08:05 来源：中国新闻网 6月16日17时6分，青海海西州直辖区发生6.3级地震。武警青海总队海西支队第一时间启动应急救援预案，迅速抽调5支救援分队、通信保障骨干共计27名官兵，编组10台救援车辆，携带帐篷、破拆工具、医疗急救、通信保障等全套救灾物资，全速向震中区域机动。(记者 周瑞辰子 来源 武警青海总队海西支队 制作 王宁) 责任编辑：
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 里斯战略咨询全球CEO中国区主席张云表示，在AI时代，汽车会成为具身智能的一部分，汽车就是车载机器人。具身智能是未来发展的重要方向，而汽车正是具身智能的重要体现：我们今天看到的各种视觉方案、
 
 ## 正文
 
-发布时间：2026年06月17日 08:05 来源：中国新闻网 6月16日17时6分，青海海西州直辖区发生6.3级地震。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-武警青海总队海西支队第一时间启动应急救援预案，迅速抽调5支救援分队、通信保障骨干共计27名官兵，编组10台救援车辆，携带帐篷、破拆工具、医疗急救、通信保障等全套救灾物资，全速向震中区域机动。
+里斯战略咨询全球CEO中国区主席张云表示，在AI时代，汽车会成为具身智能的一部分，汽车就是车载机器人。
 
-(记者 周瑞辰子 来源 武警青海总队海西支队 制作 王宁) 责任编辑：【黄钰涵】
+具身智能是未来发展的重要方向，而汽车正是具身智能的重要体现：我们今天看到的各种视觉方案、激光雷达，就是汽车的眼睛；我们的大模型，就是汽车的大脑和小脑；而汽车的其他功能，比如飞行等，就是汽车的手足和翅膀，这是一个确定的重要判断。
+
+他指出，如果我们要探寻未来超级技术对汽车品类的影响，必须回到人类历史，回到汽车作为交通工具的根本需求去思考。
+
+在过去的100多年甚至更久的时间里，汽车、马以及汽车的前身马车，不变的核心需求就是“乘坐”。
+
+乘坐的舒适性是汽车的第一属性，我认为这是根本属性，是千百年来不会变化的属性，科技在变、形式在变，只会强化这个属性，而不会削弱它。
+
+所以，超级技术最核心的价值，张云表示，最大的可能是创造前所未有的超级舒适乘坐空间，这是超级技术对汽车产业、汽车品类最大的影响和未来发展方向。
+
+从某种意义上说，自动驾驶和无人驾驶技术会让人类重回“马车时代”，大家回溯历史就会发现，贵族乘坐马车时，是不需要自己驾驶的，而是在一个非常舒适的空间里享受旅程。
 
 ## 相关推荐
 
-- 2026-06-30 05:08 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 05:23 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 05:24 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 05:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 05:34 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 05:34 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-30 05:12 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 05:27 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 05:22 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 05:15 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 05:12 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 05:32 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 05:28 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 05:21 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 05:06 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 05:12 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 05:26 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 05:36 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 05:20 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 05:19 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 05:37 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 05:20 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 05:37 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 05:32 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 05:12 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 05:18 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 05:41 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 05:25 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 05:35 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 05:35 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:14 - [孙兴慜道歉](http://www.share.minike.top/Article/details/0353970.shtml)
-- 2026-06-30 05:16 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/411298.shtml)
-- 2026-06-30 05:27 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/76289229.shtml)
-- 2026-06-30 05:32 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/07313536061.shtml)
-- 2026-06-30 05:30 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/83427940298.shtml)
-- 2026-06-30 05:20 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/7697946469.shtml)
-- 2026-06-30 05:10 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/06874395.shtml)
-- 2026-06-30 05:18 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/22214563.shtml)
-- 2026-06-30 05:22 - [扫黑风暴](http://www.share.minike.top/Article/details/05477012507.shtml)
-- 2026-06-30 05:12 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/59039220008.shtml)
-- 2026-06-30 05:35 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/58882791.shtml)
-- 2026-06-30 05:13 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/298921951191.shtml)
-- 2026-06-30 05:07 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/385298285459.shtml)
-- 2026-06-30 05:14 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/840703272.shtml)
-- 2026-06-30 05:11 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/305428332.shtml)
+- 2026-06-30 05:27 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/6492792254.shtml)
+- 2026-06-30 05:38 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/235178899551.shtml)
+- 2026-06-30 05:30 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/1324896.shtml)
+- 2026-06-30 05:26 - [日本进球](http://www.blog.kurohicncr.top/Article/details/00629.shtml)
+- 2026-06-30 05:29 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/39223875799.shtml)
+- 2026-06-30 05:41 - [勇敢的心第二部](http://www.share.minike.top/Article/details/954240477.shtml)
+- 2026-06-30 05:36 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/044297.shtml)
+- 2026-06-30 05:25 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/60913.shtml)
+- 2026-06-30 05:30 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/109699892798.shtml)
+- 2026-06-30 05:14 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/0849062.shtml)
+- 2026-06-30 05:21 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/6768579820.shtml)
+- 2026-06-30 05:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/754548807323.shtml)
+- 2026-06-30 05:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/010328427.shtml)
+- 2026-06-30 05:17 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/3939098.shtml)
+- 2026-06-30 05:34 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/7505979500.shtml)

@@ -1,61 +1,44 @@
-# 金价跃升 美国和伊朗达成协议以恢复霍尔木兹海峡通行
+# 蓝月亮集团于4月10日斥资147.66万港元回购49.4万股
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-金价和银价上涨，此前美国和伊朗达成临时协议，旨在结束敌对行动并恢复霍尔木兹海峡通行，这缓解了全球通胀担忧，可能降低市场对加息的预期。 现货金价一度跃升3.6%，接近每盎司4，370美元，白银一度上涨4.9%。油价下跌。美国总统特朗普周一声称，船只已经在通过该海峡，其中“许多满载石油”。华盛顿和德黑兰仍需就谅解备忘录相关的最后步骤作出决定，该备忘录定于周五在瑞士现场签署。 “这使
+蓝月亮集团（06993）发布公告，该公司于2026年4月10日斥资147.66万港元回购49.4万股股份，每股回购价格为2.98-2.99港元。责任编辑：卢昱君
 
 ## 正文
 
-金价和银价上涨，此前美国和伊朗达成临时协议，旨在结束敌对行动并恢复霍尔木兹海峡通行，这缓解了全球通胀担忧，可能降低市场对加息的预期。
+蓝月亮集团（06993）发布公告，该公司于2026年4月10日斥资147.66万港元回购49.4万股股份，每股回购价格为2.98-2.99港元。
 
-现货金价一度跃升3.6%，接近每盎司4，370美元，白银一度上涨4.9%。
-
-油价下跌。
-
-美国总统特朗普周一声称，船只已经在通过该海峡，其中“许多满载石油”。
-
-华盛顿和德黑兰仍需就谅解备忘录相关的最后步骤作出决定，该备忘录定于周五在瑞士现场签署。
-
-“这使得黄金所处的宏观背景不再那么不利，”华侨银行外汇策略师Christopher Wong表示，“话虽如此，协议仍有待正式敲定，因此在此期间市场可能仍会波动较大。
-
-” 自2月底战争爆发以来，黄金走势大体与原油呈反向关系，因为能源价格上涨推高通胀，并促使各国央行在更长时间内维持高利率，削弱了无息贵金属的吸引力。
-
-冲突爆发以来，金价已下跌约18%，上周触及11月份以来最低。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:17 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 05:30 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 05:25 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 05:21 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 05:33 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 05:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 05:24 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 05:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 05:20 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 05:06 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-30 05:13 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 05:07 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 05:35 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 05:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 05:15 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 05:24 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 05:20 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 05:16 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 05:19 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 05:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 05:35 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 05:32 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 05:13 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 05:41 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 05:41 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:18 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/66994443.shtml)
-- 2026-06-30 05:14 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/743111.shtml)
-- 2026-06-30 05:33 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/584966.shtml)
-- 2026-06-30 05:31 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/945720509.shtml)
-- 2026-06-30 05:18 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/348110480174.shtml)
-- 2026-06-30 05:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/516840951.shtml)
-- 2026-06-30 05:31 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/383258788.shtml)
-- 2026-06-30 05:29 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/4070140388.shtml)
-- 2026-06-30 05:35 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/381234895786.shtml)
-- 2026-06-30 05:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/435123072.shtml)
-- 2026-06-30 05:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/38687.shtml)
-- 2026-06-30 05:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/110343243669.shtml)
-- 2026-06-30 05:12 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/62049.shtml)
-- 2026-06-30 05:34 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/39231.shtml)
-- 2026-06-30 05:25 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/108384.shtml)
+- 2026-06-30 05:26 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/683158977.shtml)
+- 2026-06-30 05:29 - [金牌调解](https://www.share.minike.top/Article/details/819021678403.shtml)
+- 2026-06-30 05:36 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/120235.shtml)
+- 2026-06-30 05:38 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/01583687095.shtml)
+- 2026-06-30 05:30 - [女心理师](http://www.blog.minike.top/Article/details/27633025.shtml)
+- 2026-06-30 05:16 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/554988598454.shtml)
+- 2026-06-30 05:20 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/61185476.shtml)
+- 2026-06-30 05:38 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/2028930.shtml)
+- 2026-06-30 05:20 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/3199459421.shtml)
+- 2026-06-30 05:31 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/75846652865.shtml)
+- 2026-06-30 05:31 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/19586.shtml)
+- 2026-06-30 05:24 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/23634.shtml)
+- 2026-06-30 05:17 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/86524449288.shtml)
+- 2026-06-30 05:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/7061716.shtml)
+- 2026-06-30 05:32 - [巴西扳平比分](http://www.share.minike.top/Article/details/42188.shtml)

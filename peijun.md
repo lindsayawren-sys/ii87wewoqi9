@@ -1,60 +1,57 @@
-# 光大期货0616黄金点评：地缘局势缓和支撑金价，关注今日日央行议息情况
+# 锚定三大方向 A股交易规则优化升级
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-6月15日，COMEX黄金高开震荡，报收4336.2美元/盎司，跌幅0.36%。国内SHFE金夜盘高开，小幅低走，报收942.90元/克，涨幅1.77%。 地缘政治方面，特朗普宣布美伊协议“已完成”，美伊和平协议签署在即，但双方关于海峡通行费的表态存在明显分歧，美国方面称霍尔木兹海峡将“长期开放且不收取通行费”，但据伊朗媒体称，伊朗仅同意60天免费期，期满后计划收取安全保障、航
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！■ 田 鹏 4月10日，沪深北三大证券交易所同步发布交易规则修订征求意见稿，核心推出两大关键举措：盘后固定价格交易拟覆盖全部A股与交易型开放式基金；主板风险警示（ST/*ST）股票价格涨跌幅限制比例拟由5%调整为10%。 上述两项规则的修订，背后有着清晰的市场逻辑与现实需求。往前回溯，盘后固定价格交易作为科
 
 ## 正文
 
-6月15日，COMEX黄金高开震荡，报收4336.2美元/盎司，跌幅0.36%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-国内SHFE金夜盘高开，小幅低走，报收942.90元/克，涨幅1.77%。
+■ 田 鹏 4月10日，沪深北三大证券交易所同步发布交易规则修订征求意见稿，核心推出两大关键举措：盘后固定价格交易拟覆盖全部A股与交易型开放式基金；主板风险警示（ST/*ST）股票价格涨跌幅限制比例拟由5%调整为10%。
 
-地缘政治方面，特朗普宣布美伊协议“已完成”，美伊和平协议签署在即，但双方关于海峡通行费的表态存在明显分歧，美国方面称霍尔木兹海峡将“长期开放且不收取通行费”，但据伊朗媒体称，伊朗仅同意60天免费期，期满后计划收取安全保障、航行服务等费用。
+上述两项规则的修订，背后有着清晰的市场逻辑与现实需求。
 
-地缘交易降温或继续支撑金价走势。
+往前回溯，盘后固定价格交易作为科创板的配套创新机制，自2019年7月份随科创板开市正式落地，2020年8月份延伸至创业板，经过多年实践检验，运行平稳且成效显著。
 
-央行方面，关注周二日央行议息会议，市场普遍预期日央行将加息25个基点，届时流动性收紧预期，或引起金融市场盘面的异动。
+这一机制以当日收盘价为成交价格，按时间优先原则撮合成交，既有效补充了盘中连续交易的不足，减少了大额交易对盘中价格的冲击，也满足了投资者以确定性价格成交的需求。
 
-美伊谈判取得突破性进展，后期关注霍尔木兹海峡通航问题，对黄金而言，随着油价下行，通胀预期回落，央行政策或不再激进鹰派，相对偏乐观。
+此次将其推广至全部A股与交易型开放式基金，意味着这一交易机制从“试点”走向“标配”，既是对市场多元化交易需求的积极回应，更是推动交易规则持续完善的重要一步。
 
-另外，本周也将举行美联储6月FOMC决议，作为沃什首秀市场关心点在于点阵图如何调整与新主席表述，对黄金市场来说前后或有异动，但市场前期已有定价的情况下，或并不悲观看待。
+而主板风险警示股票5%的涨跌幅限制，自1998年风险警示制度诞生以来稳定运行，其初衷是抑制过度投机、保护中小投资者利益。
 
-综合来看，短期关注金价能否持续反弹，给市场注入更多信心。
+但随着资本市场不断发展，这一规则的局限性逐渐凸显：5%的窄幅波动易导致价格扭曲，形成连续“一字涨跌停”走势，不仅降低了定价效率，还会使板块流动性下降，甚至会被部分资金利用进行套利炒作，反而背离了风险警示的本质。
 
 ## 相关推荐
 
-- 2026-06-30 05:20 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 05:24 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 05:19 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 05:25 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 05:14 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-30 05:24 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 05:06 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 05:08 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 05:33 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 05:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 05:12 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 05:34 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 05:15 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-30 05:23 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 05:22 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 05:40 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 05:40 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 05:22 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 05:16 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 05:40 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 05:15 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 05:17 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 05:40 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 05:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 05:31 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:09 - [巴西vs日本](http://www.share.minike.top/Article/details/99825165041.shtml)
-- 2026-06-30 05:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/17120.shtml)
-- 2026-06-30 05:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/8408361.shtml)
-- 2026-06-30 05:33 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/11561.shtml)
-- 2026-06-30 05:13 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/366923651362.shtml)
-- 2026-06-30 05:08 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/74623269.shtml)
-- 2026-06-30 05:10 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/89092.shtml)
-- 2026-06-30 05:11 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/05106661032.shtml)
-- 2026-06-30 05:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/04781.shtml)
-- 2026-06-30 05:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/016208146.shtml)
-- 2026-06-30 05:18 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/59426598.shtml)
-- 2026-06-30 05:16 - [一见倾心](http://www.share.kurohicncr.top/Article/details/5965850368.shtml)
-- 2026-06-30 05:20 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/1689974.shtml)
-- 2026-06-30 05:30 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/624232.shtml)
-- 2026-06-30 05:24 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/4088658814.shtml)
+- 2026-06-30 05:14 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/003679.shtml)
+- 2026-06-30 05:16 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/20165.shtml)
+- 2026-06-30 05:14 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/546235182.shtml)
+- 2026-06-30 05:37 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/70557.shtml)
+- 2026-06-30 05:16 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/0568080969.shtml)
+- 2026-06-30 05:18 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/9009309515.shtml)
+- 2026-06-30 05:15 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/51508686.shtml)
+- 2026-06-30 05:19 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/04206387.shtml)
+- 2026-06-30 05:19 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/719246951.shtml)
+- 2026-06-30 05:35 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/6395660.shtml)
+- 2026-06-30 05:19 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/13929562.shtml)
+- 2026-06-30 05:25 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/49354980.shtml)
+- 2026-06-30 05:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/036996623240.shtml)
+- 2026-06-30 05:36 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/233923.shtml)
+- 2026-06-30 05:41 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/691345785.shtml)

@@ -1,56 +1,54 @@
-# 甜透天山：一颗苹果的“出山”通道
+# 中国香港体操总会一行在广西训练交流
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新网阿克苏6月16日电 题：甜透天山：一颗苹果的“出山”通道 中新网记者 曹子云 来到新疆理工学院，推开冰糖心苹果研究所实验室的门，烘烤的甜香扑面而来，几个学生在烤箱旁紧盯着里面的冰糖心苹果。十几公里外，在阿克苏市电商创业孵化基地直播间里，主播正对着屏幕展示：“这个冰糖心苹果不含添加剂，本来就是这么甜……” 近日，“情满天山援疆印记”主题采访活动走进位于天山南麓的新疆阿克苏。
+中新网南宁4月12日电 (黄令妍)为深化桂港两地体育交流合作，提升蹦床项目竞技水平，4月5日至11日，中国香港体操总会蹦床教练员、运动员一行9人来南宁训练，与广西蹦床队开展为期一周的训练交流。 训练期间，运动员们以技会友，围绕基础动作规范、难度动作分解、成套动作衔接等环节进行深入交流，通过动作互纠、分组合练、趣味展演等形式，切磋技艺、取长补短。双方教练也紧扣训练实战需求，就技术
 
 ## 正文
 
-中新网阿克苏6月16日电 题：甜透天山：一颗苹果的“出山”通道 中新网记者 曹子云 来到新疆理工学院，推开冰糖心苹果研究所实验室的门，烘烤的甜香扑面而来，几个学生在烤箱旁紧盯着里面的冰糖心苹果。
+中新网南宁4月12日电 (黄令妍)为深化桂港两地体育交流合作，提升蹦床项目竞技水平，4月5日至11日，中国香港体操总会蹦床教练员、运动员一行9人来南宁训练，与广西蹦床队开展为期一周的训练交流。
 
-十几公里外，在阿克苏市电商创业孵化基地直播间里，主播正对着屏幕展示：“这个冰糖心苹果不含添加剂，本来就是这么甜……” 近日，“情满天山援疆印记”主题采访活动走进位于天山南麓的新疆阿克苏。
+训练期间，运动员们以技会友，围绕基础动作规范、难度动作分解、成套动作衔接等环节进行深入交流，通过动作互纠、分组合练、趣味展演等形式，切磋技艺、取长补短。
 
-在学校实验室和电商基地，记者偶遇了同一种水果——在援疆力量推动下，这颗冰糖心苹果正打通从“科技研发”到“云端销售”的链路，拓宽了果农的致富路。
+双方教练也紧扣训练实战需求，就技术动作打磨、科学训练方法开展深度研讨，积极分享执教经验。
 
-科技加持，次果变身“金果” 新疆理工学院食品科学与工程学院教授布海丽且姆·阿卜杜热合曼是本地人，家里也种冰糖心。
+紧张的训练之余，两地运动员和教练还开展联谊互动、文化交流体验活动。
 
-过去，阿克苏苹果多以鲜果售卖为主，在她的记忆里，“好果能上市场，次果直接就在果园里烂掉了。
+近年来，广西壮族自治区体育局以与国家体育总局体操运动管理中心签订战略合作协议为契机，并依托亚洲体操联合会支持建设的亚洲体操训练基地，积极开展国际国内交流活动并协助举办各类体操赛事、训练营，接待了中国国家青年体操队、国家蹦床队及俄罗斯蹦床队、马来西亚国家体操队等多支国内外队伍转训和外训，不仅充分展现广西大体操项目的深厚底蕴、影响力与知名度，更进一步深化广西与国内外体操类项目的友好合作。
 
-” 如何充分利用苹果价值？
-
-2025年1月，校地联合冰糖心苹果研究所挂牌。
-
-随后，在浙江省援疆经费支持下，中国计量大学与新疆理工学院共建的苹果精深加工与高值化利用实验室落地。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:20 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 05:09 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 05:22 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 05:33 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 05:27 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 05:19 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 05:10 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 05:30 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 05:35 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 05:12 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 05:37 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 05:30 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 05:40 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 05:35 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 05:39 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 05:36 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 05:29 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 05:41 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 05:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 05:36 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 05:16 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 05:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:29 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/394912544.shtml)
-- 2026-06-30 05:23 - [沙丘](https://www.share.kurohicncr.top/Article/details/895536.shtml)
-- 2026-06-30 05:27 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/7883511.shtml)
-- 2026-06-30 05:07 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/3809138693.shtml)
-- 2026-06-30 05:33 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/947380187565.shtml)
-- 2026-06-30 05:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/89759295.shtml)
-- 2026-06-30 05:34 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/787108909778.shtml)
-- 2026-06-30 05:30 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/4428947.shtml)
-- 2026-06-30 05:23 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/69398.shtml)
-- 2026-06-30 05:17 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/2510734.shtml)
-- 2026-06-30 05:25 - [张凌赫 客串](http://www.share.minike.top/Article/details/68217077660.shtml)
-- 2026-06-30 05:15 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/041133.shtml)
-- 2026-06-30 05:21 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/452161287.shtml)
-- 2026-06-30 05:29 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/5038157.shtml)
-- 2026-06-30 05:15 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/41846151.shtml)
+- 2026-06-30 05:22 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/5741741764.shtml)
+- 2026-06-30 05:13 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/3635373649.shtml)
+- 2026-06-30 05:15 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/62815336.shtml)
+- 2026-06-30 05:15 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/5676740.shtml)
+- 2026-06-30 05:24 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/6672324.shtml)
+- 2026-06-30 05:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/9568708.shtml)
+- 2026-06-30 05:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/59582687804.shtml)
+- 2026-06-30 05:13 - [金牌调解](https://www.share.kurohicncr.top/Article/details/3787049276.shtml)
+- 2026-06-30 05:19 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/836453434.shtml)
+- 2026-06-30 05:29 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/148849.shtml)
+- 2026-06-30 05:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/27571.shtml)
+- 2026-06-30 05:28 - [天道](https://www.share.minike.top/Article/details/014678103.shtml)
+- 2026-06-30 05:25 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/48593649079.shtml)
+- 2026-06-30 05:36 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/5001221.shtml)
+- 2026-06-30 05:41 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/838012110.shtml)

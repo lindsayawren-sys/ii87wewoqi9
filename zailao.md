@@ -1,59 +1,58 @@
-# （美加墨世界杯）佛得角爆冷逼平西班牙 比利时埃及握手言和
+# 宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新社亚特兰大/西雅图6月15日电 当地时间15日在美国率先举行的两场2026年美加墨世界杯小组赛首轮比赛中，H组的世界杯新军佛得角队爆冷以0:0逼平夺冠大热门西班牙队，G组的比利时队和埃及队各进一球，同样以平局收场。世界排名第三的西班牙队曾在2010年捧起大力神杯，自2024年3月开始从未在常规时间里输球，目前拥有亚马尔、佩德里和罗德里等世界级球星，人员储备厚实；世界杯非洲区
+中新网石嘴山4月11日电 (记者 李佩珊)4月11日，2026长三角-贺兰山文旅产业融合发展对接会暨大武口区第二届文体健旅商嘉年华在宁夏石嘴山市落幕。此次活动不仅为市民带来多元消费体验，更促成多项合作签约，通过“文体旅商”深度融合，让这座工业老城在遗产焕新中蹚出高质量发展新路。 作为贺兰山下的工业重镇，大武口区曾因煤而兴。本届嘉年华主会场设在洗煤厂工业遗址公园，废旧厂房与现代活
 
 ## 正文
 
-中新社亚特兰大/西雅图6月15日电 当地时间15日在美国率先举行的两场2026年美加墨世界杯小组赛首轮比赛中，H组的世界杯新军佛得角队爆冷以0:0逼平夺冠大热门西班牙队，G组的比利时队和埃及队各进一球，同样以平局收场。
+中新网石嘴山4月11日电 (记者 李佩珊)4月11日，2026长三角-贺兰山文旅产业融合发展对接会暨大武口区第二届文体健旅商嘉年华在宁夏石嘴山市落幕。
 
-世界排名第三的西班牙队曾在2010年捧起大力神杯，自2024年3月开始从未在常规时间里输球，目前拥有亚马尔、佩德里和罗德里等世界级球星，人员储备厚实；世界杯非洲区预选赛中，西非岛国佛得角曾战胜“非洲雄狮”喀麦隆队，以小组头名的成绩首次晋级世界杯决赛圈，世界排名第64位。
+此次活动不仅为市民带来多元消费体验，更促成多项合作签约，通过“文体旅商”深度融合，让这座工业老城在遗产焕新中蹚出高质量发展新路。
 
-当日在美国亚特兰大体育场举行的比赛中，佛得角队形成了严密的防守体系，没有给西班牙队太多进攻机会。
+作为贺兰山下的工业重镇，大武口区曾因煤而兴。
 
-直到第39分钟，费兰·托雷斯近距离包抄未果，随后奥亚萨瓦尔头球补射，被40岁的佛得角队门将沃津尼亚扑出。
+本届嘉年华主会场设在洗煤厂工业遗址公园，废旧厂房与现代活动交相辉映，直观展现了城市“变废为宝”的转型魄力。
 
-下半场，佛得角队的防守依然密不透风，逼迫西班牙队在第71分钟换上此前受伤的新星亚马尔。
+活动以“融文汇旅兴产业·项目聚才赢未来”为主题，聚焦研学旅游、影视开发、赛事升级等六大领域，搭建起跨区域资源对接平台。
 
-作为右边锋的他频频拿球突破，但略伦特和库库雷利亚等人的射门均被沃津尼亚化解。
+数据显示，大武口区文旅融合成效显著。
 
-佛得角队最终手握平局，收获队史首个世界杯积分。
+2025年，大武口接待游客超632万人次，实现旅游收入28.05亿元，同比增幅均超14%，这种增长得益于“赛事+文旅”的创新驱动。
 
-赛前，西班牙队被认为告负甚至战平都只有理论上的可能，如今却爆出开赛以来的最大冷门。
+2025年，大武口举办百余场文化活动及13场各类赛事，成功吸引全国青少年建筑模型总决赛等专业赛事落地。
 
 ## 相关推荐
 
-- 2026-06-30 05:27 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 05:21 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 05:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-30 05:13 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 05:23 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 05:26 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 05:28 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 05:16 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 05:16 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 05:24 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 05:27 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 05:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 05:12 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 05:13 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-30 05:34 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 05:23 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 05:23 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 05:15 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 05:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 05:38 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 05:18 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 05:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 05:19 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 05:35 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 05:37 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:29 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/2451383.shtml)
-- 2026-06-30 05:32 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/9003025293.shtml)
-- 2026-06-30 05:24 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/14534.shtml)
-- 2026-06-30 05:33 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/192405234303.shtml)
-- 2026-06-30 05:32 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/09080.shtml)
-- 2026-06-30 05:26 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/0081824215.shtml)
-- 2026-06-30 05:14 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/537569922560.shtml)
-- 2026-06-30 05:14 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/718304689750.shtml)
-- 2026-06-30 05:31 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/80301257.shtml)
-- 2026-06-30 05:18 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/779112605.shtml)
-- 2026-06-30 05:06 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/269999131831.shtml)
-- 2026-06-30 05:11 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/293087475837.shtml)
-- 2026-06-30 05:32 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/78464756.shtml)
-- 2026-06-30 05:18 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/144555528.shtml)
-- 2026-06-30 05:35 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/6998908344.shtml)
+- 2026-06-30 05:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/52889.shtml)
+- 2026-06-30 05:13 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/285441825.shtml)
+- 2026-06-30 05:35 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/5291065.shtml)
+- 2026-06-30 05:32 - [巴西扳平比分](http://www.blog.minike.top/Article/details/89273854.shtml)
+- 2026-06-30 05:29 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/31278209338.shtml)
+- 2026-06-30 05:22 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/7995569.shtml)
+- 2026-06-30 05:30 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/4333233831.shtml)
+- 2026-06-30 05:14 - [月亮](http://www.blog.minike.top/Article/details/34106.shtml)
+- 2026-06-30 05:24 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/87831385.shtml)
+- 2026-06-30 05:25 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/587648399.shtml)
+- 2026-06-30 05:20 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/411161418120.shtml)
+- 2026-06-30 05:24 - [日本反击率先破门](http://www.share.minike.top/Article/details/89698148397.shtml)
+- 2026-06-30 05:29 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/334954.shtml)
+- 2026-06-30 05:38 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/00385413778.shtml)
+- 2026-06-30 05:39 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/7469790308.shtml)

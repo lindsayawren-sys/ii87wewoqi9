@@ -1,56 +1,59 @@
-# 深夜，全线飙涨！霍尔木兹海峡，突传重磅！伊朗重大宣布
+# 中国作协网络文学中心召开深化价值引领座谈会
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！全球股市狂飙。 受美伊达成停战协议刺激，美股三大指数全线大涨，道指创出历史新高，纳指大涨超2%，大型科技股、芯片、光通信概念股集体爆发，费城半导体指数一度大涨超5%，刷新历史新高。 据新华社援引伊朗媒体15日报道，伊朗总统佩泽希齐扬表示，伊朗与美国将于19日签署谅解备忘录。美国副总统万斯表示，美国与伊朗达成
+中新网北京4月10日电 (记者 高凯)4月10日，中国作家协会网络文学中心召开网络文学座谈会。中国作协党组成员、书记处书记毛广程出席会议并讲话，中国作协网络文学中心主任何弘主持会议，通报2025年网络文学工作情况及2026年重点工作安排，50余家全国重点网络文学网站平台负责人及网络作家和专家代表参加会议。毛广程在讲话中指出，网络文学界要牢记“国之大者”，锚定2035年建成文化强
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京4月10日电 (记者 高凯)4月10日，中国作家协会网络文学中心召开网络文学座谈会。
 
-全球股市狂飙。
+中国作协党组成员、书记处书记毛广程出席会议并讲话，中国作协网络文学中心主任何弘主持会议，通报2025年网络文学工作情况及2026年重点工作安排，50余家全国重点网络文学网站平台负责人及网络作家和专家代表参加会议。
 
-受美伊达成停战协议刺激，美股三大指数全线大涨，道指创出历史新高，纳指大涨超2%，大型科技股、芯片、光通信概念股集体爆发，费城半导体指数一度大涨超5%，刷新历史新高。
+毛广程在讲话中指出，网络文学界要牢记“国之大者”，锚定2035年建成文化强国战略目标，在新的历史方位中找准定位，正确认识网络文学的使命、地位和作用。
 
-据新华社援引伊朗媒体15日报道，伊朗总统佩泽希齐扬表示，伊朗与美国将于19日签署谅解备忘录。
+要提升创作质量，激发网络文学创新创造活力，不断推出内容新颖、思想精深、艺术精湛的精品力作。
 
-美国副总统万斯表示，美国与伊朗达成的谅解备忘录已经以电子方式完成签署，协议条款已基本确定生效。
+要树立新风正气，引导正确审美，鼓励多元、健康的创作生态，倡导理性、包容的评论氛围，杜绝标签化、极端化、二元对立的文学认知。
 
-美国总统特朗普表示，已有船只开始通过霍尔木兹海峡运输原油并驶离相关水域。
+要深化网文出海，坚守中华文化主体性，探索建立中国叙事体系，提升中华文化的海外影响力。
 
-美股全线大涨 北京时间6月15日晚间，美股开盘后，三大指数集体走强，截至发稿，纳指大涨2.4%，标普500指数涨1.53%，道指涨1.21%。
+会议研讨行业发展新形势、新挑战，分析研判近期一些极端创作倾向引发争议情况，凝聚共识，明确方向，部署下一阶段重点工作。
 
-大型科技股全线大涨，SpaceX大涨超8%，Meta大涨超4%，亚马逊涨超3%，谷歌、台积电ADR、博通涨超2%，英伟达、苹果、微软、特斯拉涨超1%。
+会议认为，网络文学是新大众文艺的重要载体和鲜活实践，拥有庞大的读者群体和广泛的社会影响力，在引领阅读风尚、传承中华优秀传统文化、讲好中国故事等方面发挥了重要作用。
 
 ## 相关推荐
 
-- 2026-06-30 05:26 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 05:20 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 05:15 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-30 05:25 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 05:18 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 05:13 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 05:29 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-30 05:22 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 05:26 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 05:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 05:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 05:26 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 05:21 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 05:16 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 05:38 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 05:38 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 05:26 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 05:34 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 05:27 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 05:25 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 05:31 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 05:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 05:18 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:33 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/80835197897.shtml)
-- 2026-06-30 05:13 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/5553475984.shtml)
-- 2026-06-30 05:11 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/248421986.shtml)
-- 2026-06-30 05:30 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/9270993917.shtml)
-- 2026-06-30 05:17 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/97137327996.shtml)
-- 2026-06-30 05:06 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/608561044193.shtml)
-- 2026-06-30 05:30 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/2125651.shtml)
-- 2026-06-30 05:23 - [巴拉圭先进球了](https://www.share.kurohicncr.top/Article/details/80423.shtml)
-- 2026-06-30 05:15 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/671394.shtml)
-- 2026-06-30 05:16 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/70972064708.shtml)
-- 2026-06-30 05:26 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/586061773533.shtml)
-- 2026-06-30 05:20 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/195295753.shtml)
-- 2026-06-30 05:11 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/16723.shtml)
-- 2026-06-30 05:35 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/028819.shtml)
-- 2026-06-30 05:09 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/40304.shtml)
+- 2026-06-30 05:35 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/1421985635.shtml)
+- 2026-06-30 05:41 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/976274557663.shtml)
+- 2026-06-30 05:36 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/771094.shtml)
+- 2026-06-30 05:17 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/06210.shtml)
+- 2026-06-30 05:22 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/6319898.shtml)
+- 2026-06-30 05:18 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/676277.shtml)
+- 2026-06-30 05:12 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/88163.shtml)
+- 2026-06-30 05:19 - [内马尔替补](https://www.share.minike.top/Article/details/358114.shtml)
+- 2026-06-30 05:40 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/52356471.shtml)
+- 2026-06-30 05:41 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/81958867115.shtml)
+- 2026-06-30 05:30 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/927531745062.shtml)
+- 2026-06-30 05:30 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/28051.shtml)
+- 2026-06-30 05:17 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/19748.shtml)
+- 2026-06-30 05:41 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/99810534.shtml)
+- 2026-06-30 05:31 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/08239.shtml)

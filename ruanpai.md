@@ -1,56 +1,60 @@
-# 6月16日外盘头条：美国和伊朗达成临时和平协议 SpaceX上市交易次日飙升20% 英伟达五年来首次发行投资级债券
+# 美国白宫警告联邦雇员严禁利用非公开信息牟利
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、美国和伊朗达成临时和平协议 本周有望重开霍尔木兹海峡 2、欧洲准备好在美伊和平协议落实后协助重开霍尔木兹海峡 3、SpaceX上市交易次日飙升20% 市值增加4120亿美元 4、英伟达五年来首次发行投资级债券 认购额高达850亿美元 5、特朗普盛赞美伊协议 尽管双方在具体内容上仍存分歧 6、城堡证券：利率上升将对风险资产构成挑
+美国白宫上月已警告工作人员，不得利用非公开信息进行金融市场交易。此前，一系列精准踩点的原油交易及与伊朗战争相关的预测市场押注，已引发外界对内幕交易的担忧。 一名白宫官员证实，白宫已向员工发送相关邮件。该官员同时强调，联邦法规禁止政府雇员利用非公开信息谋取私利，也禁止在政府设备上进行赌博活动。 白宫发言人戴维斯・英格尔在声明中表示：“特朗普总统态度非常明确：他致力于让股市保持强劲
 
 ## 正文
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、美国和伊朗达成临时和平协议 本周有望重开霍尔木兹海峡 2、欧洲准备好在美伊和平协议落实后协助重开霍尔木兹海峡 3、SpaceX上市交易次日飙升20% 市值增加4120亿美元 4、英伟达五年来首次发行投资级债券 认购额高达850亿美元 5、特朗普盛赞美伊协议 尽管双方在具体内容上仍存分歧 6、城堡证券：利率上升将对风险资产构成挑战 美联储最快可能9月加息 美国和伊朗达成临时和平协议 本周有望重开霍尔木兹海峡 美国和伊朗达成了一项临时和平协议，以重新开放霍尔木兹海峡，并进一步推动结束这场持续15周的战争。
+美国白宫上月已警告工作人员，不得利用非公开信息进行金融市场交易。
 
-这场冲突不仅在中东地区造成严重混乱，也对全球经济产生了广泛冲击。
+此前，一系列精准踩点的原油交易及与伊朗战争相关的预测市场押注，已引发外界对内幕交易的担忧。
 
-这一进展推动本周交易伊始全球股市和债券市场上涨，而此前因海峡关闭而飙升的原油和天然气价格则下跌。
+一名白宫官员证实，白宫已向员工发送相关邮件。
 
-美国总统唐纳德·特朗普面临燃油价格上涨带来的政治压力，高油价正冲击其本人以及共和党在11月中期选举前的支持率。
+该官员同时强调，联邦法规禁止政府雇员利用非公开信息谋取私利，也禁止在政府设备上进行赌博活动。
 
-他称赞这是一项“将为整个地区带来和平与安全的伟大协议”。
+白宫发言人戴维斯・英格尔在声明中表示：“特朗普总统态度非常明确：他致力于让股市保持强劲并为所有人创造收益，但国会议员及其他政府官员应被禁止利用非公开信息谋取经济利益。
 
-他还曾敦促伊朗在周日公布协议，而当天恰逢他的80岁生日。
+唯一能指引特朗普总统的特殊利益，就是美国人民的最高利益。
 
-这份协议已经由特朗普、美国副总统JD·万斯，以及伊朗议会议长卡利巴夫电子签署。
+” 他补充道：“所有联邦雇员均须遵守政府道德准则，严禁利用非公开信息牟利。
 
-欧洲准备好在美伊和平协议落实后协助重开霍尔木兹海峡 欧洲领导人表示，他们已准备好在美伊和平协议执行后部署军事资源以重开霍尔木兹海峡。
+然而，在没有证据的情况下暗示政府官员从事此类行为，是毫无根据且不负责任的报道。
 
 ## 相关推荐
 
-- 2026-06-30 05:11 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 05:19 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 05:10 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 05:28 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 05:21 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 05:14 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 05:29 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 05:21 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 05:10 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 05:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 05:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 05:20 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 05:12 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 05:31 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 05:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 05:20 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 05:33 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-30 05:21 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 05:36 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 05:32 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 05:30 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 05:26 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 05:24 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 05:25 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:29 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/2506069378.shtml)
-- 2026-06-30 05:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/8820037.shtml)
-- 2026-06-30 05:32 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/8303721461.shtml)
-- 2026-06-30 05:25 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/47617505489.shtml)
-- 2026-06-30 05:06 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/11291117.shtml)
-- 2026-06-30 05:09 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/424584480.shtml)
-- 2026-06-30 05:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/5083844.shtml)
-- 2026-06-30 05:25 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/349655951.shtml)
-- 2026-06-30 05:27 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/92033.shtml)
-- 2026-06-30 05:18 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/5305409.shtml)
-- 2026-06-30 05:11 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/083617111804.shtml)
-- 2026-06-30 05:25 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/93838.shtml)
-- 2026-06-30 05:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/355613193965.shtml)
-- 2026-06-30 05:13 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/0353603.shtml)
-- 2026-06-30 05:26 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/828258.shtml)
+- 2026-06-30 05:20 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/42017889.shtml)
+- 2026-06-30 05:33 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/39127472.shtml)
+- 2026-06-30 05:39 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/8677413.shtml)
+- 2026-06-30 05:35 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/3074810.shtml)
+- 2026-06-30 05:20 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/90031.shtml)
+- 2026-06-30 05:41 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/4384964154.shtml)
+- 2026-06-30 05:16 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/52830.shtml)
+- 2026-06-30 05:27 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/8397715276.shtml)
+- 2026-06-30 05:30 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/8746149.shtml)
+- 2026-06-30 05:29 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/9011063.shtml)
+- 2026-06-30 05:37 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/387214346.shtml)
+- 2026-06-30 05:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/80295.shtml)
+- 2026-06-30 05:35 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/761555190026.shtml)
+- 2026-06-30 05:21 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/80412039.shtml)
+- 2026-06-30 05:36 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/81151742862.shtml)

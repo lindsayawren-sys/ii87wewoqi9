@@ -1,53 +1,53 @@
-# 高盛下调布伦特原油价格预测 预计波斯湾原油出口7月末恢复至战前水平
+# 卓驭科技CEO沈劭劼：L3本身没有错，但技术路线上就是要从L2直接跨越到L4
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-在美伊达成临时协议以重开霍尔木兹海峡之后，高盛将布伦特原油2026年第四季度的价格预测从每桶90美元下调至80美元。 高盛分析师在6月15日的报告中表示，波斯湾原油出口预计将不晚于7月底恢复至战前水平，比此前预期提前一个月。 高盛将布伦特原油2027年平均价格预测下调5美元，至每桶75美元。责任编辑：于健 SF069
+新浪科技讯 4月11日下午消息，在智能电动汽车发展高层论坛2026期间，卓驭科技CEO沈劭劼与媒体对话。 关于“技术路线要简化掉L3，从L2直接跨越到L4”，沈劭劼表示“认同”：“L3产品形态规划本身并没有错，它更多是在实际运营过程中会出现一些比较难明白的东西，比如给消费者10秒钟进行接管，万一我接不了管，这个责任到底归谁，有一些实操状态下比较难说清楚的东西，但是如果一个系统真
 
 ## 正文
 
-在美伊达成临时协议以重开霍尔木兹海峡之后，高盛将布伦特原油2026年第四季度的价格预测从每桶90美元下调至80美元。
+新浪科技讯 4月11日下午消息，在智能电动汽车发展高层论坛2026期间，卓驭科技CEO沈劭劼与媒体对话。
 
-高盛分析师在6月15日的报告中表示，波斯湾原油出口预计将不晚于7月底恢复至战前水平，比此前预期提前一个月。
+关于“技术路线要简化掉L3，从L2直接跨越到L4”，沈劭劼表示“认同”：“L3产品形态规划本身并没有错，它更多是在实际运营过程中会出现一些比较难明白的东西，比如给消费者10秒钟进行接管，万一我接不了管，这个责任到底归谁，有一些实操状态下比较难说清楚的东西，但是如果一个系统真的能够做到10秒钟不接管，实际上离L4也没有多远了，但是L4责任划分会干净很多，这是非技术层面的。
 
-高盛将布伦特原油2027年平均价格预测下调5美元，至每桶75美元。
+” 他进一步表示，在技术层面，原来大家会说L2、L3、L4对应用的技术会不一样，毕竟发明L2、L3、L4描述时候是几十年前的事，那时候还没有大模型存在，但现在大家已经非常确认，用更厉害的具备原生多模态，具备涌现能力的这些模型，通过一些合适的远程运营、安全兜底、传感器冗余、车的冗余，以及模型周围的东西加一些能够做到L2、L3、L4基本同源的技术，“在这个同源的技术下，那我肯定就用同源的技术去做两个状态，一个是L2，这个当前已经有的，另外一个就是所有做智能驾驶公司的梦想，就是L4，把它给做出来就好了。
 
-责任编辑：于健 SF069
+”责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 05:06 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 05:24 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 05:28 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 05:25 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 05:12 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 05:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-30 05:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 05:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 05:25 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 05:31 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 05:28 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 05:31 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 05:09 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 05:13 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 05:15 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 05:36 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 05:30 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 05:18 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 05:39 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 05:38 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 05:22 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 05:28 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 05:12 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 05:16 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 05:38 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 05:24 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 05:19 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 05:25 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 05:23 - [人类...完蛋了...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/679717647.shtml)
-- 2026-06-30 05:11 - [日本反击率先破门](https://www.blog.minike.top/Article/details/503492.shtml)
-- 2026-06-30 05:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/04633.shtml)
-- 2026-06-30 05:26 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/01386820.shtml)
-- 2026-06-30 05:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/63380369520.shtml)
-- 2026-06-30 05:18 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/230622716.shtml)
-- 2026-06-30 05:34 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/1416732673.shtml)
-- 2026-06-30 05:18 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/8178091.shtml)
-- 2026-06-30 05:24 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/97567796009.shtml)
-- 2026-06-30 05:18 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/55652867.shtml)
-- 2026-06-30 05:12 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/083369665.shtml)
-- 2026-06-30 05:14 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/322250.shtml)
-- 2026-06-30 05:23 - [周生如故](https://www.blog.kurohicncr.top/Article/details/552070474.shtml)
-- 2026-06-30 05:24 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/18655651533.shtml)
-- 2026-06-30 05:06 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/168083363063.shtml)
+- 2026-06-30 05:23 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/436876.shtml)
+- 2026-06-30 05:35 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/477057.shtml)
+- 2026-06-30 05:29 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/182239107916.shtml)
+- 2026-06-30 05:33 - [斗破苍穹](https://www.share.minike.top/Article/details/09810.shtml)
+- 2026-06-30 05:16 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/1177322750.shtml)
+- 2026-06-30 05:32 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/60474139.shtml)
+- 2026-06-30 05:13 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/026028901509.shtml)
+- 2026-06-30 05:40 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/63778316993.shtml)
+- 2026-06-30 05:27 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/990670.shtml)
+- 2026-06-30 05:38 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/748035.shtml)
+- 2026-06-30 05:26 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/7060406.shtml)
+- 2026-06-30 05:24 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/34697242.shtml)
+- 2026-06-30 05:41 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/626698680.shtml)
+- 2026-06-30 05:25 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/08202481116.shtml)
+- 2026-06-30 05:28 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/624713546384.shtml)

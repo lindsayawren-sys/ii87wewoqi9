@@ -1,59 +1,58 @@
-# 欧盟对俄罗斯追加制裁措施
+# 四大证券报头版头条内容精华摘要_2026年4月13日_财经新闻
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新社布鲁塞尔6月15日电 (记者 德永健)欧盟15日宣布对俄罗斯追加制裁措施，将34名个人和47家实体列为制裁对象。 据欧盟理事会当日发布的公告，欧盟以支持俄罗斯军工复合体为由，将7名个人和21家实体列为制裁对象。以打击俄罗斯“影子船队”为由，将2名个人和24家实体列为制裁对象。以打击俄罗斯“混合行动”为由，将10名个人和1家实体列为制裁对象。 此外，欧盟以2024年2月俄罗
+专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月13日（星期一），今日报刊头条主要内容精华如下： 中国证券报 人民币对美元汇率周度大涨 稳中偏强走势有望延续 上周，人民币对美元汇率大涨。其中，4月8日，在岸、离岸人民币对美元汇率盘中一度涨超300基点，双双创下2023年4月以来新高。专家表示，受中东局势缓和等外部因素影响，人民币
 
 ## 正文
 
-中新社布鲁塞尔6月15日电 (记者 德永健)欧盟15日宣布对俄罗斯追加制裁措施，将34名个人和47家实体列为制裁对象。
+专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据欧盟理事会当日发布的公告，欧盟以支持俄罗斯军工复合体为由，将7名个人和21家实体列为制裁对象。
+4月13日（星期一），今日报刊头条主要内容精华如下： 中国证券报 人民币对美元汇率周度大涨 稳中偏强走势有望延续 上周，人民币对美元汇率大涨。
 
-以打击俄罗斯“影子船队”为由，将2名个人和24家实体列为制裁对象。
+其中，4月8日，在岸、离岸人民币对美元汇率盘中一度涨超300基点，双双创下2023年4月以来新高。
 
-以打击俄罗斯“混合行动”为由，将10名个人和1家实体列为制裁对象。
+专家表示，受中东局势缓和等外部因素影响，人民币汇率持续走强。
 
-此外，欧盟以2024年2月俄罗斯反对派人士纳瓦利内在狱中猝死为由，对俄罗斯实施“人权制裁”，将15名个人和1家实体列为制裁对象。
+从内部因素看，当前，我国外贸环境稳定，出口持续高增，国内消费、投资增速也在改善，为人民币汇率提供了有力支撑。
 
-公告显示，欧盟还以俄罗斯“非法吞并”克里米亚和塞瓦斯托波尔市为由，决定将针对克里米亚和塞瓦斯托波尔市的经济制裁延长一年，至2027年6月23日为止。
+第六届消博会精彩上演 海南自贸港封关后“首秀”亮点全扫描 本届消博会各项核心指标均实现显著提升，规模再创新高。
 
-目前，欧盟共对俄罗斯发起20轮制裁。
+其中，展会展览面积达14.3万平方米，较上届增加1.3万平方米；国际展品占比提升至65%，较上届增长20个百分点；专业采购商邀约数量约6.5万人，同比增长10%。
 
-欧盟外交与安全政策高级代表卡拉斯在公告中称，在15日对俄罗斯追加制裁措施之际，欧盟正在酝酿对俄罗斯发起第21轮制裁。
+绿链成势 央企供应链低碳转型全面提速 一场以绿色低碳为底色的深刻变革，正在央企供应链体系中纵深推进。
 
 ## 相关推荐
 
-- 2026-06-30 05:16 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 05:17 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 05:06 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 05:29 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 05:28 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 05:19 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 05:14 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 05:06 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 05:27 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 05:20 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 05:13 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 05:22 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 05:31 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 05:12 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 05:22 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 05:28 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 05:15 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 05:42 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 05:38 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 05:26 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 05:21 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 05:37 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 05:41 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 05:37 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 05:17 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:26 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/5471363154.shtml)
-- 2026-06-30 05:12 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/037068075.shtml)
-- 2026-06-30 05:34 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/705862663.shtml)
-- 2026-06-30 05:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/07456.shtml)
-- 2026-06-30 05:09 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/2022712.shtml)
-- 2026-06-30 05:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/43212.shtml)
-- 2026-06-30 05:20 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/403558.shtml)
-- 2026-06-30 05:30 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/0080875.shtml)
-- 2026-06-30 05:08 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/98518609521.shtml)
-- 2026-06-30 05:17 - [TOP Prada](https://www.share.minike.top/Article/details/495013.shtml)
-- 2026-06-30 05:31 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/5756079.shtml)
-- 2026-06-30 05:14 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/76653737364.shtml)
-- 2026-06-30 05:10 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/58833.shtml)
-- 2026-06-30 05:16 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/946497.shtml)
-- 2026-06-30 05:15 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/6379058.shtml)
+- 2026-06-30 05:35 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/47398.shtml)
+- 2026-06-30 05:21 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/98533.shtml)
+- 2026-06-30 05:23 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/0904498474.shtml)
+- 2026-06-30 05:19 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/40735208.shtml)
+- 2026-06-30 05:41 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/805018.shtml)
+- 2026-06-30 05:37 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/790330930198.shtml)
+- 2026-06-30 05:12 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/597686999.shtml)
+- 2026-06-30 05:33 - [时光音乐会](https://www.share.minike.top/Article/details/356362.shtml)
+- 2026-06-30 05:13 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/3906593.shtml)
+- 2026-06-30 05:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/90910.shtml)
+- 2026-06-30 05:33 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/1357444.shtml)
+- 2026-06-30 05:36 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/13136.shtml)
+- 2026-06-30 05:27 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/553552905.shtml)
+- 2026-06-30 05:21 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/12340920856.shtml)
+- 2026-06-30 05:31 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/566214924.shtml)

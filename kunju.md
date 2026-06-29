@@ -1,57 +1,58 @@
-# 麦科奥特：公司核心产品被临床医生高度期待 不担心新药上市周期长市场被瓜分
+# 花旗：降哈尔滨电气目标价至30港元 评级“买入”
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-内地创新药企麦科医药-B （2335） 于6月15日至18日招股。预期将于6月24日挂牌买卖，建银国际、招商证券国际为联席保荐人。 公司以18A章上市的创新药企麦科医药计划发行5805.4万股H股，10%在港公开发售，招股价介乎18.2元至21元，其余国际配售，集资最多12.2亿元。 公司管理层在记者会中表示，核心新药MT1013目前进入III期临床，将在2028年初实现商业化
+花旗发布研报称，哈尔滨电气（01133）预计在可预见的未来，中国每年平均新增核电机组审批数量将为10部。集团指，2025年核电设备投标价格略有上涨，预计今年价格将进一步小幅上涨。该行将哈尔滨电气目标价由32港元下调至30港元，评级“买入”，认为估值吸引，但由于燃煤发电设备收入预期较低，将其明年净利润预测下调4%。 该行指，哈尔滨电气在沙特阿拉伯的两个EPC项目地理位置远离冲突地
 
 ## 正文
 
-内地创新药企麦科医药-B （2335） 于6月15日至18日招股。
+花旗发布研报称，哈尔滨电气（01133）预计在可预见的未来，中国每年平均新增核电机组审批数量将为10部。
 
-预期将于6月24日挂牌买卖，建银国际、招商证券国际为联席保荐人。
+集团指，2025年核电设备投标价格略有上涨，预计今年价格将进一步小幅上涨。
 
-公司以18A章上市的创新药企麦科医药计划发行5805.4万股H股，10%在港公开发售，招股价介乎18.2元至21元，其余国际配售，集资最多12.2亿元。
+该行将哈尔滨电气目标价由32港元下调至30港元，评级“买入”，认为估值吸引，但由于燃煤发电设备收入预期较低，将其明年净利润预测下调4%。
 
-公司管理层在记者会中表示，核心新药MT1013目前进入III期临床，将在2028年初实现商业化，不担心新药上市周期长导致市场被瓜分，目前公司核心产品被临床医生高度期待。
+该行指，哈尔滨电气在沙特阿拉伯的两个EPC项目地理位置远离冲突地区，未受影响。
 
-此外，公司另有六项药物在研发，包括主攻体重管理市场的减肥药XTL6001，预计本季度可完成一期临床试验。
+但出于安全考量，集团已要求部分员工撤离该地区。
 
-责任编辑：郝欣煜
+公司预计其营运不会受到重大影响。
+
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-30 05:08 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 05:20 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 05:15 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 05:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 05:18 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 05:18 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 05:11 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 05:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 05:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 05:09 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-30 05:30 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-30 05:20 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 05:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 05:08 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 05:25 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 05:31 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 05:41 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 05:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 05:35 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 05:24 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 05:22 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 05:29 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 05:19 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 05:35 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 05:41 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 05:26 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 05:35 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 05:41 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 05:23 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:30 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/974828737923.shtml)
-- 2026-06-30 05:12 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/9671932.shtml)
-- 2026-06-30 05:06 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/62236387031.shtml)
-- 2026-06-30 05:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/0073505.shtml)
-- 2026-06-30 05:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/825071564439.shtml)
-- 2026-06-30 05:13 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/180311.shtml)
-- 2026-06-30 05:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/0979427545.shtml)
-- 2026-06-30 05:30 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/21642887570.shtml)
-- 2026-06-30 05:34 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/05897038.shtml)
-- 2026-06-30 05:15 - [日本进球](https://www.share.minike.top/Article/details/27102326.shtml)
-- 2026-06-30 05:15 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/36274603207.shtml)
-- 2026-06-30 05:26 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/446213.shtml)
-- 2026-06-30 05:18 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/406908441.shtml)
-- 2026-06-30 05:33 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/0896893235.shtml)
-- 2026-06-30 05:06 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/242128.shtml)
+- 2026-06-30 05:13 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/990874334.shtml)
+- 2026-06-30 05:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/055556319028.shtml)
+- 2026-06-30 05:37 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/16966.shtml)
+- 2026-06-30 05:24 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/2315112907.shtml)
+- 2026-06-30 05:22 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/323406.shtml)
+- 2026-06-30 05:38 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/849627.shtml)
+- 2026-06-30 05:27 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/3546924.shtml)
+- 2026-06-30 05:41 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/26683.shtml)
+- 2026-06-30 05:24 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/990737347.shtml)
+- 2026-06-30 05:18 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/0529335627.shtml)
+- 2026-06-30 05:29 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/951249.shtml)
+- 2026-06-30 05:35 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/613629.shtml)
+- 2026-06-30 05:12 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/648405303534.shtml)
+- 2026-06-30 05:34 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/24341733259.shtml)
+- 2026-06-30 05:15 - [扬名立万](http://www.blog.minike.top/Article/details/618021152878.shtml)

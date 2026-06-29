@@ -1,58 +1,58 @@
-# “糖丸爷爷”顾方舟诞辰100周年纪念展在中国科学家博物馆正式开放
+# 三峡机场首开直飞马来西亚古晋航线
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新网北京6月16日电 (记者 孙自法)2026年6月16日是守护几代中国人童年的“糖丸爷爷”——“人民科学家”顾方舟诞辰100周年纪念日，主题为“一生一事一方舟”的纪念展当天在北京中国科学家博物馆正式面向公众开放。 “一生一事一方舟——‘人民科学家’顾方舟诞辰100周年纪念展”由中国科协主办，中国科协科学技术传播中心(中国科学家博物馆)、中国医学科学院北京协和医学院、中国医学
+中新网宜昌4月10日电 (张娜 钟高胜 董晓斌)随着长安航空9H8477航班于10日16时56分从湖北宜昌三峡国际机场起飞前往马来西亚古晋，宜昌⇌马来西亚古晋国际客运航线正式开通。 该航线旅客以马来西亚入境旅游团队为主，由长安航空采用波音737-800机型执飞，班期为每周五一班。去程航班16时50分从宜昌起飞，22时00分抵达古晋；返程航班23时00分从古晋起飞，次日04时05
 
 ## 正文
 
-中新网北京6月16日电 (记者 孙自法)2026年6月16日是守护几代中国人童年的“糖丸爷爷”——“人民科学家”顾方舟诞辰100周年纪念日，主题为“一生一事一方舟”的纪念展当天在北京中国科学家博物馆正式面向公众开放。
+中新网宜昌4月10日电 (张娜 钟高胜 董晓斌)随着长安航空9H8477航班于10日16时56分从湖北宜昌三峡国际机场起飞前往马来西亚古晋，宜昌⇌马来西亚古晋国际客运航线正式开通。
 
-“一生一事一方舟——‘人民科学家’顾方舟诞辰100周年纪念展”由中国科协主办，中国科协科学技术传播中心(中国科学家博物馆)、中国医学科学院北京协和医学院、中国医学科学院医学生物学研究所联合承办，展览将持续至2026年12月。
+该航线旅客以马来西亚入境旅游团队为主，由长安航空采用波音737-800机型执飞，班期为每周五一班。
 
-据介绍，脊髓灰质炎(小儿麻痹症)曾肆虐全球、严重危害儿童健康，给无数家庭带来沉重伤痛，长期困扰全球公共卫生安全。
+去程航班16时50分从宜昌起飞，22时00分抵达古晋；返程航班23时00分从古晋起飞，次日04时05分返回宜昌。
 
-新中国成立初期，中国医疗基础薄弱、防疫条件有限，根除脊灰、守护儿童健康，是亟待攻克的民生重任。
+三峡机场相关负责人表示，宜昌直飞古晋航线的开通，搭建起鄂西地区与马来西亚之间便捷的空中桥梁，不仅为两地民众旅游出行、商务交流、探亲访友提供了极大便利，更将进一步推动宜昌与东南亚国家的经贸合作、文化互动。
 
-作为医学科学家、病毒学专家和医学教育家，顾方舟怀揣医者仁心、秉持科学家担当，带领团队成功研制出脊髓灰质炎活疫苗及糖丸疫苗，成为中国脊髓灰质炎疫苗研发的奠基人和组织者，他以毕生心血守护亿万儿童健康，为中国彻底消灭本土脊髓灰质炎作出卓越贡献。
+为做好新航线首航保障工作，三峡机场与航空公司、驻场单位积极对接，全面梳理值机、安检、登机引导、行李托运等全链条流程，明确服务规范、语言礼仪及风险防控要点，确保服务标准统一到位。
 
-本次展览将全球脊灰防疫史、中国无脊灰奋斗史与顾方舟百年人生相结合，集中展现以顾方舟为代表的老一辈科学家爱国、创新、求实、奉献、协同、育人的崇高精神，全面诠释其扎根一线、躬身科研、心怀家国、放眼世界的深厚情怀与格局。
+三峡机场边检站及时掌握航班情况及人员信息，充分做好警力调配，细化各执勤岗位分工和职责；宜昌海关针对航班特点进一步推行行李物品“双预检”通关模式，持续提高旅客通关效率。
 
-展览设有六大篇章：脊灰突袭篇，梳理全球脊灰流行及近代中国防疫困境，梳理新中国防疫体系的艰难起步；医者仁心篇，追溯顾方舟立誓学医报国的纯粹初心；合力铸舟篇，记录他立足中国国情，笃定活疫苗技术路线，扎根云南艰苦攻坚、带领团队突破核心技术的奋斗历程；永恒誓言篇，讲述他创新研制糖丸疫苗、优化配送方案，守护亿万孩童的温暖担当；世界回响篇，展现他积极开展国际交流、分享中国防疫经验，助力全球公共卫生事业的大国情怀；终章最后一役，聚焦全球持续推进脊灰根除行动，免疫防控工作任重道远的现状。
+三峡机场是辐射鄂西、湘西、渝东等地的重要区域性机场。
 
-顾方舟曾任北京市科学技术协会第四届主席、中国医学科学院医学生物学研究所副所长、中国医学科学院北京协和医学院院校长，并获颁“人民科学家”国家荣誉称号、“最美奋斗者”、感动中国年度人物。
+2025年，三峡机场运营客运航线达61条，完成旅客吞吐量340.6万人次，出入境旅客12.3万人次。
 
 ## 相关推荐
 
-- 2026-06-30 05:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 05:10 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 05:15 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 05:07 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 05:19 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 05:24 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-30 05:19 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 05:31 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 05:17 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 05:18 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 05:26 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 05:27 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 05:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 05:28 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 05:12 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 05:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 05:19 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-30 05:34 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 05:16 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 05:40 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 05:36 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 05:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 05:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 05:15 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:08 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/09610525494.shtml)
-- 2026-06-30 05:27 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/337282527.shtml)
-- 2026-06-30 05:16 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/19772271513.shtml)
-- 2026-06-30 05:14 - [天道](http://www.share.minike.top/Article/details/139366321887.shtml)
-- 2026-06-30 05:21 - [第一炉香](https://www.share.kurohicncr.top/Article/details/2491496386.shtml)
-- 2026-06-30 05:13 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/443376925061.shtml)
-- 2026-06-30 05:32 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/3299942.shtml)
-- 2026-06-30 05:24 - [美人鱼](https://www.blog.minike.top/Article/details/75188.shtml)
-- 2026-06-30 05:19 - [巴西扳平比分](http://www.blog.minike.top/Article/details/1786390.shtml)
-- 2026-06-30 05:34 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/504413061501.shtml)
-- 2026-06-30 05:12 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/156154.shtml)
-- 2026-06-30 05:21 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/87591409.shtml)
-- 2026-06-30 05:21 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/9956434397.shtml)
-- 2026-06-30 05:09 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/897934839897.shtml)
-- 2026-06-30 05:27 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/12674175.shtml)
+- 2026-06-30 05:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/343381758.shtml)
+- 2026-06-30 05:35 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/119153.shtml)
+- 2026-06-30 05:26 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/011717017.shtml)
+- 2026-06-30 05:20 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/63105247.shtml)
+- 2026-06-30 05:16 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/029680253.shtml)
+- 2026-06-30 05:32 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/095643.shtml)
+- 2026-06-30 05:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/19338.shtml)
+- 2026-06-30 05:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/738655431855.shtml)
+- 2026-06-30 05:39 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/661730.shtml)
+- 2026-06-30 05:15 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/318107050027.shtml)
+- 2026-06-30 05:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/770884.shtml)
+- 2026-06-30 05:27 - [明星大侦探第一季](https://www.share.minike.top/Article/details/970520221.shtml)
+- 2026-06-30 05:18 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/55396.shtml)
+- 2026-06-30 05:29 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/534478210504.shtml)
+- 2026-06-30 05:36 - [苗族银饰](http://www.blog.minike.top/Article/details/108056406859.shtml)

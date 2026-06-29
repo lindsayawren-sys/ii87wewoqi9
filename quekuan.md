@@ -1,49 +1,52 @@
-# 龙蟠科技拟折让约8.91%配股 最多净筹约1.94亿港元
+# 英国监管机构紧急评估Anthropic最新AI模型的风险
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-龙蟠科技（02465）公布，于2026年6月16日，公司与联席配售代理订立配售协议，拟透过联席配售代理发行最多合共1500万股配售股份，每股配售股份13.09港元，较当日收市价每股H股14.37港元折让约8.91%。 假设配售股份悉数获配售，净筹约1.94亿港元，约58.69%用作金坛项目的一般营运资金；及约41.31%用作部分偿还集团于2026年8月27日到期及本金总额为人民
+据报道，英国金融监管机构正与政府网络安全机构及各大银行举行紧急磋商，以评估Anthropic最新人工智能（AI）模型带来的风险。 两名知情人士称，英国央行、金融市场行为监管局（FCA）和财政部官员正与国家网络安全中心（NCSC）进行磋商，以审查Anthropic最新AI模型所揭示的关键IT系统中的潜在漏洞。报道称，预计未来两周，英国各大银行、保险公司和交易所的代表将在与监管机构
 
 ## 正文
 
-龙蟠科技（02465）公布，于2026年6月16日，公司与联席配售代理订立配售协议，拟透过联席配售代理发行最多合共1500万股配售股份，每股配售股份13.09港元，较当日收市价每股H股14.37港元折让约8.91%。
+据报道，英国金融监管机构正与政府网络安全机构及各大银行举行紧急磋商，以评估Anthropic最新人工智能（AI）模型带来的风险。
 
-假设配售股份悉数获配售，净筹约1.94亿港元，约58.69%用作金坛项目的一般营运资金；及约41.31%用作部分偿还集团于2026年8月27日到期及本金总额为人民币1.3亿元的未偿还中国民生银行南京分行贷款。
+两名知情人士称，英国央行、金融市场行为监管局（FCA）和财政部官员正与国家网络安全中心（NCSC）进行磋商，以审查Anthropic最新AI模型所揭示的关键IT系统中的潜在漏洞。
 
-余下未偿还贷款预期将以集团现有资金偿还。
+报道称，预计未来两周，英国各大银行、保险公司和交易所的代表将在与监管机构的会议上，听取有关Claude Mythos Preview模型带来的网络安全风险的简报。
 
-责任编辑：卢昱君
+媒体上周五援引两名消息人士的话报道称，美国财政部长贝森特已就该模型的潜在网络风险，召集华尔街主要银行召开会议。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-30 05:11 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-30 05:32 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-30 05:11 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 05:35 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 05:15 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 05:15 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 05:09 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 05:16 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 05:11 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 05:07 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 05:40 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 05:22 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 05:22 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 05:14 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 05:12 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 05:23 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 05:41 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 05:33 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 05:34 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-30 05:37 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 05:37 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 05:38 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:28 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/03877026.shtml)
-- 2026-06-30 05:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/753228121869.shtml)
-- 2026-06-30 05:35 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/02588.shtml)
-- 2026-06-30 05:19 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/305610.shtml)
-- 2026-06-30 05:22 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/91568.shtml)
-- 2026-06-30 05:26 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/109857262963.shtml)
-- 2026-06-30 05:26 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/18381743.shtml)
-- 2026-06-30 05:28 - [急先锋](https://www.share.minike.top/Article/details/13725130.shtml)
-- 2026-06-30 05:12 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/53710.shtml)
-- 2026-06-30 05:15 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/43962346.shtml)
-- 2026-06-30 05:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/615039356.shtml)
-- 2026-06-30 05:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/5117705.shtml)
-- 2026-06-30 05:12 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/98638.shtml)
-- 2026-06-30 05:09 - [金牌调解](https://www.share.minike.top/Article/details/442686495.shtml)
-- 2026-06-30 05:24 - [人类...完蛋了...](https://www.share.minike.top/Article/details/0238970677.shtml)
+- 2026-06-30 05:34 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/29797.shtml)
+- 2026-06-30 05:24 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/930693.shtml)
+- 2026-06-30 05:25 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/195729.shtml)
+- 2026-06-30 05:33 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/700206635.shtml)
+- 2026-06-30 05:24 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/8031929155.shtml)
+- 2026-06-30 05:12 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/7385905387.shtml)
+- 2026-06-30 05:33 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/60263549375.shtml)
+- 2026-06-30 05:28 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/697212238.shtml)
+- 2026-06-30 05:42 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/33645251076.shtml)
+- 2026-06-30 05:17 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/864723187786.shtml)
+- 2026-06-30 05:35 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/762515785283.shtml)
+- 2026-06-30 05:24 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/186683.shtml)
+- 2026-06-30 05:21 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/813229612582.shtml)
+- 2026-06-30 05:33 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/62992.shtml)
+- 2026-06-30 05:29 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/377046483962.shtml)

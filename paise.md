@@ -1,58 +1,56 @@
-# 原油：油价录得今年最长连跌 美伊协议提振供应预期
+# 聚焦AI+生态环境监测 第六期环境新闻茶座在北京举办
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-油价录得今年以来最长连跌走势，美国与伊朗达成重开霍尔木兹海峡的协议后，市场对供应恢复的预期升温，多家华尔街大行下调油价预测。 全球基准布伦特连续第四个交易日下跌，收于每桶79美元下方，为3月初以来最低水平。 美国和伊朗准备周五正式签署临时和平协议，该协议将允许自冲突爆发以来滞留的油轮驶离这一关键水道。 在有报道称协议将允许伊朗立即出售石油后，油价扩大跌幅。 根据接近最终版本的协
+中新网北京4月10日电 (记者 阮煜琳)“AI+引领环境监测”第六期环境新闻茶座日前在北京举办。 该活动由中国环境新闻工作者协会主办。中国物资再生协会土壤修复专业委员会会长、生态环境部土壤生态环境司原一级巡视员陈永清表示，当前，我国土壤环境监测已经初步构建起体系，正在实现从摸清家底到智慧监管的跨越，为土壤污染风险管控与治理修复提供数据支撑。未来，土壤的环境监测将会逐步从数据采集
 
 ## 正文
 
-油价录得今年以来最长连跌走势，美国与伊朗达成重开霍尔木兹海峡的协议后，市场对供应恢复的预期升温，多家华尔街大行下调油价预测。
+中新网北京4月10日电 (记者 阮煜琳)“AI+引领环境监测”第六期环境新闻茶座日前在北京举办。
 
-全球基准布伦特连续第四个交易日下跌，收于每桶79美元下方，为3月初以来最低水平。
+该活动由中国环境新闻工作者协会主办。
 
-美国和伊朗准备周五正式签署临时和平协议，该协议将允许自冲突爆发以来滞留的油轮驶离这一关键水道。
+中国物资再生协会土壤修复专业委员会会长、生态环境部土壤生态环境司原一级巡视员陈永清表示，当前，我国土壤环境监测已经初步构建起体系，正在实现从摸清家底到智慧监管的跨越，为土壤污染风险管控与治理修复提供数据支撑。
 
-在有报道称协议将允许伊朗立即出售石油后，油价扩大跌幅。
+未来，土壤的环境监测将会逐步从数据采集到知识发展；从人工判断到AI自主决策，全面提升效率、精准、覆盖度，支撑耕地保护、地块的污染管控、生态修复、低碳农业高质量的发展。
 
-根据接近最终版本的协议草案，美国还势将向伊朗提供其他经济利益，包括动用3000亿美元发展基金的权利，以及对伊朗原油、石化产品及其衍生品出口的豁免。
+武汉市生态环境监控中心副主任朱润梁表示，武汉市加速推进“AI+生态环境监测”实践，构建起“天空地”一体化监测网络，实现水、气、土、声等要素全域感知。
 
-摩根士丹利和高盛双双下调了未来几个季度的油价预期。
+探索开发“生态智眼”智能体，综合低空无人机巡查，AI图像识别及遥感信息技术结合，实现环境精准治理技术支撑。
 
-高盛目前预计，波斯湾的出口到7月底将回到战前水平，较此前预测的时点提前一个月。
+整合卫星遥感与智能研判，推出农村黑臭水体“一码查询”服务。
 
-油价基本抹去了冲突期间的大部分涨幅。
+同时，搭建具备监控、研判、指挥功能的生态环境智慧监管平台。
 
 ## 相关推荐
 
-- 2026-06-30 05:10 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 05:10 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 05:32 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 05:23 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 05:09 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 05:30 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 05:08 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 05:29 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 05:29 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 05:35 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 05:26 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 05:06 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 05:40 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 05:41 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 05:12 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 05:31 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 05:24 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 05:35 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 05:22 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 05:39 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 05:17 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 05:24 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:20 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/113204324.shtml)
-- 2026-06-30 05:28 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/391769.shtml)
-- 2026-06-30 05:14 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/02263.shtml)
-- 2026-06-30 05:10 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/351640.shtml)
-- 2026-06-30 05:14 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/3211040169.shtml)
-- 2026-06-30 05:17 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/11579.shtml)
-- 2026-06-30 05:10 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/2727352936.shtml)
-- 2026-06-30 05:08 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/524467703.shtml)
-- 2026-06-30 05:19 - [小娘惹](http://www.share.minike.top/Article/details/017257.shtml)
-- 2026-06-30 05:10 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/2096685785.shtml)
-- 2026-06-30 05:20 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/2052869.shtml)
-- 2026-06-30 05:17 - [巴西绝杀日本](https://www.share.minike.top/Article/details/321701.shtml)
-- 2026-06-30 05:34 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/77908082.shtml)
-- 2026-06-30 05:30 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/024537977127.shtml)
-- 2026-06-30 05:26 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/075516464.shtml)
+- 2026-06-30 05:12 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/76716989263.shtml)
+- 2026-06-30 05:27 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/077989839.shtml)
+- 2026-06-30 05:40 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/860993810299.shtml)
+- 2026-06-30 05:24 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/9818747.shtml)
+- 2026-06-30 05:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/16076543102.shtml)
+- 2026-06-30 05:38 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/270577.shtml)
+- 2026-06-30 05:25 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/04623639301.shtml)
+- 2026-06-30 05:25 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/410886534751.shtml)
+- 2026-06-30 05:27 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/528067862.shtml)
+- 2026-06-30 05:22 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/3595882846.shtml)
+- 2026-06-30 05:26 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/54199412372.shtml)
+- 2026-06-30 05:32 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/84563115.shtml)
+- 2026-06-30 05:25 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/8799271991.shtml)
+- 2026-06-30 05:14 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/45055885653.shtml)
+- 2026-06-30 05:20 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/5242164.shtml)

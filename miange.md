@@ -1,60 +1,59 @@
-# 全国职工红色主题阅读活动在四川泸定启动
+# 2026年度微视听文艺盛典在福建漳州举行
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新网北京6月16日电 (记者 余湛奕)在庆祝中国共产党成立105周年、红军长征胜利90周年之际，“重走长征路 书香悟初心”——全国职工红色主题阅读首场活动，在四川泸定红军飞夺泸定桥纪念馆举行。全国总工会同步发布了职工红色阅读、爱国主义教育主题观影、红色思政课征集、“红心向党”职工文艺创作展演等系列活动，汇聚职工奋进“十五五”的磅礴力量。 活动在沉浸式舞台剧《七律·长征》中拉开
+中新网漳州4月11日电 (记者 张金川)4月11日，2026年度微视听文艺盛典暨中国视协网络视听艺术创作委员会(龙文)创作活动在福建省漳州市举行。来自全国微视听领域的领导、专家、创作者及行业精英齐聚一堂，搭建起交流展示、合作共赢的平台，助力漳州、龙文微视听产业高质量发展，为全省文旅经济发展大会预热添彩。 中国电视艺术家协会名誉主席、中国视协网络视听艺术创作委员会名誉会长、中央电
 
 ## 正文
 
-中新网北京6月16日电 (记者 余湛奕)在庆祝中国共产党成立105周年、红军长征胜利90周年之际，“重走长征路 书香悟初心”——全国职工红色主题阅读首场活动，在四川泸定红军飞夺泸定桥纪念馆举行。
+中新网漳州4月11日电 (记者 张金川)4月11日，2026年度微视听文艺盛典暨中国视协网络视听艺术创作委员会(龙文)创作活动在福建省漳州市举行。
 
-全国总工会同步发布了职工红色阅读、爱国主义教育主题观影、红色思政课征集、“红心向党”职工文艺创作展演等系列活动，汇聚职工奋进“十五五”的磅礴力量。
+来自全国微视听领域的领导、专家、创作者及行业精英齐聚一堂，搭建起交流展示、合作共赢的平台，助力漳州、龙文微视听产业高质量发展，为全省文旅经济发展大会预热添彩。
 
-活动在沉浸式舞台剧《七律·长征》中拉开序幕，生动再现了“大渡桥横铁索寒”的英勇历史场景。
+中国电视艺术家协会名誉主席、中国视协网络视听艺术创作委员会名誉会长、中央电视台原台长赵化勇，中国电视艺术家协会党组成员、副秘书长董涛，漳州市政协主席刘革生，福建省广播电视局副局长陈炎铭，省文联副主席曾章团，漳州市委常委、宣传部部长余向红，市政协副主席曹阳，龙文区委书记林晓强、区长洪维椿等参加。
 
-随后围绕“高原铸魂”“巴蜀传薪”“烟火砺行”“强国兴邦”四个篇章依次展开，通过阅读分享、情景诵读、诗歌朗诵、合唱等形式，展现了不同行业劳动者坚守初心、实干奉献的精神风貌。
+董涛在致辞中表示，当前新大众文艺蓬勃兴起，微视听艺术是新时代文艺百花园不可或缺的重要力量。
 
-在阅读分享环节，全国劳动模范、“时代楷模”其美多吉结合阅读《习近平与一线职工朋友们》等书籍的感悟，讲述了自己数十年如一日坚守雪线邮路的经历；三星堆博物馆讲解员程静以《古蜀文明映匠心 文脉传承担使命》为题，分享了以匠心讲好中国故事的坚守；“最美外卖配送员”赵明阳结合奔波城市、服务民生的经历，畅谈《简读长征》给予他的精神力量；四川省劳动模范冯攀龙讲述了拜师学艺、攻坚型号任务的历程。
+他希望以此次活动为契机，搭建创作交流平台，推动优质创作资源与地方文化资源深度融合，助推电视和网络视听事业繁荣发展，为建成文化强国作出新的更大贡献。
 
-活动还以视频形式呈现了身残志坚的外卖骑手熊天宇坚持在送餐间隙读书、用书香点亮逆境人生的故事，令在场观众动容。
+“人间烟火是最大的流量，真善美永远是最有力的表达。
 
-活动在《再唱山歌给党听》激昂旋律中达到高潮，全体演职人员与观众齐声合唱，深情表达听党话、跟党走的坚定信念。
+”林晓强表示，期待微视听产业能如小草般不惧风雨、向阳而生、为民发声，让每一个普通人都能被看见、被听见、被发现，让网络文艺更有温度、更接地气。
 
-据了解，全国总工会将组织开展20场“重走长征路 书香悟初心”红色主题阅读活动，弘扬伟大建党精神和长征精神，引导亿万职工在阅读中传承红色基因，为全面推进强国建设、民族复兴伟业贡献智慧和力量。
+“给龙文一个机会，还大家一片精彩！
 
 ## 相关推荐
 
-- 2026-06-30 05:31 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 05:09 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 05:08 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 05:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 05:24 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 05:34 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 05:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 05:19 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 05:12 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-30 05:14 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 05:10 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 05:26 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 05:31 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 05:24 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 05:15 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 05:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 05:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 05:41 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 05:17 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 05:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 05:26 - [巴西2比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 05:24 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 05:15 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 05:35 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 05:30 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 05:41 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 05:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:26 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/8422110173.shtml)
-- 2026-06-30 05:30 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/547473904.shtml)
-- 2026-06-30 05:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/812012.shtml)
-- 2026-06-30 05:23 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/839346508.shtml)
-- 2026-06-30 05:32 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/279273.shtml)
-- 2026-06-30 05:29 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/80760.shtml)
-- 2026-06-30 05:22 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/742591562862.shtml)
-- 2026-06-30 05:16 - [巴西2比1日本](http://www.share.minike.top/Article/details/24730072.shtml)
-- 2026-06-30 05:32 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/03912520.shtml)
-- 2026-06-30 05:26 - [巴西绝杀](https://www.blog.minike.top/Article/details/39583369167.shtml)
-- 2026-06-30 05:13 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/64924805.shtml)
-- 2026-06-30 05:22 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/369281936.shtml)
-- 2026-06-30 05:17 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/76034553.shtml)
-- 2026-06-30 05:32 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/0550626031.shtml)
-- 2026-06-30 05:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/6630606174.shtml)
+- 2026-06-30 05:22 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/8290737773.shtml)
+- 2026-06-30 05:39 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/2880531881.shtml)
+- 2026-06-30 05:25 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/537566754.shtml)
+- 2026-06-30 05:40 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/9602432316.shtml)
+- 2026-06-30 05:30 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/49810414207.shtml)
+- 2026-06-30 05:23 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/7204900.shtml)
+- 2026-06-30 05:19 - [日本淘汰](http://www.share.minike.top/Article/details/101735267609.shtml)
+- 2026-06-30 05:30 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/899793070.shtml)
+- 2026-06-30 05:27 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/88677488.shtml)
+- 2026-06-30 05:33 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/801290899.shtml)
+- 2026-06-30 05:35 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/368107511.shtml)
+- 2026-06-30 05:33 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/59706982.shtml)
+- 2026-06-30 05:14 - [天道](http://www.share.minike.top/Article/details/534077214947.shtml)
+- 2026-06-30 05:15 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/5639800.shtml)
+- 2026-06-30 05:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/93601383.shtml)

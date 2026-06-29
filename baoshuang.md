@@ -1,57 +1,56 @@
-# 002348 ，签超35亿元算力大单！暴增超130%，AI眼镜出货猛涨（附股）
+# 第九届进博会推介会在韩国首尔举办
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年全球消费级智能眼镜出货量预计突破2368.7万台。 高乐股份签35.57亿元算力合同 6月16日晚间，高乐股份（002348.SZ）公告称，公司全资子公司哈尔滨智浩科技有限公司与客户签署《服务采购协议》，合同总金额为35.57亿元（含税），合同期限为5年。 公司将为客户提供算力服务，服务费按月支付
+中新社首尔4月10日电 (记者 刘旭 金旭)第九届中国国际进口博览会(进博会)韩国推介会9日在首尔举行。与会人士普遍认为，在全球经济复苏承压、贸易环境不稳定因素增多背景下，作为重要开放平台，进博会将持续为全球贸易合作注入稳定性和新动能。中国驻韩国大使戴兵、韩国产业通商部通商协力局局长裴晙亨、韩国贸易协会(KITA)专务理事张石民出席并讲话。中国国际进口博览局副局长吴政平作进博会
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社首尔4月10日电 (记者 刘旭 金旭)第九届中国国际进口博览会(进博会)韩国推介会9日在首尔举行。
 
-2026年全球消费级智能眼镜出货量预计突破2368.7万台。
+与会人士普遍认为，在全球经济复苏承压、贸易环境不稳定因素增多背景下，作为重要开放平台，进博会将持续为全球贸易合作注入稳定性和新动能。
 
-高乐股份签35.57亿元算力合同 6月16日晚间，高乐股份（002348.SZ）公告称，公司全资子公司哈尔滨智浩科技有限公司与客户签署《服务采购协议》，合同总金额为35.57亿元（含税），合同期限为5年。
+中国驻韩国大使戴兵、韩国产业通商部通商协力局局长裴晙亨、韩国贸易协会(KITA)专务理事张石民出席并讲话。
 
-公司将为客户提供算力服务，服务费按月支付。
+中国国际进口博览局副局长吴政平作进博会推介。
 
-该合同可能在2026年度为公司增加约2亿元收入，但对利润影响有限，预计2026年度公司仍处于亏损状态。
+中国驻韩国大使馆公使衔参赞王治林主持推介会。
 
-合同存在客户需求下降、交易对手方履约能力不确定、设备采购风险、资金筹措风险等多重不确定性，公司提示投资者注意投资风险。
+戴兵在致辞中表示，中韩是搬不走的近邻，更是分不开的合作伙伴。
 
-高乐股份传统业务为玩具和互联网教育。
+两国经济联系紧密，产业链供应链深度互嵌，已成为事实上的利益共同体。
 
-2025年12月，公司控股股东变更为‌北京黎曼云图科创有限公司‌，实际控制人变更为‌王帆‌。
+进博会是韩国企业开拓中国市场的重要平台，中方欢迎韩企抢抓中国“十五五”规划开局机遇，深化对华务实合作，共享中国发展红利。
 
 ## 相关推荐
 
-- 2026-06-30 05:32 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 05:16 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 05:17 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 05:13 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 05:19 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 05:08 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 05:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 05:24 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 05:17 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 05:09 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 05:30 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 05:38 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 05:33 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 05:38 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 05:24 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 05:26 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 05:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 05:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 05:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 05:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 05:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:19 - [天道](https://www.share.kurohicncr.top/Article/details/6825200497.shtml)
-- 2026-06-30 05:33 - [毒液2](https://www.share.kurohicncr.top/Article/details/0246130773.shtml)
-- 2026-06-30 05:27 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/28002.shtml)
-- 2026-06-30 05:18 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/466225.shtml)
-- 2026-06-30 05:15 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/78692432.shtml)
-- 2026-06-30 05:24 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/46456185.shtml)
-- 2026-06-30 05:11 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/18208702.shtml)
-- 2026-06-30 05:13 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/37592707.shtml)
-- 2026-06-30 05:24 - [日本进球](https://www.share.minike.top/Article/details/200743214.shtml)
-- 2026-06-30 05:35 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/128768.shtml)
-- 2026-06-30 05:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/909269.shtml)
-- 2026-06-30 05:32 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/117290231.shtml)
-- 2026-06-30 05:26 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/715677053496.shtml)
-- 2026-06-30 05:15 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/152456129289.shtml)
-- 2026-06-30 05:21 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/88606124851.shtml)
+- 2026-06-30 05:13 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/7460073948.shtml)
+- 2026-06-30 05:26 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/33150183297.shtml)
+- 2026-06-30 05:28 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/170063418225.shtml)
+- 2026-06-30 05:37 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/80619890158.shtml)
+- 2026-06-30 05:25 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/1015451.shtml)
+- 2026-06-30 05:41 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/4085683189.shtml)
+- 2026-06-30 05:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/17697900529.shtml)
+- 2026-06-30 05:22 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/65415411647.shtml)
+- 2026-06-30 05:13 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/384866696247.shtml)
+- 2026-06-30 05:18 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/67184929.shtml)
+- 2026-06-30 05:31 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/25021565550.shtml)
+- 2026-06-30 05:36 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/530582828.shtml)
+- 2026-06-30 05:36 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/13554.shtml)
+- 2026-06-30 05:25 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/95323.shtml)
+- 2026-06-30 05:28 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/18227339586.shtml)

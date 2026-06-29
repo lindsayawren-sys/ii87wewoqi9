@@ -1,59 +1,57 @@
-# 量价齐稳 北京二手房价环比连涨4个月
+# 淡水河谷与山东海运签包运合同：将启用全球首批乙醇/甲醇三燃料远洋船
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-6月16日，国家统计局发布5月70个大中城市商品住宅销售价格变动情况。数据显示，5月，一线城市二手住宅销售价格环比上涨0.4%，连续3个月实现上涨。其中，北京环比上涨0.1%。北京商报记者梳理发现，北京自2月起便结束了二手房价连续10个月的环比下跌趋势，是四大一线城市中二手房价回暖较早的城市之一，至今已经连续4个月环比上涨。北京二手房市场“量价齐稳” 从上涨城市数量来看，5月7
+中新网圣保罗4月10日电 (记者 林春茵)总部位于巴西里约热内卢的矿业巨头淡水河谷10日披露，淡水河谷与山东海运股份有限公司(“山东海运”)已就新一批乙醇/甲醇三燃料Guaibamax型船签署包运合同，新船将由中国船舶集团青岛北海造船有限公司建造，并由中船动力(集团)有限公司负责主机研发，计划自2029年起陆续交付。与海运业普遍使用的船用燃油相比，乙醇的使用有望将温室气体排放减
 
 ## 正文
 
-6月16日，国家统计局发布5月70个大中城市商品住宅销售价格变动情况。
+中新网圣保罗4月10日电 (记者 林春茵)总部位于巴西里约热内卢的矿业巨头淡水河谷10日披露，淡水河谷与山东海运股份有限公司(“山东海运”)已就新一批乙醇/甲醇三燃料Guaibamax型船签署包运合同，新船将由中国船舶集团青岛北海造船有限公司建造，并由中船动力(集团)有限公司负责主机研发，计划自2029年起陆续交付。
 
-数据显示，5月，一线城市二手住宅销售价格环比上涨0.4%，连续3个月实现上涨。
+与海运业普遍使用的船用燃油相比，乙醇的使用有望将温室气体排放减少约90%。
 
-其中，北京环比上涨0.1%。
+这也是海运业首次在远洋船上将乙醇作为主要燃料使用。
 
-北京商报记者梳理发现，北京自2月起便结束了二手房价连续10个月的环比下跌趋势，是四大一线城市中二手房价回暖较早的城市之一，至今已经连续4个月环比上涨。
+淡水河谷与山东海运此次签署的25年期包运合同涉及新建2艘第二代Guaibamax型船，并保留新建更多船舶的选择权。
 
-北京二手房市场“量价齐稳” 从上涨城市数量来看，5月70个城市中，二手房价格环比上涨的城市数量为10个。
+第二代Guaibamax型船长340米，载重能力32.5万吨。
 
-上海、深圳二手房价格环比上涨0.6%，位居二手房价格上涨城市首位；徐州环比上涨0.3%紧随其后；北京、广州、厦门等7座城市则环比上涨0.1%。
+新船可使用乙醇、甲醇或船用燃油作为燃料，并可改造以使用液化天然气或氨作为燃料。
 
-上海易居房地产研究院副院长严跃进表示，政策层面对于限购的放开，直接带动了上海、深圳购房需求的明显释放，二手房交易量呈现稳步上升态势，市场活跃度随之提升。
+“在运输我们矿石的船舶上使用乙醇作为燃料，并采用旋翼帆以利用风能，将使淡水河谷在未来数十年全球航运业的能源转型中占据独特位置，同时也将促进行业内其他类似举措的实施。
 
-北京商报记者梳理发现，今年4月末，上海、深圳同步出台调整限购标准、上调公积金贷款额度等支持举措，有效激活本地住房消费，推动市场热度上行。
+”淡水河谷航运总监罗德里戈·贝梅里奥(Rodrigo Bermelho)表示。
 
 ## 相关推荐
 
-- 2026-06-30 05:15 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 05:18 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-30 05:13 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 05:15 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 05:08 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 05:14 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 05:34 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 05:16 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 05:06 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 05:25 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 05:17 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 05:14 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 05:11 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 05:14 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 05:24 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 05:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 05:35 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 05:30 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 05:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 05:27 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 05:15 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 05:22 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 05:41 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 05:41 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:21 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/75441.shtml)
-- 2026-06-30 05:22 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/720677333.shtml)
-- 2026-06-30 05:12 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/441827009911.shtml)
-- 2026-06-30 05:18 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/03373774.shtml)
-- 2026-06-30 05:23 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/12140687583.shtml)
-- 2026-06-30 05:18 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/80832.shtml)
-- 2026-06-30 05:31 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/16663793.shtml)
-- 2026-06-30 05:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/313993708203.shtml)
-- 2026-06-30 05:26 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/90288.shtml)
-- 2026-06-30 05:15 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/121854.shtml)
-- 2026-06-30 05:16 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/463532682.shtml)
-- 2026-06-30 05:32 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/363923.shtml)
-- 2026-06-30 05:33 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/180256223539.shtml)
-- 2026-06-30 05:28 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/977994702524.shtml)
-- 2026-06-30 05:26 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/3295400888.shtml)
+- 2026-06-30 05:31 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/940238827515.shtml)
+- 2026-06-30 05:19 - [世界杯](https://www.blog.minike.top/Article/details/63837.shtml)
+- 2026-06-30 05:29 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/794642429967.shtml)
+- 2026-06-30 05:40 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/41472484.shtml)
+- 2026-06-30 05:27 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/42127594.shtml)
+- 2026-06-30 05:18 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/024813906152.shtml)
+- 2026-06-30 05:13 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/55753.shtml)
+- 2026-06-30 05:13 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/577864271094.shtml)
+- 2026-06-30 05:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/710803918.shtml)
+- 2026-06-30 05:30 - [日本淘汰](https://www.share.minike.top/Article/details/98329.shtml)
+- 2026-06-30 05:30 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/03965.shtml)
+- 2026-06-30 05:17 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/983009421.shtml)
+- 2026-06-30 05:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/1545744.shtml)
+- 2026-06-30 05:27 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/1465063.shtml)
+- 2026-06-30 05:35 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/99614.shtml)

@@ -1,49 +1,50 @@
-# 创业板指涨超5% 重返4000点上方
+# 华为靳玉志：L3是走向完全自动驾驶的必经之路
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 16:13 来源：中国新闻网 15日，A股三大指数集体上涨，截至收盘，上证指数涨1.61%，深证成指涨3.79%，创业板指涨5.3%重返4000点上方，科创50指数涨5.12%。盘面上，电子元器件、贵金属、通信设备等行业板块涨幅居前；概念板块方面，覆铜板、电路板、光模块(CPO)概念表现亮眼。(记者 谢艺观） 责任编辑：【程春雨】
+专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日下午消息，智能电动汽车发展高层论坛（2026）在京召开。华为公司高级副总裁、引望公司CEO靳玉志出席论坛并指出：2026年是全球自动驾驶开启的元年，L3是走向完全自动驾驶的必经之路。他表示，要走好L3路径，安全性需要用公开数据量化、用户角色转变需要时间适应、监管体系建设需要经验积累。 责任编辑：郝欣煜
 
 ## 正文
 
-发布时间：2026年06月15日 16:13 来源：中国新闻网 15日，A股三大指数集体上涨，截至收盘，上证指数涨1.61%，深证成指涨3.79%，创业板指涨5.3%重返4000点上方，科创50指数涨5.12%。
+专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日下午消息，智能电动汽车发展高层论坛（2026）在京召开。
 
-盘面上，电子元器件、贵金属、通信设备等行业板块涨幅居前；概念板块方面，覆铜板、电路板、光模块(CPO)概念表现亮眼。
+华为公司高级副总裁、引望公司CEO靳玉志出席论坛并指出：2026年是全球自动驾驶开启的元年，L3是走向完全自动驾驶的必经之路。
 
-(记者 谢艺观） 责任编辑：【程春雨】
+他表示，要走好L3路径，安全性需要用公开数据量化、用户角色转变需要时间适应、监管体系建设需要经验积累。
+
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 05:28 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 05:06 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 05:33 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 05:17 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 05:09 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 05:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 05:17 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 05:24 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 05:06 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-30 05:09 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 05:26 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 05:30 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 05:31 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 05:36 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 05:12 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 05:15 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 05:14 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 05:23 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 05:38 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 05:17 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 05:30 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 05:20 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 05:18 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 05:21 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 05:37 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:33 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/8264470548.shtml)
-- 2026-06-30 05:16 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/4328549746.shtml)
-- 2026-06-30 05:13 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/77413085771.shtml)
-- 2026-06-30 05:34 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/44751061467.shtml)
-- 2026-06-30 05:16 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/946431913.shtml)
-- 2026-06-30 05:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/583761.shtml)
-- 2026-06-30 05:08 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/125439106734.shtml)
-- 2026-06-30 05:28 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/584495.shtml)
-- 2026-06-30 05:14 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/604869315.shtml)
-- 2026-06-30 05:22 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/740313312.shtml)
-- 2026-06-30 05:15 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/08032.shtml)
-- 2026-06-30 05:09 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/05947078192.shtml)
-- 2026-06-30 05:34 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/67970179882.shtml)
-- 2026-06-30 05:20 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/79224.shtml)
-- 2026-06-30 05:26 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/46760637770.shtml)
+- 2026-06-30 05:37 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/95774.shtml)
+- 2026-06-30 05:30 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/763839665586.shtml)
+- 2026-06-30 05:29 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/94996883.shtml)
+- 2026-06-30 05:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/16465846.shtml)
+- 2026-06-30 05:16 - [天道](http://www.blog.minike.top/Article/details/415291732.shtml)
+- 2026-06-30 05:12 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/68319.shtml)
+- 2026-06-30 05:21 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/774129660.shtml)
+- 2026-06-30 05:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/833012.shtml)
+- 2026-06-30 05:30 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/611908809.shtml)
+- 2026-06-30 05:19 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/6260662204.shtml)
+- 2026-06-30 05:26 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/936279893.shtml)
+- 2026-06-30 05:22 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/6294104471.shtml)
+- 2026-06-30 05:29 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/4036634982.shtml)
+- 2026-06-30 05:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/39298710703.shtml)
+- 2026-06-30 05:34 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/944354529.shtml)

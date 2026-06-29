@@ -1,57 +1,51 @@
-# 广州白云机场口岸端午假期单日客流峰值或破5.3万人次
+# A股午评：超4400只个股飘红，三大指数集体收涨，沪指盘中重回4000点
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新网广州6月16日电 (方伟彬 周笑臣 淳毅)2026年端午节假期临近，广州白云机场口岸预计将迎来出入境客流高峰。据白云出入境边防检查站16日消息，19日至21日该口岸日均客流量预计约5.2万人次，同比增长15%，峰值或突破5.3万人次。 多重利好正推高此轮客流。近期，中国对俄免签政策延长至2027年底，柬埔寨自6月15日起对华试行免签政策，加之2026年美加墨世界杯开赛及广
+A股午评：超4400只个股飘红，三大指数集体收涨，沪指盘中重回4000点，券商板块大涨，海运、黄金股下跌 10日，A股三大指数高开，沪指盘中重回4000点，此后有所回落。截至午间收盘，沪指涨0.63%，深证成指涨1.74%，创业板指涨2.62%。全市半日成交额1.51万亿，超4400只个股上涨。 板块方面，动力电池产业链、券商股爆发，电工电网、能源设备、电脑电子硬件、半导体板块
 
 ## 正文
 
-中新网广州6月16日电 (方伟彬 周笑臣 淳毅)2026年端午节假期临近，广州白云机场口岸预计将迎来出入境客流高峰。
+A股午评：超4400只个股飘红，三大指数集体收涨，沪指盘中重回4000点，券商板块大涨，海运、黄金股下跌 10日，A股三大指数高开，沪指盘中重回4000点，此后有所回落。
 
-据白云出入境边防检查站16日消息，19日至21日该口岸日均客流量预计约5.2万人次，同比增长15%，峰值或突破5.3万人次。
+截至午间收盘，沪指涨0.63%，深证成指涨1.74%，创业板指涨2.62%。
 
-多重利好正推高此轮客流。
+全市半日成交额1.51万亿，超4400只个股上涨。
 
-近期，中国对俄免签政策延长至2027年底，柬埔寨自6月15日起对华试行免签政策，加之2026年美加墨世界杯开赛及广州国际龙舟邀请赛举办，跨境观赛、旅游探亲需求旺盛。
-
-假期前后，口岸还将新增、加密广州往返仰光、德黑兰等地航班，日均国际客运航班预计超340架次。
-
-目前，广东正值强降雨集中期。
-
-白云边检站提醒旅客密切关注天气与航班动态，检查护照有效期(建议6个月以上)，并提前了解目的地入境政策。
-
-针对客流与天气双重考验，该站已优化警力部署，加强与口岸联检单位协作，并制定大面积航班延误应急预案，为滞留旅客提供“专人引导、专用通道、专区候检”等服务，确保通关安全顺畅。
+板块方面，动力电池产业链、券商股爆发，电工电网、能源设备、电脑电子硬件、半导体板块涨幅居前；航运、贵金属、光通信、高送转概念低迷。
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 05:31 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 05:13 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 05:19 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 05:14 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 05:26 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 05:08 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 05:24 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 05:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 05:11 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 05:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 05:26 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 05:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 05:24 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 05:29 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 05:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 05:35 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 05:21 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 05:25 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 05:24 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 05:14 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 05:18 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 05:27 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 05:28 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:14 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/320939396959.shtml)
-- 2026-06-30 05:27 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/72065868.shtml)
-- 2026-06-30 05:26 - [日本反击率先破门](https://www.share.minike.top/Article/details/54649687.shtml)
-- 2026-06-30 05:25 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/6819083590.shtml)
-- 2026-06-30 05:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/976503197589.shtml)
-- 2026-06-30 05:25 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/9269480319.shtml)
-- 2026-06-30 05:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/68943209.shtml)
-- 2026-06-30 05:06 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/515608705.shtml)
-- 2026-06-30 05:31 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/794227.shtml)
-- 2026-06-30 05:06 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/981735033912.shtml)
-- 2026-06-30 05:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/1732907410.shtml)
-- 2026-06-30 05:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/280405522.shtml)
-- 2026-06-30 05:17 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/24560227246.shtml)
-- 2026-06-30 05:17 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/334701.shtml)
-- 2026-06-30 05:19 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/65668097.shtml)
+- 2026-06-30 05:23 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/93640133.shtml)
+- 2026-06-30 05:33 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/4383500932.shtml)
+- 2026-06-30 05:16 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/792184586.shtml)
+- 2026-06-30 05:14 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/789228.shtml)
+- 2026-06-30 05:22 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/617067992.shtml)
+- 2026-06-30 05:28 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/50216.shtml)
+- 2026-06-30 05:14 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/51301607.shtml)
+- 2026-06-30 05:18 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/79779.shtml)
+- 2026-06-30 05:19 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/2762789.shtml)
+- 2026-06-30 05:41 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/2983540495.shtml)
+- 2026-06-30 05:34 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/25710246.shtml)
+- 2026-06-30 05:18 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/970655.shtml)
+- 2026-06-30 05:21 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/14764247062.shtml)
+- 2026-06-30 05:34 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/169960963.shtml)
+- 2026-06-30 05:19 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/227528199065.shtml)

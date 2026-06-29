@@ -1,57 +1,58 @@
-# 重庆小面协会发声：地域公共品牌不支持独家垄断
+# 苹果正为即将推出的智能眼镜测试四种设计方案
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-针对“遇见小面”起诉“南阳渝见小面”商标纠纷一事，重庆市小面协会15日发布倡议，表示支持企业合法合规商标维权，并认可撤诉处理。 协会认为，地域类公共名称，应服务于整个行业发展：依据商标法相关规定，“渝”为重庆地域行政区划简称，“小面”属于餐饮通用商品名称，二者均属于公共资源，不具备商标独占权属，业内主体可依规善意、合理使用。重庆小面是承载巴渝民俗文脉的地域公共品牌，归属全体行业
+据科技新闻记者马克·古尔曼消息，苹果计划在2027年发售首款智能眼镜，有可能在今年年底正式亮相。 古尔曼一直持续跟进该公司智能眼镜项目的战略进展，而如今他披露了更多有关产品外观的细节——他表示苹果正在测试四种设计款式，最终上市时可能会推出其中部分款式，也可能全部推出。 据透露，这些设计包括：大号矩形镜框、纤薄矩形镜框（与CEO蒂姆·库克佩戴的眼镜款式相近）、偏大的椭圆形或圆形镜
 
 ## 正文
 
-针对“遇见小面”起诉“南阳渝见小面”商标纠纷一事，重庆市小面协会15日发布倡议，表示支持企业合法合规商标维权，并认可撤诉处理。
+据科技新闻记者马克·古尔曼消息，苹果计划在2027年发售首款智能眼镜，有可能在今年年底正式亮相。
 
-协会认为，地域类公共名称，应服务于整个行业发展：依据商标法相关规定，“渝”为重庆地域行政区划简称，“小面”属于餐饮通用商品名称，二者均属于公共资源，不具备商标独占权属，业内主体可依规善意、合理使用。
+古尔曼一直持续跟进该公司智能眼镜项目的战略进展，而如今他披露了更多有关产品外观的细节——他表示苹果正在测试四种设计款式，最终上市时可能会推出其中部分款式，也可能全部推出。
 
-重庆小面是承载巴渝民俗文脉的地域公共品牌，归属全体行业从业者，倡导全行业共享，不支持单一企业独家垄断。
+据透露，这些设计包括：大号矩形镜框、纤薄矩形镜框（与CEO蒂姆·库克佩戴的眼镜款式相近）、偏大的椭圆形或圆形镜框，以及偏小的椭圆形或圆形镜框。
 
-协会还建议相关部门进一步细化裁判与适用标准，明晰行为界定边界。
+苹果同时也在考虑多种配色，包含黑色、海蓝色与浅棕色。
 
-一方面甄别恶意侵权、仿冒品牌等行为，另一方面认可小微商户对地域文化符号、品类名称的正常使用，兼顾品牌方知识产权与小微经营主体的合法权益。
+在某些方面，这款眼镜相比苹果此前的宏大计划有所收敛——苹果曾计划推出多款混合现实与增强现实设备，而这一规划已因产品多次延期、以及Vision Pro市场反响平淡而遭遇挫折。
 
-据媒体此前报道，近日，河南南阳一家“渝见小面”餐饮店被连锁品牌“遇见小面”起诉商标侵权，对方律师称撤诉需赔偿七八千元，“渝见小面”负责人哭诉“我八块钱一碗的面，至少得卖1000碗，1000碗还有成本”。
+与此同时，这款眼镜听起来与Meta旗下的雷朋智能眼镜更为接近。
 
-此事随之引发争议。
+它不会配备显示屏，但支持用户拍摄照片和视频（苹果或将采用椭圆形摄像头镜片）、接听电话、播放音乐，并与备受期待的升级版Siri进行交互。
 
-6月13日，“遇见小面”发布关于商标事件的说明，称已第一时间沟通撤销对“渝见小面”的诉讼，并反思商标维权行动的流程。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 05:27 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 05:32 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 05:11 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 05:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 05:14 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 05:26 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 05:25 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 05:08 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 05:06 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 05:23 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 05:08 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 05:14 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 05:22 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 05:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 05:17 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 05:12 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 05:12 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 05:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 05:26 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 05:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 05:15 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 05:16 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 05:32 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:16 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/62584.shtml)
-- 2026-06-30 05:11 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/434252655.shtml)
-- 2026-06-30 05:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/704546.shtml)
-- 2026-06-30 05:09 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/1381458074.shtml)
-- 2026-06-30 05:06 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/3604251758.shtml)
-- 2026-06-30 05:28 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/524403794.shtml)
-- 2026-06-30 05:20 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/8762036209.shtml)
-- 2026-06-30 05:12 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/925525332.shtml)
-- 2026-06-30 05:26 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/83261828773.shtml)
-- 2026-06-30 05:15 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/04372825623.shtml)
-- 2026-06-30 05:29 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/80180251924.shtml)
-- 2026-06-30 05:10 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/65703.shtml)
-- 2026-06-30 05:35 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/043281195147.shtml)
-- 2026-06-30 05:27 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/277146.shtml)
-- 2026-06-30 05:24 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/611900874105.shtml)
+- 2026-06-30 05:15 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/871467961.shtml)
+- 2026-06-30 05:14 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/47318032234.shtml)
+- 2026-06-30 05:20 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/334741.shtml)
+- 2026-06-30 05:30 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/7693637546.shtml)
+- 2026-06-30 05:17 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/98326541007.shtml)
+- 2026-06-30 05:26 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/49388195.shtml)
+- 2026-06-30 05:28 - [月亮](http://www.share.minike.top/Article/details/7179930794.shtml)
+- 2026-06-30 05:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/73044291537.shtml)
+- 2026-06-30 05:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/563387528.shtml)
+- 2026-06-30 05:38 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/394685.shtml)
+- 2026-06-30 05:15 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/8903842169.shtml)
+- 2026-06-30 05:16 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/287181151938.shtml)
+- 2026-06-30 05:39 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/918954833.shtml)
+- 2026-06-30 05:25 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/42616045.shtml)
+- 2026-06-30 05:28 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/95304.shtml)

@@ -1,60 +1,58 @@
-# 中国地震局：青海海西6.3级地震为逆冲型破裂 余震还会持续一段时间
+# 券商龙头一季度利润破百亿？高业绩凸显券商板块关注价值
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-中新网北京6月16日电 (记者 孙自法)中国地震局6月16日晚向媒体通报，当天下午在青海海西州发生的6.3级地震，震源机制解显示为逆冲型破裂，余震活动还会持续一段时间。 根据中国地震台网中心组织专家对青海海西附近地震活动进行研究分析，此次海西6.3级地震位于青藏高原东北缘祁连山地震带南缘，地处祁连地块与柴达木地块的挤压逆冲边界带上，是青藏高原向大陆内部扩展的前缘部位，距离最近的
+4月9日盘后，某头部券商披露一季度业绩快报，2026年一季度实现净利润102.16亿元。券商单季度净利破百亿元，在券业史上较为罕见，从2025年全年业绩来看，目前公布的也仅7家券商净利超过百亿元。对于今年一季度券商业绩，多家券商分析师均表达了乐观预期，这也让券商板块再次成为关注焦点。（资料参考：证券时报，《券业罕见！这家券商单季度净利，破百亿》，20260409） 一季度券商板
 
 ## 正文
 
-中新网北京6月16日电 (记者 孙自法)中国地震局6月16日晚向媒体通报，当天下午在青海海西州发生的6.3级地震，震源机制解显示为逆冲型破裂，余震活动还会持续一段时间。
+4月9日盘后，某头部券商披露一季度业绩快报，2026年一季度实现净利润102.16亿元。
 
-根据中国地震台网中心组织专家对青海海西附近地震活动进行研究分析，此次海西6.3级地震位于青藏高原东北缘祁连山地震带南缘，地处祁连地块与柴达木地块的挤压逆冲边界带上，是青藏高原向大陆内部扩展的前缘部位，距离最近的断层是宗务隆山断裂，距离约3公里。
+券商单季度净利破百亿元，在券业史上较为罕见，从2025年全年业绩来看，目前公布的也仅7家券商净利超过百亿元。
 
-地震专家根据历史地震、地震序列衰减特征、地震前兆资料综合会商初步判断，此次地震的余震活动还会持续一段时间，地震部门将密切跟踪序列发展，滚动研判后续地震趋势。
+对于今年一季度券商业绩，多家券商分析师均表达了乐观预期，这也让券商板块再次成为关注焦点。
 
-此次青海海西州6.3级地震震中附近200公里范围内，1900年以来共发生6级以上地震7次。
+（资料参考：证券时报，《券业罕见！
 
-这些地震中，震级最大的为1962年5月21日青海海西州都兰县6.8级地震(距离约87公里)，时间最近的为2022年3月26日青海海西州德令哈市6.0级地震(距离约174公里)，空间距离最近的为2008年11月10日青海海西州直辖区6.3级地震(距离约24公里)。
+这家券商单季度净利，破百亿》，20260409） 一季度券商板块高增长可期 在券商业绩超预期背后，是一季度沪深两市股票基金单边交易额较上年同期大幅上升。
 
-目前，该地震序列依然持续活动，截至6月16日19时，共记录到3.0级及以上余震9次，其中3.0级-3.9级地震7次，4.0级以上地震2次，分别为17时42分4.4级和17时45分4.9级地震。
+据统计，一季度市场成交额同比显著增长，一季度股基成交额累计176.24万亿元，同比增长74.2%；日均股基成交额3.15万亿元，同比增长77.3%。
 
-据中国地震台网测定，北京时间6月16日17时6分在青海海西州直辖区(北纬37.8度，东经95.56度)发生6.3级地震，震源深度10公里。
+一季度末两融余额为2.61万亿元，同比增长36%。
 
-震中10公里范围内平均海拔约4302米。
+（资料参考：证券时报，《券业罕见！
 
 ## 相关推荐
 
-- 2026-06-30 05:30 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 05:32 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 05:27 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 05:10 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 05:09 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 05:23 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 05:07 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 05:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 05:22 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 05:14 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 05:34 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 05:09 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 05:13 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 05:25 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 05:22 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 05:26 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 05:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 05:21 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 05:17 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 05:18 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 05:32 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 05:32 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 05:22 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 05:39 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 05:41 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 05:16 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:31 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/78250750422.shtml)
-- 2026-06-30 05:23 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/83695189184.shtml)
-- 2026-06-30 05:15 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/405491.shtml)
-- 2026-06-30 05:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/07277518532.shtml)
-- 2026-06-30 05:16 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/433154660760.shtml)
-- 2026-06-30 05:21 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/443678489.shtml)
-- 2026-06-30 05:26 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/038435.shtml)
-- 2026-06-30 05:23 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/5145576635.shtml)
-- 2026-06-30 05:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/62229742233.shtml)
-- 2026-06-30 05:10 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/245958280.shtml)
-- 2026-06-30 05:28 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/90718191.shtml)
-- 2026-06-30 05:06 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/560270849370.shtml)
-- 2026-06-30 05:22 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/5422230.shtml)
-- 2026-06-30 05:26 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/457887.shtml)
-- 2026-06-30 05:25 - [女心理师](https://www.share.minike.top/Article/details/667211.shtml)
+- 2026-06-30 05:27 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/30386403288.shtml)
+- 2026-06-30 05:36 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/409420455163.shtml)
+- 2026-06-30 05:28 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/295686.shtml)
+- 2026-06-30 05:39 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/170587791207.shtml)
+- 2026-06-30 05:35 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/451449.shtml)
+- 2026-06-30 05:20 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/323936.shtml)
+- 2026-06-30 05:13 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/272842723.shtml)
+- 2026-06-30 05:24 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/5577097.shtml)
+- 2026-06-30 05:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/3394241336.shtml)
+- 2026-06-30 05:15 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/17797.shtml)
+- 2026-06-30 05:26 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/220970.shtml)
+- 2026-06-30 05:18 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/63213721772.shtml)
+- 2026-06-30 05:27 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/117753126413.shtml)
+- 2026-06-30 05:29 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/56064.shtml)
+- 2026-06-30 05:40 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/771800.shtml)

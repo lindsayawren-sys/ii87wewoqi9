@@ -1,59 +1,60 @@
-# 溜溜梅IPO：谁在敲钟，谁在数钱？
+# （八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-来源：AI蓝媒汇 作者 | 刘杰 编辑 |魏晓 你没事吧？没事就吃的那个溜溜梅，终于圆了上市梦。 6月15日上午，港交所敲钟现场。溜溜梅创始人杨帆夫妇站在C位，身后一群高管和投资人，所有人不约而同地对着镜头比出“6”的手势，笑容格外灿烂。 锣声刚落，溜溜梅开盘即大涨118%，截至收盘，其股价报收128港元/股，当日涨幅高达193.71%，市值定格在100.9亿港元。 创始人杨帆
+中新社福建宁德4月11日电 题：探访“中国刀剪之乡”柘荣：百年铁火淬新智 中新社记者 吕巧琴 叶茂 “叮当，叮当。”还未踏入位于福建省宁德市柘荣县城区溪坪上街的传统剪刀制造技艺工坊，清脆而有力的铁锤锻打声已穿门而出。坊内，柘荣剪刀制造技艺福建省级非遗代表性传承人林龙醒手中铁锤起落之间，一把剪刀的雏形在火花与汗水中显现。 他11日接受中新社记者采访时说，从下钢到成品，一把剪刀要经
 
 ## 正文
 
-来源：AI蓝媒汇 作者 | 刘杰 编辑 |魏晓 你没事吧？
+中新社福建宁德4月11日电 题：探访“中国刀剪之乡”柘荣：百年铁火淬新智 中新社记者 吕巧琴 叶茂 “叮当，叮当。
 
-没事就吃的那个溜溜梅，终于圆了上市梦。
+”还未踏入位于福建省宁德市柘荣县城区溪坪上街的传统剪刀制造技艺工坊，清脆而有力的铁锤锻打声已穿门而出。
 
-6月15日上午，港交所敲钟现场。
+坊内，柘荣剪刀制造技艺福建省级非遗代表性传承人林龙醒手中铁锤起落之间，一把剪刀的雏形在火花与汗水中显现。
 
-溜溜梅创始人杨帆夫妇站在C位，身后一群高管和投资人，所有人不约而同地对着镜头比出“6”的手势，笑容格外灿烂。
+他11日接受中新社记者采访时说，从下钢到成品，一把剪刀要经过20多道工序，每一步都不能省略，差一点火候，剪刀的韧性就会不足。
 
-锣声刚落，溜溜梅开盘即大涨118%，截至收盘，其股价报收128港元/股，当日涨幅高达193.71%，市值定格在100.9亿港元。
+据《柘荣县志》记载，雍正年间，柘荣就有能工巧匠用生铁加钢刃锻打剪刀，特别是在下钢、淬火、水磨三道传统技艺方面形成了独特的柘荣剪刀制造技艺，至今已约三百年。
 
-创始人杨帆夫妇合计持有公司约75%的股份，以此计算，二人身家已飙升至约75亿港元。
+溪坪街是柘荣剪刀的发源与传承之地，这里流传着一句民谣：“上街打剪刀，中街生意仔，下街读书郎”。
 
-这一刻，杨氏夫妇盼了足足有7年。
+今年57岁的林龙醒自小跟随爷爷和父亲学习打剪刀。
 
-早在2019年，溜溜梅就向A股发起冲击，此后辗转深交所、港交所，四次递表，均铩羽而归。
+他介绍，柘荣刀剪延续传统手工艺，始终讲究精工细雕，镶嵌钢刃要均匀，磨工精细，雕刻精巧。
 
 ## 相关推荐
 
-- 2026-06-30 05:35 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 05:21 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 05:35 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 05:20 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 05:13 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 05:13 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 05:34 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 05:20 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 05:33 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 05:07 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 05:20 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 05:33 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 05:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 05:34 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 05:14 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 05:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 05:24 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 05:28 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 05:34 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 05:41 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 05:36 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 05:15 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 05:33 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 05:17 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 05:38 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 05:13 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 05:31 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/20149.shtml)
-- 2026-06-30 05:21 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/71179308513.shtml)
-- 2026-06-30 05:13 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/297715011.shtml)
-- 2026-06-30 05:23 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/857701996309.shtml)
-- 2026-06-30 05:17 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/8294318138.shtml)
-- 2026-06-30 05:17 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/01665.shtml)
-- 2026-06-30 05:19 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/22989190243.shtml)
-- 2026-06-30 05:08 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/78999918235.shtml)
-- 2026-06-30 05:34 - [沙丘](https://www.share.minike.top/Article/details/39413614.shtml)
-- 2026-06-30 05:30 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/365744.shtml)
-- 2026-06-30 05:30 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/970384852.shtml)
-- 2026-06-30 05:23 - [小娘惹](http://www.share.kurohicncr.top/Article/details/600996775.shtml)
-- 2026-06-30 05:31 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/498875.shtml)
-- 2026-06-30 05:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/3118399.shtml)
-- 2026-06-30 05:14 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/24738395870.shtml)
+- 2026-06-30 05:18 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/7987096.shtml)
+- 2026-06-30 05:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/295390363281.shtml)
+- 2026-06-30 05:40 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.kurohicncr.top/Article/details/86457.shtml)
+- 2026-06-30 05:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/565194525.shtml)
+- 2026-06-30 05:12 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/2463455231.shtml)
+- 2026-06-30 05:33 - [金刚川](https://www.share.minike.top/Article/details/457349356.shtml)
+- 2026-06-30 05:35 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/4600205248.shtml)
+- 2026-06-30 05:36 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/890019273.shtml)
+- 2026-06-30 05:31 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/420200.shtml)
+- 2026-06-30 05:35 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/886740871.shtml)
+- 2026-06-30 05:14 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/656706.shtml)
+- 2026-06-30 05:32 - [送你一朵小红花](http://www.share.minike.top/Article/details/9571272704.shtml)
+- 2026-06-30 05:39 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/7884476.shtml)
+- 2026-06-30 05:29 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/200651969.shtml)
+- 2026-06-30 05:26 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/403978.shtml)

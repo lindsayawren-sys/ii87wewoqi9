@@ -1,58 +1,59 @@
-# 明日停牌！尾盘117万急拉涨停，创业板ETF富国疑现“乌龙指”
+# 文件显示：迪拜将外国航班限制至5月31日 印度航司受冲击最大
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日尾盘，创业板ETF富国迅速拉升，收盘涨停，涨幅达20.03%，二级市场溢价率达14.18%。 今日晚间，基金管理人紧急发布溢价风险提示公告及停复牌公告。公告显示，该基金将于明日开市起停牌，并在10：30起复牌，停牌期间本基金赎回业务照常办理。 据财联社，Choice数据显示，尾盘时快速推高该基金二
+文件显示，受伊朗局势影响，迪拜已限制外国航空公司在5月31日前每日仅可运营一班飞往其机场的航班，这引发印度航空公司的营收损失担忧——此前印度航司计划飞往迪拜的航班数量远超其他国家航司。 据印度航空公司联合会（FIA）3月31日致印度政府的信函，该机构代表靛蓝航空（IndiGo）、印度航空、香料航空（SpiceJet）等头部航司，已请求印度政府推动迪拜当局取消此项限制；若未能实现
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+文件显示，受伊朗局势影响，迪拜已限制外国航空公司在5月31日前每日仅可运营一班飞往其机场的航班，这引发印度航空公司的营收损失担忧——此前印度航司计划飞往迪拜的航班数量远超其他国家航司。
 
-6月15日尾盘，创业板ETF富国迅速拉升，收盘涨停，涨幅达20.03%，二级市场溢价率达14.18%。
+据印度航空公司联合会（FIA）3月31日致印度政府的信函，该机构代表靛蓝航空（IndiGo）、印度航空、香料航空（SpiceJet）等头部航司，已请求印度政府推动迪拜当局取消此项限制；若未能实现，则考虑对阿联酋航空、迪拜航空（flydubai）等迪拜航司采取对等反制措施。
 
-今日晚间，基金管理人紧急发布溢价风险提示公告及停复牌公告。
+自去年印巴两国因军事紧张关系禁止印度航司使用巴基斯坦领空后，印度航司已面临燃油价格上涨、飞往西方目的地航线航程拉长带来的财务压力。
 
-公告显示，该基金将于明日开市起停牌，并在10：30起复牌，停牌期间本基金赎回业务照常办理。
+迪拜机场3月27日致各航司的非公开邮件显示，4月20日至5月31日夏季运营期间，境外航司每日仅可在迪拜国际机场（DXB，全球最繁忙国际航空枢纽）及规模较小的阿勒马克图姆国际机场（DWC）各运营一班往返航班，此项限制是此前冲突爆发后相关管控措施的延续。
 
-据财联社，Choice数据显示，尾盘时快速推高该基金二级市场成交价的一笔交易，成交金额仅为117.2万元，市场猜测或为交易员操作失误所致。
+邮件称：“在运力条件允许增班之前，各航司仍将被限制为每日一班航班……若运力充足，将另行分配额外时刻。
 
-另据《中国基金报》报道，有市场观察人士指出，“一个大户手抖可能就会造成这个结果，这只ETF是收盘前最后一笔拉涨，做市商还来不及修正。
+” 印度航空公司联合会向印度政府表示，阿联酋航空、迪拜航空等迪拜本土航司并未受此限制约束，由此形成不公平竞争环境，或将给印度航司带来“巨额”营收损失。
 
-”明天开盘后，溢价就会被抹平，大概率开盘先跌停，投资者“手抖”交易带来的损失也会体现出来。
+迪拜机场及迪拜媒体办公室未回应多次置评请求。
 
-近年来，随着ETF投资者增多，ETF“乌龙指”也愈发常见。
+迪拜航空称其航班时刻已获相关部门批准，阿联酋航空则未予回应。
 
 ## 相关推荐
 
-- 2026-06-30 05:08 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 05:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 05:30 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 05:35 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 05:31 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 05:29 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 05:22 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 05:28 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 05:24 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 05:17 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 05:11 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 05:09 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 05:33 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 05:16 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 05:40 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 05:27 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 05:40 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 05:29 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 05:12 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 05:32 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 05:21 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 05:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 05:38 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 05:38 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 05:35 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:20 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/7123329576.shtml)
-- 2026-06-30 05:31 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/14320340756.shtml)
-- 2026-06-30 05:20 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/276800.shtml)
-- 2026-06-30 05:12 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/27836567.shtml)
-- 2026-06-30 05:28 - [一生一世](https://www.share.minike.top/Article/details/429009.shtml)
-- 2026-06-30 05:16 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/130660564278.shtml)
-- 2026-06-30 05:12 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/93366414.shtml)
-- 2026-06-30 05:34 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/1293028.shtml)
-- 2026-06-30 05:12 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/2879167.shtml)
-- 2026-06-30 05:24 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/050870740.shtml)
-- 2026-06-30 05:08 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/289626464858.shtml)
-- 2026-06-30 05:06 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/594873.shtml)
-- 2026-06-30 05:15 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/290811166505.shtml)
-- 2026-06-30 05:22 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/726993926138.shtml)
-- 2026-06-30 05:11 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/36697200458.shtml)
+- 2026-06-30 05:40 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/0994724142.shtml)
+- 2026-06-30 05:19 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/812768.shtml)
+- 2026-06-30 05:35 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/94623420099.shtml)
+- 2026-06-30 05:25 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/99063450.shtml)
+- 2026-06-30 05:30 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/23684.shtml)
+- 2026-06-30 05:35 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/460689957128.shtml)
+- 2026-06-30 05:32 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/5851146.shtml)
+- 2026-06-30 05:29 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/1200133.shtml)
+- 2026-06-30 05:18 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/4053938.shtml)
+- 2026-06-30 05:15 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/53585059380.shtml)
+- 2026-06-30 05:18 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/7326862784.shtml)
+- 2026-06-30 05:34 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/952022628278.shtml)
+- 2026-06-30 05:36 - [《贺子珍》](https://www.share.minike.top/Article/details/841523.shtml)
+- 2026-06-30 05:40 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/26782.shtml)
+- 2026-06-30 05:39 - [斗破苍穹](https://www.blog.minike.top/Article/details/7283412407.shtml)

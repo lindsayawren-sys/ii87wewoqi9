@@ -1,56 +1,61 @@
-# 跨界“追光”的磷化铟公司实际已资不抵债，宿迁联盛及公司董秘信披违规被上交所监管警示
+# 直击CMEF：人工智能医疗应用引关注
 
-> 更新时间：2026-06-30 05:36:03 UTC+8
+> 更新时间：2026-06-30 05:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 6月16日晚间，宿迁联盛（603065.SH）发布公告称，公司及时任董事会秘书谢龙锐收到上海证券交易所《关于对宿迁联盛科技股份有限公司及有关责任人予以监管警示的决定》。上交所认定，公司此前披露的设立合资公司涉足磷化铟衬底业务的相关信息存在不准确、不完整，风险提示不充分等问题，可能误导投资者决策。 监管警示决定书显示，此次违规源于
+中新网上海4月12日电 (记者 陈静)正在上海举行的第93届中国国际医疗器械博览会(CMEF)上，多款人工智能医疗应用吸引众多目光。 由GE医疗中国团队主导研发、全球资源协同的创新成果—— Allia Celeo Max朱雀旗舰型血管造影系统(下称：朱雀)亮相。作为一款创新型碳纤维大孔径介入平台，朱雀除了在悬吊结构或碳纤维大孔径等硬件上实现突破，还深度融合AI技术。其AI驱动的
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 6月16日晚间，宿迁联盛（603065.SH）发布公告称，公司及时任董事会秘书谢龙锐收到上海证券交易所《关于对宿迁联盛科技股份有限公司及有关责任人予以监管警示的决定》。
+中新网上海4月12日电 (记者 陈静)正在上海举行的第93届中国国际医疗器械博览会(CMEF)上，多款人工智能医疗应用吸引众多目光。
 
-上交所认定，公司此前披露的设立合资公司涉足磷化铟衬底业务的相关信息存在不准确、不完整，风险提示不充分等问题，可能误导投资者决策。
+由GE医疗中国团队主导研发、全球资源协同的创新成果—— Allia Celeo Max朱雀旗舰型血管造影系统(下称：朱雀)亮相。
 
-监管警示决定书显示，此次违规源于公司6月9日发布的一则跨界投资公告。
+作为一款创新型碳纤维大孔径介入平台，朱雀除了在悬吊结构或碳纤维大孔径等硬件上实现突破，还深度融合AI技术。
 
-当日，宿迁联盛宣布拟与自然人朱蓉辉及汇智光芯人工智能科技（苏州）有限公司共同设立合资公司，从事磷化铟衬底的研发、生产与销售。
+其AI驱动的影像链与路径预测能力，让医生能够在介入手术中“看得清、做得准、控得稳”。
 
-公告称，该项目一期固定投资1亿元，建设周期10个月，达产后年产能12万片4-6英寸磷化铟衬底；二期预计追加投资2亿元，产能将扩充至40万片/年。
+据悉，朱雀将AI无缝嵌入到介入诊疗的全流程，实现了从“看见”到“看清”，再到“预见”的跨越。
 
-磷化铟作为光通信、激光雷达等领域的关键半导体材料，近期成为资本市场高度关注的热点概念。
+AI驱动的影像链可精准还原解剖细节；AI赋能的影像融合可将多源影像与数字减影血管造影(DSA)影像精准融合，为术者提供“导航地图”；AI驱动的路径预测能前瞻性地模拟血管栓塞后，可能对周围正常组织或远端血管带来的血流影响。
 
-然而，这份看似前景广阔的公告随即引发上交所的快速问询。
+来自重庆医科大学附属第一医院的专家吕发金教授告诉记者，这让医生在术前就能对不同方案的风险和效果进行评估，选择最优路径，以提升治疗的精准性与安全性。
 
-在监管追问下，宿迁联盛于6月13日披露的回复公告才暴露了诸多关键问题。
+“AI的深度融合实现智能剂量调节，可根据患者体厚自动优化图像，有效缩短了年轻医生的学习曲线。
 
 ## 相关推荐
 
-- 2026-06-30 05:22 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 05:27 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 05:35 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 05:08 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 05:11 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 05:07 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 05:09 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 05:27 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 05:17 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 05:23 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 05:20 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 05:20 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 05:21 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 05:22 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 05:22 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 05:34 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 05:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 05:37 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 05:32 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 05:26 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 05:13 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 05:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 05:28 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 05:20 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 05:37 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:08 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/9943490438.shtml)
-- 2026-06-30 05:20 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/25543152789.shtml)
-- 2026-06-30 05:11 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/56119901022.shtml)
-- 2026-06-30 05:27 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/974745.shtml)
-- 2026-06-30 05:13 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/983367795703.shtml)
-- 2026-06-30 05:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/641165312865.shtml)
-- 2026-06-30 05:31 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/7589048413.shtml)
-- 2026-06-30 05:22 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/48723.shtml)
-- 2026-06-30 05:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/320202.shtml)
-- 2026-06-30 05:15 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/1808171251.shtml)
-- 2026-06-30 05:27 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/92526044.shtml)
-- 2026-06-30 05:16 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/84763652703.shtml)
-- 2026-06-30 05:14 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/5204910.shtml)
-- 2026-06-30 05:34 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/792299139.shtml)
-- 2026-06-30 05:17 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/680830.shtml)
+- 2026-06-30 05:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/8846100.shtml)
+- 2026-06-30 05:22 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/33664497135.shtml)
+- 2026-06-30 05:27 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/5049693.shtml)
+- 2026-06-30 05:27 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/2017818.shtml)
+- 2026-06-30 05:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/5367315.shtml)
+- 2026-06-30 05:23 - [明星大侦探第一季](https://www.share.minike.top/Article/details/15992902393.shtml)
+- 2026-06-30 05:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/4575367216.shtml)
+- 2026-06-30 05:28 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/67235.shtml)
+- 2026-06-30 05:33 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/42664.shtml)
+- 2026-06-30 05:37 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/8761904.shtml)
+- 2026-06-30 05:19 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/815598131.shtml)
+- 2026-06-30 05:25 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/86900571738.shtml)
+- 2026-06-30 05:30 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/668219714.shtml)
+- 2026-06-30 05:22 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/3895331815.shtml)
+- 2026-06-30 05:40 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/01991300.shtml)
