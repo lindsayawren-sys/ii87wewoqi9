@@ -1,56 +1,50 @@
-# 阿根廷称涉疫邮轮患者夫妇到过南美三国 阿南部新确诊一感染病例
+# 2025年我国新能源车险承保亏损56亿元 同比减亏1亿元
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-中新社北京5月7日电 综合消息：阿根廷卫生部当地时间6日表示，暴发汉坦病毒疫情的“洪迪厄斯”号邮轮上，首先发病的一对荷兰夫妇在登船前到过阿根廷、智利和乌拉圭三个南美国家。另据阿根廷媒体同日报道，阿南部著名旅游城市圣卡洛斯-德巴里洛切(巴里洛切)确诊一例汉坦病毒感染病例。根据阿根廷卫生部网站公布的信息，这对荷兰夫妇于2025年11月27日抵达阿根廷，在自驾游40天后，于2026年
+3月31日金融一线消息，中国精算师协会、中国银行保险信息技术管理有限公司发布我国新能源车险2025年有关赔付信息。2025年，我国保险行业承保新能源汽车4358万辆（其中客车4181万辆，货车177万辆），比上年增加1248万辆，增长40.1%；保费收入1900亿元，提供风险保障金额159万亿元；承保亏损56亿元，同比减亏1亿元；综合成本率同比下降1.3个百分点。新能源汽车规模
 
 ## 正文
 
-中新社北京5月7日电 综合消息：阿根廷卫生部当地时间6日表示，暴发汉坦病毒疫情的“洪迪厄斯”号邮轮上，首先发病的一对荷兰夫妇在登船前到过阿根廷、智利和乌拉圭三个南美国家。
+3月31日金融一线消息，中国精算师协会、中国银行保险信息技术管理有限公司发布我国新能源车险2025年有关赔付信息。
 
-另据阿根廷媒体同日报道，阿南部著名旅游城市圣卡洛斯-德巴里洛切(巴里洛切)确诊一例汉坦病毒感染病例。
+2025年，我国保险行业承保新能源汽车4358万辆（其中客车4181万辆，货车177万辆），比上年增加1248万辆，增长40.1%；保费收入1900亿元，提供风险保障金额159万亿元；承保亏损56亿元，同比减亏1亿元；综合成本率同比下降1.3个百分点。
 
-根据阿根廷卫生部网站公布的信息，这对荷兰夫妇于2025年11月27日抵达阿根廷，在自驾游40天后，于2026年1月7日进入智利。
+新能源汽车规模车系数量429个，其中客车370个、货车59个。
 
-二人在智利旅行24天后再次进入阿根廷，并在12天后返回智利。
+2025年赔付率超过100%（尚未考虑财险公司日常经营管理费用成本）的高赔付车系有143个，较上年增加6个，其中客车106个、货车37个。
 
-此后，二人从智利进入阿根廷门多萨省，并最终抵达该国米西奥内斯省。
-
-3月13日，这对夫妇经陆路前往乌拉圭，在同月27日返回阿根廷前往火地岛省首府乌斯怀亚，并于4月1日从那里乘“洪迪厄斯”号邮轮离开。
-
-综合美联社与阿根廷《国家报》报道，两名阿根廷官员表示，政府的主要推断是，这对夫妇登船前在乌斯怀亚观鸟时感染了汉坦病毒。
-
-官员们称，夫妇二人曾到过一个垃圾填埋场，可能接触过啮齿动物。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 20:06 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 20:15 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 20:02 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 19:54 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 19:55 - [滚石点名酒店员工说有急救培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 20:11 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 19:59 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 20:03 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 19:51 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 19:49 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 19:59 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 20:18 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 20:02 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 20:24 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 20:18 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 20:09 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 20:06 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 20:07 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 19:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 20:02 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:17 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/8703639960.shtml)
-- 2026-06-29 19:54 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/541001111551.shtml)
-- 2026-06-29 20:11 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/405146909.shtml)
-- 2026-06-29 19:53 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/295853.shtml)
-- 2026-06-29 20:15 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/45063354.shtml)
-- 2026-06-29 19:59 - [女生每天戴耳机18小时突发耳聋](http://www.share.kurohicncr.top/Article/details/556879406939.shtml)
-- 2026-06-29 20:07 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/428115096.shtml)
-- 2026-06-29 20:00 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/71633461.shtml)
-- 2026-06-29 20:15 - [滚石点名酒店员工说有急救培训](http://www.blog.minike.top/Article/details/9115894.shtml)
-- 2026-06-29 20:12 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/776545910395.shtml)
-- 2026-06-29 20:07 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/51555323503.shtml)
-- 2026-06-29 20:13 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/63325547084.shtml)
-- 2026-06-29 20:09 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/00175431.shtml)
-- 2026-06-29 20:05 - [官方通报一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/85610580.shtml)
-- 2026-06-29 20:02 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/41869.shtml)
+- 2026-06-29 19:59 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/48416359.shtml)
+- 2026-06-29 20:05 - [北京发布地质灾害气象风险蓝色预警](https://www.share.kurohicncr.top/Article/details/870107.shtml)
+- 2026-06-29 20:17 - [官媒首曝六代机？大V解读](http://www.share.minike.top/Article/details/095650697.shtml)
+- 2026-06-29 20:05 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/656651655056.shtml)
+- 2026-06-29 20:13 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/57572938465.shtml)
+- 2026-06-29 20:00 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/63987975810.shtml)
+- 2026-06-29 19:54 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/009409.shtml)
+- 2026-06-29 20:14 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/92513948555.shtml)
+- 2026-06-29 20:07 - [大学专业未来如何洗牌](http://www.share.minike.top/Article/details/676713537632.shtml)
+- 2026-06-29 20:11 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/957284960.shtml)
+- 2026-06-29 20:21 - [本届世界杯已有5人涉性侵风波](https://www.share.kurohicncr.top/Article/details/29085177.shtml)
+- 2026-06-29 20:05 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/6658900.shtml)
+- 2026-06-29 20:10 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/034043336292.shtml)
+- 2026-06-29 20:20 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/1911856745.shtml)
+- 2026-06-29 20:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/35957.shtml)

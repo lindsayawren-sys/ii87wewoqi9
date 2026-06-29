@@ -1,57 +1,58 @@
-# 三家盈利、两家亏损！六大行国际子公司分化加剧：农银国际盈利赶超工银国际，建银国际亏损14.5亿
+# 光大银行刘彦：持续推动“五篇大文章”及相关领域信贷投放保持较快增速
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-来源：今日行长 香港作为连接内地与全球的金融枢纽，始终是中资银行国际化布局的战略要地。 就国有大行而言，上世纪以来，工、建、中、交、农先后在维多利亚港畔设立五家国际投行子公司——工银国际、建银国际、中银国际、农银国际和交银国际。凭借香港证监会全牌照优势，这些机构深度参与香港金融市场，覆盖IPO保荐承销、债券发行等全链条跨境服务，承担着中资企业出海的“联系人”角色。 资产规模是投
+3月31日金融一线消息，光大银行今日召开2025年度业绩说明会。在对公业务方面，副行长、首席财务官刘彦指表示，2025年，光大银行公司金融业务保持稳健经营，发挥好服务实体经济“主力军”和全行经营“压舱石”作用。 一是扎实做好金融“五篇大文章”，服务实体经济质效明显。科技、绿色、普惠、养老、制造业等服务实体重点领域信贷增速全面高于一般对公贷款增速；两新两重、融资协调机制和各项再贷
 
 ## 正文
 
-来源：今日行长 香港作为连接内地与全球的金融枢纽，始终是中资银行国际化布局的战略要地。
+3月31日金融一线消息，光大银行今日召开2025年度业绩说明会。
 
-就国有大行而言，上世纪以来，工、建、中、交、农先后在维多利亚港畔设立五家国际投行子公司——工银国际、建银国际、中银国际、农银国际和交银国际。
+在对公业务方面，副行长、首席财务官刘彦指表示，2025年，光大银行公司金融业务保持稳健经营，发挥好服务实体经济“主力军”和全行经营“压舱石”作用。
 
-凭借香港证监会全牌照优势，这些机构深度参与香港金融市场，覆盖IPO保荐承销、债券发行等全链条跨境服务，承担着中资企业出海的“联系人”角色。
+一是扎实做好金融“五篇大文章”，服务实体经济质效明显。
 
-资产规模是投行实力的基础载体，但母行的强大背书并不必然带来资产体量的绝对领先。
+科技、绿色、普惠、养老、制造业等服务实体重点领域信贷增速全面高于一般对公贷款增速；两新两重、融资协调机制和各项再贷款的落实取得积极进展。
 
-据最新年报数据，53万亿工行旗下的工银国际，2025年末资产规模仅为66.36亿美元（约515亿港元），略高于资产规模新晋50万亿的农业银行旗下农银国际的504.46亿港元。
+二是降本提质，公司金融利差筑底企稳。
 
-单看数字，建银国际才是五家中的“体量冠军”。
+有序管控高成本负债，提升高质量活期沉淀，推动存款成本持续优化；贯彻金融“反内卷”要求，科学合理确定贷款定价水平。
 
-2025年末，建银国际资产规模为713.74亿元（约778.51亿港元），中银国际紧随其后，资产规模为627.11亿港元；其次是工银国际、农银国际，之后则是交银国际，为149.88亿港元。
+三是统筹发展与安全，资产质量保持稳定，对公不良生成率持续保持低位水平。
 
-增速变化上，相较于2024年末，五大行中资产规模排名前三的国际投行子公司均出现不同程度的下滑——建银国际、中银国际和工银国际资产规模分别下降2.08%、12.35%和5.42%；而农银国际和交银国际资产规模则实现小幅增长，增幅分别为3.94%和3.25%。
+四是坚持获客与活客并重，不断深化客户综合经营。
 
 ## 相关推荐
 
-- 2026-06-29 20:12 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 20:15 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 20:04 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 20:09 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 20:05 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 20:12 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 19:56 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 20:01 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 20:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 20:05 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 20:14 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 20:16 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 20:20 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 19:55 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 20:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 20:09 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 20:13 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 19:56 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 20:08 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 20:09 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 20:18 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 20:19 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 20:19 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [无畏为自己的猫正名了](http://www.blog.minike.top/Article/details/48942770702.shtml)
-- 2026-06-29 19:49 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/810930904.shtml)
-- 2026-06-29 19:50 - [黄金也扛不住了](http://www.share.minike.top/Article/details/6636546200.shtml)
-- 2026-06-29 19:56 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/09657821623.shtml)
-- 2026-06-29 20:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/659330258.shtml)
-- 2026-06-29 19:57 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/399610.shtml)
-- 2026-06-29 20:16 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/3848119.shtml)
-- 2026-06-29 20:13 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/0897779.shtml)
-- 2026-06-29 20:04 - [互助版模拟高考志愿填报](http://www.blog.kurohicncr.top/Article/details/29096314.shtml)
-- 2026-06-29 20:02 - [绘画区你赢了](https://www.share.minike.top/Article/details/002214675.shtml)
-- 2026-06-29 19:48 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/6154822.shtml)
-- 2026-06-29 20:02 - [女生学医适合选什么专业](http://www.blog.minike.top/Article/details/42603100660.shtml)
-- 2026-06-29 20:14 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/453000.shtml)
-- 2026-06-29 19:52 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.minike.top/Article/details/6016634532.shtml)
-- 2026-06-29 19:49 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/889261.shtml)
+- 2026-06-29 20:04 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/048015592.shtml)
+- 2026-06-29 20:13 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/547174062.shtml)
+- 2026-06-29 20:16 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/2572757.shtml)
+- 2026-06-29 20:11 - [欧洲安装一台空调要花近8000元](http://www.share.minike.top/Article/details/48910.shtml)
+- 2026-06-29 19:59 - [时光音乐会](https://www.blog.minike.top/Article/details/46824651745.shtml)
+- 2026-06-29 19:56 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/563882354849.shtml)
+- 2026-06-29 19:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/0134652.shtml)
+- 2026-06-29 20:00 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/5278662.shtml)
+- 2026-06-29 19:56 - [哈兰德吃饭被镜中自己吓到](https://www.blog.kurohicncr.top/Article/details/717284486905.shtml)
+- 2026-06-29 20:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/7685302.shtml)
+- 2026-06-29 20:02 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/7765452.shtml)
+- 2026-06-29 19:56 - [金刚川](http://www.blog.minike.top/Article/details/58160331.shtml)
+- 2026-06-29 20:04 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/6455807.shtml)
+- 2026-06-29 20:00 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/730064.shtml)
+- 2026-06-29 20:12 - [天气热脾气都变差了](https://www.share.minike.top/Article/details/01296807577.shtml)

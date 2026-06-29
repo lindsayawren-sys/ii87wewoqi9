@@ -1,61 +1,60 @@
-# 一季度，险资加仓路线图曝光
+# 人类最远太空飞行纪录刷新 专家称飞得远不是最终目的
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-随着A股上市公司2026年一季度业绩报告披露收官，保险资金的调仓换股路线图浮出水面：一边集中加仓银行股，强化“压舱石”作用；一边布局交通运输、公用事业等板块，寻求均衡配置。数据显示，截至一季度末，险资在超600只个股的前十大流通股东名单中出现。在增持股份数量居前的十只个股中，银行股独占五席，其余个股主要集中在交通运输、公用事业等行业。银行仍是重仓行业截至一季度末，险资合计重仓（
+中新社北京4月7日电 (记者 马帅莎)美国东部时间6日，正在进行的“阿耳忒弥斯2号”任务，打破半个多世纪前“阿波罗13号”任务创造的人类距离地球最远飞行纪录。受访专家表示，飞得远并非“阿耳忒弥斯2号”最终目的，验证载人地月往返技术与安全体系才是其核心任务。美国航空航天局(NASA)数据显示，“阿耳忒弥斯2号”任务飞至距离地球252756英里(约406771公里)的最远距离，较原
 
 ## 正文
 
-随着A股上市公司2026年一季度业绩报告披露收官，保险资金的调仓换股路线图浮出水面：一边集中加仓银行股，强化“压舱石”作用；一边布局交通运输、公用事业等板块，寻求均衡配置。
+中新社北京4月7日电 (记者 马帅莎)美国东部时间6日，正在进行的“阿耳忒弥斯2号”任务，打破半个多世纪前“阿波罗13号”任务创造的人类距离地球最远飞行纪录。
 
-数据显示，截至一季度末，险资在超600只个股的前十大流通股东名单中出现。
+受访专家表示，飞得远并非“阿耳忒弥斯2号”最终目的，验证载人地月往返技术与安全体系才是其核心任务。
 
-在增持股份数量居前的十只个股中，银行股独占五席，其余个股主要集中在交通运输、公用事业等行业。
+美国航空航天局(NASA)数据显示，“阿耳忒弥斯2号”任务飞至距离地球252756英里(约406771公里)的最远距离，较原纪录超出约4101英里(约6600公里)。
 
-银行仍是重仓行业截至一季度末，险资合计重仓（成为上市公司前十大流通股东）A股约640只，较2025年末增超20只，持股数量增超40亿股。
+“阿波罗13号”和“阿耳忒弥斯2号”两次任务的共同之处，是均采用自由返回轨道。
 
-从持仓市值来看，险资重仓股市值合计超过1.5万亿元（以一季度末股价计算），其中银行股持仓市值占比超三成。
+航天专家称，地月转移轨道是人类航天器飞向月球的必经之路，自由返回轨道是其中一种特殊类型。
 
-银行股成为险资一季度主要加仓方向。
+在这条轨道上，飞船可借助月球引力自动返回地球，无需额外推进。
 
-险资增持股份数量最多的前十只个股中，银行股占据五席，分别为中国银行、工商银行、兴业银行、中信银行、杭州银行。
+这给飞船返回地球留出一条“后路”。
 
-具体至保险公司，中国人寿新进杭州银行、上海银行、江苏银行前十大流通股东行列，截至一季度末分别持有上述三家银行2.89%、2.82%和2.14%的股权；新华保险新进邮储银行、中国银行前十大股东行列，截至一季度末分别持有0.15%、0.08%股权。
+即便飞船动力系统出现问题，这条轨道也可以将飞船“甩”回地球，实现飞船“无动力返航”，极大提升任务容错率，可更好守护宇航员安全。
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 19:49 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 20:06 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 19:51 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 19:57 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 20:01 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 20:01 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 19:53 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 19:52 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 19:56 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 20:15 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 20:07 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 20:13 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 20:09 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 20:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 20:13 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 20:18 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 20:05 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 20:12 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 20:00 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 20:00 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 20:14 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 20:16 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 20:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 20:14 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 19:59 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 20:02 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 20:15 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 20:21 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:00 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/2067165.shtml)
-- 2026-06-29 20:06 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/849013024787.shtml)
-- 2026-06-29 19:48 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/67526.shtml)
-- 2026-06-29 20:04 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/9063943.shtml)
-- 2026-06-29 20:05 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/871619.shtml)
-- 2026-06-29 19:52 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/715992.shtml)
-- 2026-06-29 19:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/414485721.shtml)
-- 2026-06-29 19:56 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.kurohicncr.top/Article/details/452206477023.shtml)
-- 2026-06-29 19:50 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/3780558388.shtml)
-- 2026-06-29 20:04 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/7705527.shtml)
-- 2026-06-29 20:09 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/24921824.shtml)
-- 2026-06-29 20:15 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/611865.shtml)
-- 2026-06-29 20:11 - [我们的少年时代2](https://www.blog.minike.top/Article/details/79780.shtml)
-- 2026-06-29 19:57 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.kurohicncr.top/Article/details/21631.shtml)
-- 2026-06-29 19:58 - [天道](https://www.share.minike.top/Article/details/3861125645.shtml)
+- 2026-06-29 19:59 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/31143159.shtml)
+- 2026-06-29 20:16 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/22734212603.shtml)
+- 2026-06-29 20:04 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/518943955866.shtml)
+- 2026-06-29 20:02 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/14901398238.shtml)
+- 2026-06-29 19:58 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.kurohicncr.top/Article/details/65796.shtml)
+- 2026-06-29 20:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/00619132847.shtml)
+- 2026-06-29 20:23 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/2797901.shtml)
+- 2026-06-29 20:12 - [特朗普两大核心赌注将迎高院裁决](http://www.share.kurohicncr.top/Article/details/340383.shtml)
+- 2026-06-29 19:59 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/223170997512.shtml)
+- 2026-06-29 20:23 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/4551719.shtml)
+- 2026-06-29 20:02 - [世界杯预测史上最不吃压力之物](http://www.share.kurohicncr.top/Article/details/516929591.shtml)
+- 2026-06-29 20:07 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.minike.top/Article/details/030625784.shtml)
+- 2026-06-29 20:02 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/712335561546.shtml)
+- 2026-06-29 20:07 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/99556.shtml)
+- 2026-06-29 20:19 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/361312537682.shtml)

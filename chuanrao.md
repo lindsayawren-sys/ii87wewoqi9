@@ -1,59 +1,58 @@
-# 声声枪响，叩问“自由女神”丨新漫评
+# 新疆兵团“志愿红”：疏通服务民众“最后一公里”
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月07日 16:57 来源：中国新闻网 近日，举办白宫记者协会晚宴的华盛顿希尔顿酒店发生枪击事件，包括美国总统特朗普在内，现场数百名记者和政商界人士趴地避险。美国政界高层惊魂未定之际，美国多地发生枪击事件，已导致十余人伤亡。生命权是最大的人权。在美国人心目中，自由女神本该是高擎火炬的人权象征，却在枪声四起时捂住了耳朵。即使捂住耳朵假装听不见，也捂不住接连
+中新网乌鲁木齐4月7日电 (史玉江)近年来，新疆生产建设兵团发动党员、青年等力量，聚焦社区高龄老人、困境儿童、残疾人等群体，主动上门帮扶，疏通服务民众“最后一公里”。 志愿者统一穿红色马甲，活跃在社区服务、文明创建一线，“一抹红”成了暖心、可靠、有力量的代名词。 2020年8月，大学毕业的张明霞返乡到第十三师新星市火箭农场锦绣社区工作，同年11月加入社区青春力量志愿服务分队，与
 
 ## 正文
 
-发布时间：2026年05月07日 16:57 来源：中国新闻网 近日，举办白宫记者协会晚宴的华盛顿希尔顿酒店发生枪击事件，包括美国总统特朗普在内，现场数百名记者和政商界人士趴地避险。
+中新网乌鲁木齐4月7日电 (史玉江)近年来，新疆生产建设兵团发动党员、青年等力量，聚焦社区高龄老人、困境儿童、残疾人等群体，主动上门帮扶，疏通服务民众“最后一公里”。
 
-美国政界高层惊魂未定之际，美国多地发生枪击事件，已导致十余人伤亡。
+志愿者统一穿红色马甲，活跃在社区服务、文明创建一线，“一抹红”成了暖心、可靠、有力量的代名词。
 
-生命权是最大的人权。
+2020年8月，大学毕业的张明霞返乡到第十三师新星市火箭农场锦绣社区工作，同年11月加入社区青春力量志愿服务分队，与志愿服务结下不解之缘。
 
-在美国人心目中，自由女神本该是高擎火炬的人权象征，却在枪声四起时捂住了耳朵。
+“一个人力量薄弱，但我们形成合力，就很强大。
 
-即使捂住耳朵假装听不见，也捂不住接连不断的暴力与枪火。
+”2022年5月，张明霞牵头组建友好花苑·青春无限志愿服务分队并担任领队，这支队伍很快成了社区服务民众、共建共治的重要力量。
 
-每一记枪声，都是对美国治理失灵最尖锐的叩问。
+友好花苑小区内独居、高龄老人的生活冷暖，是该团队服务的主要目标。
 
-责任编辑：【孟湘君】
+81岁的惠玉兰因病常年需卧床休养。
+
+“我们一直把惠阿姨列为重点关注对象，经常上门陪她聊天，缓解心理压力，帮她做一些家务。
 
 ## 相关推荐
 
-- 2026-06-29 20:05 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 19:52 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 19:51 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 19:58 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 20:11 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 20:11 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 19:57 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 20:04 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 20:05 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 20:10 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 20:10 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 20:13 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 20:17 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 20:01 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 19:56 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 20:14 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 20:11 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 20:02 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 20:21 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 20:15 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 19:58 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 20:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 20:19 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 20:10 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 20:20 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 20:16 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 19:57 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:03 - [媒体：听清自己内心的声音再填志愿](https://www.share.minike.top/Article/details/357898696849.shtml)
-- 2026-06-29 19:57 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/241810472943.shtml)
-- 2026-06-29 20:17 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/72389.shtml)
-- 2026-06-29 20:09 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/432928.shtml)
-- 2026-06-29 20:07 - [韩国队主帅遭极端网友死亡威胁](https://www.share.minike.top/Article/details/407818104.shtml)
-- 2026-06-29 19:51 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/69727356540.shtml)
-- 2026-06-29 19:50 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/19592.shtml)
-- 2026-06-29 20:09 - [林逸向方筱然求婚了](http://www.share.kurohicncr.top/Article/details/18276711.shtml)
-- 2026-06-29 19:55 - [金刚川](http://www.share.minike.top/Article/details/3815733.shtml)
-- 2026-06-29 19:56 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/557928460.shtml)
-- 2026-06-29 20:15 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/143927.shtml)
-- 2026-06-29 19:49 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/09213759806.shtml)
-- 2026-06-29 20:17 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/8234271567.shtml)
-- 2026-06-29 20:12 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/92960.shtml)
-- 2026-06-29 19:55 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/075599.shtml)
+- 2026-06-29 20:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/88938915500.shtml)
+- 2026-06-29 20:22 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/81248712142.shtml)
+- 2026-06-29 20:12 - [媒体评恋与深空用“引狼入室”台词](https://www.share.minike.top/Article/details/6517136.shtml)
+- 2026-06-29 19:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/18221.shtml)
+- 2026-06-29 19:57 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/4591633797.shtml)
+- 2026-06-29 20:12 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/0205267.shtml)
+- 2026-06-29 20:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/103056198817.shtml)
+- 2026-06-29 20:06 - [金刚川](https://www.share.kurohicncr.top/Article/details/69669391083.shtml)
+- 2026-06-29 20:02 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/248765262.shtml)
+- 2026-06-29 20:05 - [美人鱼](https://www.share.kurohicncr.top/Article/details/65178752.shtml)
+- 2026-06-29 20:12 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/5695448.shtml)
+- 2026-06-29 20:01 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/0991898.shtml)
+- 2026-06-29 20:12 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/956235346377.shtml)
+- 2026-06-29 20:19 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/64817.shtml)
+- 2026-06-29 20:00 - [医药生物行业今日涨5.91%](https://www.blog.minike.top/Article/details/21079877.shtml)

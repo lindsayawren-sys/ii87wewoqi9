@@ -1,52 +1,48 @@
-# 江铃汽车：4月汽车销量34948辆，同比增长14.59%
+# 特朗普同意对伊朗停火两周 纽约原油期货价格暴跌超15%
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：IT之家）IT之家 5 月 7 日消息，江铃汽车今日公告，2026 年 4 月汽车销量 34948 辆，同比增长 14.59%。本年累计汽车销量 12.1 万辆，同比增长 13.62%。IT之家附各产品销量如下：作为参考，2025 年，江铃汽车销售了 377,253 辆整车，包括 99,770 辆轻
+发布时间：2026年04月08日 11:10 来源：中国新闻网 因美国总统特朗普4月7日傍晚同意暂停对伊朗的轰炸和袭击，为期两周，市场对中东军事冲突担忧显著缓解，纽约商品交易所5月交货的轻质原油期货价格随之暴跌超15%。(制作 侯诗蕊 ） 责任编辑：【李季】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月08日 11:10 来源：中国新闻网 因美国总统特朗普4月7日傍晚同意暂停对伊朗的轰炸和袭击，为期两周，市场对中东军事冲突担忧显著缓解，纽约商品交易所5月交货的轻质原油期货价格随之暴跌超15%。
 
-（来源：IT之家）IT之家 5 月 7 日消息，江铃汽车今日公告，2026 年 4 月汽车销量 34948 辆，同比增长 14.59%。
-
-本年累计汽车销量 12.1 万辆，同比增长 13.62%。
-
-IT之家附各产品销量如下：作为参考，2025 年，江铃汽车销售了 377,253 辆整车，包括 99,770 辆轻型客车、83,207 辆卡车、59,681 辆皮卡、134,595 辆 SUV，总销量较上年同期上升 10.56%。
-
-2025 年，江铃汽车实现营业收入 391.70 亿元，同比增长 2.07%。
-
-2025 年度归属于上市公司股东的净利润 11.88 亿元，同比下降 22.71%。
+(制作 侯诗蕊 ） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 19:49 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 20:10 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 19:58 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 20:10 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 20:03 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 20:08 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 20:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 19:49 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 20:08 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 19:53 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 19:54 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 19:54 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 20:11 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 20:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 19:57 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 20:17 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 19:55 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 20:08 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 20:07 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 20:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 20:00 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 20:03 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 20:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 20:04 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:58 - [林逸向方筱然求婚了](https://www.blog.kurohicncr.top/Article/details/700745.shtml)
-- 2026-06-29 20:08 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/7414512.shtml)
-- 2026-06-29 19:53 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/9433424.shtml)
-- 2026-06-29 19:56 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/877838822349.shtml)
-- 2026-06-29 20:14 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/99165082.shtml)
-- 2026-06-29 19:58 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/5465079727.shtml)
-- 2026-06-29 19:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/191693839043.shtml)
-- 2026-06-29 19:57 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/4924526637.shtml)
-- 2026-06-29 19:59 - [请回答王牌2019](http://www.blog.minike.top/Article/details/9754495871.shtml)
-- 2026-06-29 20:12 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/908070827.shtml)
-- 2026-06-29 20:12 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/180529.shtml)
-- 2026-06-29 20:05 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/4661235382.shtml)
-- 2026-06-29 20:00 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/306377.shtml)
-- 2026-06-29 19:56 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/84989087.shtml)
-- 2026-06-29 19:51 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/095018710.shtml)
+- 2026-06-29 20:04 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/08862969.shtml)
+- 2026-06-29 20:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/299539155570.shtml)
+- 2026-06-29 20:06 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/47147.shtml)
+- 2026-06-29 20:01 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/268409.shtml)
+- 2026-06-29 19:57 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/8738169.shtml)
+- 2026-06-29 20:16 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/4589296.shtml)
+- 2026-06-29 19:55 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/7866617196.shtml)
+- 2026-06-29 20:05 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/206799394.shtml)
+- 2026-06-29 20:12 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/661387.shtml)
+- 2026-06-29 20:17 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.minike.top/Article/details/7010136498.shtml)
+- 2026-06-29 19:56 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/532986980978.shtml)
+- 2026-06-29 20:18 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/1213839695.shtml)
+- 2026-06-29 19:55 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/60362761.shtml)
+- 2026-06-29 20:11 - [RAY评乘风2026总决赛](http://www.blog.minike.top/Article/details/04211070064.shtml)
+- 2026-06-29 20:01 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/12633.shtml)

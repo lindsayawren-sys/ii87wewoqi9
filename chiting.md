@@ -1,57 +1,59 @@
-# 一季度，险资加仓路线图曝光
+# 避险情绪回落，美元指数跌至99关口附近等待美联储纪要指引
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！随着A股上市公司2026年一季度业绩报告披露收官，保险资金的调仓换股路线图浮出水面：一边集中加仓银行股，强化“压舱石”作用；一边布局交通运输、公用事业等板块，寻求均衡配置。 Wind数据显示，截至一季度末，险资在超600只个股的前十大流通股东名单中出现。在增持股份数量居前的十只个股中，银行股独占五席，其余个
+文章来源：汇通财经 美元指数在周三亚洲时段持续承压运行，目前交投于99.05附近，延续此前一交易日的回落走势。推动美元走弱的主要因素来自中东局势阶段性缓和，美国总统特朗普宣布暂停对伊朗军事行动两周，这一决定显著削弱了市场对避险资产的需求。有外汇策略分析师指出：“随着冲突短期降温，市场风险偏好回升，美元作为避险资产的吸引力明显下降。” 从事件进展来看，此次暂停行动附带条件，即伊朗
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+文章来源：汇通财经 美元指数在周三亚洲时段持续承压运行，目前交投于99.05附近，延续此前一交易日的回落走势。
 
-随着A股上市公司2026年一季度业绩报告披露收官，保险资金的调仓换股路线图浮出水面：一边集中加仓银行股，强化“压舱石”作用；一边布局交通运输、公用事业等板块，寻求均衡配置。
+推动美元走弱的主要因素来自中东局势阶段性缓和，美国总统特朗普宣布暂停对伊朗军事行动两周，这一决定显著削弱了市场对避险资产的需求。
 
-Wind数据显示，截至一季度末，险资在超600只个股的前十大流通股东名单中出现。
+有外汇策略分析师指出：“随着冲突短期降温，市场风险偏好回升，美元作为避险资产的吸引力明显下降。
 
-在增持股份数量居前的十只个股中，银行股独占五席，其余个股主要集中在交通运输、公用事业等行业。
+” 从事件进展来看，此次暂停行动附带条件，即伊朗需重新开放霍尔木兹海峡通行。
 
-银行仍是重仓行业 截至一季度末，险资合计重仓（成为上市公司前十大流通股东）A股约640只，较2025年末增超20只，持股数量增超40亿股。
+伊朗方面表示，在与武装力量协调的前提下，将允许该关键航道在未来两周内实现安全通行。
 
-从持仓市值来看，险资重仓股市值合计超过1.5万亿元（以一季度末股价计算），其中银行股持仓市值占比超三成。
+这一表态在一定程度上缓解了市场对能源供应中断的担忧，从而削弱美元的避险支撑逻辑 霍尔木兹海峡承担全球约20%的海运能源运输，其通行状态直接影响全球市场稳定预期。
 
-银行股成为险资一季度主要加仓方向。
+随着该航道恢复预期升温，市场风险情绪明显改善，资金从避险资产流向风险资产，进一步压制美元表现。
 
-险资增持股份数量最多的前十只个股中，银行股占据五席，分别为中国银行、工商银行、兴业银行、中信银行、杭州银行。
+与此同时，市场焦点逐渐转向即将公布的美联储会议纪要。
 
 ## 相关推荐
 
-- 2026-06-29 19:53 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 19:50 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 19:54 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 20:11 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 20:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 20:18 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 19:50 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 19:59 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 20:02 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 19:48 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 20:04 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 20:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 20:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 20:18 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 20:16 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 20:09 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 20:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 20:01 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 20:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 19:56 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 20:11 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 20:10 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 20:08 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 19:56 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:53 - [男子40度高温下骑行严重晒伤](https://www.blog.kurohicncr.top/Article/details/001090421743.shtml)
-- 2026-06-29 19:56 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/0475786.shtml)
-- 2026-06-29 19:58 - [佛得角队长门德斯被控强奸](https://www.share.kurohicncr.top/Article/details/5221974.shtml)
-- 2026-06-29 19:57 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/89336699145.shtml)
-- 2026-06-29 19:58 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/23546.shtml)
-- 2026-06-29 20:16 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/0484492809.shtml)
-- 2026-06-29 20:10 - [日美楼市危机复盘：见底顺序曝光](https://www.share.minike.top/Article/details/59463.shtml)
-- 2026-06-29 20:04 - [东宫女主是不是顶级恋爱脑](http://www.share.minike.top/Article/details/788136.shtml)
-- 2026-06-29 19:50 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/34613.shtml)
-- 2026-06-29 20:02 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/888337.shtml)
-- 2026-06-29 20:17 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/09423203467.shtml)
-- 2026-06-29 19:51 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/3226131521.shtml)
-- 2026-06-29 20:17 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/139343.shtml)
-- 2026-06-29 20:02 - [不烧钱的低成本爱好](http://www.blog.kurohicncr.top/Article/details/939775524.shtml)
-- 2026-06-29 19:59 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/08510.shtml)
+- 2026-06-29 20:18 - [林逸向方筱然求婚了](https://www.share.kurohicncr.top/Article/details/041316318.shtml)
+- 2026-06-29 20:13 - [金刚川](https://www.share.minike.top/Article/details/32786572168.shtml)
+- 2026-06-29 20:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/15566753628.shtml)
+- 2026-06-29 20:17 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/89740.shtml)
+- 2026-06-29 20:06 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/7896935.shtml)
+- 2026-06-29 20:13 - [华工科技龙虎榜数据](http://www.share.minike.top/Article/details/176981641.shtml)
+- 2026-06-29 19:59 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/32987377272.shtml)
+- 2026-06-29 20:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/4070783.shtml)
+- 2026-06-29 20:01 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/44982.shtml)
+- 2026-06-29 19:58 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/229208915.shtml)
+- 2026-06-29 20:14 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/49439448465.shtml)
+- 2026-06-29 20:07 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/879527217653.shtml)
+- 2026-06-29 19:57 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/394436055.shtml)
+- 2026-06-29 20:01 - [当家电外通风口出现鸟窝](https://www.share.minike.top/Article/details/7120485.shtml)
+- 2026-06-29 20:08 - [急先锋](http://www.blog.minike.top/Article/details/4401516.shtml)

@@ -1,61 +1,60 @@
-# 沪指6连阳，创指涨1.45%！逾3500只个股飘红
+# 祁连山下高台魏晋壁画砖中穿越千年的“春耕记忆”
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-中新经纬5月7日电 周四，A股涨势延续，上证指数录得6连阳。 上证指数日K线图 Wind截图 截至收盘，上证指数涨0.48%，报4180.09点；深证成指涨1.18%，报15641.89点；创业板指涨1.45%，报3833.06点；科创综指涨1.99%，报2064.03点。沪深两市成交额合计3.14万亿元，较上一交易日缩量约828.79亿元。 盘面上，行业板块涨多跌少，风电设备
+中新网兰州4月8日电 (戴文昌)位于祁连山北麓的甘肃省张掖市高台博物馆展厅内，一块块魏晋时期的彩绘壁画砖静静陈列。犁地、播种、耱土……砖面之上，1600余年前的春耕场景鲜活如初，穿越千年的农耕记忆，透过斑驳壁砖画，在古今交融中生生不息。 高台地处河西走廊“五郡咽喉”，黑河穿境而过，自古便是农耕与游牧文明交汇之地。魏晋时期，这里是建康郡治所，骆驼城、许三湾一带墓葬群出土的数百块壁
 
 ## 正文
 
-中新经纬5月7日电 周四，A股涨势延续，上证指数录得6连阳。
+中新网兰州4月8日电 (戴文昌)位于祁连山北麓的甘肃省张掖市高台博物馆展厅内，一块块魏晋时期的彩绘壁画砖静静陈列。
 
-上证指数日K线图 Wind截图 截至收盘，上证指数涨0.48%，报4180.09点；深证成指涨1.18%，报15641.89点；创业板指涨1.45%，报3833.06点；科创综指涨1.99%，报2064.03点。
+犁地、播种、耱土……砖面之上，1600余年前的春耕场景鲜活如初，穿越千年的农耕记忆，透过斑驳壁砖画，在古今交融中生生不息。
 
-沪深两市成交额合计3.14万亿元，较上一交易日缩量约828.79亿元。
+高台地处河西走廊“五郡咽喉”，黑河穿境而过，自古便是农耕与游牧文明交汇之地。
 
-盘面上，行业板块涨多跌少，风电设备、元器件、玻璃纤维、通信设备、体育、广告营销、消费电子等板块涨幅靠前，油气开采、煤炭开采、焦炭加工、能源金属、油服工程等板块跌幅靠前。
+魏晋时期，这里是建康郡治所，骆驼城、许三湾一带墓葬群出土的数百块壁画砖，以一砖一画简约形式，定格了古人生产生活日常，其中春季耕种图最为集中，堪称一部“地下农耕史”。
 
-概念板块普涨，光通信、CPO概念、电子纸、AI营销、PCB概念、玻璃基板等板块涨幅居前，工业气体、化肥概念、草甘膦、磷概念、锂矿等板块跌幅居前。
+这些壁画砖以长方形青砖为载体，白粉涂底、丹砂饰边，用传统线描技法一砖一画，生动再现魏晋时期河西地区农耕百态与民俗风情。
 
-截至收盘，全市场3520只股票上涨、1832只股票下跌，其中127只涨停、54只跌停。
+高台博物馆副馆长孙丽娟说，该县骆驼城、许三湾墓葬群出土的魏晋砖壁画，均以记录当时生产生活为主，而春耕图景，成为解读古代河西农耕文明的重要窗口。
 
-个股方面，今日涨停股部分如下：巨力索具(10.00%)、中天科技(10.00%)、中国长城(10.00%)、易点天下(20.01%)、金螳螂(10.02%)。
+在众多壁画砖中，该馆馆藏的《二牛耕地图》《撒种耱地图》尤为引人注目。
 
-跌停股部分如下：汇嘉时代(-10.01%)、美诺华(-10.00%)、恒逸石化(-9.98%)、水发燃气(-10.00%)。
+它们不仅清晰揭示了魏晋时期农业耕作技术和方法，更映射出当时农业社会生产模式及社会生活状况，为研究古代社会农耕文明提供了丰富且直观的视觉资料。
 
 ## 相关推荐
 
-- 2026-06-29 20:03 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 20:11 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 20:03 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 19:51 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 20:10 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 19:57 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 19:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 20:13 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 20:06 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 20:10 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 20:15 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 19:55 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 20:03 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 20:00 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 19:55 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 19:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 20:16 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 20:02 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 20:20 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 19:56 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 19:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 20:23 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 20:10 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 20:23 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 20:23 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 20:00 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 20:03 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 20:14 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 20:13 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [葛军透露高考出题思路](https://www.blog.kurohicncr.top/Article/details/513814078.shtml)
-- 2026-06-29 20:09 - [韩国队主帅遭极端网友死亡威胁](http://www.share.kurohicncr.top/Article/details/114942990.shtml)
-- 2026-06-29 20:13 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/58586435.shtml)
-- 2026-06-29 20:07 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/56007928040.shtml)
-- 2026-06-29 20:14 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/0613961174.shtml)
-- 2026-06-29 19:57 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/452021595.shtml)
-- 2026-06-29 20:09 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/6678326293.shtml)
-- 2026-06-29 20:16 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/61103104.shtml)
-- 2026-06-29 20:06 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/709527290442.shtml)
-- 2026-06-29 19:59 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.kurohicncr.top/Article/details/0060832.shtml)
-- 2026-06-29 20:01 - [女心理师](https://www.blog.minike.top/Article/details/157074.shtml)
-- 2026-06-29 19:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/1267653554.shtml)
-- 2026-06-29 20:16 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.kurohicncr.top/Article/details/7368354930.shtml)
-- 2026-06-29 20:13 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/678197702730.shtml)
-- 2026-06-29 19:49 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/03031.shtml)
+- 2026-06-29 20:10 - [流金岁月](https://www.blog.minike.top/Article/details/911591.shtml)
+- 2026-06-29 19:55 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/22651.shtml)
+- 2026-06-29 20:12 - [爱很美味](http://www.share.minike.top/Article/details/09286.shtml)
+- 2026-06-29 20:04 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/156050077817.shtml)
+- 2026-06-29 19:55 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/9182630.shtml)
+- 2026-06-29 20:13 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/36807617960.shtml)
+- 2026-06-29 20:16 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/3018769322.shtml)
+- 2026-06-29 20:12 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/9473897.shtml)
+- 2026-06-29 20:21 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/699223391237.shtml)
+- 2026-06-29 19:57 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/966207.shtml)
+- 2026-06-29 19:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/7956021.shtml)
+- 2026-06-29 20:07 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/021160.shtml)
+- 2026-06-29 20:22 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/984771406.shtml)
+- 2026-06-29 20:21 - [毒液2](https://www.blog.minike.top/Article/details/52685.shtml)
+- 2026-06-29 20:18 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/854995.shtml)

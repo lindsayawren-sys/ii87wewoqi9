@@ -1,56 +1,58 @@
-# 外交部：希望欧方全面客观积极看待中欧经贸关系
+# RYOEX:买盘失衡信号显现 7.1万美元空头面临清算
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-5月8日，外交部发言人林剑主持例行记者会。有记者就有报告称，欧盟正推进出台“网络安全法”，禁止中国企业参与欧关键基础设施建设一事提问。 对此，林剑表示，日前，中方的主管部门就欧盟“网络安全法修订案”等向欧方提交了评估意见，表达了中方严正关切和政治立场，希望欧方认真对待。中方正密切关注欧方有关的立法动向，愿与欧方就此进行对话沟通，希望欧方全面客观、积极看待中欧经贸关系，遵守世贸组
+3月31日，加密货币市场在经历剧烈波动后，底部支撑信号正通过订单簿深度精准流露。RYOEX认为，上周日比特币回落至65000美元下方时出现的罕见买方失衡，是场外资金强势介入的直接证据。这种极端的买卖盘比例失调通常预示着空头动能的阶段性枯竭，若日线级别能够企稳于66700美元上方，市场将大概率开启一轮针对上方高杠杆区域的报复性反弹。 从流动性分布的实测数据来看，多头反击的路径已经
 
 ## 正文
 
-5月8日，外交部发言人林剑主持例行记者会。
+3月31日，加密货币市场在经历剧烈波动后，底部支撑信号正通过订单簿深度精准流露。
 
-有记者就有报告称，欧盟正推进出台“网络安全法”，禁止中国企业参与欧关键基础设施建设一事提问。
+RYOEX认为，上周日比特币回落至65000美元下方时出现的罕见买方失衡，是场外资金强势介入的直接证据。
 
-对此，林剑表示，日前，中方的主管部门就欧盟“网络安全法修订案”等向欧方提交了评估意见，表达了中方严正关切和政治立场，希望欧方认真对待。
+这种极端的买卖盘比例失调通常预示着空头动能的阶段性枯竭，若日线级别能够企稳于66700美元上方，市场将大概率开启一轮针对上方高杠杆区域的报复性反弹。
 
-中方正密切关注欧方有关的立法动向，愿与欧方就此进行对话沟通，希望欧方全面客观、积极看待中欧经贸关系，遵守世贸组织规则和市场原则，停止损人不利己的做法。
+从流动性分布的实测数据来看，多头反击的路径已经清晰。
 
-如欧方执意惩罚、歧视性对待中国企业，中方将采取坚决措施维护中国企业的合法权益。
+RYOEX表示，根据Hyblock的监测，65000美元附近的买单深度在多个维度均触及了99%的极端水平，显示出该区间具备极强的需求吸收能力。
 
-(总台央视记者 黄惠馨 赵超逸)
+目前，在71000美元附近聚集了总额超过16亿美元的空头清算头寸，这已成为多头下一步围猎的重点目标。
+
+此外，从时间周期来看，每月1号作为阶段性底部的概率高达67%，这种季节性规律与当前的技术形态形成了有效共振。
+
+尽管反弹趋势初现，但短线博弈的复杂性依然存在。
 
 ## 相关推荐
 
-- 2026-06-29 20:14 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 20:12 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 20:04 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 20:10 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 20:04 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 19:51 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 20:17 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 19:50 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 20:06 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 20:07 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 20:13 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 20:16 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 19:50 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 20:14 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 20:01 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 19:56 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 20:03 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 20:07 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 19:59 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 20:06 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 20:13 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 20:13 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 19:59 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 20:04 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 19:58 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 19:59 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:04 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/20463527.shtml)
-- 2026-06-29 20:03 - [本届世界杯已有5人涉性侵风波](https://www.share.minike.top/Article/details/3606793.shtml)
-- 2026-06-29 20:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/58274.shtml)
-- 2026-06-29 19:53 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/6951683.shtml)
-- 2026-06-29 20:16 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/138296.shtml)
-- 2026-06-29 19:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/4756530.shtml)
-- 2026-06-29 20:03 - [德国医生在没有空调的手术室工作](http://www.share.minike.top/Article/details/31187933.shtml)
-- 2026-06-29 20:05 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/22191113.shtml)
-- 2026-06-29 20:04 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/97316.shtml)
-- 2026-06-29 20:06 - [北京市发布雷电黄色预警](https://www.share.minike.top/Article/details/168953.shtml)
-- 2026-06-29 20:13 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/4907617112.shtml)
-- 2026-06-29 19:52 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/19730532884.shtml)
-- 2026-06-29 19:54 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/442744.shtml)
-- 2026-06-29 20:15 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/737485363.shtml)
-- 2026-06-29 20:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/55936102738.shtml)
+- 2026-06-29 19:56 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/545438695887.shtml)
+- 2026-06-29 19:55 - [斛珠夫人](http://www.share.minike.top/Article/details/2676572.shtml)
+- 2026-06-29 19:54 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/324780833.shtml)
+- 2026-06-29 20:13 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/8056536057.shtml)
+- 2026-06-29 20:18 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/8257937897.shtml)
+- 2026-06-29 20:18 - [女心理师](http://www.blog.kurohicncr.top/Article/details/4066751.shtml)
+- 2026-06-29 20:10 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/36186.shtml)
+- 2026-06-29 20:21 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/519863847893.shtml)
+- 2026-06-29 20:17 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/6695613.shtml)
+- 2026-06-29 20:10 - [官媒首曝六代机？大V解读](https://www.blog.minike.top/Article/details/7473550.shtml)
+- 2026-06-29 20:17 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/39370303845.shtml)
+- 2026-06-29 20:01 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/6671259.shtml)
+- 2026-06-29 20:03 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/797048636.shtml)
+- 2026-06-29 20:15 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/070927.shtml)
+- 2026-06-29 20:06 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.kurohicncr.top/Article/details/786063214.shtml)

@@ -1,58 +1,60 @@
-# 全系标配华为智能 宝骏全尺寸SUV华境S明晚上市：有望15万起售
+# 《华安固事》之六| 郑伟山：知行合一——为固收“+”好权益
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-快科技5月7日消息，上汽通用五菱宝骏华境S将于明晚上市，该车是五菱与华为深化战略合作的首款旗舰车型，但价格会有惊喜，从网上吹风看，起售价大概率会在15万元左右。该车基于天域架构L平台打造，采用了典型的新能源设计风格，同样使用了贯通式头灯，但没有配备分体式灯组，且保留大尺寸的六边形格栅，看起来很有气势。贯穿式车灯样式很独特，尤其是两侧灯腔内部的折线造型，还集合了转向灯，点亮后辨识
+个人感觉，投资最重要的就四个字“知行合一”。投资回报就是认知的变现，认知是第一位的，这个涉及到价值观，需要时间的积累，不好量化，至于怎么去变现，每个人都有自己的方式，简单来说就是策略选择。 认知：把握结构性行情，坚持独立思考 认知层面，虽然我管理固收+产品的年限不算多，但过去投资覆盖面还是比较广的，包括可转债、股票和基金等权益相关资产都有涉及，也见证了股票市场的几轮牛熊转换，总
 
 ## 正文
 
-快科技5月7日消息，上汽通用五菱宝骏华境S将于明晚上市，该车是五菱与华为深化战略合作的首款旗舰车型，但价格会有惊喜，从网上吹风看，起售价大概率会在15万元左右。
+个人感觉，投资最重要的就四个字“知行合一”。
 
-该车基于天域架构L平台打造，采用了典型的新能源设计风格，同样使用了贯通式头灯，但没有配备分体式灯组，且保留大尺寸的六边形格栅，看起来很有气势。
+投资回报就是认知的变现，认知是第一位的，这个涉及到价值观，需要时间的积累，不好量化，至于怎么去变现，每个人都有自己的方式，简单来说就是策略选择。
 
-贯穿式车灯样式很独特，尤其是两侧灯腔内部的折线造型，还集合了转向灯，点亮后辨识度相当强。
+认知：把握结构性行情，坚持独立思考 认知层面，虽然我管理固收+产品的年限不算多，但过去投资覆盖面还是比较广的，包括可转债、股票和基金等权益相关资产都有涉及，也见证了股票市场的几轮牛熊转换，总体感觉近些年随着外资等机构投资者参与度提高，股票市场的有效性是在逐步提升的，同时经济增速缓慢下台阶基本上也形成共识了，那么未来市场大多数情形下应该都是结构性行情主导。
 
-侧面保持了传统SUV的设计，拥有黑色轮拱以及大尺寸的轮圈，翼子板上设有摄像头模组，同时还是用了传统样式的电子+机械一体门把手。
+那结构判断从何来呢，要么是产业政策变化驱动，要么是市场反复博弈交易出来的。
 
-其长宽高5235*1999*1800mm，轴距为3105mm，采用了六座布局，定位家用，六座满员状态下后备箱仍有423L容积，主打量大管饱。
+对于前者，我们可以通过及时的信息跟踪大体有个判断，包括大的政策发布、官员的讲话、媒体的报道、公司层面的并购、股权划转动作、订单情况及利润体现等；对于后者，由于身在其中，我们大部分时候很难去把握博弈的进程，但有一点可以规避的，就是不要看哪人多就往哪去，预期太高的地方往往是风险源头。
 
-车尾也配有贯穿灯组，灯腔内部的光源同样采用了折线设计，点亮后会形成酷似闪电的图案效果，与车头相呼应。
+至于说信息的获取，我认为我们是没有明显的优势的，但只要我们能多方验证，坚持独立思考，相信还是能把握住结构性机会的，市场机会有很多，不可能都抓到，特别认知范围外的，莫要强求。
 
-内饰为鸿蒙座舱，提供檀香棕、象牙米两款内饰颜色，采用环抱式设计，平直的中控台线条搭配全液晶仪表、悬浮式中控屏以及双拼色多功能方向盘，同时提供后排双侧小桌板、吸顶屏以及副驾驶老板键等。
+策略：左侧布局，均衡持仓，注重收益兑现，淡化仓位择时 策略层面，赚钱的方式有很多，选择适合自己的就好，并且策略的形成往往跟个人的成长经历有关系，借鉴意义并不强。
 
-华境S搭载华为舱内激光视觉（Limera）方案，标配乾崑ADS Pro增强版，首批上市即支持城区领航辅助NCA，标配华为乾崑全维主动安全系统，还有哨兵模式、星闪数字钥匙、全场景云服务等。
+因为之前管过权益FOF，见过不少投资人，老中青、全市场、赛道、黑马、交易高手，都有过接触，从实际管理过程来看，能一直拿着的产品，其实并不多，其中有两类情况会非常影响持有体验的，一是知行不一，二是风格漂移。
 
 ## 相关推荐
 
-- 2026-06-29 20:17 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 19:57 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 19:52 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 19:57 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 20:13 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 19:54 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 20:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 19:53 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 19:56 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 20:08 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 20:15 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 20:14 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 20:15 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 20:07 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 19:58 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 20:08 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 20:08 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 20:19 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 20:16 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 19:54 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 20:03 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 20:05 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 20:16 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 20:04 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 20:10 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 20:01 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:04 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/620127136606.shtml)
-- 2026-06-29 20:15 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/16879.shtml)
-- 2026-06-29 20:11 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.kurohicncr.top/Article/details/432297718018.shtml)
-- 2026-06-29 19:57 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/748250.shtml)
-- 2026-06-29 20:02 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/61370641.shtml)
-- 2026-06-29 20:02 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/209279297.shtml)
-- 2026-06-29 20:08 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/05380322245.shtml)
-- 2026-06-29 20:11 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/0298351003.shtml)
-- 2026-06-29 19:49 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/34013357.shtml)
-- 2026-06-29 20:13 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/724317.shtml)
-- 2026-06-29 20:09 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/2165733688.shtml)
-- 2026-06-29 20:10 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/1915611.shtml)
-- 2026-06-29 19:48 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/92885744.shtml)
-- 2026-06-29 19:57 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/5166031.shtml)
-- 2026-06-29 20:15 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.minike.top/Article/details/10325163917.shtml)
+- 2026-06-29 20:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/468085372140.shtml)
+- 2026-06-29 20:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/8629098850.shtml)
+- 2026-06-29 20:05 - [东方风云榜](http://www.blog.minike.top/Article/details/5422987.shtml)
+- 2026-06-29 20:00 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.kurohicncr.top/Article/details/22377115594.shtml)
+- 2026-06-29 20:09 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/99649632.shtml)
+- 2026-06-29 19:57 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/835960685.shtml)
+- 2026-06-29 20:06 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/541784965.shtml)
+- 2026-06-29 20:09 - [主力抛售电子和通信板块](https://www.share.kurohicncr.top/Article/details/198558205.shtml)
+- 2026-06-29 20:15 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/790797.shtml)
+- 2026-06-29 20:19 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/02984264.shtml)
+- 2026-06-29 20:05 - [本届世界杯已有5人涉性侵风波](https://www.share.minike.top/Article/details/26198456018.shtml)
+- 2026-06-29 20:11 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/4816680684.shtml)
+- 2026-06-29 19:58 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.kurohicncr.top/Article/details/641622.shtml)
+- 2026-06-29 19:54 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/307969.shtml)
+- 2026-06-29 20:03 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/78322664065.shtml)

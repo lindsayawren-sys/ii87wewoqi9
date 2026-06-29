@@ -1,59 +1,60 @@
-# 上午网络出圈，下午工厂出货！义乌制造如何跑出加速度？
+# 加密资产管理公司CoinShares将通过SPAC合并在纳斯达克上市
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-一款创意巴掌帽走红网络后，商家不到半天便完成打样、量产、上架 上午网络出圈，下午工厂出货！义乌制造如何跑出加速度？ 阅读提示 近日，一款创意巴掌帽走红网络，义乌商家上午捕捉热点、下午产出成品，满足网友对于“义乌请量产吧”的期待。“义乌速度”源于数十年积淀下完整产业链的支撑，更是义乌紧贴市场、服务消费理念的体现。“上午刷到巴掌帽，下午义乌已量产。”近日，一款源自社交平台的创意巴掌
+加密货币投资公司CoinShares表示，将于周三通过与一家特殊目的收购公司 （SPAC） 合并，开始在纳斯达克进行交易。 该公司将与Vine Hill Capital合并，成立控股公司CoinShares PLC。该交易已于周二晚间完成。该交易最初于去年9月份宣布，对该公司估值约为12亿美元，其中包括来自机构投资者的5000万美元投资。该公司将以“CSHR”为股票代码进行交易
 
 ## 正文
 
-一款创意巴掌帽走红网络后，商家不到半天便完成打样、量产、上架 上午网络出圈，下午工厂出货！
+加密货币投资公司CoinShares表示，将于周三通过与一家特殊目的收购公司 （SPAC） 合并，开始在纳斯达克进行交易。
 
-义乌制造如何跑出加速度？
+该公司将与Vine Hill Capital合并，成立控股公司CoinShares PLC。
 
-阅读提示 近日，一款创意巴掌帽走红网络，义乌商家上午捕捉热点、下午产出成品，满足网友对于“义乌请量产吧”的期待。
+该交易已于周二晚间完成。
 
-“义乌速度”源于数十年积淀下完整产业链的支撑，更是义乌紧贴市场、服务消费理念的体现。
+该交易最初于去年9月份宣布，对该公司估值约为12亿美元，其中包括来自机构投资者的5000万美元投资。
 
-“上午刷到巴掌帽，下午义乌已量产。
+该公司将以“CSHR”为股票代码进行交易。
 
-”近日，一款源自社交平台的创意巴掌遮阳帽爆火，网友纷纷留言“义乌请量产吧”。
+CoinShares是一家成立12年的欧洲资产管理公司，专注于加密资产，服务于机构和个人投资者。
 
-浙江义乌商家不负众望，从网络走红到打样、量产，仅用不到半天时间就将商品摆上了货架。
+该公司提供结构化投资产品和基金，包括在美国上市的CoinShares比特币ETF，管理着60亿美元的资产。
 
-“上午网络出圈，下午工厂出货”的速度，直观展现出义乌作为全球小商品产业高地的旺盛活力。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 19:48 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 20:12 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 20:01 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 20:07 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 20:05 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 20:02 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 19:48 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 20:11 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 19:53 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 20:15 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 19:58 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 20:13 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 20:05 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 20:23 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 20:06 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 20:16 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 19:55 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 20:20 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 19:56 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 19:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 20:14 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 19:59 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 20:04 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 20:10 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 20:21 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 20:02 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 19:57 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:10 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/4368002430.shtml)
-- 2026-06-29 19:51 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/39154.shtml)
-- 2026-06-29 20:17 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/35858950.shtml)
-- 2026-06-29 19:57 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/77303209.shtml)
-- 2026-06-29 19:48 - [男子40度高温下骑行严重晒伤](https://www.blog.kurohicncr.top/Article/details/501914036.shtml)
-- 2026-06-29 19:49 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/4298202086.shtml)
-- 2026-06-29 20:16 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/51558490010.shtml)
-- 2026-06-29 19:49 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/5215300.shtml)
-- 2026-06-29 20:10 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/873179219.shtml)
-- 2026-06-29 19:56 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/78316230247.shtml)
-- 2026-06-29 20:00 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/008700306397.shtml)
-- 2026-06-29 20:12 - [葛军透露高考出题思路](http://www.share.kurohicncr.top/Article/details/804519113799.shtml)
-- 2026-06-29 20:16 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/003678392.shtml)
-- 2026-06-29 19:52 - [大学专业未来如何洗牌](http://www.share.kurohicncr.top/Article/details/765055751446.shtml)
-- 2026-06-29 20:00 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/8759037808.shtml)
+- 2026-06-29 20:06 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/3521090134.shtml)
+- 2026-06-29 20:17 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/285338875.shtml)
+- 2026-06-29 19:56 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/056491574.shtml)
+- 2026-06-29 20:09 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/48428637627.shtml)
+- 2026-06-29 19:59 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/228843843562.shtml)
+- 2026-06-29 20:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/2039033425.shtml)
+- 2026-06-29 20:19 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/4233368.shtml)
+- 2026-06-29 20:17 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/343880634.shtml)
+- 2026-06-29 20:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/8966821.shtml)
+- 2026-06-29 20:09 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/32827715821.shtml)
+- 2026-06-29 19:55 - [叠纸](http://www.blog.minike.top/Article/details/682063369.shtml)
+- 2026-06-29 20:02 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/8809596653.shtml)
+- 2026-06-29 20:17 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/95098384.shtml)
+- 2026-06-29 20:08 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/1060524267.shtml)
+- 2026-06-29 20:01 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/775925093795.shtml)

@@ -1,54 +1,60 @@
-# 百度集团-SW盘初涨近3% 旗下昆仑芯启动科创板IPO辅导
+# 民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-百度集团-SW（09888）早盘高开近3%，截至发稿，股价上涨1.89%，报139.90港元，成交额4.47亿港元。 据证监会官网显示，昆仑芯（北京）科技股份有限公司于2026年5月7日正式启动科创板上市辅导，中国国际金融担任辅导机构。资料显示，今年1月2日，百度曾发布公告，1月1日，昆仑芯已透过其联席保荐人以保密形式向香港联交所提交上市申请表格（A1表格），以申请批准昆仑芯股
+3月31日金融一线消息，民生银行今日召开2025年度业绩交流会。谈及零售业务，执行董事、副行长张俊潼总结了2025年全年零售业务开展情况，并对2026年零售业务进行展望： 他表示，展望2026年，我们将继续保持战略定力，坚持将零售业务作为全行长期性、基础性的战略业务来开展。要坚持稳增长、优结构、强基础、提质效的工作主线，持续完善零售经营体系，强化零售风险管理，推动零售业务高质量
 
 ## 正文
 
-百度集团-SW（09888）早盘高开近3%，截至发稿，股价上涨1.89%，报139.90港元，成交额4.47亿港元。
+3月31日金融一线消息，民生银行今日召开2025年度业绩交流会。
 
-据证监会官网显示，昆仑芯（北京）科技股份有限公司于2026年5月7日正式启动科创板上市辅导，中国国际金融担任辅导机构。
+谈及零售业务，执行董事、副行长张俊潼总结了2025年全年零售业务开展情况，并对2026年零售业务进行展望： 他表示，展望2026年，我们将继续保持战略定力，坚持将零售业务作为全行长期性、基础性的战略业务来开展。
 
-资料显示，今年1月2日，百度曾发布公告，1月1日，昆仑芯已透过其联席保荐人以保密形式向香港联交所提交上市申请表格（A1表格），以申请批准昆仑芯股份于香港联交所主板上市及买卖。
+要坚持稳增长、优结构、强基础、提质效的工作主线，持续完善零售经营体系，强化零售风险管理，推动零售业务高质量发展。
 
-中银国际认为，国内GPU公司在港股上市的预期估值为300亿—1000亿港元左右，昆仑芯估值应该处于这个区间的头部。
+一是数字化经营。
 
-东吴证券香港此前指出，昆仑芯专注AI芯片，可吸引细分领域专业投资者，拓宽股东基础，独立上市后将获得直接股权及债务融资渠道，支撑技术研发与市场扩张，而百度则可分享增长红利。
+零售“一个大脑”建设已经基本完成，通过分产品、分客群的实际运用，跑通了整个大脑，从数据收集、管理决策、营销策划到销售作业，从线上到线下跑通了全流程。
 
-责任编辑：卢昱君
+二是夯实基础能力，提升全客群的服务体验。
+
+坚持“以客为尊”，用心服务，持续夯实基础客户、基础产品、基础服务、基础管理，做强全客户、全产品、全渠道、全场景服务能力，用扎实用心的服务不断提升客户的获得感和满意感。
+
+三是坚持优结构、落实高质量发展，将业务结构的不断改善作为主线，今年会进一步的着力在消贷的资产结构上，按照政策导向、监管要求，以及同业的普遍做法加强风险管理，进一步回归本源，服务实体经济，夯实高质量发展的基础。
 
 ## 相关推荐
 
-- 2026-06-29 20:16 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 19:48 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 19:48 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 19:57 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 20:02 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 20:08 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 19:50 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 20:03 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 19:51 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 19:48 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 20:06 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 20:00 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 20:12 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 20:06 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 20:06 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 20:12 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 20:11 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 20:12 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 20:00 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 19:54 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 19:56 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 19:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 20:08 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 19:54 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 19:55 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 20:12 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:08 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/225841307580.shtml)
-- 2026-06-29 20:17 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/9277176760.shtml)
-- 2026-06-29 20:07 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/887193958.shtml)
-- 2026-06-29 20:06 - [章若楠包场白敬亭特立独行](https://www.blog.kurohicncr.top/Article/details/667027.shtml)
-- 2026-06-29 19:58 - [天道](http://www.blog.kurohicncr.top/Article/details/217530773044.shtml)
-- 2026-06-29 20:10 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/43885300651.shtml)
-- 2026-06-29 20:13 - [特朗普两大核心赌注将迎高院裁决](http://www.share.minike.top/Article/details/303922755.shtml)
-- 2026-06-29 20:03 - [当我回母校教书](http://www.share.minike.top/Article/details/043606116463.shtml)
-- 2026-06-29 20:08 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/304782828.shtml)
-- 2026-06-29 20:13 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/6795312.shtml)
-- 2026-06-29 20:13 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/52094441.shtml)
-- 2026-06-29 19:50 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/82668247.shtml)
-- 2026-06-29 20:04 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/359410.shtml)
-- 2026-06-29 19:58 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/4322211.shtml)
-- 2026-06-29 20:02 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/05248.shtml)
+- 2026-06-29 20:23 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.minike.top/Article/details/8726678070.shtml)
+- 2026-06-29 20:01 - [济南航空航天全面起势](https://www.blog.minike.top/Article/details/39638091.shtml)
+- 2026-06-29 20:14 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/58145499.shtml)
+- 2026-06-29 20:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/1054120.shtml)
+- 2026-06-29 20:15 - [郑钦文谈再战西尼亚科娃](https://www.blog.minike.top/Article/details/4467607.shtml)
+- 2026-06-29 19:55 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/3863303.shtml)
+- 2026-06-29 20:16 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/69476.shtml)
+- 2026-06-29 19:58 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.minike.top/Article/details/89050.shtml)
+- 2026-06-29 20:13 - [赵今麦时隔五年再演李诗情](http://www.share.kurohicncr.top/Article/details/53173297456.shtml)
+- 2026-06-29 20:11 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/604580219.shtml)
+- 2026-06-29 19:58 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/69870443907.shtml)
+- 2026-06-29 19:54 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/735245019392.shtml)
+- 2026-06-29 20:11 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/05693104139.shtml)
+- 2026-06-29 20:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/0966680540.shtml)
+- 2026-06-29 20:02 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/083546.shtml)

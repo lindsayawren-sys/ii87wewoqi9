@@ -1,61 +1,52 @@
-# 港股收评：恒指涨1.55% 科指涨3.02% 科网股、芯片股普涨 商业航天板块强势 华虹半导体涨超8%
+# 美国银行预计美元短期内走强 下半年将重回弱势
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-5月7日消息，港股三大指数高开高走。截至收盘，恒生指数涨1.55%，报26621.08点，恒生科技指数涨3.02%，国企指数涨1.33%。盘面上，科网股集体上涨，快手涨超7%，百度、阿里巴巴涨超4%，联想、腾讯、哔哩哔哩涨超3%；航空股强势，中国国航涨超5%；商业航天板块涨幅居前，钧达股份涨超8%；芯片股活跃，华虹半导体涨超8%。 航空股强势，中国国航涨超5%。受中东地缘冲突缓
+美国银行表示，能源价格上涨和全球滞胀风险短期内对美元构成支撑，但财政风险以及美国劳动力市场可能走弱将在今年下半年对美元构成拖累。 “短期来看，美元仍存在上行风险，但市场情绪可能反复无常，”策略师Alex Cohen和Michalis Rousakis周二在报告中写道，“除了短期的战争和油价驱动因素外，市场仍需应对美国劳动力市场可能走弱、私募信贷波动以及财政担忧再度升温等风险。”
 
 ## 正文
 
-5月7日消息，港股三大指数高开高走。
+美国银行表示，能源价格上涨和全球滞胀风险短期内对美元构成支撑，但财政风险以及美国劳动力市场可能走弱将在今年下半年对美元构成拖累。
 
-截至收盘，恒生指数涨1.55%，报26621.08点，恒生科技指数涨3.02%，国企指数涨1.33%。
+“短期来看，美元仍存在上行风险，但市场情绪可能反复无常，”策略师Alex Cohen和Michalis Rousakis周二在报告中写道，“除了短期的战争和油价驱动因素外，市场仍需应对美国劳动力市场可能走弱、私募信贷波动以及财政担忧再度升温等风险。
 
-盘面上，科网股集体上涨，快手涨超7%，百度、阿里巴巴涨超4%，联想、腾讯、哔哩哔哩涨超3%；航空股强势，中国国航涨超5%；商业航天板块涨幅居前，钧达股份涨超8%；芯片股活跃，华虹半导体涨超8%。
+” “从更长期来看，地缘政治格局的演变将继续引发市场对美元风险敞口最优配置的疑问，”他们表示。
 
-航空股强势，中国国航涨超5%。
+该团队仍看空欧元/美元，预计第二季度末为1.14，风险偏下行。
 
-受中东地缘冲突缓和的影响，周三国际油价盘中大跳水，WTI原油、布伦特原油价格一度跌超10%。
+“我们预计欧元/美元到年底将升至1.20，前提是美联储不加息、能源价格恢复正常，以及美国与欧元区经济增长逐步趋同，”他们表示。
 
-据悉，燃油成本通常占航空公司运营支出的四分之一，航空燃油价格从美伊冲突前的每桶85至90美元骤升至150至200美元，各大航司正紧急采取应对措施。
-
-商业航天板块涨幅居前，钧达股份涨超8%。
-
-太空算力迎来催化，马斯克旗下初创公司xAI称，与Anthropic建立新的计算合作伙伴关系。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 20:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 19:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 19:59 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 19:58 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 20:16 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 20:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 20:01 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 19:57 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 19:49 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 20:10 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 20:01 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 20:00 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 20:03 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 19:59 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 20:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 20:05 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 20:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 20:02 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 20:14 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 20:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 20:09 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 19:55 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 20:11 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 20:08 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:14 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/2638669586.shtml)
-- 2026-06-29 20:11 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/3171658463.shtml)
-- 2026-06-29 19:57 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/636228835.shtml)
-- 2026-06-29 19:57 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/60668.shtml)
-- 2026-06-29 19:49 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/23510805.shtml)
-- 2026-06-29 20:07 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/15084379169.shtml)
-- 2026-06-29 19:50 - [刘冰任河南南阳市代市长](https://www.share.minike.top/Article/details/992562245.shtml)
-- 2026-06-29 20:15 - [我们的少年时代2](http://www.share.minike.top/Article/details/869713355.shtml)
-- 2026-06-29 19:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/915321568.shtml)
-- 2026-06-29 20:15 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/86062049.shtml)
-- 2026-06-29 20:15 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/2369271.shtml)
-- 2026-06-29 20:01 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/0487237163.shtml)
-- 2026-06-29 20:09 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/18874084.shtml)
-- 2026-06-29 20:03 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/66472091340.shtml)
-- 2026-06-29 20:12 - [医药生物行业今日涨5.91%](https://www.blog.minike.top/Article/details/3338415732.shtml)
+- 2026-06-29 20:02 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/02582377.shtml)
+- 2026-06-29 20:04 - [夫妻生活太无聊，所以我……](http://www.blog.minike.top/Article/details/431398357.shtml)
+- 2026-06-29 20:14 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/223803.shtml)
+- 2026-06-29 20:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/62746.shtml)
+- 2026-06-29 20:06 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/76615467732.shtml)
+- 2026-06-29 20:15 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.minike.top/Article/details/12458975.shtml)
+- 2026-06-29 20:10 - [海清4次陪跑白玉兰](http://www.blog.minike.top/Article/details/5739312.shtml)
+- 2026-06-29 20:20 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/766838.shtml)
+- 2026-06-29 20:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/598958966067.shtml)
+- 2026-06-29 20:01 - [郑钦文谈再战西尼亚科娃](http://www.share.minike.top/Article/details/51777942731.shtml)
+- 2026-06-29 20:04 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/65453.shtml)
+- 2026-06-29 20:21 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/095290731324.shtml)
+- 2026-06-29 19:59 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/49167446.shtml)
+- 2026-06-29 20:19 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/48231.shtml)
+- 2026-06-29 20:12 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/49387076225.shtml)

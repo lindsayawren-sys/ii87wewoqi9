@@ -1,56 +1,56 @@
-# 浏阳烟花厂爆炸涉事企业多次被查出隐患、违规行为反复出现
+# 甘肃成县：樱桃花开“抱团”香 集体经济增收忙
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-独家调查丨浏阳烟花厂爆炸涉事企业多次被查出隐患、违规行为反复出现 近日，湖南长沙市浏阳烟花厂发生的爆炸事故，在当地和整个行业持续引发震动。事故发生后，湖南省烟花爆竹企业全面停产整顿。烟花爆竹是浏阳的传统支柱产业，这里汇聚了430多家烟花企业、超30万从业人员，年产值超500亿，占据全国六成的市场份额、七成的出口份额。 烟花爆竹产业对浏阳来说如此重要，随之而来的是巨大的安全挑战。
+中新网兰州4月7日电 (刘建军)4月初，甘肃陇南市成县王磨镇陈庄村的大棚樱桃种植基地里，温湿度传感器数字跳动，水肥一体化管道精准滴灌。村民们穿梭花树间，手持小刷子，在樱桃花花蕊间点蘸授粉。 “大棚樱桃可避免病虫害和霜冻、冰雹，果品更有保障。”甘肃鑫康达生态农业发展有限公司负责人王波介绍说，大棚温度可控，成熟期早，樱桃能错峰上市，种植户收入更稳定。 近年来，当地立足生态优势，以科
 
 ## 正文
 
-独家调查丨浏阳烟花厂爆炸涉事企业多次被查出隐患、违规行为反复出现 近日，湖南长沙市浏阳烟花厂发生的爆炸事故，在当地和整个行业持续引发震动。
+中新网兰州4月7日电 (刘建军)4月初，甘肃陇南市成县王磨镇陈庄村的大棚樱桃种植基地里，温湿度传感器数字跳动，水肥一体化管道精准滴灌。
 
-事故发生后，湖南省烟花爆竹企业全面停产整顿。
+村民们穿梭花树间，手持小刷子，在樱桃花花蕊间点蘸授粉。
 
-烟花爆竹是浏阳的传统支柱产业，这里汇聚了430多家烟花企业、超30万从业人员，年产值超500亿，占据全国六成的市场份额、七成的出口份额。
+“大棚樱桃可避免病虫害和霜冻、冰雹，果品更有保障。
 
-烟花爆竹产业对浏阳来说如此重要，随之而来的是巨大的安全挑战。
+”甘肃鑫康达生态农业发展有限公司负责人王波介绍说，大棚温度可控，成熟期早，樱桃能错峰上市，种植户收入更稳定。
 
-公开资料显示，近些年，浏阳烟花爆炸事故屡有发生。
+近年来，当地立足生态优势，以科技赋能、文旅融合、集体经济抱团发展为路径，让小小樱桃成为撬动乡村振兴的“黄金果”。
 
-当地烟花爆竹产业的安全监管还可以从哪些方面进一步提升？
+“集体抱团”让多个村子拧成一股绳，甜头甜在枝上、甜进心里。
 
-总台中国之声记者对此展开独家调查。
+该基地学习山东“一根棍”矮化密植新技术，栽植布鲁克斯、萨米托等新品种2000多株，实现单位面积高效种植，聘请山东专家全程指导，本地技术员驻园把关。
 
-据天眼查，这次发生爆炸事故的浏阳市华盛烟花制造燃放有限公司成立于2000年8月，注册资本540万元。
+王波说，今年大棚果树已开花，首年预计亩产值达3万元以上，下一步计划延伸产业链，开发果酱、果酒、果干等产品，让樱桃成为“致富果”。
 
 ## 相关推荐
 
-- 2026-06-29 20:00 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 20:14 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 19:54 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 20:12 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 20:08 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 20:03 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 19:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 20:15 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 20:02 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 20:10 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 20:20 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 20:05 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 20:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 20:18 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 20:23 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 20:02 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 20:22 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 19:58 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 20:16 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 20:19 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:16 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/8046569698.shtml)
-- 2026-06-29 19:55 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/86092.shtml)
-- 2026-06-29 19:51 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/76382264.shtml)
-- 2026-06-29 20:08 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/63379261700.shtml)
-- 2026-06-29 19:54 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/953228313.shtml)
-- 2026-06-29 20:14 - [锐评T1零封KC](https://www.share.minike.top/Article/details/455863324597.shtml)
-- 2026-06-29 19:53 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/326705575323.shtml)
-- 2026-06-29 20:08 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/221351.shtml)
-- 2026-06-29 19:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/51579199.shtml)
-- 2026-06-29 19:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/37196.shtml)
-- 2026-06-29 20:09 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/3231234671.shtml)
-- 2026-06-29 20:12 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/3507458649.shtml)
-- 2026-06-29 20:10 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/285674.shtml)
-- 2026-06-29 20:08 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/33436.shtml)
-- 2026-06-29 20:09 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/478854116.shtml)
+- 2026-06-29 20:18 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/86962904.shtml)
+- 2026-06-29 19:57 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/44532.shtml)
+- 2026-06-29 20:08 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/319039.shtml)
+- 2026-06-29 20:02 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/979062.shtml)
+- 2026-06-29 20:13 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/82257217.shtml)
+- 2026-06-29 20:06 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/385063.shtml)
+- 2026-06-29 20:23 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/60238037.shtml)
+- 2026-06-29 20:21 - [德国医生在没有空调的手术室工作](https://www.share.minike.top/Article/details/550147960.shtml)
+- 2026-06-29 20:15 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/393693574.shtml)
+- 2026-06-29 19:55 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/32498981732.shtml)
+- 2026-06-29 19:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/371541823.shtml)
+- 2026-06-29 20:06 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/076058.shtml)
+- 2026-06-29 20:07 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/85882800.shtml)
+- 2026-06-29 20:22 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/6369527.shtml)
+- 2026-06-29 20:05 - [勇敢的心第二部](http://www.share.minike.top/Article/details/1507436.shtml)

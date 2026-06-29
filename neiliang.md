@@ -1,60 +1,57 @@
-# 泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓
+# 美国汽油均价突破每加仑4美元 创2022年以来新高
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-泡泡玛特（09992）盘中涨超7%，截至发稿，股价上涨6.04%，现报172港元，成交额30.35亿港元。 5月7日，知名投资人段永平在社交平台发文称，其把煤炭股中国神华全部换成了潮玩公司泡泡玛特。值得关注的是，段永平近期密集发声，多次在投资者社区提及泡泡玛特。今年4月，段永平称 “我的泡泡玛特保险公司正式开张了”，并表示除非想法改变，后续会继续收集目标仓位。他提到，泡泡玛特最
+要点 美国汽油价格三年多来首次突破每加仑 4 美元，中东冲突引发的石油供应震荡正迅速推高美国家庭的出行成本。 美国汽车协会（AAA）数据显示，全美汽油均价已达每加仑 4.018 美元，为 2022 年 8 月俄乌冲突冲击能源市场以来的最高水平。自 2 月下旬美以对伊朗采取军事行动后，汽油价格涨幅已超 30%。 美国环保署署长李・泽尔丁上周在休斯敦标普全球 CERAWeek 能源
 
 ## 正文
 
-泡泡玛特（09992）盘中涨超7%，截至发稿，股价上涨6.04%，现报172港元，成交额30.35亿港元。
+要点 美国汽油价格三年多来首次突破每加仑 4 美元，中东冲突引发的石油供应震荡正迅速推高美国家庭的出行成本。
 
-5月7日，知名投资人段永平在社交平台发文称，其把煤炭股中国神华全部换成了潮玩公司泡泡玛特。
+美国汽车协会（AAA）数据显示，全美汽油均价已达每加仑 4.018 美元，为 2022 年 8 月俄乌冲突冲击能源市场以来的最高水平。
 
-值得关注的是，段永平近期密集发声，多次在投资者社区提及泡泡玛特。
+自 2 月下旬美以对伊朗采取军事行动后，汽油价格涨幅已超 30%。
 
-今年4月，段永平称 “我的泡泡玛特保险公司正式开张了”，并表示除非想法改变，后续会继续收集目标仓位。
+美国环保署署长李・泽尔丁上周在休斯敦标普全球 CERAWeek 能源大会上对记者表示：“我们预计美国燃油供应可能出现中断。
 
-他提到，泡泡玛特最新财报的盈利表现激起了他的好奇心，为此连续数日研究这家公司，直言 “很久没有这种兴奋感了”。
+” 为缓解价格压力，环保署正临时放宽部分监管规定以增加汽油供应。
 
-4月底，泡泡玛特旗下LABUBU冰箱发售，限量1998台秒售罄，二手溢价最高达2.5倍，进一步印证了IP的强劲号召力。
+副总统 JD・万斯对消费者表示，未来几周汽油价格将面临 “艰难局面”。
 
-截至2025年末，泡泡玛特在全球20个国家运营630家门店，全年净增109家。
+他承诺此次价格暴涨只是暂时现象，战争结束后油价便会回落。
 
-国信证券认为，公司的IP运营能力得到持续验证、海外渠道迅猛成长、多元业态扩展有望提升IP运营深度；当前估值具备上修空间。
+3 月 18 日，万斯在密歇根州奥本山的一场活动中称：“我们意识到了问题所在，也正在尽一切努力解决问题。
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 19:59 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 20:00 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 20:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 20:08 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 20:12 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 19:48 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 19:55 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 20:04 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 19:51 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 19:53 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 20:06 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 19:54 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 19:58 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 20:11 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 19:55 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 19:58 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 20:12 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 19:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 20:16 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 20:17 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 20:03 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 19:54 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 19:54 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 20:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:54 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/8855280.shtml)
-- 2026-06-29 20:13 - [大学专业未来如何洗牌](https://www.share.kurohicncr.top/Article/details/95718370.shtml)
-- 2026-06-29 19:48 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/988588781944.shtml)
-- 2026-06-29 20:02 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/89794.shtml)
-- 2026-06-29 19:53 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/79128.shtml)
-- 2026-06-29 19:58 - [女生每天戴耳机18小时突发耳聋](http://www.share.kurohicncr.top/Article/details/697308284409.shtml)
-- 2026-06-29 20:02 - [伊朗足球队将启程回国](http://www.share.minike.top/Article/details/622876192.shtml)
-- 2026-06-29 20:00 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/6828610.shtml)
-- 2026-06-29 20:15 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/349116.shtml)
-- 2026-06-29 19:49 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/1118755883.shtml)
-- 2026-06-29 19:52 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/028381388.shtml)
-- 2026-06-29 19:54 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/9965931528.shtml)
-- 2026-06-29 20:03 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/194730053771.shtml)
-- 2026-06-29 19:50 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/406233193196.shtml)
-- 2026-06-29 20:13 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/8459429.shtml)
+- 2026-06-29 20:20 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/46375509257.shtml)
+- 2026-06-29 20:05 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/236700356854.shtml)
+- 2026-06-29 20:01 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/678881.shtml)
+- 2026-06-29 20:01 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.kurohicncr.top/Article/details/22067095462.shtml)
+- 2026-06-29 19:55 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/5337392752.shtml)
+- 2026-06-29 20:23 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/849434104395.shtml)
+- 2026-06-29 20:09 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/755263.shtml)
+- 2026-06-29 20:00 - [流金岁月](http://www.share.minike.top/Article/details/1080342.shtml)
+- 2026-06-29 19:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/740998.shtml)
+- 2026-06-29 20:18 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/2033554.shtml)
+- 2026-06-29 19:55 - [德国医生在没有空调的手术室工作](http://www.blog.minike.top/Article/details/5134392.shtml)
+- 2026-06-29 20:08 - [Ella回应SHE何时合体](https://www.share.kurohicncr.top/Article/details/9723506.shtml)
+- 2026-06-29 20:24 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/76857950720.shtml)
+- 2026-06-29 20:05 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/3128931808.shtml)
+- 2026-06-29 20:07 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/995738.shtml)

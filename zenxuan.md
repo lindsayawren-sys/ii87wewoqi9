@@ -1,60 +1,56 @@
-# 一张照片刷开门锁？消协实测曝光：智能锁这些功能有隐患
+# 一部电影亏掉全部利润 果麦文化上市以来首度亏损
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-智能门锁凭借便捷高效的使用体验，已经成为不少现代家庭的标配产品。不过，您有没有想到，这些智能门锁也有安全隐患？近日，京津冀三地消协组织共采集20个主流品牌、30款热销智能门锁进行比较试验。令人意想不到的是，这其中有的产品，用一张打印照片就能打开。在对某款智能锁的测试中，工作人员事先录入其人脸信息，令人意想不到的是，随后另一名工作人员使用其照片也顺利地打开了门锁。 工程师介绍，出
+2026年3月30日晚间，果麦文化传媒股份有限公司（301052.SZ）发布了2025年年度报告，交出了一份令市场倍感意外的成绩单。公司在2025年实现营业收入6.41亿元，同比增长10.11%，在整体图书零售市场码洋同比下降2.24%的行业寒冷冬中实现了逆势增长。 然而，这却是果麦文化自2021年上市以来首次出现年度亏损，归母净利润亏损208.11万元，同比大幅下滑105.1
 
 ## 正文
 
-智能门锁凭借便捷高效的使用体验，已经成为不少现代家庭的标配产品。
+2026年3月30日晚间，果麦文化传媒股份有限公司（301052.SZ）发布了2025年年度报告，交出了一份令市场倍感意外的成绩单。
 
-不过，您有没有想到，这些智能门锁也有安全隐患？
+公司在2025年实现营业收入6.41亿元，同比增长10.11%，在整体图书零售市场码洋同比下降2.24%的行业寒冷冬中实现了逆势增长。
 
-近日，京津冀三地消协组织共采集20个主流品牌、30款热销智能门锁进行比较试验。
+然而，这却是果麦文化自2021年上市以来首次出现年度亏损，归母净利润亏损208.11万元，同比大幅下滑105.10%，而扣除非经常性损益后的净利润亏损更为惨烈，高达3522.43万元，同比暴跌196.35%。
 
-令人意想不到的是，这其中有的产品，用一张打印照片就能打开。
+利润坍塌的“罪魁祸首”：一部电影亏掉全部利润 果麦文化上市以来首次亏损的核心导火索，并非主业疲软，而是跨界电影投资的一次重大失误。
 
-在对某款智能锁的测试中，工作人员事先录入其人脸信息，令人意想不到的是，随后另一名工作人员使用其照片也顺利地打开了门锁。
+2025年10月，公司主投主控的动画电影《三国的星空第一部》上映后票房严重不及预期，导致投入的电影制作成本无法收回，全年电影业务确认亏损高达4360万元。
 
-工程师介绍，出现这类问题，主要是部分企业希望给用户带来更顺畅、接近“秒开”的解锁体验，因此会适当调低识别阈值，优先保障操作的便捷性。
+这一数字意味着什么？
 
-某智能家居检测中心副部长 魏明然：把阈值调低，给人的体验是开门会比较快。
+2024年果麦文化全年的归母净利润不过4083万元。
 
-有的门锁把阈值调得相对高一些，安全性会高一些，在体验上开门时间会稍长。
+一部电影的投资失利，几乎直接吞噬了公司当年主业所创造的绝大部分利润。
 
 ## 相关推荐
 
-- 2026-06-29 20:01 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 19:53 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 20:07 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 20:02 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 20:01 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 20:07 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 20:00 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 19:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 20:04 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 19:56 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 19:56 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 20:10 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 20:03 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 19:48 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 20:08 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 20:20 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 19:55 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 19:54 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 20:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 20:05 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 20:11 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 19:57 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 20:04 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 20:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:11 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/722423.shtml)
-- 2026-06-29 20:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/560918863496.shtml)
-- 2026-06-29 20:12 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/86605754.shtml)
-- 2026-06-29 19:54 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/8320137.shtml)
-- 2026-06-29 19:55 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/749580580499.shtml)
-- 2026-06-29 20:17 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/87209922.shtml)
-- 2026-06-29 20:03 - [东方风云榜](https://www.blog.minike.top/Article/details/99542991719.shtml)
-- 2026-06-29 20:17 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.kurohicncr.top/Article/details/69153.shtml)
-- 2026-06-29 20:16 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/495073.shtml)
-- 2026-06-29 20:09 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.minike.top/Article/details/6104409.shtml)
-- 2026-06-29 20:12 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/4722915708.shtml)
-- 2026-06-29 19:56 - [德国医生在没有空调的手术室工作](https://www.share.minike.top/Article/details/43711.shtml)
-- 2026-06-29 19:49 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/19902131818.shtml)
-- 2026-06-29 19:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/465435160009.shtml)
-- 2026-06-29 20:17 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/811265.shtml)
+- 2026-06-29 19:56 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/70192147.shtml)
+- 2026-06-29 20:14 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/542357810214.shtml)
+- 2026-06-29 19:57 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/701415877539.shtml)
+- 2026-06-29 20:21 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/825078.shtml)
+- 2026-06-29 20:16 - [滚石点名酒店员工说有急救培训](https://www.share.kurohicncr.top/Article/details/04615.shtml)
+- 2026-06-29 20:03 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/33341.shtml)
+- 2026-06-29 20:16 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/47582379.shtml)
+- 2026-06-29 20:20 - [美人鱼](http://www.blog.minike.top/Article/details/995630401534.shtml)
+- 2026-06-29 20:04 - [天道](https://www.blog.minike.top/Article/details/072701.shtml)
+- 2026-06-29 20:06 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/41184.shtml)
+- 2026-06-29 20:23 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/52285986970.shtml)
+- 2026-06-29 19:58 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/457045.shtml)
+- 2026-06-29 19:54 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/028231.shtml)
+- 2026-06-29 20:20 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/87790125.shtml)
+- 2026-06-29 20:20 - [LPL第三赛段赛制公布](https://www.blog.kurohicncr.top/Article/details/580050020670.shtml)

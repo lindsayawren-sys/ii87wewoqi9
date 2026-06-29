@@ -1,58 +1,61 @@
-# 【新思想引领新征程】新型能源体系加快建设 筑牢能源安全根基
+# 严厉打击欺诈骗保 医保基金监管新规今起施行
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-央视网消息（新闻联播）：习近平总书记强调，能源保障和安全事关国计民生，是须臾不可忽视的“国之大者”。当前，我国加快推进新型能源体系建设，加大清洁能源开发力度，提升清洁能源利用水平，能源安全韧性不断增强，为经济社会发展提供有力支撑。 今天的中国能源版图上，跃动着蓬勃的绿色动力。 在海上，153米的风机叶片旋转一圈发出62度电。一天时间里，全国所有风机发出的电，足够一座2000万人
+来源：经济参考报 4月1日，《医疗保障基金使用监督管理条例实施细则》（简称《实施细则》）正式施行。3月31日，在国家医保局召开的新闻发布会上，国家医保局副局长黄华波指出，《实施细则》的颁布实施，有利于提高医保基金监管精细化水平，更好地打击违法违规使用医保基金和欺诈骗保行为，提升医保治理效能。国家医保局将以此为契机，制定完善相关配套行政规范性文件，进一步规范基金监管，提升基金监管
 
 ## 正文
 
-央视网消息（新闻联播）：习近平总书记强调，能源保障和安全事关国计民生，是须臾不可忽视的“国之大者”。
+来源：经济参考报 4月1日，《医疗保障基金使用监督管理条例实施细则》（简称《实施细则》）正式施行。
 
-当前，我国加快推进新型能源体系建设，加大清洁能源开发力度，提升清洁能源利用水平，能源安全韧性不断增强，为经济社会发展提供有力支撑。
+3月31日，在国家医保局召开的新闻发布会上，国家医保局副局长黄华波指出，《实施细则》的颁布实施，有利于提高医保基金监管精细化水平，更好地打击违法违规使用医保基金和欺诈骗保行为，提升医保治理效能。
 
-今天的中国能源版图上，跃动着蓬勃的绿色动力。
+国家医保局将以此为契机，制定完善相关配套行政规范性文件，进一步规范基金监管，提升基金监管质效。
 
-在海上，153米的风机叶片旋转一圈发出62度电。
+国家医保局基金监管司司长顾荣指出，《实施细则》将医保基金监管工作中面临的突出、典型问题予以进一步细化，为严厉打击欺诈骗保提供了更加有力的法律武器。
 
-一天时间里，全国所有风机发出的电，足够一座2000万人口的超大城市居民用上一个月，也可以支撑238万辆新能源汽车的制造。
+据了解，《实施细则》共5章46条，进一步明确了医保行政部门监管职责、经办机构审核责任、定点医药机构主体责任等，对长期护理保险等新领域的监管依据作出规定。
 
-如今，全国每发出10度电，就有约4度来自于可再生能源。
+顾荣表示，国家医保局将重点打击以“车接车送”“减免费用”“给好处费”“赠送米面油”等方式进行骗保的问题。
 
-从2012年到2021年，不到十年，我国可再生能源装机量翻了2倍多，突破10亿千瓦，建成全球最大可再生能源体系；到2023年，我国可再生能源装机占全国电力总装机比重首次过半，历史性超过火电。
+明知他人实施欺诈骗保行为，仍然参与其组织的违法活动，接受赠予财物、减免费用或者提供额外服务的，可以按照欺诈骗保进行处罚。
 
-目前，全国可再生能源装机已近24亿千瓦，占全球可再生能源装机近一半，有力支撑我国能源自给率稳定保持在80%以上。
+顾荣指出，将重点打击倒卖“回流药”等问题。
 
 ## 相关推荐
 
-- 2026-06-29 20:04 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 20:07 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 19:58 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 20:00 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 20:04 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 19:51 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 20:00 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 19:58 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 20:15 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 20:01 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 19:49 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-29 20:11 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 20:06 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 20:05 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 20:20 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 20:14 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 20:18 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 20:14 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 20:06 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 20:10 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 20:06 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 20:05 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 20:19 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 20:11 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 19:54 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 20:14 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 20:08 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/549749010796.shtml)
-- 2026-06-29 19:52 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/116161.shtml)
-- 2026-06-29 20:02 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/310938.shtml)
-- 2026-06-29 20:08 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/643741873.shtml)
-- 2026-06-29 20:03 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/36244789310.shtml)
-- 2026-06-29 19:59 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/4764991.shtml)
-- 2026-06-29 19:54 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/48331837.shtml)
-- 2026-06-29 20:17 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/239256790481.shtml)
-- 2026-06-29 19:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/053890140004.shtml)
-- 2026-06-29 20:09 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/4372931.shtml)
-- 2026-06-29 20:12 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/82500300.shtml)
-- 2026-06-29 19:54 - [欧洲极端高温如何影响家电股](http://www.share.kurohicncr.top/Article/details/242226740.shtml)
-- 2026-06-29 20:10 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/465408406.shtml)
-- 2026-06-29 19:53 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/09847381775.shtml)
-- 2026-06-29 20:14 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/386173562434.shtml)
+- 2026-06-29 20:05 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/85084534.shtml)
+- 2026-06-29 20:20 - [叠纸](https://www.share.minike.top/Article/details/26678.shtml)
+- 2026-06-29 19:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/00123969791.shtml)
+- 2026-06-29 20:21 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/891959.shtml)
+- 2026-06-29 20:06 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/048340254.shtml)
+- 2026-06-29 20:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/0990742.shtml)
+- 2026-06-29 20:16 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/741666.shtml)
+- 2026-06-29 19:58 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/12484917510.shtml)
+- 2026-06-29 20:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/850903808929.shtml)
+- 2026-06-29 20:08 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/6561361.shtml)
+- 2026-06-29 20:10 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/4483068437.shtml)
+- 2026-06-29 20:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/45137492852.shtml)
+- 2026-06-29 20:06 - [济南航空航天全面起势](http://www.share.kurohicncr.top/Article/details/30362017385.shtml)
+- 2026-06-29 20:13 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/9677450.shtml)
+- 2026-06-29 20:13 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/9259429325.shtml)

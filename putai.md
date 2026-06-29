@@ -1,57 +1,56 @@
-# 杨植麟现身后，Kimi又融资140亿
+# 送给长大了的孩子们 董浩新书《我等着你的好消息》发布
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-作者/周佳丽 报道/投资界PEdaily 座谈会之后。 投资界获悉，月之暗面（Kimi）即将完成新一轮20亿美元（约合人民币140亿元）融资，投后估值破200亿美元（约合人民币1400亿元），本轮融资由美团龙珠领投，中国移动、CPE源峰等参投，另有多家老股东加注。 至此，Kimi累计融资额已超376亿元人民币，成为中国大模型创业公司中累计融资最多的公司；全年ARR收入也从3月初
+中新网北京4月7日电 (记者 高凯)“大风车吱呀吱哟哟地转……”当这段旋律响起，无数“80后”、“90后”的记忆瞬间被拉回那个守在电视机前的童年黄昏。日前节目主持人董浩带着他的新书《我等着你的好消息》与读者见面。 在该书的新书发布会上，董浩介绍了此次新作的创作初衷，自己做少儿节目主持人几十年，当年电视机前千千万万的孩子早已成了他不变的牵挂。几十年来从全国各地寄来的信，他每一封都
 
 ## 正文
 
-作者/周佳丽 报道/投资界PEdaily 座谈会之后。
+中新网北京4月7日电 (记者 高凯)“大风车吱呀吱哟哟地转……”当这段旋律响起，无数“80后”、“90后”的记忆瞬间被拉回那个守在电视机前的童年黄昏。
 
-投资界获悉，月之暗面（Kimi）即将完成新一轮20亿美元（约合人民币140亿元）融资，投后估值破200亿美元（约合人民币1400亿元），本轮融资由美团龙珠领投，中国移动、CPE源峰等参投，另有多家老股东加注。
+日前节目主持人董浩带着他的新书《我等着你的好消息》与读者见面。
 
-至此，Kimi累计融资额已超376亿元人民币，成为中国大模型创业公司中累计融资最多的公司；全年ARR收入也从3月初突破1亿美元，到4月超过2亿美元，付费用户订阅和API调用成为主要推动力。
+在该书的新书发布会上，董浩介绍了此次新作的创作初衷，自己做少儿节目主持人几十年，当年电视机前千千万万的孩子早已成了他不变的牵挂。
 
-就在两周前，Kimi发布长程编码能力取得突破的K2.6模型——1T参数MoE架构，32B激活，可连续编码13小时，Agent可持续自主运行5天，夺回开源模型全球第一宝座。
+几十年来从全国各地寄来的信，他每一封都看，能回的尽量回。
 
-几乎同一时间，DeepSeek首轮融资浮出水面，随后DeepSeek V4正式亮相，据传估值逼近450亿美元。
+那些稚嫩的笔迹、小心翼翼的倾诉，他都收在心里，一揣就是三十年。
 
-如此，包揽全球权威开源模型榜单前两名——有人把这比作中国AI界的“两弹一星”时刻：从DeepSeek到Kimi，中国AI公司正从追赶者成为规则重构者。
+搬过几次家，至今家里的书柜里还有满满当当的几袋信。
 
-当估值破200亿美元 Kimi王炸浮现 Kimi正在刷新想象力。
+2025年，年近古稀的董浩翻出了三十年来收到的已经泛黄的上千封小朋友来信。
 
-4月20日深夜，月之暗面发布并开源了Kimi K2.6：可以连续编码13个小时，一口气编写或修改超过4000行代码，完成一整个复杂系统的开发与优化，是Kimi迄今最强的代码模型。
+他在视频号里对着那些早已模糊的地址，轻声问了一句：“给我写过信的小朋友，你们过得好吗？
 
 ## 相关推荐
 
-- 2026-06-29 20:06 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 20:13 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 19:54 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 19:56 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 19:53 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 19:48 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 20:07 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 20:03 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 20:00 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 20:05 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 20:04 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 20:03 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 20:20 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 20:21 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 20:04 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 20:19 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 20:01 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 20:10 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 19:57 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 20:22 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 20:00 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/51964789.shtml)
-- 2026-06-29 20:15 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/312648541.shtml)
-- 2026-06-29 19:54 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/9961581098.shtml)
-- 2026-06-29 20:07 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/6704823.shtml)
-- 2026-06-29 19:48 - [急先锋](http://www.blog.minike.top/Article/details/202794792852.shtml)
-- 2026-06-29 19:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/080863225608.shtml)
-- 2026-06-29 20:06 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/54378822.shtml)
-- 2026-06-29 20:03 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/39120050.shtml)
-- 2026-06-29 19:55 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/788861340.shtml)
-- 2026-06-29 20:14 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/3232471487.shtml)
-- 2026-06-29 20:01 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/39918426.shtml)
-- 2026-06-29 19:49 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/273853550.shtml)
-- 2026-06-29 19:50 - [宜宾地震已转移安置225人](http://www.blog.kurohicncr.top/Article/details/808561.shtml)
-- 2026-06-29 20:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/157095831.shtml)
-- 2026-06-29 20:15 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/9996708737.shtml)
+- 2026-06-29 20:17 - [无畏为自己的猫正名了](https://www.share.kurohicncr.top/Article/details/667026.shtml)
+- 2026-06-29 20:10 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/219240608589.shtml)
+- 2026-06-29 20:19 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/41094257.shtml)
+- 2026-06-29 19:59 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/151260588422.shtml)
+- 2026-06-29 20:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/91713545.shtml)
+- 2026-06-29 20:00 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/09837316.shtml)
+- 2026-06-29 20:12 - [新官上任三把火](http://www.blog.minike.top/Article/details/62178.shtml)
+- 2026-06-29 20:04 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/50052740.shtml)
+- 2026-06-29 20:02 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.minike.top/Article/details/15904643497.shtml)
+- 2026-06-29 20:18 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/8131813893.shtml)
+- 2026-06-29 20:12 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/8578099.shtml)
+- 2026-06-29 19:55 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/9499848851.shtml)
+- 2026-06-29 19:57 - [无畏为自己的猫正名了](https://www.share.kurohicncr.top/Article/details/7027840879.shtml)
+- 2026-06-29 20:20 - [急先锋](https://www.blog.minike.top/Article/details/26166.shtml)
+- 2026-06-29 20:19 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/10230.shtml)

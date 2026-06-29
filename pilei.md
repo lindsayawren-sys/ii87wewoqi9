@@ -1,60 +1,47 @@
-# 承诺“增高”构成欺诈 商家被判退一赔三
+# 03月31日动力煤763.75元/吨 10天上涨4.44%
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-承诺“增高”构成欺诈 商家被判退一赔三(以案说法) 随着公众对自身形象与健康管理需求的增长，美容、养生、形体调理等生活消费服务市场持续拓展。然而，部分服务机构利用信息不对称和消费者急迫心理，进行夸大甚至违背科学常理的虚假宣传，损害消费者权益，引发纠纷。 王某就因增高服务打起了官司。一次服务推介中，32岁的王某结识了从事美容养生服务的经营者张某。张某称，可在1年内使王某身高增长1
+据生意社监测，动力煤03月31日最新价格763.75元/吨，最近10天上涨4.44%，60天上涨7.95%。相关生产商有：甘肃能化(000552)神火股份(000933)冀中能源（维权）(000937)电投能源(002128)郑州煤电(600121)兰花科创(600123)兖矿能源(600188)华阳股份(600348)大有能源(600403)上海能源(600508)山煤国际(
 
 ## 正文
 
-承诺“增高”构成欺诈 商家被判退一赔三(以案说法) 随着公众对自身形象与健康管理需求的增长，美容、养生、形体调理等生活消费服务市场持续拓展。
+据生意社监测，动力煤03月31日最新价格763.75元/吨，最近10天上涨4.44%，60天上涨7.95%。
 
-然而，部分服务机构利用信息不对称和消费者急迫心理，进行夸大甚至违背科学常理的虚假宣传，损害消费者权益，引发纠纷。
-
-王某就因增高服务打起了官司。
-
-一次服务推介中，32岁的王某结识了从事美容养生服务的经营者张某。
-
-张某称，可在1年内使王某身高增长10厘米。
-
-在诱人效果驱动下，王某支付了项目费用2万元。
-
-但接受服务后，王某并未出现显著身高变化，意识到可能遭遇欺诈。
-
-在多次与张某交涉无果后，王某诉至法院。
+相关生产商有：甘肃能化(000552)神火股份(000933)冀中能源（维权）(000937)电投能源(002128)郑州煤电(600121)兰花科创(600123)兖矿能源(600188)华阳股份(600348)大有能源(600403)上海能源(600508)山煤国际(600546)苏能股份(600925)恒源煤电(600971)晋控煤业(601001)中国神华(601088)陕西煤业(601225)平煤股份(601666)潞安环能(601699)中煤能源(601898)新集能源(601918)等。
 
 ## 相关推荐
 
-- 2026-06-29 20:14 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 19:51 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 19:57 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 19:55 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 19:54 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 19:59 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 20:12 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 20:13 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 20:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 19:57 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 19:58 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 20:17 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 20:13 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 19:59 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 20:19 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 19:56 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 20:14 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 20:22 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 19:57 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 19:56 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 20:12 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 20:03 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 20:16 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 19:59 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 19:54 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 19:57 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 20:20 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:04 - [章若楠包场白敬亭特立独行](http://www.blog.kurohicncr.top/Article/details/44368886143.shtml)
-- 2026-06-29 20:07 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/40734462995.shtml)
-- 2026-06-29 19:51 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/9729868520.shtml)
-- 2026-06-29 19:52 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/06258.shtml)
-- 2026-06-29 19:56 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/98132.shtml)
-- 2026-06-29 19:49 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/346312.shtml)
-- 2026-06-29 20:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/999302119.shtml)
-- 2026-06-29 19:56 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/603641850971.shtml)
-- 2026-06-29 20:08 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/891514960.shtml)
-- 2026-06-29 20:15 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/0458611746.shtml)
-- 2026-06-29 19:54 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/759339292.shtml)
-- 2026-06-29 20:14 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/6881787.shtml)
-- 2026-06-29 20:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/79769871.shtml)
-- 2026-06-29 19:50 - [当家电外通风口出现鸟窝](http://www.blog.minike.top/Article/details/996316547003.shtml)
-- 2026-06-29 19:59 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/723156412860.shtml)
+- 2026-06-29 19:57 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/59741749232.shtml)
+- 2026-06-29 20:13 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/8284016.shtml)
+- 2026-06-29 20:07 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/0225656034.shtml)
+- 2026-06-29 20:08 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/53497814490.shtml)
+- 2026-06-29 20:12 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/113566.shtml)
+- 2026-06-29 20:10 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/464780024293.shtml)
+- 2026-06-29 20:08 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/365364.shtml)
+- 2026-06-29 20:23 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/52195383.shtml)
+- 2026-06-29 20:09 - [第一炉香](https://www.blog.minike.top/Article/details/46667800.shtml)
+- 2026-06-29 19:57 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/860594336381.shtml)
+- 2026-06-29 20:15 - [送你一朵小红花](https://www.share.minike.top/Article/details/839683.shtml)
+- 2026-06-29 20:11 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/736151092.shtml)
+- 2026-06-29 20:11 - [天道](http://www.blog.kurohicncr.top/Article/details/113280.shtml)
+- 2026-06-29 20:22 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/10204.shtml)
+- 2026-06-29 20:00 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/19025434750.shtml)

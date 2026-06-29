@@ -1,56 +1,56 @@
-# 用AI生成内容，著作权算谁的？
+# 红豆股份凭数智化与硬实力领跑舒适着装团定新赛道
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-人机协同作品日益普遍，争议随之而来 用AI生成内容，著作权算谁的？ AI文案、AI图片、AI视频……当前，生成式人工智能技术加速迭代和普及，人机协同作品也日益广泛地进入生活之中。当AI根据用户指令，生成一段文字、一幅画作或一条视频，谁享有这些内容的著作权？用户投喂给AI软件的指令，本身到底算不算作品？是否也受著作权法保护？针对AI生成的内容是否享有著作权等热点话题，《工人日报》
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！在4000亿规模的中国职业装市场，竞争正从价格混战转向品牌、技术、交付的综合实力比拼。红豆股份（600400.SH）近期连续中标中国移动、沈阳地铁等重量级企事业单位制服项目，业务覆盖电信、电力、交通等高壁垒领域，以强劲的订单增势，巩固其行业头部地位，更为资本市场注入增长信心。 作为公司核心增长极，红豆职业装
 
 ## 正文
 
-人机协同作品日益普遍，争议随之而来 用AI生成内容，著作权算谁的？
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-AI文案、AI图片、AI视频……当前，生成式人工智能技术加速迭代和普及，人机协同作品也日益广泛地进入生活之中。
+在4000亿规模的中国职业装市场，竞争正从价格混战转向品牌、技术、交付的综合实力比拼。
 
-当AI根据用户指令，生成一段文字、一幅画作或一条视频，谁享有这些内容的著作权？
+红豆股份（600400.SH）近期连续中标中国移动、沈阳地铁等重量级企事业单位制服项目，业务覆盖电信、电力、交通等高壁垒领域，以强劲的订单增势，巩固其行业头部地位，更为资本市场注入增长信心。
 
-用户投喂给AI软件的指令，本身到底算不算作品？
+作为公司核心增长极，红豆职业装深耕团定市场多年，服务覆盖金融、通信、能源等国民经济支柱行业，注重面料创新与智能生产，其产品线包括衬衫、西服、西裤、茄克、工装、校服等，并提供阻燃、防静电、防护等特种功能服装，红豆品牌口碑与行业壁垒深厚。
 
-是否也受著作权法保护？
+公司连续多年蝉联“中国职业装十大领军企业”，获评“中国功能防护服十强”，是少数能为国家级重点行业提供全场景制服解决方案的头部供应商。
 
-针对AI生成的内容是否享有著作权等热点话题，《工人日报》记者采访了相关从业者及专家。
+当前，职业装行业正经历深刻变革：客户需求从基础着装升级为“企业形象+专业功能+安全防护”的一体化方案，推动行业向高附加值转型。
 
-当AI成为辅助创作的工具“目前，在我们的平面设计工作中，AI软件已经是不可或缺的工具。
+面对近3万家同业的白热化竞争，红豆股份凭借500项舒适专利技术与精准的行业洞察，在面料研发、人体工学、功能设计上形成差异化壁垒。
 
-”在河南省郑州市某广告传媒公司工作的崔宁告诉记者，在其任职的公司中，AI技术已被运用到设计全流程，“例如，设计一款化妆品的外包装盒，可以使用AI生成定制文案、元素、色调，并多次开展设计稿优化等工作。
+尤其在电力、轨道交通等对安全、耐用、标识性要求严苛的领域，其产品完美适配岗位场景，将舒适科技与专业标准深度融合，屡次在大型招标中脱颖而出。
 
 ## 相关推荐
 
-- 2026-06-29 20:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 19:59 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 19:54 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 20:03 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 20:00 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 19:57 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 19:49 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 20:04 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 20:11 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 20:10 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 20:18 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 20:14 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 20:19 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 19:58 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 20:21 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 20:16 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 20:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 20:06 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 20:10 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 20:17 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:06 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/88487400845.shtml)
-- 2026-06-29 19:49 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/90652.shtml)
-- 2026-06-29 20:15 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/91933533841.shtml)
-- 2026-06-29 19:54 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/93954.shtml)
-- 2026-06-29 20:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/45868648782.shtml)
-- 2026-06-29 20:17 - [店员光脚踩入盆中清洗土豆](http://www.share.kurohicncr.top/Article/details/531163098997.shtml)
-- 2026-06-29 20:06 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/2924896093.shtml)
-- 2026-06-29 19:48 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/5108609574.shtml)
-- 2026-06-29 20:15 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/731376.shtml)
-- 2026-06-29 19:56 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/4876434.shtml)
-- 2026-06-29 20:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/7177304567.shtml)
-- 2026-06-29 19:54 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/381130968.shtml)
-- 2026-06-29 19:59 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/33502007452.shtml)
-- 2026-06-29 20:02 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/27105209.shtml)
-- 2026-06-29 20:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/9439503057.shtml)
+- 2026-06-29 20:07 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/8607838.shtml)
+- 2026-06-29 20:11 - [青春环游记第三季](http://www.share.minike.top/Article/details/344636.shtml)
+- 2026-06-29 20:02 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/06357.shtml)
+- 2026-06-29 20:16 - [李思潼：不会介意大家夸我运气好](https://www.blog.kurohicncr.top/Article/details/34521557.shtml)
+- 2026-06-29 20:07 - [蔚来回应车漆洗车时被冲掉](https://www.blog.kurohicncr.top/Article/details/00127.shtml)
+- 2026-06-29 20:07 - [温网](http://www.share.minike.top/Article/details/81479.shtml)
+- 2026-06-29 19:54 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/7534093.shtml)
+- 2026-06-29 20:10 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/17762068.shtml)
+- 2026-06-29 20:10 - [天气热脾气都变差了](http://www.share.kurohicncr.top/Article/details/674909604.shtml)
+- 2026-06-29 19:59 - [高质量发展看新疆](https://www.blog.minike.top/Article/details/5681600.shtml)
+- 2026-06-29 20:08 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/5924951.shtml)
+- 2026-06-29 20:06 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/90686131431.shtml)
+- 2026-06-29 20:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/999818459.shtml)
+- 2026-06-29 20:16 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/983590340.shtml)
+- 2026-06-29 20:19 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/408066.shtml)

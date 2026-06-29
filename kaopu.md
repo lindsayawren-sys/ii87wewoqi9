@@ -1,48 +1,60 @@
-# 华昊中天医药-B拟折让11.11%发行2500万股认购股份 净筹约1亿港元
+# 特朗普对《邮报》称：对伊战争 “不会持续太久”
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-华昊中天医药-B（02563）公布，于2026年5月7日，该公司拟向百洋健康产业国际商贸有限公司发行2500万股认购股份，认购价为每股认购股份4.00港元，较5月6日收市价折让11.11%。认购事项净筹约1亿港元，拟用于开发ADC产品及平台、深化商业化合作、推出新项目及成果转化及集团日常营运。 公告称，此次合作预计将为双方公司的发展注入新动力，通过相互赋能，实现“研发创新+成果
+特朗普总统周二接受《邮报》采访时表示，他认为对伊朗的战争很可能很快结束，其他国家无需美国军事援助即可重新开放霍尔木兹海峡。 “我们不会在那里待太久。我们现在正在彻底摧毁他们，” 特朗普在电话采访中说 —— 就在数小时前，他在社交媒体上发布了一段伊斯法罕附近发生巨大爆炸的视频，称袭击击中了 “大量目标”。 “这是一场彻底的摧毁。但我们不需要在那里待太久 —— 不过在摧毁他们的进攻
 
 ## 正文
 
-华昊中天医药-B（02563）公布，于2026年5月7日，该公司拟向百洋健康产业国际商贸有限公司发行2500万股认购股份，认购价为每股认购股份4.00港元，较5月6日收市价折让11.11%。
+特朗普总统周二接受《邮报》采访时表示，他认为对伊朗的战争很可能很快结束，其他国家无需美国军事援助即可重新开放霍尔木兹海峡。
 
-认购事项净筹约1亿港元，拟用于开发ADC产品及平台、深化商业化合作、推出新项目及成果转化及集团日常营运。
+“我们不会在那里待太久。
 
-公告称，此次合作预计将为双方公司的发展注入新动力，通过相互赋能，实现“研发创新+成果转化+商业落地”的协同发展，基于共通优势，构建共赢的产业生态体系。
+我们现在正在彻底摧毁他们，” 特朗普在电话采访中说 —— 就在数小时前，他在社交媒体上发布了一段伊斯法罕附近发生巨大爆炸的视频，称袭击击中了 “大量目标”。
 
-责任编辑：卢昱君
+“这是一场彻底的摧毁。
+
+但我们不需要在那里待太久 —— 不过在摧毁他们的进攻能力方面，我们还有更多工作要做，无论他们还剩下什么进攻能力。
+
+” 视频截图显示，漆黑的夜空中可见巨大爆炸产生的火焰和浓烟。
+
+特朗普在 Truth Social 上发布了伊斯法罕发生大规模爆炸的视频。
+
+特朗普表示，其他国家可以自行解决霍尔木兹海峡的问题。
 
 ## 相关推荐
 
-- 2026-06-29 19:59 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 20:05 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 19:59 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 19:48 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 20:08 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 20:01 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 19:53 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 20:10 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 20:15 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 20:11 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 20:05 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 19:55 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 20:03 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-29 20:12 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 20:18 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 20:15 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 20:14 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 20:10 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 20:00 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 19:58 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 20:02 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 19:57 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 20:17 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 19:55 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/12321505049.shtml)
-- 2026-06-29 20:13 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/7007739.shtml)
-- 2026-06-29 19:58 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/4971130478.shtml)
-- 2026-06-29 20:12 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/78077819348.shtml)
-- 2026-06-29 19:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/57627924.shtml)
-- 2026-06-29 20:13 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/674045910400.shtml)
-- 2026-06-29 19:51 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/06576734949.shtml)
-- 2026-06-29 20:14 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/37735145322.shtml)
-- 2026-06-29 19:51 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/284067.shtml)
-- 2026-06-29 19:51 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/83976175.shtml)
-- 2026-06-29 20:12 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/7184013013.shtml)
-- 2026-06-29 20:00 - [金刚川](http://www.share.kurohicncr.top/Article/details/23953.shtml)
-- 2026-06-29 19:52 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.kurohicncr.top/Article/details/2563119159.shtml)
-- 2026-06-29 20:03 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/5078445.shtml)
-- 2026-06-29 19:50 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/92900071.shtml)
+- 2026-06-29 20:09 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/00492.shtml)
+- 2026-06-29 19:56 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/698980863.shtml)
+- 2026-06-29 20:21 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/94634716985.shtml)
+- 2026-06-29 20:09 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/98873212.shtml)
+- 2026-06-29 20:07 - [华工科技龙虎榜数据](http://www.share.minike.top/Article/details/472831626.shtml)
+- 2026-06-29 19:54 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/5192338.shtml)
+- 2026-06-29 20:04 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/6582299.shtml)
+- 2026-06-29 19:58 - [流金岁月](https://www.share.minike.top/Article/details/829290.shtml)
+- 2026-06-29 20:21 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/9747586042.shtml)
+- 2026-06-29 20:09 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/49890.shtml)
+- 2026-06-29 20:01 - [起风了](https://www.share.kurohicncr.top/Article/details/73091039935.shtml)
+- 2026-06-29 20:09 - [女心理师](https://www.share.kurohicncr.top/Article/details/597148589024.shtml)
+- 2026-06-29 20:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/333775.shtml)
+- 2026-06-29 19:57 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/2933148811.shtml)
+- 2026-06-29 20:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/94818966.shtml)

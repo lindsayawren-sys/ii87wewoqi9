@@ -1,56 +1,60 @@
-# 博雷顿获公司主席、总经理、执行董事及控股股东陈方明增持5万股H股
+# 华润置地告别“三高”模式，收租和轻资产业务表现亮眼
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-博雷顿（01333）发布公告，本公司董事会宣布，董事会获本公司主席、总经理、执行董事及控股股东陈方明先生（陈先生）告知，于本公告日期下午交易时间，陈先生于市场内以自有资金购入共5万股本公司H股，约占本公司已发行股份总数的0.01%。 紧随本次增持后，于本公告日期，陈先生合共持有本公司1.187亿股股份（其中包括5780.17万股内资股和6092.19万股H股），约占本公司已发行
+记者 | 王妤涵 “十五五期间，我们将以战略性规划构建三条增长曲线，通过高效协同、同向发力，形成全面高质量发展的全新业务模式。”华润置地董事会主席李欣在2025年业绩会上表示，“这也意味着公司彻底摆脱过往‘高杠杆、高负债、高周转’的传统发展模式。” 3月30日，华润置地公布2025年度业绩。财报显示，公司全年实现营业收入2814.4亿元，同比微增0.9%，但核心净利润224.8
 
 ## 正文
 
-博雷顿（01333）发布公告，本公司董事会宣布，董事会获本公司主席、总经理、执行董事及控股股东陈方明先生（陈先生）告知，于本公告日期下午交易时间，陈先生于市场内以自有资金购入共5万股本公司H股，约占本公司已发行股份总数的0.01%。
+记者 | 王妤涵 “十五五期间，我们将以战略性规划构建三条增长曲线，通过高效协同、同向发力，形成全面高质量发展的全新业务模式。
 
-紧随本次增持后，于本公告日期，陈先生合共持有本公司1.187亿股股份（其中包括5780.17万股内资股和6092.19万股H股），约占本公司已发行股份总数的 30.47%（其中内资股持股比例约为41.76%，H股持股比例约为24.25%）。
+”华润置地董事会主席李欣在2025年业绩会上表示，“这也意味着公司彻底摆脱过往‘高杠杆、高负债、高周转’的传统发展模式。
 
-如本公司日期2025年12月30日的公告所披露，陈先生、杨慧女士及邱德波先生（一致行动人士）于2025年12月30日订立了一项《一致行动协议》。
+” 3月30日，华润置地公布2025年度业绩。
 
-紧随本次增持后，于本公告日期，一致行动人士合计持有本公司1.24亿股股份（包括5780.17万股内资股及6658.97万股H股），约占本公司已发行股份总数的31.92%（其中内资股持股比例约为41.76%，H股持股比例约为26.50%）。
+财报显示，公司全年实现营业收入2814.4亿元，同比微增0.9%，但核心净利润224.8亿元，同比下降11.4%。
 
-据陈先生表示，自2025年12月2日首次增持本公司股份以来，彼合计增持的股份总数为75万股H股，彼对本集团的未来发展前景充满信心，不排除考虑于适时在适用法律及法规的规限下进一步增持本公司股份的可能性。
+受到开发销售板块的持续拖累，继续“增收不增利”。
 
-责任编辑：卢昱君
+值得关注的是，从利润结构来看，公司的经常性业务（经营性不动产、轻资产管理、生态圈要素型业务）核心净利润同比增长13.1%至116.5亿元，占核心净利润比重攀升至51.8%，这也是华润置地首次实现非开发业务贡献过半核心利润。
+
+业绩会上，李欣将当前公司的业务模式概括为“三条增长曲线”：开发销售型业务为第一曲线，经营性不动产收租业务为第二曲线，轻资产管理收费型业务为第三曲线。
+
+作为传统业绩基本盘，华润置地开发销售型业务在2025年继续充当营收的主要贡献者。
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 19:49 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 19:56 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 19:50 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 20:13 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 20:14 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 19:50 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 20:04 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 20:08 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 20:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 19:48 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 19:48 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 20:04 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 19:50 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 19:59 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 20:09 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 20:12 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 20:06 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 20:16 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 20:04 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 19:58 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 19:59 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 19:57 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 19:57 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 20:07 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 19:56 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 20:23 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 20:09 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:53 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/135021.shtml)
-- 2026-06-29 19:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/4147055.shtml)
-- 2026-06-29 20:04 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/581097.shtml)
-- 2026-06-29 20:17 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.minike.top/Article/details/58257207651.shtml)
-- 2026-06-29 20:00 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/532373.shtml)
-- 2026-06-29 19:52 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/612415071.shtml)
-- 2026-06-29 20:08 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/810087680667.shtml)
-- 2026-06-29 20:14 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/64383.shtml)
-- 2026-06-29 19:52 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/397756019.shtml)
-- 2026-06-29 20:14 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/376433021.shtml)
-- 2026-06-29 20:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/08714553.shtml)
-- 2026-06-29 19:51 - [张杰我九岁就跟你了](http://www.share.kurohicncr.top/Article/details/26498472.shtml)
-- 2026-06-29 19:53 - [C罗10球7球对垫底队](http://www.share.minike.top/Article/details/19493861633.shtml)
-- 2026-06-29 19:55 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/69850980850.shtml)
-- 2026-06-29 20:05 - [起风了](https://www.share.minike.top/Article/details/1089272854.shtml)
+- 2026-06-29 20:13 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/823845775415.shtml)
+- 2026-06-29 19:58 - [明星大侦探第四季](http://www.share.minike.top/Article/details/75993907166.shtml)
+- 2026-06-29 19:56 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/69714850109.shtml)
+- 2026-06-29 20:09 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/3545643.shtml)
+- 2026-06-29 20:02 - [小娘惹](https://www.blog.minike.top/Article/details/51974617738.shtml)
+- 2026-06-29 19:59 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/84368.shtml)
+- 2026-06-29 20:23 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/1359011.shtml)
+- 2026-06-29 20:14 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/75716203180.shtml)
+- 2026-06-29 20:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/10748755736.shtml)
+- 2026-06-29 19:58 - [网红小徐直播时突遇地震](http://www.blog.kurohicncr.top/Article/details/687157100154.shtml)
+- 2026-06-29 20:02 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/00746573.shtml)
+- 2026-06-29 20:00 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/3910778019.shtml)
+- 2026-06-29 20:05 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/20706156.shtml)
+- 2026-06-29 20:19 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/70695563.shtml)
+- 2026-06-29 19:57 - [《新闻联播》正在直播](https://www.share.kurohicncr.top/Article/details/85626.shtml)

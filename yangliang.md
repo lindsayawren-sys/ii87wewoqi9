@@ -1,61 +1,60 @@
-# 一艘法国集装箱船罕见地穿越霍尔木兹海峡
+# 两高：依法从严惩处涉民航飞行安全违法犯罪
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-一艘法国集装箱船在波斯湾最后一次露面后，出现在阿拉伯海，这表明一艘西欧船只罕见地穿越了霍尔木兹海峡。 船舶追踪数据显示，一艘属于法国航运公司达飞集团的小型集装箱船CMA CGM Saigon周二下午在阿联酋哈伊马角附近海域被发现。随后，它周三晚些时候再次出现在阿曼海岸附近，显示其目的地为斯里兰卡科伦坡。 信号中断表明，这艘船通过霍尔木兹海峡时并未开启应答器，而是“隐身”通过，未
+中新网北京4月8日电(记者 高萌)安全是飞行的生命线。4月8日，最高人民法院、最高人民检察院发布《关于办理危害民航飞行安全刑事案件适用法律若干问题的解释》，并发布一批典型案例。最高法介绍，对涉民航飞行安全违法犯罪，《解释》坚持依法从严惩处总体原则。 最高法介绍，《解释》通篇贯彻了从严惩处的总体原则，降低了编造、故意传播虚假恐怖信息罪的入罪标准，并增加了加重处罚具体规定；增加列举
 
 ## 正文
 
-一艘法国集装箱船在波斯湾最后一次露面后，出现在阿拉伯海，这表明一艘西欧船只罕见地穿越了霍尔木兹海峡。
+中新网北京4月8日电(记者 高萌)安全是飞行的生命线。
 
-船舶追踪数据显示，一艘属于法国航运公司达飞集团的小型集装箱船CMA CGM Saigon周二下午在阿联酋哈伊马角附近海域被发现。
+4月8日，最高人民法院、最高人民检察院发布《关于办理危害民航飞行安全刑事案件适用法律若干问题的解释》，并发布一批典型案例。
 
-随后，它周三晚些时候再次出现在阿曼海岸附近，显示其目的地为斯里兰卡科伦坡。
+最高法介绍，对涉民航飞行安全违法犯罪，《解释》坚持依法从严惩处总体原则。
 
-信号中断表明，这艘船通过霍尔木兹海峡时并未开启应答器，而是“隐身”通过，未被察觉。
+最高法介绍，《解释》通篇贯彻了从严惩处的总体原则，降低了编造、故意传播虚假恐怖信息罪的入罪标准，并增加了加重处罚具体规定；增加列举了暴力危及飞行安全罪中“危及飞行安全”的具体情形；明确了相关犯罪的数罪并罚和从一重罪处罚原则。
 
-追踪进出霍尔木兹海峡的船只并非易事，而且该地区信号干扰严重，使得追踪工作更加复杂。
+《解释》明确，依法惩治违规开启民航飞机舱门、在民航飞机机舱内打架斗殴等常见“机闹”犯罪行为，明确了上述行为适用的罪名和定罪条件。
 
-达飞尚未立即回复记者寻求评论的电子邮件。
+例如，《解释》规定，并非所有的违规开启民航飞机舱门的行为都构成刑事犯罪，只有在民航飞机处于依靠自身动力移动期间或者空中飞行期间违规开启舱门、足以引发危害公共安全危险的情况下，才能以以危险方法危害公共安全罪定罪处罚。
 
-这艘船成为自伊朗与美国战争爆发以来，少数几艘安全穿越霍尔木兹海峡的西欧船只之一。
+同时，《解释》还特别明确，对民航乘务员使用暴力的行为可能构成暴力危及飞行安全罪。
 
-4月份，达飞成功让旗下一艘大型集装箱船驶出，使其成为该地区首艘成功脱困的同类船舶。
+《解释》还突出对编造、故意传播涉民航飞行安全虚假恐怖信息犯罪的从严惩治，规定行为人的行为影响民航航班、民用机场正常运行，或者致使公安、武警、消防救援、卫生检疫等部门采取应对措施的，应作犯罪处理；造成严重社会影响或者重大经济损失的，属于造成严重后果，处五年以上有期徒刑。
 
 ## 相关推荐
 
-- 2026-06-29 20:04 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 20:13 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 19:57 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 19:50 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 20:06 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 20:06 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 19:50 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 20:08 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 20:17 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 19:55 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 20:12 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 19:50 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 19:54 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 19:49 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 19:58 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 20:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 20:12 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 20:10 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 20:10 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 20:17 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 20:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 20:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 20:20 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 20:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 20:21 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 19:57 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 20:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 19:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 20:23 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/666506003597.shtml)
-- 2026-06-29 19:49 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/73350014.shtml)
-- 2026-06-29 20:01 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/345385.shtml)
-- 2026-06-29 19:53 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/235126015199.shtml)
-- 2026-06-29 20:12 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.minike.top/Article/details/867230192780.shtml)
-- 2026-06-29 19:51 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/233363331.shtml)
-- 2026-06-29 19:56 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/404808.shtml)
-- 2026-06-29 20:03 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/0877715.shtml)
-- 2026-06-29 19:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/468852709.shtml)
-- 2026-06-29 20:01 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/96422899.shtml)
-- 2026-06-29 19:53 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.kurohicncr.top/Article/details/50873429.shtml)
-- 2026-06-29 19:49 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/3533257223.shtml)
-- 2026-06-29 20:00 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/080101632.shtml)
-- 2026-06-29 20:16 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/4861884.shtml)
-- 2026-06-29 20:04 - [北京发布地质灾害气象风险蓝色预警](https://www.share.minike.top/Article/details/50280.shtml)
+- 2026-06-29 20:22 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/771147936121.shtml)
+- 2026-06-29 20:22 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/32158539.shtml)
+- 2026-06-29 19:55 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/178379640.shtml)
+- 2026-06-29 20:06 - [斛珠夫人](https://www.share.minike.top/Article/details/18509772.shtml)
+- 2026-06-29 20:12 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/30544184.shtml)
+- 2026-06-29 20:20 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/580284.shtml)
+- 2026-06-29 20:10 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/492430368044.shtml)
+- 2026-06-29 20:22 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/13568292359.shtml)
+- 2026-06-29 20:17 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/4971543276.shtml)
+- 2026-06-29 20:22 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/475964.shtml)
+- 2026-06-29 20:02 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/75443583.shtml)
+- 2026-06-29 20:18 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/46773641.shtml)
+- 2026-06-29 19:56 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/813283691.shtml)
+- 2026-06-29 19:56 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.kurohicncr.top/Article/details/035566.shtml)
+- 2026-06-29 20:18 - [东方风云榜](http://www.blog.minike.top/Article/details/722658371798.shtml)

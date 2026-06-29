@@ -1,59 +1,59 @@
-# 美国商务部长就爱泼斯坦案闭门作证 委员会主席称其并非“100%说真话”
+# 市场策略师：金价极端波动使散户集体观望，短期或面临回调风险
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-美国商务部长霍华德·卢特尼克周三成为首位就杰弗里·爱泼斯坦案件及执法部门潜在疏漏向众议院委员会作证的在任内阁成员。卢特尼克曾是爱泼斯坦的邻居，并曾造访这位声名狼藉的金融家位于加勒比海的岛屿。 今年早些时候，司法部公布的文件显示，时任Cantor Fitzgerald LP首席执行官的卢特尼克曾于2012年造访爱泼斯坦的私人岛屿。这发生在爱泼斯坦因被指安排未成年人卖淫而被定罪的数
+汇通财经APP讯——金价虽然成功重返每盎司4500美元上方，但当前市场的剧烈波动正让众多投资者感到不安。一位资深市场策略师指出，极端波动和高风险环境已迫使许多散户投资者选择暂时观望，这可能在短期内给金价带来进一步的下行压力。整体来看，黄金市场虽仍处于历史高位，但短期交易难度显著增加，长期投资逻辑则需结合全球宏观趋势进行评估。 金价重返4500美元，但波动性成为最大挑战 黄金市场
 
 ## 正文
 
-美国商务部长霍华德·卢特尼克周三成为首位就杰弗里·爱泼斯坦案件及执法部门潜在疏漏向众议院委员会作证的在任内阁成员。
+汇通财经APP讯——金价虽然成功重返每盎司4500美元上方，但当前市场的剧烈波动正让众多投资者感到不安。
 
-卢特尼克曾是爱泼斯坦的邻居，并曾造访这位声名狼藉的金融家位于加勒比海的岛屿。
+一位资深市场策略师指出，极端波动和高风险环境已迫使许多散户投资者选择暂时观望，这可能在短期内给金价带来进一步的下行压力。
 
-今年早些时候，司法部公布的文件显示，时任Cantor Fitzgerald LP首席执行官的卢特尼克曾于2012年造访爱泼斯坦的私人岛屿。
+整体来看，黄金市场虽仍处于历史高位，但短期交易难度显著增加，长期投资逻辑则需结合全球宏观趋势进行评估。
 
-这发生在爱泼斯坦因被指安排未成年人卖淫而被定罪的数年之后。
+金价重返4500美元，但波动性成为最大挑战 黄金市场近期成功重返每盎司4500美元上方，然而根据市场策略师的分析，当前剧烈的价格波动正让许多零售投资者保持观望态度，这可能在短期内对金价形成额外下行压力。
 
-这一披露使得卢特尼克受到抨击。
+DeCarley Trading联合创始人卡莉·加纳（Carley Garner）表示，她目前仍然倾向于在黄金出现反弹时进行卖出操作。
 
-众议院监督委员会主席James Comer周三对记者表示，卢特尼克此前在公开声明中关于他是否去过爱泼斯坦岛屿的问题“并没有100%说真话”，但他补充说，目前没有看到证据指向这位商务部长存在任何不当行为。
+她同时指出，这种剧烈的价格波动让交易者感到极为艰难，几乎没有人能够在当前环境中轻松获利。
 
-周三上午，卢特尼克在安保人员和助手的簇拥下抵达国会办公楼，对记者们的提问没有作出回应。
+加纳说：“目前这是一个高风险的市场。
 
-他正在闭门作证，委员会计划在未来几天公布逐字稿。
+” 她特别提到，极端波动和高保证金要求已经将大量交易者推到场外。
 
 ## 相关推荐
 
-- 2026-06-29 20:03 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 19:59 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 19:55 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 19:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 20:14 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 20:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 20:04 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 19:48 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 20:07 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 20:00 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 20:00 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 20:15 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 19:57 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 20:19 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 20:01 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 20:03 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 20:00 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 20:23 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 20:06 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 20:01 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 20:01 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 20:23 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 19:57 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 20:12 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 20:07 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 20:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:57 - [起风了](https://www.blog.minike.top/Article/details/9072475.shtml)
-- 2026-06-29 20:08 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/494534839.shtml)
-- 2026-06-29 20:03 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/448624597130.shtml)
-- 2026-06-29 19:50 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/19917569.shtml)
-- 2026-06-29 20:01 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/292971.shtml)
-- 2026-06-29 20:08 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/265007.shtml)
-- 2026-06-29 19:57 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/4494691.shtml)
-- 2026-06-29 20:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/9879641.shtml)
-- 2026-06-29 20:13 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/468623497661.shtml)
-- 2026-06-29 20:11 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/09514882357.shtml)
-- 2026-06-29 20:00 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/51587528.shtml)
-- 2026-06-29 19:55 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/47803.shtml)
-- 2026-06-29 20:00 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/44615.shtml)
-- 2026-06-29 20:11 - [啊啊啊](https://www.share.minike.top/Article/details/4580948.shtml)
-- 2026-06-29 20:03 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/367912046185.shtml)
+- 2026-06-29 20:13 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/3744921681.shtml)
+- 2026-06-29 20:05 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.minike.top/Article/details/885465082.shtml)
+- 2026-06-29 20:12 - [北京市发布雷电黄色预警](https://www.share.minike.top/Article/details/075412712.shtml)
+- 2026-06-29 20:02 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/286143771491.shtml)
+- 2026-06-29 20:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/512061233.shtml)
+- 2026-06-29 20:07 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/0088529964.shtml)
+- 2026-06-29 19:56 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/2246519.shtml)
+- 2026-06-29 20:04 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.minike.top/Article/details/5302282882.shtml)
+- 2026-06-29 20:07 - [章若楠包场白敬亭特立独行](https://www.blog.minike.top/Article/details/13365441.shtml)
+- 2026-06-29 19:59 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/38522258.shtml)
+- 2026-06-29 20:16 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/6436630475.shtml)
+- 2026-06-29 20:15 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/666577101.shtml)
+- 2026-06-29 20:20 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/793787845783.shtml)
+- 2026-06-29 19:57 - [女心理师](http://www.share.kurohicncr.top/Article/details/641426501.shtml)
+- 2026-06-29 20:09 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/7332083314.shtml)

@@ -1,61 +1,51 @@
-# 盘前：纳指期货涨0.1% 布油连续第三天下跌
+# 华夏基金：2025年人员管理与内部控制存漏洞，高管同被警示 已整改完成
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-周四美国股指期货维持涨势，布伦特原油连续第三天下跌。交易员正在等待有关潜在美伊和平协议的最新进展，该协议可能重新开放通过霍尔木兹海峡的石油运输。 标普 500 指数期货上涨0.2%，该基准指数已连续两个交易日创下纪录新高。道琼斯工业平均指数期货上涨 0.2%。以科技股为主的纳斯达克指数盘前上涨 0.1%。 MSCI 全球所有国家指数上涨 0.23%，逼近纪录高位。欧洲股市下跌
+专题：2025基金年报季启幕：头部公募“万亿战”升级，工银瑞信净利领跑，“赚钱榜”大洗牌 伴随着公募产品2025年报的集中披露，过去一年基金公司受到监管处罚的情况曝光。华夏基金2025年报显示，2025年11月4日，因人员管理、内部控制、销售管理等问题，华夏基金被北京证监局出具警示函。同年12月26日，公司一位高级管理人员也因上述问题被出具警示函。华夏基金表示，已从业务改进、制
 
 ## 正文
 
-周四美国股指期货维持涨势，布伦特原油连续第三天下跌。
+专题：2025基金年报季启幕：头部公募“万亿战”升级，工银瑞信净利领跑，“赚钱榜”大洗牌 伴随着公募产品2025年报的集中披露，过去一年基金公司受到监管处罚的情况曝光。
 
-交易员正在等待有关潜在美伊和平协议的最新进展，该协议可能重新开放通过霍尔木兹海峡的石油运输。
+华夏基金2025年报显示，2025年11月4日，因人员管理、内部控制、销售管理等问题，华夏基金被北京证监局出具警示函。
 
-标普 500 指数期货上涨0.2%，该基准指数已连续两个交易日创下纪录新高。
+同年12月26日，公司一位高级管理人员也因上述问题被出具警示函。
 
-道琼斯工业平均指数期货上涨 0.2%。
+华夏基金表示，已从业务改进、制度优化、培训宣贯等方面完成整改，并向监管机构报送整改报告。
 
-以科技股为主的纳斯达克指数盘前上涨 0.1%。
-
-MSCI 全球所有国家指数上涨 0.23%，逼近纪录高位。
-
-欧洲股市下跌 0.3%，投资者正在关注大量企业财报。
-
-英国富时 100 指数下跌 0.7%，受到壳牌拖累；此前壳牌削减了股票回购规模。
+责任编辑：公司观察
 
 ## 相关推荐
 
-- 2026-06-29 19:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 20:00 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 20:07 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 19:55 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 20:07 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 20:15 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 20:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 19:53 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 19:49 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 19:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 20:14 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 19:55 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 20:11 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 20:00 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 19:58 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 20:09 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 19:57 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 19:56 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 20:12 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 20:01 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 20:14 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 19:59 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 20:18 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 20:02 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 20:18 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 19:58 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/015321283927.shtml)
-- 2026-06-29 20:12 - [挪威王储妃长子两次强奸获刑](http://www.blog.minike.top/Article/details/6958728.shtml)
-- 2026-06-29 20:07 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.minike.top/Article/details/219832082600.shtml)
-- 2026-06-29 20:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/4315919.shtml)
-- 2026-06-29 20:01 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/07619.shtml)
-- 2026-06-29 19:55 - [欧洲极端高温如何影响家电股](http://www.blog.minike.top/Article/details/981183871398.shtml)
-- 2026-06-29 19:59 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/334678648060.shtml)
-- 2026-06-29 20:10 - [速度与激情9](https://www.blog.minike.top/Article/details/064050678.shtml)
-- 2026-06-29 19:56 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/044857428.shtml)
-- 2026-06-29 20:09 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/0842938.shtml)
-- 2026-06-29 19:50 - [周生如故](http://www.share.kurohicncr.top/Article/details/060377.shtml)
-- 2026-06-29 19:54 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/403644.shtml)
-- 2026-06-29 20:08 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/215099879.shtml)
-- 2026-06-29 19:52 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/21389780.shtml)
-- 2026-06-29 20:01 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/456449054.shtml)
+- 2026-06-29 19:58 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/656824015.shtml)
+- 2026-06-29 20:17 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/25168015879.shtml)
+- 2026-06-29 20:00 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.minike.top/Article/details/79400.shtml)
+- 2026-06-29 20:17 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/876343293.shtml)
+- 2026-06-29 20:15 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/734672960153.shtml)
+- 2026-06-29 20:06 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/403342172615.shtml)
+- 2026-06-29 19:58 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/24238.shtml)
+- 2026-06-29 20:07 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/608757969277.shtml)
+- 2026-06-29 20:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/34848.shtml)
+- 2026-06-29 20:06 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/654828974518.shtml)
+- 2026-06-29 20:23 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/348021.shtml)
+- 2026-06-29 20:10 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/889807952212.shtml)
+- 2026-06-29 20:00 - [女生学医适合选什么专业](http://www.share.minike.top/Article/details/200552561.shtml)
+- 2026-06-29 19:55 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/4943589165.shtml)
+- 2026-06-29 20:20 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/430010.shtml)

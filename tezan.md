@@ -1,56 +1,56 @@
-# A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？
+# “中华诗城”重庆奉节：万卷诗情映山水 一江文脉向“新”行
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|肖芮冬 每经编辑|赵云 5月8日，市场震荡调整，创业板指、深成指盘中均跌超1%，科创50指数跌超2%。截至收盘，沪指收绿，深成指跌0.5%，创业板指跌0.96%。 板块来看，商业航天概念爆发，人形机器人概念集体走强，PCB概念反复走强，光纤概念持续走强。下跌方面，电池产业链震荡调整。 全市场超36
+中新网重庆4月7日电 题：“中华诗城”重庆奉节：万卷诗情映山水 一江文脉向“新”行 作者 陈媛 清明时节，春意正浓。市民游客登上三峡之巅，凭栏远眺，看长江奔涌、瞿塘险峻，身临其境体悟“朝辞白帝彩云间，千里江陵一日还”的浪漫诗意。 在重庆奉节，千年诗词正向“新”而行，以可感可触的方式融入山水之间，点亮“中华诗城”重庆奉节IP。 徒步新体验 诗意漫山峦 伴随“爬山热”在年轻群体中兴
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网重庆4月7日电 题：“中华诗城”重庆奉节：万卷诗情映山水 一江文脉向“新”行 作者 陈媛 清明时节，春意正浓。
 
-每经记者|肖芮冬 每经编辑|赵云 5月8日，市场震荡调整，创业板指、深成指盘中均跌超1%，科创50指数跌超2%。
+市民游客登上三峡之巅，凭栏远眺，看长江奔涌、瞿塘险峻，身临其境体悟“朝辞白帝彩云间，千里江陵一日还”的浪漫诗意。
 
-截至收盘，沪指收绿，深成指跌0.5%，创业板指跌0.96%。
+在重庆奉节，千年诗词正向“新”而行，以可感可触的方式融入山水之间，点亮“中华诗城”重庆奉节IP。
 
-板块来看，商业航天概念爆发，人形机器人概念集体走强，PCB概念反复走强，光纤概念持续走强。
+徒步新体验 诗意漫山峦 伴随“爬山热”在年轻群体中兴起，4月4日至5日，三峡之巅景区徒步登山路线预约早早满额，吸引上万人前来登高望远，成为重庆假日户外热门打卡地。
 
-下跌方面，电池产业链震荡调整。
+在三峡水库蓄水前，“长江三峡徒步”曾是中国十大经典徒步线路之一，后因三峡古栈道部分沉入水底而少人问津。
 
-全市场超3600只个股上涨，连续三日超百股涨停。
+2017年，奉节县在白帝城通往三峡之巅的途中修筑了全长约10公里的登山步道。
 
-沪深两市成交额3.05万亿元，连续三个交易日突破3万亿，较上一个交易日缩量954亿。
+2023年，三峡之巅景区徒步登山开始走红网络。
 
-截至收盘，A股取得了5月首周“开门红”。
+现在修缮后的登山步道包含“诗意栈道”“危石鸟道”两部分，游客沿途可从不同角度欣赏瞿塘峡的美景，真切感受杜甫笔下“赤甲白盐俱刺天，闾阎缭绕接山巅”的雄浑壮阔。
 
 ## 相关推荐
 
-- 2026-06-29 20:03 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 19:48 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 19:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 20:06 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 19:59 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 20:08 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 20:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 19:50 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 19:56 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 19:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 20:09 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 20:13 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 20:06 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 20:02 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 20:19 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 19:56 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 20:16 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 20:07 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 20:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 20:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/2858685862.shtml)
-- 2026-06-29 19:56 - [起风了](http://www.share.minike.top/Article/details/9242346370.shtml)
-- 2026-06-29 19:52 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/121458802.shtml)
-- 2026-06-29 20:12 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/95610895.shtml)
-- 2026-06-29 19:52 - [华工科技龙虎榜数据](http://www.share.kurohicncr.top/Article/details/598013475906.shtml)
-- 2026-06-29 20:10 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/769400569409.shtml)
-- 2026-06-29 20:13 - [扫黑风暴](https://www.share.minike.top/Article/details/74690363321.shtml)
-- 2026-06-29 20:13 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/029209931.shtml)
-- 2026-06-29 19:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/65796141.shtml)
-- 2026-06-29 20:08 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/538501.shtml)
-- 2026-06-29 20:00 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/34995954255.shtml)
-- 2026-06-29 20:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/967814.shtml)
-- 2026-06-29 20:11 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/994340716.shtml)
-- 2026-06-29 20:11 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/3024558.shtml)
-- 2026-06-29 19:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/617184.shtml)
+- 2026-06-29 20:05 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/30700027554.shtml)
+- 2026-06-29 20:12 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/4632585.shtml)
+- 2026-06-29 20:18 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/11771.shtml)
+- 2026-06-29 19:54 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/352127357248.shtml)
+- 2026-06-29 20:04 - [恋与深空7天掉粉超50万](http://www.blog.minike.top/Article/details/380032.shtml)
+- 2026-06-29 20:17 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.kurohicncr.top/Article/details/344916426.shtml)
+- 2026-06-29 20:14 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/411105266065.shtml)
+- 2026-06-29 20:15 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/52733762139.shtml)
+- 2026-06-29 20:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/21045302056.shtml)
+- 2026-06-29 20:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/0032042496.shtml)
+- 2026-06-29 20:18 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/60919031.shtml)
+- 2026-06-29 20:04 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/0277611.shtml)
+- 2026-06-29 20:05 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/17891400.shtml)
+- 2026-06-29 20:21 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/510469338394.shtml)
+- 2026-06-29 20:15 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/916664475.shtml)

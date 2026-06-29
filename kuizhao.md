@@ -1,61 +1,56 @@
-# 美国最高法院拒绝暂缓苹果藐视法庭令，苹果与Epic纠纷再升级
+# Stellantis正与中国零跑汽车深入洽谈合作开发欧宝纯电动车
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-美国最高法院拒绝了苹果公司提出的紧急请求，后者要求暂缓执行下级法院认定其在Epic Games反垄断诉讼中存在藐视法庭行为的命令。 大法官埃琳娜·卡根代表法院作出了这一决定，并未将苹果的申请提交全体大法官审议。这意味着苹果必须回到加州奥克兰的地区法院，就其通过外部链接完成的交易可合法收取多少佣金接受进一步审理。 Epic Games起初在2020年起诉苹果，指控其App Sto
+三位消息人士透露，Stellantis 集团正与零跑汽车展开深入谈判，拟合作开发一款欧宝（Opel）品牌纯电动 SUV。新车将采用这家中国车企的技术，在 Stellantis 位于西班牙的萨拉戈萨工厂生产。 若该协议最终敲定，将帮助 Stellantis 降低全新电动车型的研发成本、缩短研发周期。这家法意合资车企正将重心转向油电混动汽车。今年早些时候，该集团宣布因缩减电动车业务
 
 ## 正文
 
-美国最高法院拒绝了苹果公司提出的紧急请求，后者要求暂缓执行下级法院认定其在Epic Games反垄断诉讼中存在藐视法庭行为的命令。
+三位消息人士透露，Stellantis 集团正与零跑汽车展开深入谈判，拟合作开发一款欧宝（Opel）品牌纯电动 SUV。
 
-大法官埃琳娜·卡根代表法院作出了这一决定，并未将苹果的申请提交全体大法官审议。
+新车将采用这家中国车企的技术，在 Stellantis 位于西班牙的萨拉戈萨工厂生产。
 
-这意味着苹果必须回到加州奥克兰的地区法院，就其通过外部链接完成的交易可合法收取多少佣金接受进一步审理。
+若该协议最终敲定，将帮助 Stellantis 降低全新电动车型的研发成本、缩短研发周期。
 
-Epic Games起初在2020年起诉苹果，指控其App Store政策违反反垄断法。
+这家法意合资车企正将重心转向油电混动汽车。
 
-虽然苹果在该诉讼中“大体上获胜”，但法院在2021年发布禁令，要求苹果允许开发者在应用中添加链接，引导用户使用非苹果支付方式。
+今年早些时候，该集团宣布因缩减电动车业务规划，计提 250 亿美元资产减值。
 
-苹果随后实施了新的限制，包括对通过外部支付系统完成的购买收取高达27%的佣金。
+此举同时意在抵御比亚迪等中国品牌在欧洲市场的竞争，并提升其欧洲工厂的产能利用率。
 
-Epic Games声称，这套新的27%佣金方案无视了此前的禁令。
+Stellantis 首席执行官安东尼奥・菲洛萨于去年 6 月上任，将于 5 月 21 日公布全新长期业务规划。
 
-2025年，一名联邦法官认定苹果藐视法庭，第九巡回上诉法院随后维持了这一认定。
+Stellantis 于 2023 年收购零跑汽车约五分之一股份后，双方建立合作关系，并共同成立零跑国际合资公司，负责零跑汽车在海外市场的销售与生产。
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 20:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 20:09 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 20:05 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 20:17 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 20:11 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 20:09 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 20:03 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 20:05 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 20:05 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 20:07 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 20:16 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 19:49 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 19:59 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 20:12 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 20:01 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 20:07 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 20:16 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 20:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 19:55 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 19:54 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 20:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 20:00 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 20:19 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 20:04 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:07 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/091160517528.shtml)
-- 2026-06-29 20:15 - [特朗普两大核心赌注将迎高院裁决](https://www.share.kurohicncr.top/Article/details/503047.shtml)
-- 2026-06-29 19:52 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/1751111.shtml)
-- 2026-06-29 20:07 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/12070057047.shtml)
-- 2026-06-29 19:50 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/60690186.shtml)
-- 2026-06-29 19:48 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/216887.shtml)
-- 2026-06-29 19:52 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/943613.shtml)
-- 2026-06-29 19:54 - [记者暗访养老机构消防安全](https://www.share.minike.top/Article/details/5898177.shtml)
-- 2026-06-29 20:13 - [林逸向方筱然求婚了](https://www.blog.kurohicncr.top/Article/details/374935006.shtml)
-- 2026-06-29 19:50 - [周生如故](http://www.blog.minike.top/Article/details/91655627.shtml)
-- 2026-06-29 20:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/989845836.shtml)
-- 2026-06-29 19:50 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/1917489822.shtml)
-- 2026-06-29 19:55 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/106855738.shtml)
-- 2026-06-29 20:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/3113136969.shtml)
-- 2026-06-29 19:59 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/9684564100.shtml)
+- 2026-06-29 19:57 - [第一炉香](https://www.blog.minike.top/Article/details/2055994.shtml)
+- 2026-06-29 20:06 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/371897221.shtml)
+- 2026-06-29 20:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/3474205.shtml)
+- 2026-06-29 20:21 - [AG 宫斗](http://www.share.minike.top/Article/details/308912705036.shtml)
+- 2026-06-29 20:21 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/354422862.shtml)
+- 2026-06-29 20:11 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/19675079168.shtml)
+- 2026-06-29 20:05 - [法生态部长反对装空调却自己吹空调](http://www.blog.minike.top/Article/details/98532.shtml)
+- 2026-06-29 20:00 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/2205957440.shtml)
+- 2026-06-29 20:00 - [扫黑风暴](https://www.blog.minike.top/Article/details/663561047.shtml)
+- 2026-06-29 20:01 - [河南高院审委会原委员曲海滨被查](https://www.blog.minike.top/Article/details/61501.shtml)
+- 2026-06-29 20:01 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/80334889598.shtml)
+- 2026-06-29 20:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/007571.shtml)
+- 2026-06-29 20:17 - [中方向委方追加1亿元援助](http://www.share.kurohicncr.top/Article/details/67108275.shtml)
+- 2026-06-29 20:10 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/96520245.shtml)
+- 2026-06-29 20:03 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/7334124.shtml)

@@ -1,57 +1,55 @@
-# 汉堡王总裁称快餐行业是“零和博弈”，而汉堡王正在胜出
+# 香港特区政府向法庭申请充公黎智英罪行相关财产
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-快餐汉堡赛道竞争愈发激烈，而汉堡王已率先拿下关键一局大胜。 餐饮品牌国际集团（QSR）本周公布，旗下美国汉堡王一季度同店销售额同比增长 5.8%。 伯恩斯坦分析师达尼洛・加尔朱洛表示，这一表现高出快餐行业整体增速 5 个百分点以上。 同时也碾压宿敌麦当劳 —— 麦当劳美国业务一季度同店销售额增幅仅为 3.9%。 汉堡王美加区总裁汤姆・柯蒂斯在雅虎财经《开盘前瞻》节目中表示： “
+新华社香港4月2日电 香港特区政府新闻处2日消息，根据《中华人民共和国香港特别行政区维护国家安全法》(以下简称“香港国安法”)及《中华人民共和国香港特别行政区维护国家安全法第四十三条实施细则》(以下简称“实施细则”)向原讼法庭提交申请充公黎智英的罪行相关财产，以达致防范和制止危害国家安全行为和活动的重要目的。香港特区政府发言人表示，高等法院原讼法庭早前裁定黎智英三项危害国家安全
 
 ## 正文
 
-快餐汉堡赛道竞争愈发激烈，而汉堡王已率先拿下关键一局大胜。
+新华社香港4月2日电 香港特区政府新闻处2日消息，根据《中华人民共和国香港特别行政区维护国家安全法》(以下简称“香港国安法”)及《中华人民共和国香港特别行政区维护国家安全法第四十三条实施细则》(以下简称“实施细则”)向原讼法庭提交申请充公黎智英的罪行相关财产，以达致防范和制止危害国家安全行为和活动的重要目的。
 
-餐饮品牌国际集团（QSR）本周公布，旗下美国汉堡王一季度同店销售额同比增长 5.8%。
+香港特区政府发言人表示，高等法院原讼法庭早前裁定黎智英三项危害国家安全罪行罪名成立。
 
-伯恩斯坦分析师达尼洛・加尔朱洛表示，这一表现高出快餐行业整体增速 5 个百分点以上。
+法庭指出黎智英为案中主脑和推手，有意识地利用《苹果日报》和个人的影响力进行持续不断的活动以达致削弱中央政府、特区政府及其机构的合法性或权威；损害中央政府和特区政府与香港居民的关系，远超出法律所允许的范围；他更多次亲自勾结外国势力，乞求对中央和特区政府实施制裁，进行敌对行动，法庭最终判处黎智英监禁20年。
 
-同时也碾压宿敌麦当劳 —— 麦当劳美国业务一季度同店销售额增幅仅为 3.9%。
+根据香港国安法第三十二条，“因实施本法规定的犯罪而获得的资助、收益、报酬等违法所得以及用于或意图用于犯罪的资金和工具，应当予以追缴、没收”；而充公令的申请和发出都必须依照“实施细则”附表三订明的严格条件，须由原讼法庭如在律政司司长提出申请后信纳拟充公的财产符合相关条件，才可将该财产充公。
 
-汉堡王美加区总裁汤姆・柯蒂斯在雅虎财经《开盘前瞻》节目中表示： “这就是一场零和博弈，整个赛道体量已经不再增长。
+发言人指出，香港特区是法治社会，一直秉持有法必依、违法必究的原则。
 
-但我们已经向自己证明：只要能提供更好的消费体验、更优质的核心产品，就完全可以实现逆势增长。
+其中，向法庭提出充公令申请是有效打击严重罪行、保护公众利益的做法之一，充公罪行相关财产的法律及机制也常见于世界各地。
 
-” 汉堡大战背景始末 今年 3 月初，社交媒体再度掀起快餐汉堡隔空对战。
-
-麦当劳首席执行官克里斯・肯普钦斯基率先造势，为新品巨拱汉堡拍摄宣传视频并亲自试吃，视频迅速走红。
+就维护国家安全所需而作出的充公令，可以防止干犯危害国家安全罪行的人、其同谋或其代理人运用其罪行相关财产，继续从事危害国家安全的行为和活动，以切断危害国家安全罪行的资金链，并削弱其干犯危害国家安全罪行的能力。
 
 ## 相关推荐
 
-- 2026-06-29 19:57 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 20:14 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 20:02 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 19:58 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 19:52 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 19:55 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 19:49 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 20:09 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 19:50 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 19:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 20:05 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 20:07 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 19:59 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 19:59 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 19:57 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 20:18 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 20:09 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 20:21 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 20:12 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 20:20 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 20:16 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 20:20 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:08 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/907441106487.shtml)
-- 2026-06-29 19:49 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/295364.shtml)
-- 2026-06-29 20:03 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/35814284.shtml)
-- 2026-06-29 19:51 - [男子40度高温下骑行严重晒伤](http://www.share.kurohicncr.top/Article/details/723895.shtml)
-- 2026-06-29 19:50 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.minike.top/Article/details/394710652112.shtml)
-- 2026-06-29 19:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/93509067.shtml)
-- 2026-06-29 19:58 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/99465366532.shtml)
-- 2026-06-29 20:17 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/93546.shtml)
-- 2026-06-29 19:56 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/06260.shtml)
-- 2026-06-29 20:05 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/553708305461.shtml)
-- 2026-06-29 20:07 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/73836.shtml)
-- 2026-06-29 19:58 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/006458123803.shtml)
-- 2026-06-29 19:48 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/091423.shtml)
-- 2026-06-29 19:58 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/7264438.shtml)
-- 2026-06-29 19:57 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/18335.shtml)
+- 2026-06-29 20:01 - [黄金也扛不住了](https://www.share.minike.top/Article/details/979269.shtml)
+- 2026-06-29 20:18 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/393873639.shtml)
+- 2026-06-29 20:03 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/79091.shtml)
+- 2026-06-29 20:17 - [女生学医适合选什么专业](http://www.share.kurohicncr.top/Article/details/267733978.shtml)
+- 2026-06-29 20:04 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/689748116.shtml)
+- 2026-06-29 20:21 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.minike.top/Article/details/5186362.shtml)
+- 2026-06-29 20:22 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/25386.shtml)
+- 2026-06-29 20:13 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/2128332.shtml)
+- 2026-06-29 20:06 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/96389.shtml)
+- 2026-06-29 20:09 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/231422711.shtml)
+- 2026-06-29 20:02 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/06627340574.shtml)
+- 2026-06-29 20:11 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/84874.shtml)
+- 2026-06-29 20:01 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/923048278638.shtml)
+- 2026-06-29 19:56 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/69049877413.shtml)
+- 2026-06-29 20:00 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/447425247369.shtml)

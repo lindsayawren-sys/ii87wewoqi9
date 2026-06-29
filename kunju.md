@@ -1,57 +1,57 @@
-# 阿联酋以“隐形油轮”突破霍尔木兹海峡封锁
+# 珠江流域节水宣传活动丰富多彩
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-为突破因中东冲突而被封锁的霍尔木兹海峡，阿联酋近期采取了一项高风险策略：关闭油轮定位追踪器，以“隐形”方式将原油运送出波斯湾。 据航运数据和知情人士透露，阿联酋阿布扎比国家石油公司在4月份已成功将至少600万桶原油装载在四艘油轮上，通过关闭自动识别系统应答器的方式秘密驶出海峡。这些油轮载有上扎库姆和达斯原油，部分货物在驶出海峡后通过船对船转运至其他大型油轮，最终运抵东南亚和韩国
+中新网广州4月7日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)7日消息，为提升全民节水观念意识和文明素养，珠江委持续组织开展“节水珠江你我同行”宣传活动，以“1+8+2”形式联动珠江流域8省(自治区)水行政主管部门及港澳地区水务部门，并发动粤港澳大湾区节水产业联盟，在“世界水日”“中国水周”期间集中开展了各具特色节水宣传活动。 珠江委介绍，该委开展健步走和节水志愿
 
 ## 正文
 
-为突破因中东冲突而被封锁的霍尔木兹海峡，阿联酋近期采取了一项高风险策略：关闭油轮定位追踪器，以“隐形”方式将原油运送出波斯湾。
+中新网广州4月7日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)7日消息，为提升全民节水观念意识和文明素养，珠江委持续组织开展“节水珠江你我同行”宣传活动，以“1+8+2”形式联动珠江流域8省(自治区)水行政主管部门及港澳地区水务部门，并发动粤港澳大湾区节水产业联盟，在“世界水日”“中国水周”期间集中开展了各具特色节水宣传活动。
 
-据航运数据和知情人士透露，阿联酋阿布扎比国家石油公司在4月份已成功将至少600万桶原油装载在四艘油轮上，通过关闭自动识别系统应答器的方式秘密驶出海峡。
+珠江委介绍，该委开展健步走和节水志愿宣传活动，通过节水倡议签名、向市民发放节水宣传册等，弘扬节水护水文明风尚。
 
-这些油轮载有上扎库姆和达斯原油，部分货物在驶出海峡后通过船对船转运至其他大型油轮，最终运抵东南亚和韩国的炼油厂。
+云南多部门多行业同台宣传节水法律法规、解读节水典型案例、展示成效经验，共同提升公众节水护水意识，讲好“水故事”。
 
-其中，部分货物以每桶溢价20美元的创纪录价格售出。
+贵州以健步走为载体，联动高校与社会各界，通过开展节水科普宣传等，将节水理念融入实践、护水责任落到实处。
 
-此举是在伊朗自2月底美以开战后几乎切断海峡所有过往船只通行、导致全球约五分之一石油供应受困的背景下进行的。
+广西面向有关单位、广大市民、在校师生等，以开放式、互动式、沉浸式的科普形式举办展览，掀起了全民节水惜水的宣传热潮。
 
-由于陆路输油管道和富查伊拉港多次遭到无人机袭击，出口严重受阻，阿布扎比国家石油公司不得不冒险重启海上通道。
+广东紧扣“节水产业高质量发展”主线开展交流活动，凝聚政企学研协同合力，弘扬节水理念、探讨节水产业发展新路径，深入推动全社会践行节水行动。
 
-目前，伊朗已攻击了通过该水域的空载阿布扎比国家石油公司油轮以示警告，凸显了这种“隐形运输”的巨大风险。
+同时，湖南通过开展参观黄岑水库、开展河道保洁志愿服务和水知识互动问答等活动，在互动中向群众普及护水知识，用实际行动守护碧水。
 
-责任编辑：张俊 SF065
+福建设立宣传展台，向市民发放节水宣传资料，普及节水知识、河湖长制及水土保持等相关政策。
 
 ## 相关推荐
 
-- 2026-06-29 19:52 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 19:56 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 19:54 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 20:10 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 19:58 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 20:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 20:11 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 20:01 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 20:12 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 20:15 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 20:15 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 20:01 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 20:22 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 20:04 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 20:01 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 20:03 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 19:54 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 20:19 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 19:54 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 20:16 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 20:14 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 20:01 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:58 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/6806994.shtml)
-- 2026-06-29 19:50 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/39105.shtml)
-- 2026-06-29 20:01 - [爱奇艺抬高国剧新标尺](https://www.blog.kurohicncr.top/Article/details/3559125671.shtml)
-- 2026-06-29 20:00 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/785636485.shtml)
-- 2026-06-29 20:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/2843123.shtml)
-- 2026-06-29 19:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/8452388604.shtml)
-- 2026-06-29 20:00 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/2287748113.shtml)
-- 2026-06-29 19:53 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/495381.shtml)
-- 2026-06-29 19:55 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/4114454.shtml)
-- 2026-06-29 19:48 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/21871472117.shtml)
-- 2026-06-29 19:51 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/58958562.shtml)
-- 2026-06-29 20:05 - [济南航空航天全面起势](https://www.blog.kurohicncr.top/Article/details/14636540.shtml)
-- 2026-06-29 19:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/379662245009.shtml)
-- 2026-06-29 20:10 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/2899367.shtml)
-- 2026-06-29 19:59 - [张杰我九岁就跟你了](https://www.blog.kurohicncr.top/Article/details/536595494.shtml)
+- 2026-06-29 20:11 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/485935.shtml)
+- 2026-06-29 20:04 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/0385512329.shtml)
+- 2026-06-29 20:22 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/89392.shtml)
+- 2026-06-29 20:01 - [男子40度高温下骑行严重晒伤](http://www.blog.minike.top/Article/details/430489750.shtml)
+- 2026-06-29 19:56 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/8459273.shtml)
+- 2026-06-29 20:08 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/9908854.shtml)
+- 2026-06-29 20:13 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/561515369.shtml)
+- 2026-06-29 20:00 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/8747663290.shtml)
+- 2026-06-29 20:21 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/467857824.shtml)
+- 2026-06-29 20:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/7916630.shtml)
+- 2026-06-29 19:57 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/3270454532.shtml)
+- 2026-06-29 20:05 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/593755198.shtml)
+- 2026-06-29 20:22 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/617968.shtml)
+- 2026-06-29 20:09 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/15001352826.shtml)
+- 2026-06-29 20:23 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/0099590695.shtml)

@@ -1,61 +1,51 @@
-# 伊朗战争重创惠而浦利润，家电涨价潮即将来临
+# 天数智芯大涨30% 摩根大通研报首予增持评级 目标价620港元
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 消费者信心跌至历史低位，民众纷纷放弃选购该公司高端家电 内容速览 受伊朗战争拖累，行业陷入衰退级低迷，惠而浦将全年盈利指引下调近五成，并宣布暂停派息。 对大多数美国人而言，伊朗战争意味着加油站油价飙升；而对家电巨头惠而浦来说，这场战争直接造成公司口中衰退级的行业下行，家电产品涨价也随之而来。 这家总部位于密歇根州的冰箱、洗衣机制造商于周三将
+4月8日，国产GPU概念股天数智芯（09903）股价大涨30%。摩根大通发布首份覆盖研报，给予公司“增持”评级及620港元目标价，对应明年6月目标价、20倍一年期动态市销率。 摩根大通指出，在英伟达GPU供应不确定背景下，天数智芯供应充足，有望从国内头部云服务商获得更多设计订单；其产品适配相关基础设施架构，引入PD分离技术推动推理效率显著提升。 该行预计，公司2026-2028
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 消费者信心跌至历史低位，民众纷纷放弃选购该公司高端家电 内容速览 受伊朗战争拖累，行业陷入衰退级低迷，惠而浦将全年盈利指引下调近五成，并宣布暂停派息。
+4月8日，国产GPU概念股天数智芯（09903）股价大涨30%。
 
-对大多数美国人而言，伊朗战争意味着加油站油价飙升；而对家电巨头惠而浦来说，这场战争直接造成公司口中衰退级的行业下行，家电产品涨价也随之而来。
+摩根大通发布首份覆盖研报，给予公司“增持”评级及620港元目标价，对应明年6月目标价、20倍一年期动态市销率。
 
-这家总部位于密歇根州的冰箱、洗衣机制造商于周三将全年每股收益指引下调近一半，从原先的 6 美元下调至 3–3.5 美元区间，并宣布暂停股息派发，将经营重心转向偿债。
+摩根大通指出，在英伟达GPU供应不确定背景下，天数智芯供应充足，有望从国内头部云服务商获得更多设计订单；其产品适配相关基础设施架构，引入PD分离技术推动推理效率显著提升。
 
-消息公布后，惠而浦盘前股价大跌16.6%。
+该行预计，公司2026-2028年销售额年均复合增长率达102%，2026、2027年收入分别为29.51亿元、55.69亿元人民币，2027年实现经调整盈利7.31亿元人民币。
 
-公司首席财务官罗克珊・沃纳表示，自 2 月 28 日战事爆发后，生活成本上涨引发民众担忧，美国消费者信心暴跌至历史低位。
-
-公司高管称，本就疲软的楼市进一步雪上加霜。
-
-消费者仍会更换老旧、故障的基础款平价家电，但已避开惠而浦定价更高、利润更丰厚的高端机型。
-
-沃纳表示：“我们认为核心原因是消费者支出趋于谨慎，大概率正在缩减大额耐用品消费。
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-29 20:03 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 19:53 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 20:17 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 19:59 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 20:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 19:53 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 20:10 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 20:00 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 20:01 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 20:04 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 19:50 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 19:51 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 19:56 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 19:58 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 19:48 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 20:18 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 20:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 20:02 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 20:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 20:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 19:58 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 20:02 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 20:16 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 20:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 20:21 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 20:11 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:57 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/9274770.shtml)
-- 2026-06-29 20:04 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/5242683537.shtml)
-- 2026-06-29 19:58 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/10215329834.shtml)
-- 2026-06-29 20:04 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/59425225489.shtml)
-- 2026-06-29 19:58 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/2234014297.shtml)
-- 2026-06-29 20:06 - [王楚钦开门红](http://www.share.minike.top/Article/details/875915.shtml)
-- 2026-06-29 20:14 - [温网](https://www.share.minike.top/Article/details/8157900574.shtml)
-- 2026-06-29 19:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/1381344.shtml)
-- 2026-06-29 20:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/9427316.shtml)
-- 2026-06-29 19:58 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/956251882113.shtml)
-- 2026-06-29 19:56 - [青春环游记第三季](http://www.share.minike.top/Article/details/46695370050.shtml)
-- 2026-06-29 20:12 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/825249596.shtml)
-- 2026-06-29 20:06 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/53603.shtml)
-- 2026-06-29 20:11 - [斗破苍穹](http://www.blog.minike.top/Article/details/366104.shtml)
-- 2026-06-29 20:06 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/34703.shtml)
+- 2026-06-29 20:17 - [宜宾地震已转移安置225人](http://www.share.kurohicncr.top/Article/details/85558209.shtml)
+- 2026-06-29 19:57 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/0319043544.shtml)
+- 2026-06-29 20:06 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/30876482.shtml)
+- 2026-06-29 20:10 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/653521488.shtml)
+- 2026-06-29 20:21 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/03672805.shtml)
+- 2026-06-29 20:08 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/47257.shtml)
+- 2026-06-29 20:17 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/0964253.shtml)
+- 2026-06-29 20:00 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/163432.shtml)
+- 2026-06-29 20:17 - [我们的少年时代2](http://www.share.minike.top/Article/details/8728720.shtml)
+- 2026-06-29 20:21 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/78711616.shtml)
+- 2026-06-29 20:13 - [欧洲安装一台空调要花近8000元](http://www.blog.minike.top/Article/details/83755637612.shtml)
+- 2026-06-29 20:10 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/58803977160.shtml)
+- 2026-06-29 19:55 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.kurohicncr.top/Article/details/21814.shtml)
+- 2026-06-29 20:08 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/53471697.shtml)
+- 2026-06-29 19:58 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/66995277.shtml)

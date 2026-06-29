@@ -1,59 +1,57 @@
-# 个人办事，不只“能办”还要“好办、易办”
+# 清明假期福建口岸超7.1万人次出入境
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-各地优化政务服务，推动新一批便民服务事项落地 个人办事，不只“能办”还要“好办、易办”(高效办成一件事) 编者按：今年1月，国务院办公厅印发《“高效办成一件事”2026年度第一批重点事项清单》，内容涵盖就业、置业、养老等群众关切的民生领域，推动政务服务从“能办”向“好办、易办”转变。又一份清单，又一批便民服务事项，此次“高效办成一件事”改革给群众生活带来哪些新变化？各地又有哪些
+中新网福州4月7日电 (记者 闫旭 通讯员 吴纪晨 林方涵)据厦门边检总站统计，2026年清明假期(4月4日至4月6日)，福建边检机关共计查验超7.1万人次中外旅客出入境。 受益于“免签朋友圈”持续扩容及各项便利化通关新政叠加影响，清明假期福建口岸入境客流增长明显。 据厦门边检总站统计，今年清明假期福建边检机关共计查验入境外国人6800余人次，较去年清明假期同比增长近16.5%
 
 ## 正文
 
-各地优化政务服务，推动新一批便民服务事项落地 个人办事，不只“能办”还要“好办、易办”(高效办成一件事) 编者按：今年1月，国务院办公厅印发《“高效办成一件事”2026年度第一批重点事项清单》，内容涵盖就业、置业、养老等群众关切的民生领域，推动政务服务从“能办”向“好办、易办”转变。
+中新网福州4月7日电 (记者 闫旭 通讯员 吴纪晨 林方涵)据厦门边检总站统计，2026年清明假期(4月4日至4月6日)，福建边检机关共计查验超7.1万人次中外旅客出入境。
 
-又一份清单，又一批便民服务事项，此次“高效办成一件事”改革给群众生活带来哪些新变化？
+受益于“免签朋友圈”持续扩容及各项便利化通关新政叠加影响，清明假期福建口岸入境客流增长明显。
 
-各地又有哪些改革机制、创新举措？
+据厦门边检总站统计，今年清明假期福建边检机关共计查验入境外国人6800余人次，较去年清明假期同比增长近16.5%；入境外国人中，适用免签政策入境4000余人次，同比增长超三成。
 
-近期，本报记者探访内蒙古、山东、云南等地，看各地如何优化政务服务，推动落实“高效办成一件事”，不断增强群众获得感、幸福感。
+4月6日，巴哈马籍爱达地中海号邮轮在厦门国际邮轮中心入出境，当日入出境客流量3000余人次，有力带动福建文旅、交通、餐饮等产业发展。
 
-老龄补贴申领—— 一张表单，实现一次申请、一网通办 “您好，请问老龄补贴申领在哪办理？
+为应对清明假期福建口岸出入境客流高峰，保障人员往来高效顺畅，厦门边检总站部署相关边检站严格落实“两公布一提示”工作要求，提前预测客流高峰、制定工作预案，通过加派执勤警力、加开客流通道、加强前置引导等举措提高口岸疏导能力。
 
-”内蒙古自治区乌海市海勃湾区政务服务中心办事大厅内，61岁的居民刘桂兰向办事大厅工作人员询问。
-
-“阿姨，咱们现在直接在手机上就能办。
-
-”办事大厅负责人李倩向刘桂兰耐心解释，并帮助她在手机上搜索“海区e家”微信小程序，找到“补贴申请”板块里的“老龄补贴”，再指导她输入姓名、身份证号和住址进行登录。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:59 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 19:59 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 19:50 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 20:05 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 20:07 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 20:10 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 19:48 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 20:12 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 19:53 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 20:12 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 20:14 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 20:14 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 19:58 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 20:01 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 20:06 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 19:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 20:01 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 20:21 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 20:11 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 20:21 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 20:03 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 20:14 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 20:07 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 20:17 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 20:03 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 20:04 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 20:05 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 20:11 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:13 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/819898909059.shtml)
-- 2026-06-29 20:09 - [千与千寻](https://www.blog.minike.top/Article/details/12324823.shtml)
-- 2026-06-29 20:06 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/5437331.shtml)
-- 2026-06-29 20:00 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/841651708844.shtml)
-- 2026-06-29 20:11 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/2358154.shtml)
-- 2026-06-29 20:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/852885025.shtml)
-- 2026-06-29 20:01 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/6277239.shtml)
-- 2026-06-29 20:12 - [极限挑战第一季](https://www.blog.minike.top/Article/details/4408461.shtml)
-- 2026-06-29 19:53 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/436738944.shtml)
-- 2026-06-29 19:58 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/1116710.shtml)
-- 2026-06-29 20:10 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/6565953272.shtml)
-- 2026-06-29 19:49 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/06424706.shtml)
-- 2026-06-29 20:14 - [林逸向方筱然求婚了](https://www.blog.minike.top/Article/details/2725037493.shtml)
-- 2026-06-29 20:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/297257066.shtml)
-- 2026-06-29 20:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/974616063.shtml)
+- 2026-06-29 20:01 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/50490544811.shtml)
+- 2026-06-29 20:11 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/22739.shtml)
+- 2026-06-29 20:10 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/321803294.shtml)
+- 2026-06-29 19:54 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/412604738.shtml)
+- 2026-06-29 20:10 - [女生学医适合选什么专业](http://www.blog.kurohicncr.top/Article/details/84217703501.shtml)
+- 2026-06-29 19:58 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/31169.shtml)
+- 2026-06-29 20:06 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/67242.shtml)
+- 2026-06-29 20:17 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/67539787.shtml)
+- 2026-06-29 19:59 - [第一炉香](http://www.blog.minike.top/Article/details/01491884.shtml)
+- 2026-06-29 20:08 - [华工科技龙虎榜数据](http://www.blog.minike.top/Article/details/379783.shtml)
+- 2026-06-29 19:57 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/76992931.shtml)
+- 2026-06-29 20:20 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/963707546549.shtml)
+- 2026-06-29 19:56 - [青春环游记第三季](http://www.blog.minike.top/Article/details/0968943342.shtml)
+- 2026-06-29 20:10 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/978955.shtml)
+- 2026-06-29 20:22 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/36002719177.shtml)

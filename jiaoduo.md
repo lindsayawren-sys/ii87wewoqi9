@@ -1,52 +1,61 @@
-# 总书记引领强国之路｜加快推进教育现代化
+# 河南第四届职业技能大赛：新增工业机器人系统运维等前沿项目
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-原标题：学习新语·总书记引领强国之路｜加快推进教育现代化 教育是强国建设、民族复兴之基。 “十五五”规划纲要提出16个“强国”建设目标，教育强国位列其中。 “以立德树人为根本任务”“以为党育人、为国育才为根本目标”……党的十八大以来，习近平总书记从党和国家事业发展全局出发，为建设教育强国指明了前进方向、提供了根本遵循。 教育兴则国家兴，教育强则国家强。新征程上，着眼于办好人民满
+中新网郑州4月8日电 (王佳宁)河南省政府新闻办8日发布消息称，河南省第四届职业技能大赛将于4月20日在新乡开幕。在逾1300名参赛选手中，25岁以下青年构成赛场主力阵容。 本届大赛以“人人奋勇争先、出彩技能河南”为主题，由河南省政府主办，河南省人力资源和社会保障厅、新乡市政府联合承办。共有26个代表团参赛，选手总数达1306名，其中25岁以下青年占比高达67%。 河南省人力资
 
 ## 正文
 
-原标题：学习新语·总书记引领强国之路｜加快推进教育现代化 教育是强国建设、民族复兴之基。
+中新网郑州4月8日电 (王佳宁)河南省政府新闻办8日发布消息称，河南省第四届职业技能大赛将于4月20日在新乡开幕。
 
-“十五五”规划纲要提出16个“强国”建设目标，教育强国位列其中。
+在逾1300名参赛选手中，25岁以下青年构成赛场主力阵容。
 
-“以立德树人为根本任务”“以为党育人、为国育才为根本目标”……党的十八大以来，习近平总书记从党和国家事业发展全局出发，为建设教育强国指明了前进方向、提供了根本遵循。
+本届大赛以“人人奋勇争先、出彩技能河南”为主题，由河南省政府主办，河南省人力资源和社会保障厅、新乡市政府联合承办。
 
-教育兴则国家兴，教育强则国家强。
+共有26个代表团参赛，选手总数达1306名，其中25岁以下青年占比高达67%。
 
-新征程上，着眼于办好人民满意的教育，以教育之力厚植人民幸福之本，以教育之强夯实国家富强之基，中国教育必将迈出更加坚实的步伐，交上更加亮眼的答卷！
+河南省人力资源和社会保障厅副厅长、一级巡视员王曙辉在发布会上介绍，大赛共设置70个竞赛项目，包括60个比赛项目和10个表演赛项目。
 
-策划：石锋 吴丹 统筹：黄庆华 周年钧 编导：乔煜城 制作/视觉：陈毓珊 彭菁 姜子炜 新华社新媒体中心制作 新华社出品
+项目设置紧密贴合河南省产业链群发展需求，新增工业4.0、增材制造、人工智能训练师、服务机器人应用技术、工业机器人系统运维等前沿项目。
+
+科技“新元素”是本届大赛的亮点之一。
+
+大赛首次全面应用信息化办赛系统，从报名到成绩发布全流程数字化管理。
 
 ## 相关推荐
 
-- 2026-06-29 20:15 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 19:50 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 20:04 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 20:17 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 19:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 19:50 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 20:03 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 19:55 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 19:53 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 20:09 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 20:22 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 20:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 20:21 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 20:02 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 20:00 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 20:11 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 20:12 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 20:08 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 19:58 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 20:22 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 20:07 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 20:14 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 20:15 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 20:11 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 20:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/51047.shtml)
-- 2026-06-29 20:12 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/712470.shtml)
-- 2026-06-29 20:08 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/461019437.shtml)
-- 2026-06-29 20:15 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/639778223470.shtml)
-- 2026-06-29 19:56 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/61146.shtml)
-- 2026-06-29 20:01 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/00932388.shtml)
-- 2026-06-29 19:54 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/06906783.shtml)
-- 2026-06-29 19:52 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/07624862315.shtml)
-- 2026-06-29 19:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/13557941.shtml)
-- 2026-06-29 20:17 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/6347203.shtml)
-- 2026-06-29 19:54 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/843153884171.shtml)
-- 2026-06-29 20:03 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/35056.shtml)
-- 2026-06-29 20:14 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/01608.shtml)
-- 2026-06-29 19:57 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.kurohicncr.top/Article/details/4757223.shtml)
-- 2026-06-29 20:00 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/94079353706.shtml)
+- 2026-06-29 19:58 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/4591764784.shtml)
+- 2026-06-29 20:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/81190.shtml)
+- 2026-06-29 20:14 - [互助版模拟高考志愿填报](http://www.share.kurohicncr.top/Article/details/635618888983.shtml)
+- 2026-06-29 20:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/774299.shtml)
+- 2026-06-29 20:18 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/473533031164.shtml)
+- 2026-06-29 20:16 - [海清4次陪跑白玉兰](https://www.blog.kurohicncr.top/Article/details/69812557.shtml)
+- 2026-06-29 20:03 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/5935469950.shtml)
+- 2026-06-29 19:57 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/08266.shtml)
+- 2026-06-29 20:14 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/81639523501.shtml)
+- 2026-06-29 20:06 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/125660.shtml)
+- 2026-06-29 20:20 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/21818.shtml)
+- 2026-06-29 20:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/6725030895.shtml)
+- 2026-06-29 20:01 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/00240.shtml)
+- 2026-06-29 20:04 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/094850.shtml)
+- 2026-06-29 20:15 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/792443.shtml)

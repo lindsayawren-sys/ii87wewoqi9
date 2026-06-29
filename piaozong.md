@@ -1,60 +1,60 @@
-# 10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧
+# 距离“最后期限”不到一个半小时 特朗普同意与伊朗停火两周
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：南方财经 记者 翁榕涛 广州报道 随着去年以来A股市场交投火热，证券行业整体迎来业绩修复周期，广东作为国内资本市场的核心腹地，辖内16家持牌证券公司的经营表现备受市场关注。 南方财经全媒体记者梳理Wind数据及上市公司公告发现，2025年广东16家券商合计实现营业收入2070.54亿元，同比增长近20
+新华社华盛顿4月7日电 美国总统特朗普7日傍晚在社交媒体发文称，与巴基斯坦方面通话后，他同意暂停对伊朗的轰炸和袭击两周，前提是伊朗同意“全面、立即且安全地”开放霍尔木兹海峡。 此时，距离特朗普对伊朗所设“最后期限”仅不到一个半小时。 以色列第12频道电视台援引一名白宫官员的话报道，以色列也同意停火，并暂停对伊朗的空袭两周。这家媒体同时援引一名以方官员的话报道，停火将在伊朗开放霍
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新华社华盛顿4月7日电 美国总统特朗普7日傍晚在社交媒体发文称，与巴基斯坦方面通话后，他同意暂停对伊朗的轰炸和袭击两周，前提是伊朗同意“全面、立即且安全地”开放霍尔木兹海峡。
 
-来源：南方财经 记者 翁榕涛 广州报道 随着去年以来A股市场交投火热，证券行业整体迎来业绩修复周期，广东作为国内资本市场的核心腹地，辖内16家持牌证券公司的经营表现备受市场关注。
+此时，距离特朗普对伊朗所设“最后期限”仅不到一个半小时。
 
-南方财经全媒体记者梳理Wind数据及上市公司公告发现，2025年广东16家券商合计实现营业收入2070.54亿元，同比增长近20%，合计实现净利润845.25亿元，同比增长超39%，行业整体盈利水平显著回升。
+以色列第12频道电视台援引一名白宫官员的话报道，以色列也同意停火，并暂停对伊朗的空袭两周。
 
-若以中国证券业协会提供的数据计算，广东16家券商虽然数量仅占全行业的10%左右，但累计营收占整个证券行业总营收的38.26%，净利润占全行业比重为38.51%，是国内当之无愧的“资本高地”。
+这家媒体同时援引一名以方官员的话报道，停火将在伊朗开放霍尔木兹海峡后生效。
 
-不过，亮眼数据背后是行业内愈发显著的业绩分化：头部券商凭借规模优势与多元业务布局持续巩固龙头地位，中小券商则呈现出盈亏两极分化的格局，部分机构净利润增速超100%，也有机构净利润同比下滑近九成。
+特朗普在社媒表示，巴基斯坦总理夏巴兹及巴陆军参谋长穆尼尔请求暂缓美军当晚对伊朗的空袭。
 
-与此同时，以AI战略为核心的数字化转型、财富管理升级、深耕特色赛道，正成为广东券商战略布局的核心方向，行业竞争格局正在迎来新一轮重塑。
+基于与他们的对话，以及在伊朗同意“全面、立即且安全地”开放霍尔木兹海峡的前提下，他同意停火两周，并强调，“这将是一次双向停火”。
 
-业绩分化加剧 自营业务成关键变量 随着2026年4月底A股上市公司一季报披露收官，广东已披露一季报的6家券商，交出了“温差”显著的业绩答卷，也折射出行业马太效应持续强化的发展现状。
+特朗普称，之所以作出这一决定，是因为美方“已达成并超额完成所有军事目标”。
 
-从两家头部券商表现来看，营收与净利润均实现两位数以上的稳健高增。
+此外，关于与伊朗建立“长期和平”以及实现中东地区和平的最终协议，目前也已取得实质性进展。
 
 ## 相关推荐
 
-- 2026-06-29 19:59 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 19:56 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 20:07 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 20:17 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 20:15 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 20:03 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 20:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 20:11 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 20:15 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 20:01 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 20:05 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 20:13 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 19:54 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 20:10 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 20:08 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 20:05 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 20:01 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 20:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 20:15 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 20:06 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 20:21 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 20:04 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 20:22 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 20:17 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 20:20 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 20:01 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 19:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 19:57 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:16 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/094840681155.shtml)
-- 2026-06-29 19:51 - [夫妻生活太无聊，所以我……](https://www.share.minike.top/Article/details/1200513.shtml)
-- 2026-06-29 20:03 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/943886.shtml)
-- 2026-06-29 20:12 - [海口塔吊事故处罚结果公布](http://www.blog.minike.top/Article/details/92802.shtml)
-- 2026-06-29 20:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/269784986.shtml)
-- 2026-06-29 20:08 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/36230.shtml)
-- 2026-06-29 20:14 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/71816759.shtml)
-- 2026-06-29 19:57 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/921367506729.shtml)
-- 2026-06-29 19:53 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/557721640.shtml)
-- 2026-06-29 20:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/2830270.shtml)
-- 2026-06-29 20:11 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/188417346.shtml)
-- 2026-06-29 20:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/140297509267.shtml)
-- 2026-06-29 20:09 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/77228064274.shtml)
-- 2026-06-29 20:04 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/0047433.shtml)
-- 2026-06-29 20:16 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/80518.shtml)
+- 2026-06-29 20:11 - [一见倾心](http://www.share.kurohicncr.top/Article/details/125150495371.shtml)
+- 2026-06-29 20:12 - [王楚钦开门红](https://www.share.minike.top/Article/details/633780.shtml)
+- 2026-06-29 20:01 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/67523125.shtml)
+- 2026-06-29 20:23 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/7116555.shtml)
+- 2026-06-29 20:00 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/876017201249.shtml)
+- 2026-06-29 20:04 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/947913127.shtml)
+- 2026-06-29 20:20 - [如果你一直单身，你准备怎么养老？](https://www.blog.kurohicncr.top/Article/details/526707455.shtml)
+- 2026-06-29 20:11 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/80045255.shtml)
+- 2026-06-29 20:20 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/7830771.shtml)
+- 2026-06-29 19:56 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/979512920764.shtml)
+- 2026-06-29 20:15 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/16728868972.shtml)
+- 2026-06-29 20:00 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/57383645.shtml)
+- 2026-06-29 20:09 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/42574648.shtml)
+- 2026-06-29 20:19 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/46075.shtml)
+- 2026-06-29 20:14 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/85119764579.shtml)

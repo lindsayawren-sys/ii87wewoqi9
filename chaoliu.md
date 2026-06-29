@@ -1,57 +1,61 @@
-# 多家A股公司经历回款之痛！各地打响“账期沉疴”攻坚战， 疏通经济血脉“最后一公里”！
+# 2025年营收、净利“双降”，光大银行副行长刘彦结合内外部环境分析影响因素
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：内外利好共振 A股5月有望再攀新高 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！工作在长三角地区的“厂二代”刘乐，最近因账期问题与父辈创始团队产生了严重分歧。刘乐所在的公司虽然业务规模持续扩大，但应收账款增速更快，近期几批回款的周期已延长至一年半以上。 账期，成为两代经营者之间最核心的矛盾。 刘
+3月31日金融一线消息，光大银行今日召开2025年度业绩说明会。对于2025年光大银行营收和净利润均负增长的情况，副行长、首席财务官刘彦从内外部环境分析如下原因：近年来，在LPR利率下调、减费让利等政策背景下，银行业面临净息差收窄、中间收入下降等经营压力，营收增速普遍放缓。 从银行内部情况来看，刘彦进一步表示，2025年营收出现负增长主要受以下几方面因素影响：一是净息差有所收窄
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：内外利好共振 A股5月有望再攀新高 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+3月31日金融一线消息，光大银行今日召开2025年度业绩说明会。
 
-工作在长三角地区的“厂二代”刘乐，最近因账期问题与父辈创始团队产生了严重分歧。
+对于2025年光大银行营收和净利润均负增长的情况，副行长、首席财务官刘彦从内外部环境分析如下原因：近年来，在LPR利率下调、减费让利等政策背景下，银行业面临净息差收窄、中间收入下降等经营压力，营收增速普遍放缓。
 
-刘乐所在的公司虽然业务规模持续扩大，但应收账款增速更快，近期几批回款的周期已延长至一年半以上。
+从银行内部情况来看，刘彦进一步表示，2025年营收出现负增长主要受以下几方面因素影响：一是净息差有所收窄。
 
-账期，成为两代经营者之间最核心的矛盾。
+2024年以来LPR利率下调，叠加存量房贷利率调整，2025年我行贷款端收益率受到影响，而存款利率下行节奏慢于贷款，净息差同比有所收窄，制约了利息收入增长。
 
-刘乐向记者算了一笔账：“公司毛利率约20%，扣除人工、机械、折旧、水电等成本及贷款利息后，净利润被压得越来越薄。
+二是其他收入阶段性下降。
 
-”他主张，应当每年有选择地减少业务量，优先承接回款良好的客户，坚决不赊销、不垫款。
+2024年债券市场利率较大幅度下行，我行投资类资产估值浮盈基数较高，但2025年债券市场利率整体上行，我行投资类资产估值形成一定的浮亏，导致其他收入有所下降。
 
-但父辈并不认同这一思路：当前虽然毛利低、回款周期长，但至少能养活全体员工；如果只接回款好的业务，必然导致裁员；一旦失去客户，蛋糕将永远丢失，已发出的货款更可能沦为坏账。
+三是统筹发展和安全。
 
-账期问题是中国经济产业链条上的“沉疴”。
+我行加大相关业务风险化解和经营转型力度，信用卡息费收入阶段性承压，对全行息费收入增长产生一定影响。
 
 ## 相关推荐
 
-- 2026-06-29 19:49 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 20:14 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 19:48 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 20:16 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 20:05 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 20:05 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 19:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 19:58 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 20:08 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 20:10 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 19:53 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 20:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 20:05 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 20:09 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 19:57 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 20:07 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 20:02 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 20:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 20:13 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 20:19 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 20:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 20:14 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 20:16 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 19:56 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 20:11 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 20:09 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:51 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.kurohicncr.top/Article/details/518049.shtml)
-- 2026-06-29 20:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/030741.shtml)
-- 2026-06-29 19:54 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/8084201.shtml)
-- 2026-06-29 20:09 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/31573825.shtml)
-- 2026-06-29 20:03 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/313219189.shtml)
-- 2026-06-29 20:12 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/19605162.shtml)
-- 2026-06-29 19:48 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/473156.shtml)
-- 2026-06-29 20:10 - [郑钦文谈再战西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/699007.shtml)
-- 2026-06-29 20:08 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/881429.shtml)
-- 2026-06-29 20:14 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/63616013088.shtml)
-- 2026-06-29 19:57 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/1942635577.shtml)
-- 2026-06-29 20:02 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/96497249.shtml)
-- 2026-06-29 19:51 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/81325249262.shtml)
-- 2026-06-29 20:06 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/84635354844.shtml)
-- 2026-06-29 20:09 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/329734898715.shtml)
+- 2026-06-29 20:14 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/665317759.shtml)
+- 2026-06-29 20:09 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/019624738.shtml)
+- 2026-06-29 20:22 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/5169338.shtml)
+- 2026-06-29 20:04 - [委内瑞拉发生余震](http://www.blog.minike.top/Article/details/74682263.shtml)
+- 2026-06-29 20:13 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/847733592.shtml)
+- 2026-06-29 20:03 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.kurohicncr.top/Article/details/902738.shtml)
+- 2026-06-29 20:05 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/34303103628.shtml)
+- 2026-06-29 20:12 - [女生每天戴耳机18小时突发耳聋](https://www.share.kurohicncr.top/Article/details/72403231.shtml)
+- 2026-06-29 20:10 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/90064817.shtml)
+- 2026-06-29 20:07 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.kurohicncr.top/Article/details/22701477515.shtml)
+- 2026-06-29 19:56 - [千与千寻](https://www.share.minike.top/Article/details/439184118252.shtml)
+- 2026-06-29 20:23 - [伊朗足球队将启程回国](https://www.share.minike.top/Article/details/26383078538.shtml)
+- 2026-06-29 20:21 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/33191.shtml)
+- 2026-06-29 19:58 - [温网](http://www.blog.kurohicncr.top/Article/details/093553139881.shtml)
+- 2026-06-29 20:16 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/96211.shtml)

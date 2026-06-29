@@ -1,58 +1,48 @@
-# 受中东冲突影响，3月份德国制造业订单大幅增长
+# 特朗普说伊朗铀浓缩问题将“得到完美处理”
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-3月份德国制造业订单大幅增长，这一迹象表明，受伊朗战争爆发后市场担忧供应链中断、物价走高影响，企业或已开始增加备货库存。 在德国政府推出规模超1万亿美元的财政刺激政策助力下，2025年末工厂订单稳步攀升。该刺激计划旨在提振德国国防实力，并修缮多年资金投入不足而老化的基础设施。 德国联邦统计局周四公布数据显示，3月制造业订单环比上涨5.0%，经济韧性有所显现。继2月份订单增长1.
+美国总统特朗普7日在接受法新社采访时说，伊朗铀浓缩问题将“得到完美处理”。他还声称，美伊两周停火对美国而言是“彻底且完全的胜利”。据伊朗媒体报道，伊方已向美方提交10项停战条款，其中包括接受伊朗铀浓缩活动。 （新华社）责任编辑：朱赫楠
 
 ## 正文
 
-3月份德国制造业订单大幅增长，这一迹象表明，受伊朗战争爆发后市场担忧供应链中断、物价走高影响，企业或已开始增加备货库存。
+美国总统特朗普7日在接受法新社采访时说，伊朗铀浓缩问题将“得到完美处理”。
 
-在德国政府推出规模超1万亿美元的财政刺激政策助力下，2025年末工厂订单稳步攀升。
+他还声称，美伊两周停火对美国而言是“彻底且完全的胜利”。
 
-该刺激计划旨在提振德国国防实力，并修缮多年资金投入不足而老化的基础设施。
+据伊朗媒体报道，伊方已向美方提交10项停战条款，其中包括接受伊朗铀浓缩活动。
 
-德国联邦统计局周四公布数据显示，3月制造业订单环比上涨5.0%，经济韧性有所显现。
-
-继2月份订单增长1.4%后，德国制造业订单实现连续第二个月攀升，且远高于机构调查经济学家普遍预期的1.0%增速。
-
-联邦统计局数据还显示，即便剔除价值超5000万欧元（折合5870万美元）的大额订单（其中多包含飞机制造商空中客车的重大订单），当月订单仍增长5.1%，创下2023年2月以来该统计口径下的最高增幅。
-
-不过联邦统计局表示，今年第一季度制造业总订单较2025年第四季度下滑4.1%，这一降幅主要源于去年年末大额订单基数偏高；若剔除这类高价值订单，一季度新订单环比增长1.6%。
-
-3月制造业订单增长呈现全面回暖态势，电气设备、机械制造、计算机及光学产品行业领涨。
+（新华社）责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-29 19:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 20:10 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 20:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 20:13 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 19:49 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 20:15 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 20:06 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 19:57 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 20:07 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 20:09 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 20:07 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 19:49 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 20:00 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 20:19 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 20:05 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 19:55 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 20:22 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 19:58 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 19:54 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 20:13 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 20:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 20:21 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/16958521.shtml)
-- 2026-06-29 20:11 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.kurohicncr.top/Article/details/923430999705.shtml)
-- 2026-06-29 19:54 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/838050.shtml)
-- 2026-06-29 19:53 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/1959908654.shtml)
-- 2026-06-29 20:04 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/7394508.shtml)
-- 2026-06-29 20:08 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/05573164669.shtml)
-- 2026-06-29 19:49 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/12538027249.shtml)
-- 2026-06-29 20:09 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/01134.shtml)
-- 2026-06-29 20:09 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/53998.shtml)
-- 2026-06-29 19:59 - [不烧钱的低成本爱好](https://www.blog.kurohicncr.top/Article/details/85515272.shtml)
-- 2026-06-29 20:06 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/622941.shtml)
-- 2026-06-29 19:55 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/459828407746.shtml)
-- 2026-06-29 20:09 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/8991546514.shtml)
-- 2026-06-29 19:49 - [速度与激情9](http://www.blog.minike.top/Article/details/849873246.shtml)
-- 2026-06-29 19:51 - [教育部高校学生资助热线7月1日开通](http://www.blog.minike.top/Article/details/4335879.shtml)
+- 2026-06-29 20:03 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/404259982578.shtml)
+- 2026-06-29 20:01 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/860290598664.shtml)
+- 2026-06-29 20:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/67978.shtml)
+- 2026-06-29 20:05 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/9212828442.shtml)
+- 2026-06-29 20:19 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/05696169.shtml)
+- 2026-06-29 20:02 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/49229.shtml)
+- 2026-06-29 20:02 - [世界杯在中国观看最多的比赛](https://www.blog.kurohicncr.top/Article/details/37808625126.shtml)
+- 2026-06-29 20:07 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/2867217.shtml)
+- 2026-06-29 20:13 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/35043507.shtml)
+- 2026-06-29 20:05 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.kurohicncr.top/Article/details/866969972657.shtml)
+- 2026-06-29 20:14 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/560428258.shtml)
+- 2026-06-29 20:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/61932950.shtml)
+- 2026-06-29 20:05 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/60308394700.shtml)
+- 2026-06-29 20:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/2087372.shtml)
+- 2026-06-29 20:09 - [2026全国田径冠军赛江苏队4金收官](https://www.blog.kurohicncr.top/Article/details/09653384760.shtml)

@@ -1,53 +1,53 @@
-# 美方升级对古巴制裁 中方敦促美方立即终止对古巴的封锁制裁和胁迫施压
+# 花旗：降申洲国际目标价至75港元 评级“买入” 建议逢低买进
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-中新网北京5月7日电(记者 郭超凯)中国外交部发言人林剑7日主持例行记者会。会上有记者就美方升级对古巴制裁相关问题提问。 林剑表示，对于美方出台有关行政令，中方日前已经表明了立场。我愿重申，美国变本加厉对古巴实施非法单边制裁，严重侵犯古巴人民生存权、发展权，严重违反国际关系基本准则。中方坚定支持古巴维护国家主权和安全，坚决反对干涉古巴内政，敦促美方立即终止对古巴的封锁制裁和任何
+花旗发布研报称，申洲国际（02313）去年纯利同比跌6.7%至58.25亿元人民币，核心利润同比升4.9%至60.8亿元人民币，逊市场及该行预期分别4%及6%。该行指，由于运动服装需求前景疲软，料今年订单增长速度将会放缓至中单位数。该行指，将公司在2026年至2027年盈利预测下调11%至13%，其目标价由94港元下调至75港元，但考虑现估值处于十年低位，预测今年股息率5.6%
 
 ## 正文
 
-中新网北京5月7日电(记者 郭超凯)中国外交部发言人林剑7日主持例行记者会。
+花旗发布研报称，申洲国际（02313）去年纯利同比跌6.7%至58.25亿元人民币，核心利润同比升4.9%至60.8亿元人民币，逊市场及该行预期分别4%及6%。
 
-会上有记者就美方升级对古巴制裁相关问题提问。
+该行指，由于运动服装需求前景疲软，料今年订单增长速度将会放缓至中单位数。
 
-林剑表示，对于美方出台有关行政令，中方日前已经表明了立场。
+该行指，将公司在2026年至2027年盈利预测下调11%至13%，其目标价由94港元下调至75港元，但考虑现估值处于十年低位，预测今年股息率5.6%长远属吸引，建议逢低买进，评级“买入”。
 
-我愿重申，美国变本加厉对古巴实施非法单边制裁，严重侵犯古巴人民生存权、发展权，严重违反国际关系基本准则。
-
-中方坚定支持古巴维护国家主权和安全，坚决反对干涉古巴内政，敦促美方立即终止对古巴的封锁制裁和任何形式的胁迫施压。
-
-(完)
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-29 19:54 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 20:17 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 20:11 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 19:51 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 19:48 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 20:04 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 20:01 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 20:01 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 20:08 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 20:01 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 19:55 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 19:59 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 20:20 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 20:14 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 20:10 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 20:07 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 19:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 20:15 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 20:20 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 20:20 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 20:03 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 20:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 19:54 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 20:13 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 20:06 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 20:13 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:56 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/63169522.shtml)
-- 2026-06-29 20:00 - [唐艺昕告别浪姐千字长文](http://www.share.kurohicncr.top/Article/details/023050.shtml)
-- 2026-06-29 20:08 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/113335175763.shtml)
-- 2026-06-29 19:58 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/37579138623.shtml)
-- 2026-06-29 19:48 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/79690.shtml)
-- 2026-06-29 20:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/20568532227.shtml)
-- 2026-06-29 20:10 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/9373041162.shtml)
-- 2026-06-29 19:56 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/73013223.shtml)
-- 2026-06-29 20:03 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/3761070.shtml)
-- 2026-06-29 20:16 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/18988375069.shtml)
-- 2026-06-29 20:11 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/00833738.shtml)
-- 2026-06-29 20:15 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/203961814.shtml)
-- 2026-06-29 19:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/655500.shtml)
-- 2026-06-29 20:07 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/5703906749.shtml)
-- 2026-06-29 19:57 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/97817482.shtml)
+- 2026-06-29 20:06 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/8130706.shtml)
+- 2026-06-29 20:07 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/840170.shtml)
+- 2026-06-29 20:08 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/53212.shtml)
+- 2026-06-29 20:05 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/1804287256.shtml)
+- 2026-06-29 19:59 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/78555568.shtml)
+- 2026-06-29 20:07 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/514453153.shtml)
+- 2026-06-29 19:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/9452649.shtml)
+- 2026-06-29 20:00 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/99414.shtml)
+- 2026-06-29 20:16 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/607935608.shtml)
+- 2026-06-29 20:11 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/718082.shtml)
+- 2026-06-29 20:11 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/7769995.shtml)
+- 2026-06-29 20:01 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/55429.shtml)
+- 2026-06-29 20:13 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/2522455.shtml)
+- 2026-06-29 19:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/18285.shtml)
+- 2026-06-29 20:21 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/43280044.shtml)

@@ -1,59 +1,61 @@
-# 粤港澳大湾区锂电池产品海运出口“一箱制”落地
+# 超300项新标7项重点任务 纺织工业升级“有标可依”
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月07日 21:08 来源：中国新闻网 5月7日，一批装载着广东东莞制造锂电池产品的集装箱，从东莞一企业启运，货车约90分钟后抵达深圳盐田港，随即被直接吊装上“莫滕·马士基”轮，发往海外市场。这标志着莞深锂电池海运出口“一箱制”新模式完成首单运输，正式进入常态化运行，粤港澳大湾区跨境贸易便利化再添一项重要制度创新成果。 作为全球重要的锂电池生产基地，东莞
+到2028年，制修订多元适配、数字转型等国家标准300项以上—— 纺织工业升级“有标可依”(锐财经) 纺织工业是我国传统支柱产业、重要民生产业和国际优势产业。近日，工业和信息化部、生态环境部、国家市场监督管理总局等3部门联合印发《标准引领纺织工业优化升级行动方案(2026—2028年)》(以下简称《行动方案》)，按照“标缺必补、标低则提、标优重贯”的思路，进一步优化标准供给结构
 
 ## 正文
 
-发布时间：2026年05月07日 21:08 来源：中国新闻网 5月7日，一批装载着广东东莞制造锂电池产品的集装箱，从东莞一企业启运，货车约90分钟后抵达深圳盐田港，随即被直接吊装上“莫滕·马士基”轮，发往海外市场。
+到2028年，制修订多元适配、数字转型等国家标准300项以上—— 纺织工业升级“有标可依”(锐财经) 纺织工业是我国传统支柱产业、重要民生产业和国际优势产业。
 
-这标志着莞深锂电池海运出口“一箱制”新模式完成首单运输，正式进入常态化运行，粤港澳大湾区跨境贸易便利化再添一项重要制度创新成果。
+近日，工业和信息化部、生态环境部、国家市场监督管理总局等3部门联合印发《标准引领纺织工业优化升级行动方案(2026—2028年)》(以下简称《行动方案》)，按照“标缺必补、标低则提、标优重贯”的思路，进一步优化标准供给结构，增强标准实施效能，提高标准国际化水平，加快构建引领产业优化升级的标准体系，推动纺织工业高质量发展。
 
-作为全球重要的锂电池生产基地，东莞锂电池产品出口需求旺盛。
+进一步完善纺织标准体系纺织业在稳就业、促创新、扩消费等方面作用突出。
 
-过去，东莞生产的锂电池运到盐田港后，需要等待海事等口岸单位开箱查验才能装船。
+中国拥有全球最为完备的纺织工业体系，年产服装超700亿件，纺织品服装出口占全球纺织品服装贸易比重三成以上，生产规模、贸易规模均居世界首位。
 
-一旦遇上查验高峰，往往需要滞港等待，影响出口履约效率。
+中国纺织工业联合会数据显示，2025年全国限额以上服装、鞋帽、针纺织品类商品零售额15215亿元，同比增长3.2%。
 
-新模式落地后，东莞企业在备货阶段即可申请海事部门上门查验，符合条件的东莞锂电池产品在“家门口”完成查验后，即可“一箱到底”直达盐田港装船出海。
+此次出台《行动方案》有何考量？
 
-经测算，该模式落地后，单箱可节约物流成本约2万元，整体物流时间缩短超20%，将切实为外贸企业降本增效，持续激活区域外贸发展动能。
+工信部有关负责人解释，当前，我国消费升级持续深化，市场需求呈现个性化、多样化、高品质化的特点，现行标准体系难以完全满足多元需求，亟需通过组织实施《行动方案》，进一步完善纺织标准体系，以标准供给质量的提高带动企业核心竞争力的提升，增强供需适配性。
 
-(何俊杰 郭军 蓝童 东莞报道） 责任编辑：【卢岩】
+据介绍，《行动方案》结合现有标准制修订节奏及工作基础，在充分调研产业实际、梳理标准缺口的基础上提出国内国际标准制修订目标——到2028年，制修订多元适配、数字转型、绿色低碳、健康安全等国家标准300项以上，纺织标准供给能力全面提高；制修订国际标准10项以上，国际标准转化率持续保持在85%以上，国内国际一致性稳步提升。
 
 ## 相关推荐
 
-- 2026-06-29 19:49 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 20:14 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 20:14 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 19:55 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 19:51 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 19:53 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 20:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 20:01 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 20:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 20:05 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 19:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 19:54 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 20:00 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 20:12 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 20:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 20:02 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 19:54 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 19:55 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 20:01 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 20:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 20:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 19:54 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 20:23 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 20:06 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 20:02 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 20:14 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 20:00 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 20:10 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/517484990304.shtml)
-- 2026-06-29 20:06 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/73026597.shtml)
-- 2026-06-29 19:56 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/0015965089.shtml)
-- 2026-06-29 20:17 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/95846699305.shtml)
-- 2026-06-29 20:10 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/4347011.shtml)
-- 2026-06-29 20:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/7561529.shtml)
-- 2026-06-29 20:05 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/4972304443.shtml)
-- 2026-06-29 19:59 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/240124598.shtml)
-- 2026-06-29 20:16 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/15268.shtml)
-- 2026-06-29 19:51 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/268819223.shtml)
-- 2026-06-29 19:49 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/56534158642.shtml)
-- 2026-06-29 20:15 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/9187991902.shtml)
-- 2026-06-29 20:08 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/93434.shtml)
-- 2026-06-29 20:09 - [韩国小学生都来吐槽了](http://www.share.kurohicncr.top/Article/details/56556.shtml)
-- 2026-06-29 20:06 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/6588092.shtml)
+- 2026-06-29 20:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/19182.shtml)
+- 2026-06-29 20:20 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/59216576.shtml)
+- 2026-06-29 20:17 - [韩国队主帅遭极端网友死亡威胁](http://www.share.minike.top/Article/details/38819.shtml)
+- 2026-06-29 20:09 - [欧洲极端高温如何影响家电股](http://www.share.minike.top/Article/details/8528459.shtml)
+- 2026-06-29 20:04 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/35458923.shtml)
+- 2026-06-29 20:05 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/21898695004.shtml)
+- 2026-06-29 20:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/106045683.shtml)
+- 2026-06-29 19:55 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/921564299.shtml)
+- 2026-06-29 20:02 - [李思潼：不会介意大家夸我运气好](http://www.blog.minike.top/Article/details/368392862.shtml)
+- 2026-06-29 19:59 - [这一刀 会很帅](https://www.share.minike.top/Article/details/132488357674.shtml)
+- 2026-06-29 20:01 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/3793369860.shtml)
+- 2026-06-29 20:05 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/63646.shtml)
+- 2026-06-29 20:16 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/4062349.shtml)
+- 2026-06-29 20:08 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/5309384605.shtml)
+- 2026-06-29 20:16 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/11594.shtml)

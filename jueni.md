@@ -1,61 +1,60 @@
-# 多轮疑似干预难破僵局！155关口久攻不破，日元升值行情蒙上阴影
+# 特朗普“最后通牒”倒计时，海峡困局中全球能源走向“沸点”
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-在日本政府多次疑似入市干预后，日元兑美元汇率始终未能突破155关口，市场开始质疑此轮日元升值行情能否持续。 自4月30日以来，日元历经多轮大幅反弹，但每次都在触及155关口前涨势衰竭，随后回吐部分涨幅。尽管日本当局拥有充足外汇储备以持续入市干预，但汇率走势表明，市场对美元需求依然强劲，日本政府扭转日元弱势的能力有限。 当前宏观经济基本面仍支撑美元走强。即便市场预期伊朗局势有望缓
+随着最后期限临近，市场正被迫重估能源危机对全球经济的侵蚀。 美国为伊朗设定的最后期限已进入“读秒”阶段。 当地时间4月6日，美国总统特朗普重申，他已将美东时间周二（4月7日）20时（即北京时间4月8日8时）设定为伊朗与华盛顿谈判的最后期限。他还要求将“重新开放霍尔木兹海峡”纳入停火协议。 他在发言中威胁称，一旦超过最后期限，在几小时内，伊朗将面临针对桥梁和发电厂等民用基础设施的
 
 ## 正文
 
-在日本政府多次疑似入市干预后，日元兑美元汇率始终未能突破155关口，市场开始质疑此轮日元升值行情能否持续。
+随着最后期限临近，市场正被迫重估能源危机对全球经济的侵蚀。
 
-自4月30日以来，日元历经多轮大幅反弹，但每次都在触及155关口前涨势衰竭，随后回吐部分涨幅。
+美国为伊朗设定的最后期限已进入“读秒”阶段。
 
-尽管日本当局拥有充足外汇储备以持续入市干预，但汇率走势表明，市场对美元需求依然强劲，日本政府扭转日元弱势的能力有限。
+当地时间4月6日，美国总统特朗普重申，他已将美东时间周二（4月7日）20时（即北京时间4月8日8时）设定为伊朗与华盛顿谈判的最后期限。
 
-当前宏观经济基本面仍支撑美元走强。
+他还要求将“重新开放霍尔木兹海峡”纳入停火协议。
 
-即便市场预期伊朗局势有望缓和，能源价格仍居高不下。
+他在发言中威胁称，一旦超过最后期限，在几小时内，伊朗将面临针对桥梁和发电厂等民用基础设施的新一轮袭击，“伊朗的每一座桥梁都将被摧毁”，“伊朗的每一座发电厂都将停摆、燃烧、爆炸，且永远无法再次使用”。
 
-日本央行距离潜在加息时点至少还有一个月的时间，而美联储降息周期也迟迟未见启动迹象。
+据新华社援引美媒报道，调解方对伊朗在特朗普设定的最后期限前“屈服”并重新开放霍尔木兹海峡感到悲观，美伊达成停火协议“希望渐灭”。
 
-华侨银行策略师Moh Siong Sim表示：“关键问题在于，日本财务省是会继续捍卫日元汇率，还是已动用足够弹药进行干预。
+全球能源市场的神经仍然紧张。
 
-”策略师指出，仅靠干预不太可能扭转日元贬值的整体趋势。
+当前，全球基准布伦特原油价格达到每桶108.31美元，过去一个月间上涨了15%；美国交易的WTI原油价格达到111.89美元/桶。
 
 ## 相关推荐
 
-- 2026-06-29 20:16 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 20:03 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 20:11 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 19:52 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 19:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 20:07 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 19:56 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 19:53 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 20:11 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 20:07 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 19:48 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 20:06 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 19:57 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 20:15 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 20:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 20:14 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 20:13 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 19:55 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 20:04 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 20:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 20:00 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 20:06 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 20:22 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 19:56 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 20:10 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 20:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 20:14 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 20:22 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 20:04 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:58 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/20501857012.shtml)
-- 2026-06-29 19:51 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/5244382739.shtml)
-- 2026-06-29 19:53 - [东方风云榜](http://www.share.minike.top/Article/details/768981.shtml)
-- 2026-06-29 20:13 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/003807.shtml)
-- 2026-06-29 20:14 - [厨房装空调还是装冷烟机](http://www.share.kurohicncr.top/Article/details/44784279.shtml)
-- 2026-06-29 19:55 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/1880041629.shtml)
-- 2026-06-29 20:04 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/542711.shtml)
-- 2026-06-29 19:59 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/4258004.shtml)
-- 2026-06-29 20:01 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/612555.shtml)
-- 2026-06-29 20:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/01785.shtml)
-- 2026-06-29 19:51 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/41411.shtml)
-- 2026-06-29 19:59 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/948016753.shtml)
-- 2026-06-29 20:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/8548114166.shtml)
-- 2026-06-29 20:06 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/787096870189.shtml)
-- 2026-06-29 19:54 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/2785427159.shtml)
+- 2026-06-29 19:54 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/016716893.shtml)
+- 2026-06-29 20:16 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/04397320304.shtml)
+- 2026-06-29 19:55 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/01070.shtml)
+- 2026-06-29 20:17 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/90387228.shtml)
+- 2026-06-29 20:08 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/96997.shtml)
+- 2026-06-29 20:01 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/484948311499.shtml)
+- 2026-06-29 20:11 - [大学专业未来如何洗牌](http://www.blog.minike.top/Article/details/84726333.shtml)
+- 2026-06-29 20:08 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/135024250.shtml)
+- 2026-06-29 20:01 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/0271918.shtml)
+- 2026-06-29 20:07 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/2719841.shtml)
+- 2026-06-29 20:20 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/85446429620.shtml)
+- 2026-06-29 19:59 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/72153.shtml)
+- 2026-06-29 19:57 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/997766020660.shtml)
+- 2026-06-29 20:00 - [美人鱼](http://www.blog.minike.top/Article/details/47854.shtml)
+- 2026-06-29 20:16 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/55978.shtml)

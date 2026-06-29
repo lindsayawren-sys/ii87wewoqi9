@@ -1,59 +1,58 @@
-# 中国不能看世界杯了？
+# 医渡科技早盘涨超5% 医疗人工智能大模型领域实践再突破
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-距离2026年美加墨世界杯开幕已经不到40天，中国大陆与国际足联(FIFA)还没有就转播协议达成一致。这场报价博弈缘何产生，又将如何收场？ FIFA开价究竟有多高？ FIFA是世界杯转播权的“独家卖方”。在中国大陆地区，根据有关政策规定，奥运会、亚运会和世界杯足球赛(包括预选赛)等重大的国际体育比赛，电视转播权统一由中央电视台负责谈判与购买。 以往的世界杯版权谈判，FIFA通常
+医渡科技（02158）盘中涨超7%，截至发稿，股价上涨7.03%，现报5.48港元，成交额2349.67万港元。 4月8日，医渡科技发布自愿性公告，公司中标北京肿瘤医院人工智能建设银医合作项目，项目总金额约为人民488万元。该项目被视为医渡科技在医疗人工智能大模型领域的又一突破性实践，未来将以北京大学肿瘤医院为标杆场景持续深耕，为后续大模型业务的全面拓展树立示范案例。 另值得关
 
 ## 正文
 
-距离2026年美加墨世界杯开幕已经不到40天，中国大陆与国际足联(FIFA)还没有就转播协议达成一致。
+医渡科技（02158）盘中涨超7%，截至发稿，股价上涨7.03%，现报5.48港元，成交额2349.67万港元。
 
-这场报价博弈缘何产生，又将如何收场？
+4月8日，医渡科技发布自愿性公告，公司中标北京肿瘤医院人工智能建设银医合作项目，项目总金额约为人民488万元。
 
-FIFA开价究竟有多高？
+该项目被视为医渡科技在医疗人工智能大模型领域的又一突破性实践，未来将以北京大学肿瘤医院为标杆场景持续深耕，为后续大模型业务的全面拓展树立示范案例。
 
-FIFA是世界杯转播权的“独家卖方”。
+另值得关注的是，医渡科技近日与北京银行签署战略合作协议。
 
-在中国大陆地区，根据有关政策规定，奥运会、亚运会和世界杯足球赛(包括预选赛)等重大的国际体育比赛，电视转播权统一由中央电视台负责谈判与购买。
+据悉，双方将围绕“智慧医疗”展开深度合作：依托医渡科技的“AI医疗大脑”YiduCore及大数据治理能力，结合北京银行在医疗金融服务及医院场景建设的经验，共同为医院提供在线预约挂号、智能导诊、实时缴费、报告查询等智慧门诊服务，以及入院登记、出院结算、电子发票等智慧住院服务。
 
-以往的世界杯版权谈判，FIFA通常以两届为一个打包周期进行预售。
+本次中标项目同样采用银医合作模式，市场预期医渡科技未来有望在银医合作领域持续落地更多项目。
 
-参考此前报道，央视打包拿下2018年俄罗斯世界杯和2022年卡塔尔世界杯独家版权的价格约为3亿至4亿美元之间。
-
-2026年美加墨世界杯则是新的采购周期，双方需要重回谈判桌。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:14 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 20:17 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 19:54 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 20:07 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 19:53 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 19:54 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 19:57 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 20:04 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 20:11 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 19:55 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 20:11 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 19:52 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 19:57 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 20:17 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 20:10 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 20:09 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 19:54 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 19:59 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 20:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 20:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 19:55 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 20:10 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 20:00 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 20:04 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 20:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 20:06 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 19:54 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:10 - [金鹰奖第二阶段投票明日开启](https://www.share.minike.top/Article/details/7716197794.shtml)
-- 2026-06-29 20:12 - [温网](http://www.blog.minike.top/Article/details/990416560118.shtml)
-- 2026-06-29 19:50 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/33943.shtml)
-- 2026-06-29 20:17 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/345390.shtml)
-- 2026-06-29 20:08 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/34276590933.shtml)
-- 2026-06-29 20:00 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/194087593.shtml)
-- 2026-06-29 19:52 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/70394616.shtml)
-- 2026-06-29 20:05 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.minike.top/Article/details/0471878.shtml)
-- 2026-06-29 20:16 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/134639.shtml)
-- 2026-06-29 19:51 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/039899.shtml)
-- 2026-06-29 19:57 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/535693871947.shtml)
-- 2026-06-29 20:05 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/004189.shtml)
-- 2026-06-29 19:54 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/48280969441.shtml)
-- 2026-06-29 19:59 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/08086013585.shtml)
-- 2026-06-29 19:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/823976167.shtml)
+- 2026-06-29 20:14 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/82252333.shtml)
+- 2026-06-29 20:20 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/140021.shtml)
+- 2026-06-29 20:09 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/1875408.shtml)
+- 2026-06-29 19:57 - [世界杯1/16决赛对阵出炉](http://www.share.minike.top/Article/details/00400.shtml)
+- 2026-06-29 20:05 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/7957136884.shtml)
+- 2026-06-29 20:09 - [蔚来回应车漆洗车时被冲掉](https://www.blog.minike.top/Article/details/03691489804.shtml)
+- 2026-06-29 20:01 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/060673.shtml)
+- 2026-06-29 20:06 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/42652371.shtml)
+- 2026-06-29 20:16 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/93623814817.shtml)
+- 2026-06-29 20:06 - [华工科技龙虎榜数据](http://www.blog.minike.top/Article/details/0000219.shtml)
+- 2026-06-29 20:23 - [千与千寻](https://www.share.kurohicncr.top/Article/details/441863470088.shtml)
+- 2026-06-29 20:10 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/7649244071.shtml)
+- 2026-06-29 20:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/83803.shtml)
+- 2026-06-29 20:01 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/8429165.shtml)
+- 2026-06-29 20:03 - [医药生物行业今日涨5.91%](http://www.blog.kurohicncr.top/Article/details/97787.shtml)

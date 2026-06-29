@@ -1,54 +1,58 @@
-# SpaceXAI与Anthropico达成算力合作伙伴关系
+# 刚刚，中东大消息！全线暴涨，超12万人爆仓
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-SpaceXAI已与Anthropic签署协议，将向后者提供对超级计算机Colossus 1的访问权限。 根据公司声明，Colossus为人工智能训练、微调、推理及高性能计算工作负载提供大规模算力支持。 Anthropic计划利用新增算力直接提升Claude Pro和Claude Max对订阅用户的服务。 Anthropic还表示，有意在该协议框架下合作开发数吉瓦级的轨道人工智
+专题：外部冲击与内部驱动交织 四月下旬决断市场方向 【导读】加密货币集体暴涨，比特币升破72500美元，超12万人被爆仓 中国基金报记者 晨曦 一觉醒来，全线暴涨！ 4月8日早间，随着美伊停火消息的公布，加密货币市场迎来久违的大涨行情。比特币价格直线冲高，一度突破72500美元，24小时涨幅超5%。 主流币种迎来集体狂欢，以太坊价格突破2260美元，24小时涨幅超8%；XRP、
 
 ## 正文
 
-SpaceXAI已与Anthropic签署协议，将向后者提供对超级计算机Colossus 1的访问权限。
+专题：外部冲击与内部驱动交织 四月下旬决断市场方向 【导读】加密货币集体暴涨，比特币升破72500美元，超12万人被爆仓 中国基金报记者 晨曦 一觉醒来，全线暴涨！
 
-根据公司声明，Colossus为人工智能训练、微调、推理及高性能计算工作负载提供大规模算力支持。
+4月8日早间，随着美伊停火消息的公布，加密货币市场迎来久违的大涨行情。
 
-Anthropic计划利用新增算力直接提升Claude Pro和Claude Max对订阅用户的服务。
+比特币价格直线冲高，一度突破72500美元，24小时涨幅超5%。
 
-Anthropic还表示，有意在该协议框架下合作开发数吉瓦级的轨道人工智能算力容量。
+主流币种迎来集体狂欢，以太坊价格突破2260美元，24小时涨幅超8%；XRP、SOL、ADA等均有明显涨幅。
 
-责任编辑：李桐
+与此同时，全球爆仓数据持续增加。
+
+截至发稿，根据CoinGlass的统计，最近24小时，全球共有120077人被爆仓，爆仓总金额为5.98亿美元。
+
+其中多单1.67亿美元，空单4.31亿美元。
+
+消息面上，据央视新闻消息，当地时间4月7日，美国总统特朗普在社交平台发文称，美方决定暂缓原计划针对伊朗的军事打击行动。
 
 ## 相关推荐
 
-- 2026-06-29 20:12 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 19:56 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 20:03 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 19:54 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 20:03 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 20:04 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 19:49 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 20:11 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 19:51 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 20:03 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 19:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 19:56 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 20:09 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 20:12 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 20:10 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 20:01 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 20:12 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 19:56 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 20:05 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 20:03 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 20:04 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 19:58 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 19:57 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 19:58 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 20:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 20:00 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [葛军透露高考出题思路](https://www.blog.kurohicncr.top/Article/details/498825371919.shtml)
-- 2026-06-29 20:07 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/210869064.shtml)
-- 2026-06-29 20:15 - [记者暗访养老机构消防安全](http://www.share.minike.top/Article/details/87132112456.shtml)
-- 2026-06-29 20:12 - [北京市发布雷电黄色预警](https://www.share.kurohicncr.top/Article/details/212661544960.shtml)
-- 2026-06-29 20:12 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/40207737890.shtml)
-- 2026-06-29 20:16 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/65852489903.shtml)
-- 2026-06-29 20:08 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/836797667176.shtml)
-- 2026-06-29 19:55 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/6730703.shtml)
-- 2026-06-29 19:49 - [刘冰任河南南阳市代市长](https://www.share.minike.top/Article/details/351520129.shtml)
-- 2026-06-29 20:12 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.minike.top/Article/details/321681526042.shtml)
-- 2026-06-29 19:50 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/1622599.shtml)
-- 2026-06-29 20:06 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/66506096.shtml)
-- 2026-06-29 20:00 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/622605043.shtml)
-- 2026-06-29 19:49 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/590620117.shtml)
-- 2026-06-29 20:15 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/39045259477.shtml)
+- 2026-06-29 20:11 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/853504.shtml)
+- 2026-06-29 20:07 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/86718.shtml)
+- 2026-06-29 20:13 - [网友晒14年前支教影像等来学生评论](https://www.share.minike.top/Article/details/03729.shtml)
+- 2026-06-29 20:23 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/67543.shtml)
+- 2026-06-29 19:55 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.minike.top/Article/details/8997259703.shtml)
+- 2026-06-29 20:03 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/175233378.shtml)
+- 2026-06-29 20:06 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.kurohicncr.top/Article/details/211758211424.shtml)
+- 2026-06-29 20:04 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/92233891150.shtml)
+- 2026-06-29 20:02 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/8134920.shtml)
+- 2026-06-29 20:18 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/550211505678.shtml)
+- 2026-06-29 20:00 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/722526636977.shtml)
+- 2026-06-29 20:05 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/0233971.shtml)
+- 2026-06-29 20:13 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/23883.shtml)
+- 2026-06-29 20:18 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/3317729128.shtml)
+- 2026-06-29 20:17 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/2777272.shtml)

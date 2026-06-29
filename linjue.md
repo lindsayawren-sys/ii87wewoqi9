@@ -1,56 +1,57 @@
-# 因韩国政府介入，三星电子劳资双方恢复谈判
+# 金饰价格一夜大涨49元，现货黄金盘中涨超3%！国际油价暴跌近20%
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-三星电子劳资双方已恢复谈判。三星电子工会于8日接受了韩国政府提出的“事后调解”程序。 当天，韩国雇佣劳动部京畿地方雇佣劳动厅厅长Kim Do-hyung与三星电子资方、三星集团联合工会（SGUU）三星电子分会委员长Choi Seung-ho等人举行了三方会议。这标志着雇佣劳动部正式介入劳资双方谈判，此举旨在促使劳资双方重启对话。这是自3月18日三星工会决议发动总罢工以来，时隔5
+北京时间4月8日早盘，现货黄金持续上扬，盘中突破4800美元，最高报4857.550美元/盎司，涨超3%。截至发稿有所回落，报4800.000美元/盎司，涨2.1%。 受此影响，国内品牌金饰价格继续上调。中新经纬8日查询发现，老庙黄金足金饰品报1485元/克，单日涨49元；周生生足金饰品报1471元/克，单日涨37元；老凤祥足金饰品报1470元/克，单日涨35元。 与此同时，原
 
 ## 正文
 
-三星电子劳资双方已恢复谈判。
+北京时间4月8日早盘，现货黄金持续上扬，盘中突破4800美元，最高报4857.550美元/盎司，涨超3%。
 
-三星电子工会于8日接受了韩国政府提出的“事后调解”程序。
+截至发稿有所回落，报4800.000美元/盎司，涨2.1%。
 
-当天，韩国雇佣劳动部京畿地方雇佣劳动厅厅长Kim Do-hyung与三星电子资方、三星集团联合工会（SGUU）三星电子分会委员长Choi Seung-ho等人举行了三方会议。
+受此影响，国内品牌金饰价格继续上调。
 
-这标志着雇佣劳动部正式介入劳资双方谈判，此举旨在促使劳资双方重启对话。
+中新经纬8日查询发现，老庙黄金足金饰品报1485元/克，单日涨49元；周生生足金饰品报1471元/克，单日涨37元；老凤祥足金饰品报1470元/克，单日涨35元。
 
-这是自3月18日三星工会决议发动总罢工以来，时隔50天双方的再次接触。
+与此同时，原油价格大跌。
 
-在会议上，Kim Do-hyung表示：“政府将全力支援此次谈判”，并建议工会接受事后调解程序，与资方展开对话。
+8日早盘，WTI原油一度跌超19%，ICE布油一度跌超16%。
 
-“事后调解”是指即使在初次劳资调解结束后，经劳资双方同意，中央劳动委员会可重新启动调解的程序。
+截至发稿，跌幅均有所收窄。
 
-此前，三星电子劳资双方在2月至3月的调解中未能达成协议，导致调解于3月3日中止。
+消息面上，据央视新闻，美国总统特朗普7日在社交媒体平台发文称：“我同意暂停对伊朗的轰炸和袭击行动，为期两周。
 
 ## 相关推荐
 
-- 2026-06-29 19:59 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 19:56 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 20:06 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 20:04 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 19:55 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 19:51 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 20:06 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 19:54 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 20:03 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 19:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 20:22 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 20:03 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 20:00 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 20:19 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 20:03 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 20:17 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 19:58 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 20:19 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 20:21 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 20:07 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 20:15 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:04 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/5569581540.shtml)
-- 2026-06-29 20:07 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/49178.shtml)
-- 2026-06-29 20:06 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/24620319.shtml)
-- 2026-06-29 20:05 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/1889153078.shtml)
-- 2026-06-29 20:02 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/1288356351.shtml)
-- 2026-06-29 20:05 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/52140.shtml)
-- 2026-06-29 19:57 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/05868892949.shtml)
-- 2026-06-29 20:10 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/405322148.shtml)
-- 2026-06-29 19:56 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/8215808930.shtml)
-- 2026-06-29 19:59 - [医药生物行业今日涨5.91%](http://www.share.kurohicncr.top/Article/details/057053.shtml)
-- 2026-06-29 19:50 - [张杰我九岁就跟你了](https://www.blog.kurohicncr.top/Article/details/32019760.shtml)
-- 2026-06-29 20:17 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/59260.shtml)
-- 2026-06-29 20:15 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/45556.shtml)
-- 2026-06-29 20:03 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/9188879651.shtml)
-- 2026-06-29 19:48 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/280978428193.shtml)
+- 2026-06-29 19:59 - [北京市发布雷电黄色预警](https://www.share.kurohicncr.top/Article/details/41290284.shtml)
+- 2026-06-29 20:15 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/90750.shtml)
+- 2026-06-29 19:55 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/10190.shtml)
+- 2026-06-29 20:15 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/3029919429.shtml)
+- 2026-06-29 20:15 - [主力抛售电子和通信板块](https://www.blog.minike.top/Article/details/30904074668.shtml)
+- 2026-06-29 20:04 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/37387.shtml)
+- 2026-06-29 20:11 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/04278426.shtml)
+- 2026-06-29 20:13 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/988424.shtml)
+- 2026-06-29 20:22 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/1017116268.shtml)
+- 2026-06-29 20:22 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/25682917011.shtml)
+- 2026-06-29 20:12 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/34909137182.shtml)
+- 2026-06-29 20:15 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/1994017466.shtml)
+- 2026-06-29 20:11 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/106829075.shtml)
+- 2026-06-29 20:23 - [《新闻联播》正在直播](http://www.share.kurohicncr.top/Article/details/64700115079.shtml)
+- 2026-06-29 20:17 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/3383681.shtml)

@@ -1,56 +1,60 @@
-# 中金：百济神州维持跑赢行业评级 目标价250港元
+# 监管机构着手制定规则之际 美联储理事巴尔提示稳定币风险
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-中金发布研报称，综合考虑百济神州（06160）费用控制，维持2026年收入预测不变，上调盈利预测7.1%至6.5亿美元，并维持2027年盈利预测不变。该行维持跑赢行业评级，基于DCF模型，该行维持A/H/US股目标价320元/250港币/420美元（29.6%/37.4%/34.1%上行空间）。 中金主要观点如下： 1Q26业绩超该行预期 公司公布1Q26业绩：收入15.13亿
+在官员们制定相关规则之际，美联储理事迈克尔·巴尔警告称，稳定币在反洗钱和金融稳定方面存在一些值得关注的风险。 “稳定币储备资产的质量和流动性对其长期可行性至关重要，”巴尔在为联邦党人学会（Federalist Society）准备的发言稿中表示，“同时，稳定币发行方有动机尽可能向更高风险端延伸，以实现储备资产回报的最大化。” 巴尔周二也指出了数字资产的潜在益处，例如帮助企业进行
 
 ## 正文
 
-中金发布研报称，综合考虑百济神州（06160）费用控制，维持2026年收入预测不变，上调盈利预测7.1%至6.5亿美元，并维持2027年盈利预测不变。
+在官员们制定相关规则之际，美联储理事迈克尔·巴尔警告称，稳定币在反洗钱和金融稳定方面存在一些值得关注的风险。
 
-该行维持跑赢行业评级，基于DCF模型，该行维持A/H/US股目标价320元/250港币/420美元（29.6%/37.4%/34.1%上行空间）。
+“稳定币储备资产的质量和流动性对其长期可行性至关重要，”巴尔在为联邦党人学会（Federalist Society）准备的发言稿中表示，“同时，稳定币发行方有动机尽可能向更高风险端延伸，以实现储备资产回报的最大化。
 
-中金主要观点如下： 1Q26业绩超该行预期 公司公布1Q26业绩：收入15.13亿美元，同比增长35%，其中产品收入14.87亿美元，同比增长34%，GAAP净利润2.27亿美元，同比增加2.26亿美元，销售收入符合该行预期，净利润超该行预期，主因费用控制较好。
+” 巴尔周二也指出了数字资产的潜在益处，例如帮助企业进行司库管理或汇款转账。
 
-泽布替尼拉动产品收入稳步增长 1Q26泽布替尼全球销售10.95亿美元，YoY +38%，其中美国销售7.61亿美元，YoY +35%，主要得益于泽布替尼的强劲需求增长以及净定价带来的收益，继续保持在CLL新患中的主导地位；欧洲销售1.82亿美元，YoY +57%；中国销售0.94亿美元，YoY +16%。
+与可能需要几个工作日的电汇相比，稳定币因能够实现快速结算而受到认可。
 
-1Q26替雷利珠单抗全球销售额2.06亿美元，YoY +20%。
+美联储及其他监管机构正在制定《Genius法》相关的规则，该法要求稳定币发行方进行正式注册，并持有等额美元储备。
 
-GAAP净利润达到2.27亿美元，单季度盈利首次超过2亿美元，超过该行预期。
+近期，银行和加密货币企业围绕数字资产监管出现摩擦，包括在获取银行牌照问题上的争议。
 
-公司上调26年全年收入和利润指引 公司上调全年收入由62-64亿美元至63-65亿美元；上调全年GAAP经营利润由7-8亿美元至7.5-8.5亿美元；毛利率、经营费用指引维持不变。
+“对储备资产进行严格管控，配合监管、资本和流动性要求以及其他措施，可增强稳定币的稳定性，使其成为更具可行性的支付工具，”他表示，“但这些目标能否实现，将取决于监管落实的具体细节。
 
-公司在2026年将有多个重磅催化剂 公司预计：1）索托克拉R/R MCL有望于2Q26在美国获批，并于2H26启动R/R MM的III期临床；2）基于II期临床，BTK CDAC或将于2H26递交R/R CLL适应症的潜在加速批准 ；3）CDK4用于1L乳腺癌的III期临床将于1H26启动；4）PD-1/VEGF-A/CTLA-4三抗将于6M26完成首例患者入组；；5）GPC3/4-1BB双抗将于2H26启动关键注册临床。
+”责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 19:54 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 20:08 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 20:14 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 19:48 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 19:53 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 20:04 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 20:02 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 19:48 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 19:49 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 20:03 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 20:08 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 20:18 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 20:10 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 20:16 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 20:13 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 19:56 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 20:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 20:18 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 20:12 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 20:19 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 20:10 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 20:18 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 20:22 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 20:01 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:53 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/11929.shtml)
-- 2026-06-29 20:01 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/290453627751.shtml)
-- 2026-06-29 20:04 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/428195635730.shtml)
-- 2026-06-29 19:59 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/93810.shtml)
-- 2026-06-29 19:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/4160353843.shtml)
-- 2026-06-29 19:53 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/79180.shtml)
-- 2026-06-29 20:10 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/73276.shtml)
-- 2026-06-29 19:53 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/4728609.shtml)
-- 2026-06-29 20:08 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.minike.top/Article/details/1693610.shtml)
-- 2026-06-29 19:53 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/00611.shtml)
-- 2026-06-29 20:14 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/38917544.shtml)
-- 2026-06-29 19:51 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/77457456694.shtml)
-- 2026-06-29 20:02 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/6971037012.shtml)
-- 2026-06-29 20:00 - [AG 宫斗](https://www.share.minike.top/Article/details/053949796.shtml)
-- 2026-06-29 19:50 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/5298680602.shtml)
+- 2026-06-29 20:17 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/58920632102.shtml)
+- 2026-06-29 20:10 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/008156312.shtml)
+- 2026-06-29 20:19 - [欧洲安装一台空调要花近8000元](http://www.share.minike.top/Article/details/762009749.shtml)
+- 2026-06-29 20:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/10788925653.shtml)
+- 2026-06-29 20:23 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/098560.shtml)
+- 2026-06-29 20:06 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/379166.shtml)
+- 2026-06-29 20:17 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/2779933.shtml)
+- 2026-06-29 20:09 - [存储三巨头被告了](https://www.share.minike.top/Article/details/9339679.shtml)
+- 2026-06-29 20:00 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/423082563.shtml)
+- 2026-06-29 20:00 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/707659019.shtml)
+- 2026-06-29 20:17 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/02952481718.shtml)
+- 2026-06-29 20:22 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/815786122019.shtml)
+- 2026-06-29 20:04 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/83094005127.shtml)
+- 2026-06-29 20:08 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/72829573.shtml)
+- 2026-06-29 20:20 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/54591786.shtml)

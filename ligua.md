@@ -1,60 +1,57 @@
-# IFRC与ICRC在“世界红十字与红新月日”联合呼吁保护人道工作者
+# 特朗普决定对伊朗开战：事件六大要点
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-中新网北京5月8日电 日内瓦消息：5月8日“世界红十字与红新月日”到来之际，红十字会与红新月会国际联合会(IFRC)主席福布斯、常设委员会主席巴贝与红十字国际委员会(ICRC)主席斯波利亚里茨发表联合声明，呼吁国际社会加强对人道工作者的保护。声明指出，5月8日是红十字运动创始人之一亨利·杜南的生日，也是全球数百万红十字运动志愿者和工作人员共同的节日。关怀需要帮助的陌生人，是人类
+美国启动对伊朗大规模军事行动前的两周半内，一小圈顾问聚集在白宫战情室，召开了一系列关键会议。根据为即将出版的《政权更迭：唐纳德・特朗普的帝王总统内幕》一书所做的报道，此前未披露的那段时期的细节显示，特朗普总统与以色列总理本雅明・内塔尼亚胡的结盟，以及总统核心圈中除一人外均未持续提出反对，最终将美国推向了战争轨道。 以下是该报道梳理出的六大要点。 一、内塔尼亚胡在战情室向特朗普及
 
 ## 正文
 
-中新网北京5月8日电 日内瓦消息：5月8日“世界红十字与红新月日”到来之际，红十字会与红新月会国际联合会(IFRC)主席福布斯、常设委员会主席巴贝与红十字国际委员会(ICRC)主席斯波利亚里茨发表联合声明，呼吁国际社会加强对人道工作者的保护。
+美国启动对伊朗大规模军事行动前的两周半内，一小圈顾问聚集在白宫战情室，召开了一系列关键会议。
 
-声明指出，5月8日是红十字运动创始人之一亨利·杜南的生日，也是全球数百万红十字运动志愿者和工作人员共同的节日。
+根据为即将出版的《政权更迭：唐纳德・特朗普的帝王总统内幕》一书所做的报道，此前未披露的那段时期的细节显示，特朗普总统与以色列总理本雅明・内塔尼亚胡的结盟，以及总统核心圈中除一人外均未持续提出反对，最终将美国推向了战争轨道。
 
-关怀需要帮助的陌生人，是人类最古老的本能之一，亦为所有道德与宗教传统所认可。
+以下是该报道梳理出的六大要点。
 
-红十字与红新月运动发展至今日，也是源于同样的善意本能。
+一、内塔尼亚胡在战情室向特朗普及其团队详细游说开战 2 月 11 日，内塔尼亚胡在战情室 —— 这一场所极少用于与外国领导人的面对面会谈 —— 与特朗普相对而坐，向总统及其高级助手做了长达一小时的陈述。
 
-时至今日，红十字与红新月运动汇聚191个国家红会、约1700万名志愿者与工作人员，以及近28.9万个地方分支机构。
+他主张，伊朗政权更迭的时机已成熟，美以联合行动可推翻伊斯兰共和国。
 
-声明称，志愿者与工作人员是人道工作的核心所在。
+期间，他还播放了一段视频，剪辑了若神权政府倒台后可能领导伊朗的人物，其中包括伊朗末代沙阿流亡在外的儿子礼萨・巴列维。
 
-过去一年，他们奔走于前线，在自然灾害废墟中搜救幸存者，在流离失所者营地中开设诊所，探视在押人员，帮助离散家人重建联系，为新生儿接生，组织献血活动，教孩子们游泳…… 声明指出，当前武装冲突日益增多；自然灾害愈发频繁，严重程度不断加剧；越来越多的民众被迫离开家园；在战争中维护人道的国际人道法正在遭受漠视。
+这位以色列领导人及其顾问描绘了他们口中近乎必胜的局面：伊朗导弹计划数周内被摧毁、霍尔木兹海峡保持畅通、针对美国利益的报复行动微乎其微。
 
-红十字与红新月运动正肩负着前所未有的责任。
+以色列情报机构摩萨德可协助在伊朗境内煽动起义，以完成最终目标。
 
 ## 相关推荐
 
-- 2026-06-29 20:08 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 20:17 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 19:51 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 20:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 20:07 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 19:48 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 20:10 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 20:17 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 20:17 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 20:17 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 19:56 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 20:17 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 20:04 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 20:09 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 20:23 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 20:02 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 19:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 20:17 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 20:02 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 20:09 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 20:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 20:21 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 20:02 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 19:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 20:19 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/76982.shtml)
-- 2026-06-29 20:09 - [郑钦文谈再战西尼亚科娃](http://www.blog.minike.top/Article/details/96852270.shtml)
-- 2026-06-29 20:10 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/2022471.shtml)
-- 2026-06-29 20:07 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/49235.shtml)
-- 2026-06-29 20:02 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/2485061.shtml)
-- 2026-06-29 19:49 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/837905511983.shtml)
-- 2026-06-29 19:55 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/9344773590.shtml)
-- 2026-06-29 19:49 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/7937671.shtml)
-- 2026-06-29 20:11 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/245781808828.shtml)
-- 2026-06-29 20:04 - [扫黑风暴](http://www.blog.minike.top/Article/details/25679748999.shtml)
-- 2026-06-29 19:49 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/163854232238.shtml)
-- 2026-06-29 19:53 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/384129432.shtml)
-- 2026-06-29 19:57 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/2289461731.shtml)
-- 2026-06-29 20:10 - [男子40度高温下骑行严重晒伤](https://www.share.kurohicncr.top/Article/details/44980421197.shtml)
-- 2026-06-29 19:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/12500585.shtml)
+- 2026-06-29 20:11 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/21969796013.shtml)
+- 2026-06-29 19:59 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/0995917806.shtml)
+- 2026-06-29 20:15 - [一生一世](https://www.share.minike.top/Article/details/60418109219.shtml)
+- 2026-06-29 20:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/613309345397.shtml)
+- 2026-06-29 20:18 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.minike.top/Article/details/418911743342.shtml)
+- 2026-06-29 20:07 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.kurohicncr.top/Article/details/5639453465.shtml)
+- 2026-06-29 20:18 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/36628.shtml)
+- 2026-06-29 20:07 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/6305482277.shtml)
+- 2026-06-29 20:21 - [2026全国田径冠军赛江苏队4金收官](http://www.share.minike.top/Article/details/982530.shtml)
+- 2026-06-29 19:55 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/7037281.shtml)
+- 2026-06-29 20:07 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/5116634437.shtml)
+- 2026-06-29 20:18 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/412663588096.shtml)
+- 2026-06-29 20:04 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/9863417958.shtml)
+- 2026-06-29 20:18 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/17696.shtml)
+- 2026-06-29 20:17 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/76746473.shtml)

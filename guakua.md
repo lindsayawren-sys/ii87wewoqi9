@@ -1,59 +1,56 @@
-# 长江铜周评：美伊和谈“虚火”与强基本面博弈 节后铜价稳站10万+高地周度大涨2.53%
+# 浦发银行在AI领域有哪些进展？副行长丁蔚用“基础、应用、安全”三个关键词概括
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-来源：长江有色金属网 导言：节后首周铜价强势主要源于风险偏好修复，而非宏观环境的根本转向。 一、走势图： 5月8日当周，国内现货铜价强势上扬。长江有色金属网数据显示，长江现货1#铜均价报102903.33元/吨，日均上涨426.67元/吨；环比4月30日当周均价102215元/吨上涨0.67%。广东现货1#铜均价报102863.33元/吨，日均上涨430元/吨，环比4月30日当
+3月31日金融一线消息，浦发银行今日召开2025年度业绩说明会。谈及AI领域浦发银行的进展和成效，副行长丁蔚表示，当前正在进行体系化的、整体性的推动人工智能技术对业务发展的深度赋能。 丁蔚用三个关键词概括： 第一个关键词是基础。向下扎根非常的重要，这由三个要素组成：算力、算法和知识。浦发银行已经构建通算自算一体化的双云双端的技术架构，建立了算力调度体系，完成了国产主流算力的兼容
 
 ## 正文
 
-来源：长江有色金属网 导言：节后首周铜价强势主要源于风险偏好修复，而非宏观环境的根本转向。
+3月31日金融一线消息，浦发银行今日召开2025年度业绩说明会。
 
-一、走势图： 5月8日当周，国内现货铜价强势上扬。
+谈及AI领域浦发银行的进展和成效，副行长丁蔚表示，当前正在进行体系化的、整体性的推动人工智能技术对业务发展的深度赋能。
 
-长江有色金属网数据显示，长江现货1#铜均价报102903.33元/吨，日均上涨426.67元/吨；环比4月30日当周均价102215元/吨上涨0.67%。
+丁蔚用三个关键词概括： 第一个关键词是基础。
 
-广东现货1#铜均价报102863.33元/吨，日均上涨430元/吨，环比4月30日当周均价102210元/吨上涨0.64%。
+向下扎根非常的重要，这由三个要素组成：算力、算法和知识。
 
-长江有色金属网数据显示，LME三个月期货铜前四个交易日均价报13272.33美元/吨，日均上涨124.67美元/吨；环比上周均价13067.5美元/吨上涨1.57%。
+浦发银行已经构建通算自算一体化的双云双端的技术架构，建立了算力调度体系，完成了国产主流算力的兼容适配；在模型服务矩阵下，目前浦发银行大模型的日均调用已经超过400万次，日均的token数大概在60亿左右；已经建成了10亿级规模的企业级知识库，探索形成了AI coding。
 
-CCMN数据显示，沪期货铜当前月周均价报102856.67元/吨，日均上涨1200元/吨，周线大涨2.53%；环比4月30日当周均价101832.5元/吨上涨1.01%。
+第二个关键词是应用。
 
-如上图所示，伦铜库存呈现小幅累积姿态；较上周下增加725吨至399，400吨，环比上涨0.18%。
+落实全员、全系和全链条作为我们的主线，在重点业务领域能够深耕。
 
-如上图所示，沪铜社会库存八连降，较节前（4月30日）大幅减少10，692吨至181，333吨，环比跌幅5.57%，并创下自2026年1月09日（180543吨）以来新低，对铜价构成一定支撑。
+已经建立了面向全员的知识随行的工作模式，同时也初步形成了包含跨境、运营、普惠等专属的知识助手，当前月均的问答调用量超过了50万次；到目前为止，自主创设的智能体已经超过了2000个，其中143个经过严格的认证以后已经能够工程化嵌入到业务的关键流程的使用当中。
 
 ## 相关推荐
 
-- 2026-06-29 20:00 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 19:51 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 20:04 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 19:49 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 19:57 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 20:05 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 20:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 19:57 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 20:07 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 19:52 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 20:16 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 19:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 19:56 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 20:02 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 20:06 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 20:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 20:18 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 20:06 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 20:12 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 20:05 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 20:04 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 20:07 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 19:56 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:12 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/896283061914.shtml)
-- 2026-06-29 20:01 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/97181.shtml)
-- 2026-06-29 19:53 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/5953617571.shtml)
-- 2026-06-29 20:03 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/5412207.shtml)
-- 2026-06-29 20:06 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/36996.shtml)
-- 2026-06-29 20:15 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/9577697.shtml)
-- 2026-06-29 20:10 - [小娘惹](http://www.share.kurohicncr.top/Article/details/4787178697.shtml)
-- 2026-06-29 19:57 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/598296.shtml)
-- 2026-06-29 19:54 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/3083648.shtml)
-- 2026-06-29 20:13 - [世界杯在中国观看最多的比赛](https://www.share.minike.top/Article/details/55673379.shtml)
-- 2026-06-29 20:15 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/790206858391.shtml)
-- 2026-06-29 20:14 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/2578805968.shtml)
-- 2026-06-29 20:12 - [一诺变着花样秀新驾照](https://www.share.minike.top/Article/details/0647449.shtml)
-- 2026-06-29 20:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/333307.shtml)
-- 2026-06-29 20:01 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/4932732.shtml)
+- 2026-06-29 20:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/510439825171.shtml)
+- 2026-06-29 20:22 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/4867709754.shtml)
+- 2026-06-29 20:10 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/445464991.shtml)
+- 2026-06-29 20:15 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/45750863769.shtml)
+- 2026-06-29 20:15 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/8865026239.shtml)
+- 2026-06-29 19:57 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.kurohicncr.top/Article/details/474432286052.shtml)
+- 2026-06-29 19:55 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/85723970888.shtml)
+- 2026-06-29 19:57 - [流金岁月](https://www.share.kurohicncr.top/Article/details/7569958.shtml)
+- 2026-06-29 20:06 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/108209.shtml)
+- 2026-06-29 20:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/6322032947.shtml)
+- 2026-06-29 20:18 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/923655538876.shtml)
+- 2026-06-29 20:12 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/23277146.shtml)
+- 2026-06-29 20:23 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/4366136564.shtml)
+- 2026-06-29 20:06 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/02130.shtml)
+- 2026-06-29 20:23 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/752487382.shtml)

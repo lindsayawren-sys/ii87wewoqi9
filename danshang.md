@@ -1,58 +1,61 @@
-# 2026 Swift Student Challenge学生编程挑战赛：350份年轻创意，解锁技术的人文温度
+# 一季度净利润暴涨超11倍！西部黄金：量增价涨，拟赴港上市
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-新酷产品第一时间免费试玩，还有众多优质达人分享独到生活经验，快来新浪众测，体验各领域最前沿、最有趣、最好玩的产品吧~！下载客户端还能获得专享福利哦！ 2026 Swift Student Challenge圆满收官，苹果公司开发者关系国际业务负责人谢恩伟在致辞中提到，本届赛事共有来自37个国家和地区的350名获奖者，规模与质量均创下赛事新高。从机器人教育、女性健康到海洋公益、演
+从2025年全年以及今年一季度的数据来看，西部黄金股份有限公司（下称“西部黄金”，601069.SH）成为业绩增长最快的黄金矿企之一。 4月7日晚间，西部黄金交出了2025年年度及2026年第一季度的亮眼成绩单。公司去年实现营业收入135.67亿元，同比增长93.80%；归属于上市公司股东的净利润达4.72亿元，同比增长86.09%。公司拟向全体股东每10股派发现金红利1.56
 
 ## 正文
 
-新酷产品第一时间免费试玩，还有众多优质达人分享独到生活经验，快来新浪众测，体验各领域最前沿、最有趣、最好玩的产品吧~！
+从2025年全年以及今年一季度的数据来看，西部黄金股份有限公司（下称“西部黄金”，601069.SH）成为业绩增长最快的黄金矿企之一。
 
-下载客户端还能获得专享福利哦！
+4月7日晚间，西部黄金交出了2025年年度及2026年第一季度的亮眼成绩单。
 
-2026 Swift Student Challenge圆满收官，苹果公司开发者关系国际业务负责人谢恩伟在致辞中提到，本届赛事共有来自37个国家和地区的350名获奖者，规模与质量均创下赛事新高。
+公司去年实现营业收入135.67亿元，同比增长93.80%；归属于上市公司股东的净利润达4.72亿元，同比增长86.09%。
 
-从机器人教育、女性健康到海洋公益、演讲辅助，年轻开发者用Swift写下对现实问题的温柔回应，也印证了苹果公司“人人能编程”理念的深层价值——技术不是少数人的特权，而是每个人解决问题、创造价值的通用语言。
+公司拟向全体股东每10股派发现金红利1.56元（含税），合计分配金额约1.42亿元。
 
-一场赛事：350份创意，体现技术的温度 Swift Student Challenge不只是代码竞技，更是青年创造力的集中展演。
+从生产方面来看，西部黄金去年全年生产黄金产品16.92吨（含金精矿、焙砂金属量，其中生产标准金15.49吨），完成年计划的172.76%，较上年同期9.59吨增加7.33吨。
 
-谢恩伟表示，赛事始终鼓励学生以兴趣为原点、用技术回应真实需求，今年作品覆盖公益环保、健康管理、科普教育、人文关怀等多元场景，展现出超越技术本身的社会关怀。
+生产电解金属锰8.29万吨，生产锰矿石52.80万吨。
 
-本届赛事亮点清晰： - 规模新高：37个国家和地区、350名获奖者，全球参与度持续提升； - 价值导向：作品聚焦真实痛点，用轻量化应用实现可落地的社会价值； - 机会升级：50名杰出获奖者将受邀前往苹果公司总部，在WWDC26期间参与三天专属深度体验，与苹果公司工程师、设计师面对面交流。
+其中，黄金业务贡献核心动能。
 
-赛事背后，则是苹果公司坚持多年的学生开发者支持体系：从Xcode、Swift教程、代码演示视频，到由工程师与教育设计师打造的Swift Coding Club校园资源，再到符合条件教育机构可费用减免加入Apple Developer Program，获取TestFlight、ARKit等高级能力，零基础学生也能踏上开发之路。
+西部黄金去年全年黄金产品营收达120.71亿元，同比增长119.05%，占总营收比重为89%，毛利率为8.99%，同比增加1.63个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 20:06 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 19:58 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 19:49 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 19:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 19:52 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 19:48 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 20:08 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 20:09 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 19:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 19:49 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 19:57 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 20:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 20:05 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 20:17 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 20:15 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 20:19 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 20:07 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 19:59 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 20:18 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 20:10 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 19:54 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 19:56 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 20:03 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 20:19 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 19:58 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 20:11 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 20:09 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:12 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/84357.shtml)
-- 2026-06-29 20:03 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/8698896887.shtml)
-- 2026-06-29 20:08 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/811283923.shtml)
-- 2026-06-29 20:17 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.minike.top/Article/details/63400328.shtml)
-- 2026-06-29 19:49 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/0266923.shtml)
-- 2026-06-29 20:02 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/297780336767.shtml)
-- 2026-06-29 20:09 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/8951592.shtml)
-- 2026-06-29 19:48 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/64954.shtml)
-- 2026-06-29 20:04 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/26509.shtml)
-- 2026-06-29 19:55 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/815369306.shtml)
-- 2026-06-29 19:59 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/67168864.shtml)
-- 2026-06-29 20:03 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/734812.shtml)
-- 2026-06-29 19:49 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.minike.top/Article/details/74955886.shtml)
-- 2026-06-29 20:12 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/59753628159.shtml)
-- 2026-06-29 19:49 - [斗破苍穹](https://www.blog.minike.top/Article/details/42673.shtml)
+- 2026-06-29 20:22 - [无畏为自己的猫正名了](http://www.share.minike.top/Article/details/98883871.shtml)
+- 2026-06-29 20:16 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/84697.shtml)
+- 2026-06-29 20:11 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/15904520149.shtml)
+- 2026-06-29 20:13 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/9344612.shtml)
+- 2026-06-29 20:16 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/338144219387.shtml)
+- 2026-06-29 20:16 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/19723363.shtml)
+- 2026-06-29 20:09 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/20792.shtml)
+- 2026-06-29 20:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/837897.shtml)
+- 2026-06-29 20:13 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/710050.shtml)
+- 2026-06-29 19:54 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/626145898.shtml)
+- 2026-06-29 20:12 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/066005428.shtml)
+- 2026-06-29 20:02 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.kurohicncr.top/Article/details/91133429924.shtml)
+- 2026-06-29 20:19 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/7549810370.shtml)
+- 2026-06-29 20:08 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/858280684382.shtml)
+- 2026-06-29 20:22 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/58183325144.shtml)

@@ -1,57 +1,59 @@
-# 业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费
+# 美伊间接会谈继续进行，但进展有限
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-来源：面包财经 编者按：5月15日是证监会设立的第八个 “全国投资者保护宣传日”。监管部门要求行业主动尽责，积极开展形式多样的投资者保护活动，切实维护广大投资者合法权益。 一些长期业绩差、大幅跑输业绩比较基准的公募基金产品仍然向投资者收取较高的管理费，不仅损害投资者权益，也违背了相关监管文件的要求。本系列研究，将分批透视相关产品。 研究显示，成立超过3年的主动权益基金（初始基金
+知情官员称，美国及地区调解方周二继续推动达成一项为期45天的临时停火，此举有望最终永久结束与伊朗的战争，但目前进展甚微。 官员表示，伊朗调解方仍拒绝接受临时停火，以换取开放霍尔木兹海峡或放弃该国高浓缩铀库存。 他们称，伊朗仅愿以永久停火为条件解除对这一关键航道的事实上封锁，但仍会保留控制权，并与阿曼分享通行费用。 官员透露，伊朗官员已告知调解方，即便与美国谈判取得进展，他们预计
 
 ## 正文
 
-来源：面包财经 编者按：5月15日是证监会设立的第八个 “全国投资者保护宣传日”。
+知情官员称，美国及地区调解方周二继续推动达成一项为期45天的临时停火，此举有望最终永久结束与伊朗的战争，但目前进展甚微。
 
-监管部门要求行业主动尽责，积极开展形式多样的投资者保护活动，切实维护广大投资者合法权益。
+官员表示，伊朗调解方仍拒绝接受临时停火，以换取开放霍尔木兹海峡或放弃该国高浓缩铀库存。
 
-一些长期业绩差、大幅跑输业绩比较基准的公募基金产品仍然向投资者收取较高的管理费，不仅损害投资者权益，也违背了相关监管文件的要求。
+他们称，伊朗仅愿以永久停火为条件解除对这一关键航道的事实上封锁，但仍会保留控制权，并与阿曼分享通行费用。
 
-本系列研究，将分批透视相关产品。
+官员透露，伊朗官员已告知调解方，即便与美国谈判取得进展，他们预计美国仍将继续打击伊朗境内目标，以色列也将持续空袭清除伊朗高级官员。
 
-研究显示，成立超过3年的主动权益基金（初始基金口径，包括普通股票型、偏股混合型、灵活配置型、平衡混合型基金，下同）中，东方基金、同泰基金、前海开源基金等机构旗下产品成立以来净值累计下跌超过50%，仍收取超过1%的管理费率。
+特朗普总统威胁称，如果伊朗不在周二晚8点前同意重新开放霍尔木兹海峡，他将摧毁桥梁、发电厂等伊朗关键基础设施。
 
-此外，以广发基金、长城基金为代表的一批产品，在过去三年中大幅跑输其业绩比较基准，差距甚至高达数十个百分点。
+伊朗驻巴基斯坦大使在社交平台发文称，结束战争的努力已进入“关键”阶段。
 
-这种“业绩塌方”与“费用照收”的现状，使得投资者承受了净值亏损与管理费支出的“双重损伤”。
+他写道：“为停止战争所做的积极、建设性斡旋与善意努力，正进入关键且敏感的阶段。
 
-对于长期绩差的产品，其管理费率是否应该调降？
+”责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 20:05 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 19:48 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 20:00 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 19:52 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 20:04 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 19:48 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 19:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 20:12 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 19:54 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 20:00 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 20:06 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 20:07 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 20:07 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 20:15 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 19:55 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 20:23 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 20:07 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 20:02 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 20:01 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 20:21 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 20:08 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 19:59 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 19:54 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 20:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:09 - [爱奇艺抬高国剧新标尺](http://www.blog.minike.top/Article/details/38768181.shtml)
-- 2026-06-29 20:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/871232579887.shtml)
-- 2026-06-29 19:55 - [时光音乐会](http://www.blog.minike.top/Article/details/3306816.shtml)
-- 2026-06-29 20:16 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/70528.shtml)
-- 2026-06-29 19:49 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/99867298884.shtml)
-- 2026-06-29 19:58 - [海清4次陪跑白玉兰](https://www.share.minike.top/Article/details/9174980051.shtml)
-- 2026-06-29 20:06 - [东宫女主是不是顶级恋爱脑](http://www.blog.kurohicncr.top/Article/details/549235545.shtml)
-- 2026-06-29 19:52 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/3544047.shtml)
-- 2026-06-29 19:54 - [官媒首曝六代机？大V解读](https://www.blog.kurohicncr.top/Article/details/292036.shtml)
-- 2026-06-29 19:48 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/983516727.shtml)
-- 2026-06-29 20:14 - [媒体评恋与深空用“引狼入室”台词](https://www.share.minike.top/Article/details/8985883358.shtml)
-- 2026-06-29 19:48 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/1972295348.shtml)
-- 2026-06-29 20:06 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/16823209218.shtml)
-- 2026-06-29 20:05 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/2581661.shtml)
-- 2026-06-29 20:04 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/663382.shtml)
+- 2026-06-29 20:06 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/7424766.shtml)
+- 2026-06-29 20:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/604034818.shtml)
+- 2026-06-29 20:03 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.minike.top/Article/details/66076309.shtml)
+- 2026-06-29 20:16 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/6762235.shtml)
+- 2026-06-29 20:12 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/522876617335.shtml)
+- 2026-06-29 20:06 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/57157862362.shtml)
+- 2026-06-29 20:09 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/92760389.shtml)
+- 2026-06-29 20:12 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/5148342.shtml)
+- 2026-06-29 20:13 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/987883.shtml)
+- 2026-06-29 20:14 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/890497247.shtml)
+- 2026-06-29 19:55 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/552547.shtml)
+- 2026-06-29 19:56 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/909304.shtml)
+- 2026-06-29 20:12 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/2776298631.shtml)
+- 2026-06-29 20:09 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/0094655033.shtml)
+- 2026-06-29 19:56 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/63474253.shtml)

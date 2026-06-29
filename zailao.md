@@ -1,57 +1,58 @@
-# 拖欠片酬90%、剧未拍完就上线！爱奇艺回应下架网剧
+# 四大证券报头版头条内容精华摘要_2026年4月8日_财经新闻
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-中新网北京5月8日电(记者 王诗尧)7日，演员李欣泽、杜雨宸分别在其社交账号上发布律师函，二人作为网剧《平乐赋》的男、女主角，要求爱奇艺立即停止上线该剧，防止损失扩大。 律师函声称，网剧《平乐赋》于2024年5月15日正式开机拍摄，拍摄进程近半时，因制片方北京首润影视传媒有限公司(下称“首润公司”)原因致使该剧停拍至今。且至该函出具之日，首润公司仍未向其委托人李欣泽与杜雨宸支付
+专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月8日（星期三），今日报刊头条主要内容精华如下： 中国证券报 金价见顶？央行购金大趋势难扭转 中长期上行逻辑不改 全球多数央行购金主线仍未动摇。4月7日，中国人民银行最新数据显示，截至3月末，中国黄金储备报7438万盎司，环比增加16万盎司，连续第17个月增持黄金。 矿业上市公司并购
 
 ## 正文
 
-中新网北京5月8日电(记者 王诗尧)7日，演员李欣泽、杜雨宸分别在其社交账号上发布律师函，二人作为网剧《平乐赋》的男、女主角，要求爱奇艺立即停止上线该剧，防止损失扩大。
+专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-律师函声称，网剧《平乐赋》于2024年5月15日正式开机拍摄，拍摄进程近半时，因制片方北京首润影视传媒有限公司(下称“首润公司”)原因致使该剧停拍至今。
+4月8日（星期三），今日报刊头条主要内容精华如下： 中国证券报 金价见顶？
 
-且至该函出具之日，首润公司仍未向其委托人李欣泽与杜雨宸支付演出服务费达90%。
+央行购金大趋势难扭转 中长期上行逻辑不改 全球多数央行购金主线仍未动摇。
 
-该函强调，在其委托人未获得完整服务费且该剧未完成全部录制的情况下，首润公司转让并允许爱奇艺上架含有委托人表演的内容，侵犯了其委托人多项权利。
+4月7日，中国人民银行最新数据显示，截至3月末，中国黄金储备报7438万盎司，环比增加16万盎司，连续第17个月增持黄金。
 
-爱奇艺若在明知首润公司与其委托人之间存在合同纠纷和该剧未完成的情况下仍上架该剧，将与首润公司构成共同侵权。
+矿业上市公司并购重组活跃 盛屯矿业（维权）3亿美元又“囤”一矿！
 
-律师函要求，北京爱奇艺科技有限公司在收到该函之日起3日内立即下架、删除影视剧《平乐赋》的相关内容(包括但不限于海报、宣传片、宣传文案及预约渠道等)。
+矿业龙头盛屯矿业4月7日晚间公告称，公司全资下属公司宏盛国际及Preeminence近日与阿拉伯联合酋长国阿布扎比酋长国公司NovelMining及其全资下属公司Nkoyi签署协议，Preeminence拟以3亿美元收购Nkoyi50%股权，以最终获得Nkoyi间接持有的特定铜钴矿采矿权30%权益。
 
-律师函发出后，许多网友也在评论区留言支持演员维权，表示“工作不易，必须合法！
+储能龙头 110亿元大手笔！
 
-”；也有人称，“工资没付，剧也没授权就上线，多少有点不地道。
+4月7日晚间，储能龙头亿纬锂能（维权）发布公告称，公司拟与启东市政府签订协议，投资建设50GWh储能电池生产基地，总投资约50亿元；拟与上杭县政府签订协议，投资建设60GWh储能电池生产基地，总投资约60亿元，合计投资金额达110亿元。
 
 ## 相关推荐
 
-- 2026-06-29 19:50 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 19:51 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 20:14 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 20:01 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 19:52 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 20:11 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 20:11 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 19:50 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 20:17 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 20:09 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 19:53 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 20:05 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 20:12 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 20:14 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 20:10 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 20:18 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 20:16 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 20:01 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 20:23 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 20:00 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 20:00 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 20:18 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 20:05 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:13 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/469795802.shtml)
-- 2026-06-29 20:02 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/867857841.shtml)
-- 2026-06-29 19:59 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/76123.shtml)
-- 2026-06-29 19:50 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/530533.shtml)
-- 2026-06-29 20:11 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/48193904868.shtml)
-- 2026-06-29 19:52 - [《新闻联播》正在直播](http://www.share.kurohicncr.top/Article/details/0548252.shtml)
-- 2026-06-29 20:13 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/31544802.shtml)
-- 2026-06-29 19:58 - [流金岁月](https://www.blog.minike.top/Article/details/94765.shtml)
-- 2026-06-29 20:13 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/4046630876.shtml)
-- 2026-06-29 19:49 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.kurohicncr.top/Article/details/33275678374.shtml)
-- 2026-06-29 20:06 - [林逸向方筱然求婚了](http://www.share.kurohicncr.top/Article/details/817077219720.shtml)
-- 2026-06-29 20:10 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/00623288.shtml)
-- 2026-06-29 19:55 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/71906.shtml)
-- 2026-06-29 20:07 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/665137436656.shtml)
-- 2026-06-29 19:48 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/987982529.shtml)
+- 2026-06-29 20:00 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/565847248719.shtml)
+- 2026-06-29 20:17 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/1571416.shtml)
+- 2026-06-29 20:10 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.kurohicncr.top/Article/details/44195974056.shtml)
+- 2026-06-29 20:12 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/150797.shtml)
+- 2026-06-29 20:21 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/0732491.shtml)
+- 2026-06-29 20:15 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/006782031.shtml)
+- 2026-06-29 20:20 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/932926.shtml)
+- 2026-06-29 20:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/763768775.shtml)
+- 2026-06-29 20:23 - [一生一世](http://www.share.kurohicncr.top/Article/details/8627578475.shtml)
+- 2026-06-29 20:02 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/405674139566.shtml)
+- 2026-06-29 20:14 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/924122.shtml)
+- 2026-06-29 20:00 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/6941919.shtml)
+- 2026-06-29 20:06 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/283033548079.shtml)
+- 2026-06-29 20:20 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/1240385307.shtml)
+- 2026-06-29 20:07 - [中方向委方追加1亿元援助](http://www.share.kurohicncr.top/Article/details/348846105.shtml)

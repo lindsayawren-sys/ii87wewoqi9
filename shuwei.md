@@ -1,56 +1,55 @@
-# 中新网评：享界S9零重力座椅事件，给车企和用户都提了个醒
+# 里昂：降阿里健康目标价至5.3港元 评级“跑赢大市”
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-中新网北京5月8日电(记者 查志远 实习生 贾圣仪 ) 近日，一段展厅视频，让鸿蒙智行和享界S9站上了舆论的风口浪尖。 视频中，一名男子通过语音开启零重力模式，副驾座椅开始折叠下压，而一名儿童正坐在上面。男子连喊数声“小艺，停止”，语音助手反复回应“当前状态不支持暂停”，最终家长手动将孩子移开。虽然最终有惊无险，但这段几乎夹到孩子的画面，还是让人后背发凉。 5月5日，鸿蒙智行回
+里昂发布研报称，根据阿里健康（00241）在2026财年下半年业绩展望会议表示维持稳健的收入预期，惟下调对创新药物和人工智能投资的盈利预期。由于早前在个人处方药领域的投入低于同行，公司正加大投资追赶，这可能影响其今年的毛利增长轨迹。其人工智能投资与其母公司更广泛的人工智能策略相符一致。该行指，将阿里健康2026年至2028年调整后净利润预测下调8%至11%，其目标价由6港元下调
 
 ## 正文
 
-中新网北京5月8日电(记者 查志远 实习生 贾圣仪 ) 近日，一段展厅视频，让鸿蒙智行和享界S9站上了舆论的风口浪尖。
+里昂发布研报称，根据阿里健康（00241）在2026财年下半年业绩展望会议表示维持稳健的收入预期，惟下调对创新药物和人工智能投资的盈利预期。
 
-视频中，一名男子通过语音开启零重力模式，副驾座椅开始折叠下压，而一名儿童正坐在上面。
+由于早前在个人处方药领域的投入低于同行，公司正加大投资追赶，这可能影响其今年的毛利增长轨迹。
 
-男子连喊数声“小艺，停止”，语音助手反复回应“当前状态不支持暂停”，最终家长手动将孩子移开。
+其人工智能投资与其母公司更广泛的人工智能策略相符一致。
 
-虽然最终有惊无险，但这段几乎夹到孩子的画面，还是让人后背发凉。
+该行指，将阿里健康2026年至2028年调整后净利润预测下调8%至11%，其目标价由6港元下调至5.3港元，维持其评级为“跑赢大市”。
 
-5月5日，鸿蒙智行回应称，经技术核验，视频场景未达到防夹功能触发阈值，并非功能失效，并披露了多重安全防护机制。
-
-“针对大家反馈的宝贵建议，我们已纳入产品专项优化计划。
-
-” 从技术层面看，鸿蒙智行的解释有合理的地方。
-
-零重力座椅的防夹功能依赖于压力传感器对受力变化的实时识别，当外力达到预设阈值时才触发停止和回弹。
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-29 20:08 - [滚石点名酒店员工说有急救培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 20:00 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 20:04 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 20:13 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 19:59 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 20:01 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 20:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 20:05 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 19:56 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 19:50 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 20:04 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 19:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 20:10 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 20:21 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 20:04 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 20:05 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 20:10 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 20:22 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 20:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 20:11 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 20:21 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 20:02 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 20:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 20:02 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 19:54 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:08 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/847689695.shtml)
-- 2026-06-29 19:57 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/10467046.shtml)
-- 2026-06-29 20:03 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/7066145.shtml)
-- 2026-06-29 19:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/32392430809.shtml)
-- 2026-06-29 20:12 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/249530.shtml)
-- 2026-06-29 20:11 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/18330305.shtml)
-- 2026-06-29 20:17 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/411766.shtml)
-- 2026-06-29 20:02 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/7333547955.shtml)
-- 2026-06-29 19:58 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/159405.shtml)
-- 2026-06-29 19:56 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/95379600.shtml)
-- 2026-06-29 19:48 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/824502352229.shtml)
-- 2026-06-29 19:58 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/408933696791.shtml)
-- 2026-06-29 20:14 - [AG 宫斗](http://www.blog.minike.top/Article/details/048160109.shtml)
-- 2026-06-29 20:03 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/89754319.shtml)
-- 2026-06-29 20:15 - [张杰我九岁就跟你了](http://www.blog.kurohicncr.top/Article/details/975014.shtml)
+- 2026-06-29 19:56 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/5292933472.shtml)
+- 2026-06-29 20:22 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/47783.shtml)
+- 2026-06-29 20:07 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/98389313801.shtml)
+- 2026-06-29 19:55 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/88424.shtml)
+- 2026-06-29 20:22 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/7291390.shtml)
+- 2026-06-29 20:07 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/882654.shtml)
+- 2026-06-29 20:23 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/47301240.shtml)
+- 2026-06-29 19:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/943287093275.shtml)
+- 2026-06-29 20:00 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/36661889.shtml)
+- 2026-06-29 19:56 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/73770572.shtml)
+- 2026-06-29 20:20 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/480742908.shtml)
+- 2026-06-29 20:15 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/43362353.shtml)
+- 2026-06-29 19:59 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/0510408698.shtml)
+- 2026-06-29 20:23 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/28556.shtml)
+- 2026-06-29 20:20 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/35835.shtml)

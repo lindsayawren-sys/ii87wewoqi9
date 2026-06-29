@@ -1,44 +1,51 @@
-# 伊朗指定两条航道供船只通行霍尔木兹海峡
+# 韩元跌幅扩大 表现逊于其他亚币
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-新华社德黑兰5月7日电 据伊朗媒体7日报道，伊朗伊斯兰革命卫队海军已指定两条航道供船只通行，船只未经伊朗许可仍不得穿越霍尔木兹海峡。
+韩元走低，因资金流出韩股令韩元承压。美元/韩元涨逾0.9%至1533.85，为2009年3月以来最高。3月除三个交易日外，韩国Kopsi指数均获外国投资者抛售。责任编辑：王永生
 
 ## 正文
 
-新华社德黑兰5月7日电 据伊朗媒体7日报道，伊朗伊斯兰革命卫队海军已指定两条航道供船只通行，船只未经伊朗许可仍不得穿越霍尔木兹海峡。
+韩元走低，因资金流出韩股令韩元承压。
+
+美元/韩元涨逾0.9%至1533.85，为2009年3月以来最高。
+
+3月除三个交易日外，韩国Kopsi指数均获外国投资者抛售。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 19:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 20:03 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 20:11 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 20:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 20:01 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 20:13 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 20:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 19:48 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 20:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 19:53 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 19:56 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 20:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 20:10 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 20:12 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 20:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 20:06 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 20:08 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 19:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 19:59 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 20:01 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 20:18 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 19:58 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 20:01 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 20:13 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 20:11 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:00 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/3988927044.shtml)
-- 2026-06-29 19:49 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/865061755550.shtml)
-- 2026-06-29 20:16 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/9265679.shtml)
-- 2026-06-29 20:14 - [杨紫有3部作品入围金鹰奖](http://www.blog.kurohicncr.top/Article/details/0172152587.shtml)
-- 2026-06-29 19:58 - [时光音乐会](https://www.share.minike.top/Article/details/8876223864.shtml)
-- 2026-06-29 20:04 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/668509.shtml)
-- 2026-06-29 20:04 - [小娘惹](https://www.share.kurohicncr.top/Article/details/6564749504.shtml)
-- 2026-06-29 20:01 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/32446128263.shtml)
-- 2026-06-29 19:52 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.minike.top/Article/details/88816.shtml)
-- 2026-06-29 20:08 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/34621869.shtml)
-- 2026-06-29 19:50 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/47528.shtml)
-- 2026-06-29 19:54 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/82502.shtml)
-- 2026-06-29 20:07 - [极限挑战第一季](https://www.blog.minike.top/Article/details/24985.shtml)
-- 2026-06-29 20:02 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/95536.shtml)
-- 2026-06-29 20:16 - [大马同意延长马航370残骸搜寻工作](https://www.share.minike.top/Article/details/62045698.shtml)
+- 2026-06-29 20:08 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/7353432278.shtml)
+- 2026-06-29 20:00 - [《新闻联播》正在直播](https://www.blog.kurohicncr.top/Article/details/648136631.shtml)
+- 2026-06-29 20:02 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/903792628.shtml)
+- 2026-06-29 20:12 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/9024798074.shtml)
+- 2026-06-29 20:02 - [官方通报一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/9658865329.shtml)
+- 2026-06-29 20:14 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/486949.shtml)
+- 2026-06-29 20:17 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/170715.shtml)
+- 2026-06-29 20:12 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/66127.shtml)
+- 2026-06-29 20:08 - [LPL第三赛段赛制公布](https://www.blog.kurohicncr.top/Article/details/52032.shtml)
+- 2026-06-29 20:15 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/72571060.shtml)
+- 2026-06-29 20:18 - [郑钦文谈再战西尼亚科娃](https://www.share.minike.top/Article/details/124395223436.shtml)
+- 2026-06-29 20:00 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/123094017.shtml)
+- 2026-06-29 20:15 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/714565712.shtml)
+- 2026-06-29 19:56 - [速度与激情9](http://www.blog.minike.top/Article/details/91808424505.shtml)
+- 2026-06-29 20:07 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/706258324.shtml)

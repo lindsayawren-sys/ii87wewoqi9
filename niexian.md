@@ -1,61 +1,57 @@
-# 宁夏探索夜间公共服务新模式：青年有去处 就业有出路
+# 2026年一季度创新药BD交易突破600亿美元！恒生创新药ETF华泰柏瑞（520500）成交额显著放量
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-中新网银川5月7日电 题：宁夏探索夜间公共服务新模式：青年有去处 就业有出路 中新网记者 于晶 当白日的忙碌落幕，宁夏的夜晚正变得愈发生动。从乡村文化馆传出的琴声，到城市商圈涌动的人流，一场以青年为核心、以服务为纽带的夜间公共服务创新，正在这片土地上悄然铺开，让“八小时之外”的时光兼具生活的温度与成长的希望。 “下班不再只刷手机，每周都有了新的期待。”海原县“青年夜校”里，电子
+在A股市场震荡分化、科技与成长板块持续调整的背景下，具备政策红利与业绩拐点的创新药板块吸引力显著提升，创新药概念逆势崛起，成为当前市场瞩目的核心主线之一。今日（26/3/31）早盘，创新药板块延续回暖态势，相关ETF交投火热。 Wind数据显示，当前全市场仅有的跟踪恒生创新药指数的ETF产品——恒生创新药ETF华泰柏瑞（520500）成交额近期显著放量。截至最新（26/3/30
 
 ## 正文
 
-中新网银川5月7日电 题：宁夏探索夜间公共服务新模式：青年有去处 就业有出路 中新网记者 于晶 当白日的忙碌落幕，宁夏的夜晚正变得愈发生动。
+在A股市场震荡分化、科技与成长板块持续调整的背景下，具备政策红利与业绩拐点的创新药板块吸引力显著提升，创新药概念逆势崛起，成为当前市场瞩目的核心主线之一。
 
-从乡村文化馆传出的琴声，到城市商圈涌动的人流，一场以青年为核心、以服务为纽带的夜间公共服务创新，正在这片土地上悄然铺开，让“八小时之外”的时光兼具生活的温度与成长的希望。
+今日（26/3/31）早盘，创新药板块延续回暖态势，相关ETF交投火热。
 
-“下班不再只刷手机，每周都有了新的期待。
+Wind数据显示，当前全市场仅有的跟踪恒生创新药指数的ETF产品——恒生创新药ETF华泰柏瑞（520500）成交额近期显著放量。
 
-”海原县“青年夜校”里，电子琴、吉他、摄影等课堂座无虚席。
+截至最新（26/3/30），该ETF近2个交易日成交额分别达到14亿元与17亿元，而2026年以来日均成交额为5.6亿元，放量趋势明显。
 
-曾经闲置的夜间场馆，如今变身青年充电的“精神驿站”。
+今年2月底以来累计资金净流入1.46亿元，最新规模攀升至21.56亿元，创下历史新高。
 
-2025年海原县率先创办青年夜校，首期400个名额“秒空”；2026年二期课程扩容，全程免费开放，让年轻人从“宅家躺平”转向“奔赴热爱”。
+对外授权（BD）交易的爆发式增长成为本轮行情的直接催化剂。
 
-如果说青年夜校滋养精神世界，那么银川市探索升级的“技能夜校”，则正致力于让劳动者“好就业”更要“就好业”。
+2026年3月28日，据国家药监局发布信息显示，2026年一季度我国创新药BD交易总额已突破600亿美元，接近2025年全年总额的一半；交易数量达53件，首付款超33亿美元，规模与增速均创历史同期新高。
 
-针对企业职工和灵活就业人群“工学矛盾”突出的痛点，银川在宁夏率先打造“夜间技能充电站”，推出健康照护、无人机驾驶、人工智能训练等20多个市场急需工种的“点单式”培训。
+政策红利持续释放。
 
 ## 相关推荐
 
-- 2026-06-29 19:58 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 20:00 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 19:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 19:51 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 20:11 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 20:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 20:02 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 19:50 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 19:53 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 20:07 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 19:48 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 19:53 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 19:52 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 20:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 20:04 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 20:22 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 20:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 20:12 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 20:00 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 20:00 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 20:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 20:16 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 20:12 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 20:01 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 20:06 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 20:13 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:55 - [极限挑战第一季](http://www.blog.minike.top/Article/details/335794.shtml)
-- 2026-06-29 20:06 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/830516672.shtml)
-- 2026-06-29 20:01 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/8656933.shtml)
-- 2026-06-29 19:53 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/39083.shtml)
-- 2026-06-29 20:13 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/961749991.shtml)
-- 2026-06-29 20:16 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/183677705963.shtml)
-- 2026-06-29 19:56 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/505637.shtml)
-- 2026-06-29 19:58 - [女心理师](https://www.share.minike.top/Article/details/052643674597.shtml)
-- 2026-06-29 20:12 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/668953949838.shtml)
-- 2026-06-29 19:59 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/56705193.shtml)
-- 2026-06-29 19:55 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/39709.shtml)
-- 2026-06-29 19:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/7211936303.shtml)
-- 2026-06-29 20:17 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/990482776490.shtml)
-- 2026-06-29 20:11 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/797755.shtml)
-- 2026-06-29 20:02 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/0487630.shtml)
+- 2026-06-29 20:04 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/990251.shtml)
+- 2026-06-29 19:59 - [一见倾心](https://www.share.minike.top/Article/details/37293751613.shtml)
+- 2026-06-29 20:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/36405869.shtml)
+- 2026-06-29 20:09 - [无畏为自己的猫正名了](http://www.share.minike.top/Article/details/4172275.shtml)
+- 2026-06-29 19:57 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/170801.shtml)
+- 2026-06-29 20:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/19328343966.shtml)
+- 2026-06-29 20:10 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/9200761935.shtml)
+- 2026-06-29 20:14 - [王楚钦称抽签结果出来心情不好](https://www.share.kurohicncr.top/Article/details/43790335.shtml)
+- 2026-06-29 20:05 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/19985691.shtml)
+- 2026-06-29 20:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/5781457.shtml)
+- 2026-06-29 20:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/935346.shtml)
+- 2026-06-29 19:57 - [大马同意延长马航370残骸搜寻工作](http://www.share.kurohicncr.top/Article/details/39802909.shtml)
+- 2026-06-29 20:02 - [委内瑞拉发生余震](https://www.blog.minike.top/Article/details/9423046870.shtml)
+- 2026-06-29 20:07 - [林逸向方筱然求婚了](http://www.share.kurohicncr.top/Article/details/62136411634.shtml)
+- 2026-06-29 19:54 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/19232555135.shtml)

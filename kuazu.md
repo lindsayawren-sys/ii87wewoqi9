@@ -1,58 +1,51 @@
-# 保罗・都铎・琼斯称美国在AI监管上行动迟缓：“我们早该这么做了”
+# 埃斯顿：稳定价格行动、稳定价格期结束及超额配股权失效
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-核心要点 亿万富豪、对冲基金经理保罗・都铎・琼斯周四发出警示，称美国在人工智能监管领域起步太晚。 他周四在 CNBC《财经论坛》节目中表示：“我们明天就得行动，现在已经迟了，我们早该这么做了。” 琼斯认为，各国政府需为人工智能内容添加水印，以区分真实内容与深度伪造内容。在提出上述担忧的同时，他向 CNBC 透露，近期已增持人工智能相关股票。 随着技术日趋成熟，专业人士对人工智能
+埃斯顿（02715）发布公告，根据香港法例第571W章《证券及期货（稳定价格）规则》第9（2）条，本公司宣布，有关全球发售的稳定价格期已于2026年4月3日（星期五）（即递交香港公开发售申请截止日期后第30日）结束。保荐人兼整体协调人（代表其本身及国际包销商）于稳定价格期内并无行使超额配股权，而超额配股权已于2026年4月3日（星期五）失效。因此，本公司未曾亦不会根据超额配股权
 
 ## 正文
 
-核心要点 亿万富豪、对冲基金经理保罗・都铎・琼斯周四发出警示，称美国在人工智能监管领域起步太晚。
+埃斯顿（02715）发布公告，根据香港法例第571W章《证券及期货（稳定价格）规则》第9（2）条，本公司宣布，有关全球发售的稳定价格期已于2026年4月3日（星期五）（即递交香港公开发售申请截止日期后第30日）结束。
 
-他周四在 CNBC《财经论坛》节目中表示：“我们明天就得行动，现在已经迟了，我们早该这么做了。
+保荐人兼整体协调人（代表其本身及国际包销商）于稳定价格期内并无行使超额配股权，而超额配股权已于2026年4月3日（星期五）失效。
 
-” 琼斯认为，各国政府需为人工智能内容添加水印，以区分真实内容与深度伪造内容。
+因此，本公司未曾亦不会根据超额配股权发行任何H股。
 
-在提出上述担忧的同时，他向 CNBC 透露，近期已增持人工智能相关股票。
-
-随着技术日趋成熟，专业人士对人工智能潜在风险的担忧日益加剧。
-
-琼斯称，近期一场汇聚人工智能专家与模型开发者的会议上，80% 与会者支持人工智能监管，而去年这一比例仅约 20%。
-
-他补充道，其中一家企业的负责人表示，对该行业尚未受到监管感到意外。
-
-长期以来，议员与专家一直呼吁出台监管措施，以降低这项新兴技术在安全、隐私及国家安全层面的潜在风险。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:11 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 20:05 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 20:09 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 19:56 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 19:56 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 20:04 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 20:15 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 19:56 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 19:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 19:57 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 20:01 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 20:06 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 20:14 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 20:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 20:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 20:03 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 20:05 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 20:03 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 20:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 20:01 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 20:01 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 20:22 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 20:19 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 20:04 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 20:19 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:15 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/62686855785.shtml)
-- 2026-06-29 20:14 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/44340.shtml)
-- 2026-06-29 20:04 - [福建海警位金门附近海域常态执法巡查](http://www.blog.minike.top/Article/details/2326755.shtml)
-- 2026-06-29 19:49 - [新官上任三把火](https://www.blog.minike.top/Article/details/129382.shtml)
-- 2026-06-29 20:15 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/057982467433.shtml)
-- 2026-06-29 20:07 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/29592.shtml)
-- 2026-06-29 20:14 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/20861934.shtml)
-- 2026-06-29 20:13 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/075183.shtml)
-- 2026-06-29 20:01 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/588995503758.shtml)
-- 2026-06-29 20:03 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/395372311.shtml)
-- 2026-06-29 20:13 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/294943.shtml)
-- 2026-06-29 20:15 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/74208856.shtml)
-- 2026-06-29 19:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/7590746991.shtml)
-- 2026-06-29 20:15 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/280438572.shtml)
-- 2026-06-29 20:05 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/919277203.shtml)
+- 2026-06-29 20:05 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/56945794.shtml)
+- 2026-06-29 20:22 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/62051405.shtml)
+- 2026-06-29 19:56 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/0970701.shtml)
+- 2026-06-29 20:10 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/57942034434.shtml)
+- 2026-06-29 20:06 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/9425855.shtml)
+- 2026-06-29 20:20 - [逆天祖国人](http://www.share.minike.top/Article/details/37041656.shtml)
+- 2026-06-29 20:23 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/269821845.shtml)
+- 2026-06-29 20:23 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/545924231.shtml)
+- 2026-06-29 20:21 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.minike.top/Article/details/7212143115.shtml)
+- 2026-06-29 20:18 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/78586500.shtml)
+- 2026-06-29 20:09 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/711109033954.shtml)
+- 2026-06-29 20:12 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/34720968060.shtml)
+- 2026-06-29 20:02 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/030989.shtml)
+- 2026-06-29 20:19 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/3610181389.shtml)
+- 2026-06-29 19:57 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/29536.shtml)

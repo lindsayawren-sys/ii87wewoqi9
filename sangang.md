@@ -1,42 +1,45 @@
-# 高校毕业生创新高 上海打出组合拳护航就业
+# 西藏自治区党委社会工作部部长仲崇东接受审查调查
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月07日 16:08 来源：看看新闻Knews 责任编辑：【杨彦宇】
+中新网4月7日电 据西藏自治区纪委监委消息：西藏自治区党委社会工作部部长仲崇东涉嫌严重违纪违法，目前正接受西藏自治区纪委监委纪律审查和监察调查。
 
 ## 正文
 
-发布时间：2026年05月07日 16:08 来源：看看新闻Knews 责任编辑：【杨彦宇】
+中新网4月7日电 据西藏自治区纪委监委消息：西藏自治区党委社会工作部部长仲崇东涉嫌严重违纪违法，目前正接受西藏自治区纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 20:17 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 20:09 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 20:16 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 19:56 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 20:11 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 20:00 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 20:03 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 20:08 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 19:53 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 19:54 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 20:01 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 19:56 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 20:20 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 20:01 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 20:04 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 20:22 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 20:18 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 20:02 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 20:19 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 19:59 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 20:00 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 20:12 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 20:23 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/5623976.shtml)
-- 2026-06-29 20:07 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/605127.shtml)
-- 2026-06-29 19:58 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.minike.top/Article/details/854475.shtml)
-- 2026-06-29 20:14 - [宜宾地震已转移安置225人](https://www.share.minike.top/Article/details/42068586.shtml)
-- 2026-06-29 20:09 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/188812292.shtml)
-- 2026-06-29 19:50 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/37863358916.shtml)
-- 2026-06-29 20:13 - [高质量发展看新疆](https://www.share.minike.top/Article/details/791298.shtml)
-- 2026-06-29 20:15 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/3821405414.shtml)
-- 2026-06-29 20:11 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/3582373530.shtml)
-- 2026-06-29 19:59 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/4423839887.shtml)
-- 2026-06-29 20:16 - [北京发布地质灾害气象风险蓝色预警](https://www.share.kurohicncr.top/Article/details/28985.shtml)
-- 2026-06-29 20:07 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/51002.shtml)
-- 2026-06-29 19:59 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/53698996.shtml)
-- 2026-06-29 19:59 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/69901255001.shtml)
-- 2026-06-29 20:01 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/143971418804.shtml)
+- 2026-06-29 19:59 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/35302.shtml)
+- 2026-06-29 20:03 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/513567224559.shtml)
+- 2026-06-29 20:19 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/080507.shtml)
+- 2026-06-29 20:14 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.minike.top/Article/details/033128456898.shtml)
+- 2026-06-29 20:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/7761477.shtml)
+- 2026-06-29 20:17 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.kurohicncr.top/Article/details/8411179.shtml)
+- 2026-06-29 20:11 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/9310626436.shtml)
+- 2026-06-29 20:19 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/708349751.shtml)
+- 2026-06-29 19:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/4966683029.shtml)
+- 2026-06-29 20:17 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/4252165122.shtml)
+- 2026-06-29 20:03 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/333598.shtml)
+- 2026-06-29 20:02 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/13161.shtml)
+- 2026-06-29 20:21 - [新官上任三把火](http://www.blog.minike.top/Article/details/18308593019.shtml)
+- 2026-06-29 19:54 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/41052329487.shtml)
+- 2026-06-29 20:22 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/880079269414.shtml)

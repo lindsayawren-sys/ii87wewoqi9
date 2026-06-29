@@ -1,56 +1,56 @@
-# 贸易摩擦导致美国对加拿大烈酒销量下降63%
+# 美联储理事杰弗逊：劳动力市场可能正在企稳
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-美国主要烈酒游说团体的负责人向国会表示，美加贸易紧张局势让其成员付出了高昂代价。美国蒸馏酒委员会首席执行官Chris Swonger表示，总体而言，需求疲软叠加贸易摩擦导致2025年销量下降，这是几十年来首次出现同比下降。 他补充说，出口下降了近4%，其中对加拿大的销量下降了63%。Swonger提到了加拿大各省为反击特朗普政府关税而采取的报复性措施——即禁止在政府运营的酒类商
+美联储理事杰弗逊表示，在过去一年的大部分时间里逐步降温后，劳动力市场可能正显示出企稳迹象。 杰弗逊周二晚间在底特律一所大学发表讲话时指出，就业数据的转变表明，就业市场可能不再像2025年那样持续走弱。他指出，近几个月职位空缺数量没有下降，职位空缺与失业工人的比例也更趋稳定。 根据其公布的讲话稿，杰弗逊说：“当该比例趋于平缓时，这表明劳动力供需可能正在趋于平衡。”他还说：“这一变
 
 ## 正文
 
-美国主要烈酒游说团体的负责人向国会表示，美加贸易紧张局势让其成员付出了高昂代价。
+美联储理事杰弗逊表示，在过去一年的大部分时间里逐步降温后，劳动力市场可能正显示出企稳迹象。
 
-美国蒸馏酒委员会首席执行官Chris Swonger表示，总体而言，需求疲软叠加贸易摩擦导致2025年销量下降，这是几十年来首次出现同比下降。
+杰弗逊周二晚间在底特律一所大学发表讲话时指出，就业数据的转变表明，就业市场可能不再像2025年那样持续走弱。
 
-他补充说，出口下降了近4%，其中对加拿大的销量下降了63%。
+他指出，近几个月职位空缺数量没有下降，职位空缺与失业工人的比例也更趋稳定。
 
-Swonger提到了加拿大各省为反击特朗普政府关税而采取的报复性措施——即禁止在政府运营的酒类商店销售美国葡萄酒和烈酒。
+根据其公布的讲话稿，杰弗逊说：“当该比例趋于平缓时，这表明劳动力供需可能正在趋于平衡。
 
-以美国贸易代表办公室贾米森·格里尔为首的美国官员警告称，除非取消酒类禁令，否则将实施新的贸易限制。
+”他还说：“这一变化可能意味著我们正在迈向一个更稳定的就业市场。
 
-与此同时，加拿大反驳称，在各省重新考虑对美国酒类的禁令之前，美国必须向加拿大提供关税减免。
+” 劳动力市场仍有可能进一步走弱。
 
-责任编辑：李桐
+杰弗逊表示，美联储必须平衡这一风险与伊朗战争可能导致的更高通胀。
+
+考虑到这种平衡，杰弗逊说：“我相信，我们目前的政策立场能够很好地应对各种可能出现的结果。
 
 ## 相关推荐
 
-- 2026-06-29 20:01 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 20:01 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 20:14 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 20:00 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 20:07 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 19:55 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 20:02 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 20:05 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 19:51 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 20:04 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 20:10 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 19:58 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 20:19 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 19:55 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 19:59 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 20:16 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 20:00 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 20:00 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 19:59 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 20:13 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 19:56 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 20:15 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/992183.shtml)
-- 2026-06-29 20:11 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/469663.shtml)
-- 2026-06-29 19:55 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/072605624.shtml)
-- 2026-06-29 20:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/47019176.shtml)
-- 2026-06-29 20:16 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/57945496436.shtml)
-- 2026-06-29 19:59 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/01438556171.shtml)
-- 2026-06-29 20:06 - [美人鱼](http://www.share.minike.top/Article/details/096207337039.shtml)
-- 2026-06-29 20:02 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/968272.shtml)
-- 2026-06-29 20:04 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.minike.top/Article/details/236163.shtml)
-- 2026-06-29 20:11 - [济南航空航天全面起势](https://www.share.minike.top/Article/details/383971010541.shtml)
-- 2026-06-29 19:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/8937041.shtml)
-- 2026-06-29 20:12 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/2162442.shtml)
-- 2026-06-29 20:01 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/280209.shtml)
-- 2026-06-29 20:15 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/65665849.shtml)
-- 2026-06-29 20:07 - [金刚川](https://www.blog.kurohicncr.top/Article/details/10293480018.shtml)
+- 2026-06-29 20:09 - [王楚钦称抽签结果出来心情不好](https://www.share.minike.top/Article/details/8327399.shtml)
+- 2026-06-29 20:17 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/49076451.shtml)
+- 2026-06-29 20:00 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/2120086252.shtml)
+- 2026-06-29 20:18 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/67211833.shtml)
+- 2026-06-29 20:02 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/92011863058.shtml)
+- 2026-06-29 20:15 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/54688384.shtml)
+- 2026-06-29 20:22 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/339339067428.shtml)
+- 2026-06-29 20:16 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/921288571.shtml)
+- 2026-06-29 19:55 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/436420.shtml)
+- 2026-06-29 20:01 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/4933258.shtml)
+- 2026-06-29 19:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/829321.shtml)
+- 2026-06-29 19:59 - [记者暗访养老机构消防安全](https://www.share.kurohicncr.top/Article/details/7301541856.shtml)
+- 2026-06-29 20:01 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/906056.shtml)
+- 2026-06-29 20:15 - [起风了](https://www.share.minike.top/Article/details/87763156394.shtml)
+- 2026-06-29 20:14 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/462412705400.shtml)

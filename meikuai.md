@@ -1,56 +1,58 @@
-# 金门：今年已有近六万陆客赴金，99%为个人游
+# 【券商聚焦】东方证券维持康耐特光学(02276)“买入”评级 指XR镜片布局成新增长动力
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-中新社台北5月7日电 据金门县观光处最新统计，今年“五一”假期，持旅游签注入境金门的大陆旅客达6579人次；今年已累计有近六万名陆客赴金，其中99%为个人游旅客。 随着大陆方面陆续恢复福建、上海居民赴金门、马祖旅游，金、马两地旅游业持续回温。据中时新闻网、联合新闻网等台媒报道，5月1日至2日，金门酒店住房率突破六成。整体住房表现较去年同期增长约10%，显示当地旅游热度明显提升。
+金吾财讯 | 东方证券发布研报指，康耐特光学(02276)2025年归母净利润延续高速增长，且其在XR（扩展现实）镜片领域的布局有望成为新的增长动力。公司2025年实现营收21.86亿元，同比增长6.1%；归母净利润达5.58亿元，同比大幅增长30.2%。盈利能力显著提升，全年毛利率同比提升3.4个百分点至42%，净利率同比提升4.7个百分点至25.5%，主要得益于产品组合升级
 
 ## 正文
 
-中新社台北5月7日电 据金门县观光处最新统计，今年“五一”假期，持旅游签注入境金门的大陆旅客达6579人次；今年已累计有近六万名陆客赴金，其中99%为个人游旅客。
+金吾财讯 | 东方证券发布研报指，康耐特光学(02276)2025年归母净利润延续高速增长，且其在XR（扩展现实）镜片领域的布局有望成为新的增长动力。
 
-随着大陆方面陆续恢复福建、上海居民赴金门、马祖旅游，金、马两地旅游业持续回温。
+公司2025年实现营收21.86亿元，同比增长6.1%；归母净利润达5.58亿元，同比大幅增长30.2%。
 
-据中时新闻网、联合新闻网等台媒报道，5月1日至2日，金门酒店住房率突破六成。
+盈利能力显著提升，全年毛利率同比提升3.4个百分点至42%，净利率同比提升4.7个百分点至25.5%，主要得益于产品组合升级、高毛利率业务占比提升、自动化程度提高及规模经济效应。
 
-整体住房表现较去年同期增长约10%，显示当地旅游热度明显提升。
+业务结构方面，公司持续优化。
 
-金门县在假期中策划推出了“浯岛城隍文化观光季”“水獭阿特快闪计划：岛屿探险之旅”等活动，吸引游客体验。
+自有品牌业务收入占比达65.1%，同比增长11.6%，其毛利率为44.7%。
 
-县长陈福海表示，观光是金门的经济支柱，如今陆客更愿意深入街坊里巷，品尝地道小吃、体验民俗文化，沉浸式的旅游方式明显带动了当地商家收益增长。
+产品平均售价（ASP）同比提升2.06%至11.82元，显示产品结构升级。
 
-另一数据显示，截至5月5日，厦金、泉金“小三通”客运航线今年以来出入境旅客量突破72万人次，同比增长约25%。
+研报表示，公司在XR镜片领域的布局与优势。
 
-金门县观光处处长许绩鑫指出，“五一”期间船只载客率超过九成。
+康耐特光学已与累计约20家国内外领先的智能眼镜开发商展开业务合作，部分国内客户的重点项目已进入量产阶段，预计2026年将形成显著的营收及净利润贡献。
 
 ## 相关推荐
 
-- 2026-06-29 19:51 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 20:16 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 19:49 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 20:15 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 19:57 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 19:59 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 19:51 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 19:51 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 20:10 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 19:53 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 20:05 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 19:59 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 20:17 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 19:56 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 20:10 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 20:13 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 20:08 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 19:57 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 20:22 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 19:59 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 20:03 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 20:18 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/80492966450.shtml)
-- 2026-06-29 20:12 - [女心理师](http://www.share.kurohicncr.top/Article/details/645168177901.shtml)
-- 2026-06-29 20:00 - [周生如故](http://www.blog.kurohicncr.top/Article/details/905041943790.shtml)
-- 2026-06-29 20:10 - [一诺变着花样秀新驾照](http://www.blog.minike.top/Article/details/7886781.shtml)
-- 2026-06-29 20:17 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/54284378.shtml)
-- 2026-06-29 19:56 - [海清4次陪跑白玉兰](https://www.blog.minike.top/Article/details/504810161747.shtml)
-- 2026-06-29 19:54 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/1732142.shtml)
-- 2026-06-29 20:06 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/755105.shtml)
-- 2026-06-29 20:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/51944994.shtml)
-- 2026-06-29 20:08 - [啊啊啊](https://www.blog.minike.top/Article/details/92893398.shtml)
-- 2026-06-29 20:12 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/30987321.shtml)
-- 2026-06-29 19:54 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/590360.shtml)
-- 2026-06-29 19:48 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/20872138.shtml)
-- 2026-06-29 20:00 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/5262913593.shtml)
-- 2026-06-29 20:10 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/56563329196.shtml)
+- 2026-06-29 20:20 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/615873678.shtml)
+- 2026-06-29 20:22 - [周杰伦演唱会含星量](https://www.share.minike.top/Article/details/86999877908.shtml)
+- 2026-06-29 19:55 - [小娘惹](https://www.share.minike.top/Article/details/9549420185.shtml)
+- 2026-06-29 20:12 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/096158.shtml)
+- 2026-06-29 20:14 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/16646633409.shtml)
+- 2026-06-29 20:03 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/64063406.shtml)
+- 2026-06-29 20:21 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/869525.shtml)
+- 2026-06-29 20:16 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/594337046049.shtml)
+- 2026-06-29 20:22 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/5115424.shtml)
+- 2026-06-29 20:16 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/649365543470.shtml)
+- 2026-06-29 19:55 - [毒液2](http://www.blog.kurohicncr.top/Article/details/290536128114.shtml)
+- 2026-06-29 20:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/61602919205.shtml)
+- 2026-06-29 20:15 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/29332.shtml)
+- 2026-06-29 19:57 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/22406501652.shtml)
+- 2026-06-29 19:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/431970711.shtml)

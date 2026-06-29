@@ -1,56 +1,59 @@
-# “五一”假期拉萨车站发送旅客9万人次
+# TACO如期而至，港股互联网大反攻！华宝基金港股互联网ETF（513770）冲击5%！龙头集体起立，美团暴涨8%
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-中新网拉萨5月7日电 (格桑央金 格桑曲珍)6日，2026年“五一”假期铁路运输圆满结束。据统计，4月29日至5月6日期间，中国铁路青藏集团有限公司拉萨车站旅客发送量达9万人次；到达旅客达8.7万人次，旅客运输工作实现安全、有序、高效。 面对假期客流压力，拉萨车站提前部署，通过优化组织、强化安全、提升服务全力保障出行。高峰时段加强关键位置引导，增开通道避免拥堵；开展应急演练并执
+特朗普同意停火两周，全球风险资产狂欢！4月8日，港股跳空高开，恒指一度涨超3%，恒科指涨超4%，腾讯控股涨3%，阿里巴巴-W涨近4%，小米集团-W涨超5%，美团-W一度暴涨超8%。 港股AI核心工具——港股互联网ETF华宝（513770）场内价格冲击5%，成交快速突破4亿元。 中信建投证券此前提示，4月将是港股从“情绪买点”走向“业绩买点”的关键验证期，互联网与AI龙头的一季报
 
 ## 正文
 
-中新网拉萨5月7日电 (格桑央金 格桑曲珍)6日，2026年“五一”假期铁路运输圆满结束。
+特朗普同意停火两周，全球风险资产狂欢！
 
-据统计，4月29日至5月6日期间，中国铁路青藏集团有限公司拉萨车站旅客发送量达9万人次；到达旅客达8.7万人次，旅客运输工作实现安全、有序、高效。
+4月8日，港股跳空高开，恒指一度涨超3%，恒科指涨超4%，腾讯控股涨3%，阿里巴巴-W涨近4%，小米集团-W涨超5%，美团-W一度暴涨超8%。
 
-面对假期客流压力，拉萨车站提前部署，通过优化组织、强化安全、提升服务全力保障出行。
+港股AI核心工具——港股互联网ETF华宝（513770）场内价格冲击5%，成交快速突破4亿元。
 
-高峰时段加强关键位置引导，增开通道避免拥堵；开展应急演练并执行24小时值班，筑牢安全屏障；同步整治环境卫生，优化候乘体验。
+中信建投证券此前提示，4月将是港股从“情绪买点”走向“业绩买点”的关键验证期，互联网与AI龙头的一季报和全年指引，将决定这一轮反弹能否从风险偏好修复进一步升级为盈利驱动的主升段。
 
-此外，车站聚焦重点旅客服务，提供便民设施与全程帮扶，圆满完成运输任务。
+该机构指出，从已经披露的业绩看，部分公司已经给出较明确的收入、利润验证，说明港股最重要的主线资产仍具备扎实的业绩支撑，因此，只要后续风险偏好边际持续修复，资金重新回到互联网和AI龙头几乎是大概率事件，互联网板块仍应作为第一优先级配置方向。
 
-拉萨车站客运运转车间党支部书记益西塔杰表示，拉萨车站将始终以“天路格桑花”服务品牌为引领，不断创新服务模式、提升服务品质，为旅客打造更加便捷、舒适、温馨的高原出行体验。
+把握2026 AI商业化元年，关注港股AI核心工具。
 
-(完)
+港股互联网ETF（513770）及其联接基金（A类017125；C类017126）被动跟踪中证港股通互联网指数，前十大权重股汇聚阿里巴巴-W、腾讯控股等科技巨头及各领域AI应用公司，龙头优势显著，日内T+0交易，流动性佳。
+
+看好港股科技但又希望降低波动？
 
 ## 相关推荐
 
-- 2026-06-29 19:52 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 19:59 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 20:11 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 19:58 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 20:16 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 20:16 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 20:06 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 19:55 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-29 20:11 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 20:08 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 20:15 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 20:03 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 19:57 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 20:14 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 20:09 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 20:03 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 20:14 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 20:19 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 20:20 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 20:09 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 20:22 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 20:06 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 20:08 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 20:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 20:08 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:57 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/72889176.shtml)
-- 2026-06-29 19:49 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.kurohicncr.top/Article/details/8619860950.shtml)
-- 2026-06-29 19:55 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/66213581.shtml)
-- 2026-06-29 20:14 - [朱雀三号重复使用遥二运载火箭新进展](http://www.share.minike.top/Article/details/745323468016.shtml)
-- 2026-06-29 20:17 - [中方向委方追加1亿元援助](http://www.blog.kurohicncr.top/Article/details/070806.shtml)
-- 2026-06-29 20:07 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/91015379183.shtml)
-- 2026-06-29 19:54 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/0235177799.shtml)
-- 2026-06-29 19:51 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/59604865.shtml)
-- 2026-06-29 20:17 - [青春环游记第三季](https://www.blog.minike.top/Article/details/743425543.shtml)
-- 2026-06-29 20:01 - [2026全国田径冠军赛江苏队4金收官](https://www.blog.minike.top/Article/details/091230857626.shtml)
-- 2026-06-29 19:52 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/74130064.shtml)
-- 2026-06-29 20:16 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/563845372350.shtml)
-- 2026-06-29 20:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/3034545432.shtml)
-- 2026-06-29 20:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/593490376.shtml)
-- 2026-06-29 19:56 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/304382864.shtml)
+- 2026-06-29 19:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/43204079241.shtml)
+- 2026-06-29 20:18 - [小众羞耻点是吃麻辣烫](http://www.blog.kurohicncr.top/Article/details/06558.shtml)
+- 2026-06-29 20:21 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/41858021.shtml)
+- 2026-06-29 19:56 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/53921843442.shtml)
+- 2026-06-29 20:12 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/62257.shtml)
+- 2026-06-29 20:19 - [周生如故](https://www.share.kurohicncr.top/Article/details/3215706.shtml)
+- 2026-06-29 20:07 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/729097083.shtml)
+- 2026-06-29 20:06 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/518654882837.shtml)
+- 2026-06-29 20:00 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/49331742.shtml)
+- 2026-06-29 20:05 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/16691.shtml)
+- 2026-06-29 19:54 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/34067498555.shtml)
+- 2026-06-29 20:20 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/0517647.shtml)
+- 2026-06-29 20:00 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/3052505.shtml)
+- 2026-06-29 20:11 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/0940491759.shtml)
+- 2026-06-29 20:22 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/3688027055.shtml)

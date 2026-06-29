@@ -1,48 +1,57 @@
-# 视频|李大霄：如何看待油股同涨
+# 甘肃武威“深花巷子”育鲜花
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：石秀珍 SF183
+中新网兰州4月8日电 (丁思 田鹏鹤)清明小长假期间，鲜花消费需求持续攀升，订购量大幅增加。在甘肃武威市凉州区清水镇“深花巷子”鲜切花产业园内，一束束康乃馨含苞待放、缀满枝头，村民们有条不紊地忙着采摘、分拣、包装，花店经营者则直接进驻园区“抢单”。 “人们对鲜花的需求量与日俱增，用途也不断拓展。”清水镇河西村党支部书记兼村委会主任蒋振栋近日接受记者采访时表示，每逢节假日，周边花
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网兰州4月8日电 (丁思 田鹏鹤)清明小长假期间，鲜花消费需求持续攀升，订购量大幅增加。
 
-责任编辑：石秀珍 SF183
+在甘肃武威市凉州区清水镇“深花巷子”鲜切花产业园内，一束束康乃馨含苞待放、缀满枝头，村民们有条不紊地忙着采摘、分拣、包装，花店经营者则直接进驻园区“抢单”。
+
+“人们对鲜花的需求量与日俱增，用途也不断拓展。
+
+”清水镇河西村党支部书记兼村委会主任蒋振栋近日接受记者采访时表示，每逢节假日，周边花店老板都会直接前往温室大棚“抢购鲜花”，“要是来晚了，热门品种很可能提前被预订一空。
+
+” 该鲜切花产业园坐落于河西村九组，由凉州区宜丰农民专业合作社牵头打造，采用“合作社+基地+农户”的发展模式，构建起鲜切花种植“一园三区”的布局，推动鲜切花产业规模化、标准化发展。
+
+该产业园分两期推进建设，一期项目于2020年3月开工，总投资518万元，占地106亩，建成高标准日光温室23座，配套建设恒温库、包装车间等基础设施，定植康乃馨、玫瑰等各类鲜切花100万株，实现常年稳定生产。
+
+为进一步扩大产业规模，二期项目于2021年4月启动，在一期产业园西侧，覆盖河西村八组、十组及清溪村七组，流转土地150亩，新建高标准日光温室30座，让鲜切花种植面积和产量实现大幅提升。
+
+“提到鲜切花，很多人都会首先想到云南，但从云南采购鲜花，不仅距离远，运输成本也高。
 
 ## 相关推荐
 
-- 2026-06-29 20:17 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 20:15 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 19:58 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 19:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 19:52 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 20:15 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 19:56 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 20:04 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 20:03 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 19:51 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 19:56 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 19:51 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 20:11 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 20:00 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 20:10 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 20:16 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 20:21 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 20:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 20:05 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 20:01 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 20:10 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 20:04 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 20:00 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 19:55 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 20:16 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:06 - [大学专业未来如何洗牌](https://www.share.minike.top/Article/details/68938941.shtml)
-- 2026-06-29 20:09 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/96755363791.shtml)
-- 2026-06-29 19:58 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/403252280.shtml)
-- 2026-06-29 20:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/19852821.shtml)
-- 2026-06-29 19:52 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/549800148.shtml)
-- 2026-06-29 20:09 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/92024.shtml)
-- 2026-06-29 20:10 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/70600800.shtml)
-- 2026-06-29 20:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/418024.shtml)
-- 2026-06-29 19:52 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/03754995508.shtml)
-- 2026-06-29 19:55 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/505239977.shtml)
-- 2026-06-29 19:57 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/7618911375.shtml)
-- 2026-06-29 19:57 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/067771791449.shtml)
-- 2026-06-29 19:48 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/705048289.shtml)
-- 2026-06-29 20:06 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/703967223.shtml)
-- 2026-06-29 20:09 - [请回答王牌2019](https://www.blog.minike.top/Article/details/313295.shtml)
+- 2026-06-29 20:03 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/713600353.shtml)
+- 2026-06-29 20:12 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/759513378.shtml)
+- 2026-06-29 20:00 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/1011806140.shtml)
+- 2026-06-29 20:10 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/815923190035.shtml)
+- 2026-06-29 19:54 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.kurohicncr.top/Article/details/7430257648.shtml)
+- 2026-06-29 20:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/28725352.shtml)
+- 2026-06-29 20:18 - [滚石点名酒店员工说有急救培训](http://www.share.minike.top/Article/details/874829674.shtml)
+- 2026-06-29 20:19 - [网友晒14年前支教影像等来学生评论](http://www.blog.kurohicncr.top/Article/details/7760742125.shtml)
+- 2026-06-29 19:57 - [女生每天戴耳机18小时突发耳聋](http://www.share.minike.top/Article/details/99477.shtml)
+- 2026-06-29 20:03 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/8294988606.shtml)
+- 2026-06-29 20:10 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/017262801.shtml)
+- 2026-06-29 19:59 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/7374387167.shtml)
+- 2026-06-29 20:16 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.minike.top/Article/details/95425.shtml)
+- 2026-06-29 20:08 - [美人鱼](http://www.blog.minike.top/Article/details/5697751096.shtml)
+- 2026-06-29 20:13 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/53445881.shtml)

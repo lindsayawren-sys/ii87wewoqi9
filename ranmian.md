@@ -1,59 +1,57 @@
-# 邓丽君生前旧物在河南郑州展出
+# 招商证券净利润创新高背后：自营收入保守 同行“吃肉”自己“喝汤”
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-一年填上百张表？部分科研人员仍困在表格里“反向接话”视频爆火：让家庭教育走出“别人家孩子”的攀比阴影为何树之间也会遵守“社交距离”？它们又是如何做到的？友情提醒！最近真的不要穿这种颜色的衣服出门卖家因恶意退货多“拉黑”整个街道 律师：商家不能歧视性拒售人这一辈子，一定要去一趟万里茶道第一关！美科技巨头集体投身AI军备竞赛海底电缆成美以伊博弈关键变量全国已有13个省份全省实施中小
+2025年，招商证券交出了一份看似平常的年度答卷。年报显示，公司全年实现营业收入249.72亿元，同比增长19.53%；实现归母净利润123.50亿元，同比增长18.91%。 2025年，招商证券的财富管理和机构业务实现营收138.25亿元，同比大增35.1%，占营收的比重高达55.36%。这一占比在头部券商中属于较高水平，这既是优势，也是风险——当市场成交量萎缩时，这块收入的
 
 ## 正文
 
-一年填上百张表？
+2025年，招商证券交出了一份看似平常的年度答卷。
 
-部分科研人员仍困在表格里“反向接话”视频爆火：让家庭教育走出“别人家孩子”的攀比阴影为何树之间也会遵守“社交距离”？
+年报显示，公司全年实现营业收入249.72亿元，同比增长19.53%；实现归母净利润123.50亿元，同比增长18.91%。
 
-它们又是如何做到的？
+2025年，招商证券的财富管理和机构业务实现营收138.25亿元，同比大增35.1%，占营收的比重高达55.36%。
 
-友情提醒！
+这一占比在头部券商中属于较高水平，这既是优势，也是风险——当市场成交量萎缩时，这块收入的弹性也最大。
 
-最近真的不要穿这种颜色的衣服出门卖家因恶意退货多“拉黑”整个街道 律师：商家不能歧视性拒售人这一辈子，一定要去一趟万里茶道第一关！
+信用业务与经纪业务高度绑定。
 
-美科技巨头集体投身AI军备竞赛海底电缆成美以伊博弈关键变量全国已有13个省份全省实施中小学春秋假夹娃娃成瘾？
+截至2025年末，公司融出资金规模较年初大幅提升40%至1333.53亿元，两融余额市占率由2024年末的4.87%提升至5.06%。
 
-香港拟修订《赌博条例》！
+这反映出客户加杠杆意愿增强，且公司在两融市场的份额在提升。
 
-美国博主带老外组团“朝圣”中国电车，在车展集体破防：凭什么？
+自营业务一直是券商利润的“放大器”。
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 20:02 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 20:10 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 20:08 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 20:05 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 20:03 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 19:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 20:09 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 19:48 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 20:06 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 20:06 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 20:16 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 20:02 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 19:55 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 19:57 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 20:03 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 20:04 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 20:21 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 19:54 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 20:19 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 20:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 19:57 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 19:59 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 20:00 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:53 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.minike.top/Article/details/793780695245.shtml)
-- 2026-06-29 19:50 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/630829.shtml)
-- 2026-06-29 19:53 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/986245556.shtml)
-- 2026-06-29 20:11 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/258308402357.shtml)
-- 2026-06-29 20:12 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/66256.shtml)
-- 2026-06-29 19:54 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/74715797064.shtml)
-- 2026-06-29 20:12 - [周生如故](https://www.blog.minike.top/Article/details/23713662.shtml)
-- 2026-06-29 19:52 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/48174251048.shtml)
-- 2026-06-29 19:51 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/464232211427.shtml)
-- 2026-06-29 19:48 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/539291.shtml)
-- 2026-06-29 20:16 - [爱很美味](http://www.share.minike.top/Article/details/7973202210.shtml)
-- 2026-06-29 20:10 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/949458477.shtml)
-- 2026-06-29 19:55 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.kurohicncr.top/Article/details/47465721.shtml)
-- 2026-06-29 20:08 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/266151497.shtml)
-- 2026-06-29 20:11 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/743960416233.shtml)
+- 2026-06-29 20:04 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/166225.shtml)
+- 2026-06-29 20:15 - [东方风云榜](https://www.blog.minike.top/Article/details/84169118933.shtml)
+- 2026-06-29 20:04 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/346174993275.shtml)
+- 2026-06-29 19:58 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.kurohicncr.top/Article/details/131490035.shtml)
+- 2026-06-29 20:01 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/3483340.shtml)
+- 2026-06-29 20:18 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/6178888274.shtml)
+- 2026-06-29 20:03 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/0641329077.shtml)
+- 2026-06-29 20:11 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.kurohicncr.top/Article/details/879168140453.shtml)
+- 2026-06-29 20:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/1988768.shtml)
+- 2026-06-29 19:55 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/9232384225.shtml)
+- 2026-06-29 20:20 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/477310945606.shtml)
+- 2026-06-29 20:03 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/16621908435.shtml)
+- 2026-06-29 20:18 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/597137634185.shtml)
+- 2026-06-29 20:11 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.minike.top/Article/details/51297.shtml)
+- 2026-06-29 20:03 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/730598.shtml)

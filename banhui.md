@@ -1,60 +1,54 @@
-# 半年四轮融资39亿美元 Kimi200亿美元估值狂奔
+# 特朗普称伊朗无需达成协议 美国也会撤出
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-2026年5月6日，一则消息迅速刷屏中国科技创投圈——中国大模型公司“月之暗面”（Kimi）即将完成新一轮约20 亿美元的融资，投后估值突破200 亿美元。该轮融资延续了其年初以来的资本狂飙节奏，由美团龙珠领投，中国移动、CPE等机构参投，其中仅龙珠单一机构出资就超过2亿美元。 这已经不是 Kimi 第一次以密集高频的融资节奏震撼市场。自 2026 年 1 月至 5 月，包括本
+美国总统特朗普表示，伊朗无需达成协议，美国也会停止在该国的军事行动。 特朗普在白宫回答记者提问时作出上述表态。 “无论是否达成协议，我们都会撤出，”特朗普表示。 特朗普还表示，当伊朗无法拥有核武器时，美国将撤出。 他表示，达成协议仍有可能，因为伊朗希望达成协议。责任编辑：丁文武
 
 ## 正文
 
-2026年5月6日，一则消息迅速刷屏中国科技创投圈——中国大模型公司“月之暗面”（Kimi）即将完成新一轮约20 亿美元的融资，投后估值突破200 亿美元。
+美国总统特朗普表示，伊朗无需达成协议，美国也会停止在该国的军事行动。
 
-该轮融资延续了其年初以来的资本狂飙节奏，由美团龙珠领投，中国移动、CPE等机构参投，其中仅龙珠单一机构出资就超过2亿美元。
+特朗普在白宫回答记者提问时作出上述表态。
 
-这已经不是 Kimi 第一次以密集高频的融资节奏震撼市场。
+“无论是否达成协议，我们都会撤出，”特朗普表示。
 
-自 2026 年 1 月至 5 月，包括本轮融资在内，Kimi 在不到半年时间里完成了四轮融资，累计融资超过39 亿美元，折合人民币逾376 亿元，最新估值相较于 2025 年 11 月的约 43 亿美元翻了4 倍有余。
+特朗普还表示，当伊朗无法拥有核武器时，美国将撤出。
 
-几个月前 Kimi 还曾坦言“不着急上市”，如今其融资体量与增速已悄然跃升至国内大模型创业公司之首——对比来看，即便计入IPO募资，MiniMax 的累计融资约为 150 亿人民币，智谱约为 130 亿人民币。
+他表示，达成协议仍有可能，因为伊朗希望达成协议。
 
-在当前全球 AI 赛道竞争趋于白热化、估值逻辑持续重构的大背景下，Kimi 这轮融资不仅是一次企业个体的资本事件，更是观察中国大模型产业格局演变的一个关键截面。
-
-它集中刻画了中国头部大模型公司在新一轮技术竞赛中面临的多重驱动力——资本聚集效应加速、投资者逻辑从“广撒网”转向“重仓头部”、商业化能力取代技术参数成为定价核心。
-
-资本大挪移：密集融资背后的驱动逻辑与博弈角力 要理解 Kimi 这一轮融资的真正意义，首先需要将其置于整个中国大模型赛道的估值坐标系中。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 20:03 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 19:51 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 20:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 19:53 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 20:03 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 19:53 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 19:59 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 20:00 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 20:05 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 20:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 20:16 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 20:07 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 19:55 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 19:59 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 20:22 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 20:18 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 19:55 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 20:05 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 19:58 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 20:01 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 20:01 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 20:12 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 19:55 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 20:21 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 20:16 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 19:58 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:16 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/748466004684.shtml)
-- 2026-06-29 19:52 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/165398.shtml)
-- 2026-06-29 19:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/8448509162.shtml)
-- 2026-06-29 19:48 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/01251731731.shtml)
-- 2026-06-29 20:02 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/90883461642.shtml)
-- 2026-06-29 20:15 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/206030.shtml)
-- 2026-06-29 19:56 - [东宫女主是不是顶级恋爱脑](https://www.blog.kurohicncr.top/Article/details/660068290732.shtml)
-- 2026-06-29 20:14 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/0277534061.shtml)
-- 2026-06-29 20:17 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/187903.shtml)
-- 2026-06-29 20:11 - [福建海警位金门附近海域常态执法巡查](http://www.blog.kurohicncr.top/Article/details/76508.shtml)
-- 2026-06-29 20:05 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/1469611639.shtml)
-- 2026-06-29 20:06 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/17669152511.shtml)
-- 2026-06-29 20:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/5424508761.shtml)
-- 2026-06-29 20:15 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/94981519544.shtml)
-- 2026-06-29 20:12 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/289106.shtml)
+- 2026-06-29 20:16 - [叠纸](https://www.share.kurohicncr.top/Article/details/430360289.shtml)
+- 2026-06-29 20:23 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/74056130574.shtml)
+- 2026-06-29 20:09 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/74067901.shtml)
+- 2026-06-29 20:01 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.minike.top/Article/details/88497.shtml)
+- 2026-06-29 19:55 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/30986.shtml)
+- 2026-06-29 20:17 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/32261.shtml)
+- 2026-06-29 20:05 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/525545767030.shtml)
+- 2026-06-29 20:20 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/440801512.shtml)
+- 2026-06-29 19:57 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/977639511705.shtml)
+- 2026-06-29 20:23 - [叠纸](http://www.blog.minike.top/Article/details/6891924.shtml)
+- 2026-06-29 20:03 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/455512590778.shtml)
+- 2026-06-29 20:16 - [沙丘](https://www.blog.kurohicncr.top/Article/details/834728969.shtml)
+- 2026-06-29 20:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/316176023.shtml)
+- 2026-06-29 20:22 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/66401786244.shtml)
+- 2026-06-29 20:01 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/282081579.shtml)

@@ -1,61 +1,59 @@
-# 丰田警告：中东战事将造成 42 亿美元损失
+# 从裁缝女工到地产女王！85岁陈丽华去世，她的一生比剧本更精彩
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-丰田汽车表示，中东冲突将导致其零部件成本上涨、销量受损，合计损失达6700 亿日元（约 42 亿美元），成为最新一家公开披露地区动荡带来压力的汽车制造商。 这家全球最大汽车制造商周五宣布，受铝、橡胶轮胎等零部件价格飙升及中东地区销量下滑影响，公司净利润将下降22%至3 万亿日元，为连续第三年年度净利润下滑。 丰田财务部门负责人东隆德表示：“我们认为无法完全抵消中东冲突带来的 6
+这位从贫寒家境走出、高中辍学谋生的女性，凭借过人胆识与杀伐决断，在北京核心商圈写下商业传奇，又因与“唐僧”扮演者迟重瑞的婚姻常年身处舆论中心。一生聚财、守艺、持家，争议与荣光并行。作者 | 《风暴眼》· · ·2026年4月7日，富华国际集团发布讣告：富华国际集团荣誉主席、中国紫檀博物馆馆长陈丽华女士，因病医治无效，于2026年4月5日在北京逝世，享年85岁。这位从贫寒家境走出
 
 ## 正文
 
-丰田汽车表示，中东冲突将导致其零部件成本上涨、销量受损，合计损失达6700 亿日元（约 42 亿美元），成为最新一家公开披露地区动荡带来压力的汽车制造商。
+这位从贫寒家境走出、高中辍学谋生的女性，凭借过人胆识与杀伐决断，在北京核心商圈写下商业传奇，又因与“唐僧”扮演者迟重瑞的婚姻常年身处舆论中心。
 
-这家全球最大汽车制造商周五宣布，受铝、橡胶轮胎等零部件价格飙升及中东地区销量下滑影响，公司净利润将下降22%至3 万亿日元，为连续第三年年度净利润下滑。
+一生聚财、守艺、持家，争议与荣光并行。
 
-丰田财务部门负责人东隆德表示：“我们认为无法完全抵消中东冲突带来的 6700 亿日元负面影响。
+作者 | 《风暴眼》· · ·2026年4月7日，富华国际集团发布讣告：富华国际集团荣誉主席、中国紫檀博物馆馆长陈丽华女士，因病医治无效，于2026年4月5日在北京逝世，享年85岁。
 
-” 除中东冲突外，美国关税还给丰田带来1.4 万亿日元的成本负担，这也是截至今年 3 月的财年净利润下滑 19% 至 3.8 万亿日元的原因之一，尽管该业绩仍高于此前预期。
+这位从贫寒家境走出、高中辍学谋生的女性，凭借过人胆识与杀伐决断，在北京核心商圈写下商业传奇，又因与“唐僧”扮演者迟重瑞的婚姻常年身处舆论中心。
 
-丰田的预估凸显出中东冲突对全球汽车行业的冲击持续扩大，此前美国三大车企已警告大宗商品通胀将造成50 亿美元财务损失。
+一生聚财、守艺、持家，争议与荣光并行，如今大幕落下，一个时代的商界传奇就此谢幕。
 
-东隆德表示，此次成本上调预估基于冲突持续至明年 3 月的假设，而其他日本企业在财务指引中假设冲突会更早结束。
+1./ 从裁缝女工到地产女王/1941年4月，陈丽华出生于北京，幼时家境贫寒，高中便被迫辍学。
 
-丰田新任首席执行官今田健承诺，将加强成本管控，以恢复高水平盈利能力，确保即便汽车销量放缓也不会出现亏损。
+之后，她进入街道裁缝厂当工人，习得手艺后独自开店营生。
 
-责任编辑：江学思
+缝纫之余，她常修补家中留存的紫檀老家具，这份兴趣为她日后的事业埋下伏笔。
 
 ## 相关推荐
 
-- 2026-06-29 19:49 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 20:16 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 20:16 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 20:17 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 19:51 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 19:50 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 19:51 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 20:14 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 20:06 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 19:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 20:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 20:13 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 20:10 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 20:14 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 19:53 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 20:12 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 20:20 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 20:09 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 20:22 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 20:08 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 19:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 20:08 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 20:10 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 19:54 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 20:16 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 20:19 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 20:12 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 19:58 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:54 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/067058.shtml)
-- 2026-06-29 19:48 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/74362737114.shtml)
-- 2026-06-29 19:54 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/76032962309.shtml)
-- 2026-06-29 20:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/687330295725.shtml)
-- 2026-06-29 20:09 - [叠纸](https://www.blog.minike.top/Article/details/047932.shtml)
-- 2026-06-29 20:06 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/3556691327.shtml)
-- 2026-06-29 20:05 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/10586425.shtml)
-- 2026-06-29 20:04 - [张杰我九岁就跟你了](http://www.share.kurohicncr.top/Article/details/7722154.shtml)
-- 2026-06-29 19:52 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/7192324059.shtml)
-- 2026-06-29 19:59 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/41848447.shtml)
-- 2026-06-29 20:14 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/578491359.shtml)
-- 2026-06-29 20:12 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/826123340.shtml)
-- 2026-06-29 19:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/9319932.shtml)
-- 2026-06-29 20:16 - [海口塔吊事故处罚结果公布](http://www.blog.minike.top/Article/details/53144332444.shtml)
-- 2026-06-29 19:58 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/2659437.shtml)
+- 2026-06-29 20:18 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/83291813628.shtml)
+- 2026-06-29 19:59 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/29052856166.shtml)
+- 2026-06-29 20:04 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.minike.top/Article/details/52684570.shtml)
+- 2026-06-29 20:15 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/77494050270.shtml)
+- 2026-06-29 19:58 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/4543539.shtml)
+- 2026-06-29 19:56 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/6775120.shtml)
+- 2026-06-29 20:03 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.minike.top/Article/details/44463.shtml)
+- 2026-06-29 20:14 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/4647356.shtml)
+- 2026-06-29 20:12 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/5326021521.shtml)
+- 2026-06-29 20:05 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.minike.top/Article/details/64810.shtml)
+- 2026-06-29 20:19 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/71752674764.shtml)
+- 2026-06-29 20:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/40023487.shtml)
+- 2026-06-29 19:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/5925734.shtml)
+- 2026-06-29 20:03 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/94689213519.shtml)
+- 2026-06-29 20:14 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/7838410022.shtml)

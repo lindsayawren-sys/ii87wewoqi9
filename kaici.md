@@ -1,60 +1,43 @@
-# 丰田预警：中东战争将造成42亿美元损失
+# 先导智能：募集资金将聚焦核心主业与长期发展
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-丰田汽车表示，中东冲突将导致其零部件价格上涨、销量受损，合计损失达6700亿日元（约合42亿美元），成为最新一家公开披露此次动荡带来经营压力的汽车制造商。 这家全球最大汽车制造商周五称，受铝、橡胶轮胎等零部件价格飙升，以及中东地区销量下滑影响，公司净利润将下降22%至3万亿日元，这将是其净利润连续第三年下滑。 丰田财务集团首席负责人表示：“我们认为无法完全抵消中东冲突带来的67
+证券日报网3月31日讯 ，先导智能在接受调研者提问时表示，本次募集资金将聚焦核心主业与长期发展，主要用于以下几个方面：（1）用于扩大全球研发、销售、服务网络及对外投资，完善全球化布局，强化市场覆盖与产业链协同；（2）用于深化平台化战略，推动固态电池、钠离子电池、钙钛矿电池等新技术电池产业化，抢占技术前沿与市场先机；（3）用于产品设计、制造流程及智能装备技术优化研发，提升产品力与
 
 ## 正文
 
-丰田汽车表示，中东冲突将导致其零部件价格上涨、销量受损，合计损失达6700亿日元（约合42亿美元），成为最新一家公开披露此次动荡带来经营压力的汽车制造商。
-
-这家全球最大汽车制造商周五称，受铝、橡胶轮胎等零部件价格飙升，以及中东地区销量下滑影响，公司净利润将下降22%至3万亿日元，这将是其净利润连续第三年下滑。
-
-丰田财务集团首席负责人表示：“我们认为无法完全抵消中东冲突带来的6700亿日元负面影响。
-
-” 除上述成本激增外，美国税收还给丰田带来1.4万亿日元的额外负担，这也是截至今年3月的财年净利润下降19%至3.8万亿日元的原因之一，尽管该业绩仍超出此前预期。
-
-丰田的预估凸显出此次冲突对全球汽车行业的冲击持续扩大。
-
-此前，美国三大车企已警告称，大宗商品通胀将给它们带来50亿美元财务损失。
-
-财报发布后，丰田在东京股市股价下跌2.1%，今年以来累计下跌14.3%。
-
-丰田财务集团首席负责人表示，此次成本上涨预估基于冲突将持续至明年3月的假设；其他日本企业在业绩指引中则假设冲突会更早结束。
+证券日报网3月31日讯 ，先导智能在接受调研者提问时表示，本次募集资金将聚焦核心主业与长期发展，主要用于以下几个方面：（1）用于扩大全球研发、销售、服务网络及对外投资，完善全球化布局，强化市场覆盖与产业链协同；（2）用于深化平台化战略，推动固态电池、钠离子电池、钙钛矿电池等新技术电池产业化，抢占技术前沿与市场先机；（3）用于产品设计、制造流程及智能装备技术优化研发，提升产品力与制造效率；（4）用于数字化基础设施建设，提升数字化能力与运营效率；（5）用于补充流动资金，保障日常经营稳健。
 
 ## 相关推荐
 
-- 2026-06-29 20:04 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 20:02 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 20:06 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 19:53 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 20:11 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 20:00 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 19:48 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 19:49 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 20:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 20:15 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 20:03 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 19:56 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 19:56 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 20:09 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 19:58 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 20:01 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 20:02 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 20:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 20:08 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 19:55 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 20:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 20:07 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 19:59 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 20:19 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 20:07 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/67281.shtml)
-- 2026-06-29 20:08 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/3313445237.shtml)
-- 2026-06-29 19:48 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/78320.shtml)
-- 2026-06-29 20:03 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/9748203744.shtml)
-- 2026-06-29 20:17 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.kurohicncr.top/Article/details/7574308.shtml)
-- 2026-06-29 20:16 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/447411037.shtml)
-- 2026-06-29 20:13 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/25668658.shtml)
-- 2026-06-29 19:49 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/78585.shtml)
-- 2026-06-29 20:15 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.minike.top/Article/details/57426024.shtml)
-- 2026-06-29 19:57 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/66138677763.shtml)
-- 2026-06-29 19:52 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/2499630784.shtml)
-- 2026-06-29 19:56 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/65855.shtml)
-- 2026-06-29 20:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/207039.shtml)
-- 2026-06-29 20:00 - [欧洲安装一台空调要花近8000元](http://www.blog.minike.top/Article/details/35808.shtml)
-- 2026-06-29 20:03 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.minike.top/Article/details/91684.shtml)
+- 2026-06-29 19:56 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/23132.shtml)
+- 2026-06-29 20:19 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/029082166.shtml)
+- 2026-06-29 20:13 - [高质量发展看新疆](https://www.share.minike.top/Article/details/272272897.shtml)
+- 2026-06-29 20:00 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/0979673.shtml)
+- 2026-06-29 20:19 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/1250479.shtml)
+- 2026-06-29 20:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/778765.shtml)
+- 2026-06-29 20:03 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/982584.shtml)
+- 2026-06-29 20:12 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/964247.shtml)
+- 2026-06-29 19:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/7593318.shtml)
+- 2026-06-29 20:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/7764647.shtml)
+- 2026-06-29 20:00 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/6355403.shtml)
+- 2026-06-29 20:14 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.kurohicncr.top/Article/details/98533428.shtml)
+- 2026-06-29 20:13 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/8028666.shtml)
+- 2026-06-29 20:12 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/320501204089.shtml)
+- 2026-06-29 20:19 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/14306239575.shtml)

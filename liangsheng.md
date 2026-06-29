@@ -1,58 +1,56 @@
-# 瑞士再保险净利润大增，天然巨灾理赔损失减少助力盈利
+# 最后期限将至！特朗普威胁伊朗：“今晚，整个文明将消亡。”
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 但保险营收同比下滑 4%作者：阿德里亚・卡拉塔尤德美国东部时间 2026 年 5 月 7 日 凌晨 1：31阅读时长 2 分钟 瑞士再保险一季度净利润同比走高，主要得益于重大自然灾害理赔损失减少以及投资收益表现亮眼。 这家总部位于苏黎世的再保险巨头周四公布，一季度净利润15.1 亿美元，去年同期为 12.75 亿美元；公司披露的分析师一致预
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！特朗普威胁伊朗：“整个文明将消亡” 新华社华盛顿4月7日电 美国总统特朗普7日在社交媒体上发文威胁伊朗称，“今晚，整个文明将消亡”。 特朗普写道：“我不愿这样的事情发生，但它或许会发生。” 美副总统万斯：战争将很快结束 央视新闻客户端消息，当地时间7日，美国副总统万斯到访匈牙利首都布达佩斯，并与匈牙利总理欧
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 但保险营收同比下滑 4%作者：阿德里亚・卡拉塔尤德美国东部时间 2026 年 5 月 7 日 凌晨 1：31阅读时长 2 分钟 瑞士再保险一季度净利润同比走高，主要得益于重大自然灾害理赔损失减少以及投资收益表现亮眼。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这家总部位于苏黎世的再保险巨头周四公布，一季度净利润15.1 亿美元，去年同期为 12.75 亿美元；公司披露的分析师一致预期为 11.9 亿美元，实际业绩大幅超出预期。
+特朗普威胁伊朗：“整个文明将消亡” 新华社华盛顿4月7日电 美国总统特朗普7日在社交媒体上发文威胁伊朗称，“今晚，整个文明将消亡”。
 
-瑞士再保险表示，旗下所有业务板块均对盈利形成贡献：财产意外险板块受益于大额理赔损失偏低；人寿与健康险板块则受美国死亡率走势利好支撑。
+特朗普写道：“我不愿这样的事情发生，但它或许会发生。
 
-当期保险营收下滑 4%，降至 100.3 亿美元。
+” 美副总统万斯：战争将很快结束 央视新闻客户端消息，当地时间7日，美国副总统万斯到访匈牙利首都布达佩斯，并与匈牙利总理欧尔班举行联合新闻发布会。
 
-公司首席执行官安德烈亚斯・贝尔格表示：“瑞士再保险一季度盈利表现强劲，为达成 2026 年财务目标奠定了良好基础。
+万斯表示，美以已完成伊朗战争的军事目的，战争将很快结束，将举行相应谈判。
 
-” 公司称，在定价环境愈发严峻的背景下，正以审慎态度推进财产意外险合约续转；受此影响，4 月 1 日续转保费规模，较到期需续保的业务总量下降 8%。
+“最后期限”将至，美伊还能谈妥吗 新华社北京4月7日电 美国总统特朗普6日声称，如果伊朗未能在美东时间7日20时（北京时间8日8时）前“开放”霍尔木兹海峡，美国将发动一场4小时的空袭，炸毁伊朗所有桥梁和发电站。
 
-首席财务官安德斯・马尔姆斯特伦透露，公司已额外计提准备金，以应对中东冲突可能带来的通胀冲击。
+分析人士认为，美伊目前的间接“谈和”存在一大关键分歧、两项核心矛盾和一个“不安的搅局者”，达成协议前景不乐观。
 
-责任编辑：郭明煜
+一大关键分歧：临时停火还是结束战争 观察人士分析，美伊之间涉及停火协议的一大关键分歧在于，是“临时性停火”还是“永久结束战争”。
 
 ## 相关推荐
 
-- 2026-06-29 19:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 20:08 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 20:13 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 20:12 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 20:08 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 19:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 20:14 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 20:15 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 19:48 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 20:03 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 19:57 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 20:06 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 20:00 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 19:59 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 20:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 20:09 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 19:55 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 20:09 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 20:14 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 19:57 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 19:54 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 20:19 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:58 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/229023.shtml)
-- 2026-06-29 20:05 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/51180192999.shtml)
-- 2026-06-29 19:59 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/216512.shtml)
-- 2026-06-29 19:54 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/62934594.shtml)
-- 2026-06-29 20:09 - [普京建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/808196.shtml)
-- 2026-06-29 20:04 - [记者暗访养老机构消防安全](https://www.blog.minike.top/Article/details/341886307.shtml)
-- 2026-06-29 20:10 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/61531700.shtml)
-- 2026-06-29 20:02 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/7188601.shtml)
-- 2026-06-29 20:11 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/69809251.shtml)
-- 2026-06-29 19:59 - [高考1357分的同学如何报志愿？](https://www.share.kurohicncr.top/Article/details/66189779937.shtml)
-- 2026-06-29 20:12 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/62510866271.shtml)
-- 2026-06-29 19:52 - [世界杯1/16决赛对阵出炉](http://www.blog.minike.top/Article/details/17698.shtml)
-- 2026-06-29 19:48 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/47332868591.shtml)
-- 2026-06-29 20:05 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/4936312562.shtml)
-- 2026-06-29 19:53 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.minike.top/Article/details/69938067.shtml)
+- 2026-06-29 20:07 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/7764574121.shtml)
+- 2026-06-29 20:07 - [温网](https://www.blog.kurohicncr.top/Article/details/91184.shtml)
+- 2026-06-29 19:56 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/0834639.shtml)
+- 2026-06-29 20:07 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.minike.top/Article/details/4086448.shtml)
+- 2026-06-29 20:07 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/955086361538.shtml)
+- 2026-06-29 20:13 - [欧洲极端高温如何影响家电股](https://www.blog.kurohicncr.top/Article/details/0661081.shtml)
+- 2026-06-29 20:20 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/77950852597.shtml)
+- 2026-06-29 20:11 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/82207486971.shtml)
+- 2026-06-29 20:12 - [官方通报一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/61570116013.shtml)
+- 2026-06-29 19:54 - [送你一朵小红花](http://www.share.minike.top/Article/details/6632553.shtml)
+- 2026-06-29 20:07 - [扩军害了世界杯吗](http://www.share.kurohicncr.top/Article/details/149264.shtml)
+- 2026-06-29 20:10 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/302833.shtml)
+- 2026-06-29 20:08 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/8987333.shtml)
+- 2026-06-29 20:14 - [夫妻生活太无聊，所以我……](https://www.share.kurohicncr.top/Article/details/501366.shtml)
+- 2026-06-29 20:22 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/627568.shtml)

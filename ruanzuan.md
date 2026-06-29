@@ -1,60 +1,60 @@
-# 美国宣布对伊军事行动结束，分析担忧战事远未终结
+# 特斯拉发布FSD V14.3版本，反应速度提升20%
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-“行动已经结束。” 当地时间5月5日，美国国务卿鲁比奥在白宫简报会上宣布，代号“史诗怒火”的军事行动已经结束，美国已完成这一阶段任务，现已转向防御态势。 延宕67天的战火，就这么结束了？ 似乎过于乐观。 战事走向，并非美国一方说了算。 伊朗最高领袖外事顾问韦拉亚提随即表示，伊美仍处于战争状态，并将继续开展“抵抗”。 就在鲁比奥讲话之际，英国一家监测机构报告称，霍尔木兹海峡一艘货
+特斯拉官方账号在社交平台X上发帖称，FSD监督版的新版本现已开始推送。此次更新将反应速度提升20%，进一步提升安全性，此外还有许多其他改进。 完整版本说明如下： FSD（监督版）v14.3 包括： 升级了 FSD 神经网络训练的强化学习 （RL） 阶段，从而在各种驾驶场景中均取得了改进。 使用 MLIR 从零开始重写了 AI 编译器和运行时，使反应速度提升了 20%，并提高了模
 
 ## 正文
 
-“行动已经结束。
+特斯拉官方账号在社交平台X上发帖称，FSD监督版的新版本现已开始推送。
 
-” 当地时间5月5日，美国国务卿鲁比奥在白宫简报会上宣布，代号“史诗怒火”的军事行动已经结束，美国已完成这一阶段任务，现已转向防御态势。
+此次更新将反应速度提升20%，进一步提升安全性，此外还有许多其他改进。
 
-延宕67天的战火，就这么结束了？
+完整版本说明如下： FSD（监督版）v14.3 包括： 升级了 FSD 神经网络训练的强化学习 （RL） 阶段，从而在各种驾驶场景中均取得了改进。
 
-似乎过于乐观。
+使用 MLIR 从零开始重写了 AI 编译器和运行时，使反应速度提升了 20%，并提高了模型迭代速度。
 
-战事走向，并非美国一方说了算。
+减少了不必要的车道偏转和轻微的尾随行为。
 
-伊朗最高领袖外事顾问韦拉亚提随即表示，伊美仍处于战争状态，并将继续开展“抵抗”。
+提高了停车位选择和操控的果断性。
 
-就在鲁比奥讲话之际，英国一家监测机构报告称，霍尔木兹海峡一艘货轮遭到袭击，区域冲突仍在发酵。
+改进了停车位位置的预测功能，现在会在地图上以 （P） 图标显示。
 
-美方也从未真要结束冲突，就在几天前还在持续增兵。
+增强了对紧急车辆、校车、违章车辆和其他罕见车辆的响应能力。
 
 ## 相关推荐
 
-- 2026-06-29 19:48 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 19:54 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 20:07 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 19:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 20:05 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 20:03 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 19:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 20:14 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 19:53 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 20:11 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 20:12 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 19:56 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 19:58 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 20:05 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 20:17 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 20:07 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 20:17 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 20:06 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 20:17 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 20:04 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 20:00 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 20:01 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 19:59 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 19:59 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 20:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 20:04 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 20:16 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 19:59 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:56 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/424615762.shtml)
-- 2026-06-29 20:00 - [滚石点名酒店员工说有急救培训](http://www.blog.minike.top/Article/details/0190001.shtml)
-- 2026-06-29 20:14 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/45627371421.shtml)
-- 2026-06-29 20:10 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/599544952770.shtml)
-- 2026-06-29 19:59 - [沙丘](http://www.share.minike.top/Article/details/1925133.shtml)
-- 2026-06-29 19:51 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/33645034850.shtml)
-- 2026-06-29 20:09 - [LPL第三赛段赛制公布](http://www.blog.minike.top/Article/details/140213551.shtml)
-- 2026-06-29 19:49 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/660216986.shtml)
-- 2026-06-29 19:53 - [RAY评乘风2026总决赛](https://www.blog.kurohicncr.top/Article/details/696465659396.shtml)
-- 2026-06-29 20:10 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/380240592.shtml)
-- 2026-06-29 20:01 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/432823142380.shtml)
-- 2026-06-29 19:57 - [海清4次陪跑白玉兰](https://www.blog.kurohicncr.top/Article/details/056663.shtml)
-- 2026-06-29 19:50 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/4698235.shtml)
-- 2026-06-29 20:16 - [一生一世](http://www.share.kurohicncr.top/Article/details/568904987827.shtml)
-- 2026-06-29 20:17 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/881172614.shtml)
+- 2026-06-29 19:55 - [明星大侦探第四季](https://www.share.minike.top/Article/details/06486843384.shtml)
+- 2026-06-29 20:14 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/7041264597.shtml)
+- 2026-06-29 20:06 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/285596.shtml)
+- 2026-06-29 20:06 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/614000584772.shtml)
+- 2026-06-29 20:03 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/51293246999.shtml)
+- 2026-06-29 20:16 - [小娘惹](http://www.share.kurohicncr.top/Article/details/290039377.shtml)
+- 2026-06-29 19:59 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/432448.shtml)
+- 2026-06-29 20:03 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/554190.shtml)
+- 2026-06-29 20:00 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/602093037571.shtml)
+- 2026-06-29 20:08 - [委内瑞拉发生余震](https://www.blog.minike.top/Article/details/746322634550.shtml)
+- 2026-06-29 20:06 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/78148145781.shtml)
+- 2026-06-29 20:02 - [天道](http://www.blog.kurohicncr.top/Article/details/34119.shtml)
+- 2026-06-29 19:56 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/58557997128.shtml)
+- 2026-06-29 20:08 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/06773.shtml)
+- 2026-06-29 20:07 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/480982943.shtml)

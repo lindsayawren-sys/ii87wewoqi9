@@ -1,59 +1,56 @@
-# 越秀地产盘中涨超3% 机构指公司将受惠于一线城市房产复苏
+# 透视年报｜国有六大行去年日赚39亿元，“印钞机”要换挡？
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-越秀地产（00123）盘中涨超3%，截至发稿，股价上涨2.30%，现报4.44港元，成交额3984.83万港元。 2026年五一黄金周，全国房地产市场迎来全面升温，走出一波火爆行情。其中越秀地产表现尤为亮眼，五一小长假最后一天单日狂揽16亿元销售额，整个黄金周期间累计成交55亿元，交出了一份行业瞩目的成绩单。在大本营广州，越秀地产实现销售金额超22亿元，占全市成交量近六分之一，
+随着银行2025年年报相继披露，国有六大行的盈利情况也逐渐浮出水面：合计归母净利润超过1.4万亿元，平均一天净赚39亿元；营业收入全线正增长，拟分红总额达4274.24亿元。 在营业收入和净利润实现“双升”的背后，银行的盈利模式正在悄然生变。净息差持续收窄，靠贷款吃利息的传统路径越走越窄；反倒是债券投资等非利息收入迅速崛起，成为拉动收益的新引擎。与此同时，金融科技实力也成了衡量
 
 ## 正文
 
-越秀地产（00123）盘中涨超3%，截至发稿，股价上涨2.30%，现报4.44港元，成交额3984.83万港元。
+随着银行2025年年报相继披露，国有六大行的盈利情况也逐渐浮出水面：合计归母净利润超过1.4万亿元，平均一天净赚39亿元；营业收入全线正增长，拟分红总额达4274.24亿元。
 
-2026年五一黄金周，全国房地产市场迎来全面升温，走出一波火爆行情。
+在营业收入和净利润实现“双升”的背后，银行的盈利模式正在悄然生变。
 
-其中越秀地产表现尤为亮眼，五一小长假最后一天单日狂揽16亿元销售额，整个黄金周期间累计成交55亿元，交出了一份行业瞩目的成绩单。
+净息差持续收窄，靠贷款吃利息的传统路径越走越窄；反倒是债券投资等非利息收入迅速崛起，成为拉动收益的新引擎。
 
-在大本营广州，越秀地产实现销售金额超22亿元，占全市成交量近六分之一，豪宅、改善、刚需全产品线热销，成为提振市场信心的重要标杆。
+与此同时，金融科技实力也成了衡量银行竞争力的必选项。
 
-汇丰研究指出，越秀地产受惠于一线城市带领的行业复苏。
+【净息差】 净息差降幅收窄今年仍然承压 财报数据显示，国有六大行去年营业收入均实现了正增长。
 
-公司总部城市广州正显示复苏迹象，将有助扭转市场对表现最弱的一线城市的质疑，并支持集团项目销售。
+其中，中国银行营业收入同比增长4.48%，是六大行中增速最快的银行。
 
-该行预计，集团今年将加快土地收购及资本循环。
+建设银行、交通银行营业收入的同比增速均超过了2%，工商银行、农业银行、邮储银行的营业收入同比增速也均在1.8%以上。
 
-管理层在5月6日的分析员简报会上表示，正积极监控进一步资产出售、分拆中国房地产投资信托基金（C-REIT）及政府回购闲置土地的机会。
+在银行营业收入中，利息净收入仍是重头戏。
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 19:51 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 19:51 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 20:11 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 20:02 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 20:02 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 20:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 20:10 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 20:16 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 20:05 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 20:02 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 20:05 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 20:17 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 20:09 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 19:56 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 20:18 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 20:09 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 20:22 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 20:20 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 19:59 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 20:02 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 19:57 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 20:11 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [毒液2](https://www.share.minike.top/Article/details/9676456.shtml)
-- 2026-06-29 20:15 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/33582291071.shtml)
-- 2026-06-29 19:59 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/138659.shtml)
-- 2026-06-29 19:57 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/959964470.shtml)
-- 2026-06-29 20:04 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.kurohicncr.top/Article/details/409147.shtml)
-- 2026-06-29 19:50 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/55828101.shtml)
-- 2026-06-29 19:56 - [华工科技龙虎榜数据](http://www.share.minike.top/Article/details/506191751840.shtml)
-- 2026-06-29 20:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/43254.shtml)
-- 2026-06-29 20:01 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/430500343994.shtml)
-- 2026-06-29 19:57 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/0028863590.shtml)
-- 2026-06-29 20:05 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/048633.shtml)
-- 2026-06-29 20:00 - [北京市发布雷电黄色预警](http://www.share.minike.top/Article/details/186117708058.shtml)
-- 2026-06-29 19:53 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/43373702429.shtml)
-- 2026-06-29 19:55 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/8110122746.shtml)
-- 2026-06-29 19:57 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/127130537350.shtml)
+- 2026-06-29 20:15 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/01192.shtml)
+- 2026-06-29 19:57 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/881515792429.shtml)
+- 2026-06-29 20:03 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/30976691091.shtml)
+- 2026-06-29 20:02 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/04698.shtml)
+- 2026-06-29 20:06 - [小娘惹](https://www.blog.minike.top/Article/details/28906.shtml)
+- 2026-06-29 19:55 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/749464135781.shtml)
+- 2026-06-29 20:15 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/396307.shtml)
+- 2026-06-29 20:03 - [扩军害了世界杯吗](https://www.share.kurohicncr.top/Article/details/758234263.shtml)
+- 2026-06-29 19:57 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/145767.shtml)
+- 2026-06-29 20:02 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/31612.shtml)
+- 2026-06-29 20:19 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/3539448.shtml)
+- 2026-06-29 20:20 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/90731.shtml)
+- 2026-06-29 20:15 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/861747384.shtml)
+- 2026-06-29 19:59 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/17930019782.shtml)
+- 2026-06-29 20:05 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/455589.shtml)

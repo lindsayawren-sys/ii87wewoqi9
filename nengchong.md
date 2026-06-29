@@ -1,61 +1,61 @@
-# 4只皮皮虾卖1035元，外出就餐遇到天价菜单怎么办
+# 钱学森主题雕塑《期待》在上海交大落成
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-“4只皮皮虾1035元”——这个价格标签最近冲上了微博热搜，引发大量网友讨论。据媒体报道，有消费者在某海鲜店消费时遭遇了令人咋舌的定价：仅仅4只皮皮虾，账单上就显示1035元，平均一只超过250元。涉事海鲜店事后回应称是“明码标价”，但消费者显然并不买账。类似的天价菜单事件并非个例，此前也有游客在景区被“天价鱼”“天价虾”坑过的经历，每次曝光都会引发一轮关于消费维权 【下载黑猫
+中新网上海4月7日电 (记者 许婧)钱学森作为上海交通大学1934届杰出校友，其“爱国、创新、求实、奉献、协同、育人”的科学家精神，始终激励着上海交大学子将个人理想融入祖国发展。7日，钱学森主题雕塑《期待》在上海交大闵行校区涵泽湖畔落成，献礼母校百卅华诞。 1896年，盛宣怀秉持“自强首在储才，储才必先兴学”的信念，创办南洋公学(交大前身)，确立“求实学，务实业”宗旨，以培养“
 
 ## 正文
 
-“4只皮皮虾1035元”——这个价格标签最近冲上了微博热搜，引发大量网友讨论。
+中新网上海4月7日电 (记者 许婧)钱学森作为上海交通大学1934届杰出校友，其“爱国、创新、求实、奉献、协同、育人”的科学家精神，始终激励着上海交大学子将个人理想融入祖国发展。
 
-据媒体报道，有消费者在某海鲜店消费时遭遇了令人咋舌的定价：仅仅4只皮皮虾，账单上就显示1035元，平均一只超过250元。
+7日，钱学森主题雕塑《期待》在上海交大闵行校区涵泽湖畔落成，献礼母校百卅华诞。
 
-涉事海鲜店事后回应称是“明码标价”，但消费者显然并不买账。
+1896年，盛宣怀秉持“自强首在储才，储才必先兴学”的信念，创办南洋公学(交大前身)，确立“求实学，务实业”宗旨，以培养“第一等人才”为目标。
 
-类似的天价菜单事件并非个例，此前也有游客在景区被“天价鱼”“天价虾”坑过的经历，每次曝光都会引发一轮关于消费维权 【下载黑猫投诉客户端】的广泛讨论。
+130年来，交大始终与国家民族同呼吸共命运，钱学森便是其中最杰出的代表。
 
-事实上，外出就餐、尤其是去旅游景区或沿海城市吃海鲜时，消费者确实更容易遇到这类问题。
+雕塑《期待》为青铜材质全身立像，以钱学森晚年形象为蓝本，身姿挺拔、目光深邃，基座镌刻其对母校的寄语，还原了他与母校的深厚情谊及共和国脊梁的风骨。
 
-有的商家在菜单上玩文字游戏，用“时价”“面议”等模糊字眼代替具体价格；有的在称重环节做手脚，缺斤短两或者连壳带水一起称；还有的则是先低价引客、再通过隐形消费层层加价。
+雕塑位于该校闵行校区宣怀大道与学森路交界处，与盛宣怀像遥望呼应，昭示上海交大迈向教育科技人才一体化的新起点。
 
-对于普通消费者来说，出门在外本来图的是开心，结果一顿饭吃出一场纠纷，确实让人头疼。
+落成仪式上，中国科学院院士孙家栋发来贺信，期待学校以百卅校庆和雕塑落成为新起点，弘扬光荣传统，激励学子立大志、成大才。
 
-那么，当我们在消费过程中遇到不合理的收费或价格欺诈时，有哪些渠道可以帮助我们维权呢？
+《国之所需 吾之所向——钱学森与上海交通大学》专题展同期亮相。
 
 ## 相关推荐
 
-- 2026-06-29 20:12 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 20:08 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 20:13 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 19:51 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 20:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 19:49 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 19:57 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 20:15 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 20:16 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 20:03 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 20:04 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 19:55 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 19:56 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 19:58 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 20:04 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 20:23 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 20:10 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 19:54 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 20:20 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 20:22 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 20:11 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 20:23 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 20:13 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 20:06 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 20:03 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 20:14 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 19:54 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 20:16 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 20:01 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 20:17 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/588570411532.shtml)
-- 2026-06-29 20:11 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/422362600.shtml)
-- 2026-06-29 19:56 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.minike.top/Article/details/911956732932.shtml)
-- 2026-06-29 20:05 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/76676896.shtml)
-- 2026-06-29 19:54 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/24021260577.shtml)
-- 2026-06-29 19:53 - [TOP Prada](https://www.share.minike.top/Article/details/899451772311.shtml)
-- 2026-06-29 20:12 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/243738752.shtml)
-- 2026-06-29 20:11 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/675562129.shtml)
-- 2026-06-29 19:59 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/0156859.shtml)
-- 2026-06-29 20:07 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/075821.shtml)
-- 2026-06-29 20:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/97000080.shtml)
-- 2026-06-29 20:10 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/583516.shtml)
-- 2026-06-29 20:08 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/6730318842.shtml)
-- 2026-06-29 20:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/68622.shtml)
-- 2026-06-29 20:11 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/30392190.shtml)
+- 2026-06-29 20:02 - [济南航空航天全面起势](https://www.share.kurohicncr.top/Article/details/44466676239.shtml)
+- 2026-06-29 20:16 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/489792.shtml)
+- 2026-06-29 20:04 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/914054384673.shtml)
+- 2026-06-29 20:09 - [流金岁月](https://www.share.minike.top/Article/details/0428375.shtml)
+- 2026-06-29 20:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/8049055.shtml)
+- 2026-06-29 20:21 - [扫黑风暴](http://www.share.minike.top/Article/details/087092.shtml)
+- 2026-06-29 20:05 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/5937170560.shtml)
+- 2026-06-29 20:16 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/56342171.shtml)
+- 2026-06-29 20:18 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/37580508.shtml)
+- 2026-06-29 20:00 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/56882808.shtml)
+- 2026-06-29 20:06 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.minike.top/Article/details/46114698.shtml)
+- 2026-06-29 20:11 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/1879887.shtml)
+- 2026-06-29 20:22 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/7146594699.shtml)
+- 2026-06-29 20:13 - [男子40度高温下骑行严重晒伤](http://www.share.minike.top/Article/details/78332534202.shtml)
+- 2026-06-29 20:04 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/99587012524.shtml)

@@ -1,58 +1,51 @@
-# 外交部：“台独”势力妄图分裂国家注定是绝路死路
+# 两高：从严惩治编造、故意传播涉民航飞行安全虚假恐怖信息犯罪
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。 有记者提问：据报道，洪都拉斯新任总统表示，其政府需要对前任政府与中国达成的协议进行审查。他还指出，华为设备也将纳入此次审查范围。中方对此有何回应？ 林剑：我要指出的是，相关报道移花接木、挑拨是非，与事实不符，严重违背新闻职业道德。我要强调的是，世界上只有一个中国，台湾是中国领土不可分割的一部分，中华
+中新网4月8日电 (记者 高萌)4月8日，最高人民法院、最高人民检察院发布《关于办理危害民航飞行安全刑事案件适用法律若干问题的解释》。《解释》明确，突出对编造、故意传播涉民航飞行安全虚假恐怖信息犯罪的从严惩治。部分行为人出于报复社会、勒索钱财、发泄私愤、无聊好奇等动机和目的，编造、故意传播诸如“飞机上有炸弹”等涉民航飞行安全虚假恐怖信息，严重干扰民航飞行安全和秩序，甚至造成一定
 
 ## 正文
 
-中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。
+中新网4月8日电 (记者 高萌)4月8日，最高人民法院、最高人民检察院发布《关于办理危害民航飞行安全刑事案件适用法律若干问题的解释》。
 
-有记者提问：据报道，洪都拉斯新任总统表示，其政府需要对前任政府与中国达成的协议进行审查。
+《解释》明确，突出对编造、故意传播涉民航飞行安全虚假恐怖信息犯罪的从严惩治。
 
-他还指出，华为设备也将纳入此次审查范围。
+部分行为人出于报复社会、勒索钱财、发泄私愤、无聊好奇等动机和目的，编造、故意传播诸如“飞机上有炸弹”等涉民航飞行安全虚假恐怖信息，严重干扰民航飞行安全和秩序，甚至造成一定范围内的社会恐慌。
 
-中方对此有何回应？
-
-林剑：我要指出的是，相关报道移花接木、挑拨是非，与事实不符，严重违背新闻职业道德。
-
-我要强调的是，世界上只有一个中国，台湾是中国领土不可分割的一部分，中华人民共和国政府是代表全中国的唯一合法政府，一个中国原则是国际社会普遍共识和国际关系基本准则，也是中洪发展关系、开展合作的政治基础和前提条件，容不得半点含糊。
-
-中洪建交以来，双方本着相互尊重、平等协商的原则，开展各领域务实合作，互利双赢、成果显著，造福两国人民也得到两国人民的广泛拥护。
-
-事实证明，坚持一个中国原则是顺应历史发展大势，契合时代进步潮流的正确决定，符合洪都拉斯国家和人民的根本利益。
+行为人的行为影响民航航班、民用机场正常运行，或者致使公安、武警、消防救援、卫生检疫等部门采取应对措施的，应作犯罪处理；造成严重社会影响或者重大经济损失的，属于造成严重后果，处五年以上有期徒刑。
 
 ## 相关推荐
 
-- 2026-06-29 20:05 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 20:07 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 20:15 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 19:56 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 19:57 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 20:08 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 19:49 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 20:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 19:56 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 19:53 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 19:55 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 19:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 19:58 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 20:02 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 20:07 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 19:55 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 20:09 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 20:06 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 19:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 20:15 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 20:02 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 20:12 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 20:11 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 19:59 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 20:06 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:08 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/75925721.shtml)
-- 2026-06-29 19:52 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/12244127362.shtml)
-- 2026-06-29 20:08 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/383486448466.shtml)
-- 2026-06-29 19:52 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/432248286.shtml)
-- 2026-06-29 20:06 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/206197.shtml)
-- 2026-06-29 20:17 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/148117.shtml)
-- 2026-06-29 20:04 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/782252127.shtml)
-- 2026-06-29 20:14 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/835049.shtml)
-- 2026-06-29 20:17 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/0654703692.shtml)
-- 2026-06-29 20:02 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/606242207791.shtml)
-- 2026-06-29 19:53 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/34274.shtml)
-- 2026-06-29 19:49 - [扫黑风暴](https://www.share.minike.top/Article/details/2860939.shtml)
-- 2026-06-29 20:16 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/1308725.shtml)
-- 2026-06-29 20:16 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/306565423.shtml)
-- 2026-06-29 19:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/42014147.shtml)
+- 2026-06-29 20:22 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/11168381258.shtml)
+- 2026-06-29 20:08 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/3162601.shtml)
+- 2026-06-29 20:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/73292.shtml)
+- 2026-06-29 20:19 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/251368270.shtml)
+- 2026-06-29 20:01 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/937673.shtml)
+- 2026-06-29 20:19 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/10364202.shtml)
+- 2026-06-29 20:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/07714482.shtml)
+- 2026-06-29 19:58 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/76906340301.shtml)
+- 2026-06-29 19:57 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/775474.shtml)
+- 2026-06-29 20:16 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/54162.shtml)
+- 2026-06-29 20:19 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/05542.shtml)
+- 2026-06-29 20:13 - [世界杯1/16决赛对阵出炉](http://www.blog.minike.top/Article/details/8905687.shtml)
+- 2026-06-29 20:20 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/297916514.shtml)
+- 2026-06-29 20:09 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/064542025509.shtml)
+- 2026-06-29 20:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/98082.shtml)

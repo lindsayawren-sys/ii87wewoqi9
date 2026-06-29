@@ -1,58 +1,58 @@
-# 从“看景”到“入景” 国风沉浸 令人“上头”
+# 招商证券国际：维持吉利汽车目标价32港元 评级“增持”
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:03 UTC+8
 
 ## 摘要
 
-今年“五一”假期，国风沉浸体验游受到游客欢迎，成为文旅市场的一大亮点。多地以国风为魂、以沉浸为韵，融合多业态的体验游让游客从“观众”变身“剧中人”，在沉浸体验中感受传统文化的魅力。 从“旁观者”变“参与者” 探访一座古城、体验一门非遗技艺……如今，游客对中华优秀传统文化的探索热情持续升温。携程数据显示，“五一”期间，参与“深度文化游”人次同比增长52.3%。 在河北吴桥，全国首
+招商证券国际发布研报称，维持吉利汽车（00175）目标价32港元及“增持”评级，维持整车板块首推。该行认为，高利润的高端豪华车与出海业务加速放量，催化全年利润成长弹性。此外，近期公司管理阶层持续增持，传达业务发展强烈信心。公司在电动转型取得阶段性成功后，正迈入“量利齐升”的高品质发展阶段。 该公司第一季销售再创新高。3月销售23.3万辆，同比基本持平（显著跑赢行业），环比增13
 
 ## 正文
 
-今年“五一”假期，国风沉浸体验游受到游客欢迎，成为文旅市场的一大亮点。
+招商证券国际发布研报称，维持吉利汽车（00175）目标价32港元及“增持”评级，维持整车板块首推。
 
-多地以国风为魂、以沉浸为韵，融合多业态的体验游让游客从“观众”变身“剧中人”，在沉浸体验中感受传统文化的魅力。
+该行认为，高利润的高端豪华车与出海业务加速放量，催化全年利润成长弹性。
 
-从“旁观者”变“参与者” 探访一座古城、体验一门非遗技艺……如今，游客对中华优秀传统文化的探索热情持续升温。
+此外，近期公司管理阶层持续增持，传达业务发展强烈信心。
 
-携程数据显示，“五一”期间，参与“深度文化游”人次同比增长52.3%。
+公司在电动转型取得阶段性成功后，正迈入“量利齐升”的高品质发展阶段。
 
-在河北吴桥，全国首个杂技主题沉浸式文旅综合体——吴桥杂技幻乐城于5月1日开业迎客。
+该公司第一季销售再创新高。
 
-石家庄游客李思琪体验后兴奋地说：“第一次在现场近距离看杂技表演，都是真功夫！
+3月销售23.3万辆，同比基本持平（显著跑赢行业），环比增13%；其中新能源销量12.7万辆，同比增6%，占比提升至55%。
 
-我们还上台跟杂技演员一起互动，尝试抖空竹和顶碗，太刺激了！
+公司第一季累计销量达70.9万辆，同比增1%，创历史同期新高，整体表现稳健。
 
-”吴桥杂技幻乐城打破传统景区“台下看、台上演”的单一模式，创新打造“玩中看、看中玩、游中学、学中乐”的全沉浸、交互式全新体验，让游客从“旁观者”变“参与者”。
+公司旗下极氪品牌延续高景气成长，3月销售2.9万辆，同比大幅成长90%，第一季累计同比增86%，验证“技术向上、品牌向上”战略持续兑现，豪华纯电标竿地位进一步巩固。
 
 ## 相关推荐
 
-- 2026-06-29 20:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-29 20:14 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 20:18 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 20:13 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 20:11 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 20:09 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 20:01 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 20:12 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 19:51 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 19:54 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 20:08 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 19:52 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 19:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 20:08 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 20:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 20:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 20:03 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 20:05 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 20:13 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 20:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 20:08 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 20:13 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 20:04 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 20:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [流金岁月](http://www.share.minike.top/Article/details/706810449349.shtml)
-- 2026-06-29 20:07 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/3461430177.shtml)
-- 2026-06-29 20:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/0097978884.shtml)
-- 2026-06-29 19:49 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/32107647.shtml)
-- 2026-06-29 20:10 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/62232.shtml)
-- 2026-06-29 20:10 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/043811483195.shtml)
-- 2026-06-29 20:13 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/5625796693.shtml)
-- 2026-06-29 19:50 - [女生学医适合选什么专业](http://www.blog.kurohicncr.top/Article/details/508925716859.shtml)
-- 2026-06-29 19:49 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/09937651.shtml)
-- 2026-06-29 20:15 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/68958.shtml)
-- 2026-06-29 20:09 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/992476.shtml)
-- 2026-06-29 19:59 - [韩国队主帅遭极端网友死亡威胁](https://www.share.minike.top/Article/details/489267219.shtml)
-- 2026-06-29 20:03 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/09172653227.shtml)
-- 2026-06-29 20:08 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/3018562.shtml)
-- 2026-06-29 20:17 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/087596292871.shtml)
+- 2026-06-29 20:18 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.minike.top/Article/details/776029175.shtml)
+- 2026-06-29 20:20 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/5309833.shtml)
+- 2026-06-29 20:07 - [斛珠夫人](https://www.share.minike.top/Article/details/1801161398.shtml)
+- 2026-06-29 20:10 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/1848220451.shtml)
+- 2026-06-29 20:13 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/7161571.shtml)
+- 2026-06-29 20:00 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/0054542.shtml)
+- 2026-06-29 19:58 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/000017060410.shtml)
+- 2026-06-29 20:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/846936683391.shtml)
+- 2026-06-29 19:58 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/646631.shtml)
+- 2026-06-29 20:18 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/484235.shtml)
+- 2026-06-29 20:12 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/039407023.shtml)
+- 2026-06-29 19:56 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/87857.shtml)
+- 2026-06-29 20:07 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/3303790982.shtml)
+- 2026-06-29 20:21 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/634413976.shtml)
+- 2026-06-29 20:24 - [沙丘](https://www.share.minike.top/Article/details/550711206.shtml)

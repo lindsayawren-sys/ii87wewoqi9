@@ -1,47 +1,47 @@
-# 以色列声称袭击贝鲁特旨在清除真主党拉德万部队指挥官
+# 证监会主席吴清会见澳门金融管理局行政管理委员会主席黄善文
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-根据以色列总理内塔尼亚胡和国防部长Israel Katz的联合声明，以色列已对贝鲁特发动袭击，试图清除真主党拉德万部队的指挥官。责任编辑：李桐
+2026年3月30日上午，中国证监会主席吴清会见了来访的澳门金融管理局行政管理委员会主席黄善文一行。双方就近期国内外经济金融形势、“十五五”期间进一步深化内地与澳门资本市场领域务实合作、支持澳门积极融入和服务国家发展大局、促进澳门多元化发展和经济持续繁荣等议题交换了意见。责任编辑：刘万里 SF014
 
 ## 正文
 
-根据以色列总理内塔尼亚胡和国防部长Israel Katz的联合声明，以色列已对贝鲁特发动袭击，试图清除真主党拉德万部队的指挥官。
+2026年3月30日上午，中国证监会主席吴清会见了来访的澳门金融管理局行政管理委员会主席黄善文一行。
 
-责任编辑：李桐
+双方就近期国内外经济金融形势、“十五五”期间进一步深化内地与澳门资本市场领域务实合作、支持澳门积极融入和服务国家发展大局、促进澳门多元化发展和经济持续繁荣等议题交换了意见。
+
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 20:13 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 20:15 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 19:50 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 19:59 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 20:17 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 20:00 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 20:15 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 20:08 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 19:49 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 20:09 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 20:13 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 20:12 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 20:04 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 20:18 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 20:02 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 20:00 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 20:21 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 20:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 20:09 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 20:07 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 20:15 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 20:17 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 20:19 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 20:03 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:49 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/48251760.shtml)
-- 2026-06-29 19:54 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/25279697297.shtml)
-- 2026-06-29 20:10 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/1434308.shtml)
-- 2026-06-29 20:02 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/501886.shtml)
-- 2026-06-29 19:58 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/8689988.shtml)
-- 2026-06-29 19:56 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/93073097417.shtml)
-- 2026-06-29 20:07 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/33770.shtml)
-- 2026-06-29 20:02 - [世界杯在中国观看最多的比赛](http://www.share.minike.top/Article/details/11410437596.shtml)
-- 2026-06-29 20:13 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.minike.top/Article/details/5265163193.shtml)
-- 2026-06-29 19:49 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/1232971.shtml)
-- 2026-06-29 20:08 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/6617082224.shtml)
-- 2026-06-29 19:51 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/7616082.shtml)
-- 2026-06-29 19:54 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/17688887845.shtml)
-- 2026-06-29 20:16 - [店员光脚踩入盆中清洗土豆](http://www.share.kurohicncr.top/Article/details/8603611496.shtml)
-- 2026-06-29 19:50 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/75366712.shtml)
+- 2026-06-29 20:20 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/46300.shtml)
+- 2026-06-29 20:01 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/6505102.shtml)
+- 2026-06-29 20:05 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/509496720778.shtml)
+- 2026-06-29 20:19 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/1254286413.shtml)
+- 2026-06-29 20:16 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/92683550801.shtml)
+- 2026-06-29 20:03 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.kurohicncr.top/Article/details/07328.shtml)
+- 2026-06-29 19:56 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/97839688733.shtml)
+- 2026-06-29 19:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/659923502.shtml)
+- 2026-06-29 20:03 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/381217875.shtml)
+- 2026-06-29 20:12 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/6290233.shtml)
+- 2026-06-29 20:14 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/6927599.shtml)
+- 2026-06-29 20:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/007712.shtml)
+- 2026-06-29 20:00 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/1889032725.shtml)
+- 2026-06-29 20:07 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/655534025385.shtml)
+- 2026-06-29 19:55 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/70475938.shtml)

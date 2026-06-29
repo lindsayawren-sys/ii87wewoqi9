@@ -1,49 +1,60 @@
-# 两家内地会计师事务所获准从事H股企业审计
+# 今年武汉樱花季入境外籍旅客同比增110.99%
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-中新网5月8日电 据证监会网站消息，经财政部、中国证监会内地会计师事务所从事H股企业审计业务审核推荐委员会审核认可，并经香港监管机构确认，容诚会计师事务所(特殊普通合伙)、天职国际会计师事务所(特殊普通合伙)获准自2026年5月15日起，可以本所名义在香港资本市场为符合条件的H股公司出具审计报告。 增补两家内地会计师事务所从事H股企业审计业务，对于降低内地企业在港上市成本、推动
+中新社武汉4月7日电 (武一力 李逊)记者7日从武汉海关获悉，今年3月以来，武汉樱花季“催热”入境游。武汉天河机场海关累计监管国际出入境人员超12万人次，其中入境外籍旅客1.61万人次，同比增长110.99%，主要来自韩国、马来西亚、新加坡、美国等地。 武汉海关相关负责人表示，随着武汉天河国际机场“超级中转枢纽”建设提速，通关服务保障能力持续升级，叠加240小时过境免签、多国入
 
 ## 正文
 
-中新网5月8日电 据证监会网站消息，经财政部、中国证监会内地会计师事务所从事H股企业审计业务审核推荐委员会审核认可，并经香港监管机构确认，容诚会计师事务所(特殊普通合伙)、天职国际会计师事务所(特殊普通合伙)获准自2026年5月15日起，可以本所名义在香港资本市场为符合条件的H股公司出具审计报告。
+中新社武汉4月7日电 (武一力 李逊)记者7日从武汉海关获悉，今年3月以来，武汉樱花季“催热”入境游。
 
-增补两家内地会计师事务所从事H股企业审计业务，对于降低内地企业在港上市成本、推动两地资本市场互联互通、促进香港融入国家发展大局具有积极而深远的意义，将有助于进一步深化内地与香港会计交流合作，推动两地会计行业共同发展。
+武汉天河机场海关累计监管国际出入境人员超12万人次，其中入境外籍旅客1.61万人次，同比增长110.99%，主要来自韩国、马来西亚、新加坡、美国等地。
 
-财政部、中国证监会将根据内地与香港有关监管要求，对获准从事H股企业审计业务的会计师事务所进行严格管理，确保持续符合要求，推动其高质量完成H股企业审计业务。
+武汉海关相关负责人表示，随着武汉天河国际机场“超级中转枢纽”建设提速，通关服务保障能力持续升级，叠加240小时过境免签、多国入境免签等政策红利，口岸出入境客流节节攀升。
+
+从入境观光到入境消费，外籍游客消费热情高涨。
+
+3月以来，武汉海关共办理离境退税业务152笔，涉及金额365.22万元人民币，退税商品覆盖箱包、化妆品、电子产品等热门品类。
+
+湖北省内拥有樱花、知音文化、三国文化等丰富的文化旅游资源，每年3月至6月是外籍游客来鄂旅游旺季，很多新加坡游客在去年就提前预订了今年的武汉赏花旅行团。
+
+中青旅湖北国际旅行社有限公司副总经理史波接受中新社记者采访时说，今年武汉入境游市场持续向好，尤其是“樱花+科技”的新玩法受到外籍游客喜爱。
+
+如乘坐武汉的光谷空轨、无人驾驶汽车赏樱花，在景区与人形机器人互动等。
 
 ## 相关推荐
 
-- 2026-06-29 20:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 19:58 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 20:15 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 19:59 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 20:09 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 20:10 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 19:49 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 20:05 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 20:01 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 19:51 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 19:54 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 19:57 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 20:16 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 20:16 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 20:07 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 19:55 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 20:18 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 20:13 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 20:19 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 20:01 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 19:54 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 20:13 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 20:01 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 20:14 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 20:24 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 20:02 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 20:07 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:51 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/5291115.shtml)
-- 2026-06-29 20:14 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/53658.shtml)
-- 2026-06-29 19:52 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/396071.shtml)
-- 2026-06-29 20:16 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/96867592.shtml)
-- 2026-06-29 20:11 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.kurohicncr.top/Article/details/9321224270.shtml)
-- 2026-06-29 20:16 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.kurohicncr.top/Article/details/274275856.shtml)
-- 2026-06-29 20:05 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/48633730493.shtml)
-- 2026-06-29 20:12 - [官媒首曝六代机？大V解读](http://www.share.kurohicncr.top/Article/details/15979572767.shtml)
-- 2026-06-29 20:12 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/30888754.shtml)
-- 2026-06-29 19:57 - [流金岁月](https://www.share.kurohicncr.top/Article/details/853682.shtml)
-- 2026-06-29 19:52 - [C罗10球7球对垫底队](http://www.share.minike.top/Article/details/17760599.shtml)
-- 2026-06-29 20:14 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/531735350922.shtml)
-- 2026-06-29 19:55 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/3463245.shtml)
-- 2026-06-29 19:50 - [林逸向方筱然求婚了](https://www.share.kurohicncr.top/Article/details/408677131637.shtml)
-- 2026-06-29 19:49 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.minike.top/Article/details/533843767.shtml)
+- 2026-06-29 19:57 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/0031462.shtml)
+- 2026-06-29 20:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/2424595684.shtml)
+- 2026-06-29 20:12 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/911220.shtml)
+- 2026-06-29 20:05 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/9719229691.shtml)
+- 2026-06-29 20:08 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/1188955.shtml)
+- 2026-06-29 20:08 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/84141568.shtml)
+- 2026-06-29 19:54 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/97051605.shtml)
+- 2026-06-29 19:59 - [大马同意延长马航370残骸搜寻工作](http://www.share.kurohicncr.top/Article/details/9134294.shtml)
+- 2026-06-29 20:17 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/0841363.shtml)
+- 2026-06-29 20:04 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/5718542.shtml)
+- 2026-06-29 20:07 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/304794.shtml)
+- 2026-06-29 19:58 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/123565.shtml)
+- 2026-06-29 20:09 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/159824578.shtml)
+- 2026-06-29 20:11 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/44679351499.shtml)
+- 2026-06-29 20:19 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/623387.shtml)

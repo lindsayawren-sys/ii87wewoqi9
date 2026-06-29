@@ -1,60 +1,59 @@
-# 大湾区锂电池海运出口“一箱制”落地 助力“新三样”高效出海
+# 内部晋升两名副总裁，1500亿人保健康领导班子年轻化愈加凸显
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-记者从广东海事局了解到，5月7日，装载东莞制造锂电池产品的集装箱货车从东莞启运，约90分钟后抵达深圳盐田港，被直接吊装上货轮发往海外市场，这标志着莞深锂电池海运出口“一箱制”新模式完成首单运输，正式进入常态化运行，为粤港澳大湾区跨境贸易便利化再添一项重要制度创新成果。今后，符合条件的东莞锂电池产品在装箱阶段完成查验后，即可直接从盐田港装船出海，将服务东莞约400多家锂电池生产企
+来源：险企高参 原标题：内部晋升两名副总裁，1500亿人保健康领导班子年轻化愈加凸显：社保事业部张万强、财务负责人兼总精获提拔；4大健康险司去年合收保费926亿 人保健康三位高级管理人员履历调整，张万强内部提拔为副总裁；温家振新增副总裁职务；初丽丽职务调整为首席合规官兼法律合规部总经理、风险管理部总经理。 4月1日，《险企高参》注意到，人保健康三位高级管理人员履历调整，其中社会
 
 ## 正文
 
-记者从广东海事局了解到，5月7日，装载东莞制造锂电池产品的集装箱货车从东莞启运，约90分钟后抵达深圳盐田港，被直接吊装上货轮发往海外市场，这标志着莞深锂电池海运出口“一箱制”新模式完成首单运输，正式进入常态化运行，为粤港澳大湾区跨境贸易便利化再添一项重要制度创新成果。
+来源：险企高参 原标题：内部晋升两名副总裁，1500亿人保健康领导班子年轻化愈加凸显：社保事业部张万强、财务负责人兼总精获提拔；4大健康险司去年合收保费926亿 人保健康三位高级管理人员履历调整，张万强内部提拔为副总裁；温家振新增副总裁职务；初丽丽职务调整为首席合规官兼法律合规部总经理、风险管理部总经理。
 
-今后，符合条件的东莞锂电池产品在装箱阶段完成查验后，即可直接从盐田港装船出海，将服务东莞约400多家锂电池生产企业高效出海。
+4月1日，《险企高参》注意到，人保健康三位高级管理人员履历调整，其中社会保险事业部总经理张万强内部提拔为副总裁；财务负责人兼总精算师温家振新增副总裁职务；合规负责人初丽丽职务调整为首席合规官兼法律合规部总经理、风险管理部总经理。
 
-锂电池作为我国外贸出口“新三样”之一，东莞是重要的锂电池生产基地。
+随着四大上市保司年度业绩发布会落幕，人保健康、平安健康、太保健康以及复星联合健康四家专业健康险司的业绩也相继出炉：四家合计实现保险业务收入925.8亿元，同比增长14.56%；净利润110.57亿元，同比大增171.98%。
 
-过去，东莞生产的锂电池在装箱后，到达盐田港会由深圳海事部门进行抽查，一旦遇上查验高峰，往往需要滞港等待，产生吊装、堆存、人工等额外费用。
+其中，2025年人保健康保险业务收入562.66亿元稳居同业之首。
 
-在抽查过程中一旦发现问题，企业货物将无法出海并折返。
+张万强、温家振晋升人保健康副总裁 据公司官网消息，张万强自2026年2月起任人保健康副总裁，此前职务是该司社会保险事业部总经理。
 
-不仅增加了企业出口物流成本，也影响了出口效率。
+去年底，人保健康副总裁、董事会秘书李晓峰因达到法定退休年龄，已正式卸任，张万强或是补位而来。
 
-现在，通过“一箱制”的新模式，东莞企业在工厂装箱阶段，即可申请海事部门上门查验，产品查验合格后，就可以直达深圳盐田港出海。
+这家头部健康险公司副总裁退休卸任！
 
-深圳海事部门一般不再重复开箱查验，实现“一次查验、一箱到底”。
+履历上，张万强是人保系“老将”，期间经历“老人保”拆分，而后加入中国人寿，并于2010年重新回到人保体系。
 
 ## 相关推荐
 
-- 2026-06-29 19:50 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 20:05 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 20:11 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 20:05 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 20:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 19:50 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 19:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 19:57 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 20:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 19:54 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 20:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 20:10 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-29 19:50 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 19:51 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 20:15 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 20:05 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 20:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 20:20 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 20:17 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 19:56 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 20:21 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 20:15 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 19:54 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 20:09 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 19:59 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 20:06 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 19:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:07 - [我们的少年时代2](https://www.blog.minike.top/Article/details/07550.shtml)
-- 2026-06-29 19:54 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/923161.shtml)
-- 2026-06-29 20:15 - [天气热脾气都变差了](http://www.blog.minike.top/Article/details/5212262960.shtml)
-- 2026-06-29 20:12 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/0282203.shtml)
-- 2026-06-29 19:56 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.kurohicncr.top/Article/details/944437853659.shtml)
-- 2026-06-29 19:57 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.kurohicncr.top/Article/details/16253.shtml)
-- 2026-06-29 20:02 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/41748383.shtml)
-- 2026-06-29 20:14 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/29998.shtml)
-- 2026-06-29 20:08 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/47137325251.shtml)
-- 2026-06-29 19:48 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/802947.shtml)
-- 2026-06-29 19:59 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/86439320145.shtml)
-- 2026-06-29 20:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/805135.shtml)
-- 2026-06-29 20:00 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/45148.shtml)
-- 2026-06-29 19:52 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/84951.shtml)
-- 2026-06-29 20:08 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/6791097.shtml)
+- 2026-06-29 20:02 - [CORTIS 小牌大耍](https://www.share.kurohicncr.top/Article/details/328604609.shtml)
+- 2026-06-29 20:04 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/74939444396.shtml)
+- 2026-06-29 20:04 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/265236018958.shtml)
+- 2026-06-29 20:06 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/64088.shtml)
+- 2026-06-29 20:22 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/54307111191.shtml)
+- 2026-06-29 20:12 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/01536408.shtml)
+- 2026-06-29 20:06 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/6740375181.shtml)
+- 2026-06-29 20:16 - [福建海警位金门附近海域常态执法巡查](http://www.share.minike.top/Article/details/786912807.shtml)
+- 2026-06-29 19:57 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/202885369.shtml)
+- 2026-06-29 20:09 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/760869927.shtml)
+- 2026-06-29 19:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/239278.shtml)
+- 2026-06-29 19:58 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/12635957.shtml)
+- 2026-06-29 20:18 - [日美楼市危机复盘：见底顺序曝光](http://www.share.kurohicncr.top/Article/details/8956122.shtml)
+- 2026-06-29 20:09 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/142630.shtml)
+- 2026-06-29 20:04 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/46411491062.shtml)

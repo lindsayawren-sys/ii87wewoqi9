@@ -1,54 +1,46 @@
-# 福耀玻璃午前涨超3% 首季度毛利率表现超预期
+# 安徽黄山：雨中齐云山尽显江南诗意
 
-> 更新时间：2026-06-29 20:18:02 UTC+8
+> 更新时间：2026-06-29 20:24:02 UTC+8
 
 ## 摘要
 
-福耀玻璃（03606）午前涨超3%，截至发稿，股价上涨3.11%，现报64.75港元，成交额1.15亿港元。 长江证券研报指出，在26Q1全球汽车产销承压背景下，福耀玻璃Q1期间凭借高附加值玻璃占比提升及市占率持续提升，实现营业收入104.1亿元，同比增长5.1%，环比下降16.6%，收入增速表现持续超全球下游市场表现。26Q1海外天然气、电价、海运费等成本均有所上涨，公司凭借
+发布时间：2026年04月08日 14:00 来源：中国新闻网 4月7日，安徽黄山市，烟雨笼罩下的齐云山，山体在雨雾中若隐若现。山下横江流水潺潺，两岸徽派民居粉黛灰瓦错落有致，勾勒出一幅温润雅致的水墨徽州画卷。作者：吴芳 责任编辑：【魏聪聪】
 
 ## 正文
 
-福耀玻璃（03606）午前涨超3%，截至发稿，股价上涨3.11%，现报64.75港元，成交额1.15亿港元。
+发布时间：2026年04月08日 14:00 来源：中国新闻网 4月7日，安徽黄山市，烟雨笼罩下的齐云山，山体在雨雾中若隐若现。
 
-长江证券研报指出，在26Q1全球汽车产销承压背景下，福耀玻璃Q1期间凭借高附加值玻璃占比提升及市占率持续提升，实现营业收入104.1亿元，同比增长5.1%，环比下降16.6%，收入增速表现持续超全球下游市场表现。
+山下横江流水潺潺，两岸徽派民居粉黛灰瓦错落有致，勾勒出一幅温润雅致的水墨徽州画卷。
 
-26Q1海外天然气、电价、海运费等成本均有所上涨，公司凭借优秀的成本控制能力，加之国内纯碱、天然气成本下降，公司2026Q1毛利率达37.4%，同比提升2.0pct，环比增长0.3pct。
-
-该行续指，公司汽玻盈利能力远超竞争对手，后者因玻璃业务盈利较差发展重心已经转移，通过深耕汽玻业务，公司全球份额有望持续提升。
-
-公司拓展“一片玻璃”的边界，加强对玻璃智能、集成趋势的研究，持续推进铝饰件业务，铝饰件业务与汽车玻璃业务具有协同效应，长期发展空间巨大，将带来全新增量。
-
-责任编辑：卢昱君
+作者：吴芳 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 20:14 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 20:07 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 20:05 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 19:57 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 19:53 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 20:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 19:57 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 20:14 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 20:00 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 20:01 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 20:04 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 19:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 20:04 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 20:13 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 20:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 20:21 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 20:10 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 20:02 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 20:00 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 20:15 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 20:16 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 20:18 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:54 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/95271.shtml)
-- 2026-06-29 19:57 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/12720655.shtml)
-- 2026-06-29 19:56 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/6700763.shtml)
-- 2026-06-29 19:57 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/7251681090.shtml)
-- 2026-06-29 19:56 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/22889384.shtml)
-- 2026-06-29 20:14 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/439696265.shtml)
-- 2026-06-29 19:59 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/868843.shtml)
-- 2026-06-29 19:56 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/596948.shtml)
-- 2026-06-29 20:12 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/97761082170.shtml)
-- 2026-06-29 20:17 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/18058452.shtml)
-- 2026-06-29 20:05 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.kurohicncr.top/Article/details/468456.shtml)
-- 2026-06-29 19:50 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/02043.shtml)
-- 2026-06-29 20:16 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/224698594988.shtml)
-- 2026-06-29 20:02 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/97090758.shtml)
-- 2026-06-29 20:05 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/4751818702.shtml)
+- 2026-06-29 20:02 - [爱奇艺抬高国剧新标尺](http://www.blog.minike.top/Article/details/56648897.shtml)
+- 2026-06-29 20:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/12988.shtml)
+- 2026-06-29 20:15 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/648396713693.shtml)
+- 2026-06-29 20:02 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/56599506.shtml)
+- 2026-06-29 20:06 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/20462.shtml)
+- 2026-06-29 19:59 - [李思潼：不会介意大家夸我运气好](https://www.blog.kurohicncr.top/Article/details/768260335.shtml)
+- 2026-06-29 20:19 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/78132451592.shtml)
+- 2026-06-29 20:16 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/66605.shtml)
+- 2026-06-29 20:17 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/03382758.shtml)
+- 2026-06-29 19:58 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/3579643.shtml)
+- 2026-06-29 20:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/5384126.shtml)
+- 2026-06-29 20:10 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/44794336.shtml)
+- 2026-06-29 20:21 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/13624098.shtml)
+- 2026-06-29 20:17 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/536973550010.shtml)
+- 2026-06-29 20:07 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/5228615100.shtml)
