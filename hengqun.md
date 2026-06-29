@@ -1,57 +1,57 @@
-# 中外人权专家感受武汉城市焕新：老地标成打卡地
+# 法国参议院通过关于简化非法所获文物归还程序的法律草案
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新网武汉6月8日电 (记者 武一力)“人权行动看中国·2026”主题参访活动湖北行7日在武汉启动，多个国际组织的官员、代表、专家与中国人权学者共同参访、交流。 记者随团在武汉青山江滩现场看到，不少居民在此玩滑板、跑步、露营，还有中学生前来开展自然科普活动，滨江岸线分布着婚纱摄影馆、咖啡馆等。 据介绍，青山江滩是湖北省首个“海绵江滩”，岸线采用生态缓坡堤防设计，搭配雨水花园、生
+新华社巴黎5月7日电(记者张百慧)法国参议院7日以343票赞成、0票反对的投票结果，通过一项旨在简化非法所获他国文物归还程序的法律草案。草案文本此前由议会两院对等混合委员会协商达成一致，已于6日在国民议会表决通过。为回应多国提出的文物追索请求，这项立法拟授权法国政府通过行政程序批准文物归还事宜，无需逐案立法。法案允许在符合归还条件的情况下，将1815年至1972年间法国以偷盗、
 
 ## 正文
 
-中新网武汉6月8日电 (记者 武一力)“人权行动看中国·2026”主题参访活动湖北行7日在武汉启动，多个国际组织的官员、代表、专家与中国人权学者共同参访、交流。
+新华社巴黎5月7日电(记者张百慧)法国参议院7日以343票赞成、0票反对的投票结果，通过一项旨在简化非法所获他国文物归还程序的法律草案。
 
-记者随团在武汉青山江滩现场看到，不少居民在此玩滑板、跑步、露营，还有中学生前来开展自然科普活动，滨江岸线分布着婚纱摄影馆、咖啡馆等。
+草案文本此前由议会两院对等混合委员会协商达成一致，已于6日在国民议会表决通过。
 
-据介绍，青山江滩是湖北省首个“海绵江滩”，岸线采用生态缓坡堤防设计，搭配雨水花园、生态草溪等低碳设施，全域绿化率达80%，可有效实现雨水调蓄与水体净化，生态自净与涵养能力突出。
+为回应多国提出的文物追索请求，这项立法拟授权法国政府通过行政程序批准文物归还事宜，无需逐案立法。
 
-武汉市青山区水务和湖泊局副局长周凯斌表示，眼前人与自然一派和谐的场景来之不易。
+法案允许在符合归还条件的情况下，将1815年至1972年间法国以偷盗、掠夺等方式所得的外国文物，从“公共领域”中“移出”，从而简化归还程序。
 
-青山区是武汉的工业大区，曾经码头密布、砂石遍地。
+同时，法案对可归还文物的认定标准及归还流程设定了一系列限制条件。
 
-当地在保留工业遗迹基础上，全面实施岸线整治与生态修复，昔日的“塌岸险段”蝶变为“生态秀带”，成为全民共享的滨江公共空间。
+按程序，法律草案经议会两院通过完全一致的文本后，总统应在15天内颁布该法律。
 
-来到武汉东湖绿道，乌拉圭发展研究中心首席经济学家顾问玛丽亚·弗洛伦西亚·波罗频频拿起手机记录湖畔美景。
+在此期间，法案可能被提请进行合宪审查等程序。
 
-这条国内首条城区5A级景区绿道全长105公里，全域践行海绵城市建设理念，通过布设生物通道、打造水下森林生态系统，系统性守护区域生物多样性。
+若审查启动，颁布期限将相应顺延。
 
 ## 相关推荐
 
-- 2026-06-29 18:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 18:31 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 18:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 18:20 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 18:19 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 18:36 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 18:31 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 18:46 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 18:34 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 18:19 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 18:46 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 18:31 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 18:28 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 18:35 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 18:51 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 18:43 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 18:38 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 18:48 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 18:48 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 18:44 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 18:45 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 18:37 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:41 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/637939.shtml)
-- 2026-06-29 18:37 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/60725.shtml)
-- 2026-06-29 18:20 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/652141269.shtml)
-- 2026-06-29 18:32 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/11734.shtml)
-- 2026-06-29 18:23 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/882507678611.shtml)
-- 2026-06-29 18:44 - [中方向委方追加1亿元援助](http://www.blog.kurohicncr.top/Article/details/2736497.shtml)
-- 2026-06-29 18:34 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/583149236.shtml)
-- 2026-06-29 18:47 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/300466.shtml)
-- 2026-06-29 18:34 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/95175.shtml)
-- 2026-06-29 18:25 - [普京承认俄出现燃料危机](http://www.share.kurohicncr.top/Article/details/366006152738.shtml)
-- 2026-06-29 18:19 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/7573411159.shtml)
-- 2026-06-29 18:41 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/12103.shtml)
-- 2026-06-29 18:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/6787851756.shtml)
-- 2026-06-29 18:39 - [歼-15型舰载机为何被歼-15T替代](https://www.share.minike.top/Article/details/4536387.shtml)
-- 2026-06-29 18:35 - [货车司机雨中帮交警挪树获表扬](http://www.blog.minike.top/Article/details/6765678.shtml)
+- 2026-06-29 18:43 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/884507909.shtml)
+- 2026-06-29 18:44 - [网红小徐直播时突遇地震](https://www.blog.minike.top/Article/details/0145887.shtml)
+- 2026-06-29 18:32 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/4861228673.shtml)
+- 2026-06-29 18:51 - [央视曝光涉黄App诈骗陷阱](https://www.blog.kurohicncr.top/Article/details/72021632375.shtml)
+- 2026-06-29 18:26 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.kurohicncr.top/Article/details/435490764632.shtml)
+- 2026-06-29 18:25 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/446403.shtml)
+- 2026-06-29 18:26 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/393128720.shtml)
+- 2026-06-29 18:31 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/4814654.shtml)
+- 2026-06-29 18:33 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/893022.shtml)
+- 2026-06-29 18:32 - [人类对空调和其他家电有多双标](http://www.blog.minike.top/Article/details/98675066.shtml)
+- 2026-06-29 18:51 - [范志毅看好日本淘汰巴西](http://www.share.minike.top/Article/details/177576273.shtml)
+- 2026-06-29 18:38 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/760766788005.shtml)
+- 2026-06-29 18:29 - [周生如故](http://www.blog.minike.top/Article/details/42306775382.shtml)
+- 2026-06-29 18:46 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/146002731.shtml)
+- 2026-06-29 18:34 - [当家电外通风口出现鸟窝](http://www.blog.minike.top/Article/details/64725.shtml)

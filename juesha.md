@@ -1,57 +1,61 @@
-# 曹操出行盘中涨超10% 据报曹操出行计划组建独立AI事业部
+# 阿波罗CEO警告巨大地缘政治重组来袭 世界尚未做好准备
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-曹操出行盘中涨超10%，截至发稿，股价上涨7.39%，现报32.28港元，成交额7333.99万港元。 据科创板日报消息，曹操出行计划组建独立AI事业部，全面推进公司AI战略落地，完成从移动互联网公司到AI原生公司的关键转型。同时，记者注意到，该公司近期已在招聘平台上线“首席AI官”岗位，岗位职责包括：制定AI战略与技术路线、构建AI核心能力体系、推动业务全链路AI赋能等。 值
+阿波罗全球管理公司首席执行官Marc Rowan表示，世界还没有做好准备应对人工智能、价格压力和不断上升的政府债务带来的冲击。 Rowan周四在华盛顿特区举行的全国保险专员协会论坛上表示，随着关税上涨和制造业向国内转移，一场“巨大的地缘政治重组”正在进行中。 他补充说，其中一些措施，例如限制商品和劳动力的自由流动，可能会引发通胀。他说：“但我们还没有真正看到通胀。” 这场行业洗
 
 ## 正文
 
-曹操出行盘中涨超10%，截至发稿，股价上涨7.39%，现报32.28港元，成交额7333.99万港元。
+阿波罗全球管理公司首席执行官Marc Rowan表示，世界还没有做好准备应对人工智能、价格压力和不断上升的政府债务带来的冲击。
 
-据科创板日报消息，曹操出行计划组建独立AI事业部，全面推进公司AI战略落地，完成从移动互联网公司到AI原生公司的关键转型。
+Rowan周四在华盛顿特区举行的全国保险专员协会论坛上表示，随着关税上涨和制造业向国内转移，一场“巨大的地缘政治重组”正在进行中。
 
-同时，记者注意到，该公司近期已在招聘平台上线“首席AI官”岗位，岗位职责包括：制定AI战略与技术路线、构建AI核心能力体系、推动业务全链路AI赋能等。
+他补充说，其中一些措施，例如限制商品和劳动力的自由流动，可能会引发通胀。
 
-值得注意的是，香港交易所近日宣布科技100指数半年度调整结果，曹操出行正式获纳入该指数成分股。
+他说：“但我们还没有真正看到通胀。
 
-本次调整将于6月12日收市后正式生效，6月15日起执行。
+” 这场行业洗牌将造就赢家和输家。
 
-此次入选标志着资本市场对曹操出行在Robotaxi与AI领域技术布局的认可。
+体力劳动者将受益于建筑业的蓬勃发展，而专业服务业则会受到冲击。
 
-同时，公司还将获得追踪该指数的被动资金持续流入，流动性有望进一步提升。
+他表示，这将给政府带来压力，并促使其进行重大政策调整。
 
-责任编辑：卢昱君
+Rowan说：“我们将看到蓝领阶层崛起，白领阶层面临压力。
 
 ## 相关推荐
 
-- 2026-06-29 18:34 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 18:39 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 18:24 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 18:26 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 18:35 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 18:47 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 18:29 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 18:19 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 18:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 18:45 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 18:35 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 18:41 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 18:47 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 18:35 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 18:25 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 18:44 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 18:28 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 18:51 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 18:41 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 18:32 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 18:48 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 18:45 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 18:30 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 18:52 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 18:37 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 18:24 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:36 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/63860507.shtml)
-- 2026-06-29 18:46 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/9233802400.shtml)
-- 2026-06-29 18:44 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/7781032789.shtml)
-- 2026-06-29 18:43 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.minike.top/Article/details/3770760.shtml)
-- 2026-06-29 18:47 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/645991881.shtml)
-- 2026-06-29 18:42 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/24274792.shtml)
-- 2026-06-29 18:36 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/1954990188.shtml)
-- 2026-06-29 18:43 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/70197324974.shtml)
-- 2026-06-29 18:41 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/606873202150.shtml)
-- 2026-06-29 18:28 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/0112854261.shtml)
-- 2026-06-29 18:30 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/21611076.shtml)
-- 2026-06-29 18:22 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/11591696.shtml)
-- 2026-06-29 18:37 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/95634899.shtml)
-- 2026-06-29 18:25 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/70653.shtml)
-- 2026-06-29 18:37 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/5286843.shtml)
+- 2026-06-29 18:48 - [小娘惹](https://www.share.minike.top/Article/details/89527.shtml)
+- 2026-06-29 18:53 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.minike.top/Article/details/381585908898.shtml)
+- 2026-06-29 18:41 - [沙丘](http://www.share.kurohicncr.top/Article/details/610110310.shtml)
+- 2026-06-29 18:34 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/0042755.shtml)
+- 2026-06-29 18:30 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/0747715906.shtml)
+- 2026-06-29 18:52 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/8784247637.shtml)
+- 2026-06-29 18:28 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/759286367512.shtml)
+- 2026-06-29 18:38 - [四川地震前夕 街头电线上站满燕子](http://www.blog.minike.top/Article/details/65259.shtml)
+- 2026-06-29 18:47 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/549848.shtml)
+- 2026-06-29 18:43 - [起风了](https://www.share.minike.top/Article/details/39569270569.shtml)
+- 2026-06-29 18:35 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/492536.shtml)
+- 2026-06-29 18:34 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/42060.shtml)
+- 2026-06-29 18:42 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/428116.shtml)
+- 2026-06-29 18:35 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/73029460.shtml)
+- 2026-06-29 18:54 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/473028498413.shtml)

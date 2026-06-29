@@ -1,52 +1,59 @@
-# 壮锦“牵手”世界杯 广西非遗文创亮相美加墨全球赛场
+# 创投月报 | 天空工场创投基金：4月投资事件数同环比双升 一半项目聚焦追觅“大本营”江苏
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 08:10 来源：中国新闻网 近期，美加墨世界杯在大中华区推出官方系列授权产品，中国织锦工艺大师谭湘光团队制作的壮锦足球、壮锦球服、“壮球孃孃”摆件等系列文创产品在4月中旬成功入围，这是壮锦首次进入全球顶级体育赛事。 6月8日，谭湘光在接受中新社记者采访时介绍，广西的壮锦能够借助世界杯的舞台走向世界，是一件很有意义的事，它可以让更多人认识壮锦。
+创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关 基于公开数据不完全统计，2026年4月新增私募股权、创业投资基金管理人6家，同比“腰斩”、环比翻番；新增备案私募股权基金159只、创业投资基金506只，合计新增665只，环比虽微降2.2%，但较2025年同期增长59.5%。 投资端活跃度同样走高。4月国内共发生股权投资事件680起，同比提高
 
 ## 正文
 
-发布时间：2026年06月09日 08:10 来源：中国新闻网 近期，美加墨世界杯在大中华区推出官方系列授权产品，中国织锦工艺大师谭湘光团队制作的壮锦足球、壮锦球服、“壮球孃孃”摆件等系列文创产品在4月中旬成功入围，这是壮锦首次进入全球顶级体育赛事。
+创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关 基于公开数据不完全统计，2026年4月新增私募股权、创业投资基金管理人6家，同比“腰斩”、环比翻番；新增备案私募股权基金159只、创业投资基金506只，合计新增665只，环比虽微降2.2%，但较2025年同期增长59.5%。
 
-6月8日，谭湘光在接受中新社记者采访时介绍，广西的壮锦能够借助世界杯的舞台走向世界，是一件很有意义的事，它可以让更多人认识壮锦。
+投资端活跃度同样走高。
 
-为进一步拓宽市场销售渠道，谭湘光已获得一家央企扶持，将在全国多个高速服务区，设立壮锦世界杯授权产品展销专区，通过“央企+非遗+乡村振兴”帮扶模式，让更多消费者体验壮锦文化魅力，同时，帮助更多乡村、社区工坊的织娘们，实现居家灵活就业。
+4月国内共发生股权投资事件680起，同比提高31.3%，环比回落14.8%；披露投资总额达748.60亿元，再次刷新近一年内纪录，与3月相比增加7.8%，约为2025年4月的3.22倍。
 
-据悉，美加墨世界杯将于6月中旬至7月在美国、加拿大、墨西哥举行，届时上千款官方授权产品，将通过线上官方旗舰店、线下快闪店等多渠道全面发售。
+创投Plus本月聚焦市场活跃度较高的3家机构，围绕其投资节奏、阶段、行业偏好以及被投项目等方面展开解读。
 
-陈沿佑 广西南宁报道 责任编辑：【苏亦瑜】
+六只基金合募超53亿 四分之三为早期项目 结合中国证券投资基金业协会和天眼查披露的公开信息显示，天空工场创投基金（简称：天空工场）成立于2023年，前身是消费电子及智能制造公司追觅科技旗下的企业风险投资（CVC）追创创投，重点围绕AI及泛机器人上下游产业链进行投资布局。
+
+2025年4月，天空工场完成绍兴百亿基金——绍兴市追觅生态股权投资合伙企业（有限合伙）的首期募集，注册出资额为30亿元，由追觅科技持股54%，绍兴金控以及盛世投资代管的绍兴市滨海新区和越城区出资实体合计持股45%。
+
+2026开年以来，天空工场共登记备案了6只基金，注册出资额合计53.33亿元。
+
+其中，3月备案的潜江天空工场创业投资合伙企业（有限合伙），总规模为10亿元，主要LP为湖北省潜江市国资委，三个出资实体共持股80.0%。
 
 ## 相关推荐
 
-- 2026-06-29 18:21 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 18:27 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 18:41 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 18:42 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 18:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 18:27 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 18:40 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 18:33 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 18:43 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 18:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 18:30 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 18:22 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 18:51 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 18:37 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 18:26 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 18:35 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 18:50 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 18:40 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 18:39 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 18:37 - [王俊凯命名方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 18:54 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 18:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 18:25 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 18:53 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 18:26 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:37 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/40340390.shtml)
-- 2026-06-29 18:44 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/258701.shtml)
-- 2026-06-29 18:26 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/348072221653.shtml)
-- 2026-06-29 18:28 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/66811389966.shtml)
-- 2026-06-29 18:23 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/865599701.shtml)
-- 2026-06-29 18:28 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/1881046.shtml)
-- 2026-06-29 18:31 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/3125225603.shtml)
-- 2026-06-29 18:26 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/46010142618.shtml)
-- 2026-06-29 18:28 - [疑似吴建豪老婆正脸照](http://www.blog.minike.top/Article/details/41250626254.shtml)
-- 2026-06-29 18:21 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/07049691.shtml)
-- 2026-06-29 18:45 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/988554.shtml)
-- 2026-06-29 18:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/82025136938.shtml)
-- 2026-06-29 18:26 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/5400553750.shtml)
-- 2026-06-29 18:24 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/91255.shtml)
-- 2026-06-29 18:19 - [首个靠AI躺赢的国家](https://www.share.kurohicncr.top/Article/details/329611.shtml)
+- 2026-06-29 18:45 - [小娘惹](https://www.blog.minike.top/Article/details/11374653196.shtml)
+- 2026-06-29 18:29 - [蔚来回应车漆洗车时被冲掉](http://www.blog.kurohicncr.top/Article/details/592614933527.shtml)
+- 2026-06-29 18:28 - [天道](https://www.blog.minike.top/Article/details/91836057724.shtml)
+- 2026-06-29 18:35 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/857535.shtml)
+- 2026-06-29 18:46 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/783129662.shtml)
+- 2026-06-29 18:24 - [金牌调解](http://www.share.kurohicncr.top/Article/details/180607904.shtml)
+- 2026-06-29 18:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/498236.shtml)
+- 2026-06-29 18:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/859991.shtml)
+- 2026-06-29 18:47 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/440726414569.shtml)
+- 2026-06-29 18:46 - [NBA交易](http://www.share.minike.top/Article/details/055645930167.shtml)
+- 2026-06-29 18:25 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/657331276.shtml)
+- 2026-06-29 18:50 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/54283.shtml)
+- 2026-06-29 18:33 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/20886.shtml)
+- 2026-06-29 18:41 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/289948645.shtml)
+- 2026-06-29 18:50 - [沉睡花园](https://www.blog.minike.top/Article/details/59730142825.shtml)

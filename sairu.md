@@ -1,61 +1,60 @@
-# 2026年高考语文试题释放哪些新信号
+# 中国信通院联合腾讯、华为等发起智能体可信握手协议（ATH），建立智能体开源社区
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-6月7日，2026年全国统一高考正式拉开帷幕。 高考语文试题一直受到社会的广泛关注。2026年高考作文有哪些新变化？语文试卷命题变化释放出哪些“教与学”的新信号？中青报·中青网记者第一时间采访了语文教育专家及一线教师，请他们对今年高考语文试题进行解读。 教育部教育考试院负责人介绍，今年高考命题立足基础教育改革发展实际情况，优化试卷内容结构和试题呈现方式，突出对主干知识和重点内容
+IT之家 5 月 7 日消息，中国信通院今日宣布，为补齐产业交互安全短板，打通开源智能体生态信任壁垒，构建开放、规范、安全的产业发展环境，中国信息通信研究院（简称“中国信通院”）依托云计算开源产业联盟联合产业各方发起“智能体开源社区”。社区聚焦智能体开源生态建设与可信交互标准体系构建，以凝聚产业多方力量为核心，汇聚行业企业、科研机构等多方主体资源，聚力破解开源智能体协同交互的信
 
 ## 正文
 
-6月7日，2026年全国统一高考正式拉开帷幕。
+IT之家 5 月 7 日消息，中国信通院今日宣布，为补齐产业交互安全短板，打通开源智能体生态信任壁垒，构建开放、规范、安全的产业发展环境，中国信息通信研究院（简称“中国信通院”）依托云计算开源产业联盟联合产业各方发起“智能体开源社区”。
 
-高考语文试题一直受到社会的广泛关注。
+社区聚焦智能体开源生态建设与可信交互标准体系构建，以凝聚产业多方力量为核心，汇聚行业企业、科研机构等多方主体资源，聚力破解开源智能体协同交互的信任与安全难题，全方位推动开源智能体技术安全迭代、规范落地与规模化产业应用。
 
-2026年高考作文有哪些新变化？
+同时，针对当前智能体交互场景的各类行业痛点，中国信通院、中国电信集团有限公司、中国联合网络通信有限公司、中移九天人工智能科技（北京）有限公司、香港中文大学（深圳）、中兴通讯股份有限公司、腾讯科技（北京）有限公司、华为技术有限公司共同发起智能体可信握手协议（ATH）1.0。
 
-语文试卷命题变化释放出哪些“教与学”的新信号？
+该协议聚焦多智能体跨主体、跨平台协同交互场景，搭建了专业、通用、标准化的智能体可信交互框架，精准覆盖 AI 智能体身份互验、访问权限管控、行为审计等核心场景，为全行业智能体交互场景提供技术标准与落地依据。
 
-中青报·中青网记者第一时间采访了语文教育专家及一线教师，请他们对今年高考语文试题进行解读。
+智能体可信握手协议（ATH）1.0 已正式在 AtomGit、GitHub 开源发布，诚邀行业伙伴共参共建、迭代与生态落地。
 
-教育部教育考试院负责人介绍，今年高考命题立足基础教育改革发展实际情况，优化试卷内容结构和试题呈现方式，突出对主干知识和重点内容的考查，杜绝偏题、怪题、超标题，保持试题总体难度稳定，确保试题内容的公平性。
+智能体可信握手协议（ATH）秉持用户主权、三方参与、可信握手、去中心化、最小权限、全程可追溯六大核心设计理念，搭建用户、智能体、应用三方协同的专属握手机制。
 
-命题组专家分析，此次试题与时俱进，展现时代风貌、弘扬优秀传统，引导学生关注社会生活中的新变化，关注反映时代特点的鲜活的新词语。
+协议构建了身份验证、可信握手、安全会话的全流程标准化体系，可对智能体各类交互行为实现全方位可信治理。
 
-关注社会生活新变化 今年高考语文全国卷最明显的变化之一，是选材领域多元化，拓宽试题边界。
+参考
 
 ## 相关推荐
 
-- 2026-06-29 18:24 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 18:33 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 18:22 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 18:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 18:22 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 18:47 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 18:29 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 18:43 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 18:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 18:30 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 18:40 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 18:47 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 18:29 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 18:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 18:45 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 18:32 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 18:31 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 18:32 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 18:50 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 18:45 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 18:26 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 18:39 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 18:26 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 18:32 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 18:36 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 18:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 18:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 18:25 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 18:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:40 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/506771506.shtml)
-- 2026-06-29 18:47 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/99898.shtml)
-- 2026-06-29 18:45 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/59707893792.shtml)
-- 2026-06-29 18:24 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/50928.shtml)
-- 2026-06-29 18:31 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/097918178279.shtml)
-- 2026-06-29 18:20 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/369102906613.shtml)
-- 2026-06-29 18:19 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/0822778404.shtml)
-- 2026-06-29 18:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/613710.shtml)
-- 2026-06-29 18:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/619347.shtml)
-- 2026-06-29 18:30 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/6157056.shtml)
-- 2026-06-29 18:35 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/206329439931.shtml)
-- 2026-06-29 18:21 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/556507565428.shtml)
-- 2026-06-29 18:31 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.kurohicncr.top/Article/details/314655.shtml)
-- 2026-06-29 18:23 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/45072.shtml)
-- 2026-06-29 18:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/78844502375.shtml)
+- 2026-06-29 18:28 - [世界杯1/16决赛对阵出炉](https://www.share.minike.top/Article/details/0964524758.shtml)
+- 2026-06-29 18:49 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.minike.top/Article/details/146241.shtml)
+- 2026-06-29 18:32 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/787905638260.shtml)
+- 2026-06-29 18:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/29290.shtml)
+- 2026-06-29 18:32 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/320391026551.shtml)
+- 2026-06-29 18:36 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/8789162778.shtml)
+- 2026-06-29 18:41 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/91167419.shtml)
+- 2026-06-29 18:24 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/5788764476.shtml)
+- 2026-06-29 18:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/12108.shtml)
+- 2026-06-29 18:41 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/054451951124.shtml)
+- 2026-06-29 18:43 - [波兰创该国高温纪录](http://www.blog.minike.top/Article/details/7350154269.shtml)
+- 2026-06-29 18:41 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/5838967295.shtml)
+- 2026-06-29 18:47 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/041595.shtml)
+- 2026-06-29 18:51 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/6759594.shtml)
+- 2026-06-29 18:48 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/3556763341.shtml)

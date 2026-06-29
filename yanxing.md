@@ -1,55 +1,58 @@
-# 韩国准备开展现场外汇检查以抑制韩元投机交易
+# 交行原副行长退休5年仍落马 此前掌控IT审批大权
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-韩国财政部表示，将打击投机性外汇交易，监管机构计划进行现场检查，并对涉嫌扰乱市场的活动展开调查。 韩国财政部负责国际事务的副部长Moon Ji-sung在一份声明中表示，当局将重点打击旨在扭曲市场的交易，并于本周进行现场检查，调查参与者是否参与投机性交易。 声明还补充说，政府认为当前形势严峻，正与其他机构协调密切关注市场趋势和主要订单流向。 该计划是在财政部与外汇市场参与者和专
+来源：棱镜 5月7日，中央纪委国家监委网站发布消息，交通银行原党委委员、副行长侯维栋构成严重职务违法并涉嫌受贿犯罪，对其给予开除党籍处分，取消其享受的待遇，收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。 这是其在2025年10月因涉嫌严重违纪违法、接受调查的延续。需要指出的是，侯维栋于2020年4月从交行副行长任上到龄退休，然而退休五年后仍未能
 
 ## 正文
 
-韩国财政部表示，将打击投机性外汇交易，监管机构计划进行现场检查，并对涉嫌扰乱市场的活动展开调查。
+来源：棱镜 5月7日，中央纪委国家监委网站发布消息，交通银行原党委委员、副行长侯维栋构成严重职务违法并涉嫌受贿犯罪，对其给予开除党籍处分，取消其享受的待遇，收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
-韩国财政部负责国际事务的副部长Moon Ji-sung在一份声明中表示，当局将重点打击旨在扭曲市场的交易，并于本周进行现场检查，调查参与者是否参与投机性交易。
+这是其在2025年10月因涉嫌严重违纪违法、接受调查的延续。
 
-声明还补充说，政府认为当前形势严峻，正与其他机构协调密切关注市场趋势和主要订单流向。
+需要指出的是，侯维栋于2020年4月从交行副行长任上到龄退休，然而退休五年后仍未能平安落地。
 
-该计划是在财政部与外汇市场参与者和专家举行会议后制定的，此前在周末进行了紧急市场评估。
+中央纪委国家监委披露，侯维栋对抗组织审查，搞迷信活动；违反中央八项规定精神，违规接受宴请和旅游活动安排；不按规定报告个人有关事项，在职工录用、职务晋升等工作中为他人谋取利益并收受财物；廉洁底线失守，违规收受礼品、礼金、消费卡，借用管理和服务对象大额钱款，将应当由本人支付的费用由他人支付；毫无纪法底线，将金融科技资源配置权力异化为谋取个人私利的工具，大搞权钱交易，利用职务便利为他人在项目承揽、贷款融资等方面谋利，并非法收受巨额财物。
 
-韩元周二一度上涨1.2%，至1509.50，前交易日上涨2%，因当局重申遏制韩元疲软和调查投机交易的承诺。
+尤其是，“将金融科技资源配置权力异化为谋取个人私利的工具”，这与侯维栋在交行长期分管的科技工作密不可分。
 
-责任编辑：刘明亮
+侯维栋于2002年4月加入交行，自2004年8月起担任交通银行首席信息官，这是中国银行业首位首席信息官，侯维栋由此也被视为银行业的金融专家、技术专家。
+
+2010年12月起，侯维栋出任交行副行长、首席信息官（2017年1月起不再兼任首席信息官），在副行长任上直到2020年4月到龄退休。
+
+这意味着，侯维栋在交行担任首席信息官超12年，出任副行长近10年，更有近6年时间身兼两项要职，左手信贷审批权，右手掌握IT采购等决策，大权在握。
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 18:46 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 18:35 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 18:46 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 18:35 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 18:37 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 18:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 18:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 18:46 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-29 18:42 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 18:39 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 18:45 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 18:47 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 18:28 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 18:29 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 18:30 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 18:53 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 18:33 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 18:36 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 18:36 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 18:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 18:29 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 18:25 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 18:41 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 18:27 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:26 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/5241259.shtml)
-- 2026-06-29 18:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/52079.shtml)
-- 2026-06-29 18:36 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/31595242849.shtml)
-- 2026-06-29 18:43 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/49626.shtml)
-- 2026-06-29 18:42 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/2152467.shtml)
-- 2026-06-29 18:25 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/759836154461.shtml)
-- 2026-06-29 18:19 - [TTG KSG](https://www.share.minike.top/Article/details/330656.shtml)
-- 2026-06-29 18:29 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/3554783743.shtml)
-- 2026-06-29 18:41 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/423239.shtml)
-- 2026-06-29 18:21 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/91921343.shtml)
-- 2026-06-29 18:48 - [这一刀 会很帅](https://www.share.minike.top/Article/details/812534.shtml)
-- 2026-06-29 18:44 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/235368846.shtml)
-- 2026-06-29 18:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/74286.shtml)
-- 2026-06-29 18:24 - [流金岁月](http://www.share.kurohicncr.top/Article/details/409835.shtml)
-- 2026-06-29 18:47 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/40063093.shtml)
+- 2026-06-29 18:43 - [机器人学校开学了](http://www.share.kurohicncr.top/Article/details/032094088.shtml)
+- 2026-06-29 18:52 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/066953485.shtml)
+- 2026-06-29 18:47 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/090666597.shtml)
+- 2026-06-29 18:36 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.minike.top/Article/details/13430531.shtml)
+- 2026-06-29 18:43 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/1978761246.shtml)
+- 2026-06-29 18:51 - [绘画区你赢了](http://www.share.minike.top/Article/details/527213543368.shtml)
+- 2026-06-29 18:37 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/6803534.shtml)
+- 2026-06-29 18:28 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/97789563.shtml)
+- 2026-06-29 18:40 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/93487.shtml)
+- 2026-06-29 18:29 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.minike.top/Article/details/12388.shtml)
+- 2026-06-29 18:26 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/4495242.shtml)
+- 2026-06-29 18:51 - [税务总局披露5起合规申报个税案例](http://www.blog.minike.top/Article/details/682600.shtml)
+- 2026-06-29 18:28 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/40233.shtml)
+- 2026-06-29 18:27 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/32039958.shtml)
+- 2026-06-29 18:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/34285706.shtml)

@@ -1,56 +1,45 @@
-# 中巴（西）财金分委会第十二次会议在北京举行
+# 塔吉克斯坦总统拉赫蒙将对华进行国事访问
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新社北京6月9日电 (记者 赵建华)中国-巴西高层协调与合作委员会财金分委会(财金分委会)第十二次会议9日在北京举行。此次会议旨在落实两国元首重要共识，发挥各自优势，打造更多务实财金合作成果，为持续深化中巴命运共同体建设作出积极贡献。中国财政部副部长廖岷与巴西财政部副部长阿伦卡斯特罗共同主持此次会议。廖岷表示，中国共建“一带一路”倡议同巴西发展战略对接不断走深走实，各领域务实
+外交部发言人宣布： 应国家主席习近平邀请，塔吉克斯坦总统埃莫马利·拉赫蒙将于5月11日至14日对中国进行国事访问。
 
 ## 正文
 
-中新社北京6月9日电 (记者 赵建华)中国-巴西高层协调与合作委员会财金分委会(财金分委会)第十二次会议9日在北京举行。
-
-此次会议旨在落实两国元首重要共识，发挥各自优势，打造更多务实财金合作成果，为持续深化中巴命运共同体建设作出积极贡献。
-
-中国财政部副部长廖岷与巴西财政部副部长阿伦卡斯特罗共同主持此次会议。
-
-廖岷表示，中国共建“一带一路”倡议同巴西发展战略对接不断走深走实，各领域务实合作不断提质升级。
-
-当前，世界进入新的动荡变革期，发展中国家面临的挑战尤为严峻。
-
-中国愿与巴西一道，加强宏观经济政策沟通与协调，深化双边财金务实合作，加强多边机制协调与合作，以自身经济稳定发展为动荡的世界注入更多确定性。
-
-阿伦卡斯特罗表示，面对当前国际形势的不确定性，巴方愿同中方深化互信、实现共赢，围绕可持续农业、绿色转型、未来经济等领域与中方积极拓展双边合作，同时在国际舞台加强协调，共同推动双边财金合作迈上新台阶。
-
-会议围绕全球及中巴宏观经济形势，银行业、保险业、资本市场及贸易融资合作，中巴农业融资合作，可持续投融资，多边财金合作等议题进行了深入交流。
+外交部发言人宣布： 应国家主席习近平邀请，塔吉克斯坦总统埃莫马利·拉赫蒙将于5月11日至14日对中国进行国事访问。
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 18:46 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 18:46 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 18:35 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 18:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 18:46 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 18:32 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 18:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 18:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 18:35 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 18:26 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 18:48 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 18:44 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 18:47 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 18:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 18:50 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 18:43 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 18:48 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 18:44 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 18:38 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 18:51 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 18:48 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 18:35 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:35 - [许建琼任湖南省检察院副检察长](http://www.share.kurohicncr.top/Article/details/729707307027.shtml)
-- 2026-06-29 18:45 - [NBA交易](https://www.share.minike.top/Article/details/41612722198.shtml)
-- 2026-06-29 18:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/296121357745.shtml)
-- 2026-06-29 18:27 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/9721356820.shtml)
-- 2026-06-29 18:26 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/203482003.shtml)
-- 2026-06-29 18:35 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/199626.shtml)
-- 2026-06-29 18:47 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/5907596.shtml)
-- 2026-06-29 18:35 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/093245.shtml)
-- 2026-06-29 18:18 - [普京承认俄出现燃料危机](http://www.share.minike.top/Article/details/717689699288.shtml)
-- 2026-06-29 18:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/4696676324.shtml)
-- 2026-06-29 18:24 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/67140107.shtml)
-- 2026-06-29 18:31 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/28330141520.shtml)
-- 2026-06-29 18:35 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/59936692.shtml)
-- 2026-06-29 18:21 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/875563304.shtml)
-- 2026-06-29 18:46 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/170021.shtml)
+- 2026-06-29 18:53 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/24073203.shtml)
+- 2026-06-29 18:29 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/98378080.shtml)
+- 2026-06-29 18:44 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/54437.shtml)
+- 2026-06-29 18:38 - [爱很美味](https://www.share.kurohicncr.top/Article/details/959267.shtml)
+- 2026-06-29 18:26 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.minike.top/Article/details/23642152292.shtml)
+- 2026-06-29 18:37 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/076467.shtml)
+- 2026-06-29 18:38 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/88860084.shtml)
+- 2026-06-29 18:25 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/7468730965.shtml)
+- 2026-06-29 18:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/571683538.shtml)
+- 2026-06-29 18:35 - [互助版模拟高考志愿填报](https://www.blog.kurohicncr.top/Article/details/845890463.shtml)
+- 2026-06-29 18:24 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/63075667519.shtml)
+- 2026-06-29 18:49 - [流金岁月](https://www.share.minike.top/Article/details/70757535670.shtml)
+- 2026-06-29 18:32 - [送你一朵小红花](http://www.blog.minike.top/Article/details/069425684.shtml)
+- 2026-06-29 18:51 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/319191249.shtml)
+- 2026-06-29 18:30 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/59049159813.shtml)

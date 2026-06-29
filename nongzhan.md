@@ -1,56 +1,57 @@
-# 中投公司：吴迎春任副总经理，刘浩凌卸任
+# 荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-来源：金融人事Co盛世 6月9日，中投公司发布两则人事任命：经国务院决定，董事会审议通过，刘浩凌不再担任中投公司副董事长、总经理、首席投资官职务。今年4月29日，刘浩凌已出任证监会副主席。 同时，聘任吴迎春为中投公司副总经理；此前其为工商银行总行机构金融业务部总经理。 中投公司表示，刘浩凌先生在任职期间，恪尽职守、锐意进取，在推进公司战略规划实施、加强自主投资能力建设、优化资产
+荣尊国际控股（01780）及要约人杨敬尧先生联合公布，要约人已于2026年4月8日完成收购8400万股公司股份，占于本联合公告日期公司已发行股本约13.55%，总代价4368万港元，相当于每股股份代价0.52港元。 紧随收购事项完成后及于本联合公告日期，要约人于2.07亿股股份中拥有权益，占公司已发行股本总额约33.39%。根据收购守则规则26.1，收购事项触发要约人就全部已发
 
 ## 正文
 
-来源：金融人事Co盛世 6月9日，中投公司发布两则人事任命：经国务院决定，董事会审议通过，刘浩凌不再担任中投公司副董事长、总经理、首席投资官职务。
+荣尊国际控股（01780）及要约人杨敬尧先生联合公布，要约人已于2026年4月8日完成收购8400万股公司股份，占于本联合公告日期公司已发行股本约13.55%，总代价4368万港元，相当于每股股份代价0.52港元。
 
-今年4月29日，刘浩凌已出任证监会副主席。
+紧随收购事项完成后及于本联合公告日期，要约人于2.07亿股股份中拥有权益，占公司已发行股本总额约33.39%。
 
-同时，聘任吴迎春为中投公司副总经理；此前其为工商银行总行机构金融业务部总经理。
+根据收购守则规则26.1，收购事项触发要约人就全部已发行股份（要约人及其一致行动人士已拥有或同意将予收购者除外）提出强制性有条件现金要约的责任。
 
-中投公司表示，刘浩凌先生在任职期间，恪尽职守、锐意进取，在推进公司战略规划实施、加强自主投资能力建设、优化资产配置和对外投资布局、促进主权财富基金国际交流合作、优化股权管理机制、完善直管企业管理体制、提升公司统筹发展和安全能力等方面做出卓越贡献，公司对此给予高度评价并表示衷心感谢。
+力高证券及富中证券将根据收购守则为及代表要约人共同提出要约，每股要约股份现金0.52港元，较股份于最后交易日在联交所所报收市价每股1.00港元折让约48%。
 
-吴迎春，1975年出生，经济学硕士，现任中投公司党委委员、副总经理兼首席风险官。
+要约人根据要约应付的最高现金代价将为约2.15亿港元。
 
-曾长期任职于工商银行系统，历任工行北京经济技术开发区支行负责人、北京分行地安门支行负责人、北京分行金融业务部总经理，2016年12月任山东省分行副行长，2021年3月任辽宁省分行行长，2025年初调任总行机构金融业务部总经理。
+公司已向联交所申请自2026年5月8日上午九时正起恢复股份于联交所买卖。
 
-公开资料显示，中投公司成立于2007年9月29日，是依照《中华人民共和国公司法》设立的主权财富基金。
+据悉，要约人现年32岁，为单一最大股东，于本联合公告日期持有2.07亿股股份，占公司已发行股本约33.39%。
 
-公司总部设在北京，注册资本金为2000亿美元。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:36 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 18:37 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 18:34 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 18:20 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 18:45 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 18:42 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 18:20 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 18:46 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 18:44 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 18:33 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 18:53 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 18:46 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 18:48 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 18:48 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 18:33 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 18:25 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 18:45 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 18:46 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 18:26 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 18:52 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 18:41 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:39 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/572942.shtml)
-- 2026-06-29 18:40 - [世界杯1/16决赛对阵出炉](https://www.share.minike.top/Article/details/319846.shtml)
-- 2026-06-29 18:36 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/4379115.shtml)
-- 2026-06-29 18:25 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/762148.shtml)
-- 2026-06-29 18:41 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/70844291.shtml)
-- 2026-06-29 18:38 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/210595828.shtml)
-- 2026-06-29 18:36 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/8240251.shtml)
-- 2026-06-29 18:20 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.minike.top/Article/details/3738386603.shtml)
-- 2026-06-29 18:45 - [滚石点名酒店员工说有急救培训](http://www.share.minike.top/Article/details/7220024314.shtml)
-- 2026-06-29 18:44 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/1497384758.shtml)
-- 2026-06-29 18:30 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/7825563.shtml)
-- 2026-06-29 18:46 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/20218.shtml)
-- 2026-06-29 18:30 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.kurohicncr.top/Article/details/53839800.shtml)
-- 2026-06-29 18:46 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/410235367.shtml)
-- 2026-06-29 18:41 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/8625823.shtml)
+- 2026-06-29 18:41 - [官媒首曝六代机？大V解读](http://www.blog.minike.top/Article/details/1426995037.shtml)
+- 2026-06-29 18:35 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/99780228277.shtml)
+- 2026-06-29 18:36 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/18303807161.shtml)
+- 2026-06-29 18:28 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/8146567262.shtml)
+- 2026-06-29 18:32 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/8897129.shtml)
+- 2026-06-29 18:30 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/9127700.shtml)
+- 2026-06-29 18:49 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/64736711359.shtml)
+- 2026-06-29 18:45 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/56725344237.shtml)
+- 2026-06-29 18:43 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/025231572415.shtml)
+- 2026-06-29 18:24 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/3942283268.shtml)
+- 2026-06-29 18:42 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.kurohicncr.top/Article/details/6711297.shtml)
+- 2026-06-29 18:50 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/77318640217.shtml)
+- 2026-06-29 18:28 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/4692201.shtml)
+- 2026-06-29 18:51 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/600613.shtml)
+- 2026-06-29 18:31 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/98806650.shtml)

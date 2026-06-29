@@ -1,61 +1,57 @@
-# 航空业务分拆在即，霍尼韦尔确认维持全年业绩指引
+# 尺素金声丨营收利润双增，上市公司交出亮眼年报
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 霍尼韦尔全年销售额预期维持 388 亿至 398 亿美元区间 霍尼韦尔表示，全年销售额预期维持 388 亿至 398 亿美元，FactSet 统计分析师一致预期为 394 亿美元；内生销售额增速指引保持 3% 至 6% 不变。 霍尼韦尔（股票代码 HON，跌幅 1.69%）确认维持全年业绩指引，公司即将完成航空板块分拆。 周一，霍尼韦尔同步
+上市公司是国民经济“基本盘”“压舱石”。截至4月30日，沪深5206家上市公司交出了去年全年及今年一季度成绩单，有力印证中国经济的强大韧性与活力。上市公司也是企业中的“优等生”，从上市公司发展新亮点中，能够看见“十五五”开局的新动能和新势头。 总体看，2025年上市公司营收、利润双增长。证监会数据显示，5206家上市公司营业收入同比增长1.2%；净利润同比增长2.6%，利润增速
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 霍尼韦尔全年销售额预期维持 388 亿至 398 亿美元区间 霍尼韦尔表示，全年销售额预期维持 388 亿至 398 亿美元，FactSet 统计分析师一致预期为 394 亿美元；内生销售额增速指引保持 3% 至 6% 不变。
+上市公司是国民经济“基本盘”“压舱石”。
 
-霍尼韦尔（股票代码 HON，跌幅 1.69%）确认维持全年业绩指引，公司即将完成航空板块分拆。
+截至4月30日，沪深5206家上市公司交出了去年全年及今年一季度成绩单，有力印证中国经济的强大韧性与活力。
 
-周一，霍尼韦尔同步披露了航空业务剥离后，剩余主体公司的经营展望，预计内生销售额与调整后收益均将实现增长。
+上市公司也是企业中的“优等生”，从上市公司发展新亮点中，能够看见“十五五”开局的新动能和新势头。
 
-霍尼韦尔称，全年销售额预期仍为 388 亿至 398 亿美元，FactSet 调研机构统计的市场分析师一致预期为 394 亿美元；内生销售额增速指引维持 3%–6% 不变。
+总体看，2025年上市公司营收、利润双增长。
 
-公司全年调整后每股收益预期为 10.35–10.65 美元，分析师一致预期 10.52 美元。
+证监会数据显示，5206家上市公司营业收入同比增长1.2%；净利润同比增长2.6%，利润增速为近三年最高。
 
-分拆后的存续主体命名为霍尼韦尔技术公司（Honeywell Technologies），全年销售额预期 199 亿至 202 亿美元，内生销售额增速 2%–3%，调整后每股收益 3.95–4.15 美元。
+读懂这份成绩单，先看三个“含量”。
 
-本次全新业绩指引剔除将于 6 月 29 日完成分拆的航空事业部全年经营数据，同时计入两项资产处置计划：生产力解决方案服务业务、仓储及工作流解决方案业务。
+“含金量”持续提升。
 
-展望数据还纳入收购庄信万丰催化剂技术业务的预估业绩，该收购交易预计于今年第三季度完成交割。
+一个代表盈利“含金量”的指标显著提升——每百元利润创造的经营活动现金净流入从2021年的72.4元持续提升至2025年的95.7元。
 
 ## 相关推荐
 
-- 2026-06-29 18:39 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 18:25 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 18:21 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 18:44 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 18:39 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 18:21 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 18:40 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 18:35 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 18:30 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 18:33 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 18:39 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 18:37 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 18:31 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 18:34 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 18:30 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 18:29 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 18:38 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 18:41 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 18:36 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 18:51 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 18:46 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 18:24 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 18:24 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 18:48 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 18:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 18:34 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:47 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/1990510285.shtml)
-- 2026-06-29 18:30 - [天道](https://www.blog.kurohicncr.top/Article/details/9734270.shtml)
-- 2026-06-29 18:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/55221.shtml)
-- 2026-06-29 18:33 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/817830038504.shtml)
-- 2026-06-29 18:18 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/37525538878.shtml)
-- 2026-06-29 18:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/180573499.shtml)
-- 2026-06-29 18:44 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/28315888662.shtml)
-- 2026-06-29 18:20 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/5753422.shtml)
-- 2026-06-29 18:29 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/377802587.shtml)
-- 2026-06-29 18:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/681360118001.shtml)
-- 2026-06-29 18:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/9973553805.shtml)
-- 2026-06-29 18:20 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/2759149.shtml)
-- 2026-06-29 18:22 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/4089064538.shtml)
-- 2026-06-29 18:30 - [刘扬任湖南省副省长](http://www.blog.minike.top/Article/details/1801291944.shtml)
-- 2026-06-29 18:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/71171.shtml)
+- 2026-06-29 18:47 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/6229299.shtml)
+- 2026-06-29 18:28 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/58388479550.shtml)
+- 2026-06-29 18:51 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/2448834.shtml)
+- 2026-06-29 18:38 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.minike.top/Article/details/49045993401.shtml)
+- 2026-06-29 18:37 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/38923035413.shtml)
+- 2026-06-29 18:47 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/1028668.shtml)
+- 2026-06-29 18:33 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.minike.top/Article/details/196917.shtml)
+- 2026-06-29 18:32 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/30771518373.shtml)
+- 2026-06-29 18:48 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/848490.shtml)
+- 2026-06-29 18:33 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/6856074658.shtml)
+- 2026-06-29 18:47 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/08077088838.shtml)
+- 2026-06-29 18:53 - [绘画区你赢了](https://www.share.minike.top/Article/details/06508422.shtml)
+- 2026-06-29 18:32 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/49755.shtml)
+- 2026-06-29 18:47 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/41338.shtml)
+- 2026-06-29 18:32 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/6944395993.shtml)

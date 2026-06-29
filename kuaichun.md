@@ -1,57 +1,56 @@
-# 中外嘉宾走进玉架山考古博物馆：从“看文物”到“触摸文明”
+# “五一”假期广西新能源汽车充电量创历史同期新高
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新网杭州6月8日电 题：中外嘉宾走进玉架山考古博物馆：从“看文物”到“触摸文明” 作者 钱晨菲 “以前在博物馆里只能参观，这次我不仅能触摸玉器模型，还能感受它的大小和纹理。”在杭州玉架山考古博物馆“触摸远古”无障碍专区内，瑞典“一带一路”研究院院长、广东省国际战略研究院特聘研究员斯蒂芬·布劳尔(Stephen Brawer)轻轻抚摸着高精度复刻的良渚玉器模型，不时与同行嘉宾交
+中新网南宁5月7日电(黄令妍 陆冬琦 陈丽婷)广西“八桂充”省级电动汽车充电服务与监管平台7日提供的信息显示，今年“五一”假期，广西新能源汽车充电总量达4158万千瓦时，同比增长35.93%，创历史同期新高。从5月1日起，广西连续5天单日充电量均突破700万千瓦时。亮眼的充电数据，折射出广西“绿色文旅”与“低碳出行”深度融合。 在“五一”假期期间，广西文旅市场持续火热。南方电网
 
 ## 正文
 
-中新网杭州6月8日电 题：中外嘉宾走进玉架山考古博物馆：从“看文物”到“触摸文明” 作者 钱晨菲 “以前在博物馆里只能参观，这次我不仅能触摸玉器模型，还能感受它的大小和纹理。
+中新网南宁5月7日电(黄令妍 陆冬琦 陈丽婷)广西“八桂充”省级电动汽车充电服务与监管平台7日提供的信息显示，今年“五一”假期，广西新能源汽车充电总量达4158万千瓦时，同比增长35.93%，创历史同期新高。
 
-”在杭州玉架山考古博物馆“触摸远古”无障碍专区内，瑞典“一带一路”研究院院长、广东省国际战略研究院特聘研究员斯蒂芬·布劳尔(Stephen Brawer)轻轻抚摸着高精度复刻的良渚玉器模型，不时与同行嘉宾交流感受。
+从5月1日起，广西连续5天单日充电量均突破700万千瓦时。
 
-触摸之间，跨越的是数千年的时光。
+亮眼的充电数据，折射出广西“绿色文旅”与“低碳出行”深度融合。
 
-6月7日，由国务院新闻办公室主办的“人权行动看中国·2026”主题参访活动浙江行在杭州启动。
+在“五一”假期期间，广西文旅市场持续火热。
 
-来自多国的官员、代表、专家与中国人权学者、媒体记者走进玉架山考古博物馆，在探寻五千年前良渚先民生活图景的同时，感受中华文明保护传承与文化共享实践。
+南方电网广西电动汽车服务有限公司作为广西站点最多、容量最大的充换电运营服务商，全力保障假期充电需求。
 
-玉架山考古博物馆坐落于良渚文化临平玉架山遗址，系统收藏与展示临平遗址群、茅山遗址及环壕聚落等重要考古成果，是解读良渚文明社会结构、稻作农业与聚落形态的重要窗口。
+该公司运营服务部副总经理韦静媛介绍，假期期间累计服务新能源汽车超24万辆次，高速服务区、热门景区、县域乡镇充电需求尤为旺盛。
 
-该博物馆以“环壕聚落”为特色，通过遗址实景复原、地层剖面展示及大量出土玉器、陶器、石器，生动呈现五千年前的先民生活。
+针对南宁、桂林阳朔等充电需求激增区域，该公司提前优化站点运维，保障充电效率，全力保障民众出行补能。
 
-如今，这座从遗址上“生长”出来的博物馆，正成为民众走近良渚文明、了解历史文化的一扇窗口。
+假期期间，南宁青秀山等核心景区结合节日特点推出系列活动，南方电网南宁区域充电量同比增长98.4%。
 
 ## 相关推荐
 
-- 2026-06-29 18:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 18:25 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 18:43 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 18:24 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 18:22 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 18:29 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 18:28 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 18:33 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 18:37 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 18:32 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 18:40 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 18:37 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 18:32 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 18:25 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 18:45 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 18:39 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 18:47 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 18:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 18:37 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 18:38 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 18:25 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:37 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/38314297.shtml)
-- 2026-06-29 18:35 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/60494.shtml)
-- 2026-06-29 18:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/1741306173.shtml)
-- 2026-06-29 18:42 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/093099.shtml)
-- 2026-06-29 18:41 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/34675.shtml)
-- 2026-06-29 18:30 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/7853070.shtml)
-- 2026-06-29 18:30 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.kurohicncr.top/Article/details/09032.shtml)
-- 2026-06-29 18:46 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/41604448.shtml)
-- 2026-06-29 18:42 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/113654663.shtml)
-- 2026-06-29 18:27 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/34917267.shtml)
-- 2026-06-29 18:21 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/11098535.shtml)
-- 2026-06-29 18:26 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/525486107709.shtml)
-- 2026-06-29 18:44 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/649954.shtml)
-- 2026-06-29 18:25 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/46351256.shtml)
-- 2026-06-29 18:39 - [南昌市委书记调整](https://www.blog.minike.top/Article/details/92656370333.shtml)
+- 2026-06-29 18:38 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/51673391.shtml)
+- 2026-06-29 18:24 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/725550426.shtml)
+- 2026-06-29 18:40 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/993423.shtml)
+- 2026-06-29 18:43 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/354300237.shtml)
+- 2026-06-29 18:46 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/80268919.shtml)
+- 2026-06-29 18:36 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/0032229.shtml)
+- 2026-06-29 18:31 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/08508028.shtml)
+- 2026-06-29 18:36 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/05967910.shtml)
+- 2026-06-29 18:27 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/6195026.shtml)
+- 2026-06-29 18:29 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/802191987709.shtml)
+- 2026-06-29 18:36 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/427836639801.shtml)
+- 2026-06-29 18:40 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/58961241.shtml)
+- 2026-06-29 18:53 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/474183820.shtml)
+- 2026-06-29 18:46 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/03024467.shtml)
+- 2026-06-29 18:33 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/9357593.shtml)

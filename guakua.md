@@ -1,59 +1,57 @@
-# 让疲惫的前额叶歇一歇
+# 凯撒文化（002425）股民索赔案持续推进，银江技术（300020）索赔案再提交法院立案
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-原标题：让疲惫的前额叶歇一歇(民生观) 不妨在信息洪流中主动留白，给自己按下“慢放键”，适当保持与电子屏幕的距离，享受一段静静的放空时光 你的前额叶还好吗？ 前额叶是位于额头后面的一片脑部区域，被视为大脑的“首席执行官”，掌管决策规划、情绪管理、自我控制等多项高级认知功能。社交媒体上，一名网友关于前额叶的知识分享引来许多关注，由此掀起讨论热潮。相关话题不断升温，更在网友玩梗中成
+登录新浪财经APP 搜索【信披】查看更多考评等级 上海久诚律师事务所股票索赔律师许峰提示，凯撒文化（维权）（002425）虚假陈述引发的投资者索赔案还在继续推进。（许峰律师专栏） 许峰律师代理的凯撒文化投资者索赔案已多次向法院提交立案，目前正在等待法院的审核安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2024年12月5日，凯撒文化公告收到广东证
 
 ## 正文
 
-原标题：让疲惫的前额叶歇一歇(民生观) 不妨在信息洪流中主动留白，给自己按下“慢放键”，适当保持与电子屏幕的距离，享受一段静静的放空时光 你的前额叶还好吗？
+登录新浪财经APP 搜索【信披】查看更多考评等级 上海久诚律师事务所股票索赔律师许峰提示，凯撒文化（维权）（002425）虚假陈述引发的投资者索赔案还在继续推进。
 
-前额叶是位于额头后面的一片脑部区域，被视为大脑的“首席执行官”，掌管决策规划、情绪管理、自我控制等多项高级认知功能。
+（许峰律师专栏） 许峰律师代理的凯撒文化投资者索赔案已多次向法院提交立案，目前正在等待法院的审核安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-社交媒体上，一名网友关于前额叶的知识分享引来许多关注，由此掀起讨论热潮。
+2024年12月5日，凯撒文化公告收到广东证监局出具的《行政处罚决定书》，经查明，凯撒文化为减少应收款的坏账损失，在与供应商开展业务过程中，将资金从公司或子公司经供应商流转至指定客户，相关客户按要求向公司或子公司回款。
 
-相关话题不断升温，更在网友玩梗中成为一种“社交货币”。
+凯撒文化将收到的回款用以冲销应收款，2021年少提坏账准备15，246，742.47元，虚增利润15，246，742.47元，占当期披露利润总额的15.55%。
 
-有人调侃，交朋友、找对象都要找前额叶发育成熟的人，情绪稳定、执行力强、相处更轻松；也有不少人忙着为自己的前额叶诊断——你爱熬夜刷手机，我有选择困难症，这些令人烦恼的小毛病，可能只是我们的前额叶“生病”了，导致注意力、自控力、决策力“掉线”。
+凯撒文化2021年年度报告存在虚假记载。
 
-把问题“甩锅”给前额叶，成为一种心照不宣的解压方式，毕竟，“硬件故障”的自嘲比“不够自律”的自责更柔软，既为紧绷的情绪找到出口，也将追求完美的心理包袱悄然卸下。
+许峰律师认为，在2022年4月27日到2024年5月6日之间买入凯撒文化股票，并且在2024年5月6日后卖出或继续持有股票的投资者，目前还可发起索赔。
 
-从医学角度来看，网友“确诊”的并非器质性的前额叶损伤，只是信息过载导致的前额叶疲劳。
+（凯撒文化维权入口） 除了凯撒文化投资者索赔案持续推进，2026年5月6日，许峰律师代理的银江技术（300020）投资者索赔案再提交一次法院立案。
 
-工作、生活节奏加快，各类信息从我们脑中呼啸而过，再加上熬夜刷手机、边吃饭边追剧等生活习惯，长期处在多线程、高强度工作状态的大脑总有累的时候。
+许峰律师代理的银江技术投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，律师团队同步也还在继续接受其他投资者的索赔委托。
 
 ## 相关推荐
 
-- 2026-06-29 18:36 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 18:25 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 18:37 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 18:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 18:20 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 18:44 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 18:33 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 18:47 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 18:32 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 18:44 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 18:42 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 18:27 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 18:33 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 18:45 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 18:33 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 18:37 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 18:53 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 18:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 18:40 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 18:31 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 18:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 18:40 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 18:45 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 18:53 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:43 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/129052.shtml)
-- 2026-06-29 18:24 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/02371375147.shtml)
-- 2026-06-29 18:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/278579471858.shtml)
-- 2026-06-29 18:40 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/548939.shtml)
-- 2026-06-29 18:47 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/60326644896.shtml)
-- 2026-06-29 18:32 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/28541573185.shtml)
-- 2026-06-29 18:19 - [周生如故](http://www.share.minike.top/Article/details/71602.shtml)
-- 2026-06-29 18:47 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/148136.shtml)
-- 2026-06-29 18:30 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/037802052567.shtml)
-- 2026-06-29 18:23 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/52164588.shtml)
-- 2026-06-29 18:36 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/570441.shtml)
-- 2026-06-29 18:45 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/0887471.shtml)
-- 2026-06-29 18:23 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/735897196.shtml)
-- 2026-06-29 18:37 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/462702210.shtml)
-- 2026-06-29 18:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/3720756.shtml)
+- 2026-06-29 18:28 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/70310.shtml)
+- 2026-06-29 18:38 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/5248790520.shtml)
+- 2026-06-29 18:35 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/500474799795.shtml)
+- 2026-06-29 18:45 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/13191.shtml)
+- 2026-06-29 18:42 - [王俊凯命名方式](https://www.share.minike.top/Article/details/3866170.shtml)
+- 2026-06-29 18:49 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/23444524.shtml)
+- 2026-06-29 18:36 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/7677379.shtml)
+- 2026-06-29 18:40 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/41591.shtml)
+- 2026-06-29 18:44 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/89069.shtml)
+- 2026-06-29 18:30 - [东方风云榜](http://www.blog.minike.top/Article/details/6429350972.shtml)
+- 2026-06-29 18:33 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/0349509.shtml)
+- 2026-06-29 18:25 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/4918368229.shtml)
+- 2026-06-29 18:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/027701320902.shtml)
+- 2026-06-29 18:30 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/461428840522.shtml)
+- 2026-06-29 18:32 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/385672.shtml)

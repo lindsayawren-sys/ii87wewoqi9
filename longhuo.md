@@ -1,58 +1,56 @@
-# 中新健康｜别把干眼症当疲劳，白内障等“熟了”再治是误区
+# 利比亚西部爆发武装冲突 造成平民伤亡
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月8日电 (记者 赵方园)每天手机不离手，上班盯电脑、下班刷视频，你是不是也经常眼睛干涩、酸胀发沉、看东西模糊？ 今年的6月6日是第31个全国“爱眼日”，主题为“人人享有眼健康”。过度用眼后，许多人常感觉到短暂的视觉不适，但总觉得“歇一会儿就好了”“滴两滴眼药水就行了”。实际上，这已是眼部发出的损伤预警。若长期忽视，干涩、发红、异物感等“小毛病”可能发展为干眼症、角
+中新社北京5月9日电 据《利比亚先驱报》和路透社报道，当地时间8日，利比亚西部城市扎维耶爆发激烈武装冲突，造成平民伤亡，该国仍在正常运转的最大炼油厂被迫关闭。 报道称，扎维耶当日发生武装冲突，多个武装团体卷入，持续时间较长。由于战斗较为激烈，救护车等长时间无法进入冲突区域。该国仍能正常运转的最大炼油厂因此关闭，并宣布进入紧急状态。 扎维耶炼油公司发表声明说，8日凌晨，炼油厂附近
 
 ## 正文
 
-中新网北京6月8日电 (记者 赵方园)每天手机不离手，上班盯电脑、下班刷视频，你是不是也经常眼睛干涩、酸胀发沉、看东西模糊？
+中新社北京5月9日电 据《利比亚先驱报》和路透社报道，当地时间8日，利比亚西部城市扎维耶爆发激烈武装冲突，造成平民伤亡，该国仍在正常运转的最大炼油厂被迫关闭。
 
-今年的6月6日是第31个全国“爱眼日”，主题为“人人享有眼健康”。
+报道称，扎维耶当日发生武装冲突，多个武装团体卷入，持续时间较长。
 
-过度用眼后，许多人常感觉到短暂的视觉不适，但总觉得“歇一会儿就好了”“滴两滴眼药水就行了”。
+由于战斗较为激烈，救护车等长时间无法进入冲突区域。
 
-实际上，这已是眼部发出的损伤预警。
+该国仍能正常运转的最大炼油厂因此关闭，并宣布进入紧急状态。
 
-若长期忽视，干涩、发红、异物感等“小毛病”可能发展为干眼症、角膜损伤甚至感染性角膜炎，严重影响视力。
+扎维耶炼油公司发表声明说，8日凌晨，炼油厂附近爆发涉及重型武器的武装冲突，多枚炮弹落至炼油厂内部作业区域。
 
-怎样预防干眼症的发生？
+随后冲突愈演愈烈，蔓延至附近居民区。
 
-日常生活中有哪些常见的致盲眼病？
+为保护工人及设施安全，炼油厂已全面停工，油轮已全部撤离港口。
 
-出现哪些信号必须就医？
+据报道，冲突造成平民伤亡，但尚未得知伤亡人员数量及具体情况。
 
 ## 相关推荐
 
-- 2026-06-29 18:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 18:46 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 18:33 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 18:42 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 18:35 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 18:40 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 18:20 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 18:36 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 18:32 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 18:43 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 18:23 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 18:18 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 18:45 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 18:36 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 18:31 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 18:37 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 18:26 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 18:27 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 18:34 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 18:45 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 18:45 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 18:45 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/4948947636.shtml)
-- 2026-06-29 18:47 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/1220952.shtml)
-- 2026-06-29 18:24 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/5728442.shtml)
-- 2026-06-29 18:35 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/702766.shtml)
-- 2026-06-29 18:33 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/480177.shtml)
-- 2026-06-29 18:46 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/40200303234.shtml)
-- 2026-06-29 18:33 - [货车司机雨中帮交警挪树获表扬](https://www.blog.minike.top/Article/details/65490.shtml)
-- 2026-06-29 18:28 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/202284688.shtml)
-- 2026-06-29 18:44 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/90699318.shtml)
-- 2026-06-29 18:23 - [第一炉香](http://www.share.kurohicncr.top/Article/details/2669674.shtml)
-- 2026-06-29 18:44 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/882890374320.shtml)
-- 2026-06-29 18:22 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.kurohicncr.top/Article/details/795889362897.shtml)
-- 2026-06-29 18:22 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/36200.shtml)
-- 2026-06-29 18:20 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.kurohicncr.top/Article/details/64217882559.shtml)
-- 2026-06-29 18:35 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/7392278.shtml)
+- 2026-06-29 18:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/2123240996.shtml)
+- 2026-06-29 18:53 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/127246428892.shtml)
+- 2026-06-29 18:51 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/6098328762.shtml)
+- 2026-06-29 18:26 - [官媒首曝六代机？大V解读](https://www.share.kurohicncr.top/Article/details/78471.shtml)
+- 2026-06-29 18:36 - [蔚来回应车漆洗车时被冲掉](https://www.blog.minike.top/Article/details/9643139.shtml)
+- 2026-06-29 18:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/4189307063.shtml)
+- 2026-06-29 18:51 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/628271384.shtml)
+- 2026-06-29 18:35 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/9150852.shtml)
+- 2026-06-29 18:32 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/197015848698.shtml)
+- 2026-06-29 18:48 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/99011437.shtml)
+- 2026-06-29 18:51 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/097127.shtml)
+- 2026-06-29 18:36 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/719022334.shtml)
+- 2026-06-29 18:24 - [周生如故](https://www.share.minike.top/Article/details/8385367529.shtml)
+- 2026-06-29 18:47 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/97456.shtml)
+- 2026-06-29 18:28 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/936310.shtml)

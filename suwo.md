@@ -1,61 +1,61 @@
-# 酒价内参6月8日价格发布：水晶剑南春上涨5元，创近一周最大涨幅
+# 女骗子妄图利用海牙认证脱罪 检察机关戳破其谎言
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月8日整体继续大幅回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9918元，较昨日大幅上涨21元，创下近五天以来最高。市场已连续三日反弹，终端交投情绪回暖修复。今日除国窖1573与习酒君品价格下跌外，其余品种全线上涨或持平。 今日11大白酒单品八涨两跌一平，赢家占据绝对优势。上涨方面，青
+虚构高端人设编织俗套骗局，庭审中却抛出“无懈可击”的境外证据 女骗子妄图利用海牙认证脱罪 本报全媒体记者 龚婵婵 通讯员 冷美霞 ◆王某以“获取韩国高校博士学习资格”“交纳博士学费”“青少年心理健康项目制作”等名义，先后让赵先生支付了15万余元。◆王某伪造涉案银行流水和博士结业证书的韩文版，将其翻译为中文件，向韩国主管机关申请认证，韩国当地公证机构公证人出具公证书，证明两份文件
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月8日整体继续大幅回升。
+虚构高端人设编织俗套骗局，庭审中却抛出“无懈可击”的境外证据 女骗子妄图利用海牙认证脱罪 本报全媒体记者 龚婵婵 通讯员 冷美霞 ◆王某以“获取韩国高校博士学习资格”“交纳博士学费”“青少年心理健康项目制作”等名义，先后让赵先生支付了15万余元。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9918元，较昨日大幅上涨21元，创下近五天以来最高。
+◆王某伪造涉案银行流水和博士结业证书的韩文版，将其翻译为中文件，向韩国主管机关申请认证，韩国当地公证机构公证人出具公证书，证明两份文件的韩文版与中文翻译件内容一致。
 
-市场已连续三日反弹，终端交投情绪回暖修复。
+韩国的法务部据此认证了公证人的资质和签章真实有效。
 
-今日除国窖1573与习酒君品价格下跌外，其余品种全线上涨或持平。
+虚构父亲是高官，自己是高知还认识韩国高校教授的事实，王某诈骗被害人15万余元。
 
-今日11大白酒单品八涨两跌一平，赢家占据绝对优势。
+庭审中，她向法庭提交了经国际程序认证的博士结业证书。
 
-上涨方面，青花郎涨幅居前，上涨7元/瓶，重返690元上方；精品茅台与古井贡古20均上涨6元/瓶，前者收获三连阳，价格快速回升至月内次高位；水晶剑南春上涨5元/瓶，创下近一周最大涨幅，价格亦平近一月最高纪录；洋河梦之蓝M6+上涨4元/瓶；飞天茅台上涨2元/瓶，连续三天上涨昨日涨幅尤为强劲；五粮液普五八代与青花汾20均小幅上涨1元/瓶。
+检察机关审查发现，该博士结业证书的签章有效，但王某的硕士室友却说在攻读博士期间从未见过她……通过自行补充侦查，检察机关最终戳破了王某的谎言。
 
-下跌方面，国窖1573跌幅居前，下跌6元/瓶，遭遇五连阴，再创月内新低；习酒君品下跌5元/瓶，近一个月其价格中枢持续下移。
+日前，浙江省杭州市中级法院对王某诈骗一案作出终审裁定，驳回上诉，维持原判。
 
-五粮液1618价格环比保持不变，近一月价格走势颇为平稳。
+至此，这起涉及境外证据审查的案件尘埃落定。
 
 ## 相关推荐
 
-- 2026-06-29 18:26 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 18:25 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 18:44 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 18:32 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 18:35 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 18:25 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 18:18 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 18:21 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 18:31 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 18:19 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 18:38 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 18:23 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 18:30 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 18:23 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 18:32 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 18:25 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 18:39 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 18:29 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 18:51 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 18:45 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 18:43 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 18:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 18:31 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 18:30 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 18:49 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 18:25 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 18:32 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 18:30 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 18:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 18:37 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:26 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/470394446573.shtml)
-- 2026-06-29 18:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/5761164988.shtml)
-- 2026-06-29 18:35 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/5305766.shtml)
-- 2026-06-29 18:43 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/703915.shtml)
-- 2026-06-29 18:22 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/67536459780.shtml)
-- 2026-06-29 18:22 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/233561607505.shtml)
-- 2026-06-29 18:28 - [女生每天戴耳机18小时突发耳聋](http://www.blog.minike.top/Article/details/126000185.shtml)
-- 2026-06-29 18:39 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/22518.shtml)
-- 2026-06-29 18:28 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/72962.shtml)
-- 2026-06-29 18:23 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.kurohicncr.top/Article/details/113494799991.shtml)
-- 2026-06-29 18:20 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/179803171326.shtml)
-- 2026-06-29 18:41 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/7272908888.shtml)
-- 2026-06-29 18:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/72731.shtml)
-- 2026-06-29 18:30 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/21441673395.shtml)
-- 2026-06-29 18:31 - [T1零封KC MSI](http://www.share.minike.top/Article/details/5091461124.shtml)
+- 2026-06-29 18:34 - [韩国小学生都来吐槽了](https://www.blog.kurohicncr.top/Article/details/7468420.shtml)
+- 2026-06-29 18:31 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/8166052.shtml)
+- 2026-06-29 18:31 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/54311326.shtml)
+- 2026-06-29 18:52 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/532174.shtml)
+- 2026-06-29 18:34 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/93260.shtml)
+- 2026-06-29 18:47 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/5605289345.shtml)
+- 2026-06-29 18:28 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/4034071.shtml)
+- 2026-06-29 18:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/845607266.shtml)
+- 2026-06-29 18:31 - [第一炉香](http://www.blog.minike.top/Article/details/2941625811.shtml)
+- 2026-06-29 18:47 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/13439.shtml)
+- 2026-06-29 18:44 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/1322641085.shtml)
+- 2026-06-29 18:45 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/402207768.shtml)
+- 2026-06-29 18:41 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/71260878446.shtml)
+- 2026-06-29 18:51 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/694081223.shtml)
+- 2026-06-29 18:37 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/912205423.shtml)

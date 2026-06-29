@@ -1,59 +1,52 @@
-# 习近平抵达平壤开始对朝鲜进行国事访问
+# 2026年全国艺术体操锦标赛在成都开赛
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新社平壤6月8日电6月8日中午，中共中央总书记、国家主席习近平乘专机抵达平壤，开始对朝鲜进行国事访问。 当地时间12时许，习近平乘坐的专机抵达机场。朝鲜劳动党总书记、国务委员长金正恩和夫人李雪主到机场迎接。习近平和夫人彭丽媛步出舱门，走下舷梯。金正恩与习近平热情握手。朝鲜少年儿童向习近平和夫人彭丽媛献花。 蔡奇、王毅等陪同人员同机抵达。 中国驻朝鲜大使王亚军也到机场迎接。（完
+发布时间：2026年05月08日 19:19 来源：中国新闻网 5月8日，东安湖杯·2026年全国艺术体操锦标赛在成都东安湖体育公园多功能体育馆开赛。本次赛事由国家体育总局体操运动管理中心、中国体操协会主办，四川省体育局、成都市体育局支持，成都市龙泉驿区人民政府承办。赛事设成年、青年、少年个人及集体项目，涵盖圈、球、棒、带、徒手、绳等多个小项。共有来自北京、天津、河北、四川等地
 
 ## 正文
 
-中新社平壤6月8日电6月8日中午，中共中央总书记、国家主席习近平乘专机抵达平壤，开始对朝鲜进行国事访问。
+发布时间：2026年05月08日 19:19 来源：中国新闻网 5月8日，东安湖杯·2026年全国艺术体操锦标赛在成都东安湖体育公园多功能体育馆开赛。
 
-当地时间12时许，习近平乘坐的专机抵达机场。
+本次赛事由国家体育总局体操运动管理中心、中国体操协会主办，四川省体育局、成都市体育局支持，成都市龙泉驿区人民政府承办。
 
-朝鲜劳动党总书记、国务委员长金正恩和夫人李雪主到机场迎接。
+赛事设成年、青年、少年个人及集体项目，涵盖圈、球、棒、带、徒手、绳等多个小项。
 
-习近平和夫人彭丽媛步出舱门，走下舷梯。
+共有来自北京、天津、河北、四川等地的省级专业队伍及国家集训一队、二队的20支队伍、近300名运动员参赛。
 
-金正恩与习近平热情握手。
-
-朝鲜少年儿童向习近平和夫人彭丽媛献花。
-
-蔡奇、王毅等陪同人员同机抵达。
-
-中国驻朝鲜大使王亚军也到机场迎接。
+(记者 何浠） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 18:36 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 18:46 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 18:39 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 18:23 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 18:35 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 18:43 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 18:27 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 18:19 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 18:38 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 18:41 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 18:41 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 18:43 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 18:40 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 18:45 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 18:35 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 18:45 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 18:44 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 18:25 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 18:26 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 18:38 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 18:37 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 18:25 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 18:40 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 18:45 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 18:45 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:23 - [官媒首曝六代机？大V解读](http://www.share.kurohicncr.top/Article/details/106559194.shtml)
-- 2026-06-29 18:26 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/0922112.shtml)
-- 2026-06-29 18:32 - [勇敢的心第二部](https://www.share.minike.top/Article/details/44330.shtml)
-- 2026-06-29 18:39 - [这一刀 会很帅](https://www.share.minike.top/Article/details/91177433947.shtml)
-- 2026-06-29 18:37 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/890047900.shtml)
-- 2026-06-29 18:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/012777895.shtml)
-- 2026-06-29 18:37 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/84798.shtml)
-- 2026-06-29 18:35 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.kurohicncr.top/Article/details/4215927.shtml)
-- 2026-06-29 18:33 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/1830642442.shtml)
-- 2026-06-29 18:46 - [恋与深空客服的回应](https://www.blog.minike.top/Article/details/2029348832.shtml)
-- 2026-06-29 18:31 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/26572.shtml)
-- 2026-06-29 18:40 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/022464400492.shtml)
-- 2026-06-29 18:23 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/921183.shtml)
-- 2026-06-29 18:18 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/63043478073.shtml)
-- 2026-06-29 18:40 - [极限挑战第一季](https://www.blog.minike.top/Article/details/9657124.shtml)
+- 2026-06-29 18:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/472698.shtml)
+- 2026-06-29 18:39 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/8364779833.shtml)
+- 2026-06-29 18:26 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/91525537.shtml)
+- 2026-06-29 18:43 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/673869.shtml)
+- 2026-06-29 18:41 - [范志毅看好日本淘汰巴西](https://www.blog.minike.top/Article/details/7151495612.shtml)
+- 2026-06-29 18:44 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/6449824844.shtml)
+- 2026-06-29 18:38 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/90632.shtml)
+- 2026-06-29 18:27 - [每天通勤往返3h的感觉](https://www.share.minike.top/Article/details/180595.shtml)
+- 2026-06-29 18:38 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/4285187.shtml)
+- 2026-06-29 18:37 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/555567.shtml)
+- 2026-06-29 18:38 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/94497567250.shtml)
+- 2026-06-29 18:37 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/1383084.shtml)
+- 2026-06-29 18:31 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/83941960.shtml)
+- 2026-06-29 18:24 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/62795357.shtml)
+- 2026-06-29 18:44 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/7578030697.shtml)

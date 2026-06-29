@@ -1,50 +1,55 @@
-# 摩根大通上调10年期美债收益率预期至4.70%
+# 青海玛沁突发山体崩塌导致227国道部分路段中断
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-摩根大通策略师在一份6月6日发布的报告中建议，做空美债、做多德债。杰伊・巴里（ Jay Barry ）等策略师在报告中表示：“我们目前预计，2年期和10年期美债收益率将分别升至4.20%和4.70%，较此前预测分别上调30个基点和20个基点。”过去一年美国经济增长稳健，劳动力市场趋于稳定，市场开始质疑当前货币政策立场是否真正具备紧缩效果。“叠加期限溢价回归常态，我们认为货币市场
+新华社西宁5月8日电(记者王浡)记者从青海省交通运输厅获悉，受持续降雨天气影响，5月7日10时09分，G227张(掖)孟(连)公路青海段，果洛藏族自治州玛沁县拉加镇赞根村K748+500米处突发山体崩塌，造成道路全幅中断、车辆滞留，并引发道路交通安全事故。目前，该路段实行全幅封闭、双向交通阻断，暂不具备通行条件。据现场勘查核实，本次崩塌山体地势陡峭，山体近乎垂直呈90度，山体高
 
 ## 正文
 
-摩根大通策略师在一份6月6日发布的报告中建议，做空美债、做多德债。
+新华社西宁5月8日电(记者王浡)记者从青海省交通运输厅获悉，受持续降雨天气影响，5月7日10时09分，G227张(掖)孟(连)公路青海段，果洛藏族自治州玛沁县拉加镇赞根村K748+500米处突发山体崩塌，造成道路全幅中断、车辆滞留，并引发道路交通安全事故。
 
-杰伊・巴里（ Jay Barry ）等策略师在报告中表示：“我们目前预计，2年期和10年期美债收益率将分别升至4.20%和4.70%，较此前预测分别上调30个基点和20个基点。
+目前，该路段实行全幅封闭、双向交通阻断，暂不具备通行条件。
 
-”过去一年美国经济增长稳健，劳动力市场趋于稳定，市场开始质疑当前货币政策立场是否真正具备紧缩效果。
+据现场勘查核实，本次崩塌山体地势陡峭，山体近乎垂直呈90度，山体高度50余米，临路绵延长度200余米。
 
-“叠加期限溢价回归常态，我们认为货币市场收益率曲线仍将维持陡峭形态。
+经无人机航拍勘查，山体表层覆盖30厘米厚度腐殖土，岩体风化裸露严重，山体顶部存在明显裂隙，地质结构稳定性较差。
 
-”责任编辑：王永生
+本次崩塌起始于距地面2米位置，塌面贯通至山体顶部，塌方总量约2000立方米，受阻路段长度200米，导致双向滞留车辆50余辆。
+
+险情发生后，省、州、县各级交通、应急、自然资源、公安交警等部门快速响应、协同处置，目前，滞留车辆已全部疏散，现场正进行危岩体清理工作。
+
+据悉，该路段具体恢复通行时间将根据山体稳定性监测及抢险施工进度另行通告，交通运输部门将持续跟踪险情动态，及时发布最新处置进展，尽快抢通受损道路。
 
 ## 相关推荐
 
-- 2026-06-29 18:23 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 18:30 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 18:18 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 18:34 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 18:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 18:26 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 18:39 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 18:42 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 18:40 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 18:43 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 18:52 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 18:37 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 18:45 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 18:44 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 18:25 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 18:53 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 18:36 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 18:39 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 18:35 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 18:39 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 18:35 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/168056977882.shtml)
-- 2026-06-29 18:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/5471111088.shtml)
-- 2026-06-29 18:18 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/3350531047.shtml)
-- 2026-06-29 18:45 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/320461092.shtml)
-- 2026-06-29 18:38 - [税务总局披露5起合规申报个税案例](https://www.share.minike.top/Article/details/0762622.shtml)
-- 2026-06-29 18:31 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.kurohicncr.top/Article/details/70620.shtml)
-- 2026-06-29 18:39 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.kurohicncr.top/Article/details/827547616.shtml)
-- 2026-06-29 18:20 - [当家电外通风口出现鸟窝](https://www.blog.kurohicncr.top/Article/details/047897.shtml)
-- 2026-06-29 18:27 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/16114.shtml)
-- 2026-06-29 18:23 - [官媒首曝六代机？大V解读](http://www.blog.minike.top/Article/details/181545616963.shtml)
-- 2026-06-29 18:33 - [医药生物行业今日涨5.91%](http://www.blog.kurohicncr.top/Article/details/42379643.shtml)
-- 2026-06-29 18:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/82888.shtml)
-- 2026-06-29 18:18 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/5707255274.shtml)
-- 2026-06-29 18:23 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/44149039002.shtml)
-- 2026-06-29 18:33 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/2356810521.shtml)
+- 2026-06-29 18:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/88407.shtml)
+- 2026-06-29 18:36 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/884347.shtml)
+- 2026-06-29 18:51 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/3612813.shtml)
+- 2026-06-29 18:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/021644.shtml)
+- 2026-06-29 18:46 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/17164624.shtml)
+- 2026-06-29 18:33 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/65461.shtml)
+- 2026-06-29 18:53 - [美的“卡bug”空调在欧洲卖爆](https://www.share.minike.top/Article/details/79452125.shtml)
+- 2026-06-29 18:37 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/8362652.shtml)
+- 2026-06-29 18:25 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/300040.shtml)
+- 2026-06-29 18:27 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/351096024.shtml)
+- 2026-06-29 18:24 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/26914176311.shtml)
+- 2026-06-29 18:32 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/37535.shtml)
+- 2026-06-29 18:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/07904042.shtml)
+- 2026-06-29 18:28 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/515008.shtml)
+- 2026-06-29 18:30 - [倪春青跨市履新苏州市委组织部部长](http://www.blog.kurohicncr.top/Article/details/16997490183.shtml)

@@ -1,60 +1,59 @@
-# 习近平总书记署名文章为中朝关系迈向新高度提供指引
+# 增加受教育年限提升人才红利——“十五五”时期经济社会发展主要指标解读⑥
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-原标题：新华全媒头条｜让中朝传统友谊焕发更加璀璨的时代光辉——习近平总书记署名文章为中朝关系不断迈向新高度提供指引 6月8日，在赴平壤对朝鲜民主主义人民共和国进行国事访问之际，中共中央总书记、国家主席习近平在朝鲜《劳动新闻》发表题为《继往开来、砥砺同行 续写中朝传统友谊崭新篇章》的署名文章。 中朝两国人士纷纷表示，习近平总书记的署名文章深刻阐述了中朝关系的最大优势、鲜明底色、深
+“十五五”规划纲要提出—— 到2030年，劳动年龄人口平均受教育年限增至11.7年 “十五五”规划纲要提出，到2030年，劳动年龄人口平均受教育年限增加到11.7年，这也是唯一一项约束性民生指标。从“十四五”末的11.3年到“十五五”末的11.7年，劳动年龄人口平均受教育年限增加0.4年的背后意味着什么？为此，记者采访了教育领域相关专家。 夯实人力资源基础劳动年龄人口平均受教育
 
 ## 正文
 
-原标题：新华全媒头条｜让中朝传统友谊焕发更加璀璨的时代光辉——习近平总书记署名文章为中朝关系不断迈向新高度提供指引 6月8日，在赴平壤对朝鲜民主主义人民共和国进行国事访问之际，中共中央总书记、国家主席习近平在朝鲜《劳动新闻》发表题为《继往开来、砥砺同行 续写中朝传统友谊崭新篇章》的署名文章。
+“十五五”规划纲要提出—— 到2030年，劳动年龄人口平均受教育年限增至11.7年 “十五五”规划纲要提出，到2030年，劳动年龄人口平均受教育年限增加到11.7年，这也是唯一一项约束性民生指标。
 
-中朝两国人士纷纷表示，习近平总书记的署名文章深刻阐述了中朝关系的最大优势、鲜明底色、深厚根基和时代内涵，提出深化战略沟通、加强交流互鉴、拓展务实合作、密切多边协作四点主张，为中朝关系不断迈向新高度提供指引，相信此访将让中朝传统友谊焕发更加璀璨的时代光辉。
+从“十四五”末的11.3年到“十五五”末的11.7年，劳动年龄人口平均受教育年限增加0.4年的背后意味着什么？
 
-“守牢两国友谊的历史根脉” 习近平总书记的署名文章刊登于8日出版的《劳动新闻》头版。
+为此，记者采访了教育领域相关专家。
 
-新华社记者在平壤市区多处公共报栏看到，不少当地民众驻足阅读，其中包括系着红领巾的少年和青年学生。
+夯实人力资源基础劳动年龄人口平均受教育年限，是指劳动年龄人口人均接受学历教育(包括成人学历教育，但不包括各种非学历培训)的年数。
 
-《劳动新闻》头版配发的社论指出，平壤街头洋溢着友好的气氛，迎接最尊重的贵宾。
+在我国，具体指16岁至59岁人口人均接受学历教育的年数。
 
-习近平同志此访有力展示了两国友好关系牢不可破且日益发展。
+“劳动年龄人口总量反映一个国家和地区人力资源数量的丰沛程度，人口的受教育程度则反映人力资源质量水平。
 
-“社会主义是两国人民的共同理想、共同旗帜、共同伟业。
+”中国教育科学研究院教育统计分析研究所所长马晓强表示，根据“七普”人口数据及推算，2025年，16岁至59岁劳动年龄人口为8.51亿人，占全国人口的60.6%。
 
-不断加强和发展以社会主义为核心的朝中友好关系，是我们党、政府和人民的坚定意志和立场。
+2025年我国劳动年龄人口平均受教育年限达到11.3年，相当于高三年级上学期阶段。
 
 ## 相关推荐
 
-- 2026-06-29 18:34 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 18:31 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 18:46 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 18:41 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 18:22 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 18:27 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 18:42 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 18:39 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 18:32 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 18:25 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 18:32 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 18:22 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 18:46 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 18:22 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 18:46 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 18:28 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 18:25 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 18:34 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 18:53 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 18:41 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 18:39 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 18:29 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 18:42 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 18:34 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 18:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 18:47 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 18:26 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:33 - [倪春青跨市履新苏州市委组织部部长](http://www.share.kurohicncr.top/Article/details/82901094948.shtml)
-- 2026-06-29 18:39 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/086283329.shtml)
-- 2026-06-29 18:29 - [南昌市委书记调整](http://www.share.minike.top/Article/details/245516500.shtml)
-- 2026-06-29 18:26 - [葛军透露高考出题思路](https://www.blog.kurohicncr.top/Article/details/0853115123.shtml)
-- 2026-06-29 18:34 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/09449212.shtml)
-- 2026-06-29 18:18 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/2119811.shtml)
-- 2026-06-29 18:30 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/535567338311.shtml)
-- 2026-06-29 18:31 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/87240576.shtml)
-- 2026-06-29 18:40 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.minike.top/Article/details/11173.shtml)
-- 2026-06-29 18:30 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/268325141832.shtml)
-- 2026-06-29 18:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/24939065.shtml)
-- 2026-06-29 18:30 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/15834.shtml)
-- 2026-06-29 18:40 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/21749077.shtml)
-- 2026-06-29 18:28 - [流金岁月](https://www.share.minike.top/Article/details/8212859.shtml)
-- 2026-06-29 18:40 - [外交部谈对日出口管制措施](http://www.share.minike.top/Article/details/25970.shtml)
+- 2026-06-29 18:44 - [时光音乐会](https://www.share.minike.top/Article/details/3123866.shtml)
+- 2026-06-29 18:51 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/2010498917.shtml)
+- 2026-06-29 18:36 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/2724644963.shtml)
+- 2026-06-29 18:31 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/508621.shtml)
+- 2026-06-29 18:36 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/805475445486.shtml)
+- 2026-06-29 18:27 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/671085.shtml)
+- 2026-06-29 18:47 - [苹果回应恋与深空低分](http://www.share.minike.top/Article/details/826477.shtml)
+- 2026-06-29 18:44 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.kurohicncr.top/Article/details/299115829920.shtml)
+- 2026-06-29 18:53 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/19263.shtml)
+- 2026-06-29 18:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/47671532216.shtml)
+- 2026-06-29 18:35 - [四川达州发生一起交通事故致2死](http://www.blog.minike.top/Article/details/2831420420.shtml)
+- 2026-06-29 18:47 - [学者：建设性战略稳定重塑中美关系](http://www.blog.kurohicncr.top/Article/details/394673896.shtml)
+- 2026-06-29 18:39 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/56140223.shtml)
+- 2026-06-29 18:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/8776372463.shtml)
+- 2026-06-29 18:42 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/722042442846.shtml)

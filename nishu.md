@@ -1,56 +1,60 @@
-# Nurix与罗氏达成23亿美元合作，股价飙升24%
+# 中国连续7年开展污染防治攻坚战成效考核
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-生物科技公司Nurix Therapeutics股价在盘前交易中大幅上涨约24%，此前该公司宣布与制药巨头罗氏达成一项全球合作协议，共同开发和商业化用于治疗癌症及自身免疫性疾病的蛋白降解剂bexobrutideg。 根据协议条款，Nurix将获得7亿美元的预付现金，并有资格获得最高达23亿美元的开发、监管及销售里程碑付款。在美国市场，双方将平分利润与亏损，并共同进行商业化推广；
+中新社北京5月7日电 (记者 阮煜琳)中央生态环境保护督察工作领导小组办公室有关负责人7日对记者表示，在中央生态环境保护督察工作领导小组牵头组织下，连续7年开展污染防治攻坚战成效考核，成为推动生态环境质量持续改善的有力抓手。中共中央办公厅、国务院办公厅日前印发《美丽中国建设成效考核办法》(下称《考核办法》)。 据介绍，对各省(自治区、直辖市)党委和政府美丽中国建设成效的考核，主
 
 ## 正文
 
-生物科技公司Nurix Therapeutics股价在盘前交易中大幅上涨约24%，此前该公司宣布与制药巨头罗氏达成一项全球合作协议，共同开发和商业化用于治疗癌症及自身免疫性疾病的蛋白降解剂bexobrutideg。
+中新社北京5月7日电 (记者 阮煜琳)中央生态环境保护督察工作领导小组办公室有关负责人7日对记者表示，在中央生态环境保护督察工作领导小组牵头组织下，连续7年开展污染防治攻坚战成效考核，成为推动生态环境质量持续改善的有力抓手。
 
-根据协议条款，Nurix将获得7亿美元的预付现金，并有资格获得最高达23亿美元的开发、监管及销售里程碑付款。
+中共中央办公厅、国务院办公厅日前印发《美丽中国建设成效考核办法》(下称《考核办法》)。
 
-在美国市场，双方将平分利润与亏损，并共同进行商业化推广；在美国以外地区，罗氏将负责商业化，Nurix则可获得低至百分之十几的销售分成。
+据介绍，对各省(自治区、直辖市)党委和政府美丽中国建设成效的考核，主要包括美丽中国建设责任落实情况。
 
-双方将按照Nurix承担40%、罗氏承担60%的比例分担开发成本。
+美丽中国建设年度主要目标完成情况，考核大气环境、水和海洋生态环境、土壤生态环境、固体废物污染防治和生态质量状况以及年度目标完成情况。
 
-Bexobrutideg是一款口服、可穿透血脑屏障的高选择性BTK蛋白降解剂。
+美丽中国建设年度重点任务完成情况，资金使用绩效情况，以及民众满意程度。
 
-与传统BTK抑制剂仅阻断激酶活性不同，这款药物通过利用人体自身的蛋白质降解系统，能够彻底清除细胞内的BTK蛋白，从而消除其激酶活性和支架信号功能。
+上述负责人表示，《考核办法》是中国生态环境领域又一部重要党内法规，是推动树立和践行正确政绩观的制度利器，是全面推进美丽中国建设的有力抓手，是健全生态环境治理体系的重要举措。
 
-这一机制使其对已产生耐药突变的患者仍保持活性，在早期临床研究中，该药在慢性淋巴细胞白血病患者中展现出较高的总缓解率，包括那些对现有BTK抑制剂产生耐药的患者。
+考核采用百分制评分，根据评分情况，考核结果划分为优秀、良好、合格、不合格4个等级。
 
-罗氏首席医学官兼全球产品开发负责人表示：“我们相信bexobrutideg代表着在对抗复杂血癌及其他疾病方面的重大飞跃。
+省(自治区、直辖市)发生特别重大环境污染事件或者特别重大生态破坏事件的，年度考核结果不得确定为“良好”及以上。
 
 ## 相关推荐
 
-- 2026-06-29 18:19 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 18:27 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 18:18 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 18:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 18:35 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 18:41 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 18:43 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 18:23 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 18:37 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 18:23 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 18:33 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 18:41 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 18:52 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 18:29 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 18:24 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 18:34 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 18:24 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 18:51 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 18:24 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 18:49 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 18:43 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 18:37 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 18:40 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 18:24 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:35 - [女心理师](http://www.blog.minike.top/Article/details/08281772.shtml)
-- 2026-06-29 18:19 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/15067375.shtml)
-- 2026-06-29 18:31 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/85737414.shtml)
-- 2026-06-29 18:43 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/812649.shtml)
-- 2026-06-29 18:25 - [娜扎搂着我的腰和我合照](http://www.share.minike.top/Article/details/8597884803.shtml)
-- 2026-06-29 18:33 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/56532449779.shtml)
-- 2026-06-29 18:41 - [人形机器人](http://www.share.minike.top/Article/details/2853781.shtml)
-- 2026-06-29 18:32 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/42646006231.shtml)
-- 2026-06-29 18:45 - [张杰我九岁就跟你了](http://www.blog.kurohicncr.top/Article/details/5603794.shtml)
-- 2026-06-29 18:37 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/02350464450.shtml)
-- 2026-06-29 18:27 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/6249381.shtml)
-- 2026-06-29 18:46 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/55916.shtml)
-- 2026-06-29 18:26 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/383745141.shtml)
-- 2026-06-29 18:44 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/385630923.shtml)
-- 2026-06-29 18:32 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/7453092927.shtml)
+- 2026-06-29 18:50 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/365471156286.shtml)
+- 2026-06-29 18:31 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/58208382987.shtml)
+- 2026-06-29 18:32 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/121135952288.shtml)
+- 2026-06-29 18:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/094742147.shtml)
+- 2026-06-29 18:41 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/7997541080.shtml)
+- 2026-06-29 18:44 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/349702740.shtml)
+- 2026-06-29 18:29 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/67589.shtml)
+- 2026-06-29 18:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/405807.shtml)
+- 2026-06-29 18:24 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.minike.top/Article/details/11083.shtml)
+- 2026-06-29 18:26 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/799688.shtml)
+- 2026-06-29 18:41 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/15242.shtml)
+- 2026-06-29 18:38 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/4835711.shtml)
+- 2026-06-29 18:52 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/581667638.shtml)
+- 2026-06-29 18:52 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/23967.shtml)
+- 2026-06-29 18:26 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/66882039739.shtml)

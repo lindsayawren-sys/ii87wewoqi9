@@ -1,49 +1,60 @@
-# 苹果“AI”由谷歌Gemini提供技术，可在云端服务器运行
+# 南京至巴基斯坦首条风电装备运输航线首航
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-专题：WWDC26苹果开发者大会 新浪科技讯 6月9日凌晨，苹果召开 WWDC26 全球开发者大会。苹果宣布Apple Intelligence与谷歌达成合作，引入Gemini大模型，并带来全新的AI架构。新版苹果AI将由Gemini提供技术，能在设备端运行，也可以在云端服务器运行。责任编辑：丁文武
+中新社南京5月8日电 (记者 朱晓颖)中远海运特种运输股份有限公司“天乐”轮8日晨驶离南京港码头直航巴基斯坦。这是南京港首次完成大型风电装备出口业务，标志着南京至巴基斯坦首条风电装备运输航线首航。 “天乐”轮船长189.99米、宽28.5米，载重吨为37996.60吨，船上装载4套风电设备(含塔筒、单长90米超长叶片)以及铁塔、变压器等，总方量达4万方。该批能源装备将直达巴基斯
 
 ## 正文
 
-专题：WWDC26苹果开发者大会 新浪科技讯 6月9日凌晨，苹果召开 WWDC26 全球开发者大会。
+中新社南京5月8日电 (记者 朱晓颖)中远海运特种运输股份有限公司“天乐”轮8日晨驶离南京港码头直航巴基斯坦。
 
-苹果宣布Apple Intelligence与谷歌达成合作，引入Gemini大模型，并带来全新的AI架构。
+这是南京港首次完成大型风电装备出口业务，标志着南京至巴基斯坦首条风电装备运输航线首航。
 
-新版苹果AI将由Gemini提供技术，能在设备端运行，也可以在云端服务器运行。
+“天乐”轮船长189.99米、宽28.5米，载重吨为37996.60吨，船上装载4套风电设备(含塔筒、单长90米超长叶片)以及铁塔、变压器等，总方量达4万方。
 
-责任编辑：丁文武
+该批能源装备将直达巴基斯坦卡拉奇，用于当地新能源项目建设。
+
+南京海事局龙潭海事处海事监管科科长包沐曦介绍，从南京港出口的“宁货宁出”模式降低了南京市企业的物流成本，将大幅提升运输效能，助力企业降本增效。
+
+据统计，今年一季度，南京港货物吞吐量、集装箱吞吐量同比分别增长15.93%、15.64%，实现了航运经济开门红。
+
+本月，“南京港—钱凯港”外贸新航线开通，打通了长三角至南美洲地区的海上运输新路径。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 18:21 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 18:37 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 18:27 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 18:19 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 18:23 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 18:40 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 18:35 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 18:27 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 18:41 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 18:41 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 18:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 18:26 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 18:52 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 18:44 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 18:33 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 18:42 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 18:28 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 18:38 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 18:34 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 18:24 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 18:39 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 18:25 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 18:50 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 18:31 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:35 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/699517702.shtml)
-- 2026-06-29 18:27 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/87727.shtml)
-- 2026-06-29 18:39 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/21088709805.shtml)
-- 2026-06-29 18:29 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/088235281968.shtml)
-- 2026-06-29 18:25 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/52348658624.shtml)
-- 2026-06-29 18:42 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/426869595430.shtml)
-- 2026-06-29 18:31 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/329235324.shtml)
-- 2026-06-29 18:23 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/812575.shtml)
-- 2026-06-29 18:19 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/243113.shtml)
-- 2026-06-29 18:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/5263700.shtml)
-- 2026-06-29 18:26 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/86054580.shtml)
-- 2026-06-29 18:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/36951759.shtml)
-- 2026-06-29 18:47 - [起风了](http://www.blog.kurohicncr.top/Article/details/13813591.shtml)
-- 2026-06-29 18:19 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/54308.shtml)
-- 2026-06-29 18:29 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/19194.shtml)
+- 2026-06-29 18:47 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/4124249.shtml)
+- 2026-06-29 18:48 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/14308611.shtml)
+- 2026-06-29 18:29 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/591449.shtml)
+- 2026-06-29 18:38 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/83299.shtml)
+- 2026-06-29 18:38 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/9514615.shtml)
+- 2026-06-29 18:47 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/4168811270.shtml)
+- 2026-06-29 18:46 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/768895010348.shtml)
+- 2026-06-29 18:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/05517247640.shtml)
+- 2026-06-29 18:39 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/346209.shtml)
+- 2026-06-29 18:35 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/33450310.shtml)
+- 2026-06-29 18:28 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/875256948.shtml)
+- 2026-06-29 18:45 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/3023612213.shtml)
+- 2026-06-29 18:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/1035632.shtml)
+- 2026-06-29 18:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/485901263.shtml)
+- 2026-06-29 18:25 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/5959720.shtml)

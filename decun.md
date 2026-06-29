@@ -1,48 +1,57 @@
-# 新华图讯丨习近平和彭丽媛观看朝鲜专场文艺演出
+# 江铃汽车：4月汽车销量34948辆，同比增长14.59%
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-当地时间6月8日晚，中共中央总书记、国家主席习近平和夫人彭丽媛在朝鲜劳动党总书记、国务委员长金正恩和夫人李雪主陪同下，在平壤体育馆同朝鲜各界群众一道观看专场文艺演出。 摄影：谢环驰 李响 燕雁 编辑：张岩 毕晓洋 李琰 郝昭 虞东升 卢烨 许睿 来源：新华社
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：IT之家）IT之家 5 月 7 日消息，江铃汽车今日公告，2026 年 4 月汽车销量 34948 辆，同比增长 14.59%。本年累计汽车销量 12.1 万辆，同比增长 13.62%。IT之家附各产品销量如下：作为参考，2025 年，江铃汽车销售了 377,253 辆整车，包括 99,770 辆轻
 
 ## 正文
 
-当地时间6月8日晚，中共中央总书记、国家主席习近平和夫人彭丽媛在朝鲜劳动党总书记、国务委员长金正恩和夫人李雪主陪同下，在平壤体育馆同朝鲜各界群众一道观看专场文艺演出。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-摄影：谢环驰 李响 燕雁 编辑：张岩 毕晓洋 李琰 郝昭 虞东升 卢烨 许睿 来源：新华社
+（来源：IT之家）IT之家 5 月 7 日消息，江铃汽车今日公告，2026 年 4 月汽车销量 34948 辆，同比增长 14.59%。
+
+本年累计汽车销量 12.1 万辆，同比增长 13.62%。
+
+IT之家附各产品销量如下：作为参考，2025 年，江铃汽车销售了 377,253 辆整车，包括 99,770 辆轻型客车、83,207 辆卡车、59,681 辆皮卡、134,595 辆 SUV，总销量较上年同期上升 10.56%。
+
+2025 年，江铃汽车实现营业收入 391.70 亿元，同比增长 2.07%。
+
+2025 年度归属于上市公司股东的净利润 11.88 亿元，同比下降 22.71%。
 
 ## 相关推荐
 
-- 2026-06-29 18:25 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 18:30 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 18:33 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 18:26 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 18:32 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 18:38 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 18:40 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 18:44 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 18:24 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 18:45 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 18:33 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 18:40 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 18:41 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 18:35 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 18:52 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 18:30 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 18:27 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 18:41 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 18:24 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 18:39 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 18:42 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 18:46 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 18:41 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 18:50 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 18:50 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 18:47 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 18:35 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 18:26 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 18:48 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:19 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/02558.shtml)
-- 2026-06-29 18:34 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/6600328.shtml)
-- 2026-06-29 18:45 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/442949410413.shtml)
-- 2026-06-29 18:44 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/555376771.shtml)
-- 2026-06-29 18:40 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/464819414577.shtml)
-- 2026-06-29 18:46 - [两老人多次到一洗车店泼粪](https://www.share.kurohicncr.top/Article/details/59958072493.shtml)
-- 2026-06-29 18:24 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/18486957.shtml)
-- 2026-06-29 18:37 - [周生如故](http://www.share.minike.top/Article/details/058452.shtml)
-- 2026-06-29 18:33 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/1838528034.shtml)
-- 2026-06-29 18:33 - [黄金也扛不住了](http://www.share.minike.top/Article/details/628550632.shtml)
-- 2026-06-29 18:19 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/528836603.shtml)
-- 2026-06-29 18:33 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/669954.shtml)
-- 2026-06-29 18:32 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/7292918.shtml)
-- 2026-06-29 18:19 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/708032.shtml)
-- 2026-06-29 18:20 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/641486629.shtml)
+- 2026-06-29 18:37 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.kurohicncr.top/Article/details/28204557281.shtml)
+- 2026-06-29 18:33 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/1750357.shtml)
+- 2026-06-29 18:50 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/3947755.shtml)
+- 2026-06-29 18:29 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/591633315.shtml)
+- 2026-06-29 18:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/436835.shtml)
+- 2026-06-29 18:32 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/13466483.shtml)
+- 2026-06-29 18:31 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/50674842659.shtml)
+- 2026-06-29 18:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/68204.shtml)
+- 2026-06-29 18:28 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/3798037065.shtml)
+- 2026-06-29 18:34 - [叠纸](http://www.blog.kurohicncr.top/Article/details/741270.shtml)
+- 2026-06-29 18:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/42649307467.shtml)
+- 2026-06-29 18:26 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/4665764.shtml)
+- 2026-06-29 18:51 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/3860873186.shtml)
+- 2026-06-29 18:47 - [博主：AI泡沫必须破灭](http://www.share.kurohicncr.top/Article/details/4323011513.shtml)
+- 2026-06-29 18:34 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/58385990.shtml)

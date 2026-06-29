@@ -1,56 +1,57 @@
-# 中国2026年4月份稀土永磁铁出口量同比上涨95.16%
+# 省级农商行成立后首份年报亮出！内蒙古农商行去年后半年实现营收超100亿元
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-北京（亚洲金属）2026-06-09 2026年4月份中国稀土永磁铁出口量5,126.30公吨，去年同期为2,626.73公吨，上月为5,238.26公吨，同比上涨95.16%，环比下跌2.14%。2026年4月份中国稀土永磁铁出口额288,593,576.00美元，去年同期为114,888,040.00美元，上月为282,612,136.00美元，同比上涨151.20%，环比
+来源：华夏时报 日前，内蒙古农商银行发布2025年度报告，正式披露其改革后的首份成绩单。 该行在回应本报记者采访时强调，报告涉及数据非完整自然年度指标，统计期间为2025年5月27日至12月31日。在此报告期内，内蒙古农商银行实现营业收入100.56亿元（银行口径数据，后同），利润总额1.81亿元，净利润0.48亿元。 报告显示，截至2025年末，该行总资产达8824.17亿元
 
 ## 正文
 
-北京（亚洲金属）2026-06-09 2026年4月份中国稀土永磁铁出口量5,126.30公吨，去年同期为2,626.73公吨，上月为5,238.26公吨，同比上涨95.16%，环比下跌2.14%。
+来源：华夏时报 日前，内蒙古农商银行发布2025年度报告，正式披露其改革后的首份成绩单。
 
-2026年4月份中国稀土永磁铁出口额288,593,576.00美元，去年同期为114,888,040.00美元，上月为282,612,136.00美元，同比上涨151.20%，环比上涨2.12%。
+该行在回应本报记者采访时强调，报告涉及数据非完整自然年度指标，统计期间为2025年5月27日至12月31日。
 
-出口均价56,296.66美元/公吨，去年同期为43,738.05美元/公吨，上月为53,951.53美元/公吨。
+在此报告期内，内蒙古农商银行实现营业收入100.56亿元（银行口径数据，后同），利润总额1.81亿元，净利润0.48亿元。
 
-2026年1-4月，中国累计出口稀土永磁铁21,127.12公吨，去年同期为17,892.70公吨，同比上涨18.08%。
+报告显示，截至2025年末，该行总资产达8824.17亿元，核心一级资本充足率为12.21%，不良贷款率为3.37%。
 
-中国过去13个月稀土永磁铁出口数量中国过去13个月稀土永磁铁出口均价2026年4月，中国稀土永磁铁前三大出口目的国为德国、韩国和美国。
+该行表示，将继续锚定高质量发展目标，坚定不移化解原农信机构存量风险。
 
-中国向德国出口稀土永磁铁1,012.65公吨，去年同期为511.62公吨，上月为1,122.42公吨，同比上涨97.93%，环比下跌9.78%。
+招联首席研究员董希淼向记者表示，不良资产处置不应仅是“甩包袱”，更应成为压降成本、释放效益的契机。
 
-出口均价50,278.09美元/公吨，去年同期为43,579.26美元/公吨，上月为48,969.09美元/公吨，同比上涨15.37%，环比上涨2.67%。
+他强调，对内蒙古农商银行而言，从长远看，应通过“控新增、化存量、优结构”组合策略，在稳步压降风险水平的同时，逐步将资产质量改善转化为利润增长的内生动力，最终实现高质量稳健发展。
 
-中国向韩国出口稀土永磁铁599.53公吨，去年同期为156.44公吨，上月为604.74公吨，同比上涨283.24%，环比下跌0.86%。
+成立后首份年报出炉 内蒙古农商银行于2025年5月27日正式挂牌开业，由原内蒙古自治区农村信用社联合社、93家旗县级法人农信机构及其发起设立的26家区内村镇银行，以新设合并方式组建而成。
 
 ## 相关推荐
 
-- 2026-06-29 18:24 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 18:41 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 18:35 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 18:28 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 18:22 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 18:41 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 18:30 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 18:44 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 18:28 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 18:28 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 18:39 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 18:25 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 18:46 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 18:36 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 18:33 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 18:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 18:29 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 18:43 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 18:45 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 18:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 18:41 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/33711923.shtml)
-- 2026-06-29 18:19 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/655273838857.shtml)
-- 2026-06-29 18:42 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/62483731.shtml)
-- 2026-06-29 18:31 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/245354.shtml)
-- 2026-06-29 18:25 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/00974.shtml)
-- 2026-06-29 18:46 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/2392925657.shtml)
-- 2026-06-29 18:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/768884876450.shtml)
-- 2026-06-29 18:37 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.minike.top/Article/details/439887242.shtml)
-- 2026-06-29 18:31 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/62853.shtml)
-- 2026-06-29 18:34 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/777073056988.shtml)
-- 2026-06-29 18:27 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/265006.shtml)
-- 2026-06-29 18:37 - [斗破苍穹](https://www.share.minike.top/Article/details/27463487.shtml)
-- 2026-06-29 18:23 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/130087067169.shtml)
-- 2026-06-29 18:47 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/33045806626.shtml)
-- 2026-06-29 18:40 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/34590832589.shtml)
+- 2026-06-29 18:33 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.minike.top/Article/details/73521070177.shtml)
+- 2026-06-29 18:27 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/0974000.shtml)
+- 2026-06-29 18:38 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.minike.top/Article/details/827193.shtml)
+- 2026-06-29 18:25 - [朱必达辞去湖南人大常委会委员职务](http://www.share.kurohicncr.top/Article/details/403311933.shtml)
+- 2026-06-29 18:24 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/789635524.shtml)
+- 2026-06-29 18:28 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/8242258929.shtml)
+- 2026-06-29 18:52 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/1808226.shtml)
+- 2026-06-29 18:29 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/876746735448.shtml)
+- 2026-06-29 18:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/33342.shtml)
+- 2026-06-29 18:40 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/28861010150.shtml)
+- 2026-06-29 18:25 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/45732566460.shtml)
+- 2026-06-29 18:26 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/9888254.shtml)
+- 2026-06-29 18:31 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/5679179.shtml)
+- 2026-06-29 18:49 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/3939667870.shtml)
+- 2026-06-29 18:27 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/1193838053.shtml)

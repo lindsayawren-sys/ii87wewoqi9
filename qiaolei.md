@@ -1,59 +1,57 @@
-# 北京“乡村CEO”的一场课外讨论
+# “沪港同心实习计划系列2026”香港启动 累计服务逾3000名香港学子
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-近日，北京市大兴区安定镇“山山的农梦园”里绿树成荫，园中桑树挂满果实，进入“最佳赏味期”。 “我们把桑叶做成养生茶，桑枝做成健身锤，桑椹做成冻干、果酱，还开发了桑椹披萨——现烤披萨加上新鲜果肉，一口‘爆浆’，特别美味。”桑树下，新农人陈山山介绍她带领乡亲们“点桑成金”的成果。“春采桑枝，夏收桑椹，秋摘桑叶，冬剥桑皮……桑叶采摘季，技能娴熟的村民单日可增收2600多元。” 当天，
+中新网香港5月8日电 “百万青年看祖国——沪港同心实习计划系列2026”启动礼7日在香港举行。该计划旨在帮助香港青年从校园平稳过渡至职场，推动沪港两地青年深度交流融合，引导青年把握国家发展机遇，主动融入并服务国家发展大局。 主办方介绍，2026年计划将组织超340名香港学子前往上海知名企业，开展6周至8周的实习，助力青年把握更多发展机会。未来，主办方将联动更多沪港优质企业，为香
 
 ## 正文
 
-近日，北京市大兴区安定镇“山山的农梦园”里绿树成荫，园中桑树挂满果实，进入“最佳赏味期”。
+中新网香港5月8日电 “百万青年看祖国——沪港同心实习计划系列2026”启动礼7日在香港举行。
 
-“我们把桑叶做成养生茶，桑枝做成健身锤，桑椹做成冻干、果酱，还开发了桑椹披萨——现烤披萨加上新鲜果肉，一口‘爆浆’，特别美味。
+该计划旨在帮助香港青年从校园平稳过渡至职场，推动沪港两地青年深度交流融合，引导青年把握国家发展机遇，主动融入并服务国家发展大局。
 
-”桑树下，新农人陈山山介绍她带领乡亲们“点桑成金”的成果。
+主办方介绍，2026年计划将组织超340名香港学子前往上海知名企业，开展6周至8周的实习，助力青年把握更多发展机会。
 
-“春采桑枝，夏收桑椹，秋摘桑叶，冬剥桑皮……桑叶采摘季，技能娴熟的村民单日可增收2600多元。
+未来，主办方将联动更多沪港优质企业，为香港青年提供更多优质实习岗位与发展平台，培育爱国爱港、兼具国际视野与专业素养的青年人才，推动沪港两地优势互补、融合发展。
 
-” 当天，一场“青年乡村CEO”交流活动在此举行。
+中华全国青年联合会委员、沪港青年会主席郭晓芝表示，“沪港同心实习计划”自2009年创办至今，已累计服务超3000名香港青年学生，希望帮助香港青年拓宽视野、明确方向、增强归属感，让青年切实感受到国家对其成长的重视与支持。
 
-陈山山作为“北京市青年乡村CEO培养计划”学员，向与会者介绍自己返乡创业9年来的成果。
+青年学子未来无论在香港、上海或其他城市发展，都能铭记这段职业实践与认识祖国的重要一步。
 
-此次活动由北京市政协农业农村委、北京农业职业学院(简称“北京农职院”)联合举办。
+本次活动由沪港社团总会、沪港青年会、上海香港联会、沪港妇女会、香港上海普陀联会、黄浦香港联谊会联合主办。
 
-北京农职院有关负责人介绍，该校共有11名学子入围“北京市青年乡村CEO培养计划”。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 18:33 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 18:46 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 18:40 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 18:42 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 18:31 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 18:47 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 18:37 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 18:27 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-29 18:18 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 18:24 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 18:25 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 18:42 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 18:27 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 18:37 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 18:35 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 18:51 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 18:40 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 18:28 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 18:26 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 18:35 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 18:25 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 18:41 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 18:30 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:47 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/607272.shtml)
-- 2026-06-29 18:34 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/4922147.shtml)
-- 2026-06-29 18:26 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/078488.shtml)
-- 2026-06-29 18:41 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.minike.top/Article/details/4169895170.shtml)
-- 2026-06-29 18:37 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.kurohicncr.top/Article/details/50926110626.shtml)
-- 2026-06-29 18:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/17848368761.shtml)
-- 2026-06-29 18:31 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/264915.shtml)
-- 2026-06-29 18:24 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/66089533002.shtml)
-- 2026-06-29 18:32 - [中方向委方追加1亿元援助](http://www.blog.kurohicncr.top/Article/details/9357527.shtml)
-- 2026-06-29 18:45 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/1545188.shtml)
-- 2026-06-29 18:38 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/571809.shtml)
-- 2026-06-29 18:27 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/57940152.shtml)
-- 2026-06-29 18:40 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/18276429.shtml)
-- 2026-06-29 18:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/297559961.shtml)
-- 2026-06-29 18:41 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/077665244558.shtml)
+- 2026-06-29 18:46 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/46254.shtml)
+- 2026-06-29 18:48 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/32113767649.shtml)
+- 2026-06-29 18:29 - [花万元相亲对象是50元雇的演员](https://www.blog.kurohicncr.top/Article/details/0885693860.shtml)
+- 2026-06-29 18:24 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/32578434.shtml)
+- 2026-06-29 18:39 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/713749.shtml)
+- 2026-06-29 18:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/05410688052.shtml)
+- 2026-06-29 18:38 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/30121430.shtml)
+- 2026-06-29 18:43 - [主力抛售电子和通信板块](https://www.blog.kurohicncr.top/Article/details/17936.shtml)
+- 2026-06-29 18:47 - [赵今麦时隔五年再演李诗情](https://www.share.kurohicncr.top/Article/details/0013120476.shtml)
+- 2026-06-29 18:33 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/046078417613.shtml)
+- 2026-06-29 18:39 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/87255.shtml)
+- 2026-06-29 18:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/966663.shtml)
+- 2026-06-29 18:27 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/784479108041.shtml)
+- 2026-06-29 18:31 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/867937.shtml)
+- 2026-06-29 18:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/3072169586.shtml)

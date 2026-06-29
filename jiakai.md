@@ -1,59 +1,57 @@
-# 第九届全球科技创新大会在布鲁塞尔举行
+# 不止于全李酒店，多个预订平台现又庭酒店、希堓酒店、桠朵酒店
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新网布鲁塞尔6月9日电 第九届全球科技创新大会(G-STIC)8日在布鲁塞尔举行，围绕“从创新到影响：赋能可持续转型”主题，力求提供从创新到切实影响的清晰路径。 当日会议汇聚多国企业家、科研人员、政策制定者及投资者，聚焦能源、粮食、水、健康、城市和金融六大领域，强调打破单一技术与行业局限，通过系统思维和务实方案，确保技术创新与政策、资金和现实需求紧密对接。 作为大会联合主办方
+5月7日，“全李酒店已更名”“多平台已下架全李酒店”等话题冲上热搜。有细心的网友发现，全国多地还存在“又庭酒店”，其店名及门面照片与华住会旗下“汉庭酒店”极为相似。 极目新闻记者在多个酒店预订平台查询发现，多地确实存在“又庭酒店”，这些酒店的店名和门面照片与华住会旗下的“汉庭酒店”高度相似，部分酒店上传的外观照片甚至仍显示为“汉庭酒店”。 5月7日下午，青海省玉树市一家“又庭酒
 
 ## 正文
 
-中新网布鲁塞尔6月9日电 第九届全球科技创新大会(G-STIC)8日在布鲁塞尔举行，围绕“从创新到影响：赋能可持续转型”主题，力求提供从创新到切实影响的清晰路径。
+5月7日，“全李酒店已更名”“多平台已下架全李酒店”等话题冲上热搜。
 
-当日会议汇聚多国企业家、科研人员、政策制定者及投资者，聚焦能源、粮食、水、健康、城市和金融六大领域，强调打破单一技术与行业局限，通过系统思维和务实方案，确保技术创新与政策、资金和现实需求紧密对接。
+有细心的网友发现，全国多地还存在“又庭酒店”，其店名及门面照片与华住会旗下“汉庭酒店”极为相似。
 
-作为大会联合主办方之一，中国科学院广州能源研究所在会上主办海洋经济专场会议，探讨如何平衡海洋资源开发、气候韧性建设、经济增长与海洋生态系统保护之间的关系，应对气候变化与资源枯竭对海洋带来的挑战。
+极目新闻记者在多个酒店预订平台查询发现，多地确实存在“又庭酒店”，这些酒店的店名和门面照片与华住会旗下的“汉庭酒店”高度相似，部分酒店上传的外观照片甚至仍显示为“汉庭酒店”。
 
-专场会议上，中国科学院广州能源研究所海上能源研究中心主任盛松伟发表演讲，分享广州能源所在波浪能发电、海上一体化能源平台与系统等领域的研究成果与实践经验，来自比利时、挪威、西班牙等国的专家学者亦参与对话。
+5月7日下午，青海省玉树市一家“又庭酒店”的工作人员告诉记者，该酒店原为“汉庭酒店”，目前已不属于华住会旗下，而是一家单体酒店。
 
-全球科技创新大会由比利时法兰德斯技术研究院发起，2017年在布鲁塞尔举办首届大会，致力于探讨已具备市场条件的技术解决方案与合作模式，推动实现联合国可持续发展目标。
+山东省济南市一家“又庭酒店”也表示，酒店去年已不属于华住会旗下，“又庭酒店”即为更名后的名称，目前单独经营。
 
-据介绍，大会现由包括中国科学院广州能源研究所在内的全球18家非营利科研机构共同主办，形成覆盖五大洲的合作网络。
+除此之外，南京、上海、滁州等地同样出现了“又庭酒店”。
 
-(完)
+随后，记者也以消费者身份联系了华住会线上客服，对方表示，“目前华住没有又庭酒店这个品牌。
+
+” 原加盟店在合作终止后将名称改为与“全季”“汉庭”等知名品牌高度相似的“全李酒店”“又庭酒店”，当事酒店是否涉嫌侵权？
 
 ## 相关推荐
 
-- 2026-06-29 18:21 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 18:25 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 18:26 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 18:19 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 18:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 18:36 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 18:25 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 18:34 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 18:37 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 18:25 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 18:43 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 18:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 18:47 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 18:44 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 18:43 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 18:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 18:32 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 18:42 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 18:44 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 18:49 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 18:42 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 18:46 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 18:30 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 18:40 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 18:25 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 18:29 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:22 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/304431.shtml)
-- 2026-06-29 18:23 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/8390185938.shtml)
-- 2026-06-29 18:44 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/306263649700.shtml)
-- 2026-06-29 18:32 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/1321415.shtml)
-- 2026-06-29 18:47 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/95307261.shtml)
-- 2026-06-29 18:34 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/54903.shtml)
-- 2026-06-29 18:25 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/8428489617.shtml)
-- 2026-06-29 18:39 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/3698411386.shtml)
-- 2026-06-29 18:44 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/821418116021.shtml)
-- 2026-06-29 18:25 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/9977888812.shtml)
-- 2026-06-29 18:34 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/76551193033.shtml)
-- 2026-06-29 18:43 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/17963.shtml)
-- 2026-06-29 18:47 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/374050015858.shtml)
-- 2026-06-29 18:39 - [滚石点名酒店员工说有急救培训](http://www.share.minike.top/Article/details/08046969988.shtml)
-- 2026-06-29 18:47 - [人形机器人](http://www.share.kurohicncr.top/Article/details/055093053346.shtml)
+- 2026-06-29 18:40 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/39025355305.shtml)
+- 2026-06-29 18:26 - [南昌市委书记调整](http://www.share.kurohicncr.top/Article/details/61000249.shtml)
+- 2026-06-29 18:40 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/93970.shtml)
+- 2026-06-29 18:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/164464.shtml)
+- 2026-06-29 18:52 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/488859542619.shtml)
+- 2026-06-29 18:48 - [中国空间站为什么要升级扩容](http://www.share.minike.top/Article/details/2250889.shtml)
+- 2026-06-29 18:47 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/161762431368.shtml)
+- 2026-06-29 18:52 - [周生如故](http://www.blog.kurohicncr.top/Article/details/248624.shtml)
+- 2026-06-29 18:43 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/2121640.shtml)
+- 2026-06-29 18:30 - [7款高价创新药有望降价](https://www.share.kurohicncr.top/Article/details/31048.shtml)
+- 2026-06-29 18:50 - [许建琼任湖南省检察院副检察长](http://www.share.minike.top/Article/details/4540147.shtml)
+- 2026-06-29 18:53 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/04846158359.shtml)
+- 2026-06-29 18:26 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/53818843.shtml)
+- 2026-06-29 18:52 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/61534.shtml)
+- 2026-06-29 18:40 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/921535.shtml)

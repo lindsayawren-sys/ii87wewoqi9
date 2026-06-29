@@ -1,58 +1,56 @@
-# 15台国产工程机械从广西北部湾港启航 驶向阿曼
+# 扰乱股市！用AI编造寒武纪假消息，证监局出手！获利不足300元，被罚45万
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新网钦州6月9日电 (李浩宇 黄荣冠 玉升辰)广西北部湾国际港务集团9日介绍，近日“芙蓉松”轮从北部湾港钦州港区大榄坪作业区北1号泊位启航，驶向阿曼杜克姆，船内装载了“中国智造”三一重工生产的一批挖掘机、装载机、正面吊等工程机械。这也是三一重工首次在北部湾港开展装载业务作业。 本次作业共装载15台工程机械。其中，全地面起重机单件自重达66吨，约等于3个满载的20尺集装箱的总重
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月9日，北京证监局发布了一份行政处罚决定书。决定书显示，2025年8月29日22点11分，冯某通过微信公众号发布包含相关方大量追加某上市公司芯片订单等虚假信息的文章1。有一定影响力的自媒体运营者班某利用AI工具将文章1改写为文章2，进行传播。两人合计从中盈利不足300元。后相关方进行了澄清。 证监局认为，
 
 ## 正文
 
-中新网钦州6月9日电 (李浩宇 黄荣冠 玉升辰)广西北部湾国际港务集团9日介绍，近日“芙蓉松”轮从北部湾港钦州港区大榄坪作业区北1号泊位启航，驶向阿曼杜克姆，船内装载了“中国智造”三一重工生产的一批挖掘机、装载机、正面吊等工程机械。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这也是三一重工首次在北部湾港开展装载业务作业。
+5月9日，北京证监局发布了一份行政处罚决定书。
 
-本次作业共装载15台工程机械。
+决定书显示，2025年8月29日22点11分，冯某通过微信公众号发布包含相关方大量追加某上市公司芯片订单等虚假信息的文章1。
 
-其中，全地面起重机单件自重达66吨，约等于3个满载的20尺集装箱的总重量。
+有一定影响力的自媒体运营者班某利用AI工具将文章1改写为文章2，进行传播。
 
-设备外形体积约196.8立方米，相当于6个20英尺标准集装箱的容量。
+两人合计从中盈利不足300元。
 
-为了高标准、零差错地完成本次作业任务，北部湾港钦州港区作业团队针对性优化升级专用吊装工属具，精准适配超大件设备作业需求，从源头筑牢安全生产防线。
+后相关方进行了澄清。
 
-针对设备易损精密部件，作业团队提前完成专业化防护处理，有效规避吊装、航行过程中的剐蹭、磨损风险。
+证监局认为，两人编造、传播虚假信息，扰乱证券市场，依法对两人合计罚款45万元。
 
-此次吊装环节采用双吊机协同作业模式，由资深操作人员规范精准完成起落、对位作业，稳稳把控吊装精度，杜绝设备倾斜、碰撞等安全隐患。
+综合信息显示，此处被涉及的上市公司或为寒武纪。
 
 ## 相关推荐
 
-- 2026-06-29 18:34 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 18:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 18:39 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 18:47 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 18:29 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 18:46 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 18:18 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 18:46 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 18:19 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 18:27 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 18:41 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 18:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 18:49 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 18:41 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 18:36 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 18:24 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 18:48 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 18:33 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 18:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 18:31 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 18:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 18:43 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [时光音乐会](https://www.share.minike.top/Article/details/35515.shtml)
-- 2026-06-29 18:22 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/213595614564.shtml)
-- 2026-06-29 18:19 - [货车司机雨中帮交警挪树获表扬](https://www.share.minike.top/Article/details/978269880881.shtml)
-- 2026-06-29 18:42 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/879753456.shtml)
-- 2026-06-29 18:46 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/7895876.shtml)
-- 2026-06-29 18:38 - [叠纸](http://www.share.minike.top/Article/details/5785868.shtml)
-- 2026-06-29 18:29 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/15122798.shtml)
-- 2026-06-29 18:20 - [速度与激情9](http://www.blog.minike.top/Article/details/9698629.shtml)
-- 2026-06-29 18:31 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/98475.shtml)
-- 2026-06-29 18:26 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/59943104486.shtml)
-- 2026-06-29 18:34 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/55825215433.shtml)
-- 2026-06-29 18:37 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/07819.shtml)
-- 2026-06-29 18:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/527384026.shtml)
-- 2026-06-29 18:44 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/008170.shtml)
-- 2026-06-29 18:38 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/0435860228.shtml)
+- 2026-06-29 18:40 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/2862946.shtml)
+- 2026-06-29 18:25 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/34724.shtml)
+- 2026-06-29 18:35 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.kurohicncr.top/Article/details/27194.shtml)
+- 2026-06-29 18:46 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/480035824496.shtml)
+- 2026-06-29 18:49 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/453814.shtml)
+- 2026-06-29 18:46 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/23525941.shtml)
+- 2026-06-29 18:36 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/39877916.shtml)
+- 2026-06-29 18:26 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/93071104109.shtml)
+- 2026-06-29 18:27 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/49448.shtml)
+- 2026-06-29 18:53 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/900484628767.shtml)
+- 2026-06-29 18:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/1635037409.shtml)
+- 2026-06-29 18:41 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/37857344.shtml)
+- 2026-06-29 18:40 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/7623683.shtml)
+- 2026-06-29 18:49 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/31681.shtml)
+- 2026-06-29 18:46 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.minike.top/Article/details/566426622593.shtml)

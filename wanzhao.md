@@ -1,57 +1,58 @@
-# 美国股市：纳斯达克100指数创逾一周最大涨幅 芯片股带动美股回升
+# 利润增长靠“节流”与“投资”，张家港行增利不增收的情况还要持续多久
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-标普500指数周一上涨，收复上周部分跌幅，芯片股大涨，同时投资者评估中东紧张局势缓和的影响。 标普500指数上涨0.3%。上周五，强劲就业数据推动市场提高对美联储加息的预期，导致该指数大跌 纳斯达克100指数上涨1.6%，创逾一周来最大涨幅，主要受半导体板块带动 费城半导体指数上涨5.6%；美光科技上涨近10%，博通上涨2.8% 英特尔上涨11%，创5月8日以来最大单日涨幅，此
+来源：华夏时报 在利息收入持续缩水的背景下，张家港行（002839.SZ）营业收入的增长终于难以为继。2026年一季度，该行营业收入同比下滑4.43%。 然而，利润端却呈现出另一番景象——同期归母净利润逆势增长了2.50%。这与2025年营收仅微增0.75%，归母净利润却增长5.35%的走势一脉相承。营收与利润之间的“剪刀差”不仅没有收窄，反而在持续扩大。 “增利不增收”背后，
 
 ## 正文
 
-标普500指数周一上涨，收复上周部分跌幅，芯片股大涨，同时投资者评估中东紧张局势缓和的影响。
+来源：华夏时报 在利息收入持续缩水的背景下，张家港行（002839.SZ）营业收入的增长终于难以为继。
 
-标普500指数上涨0.3%。
+2026年一季度，该行营业收入同比下滑4.43%。
 
-上周五，强劲就业数据推动市场提高对美联储加息的预期，导致该指数大跌 纳斯达克100指数上涨1.6%，创逾一周来最大涨幅，主要受半导体板块带动 费城半导体指数上涨5.6%；美光科技上涨近10%，博通上涨2.8% 英特尔上涨11%，创5月8日以来最大单日涨幅，此前The Information报道称，谷歌将2028年逾300万颗专用AI芯片订单交给英特尔 但美股尾盘回吐部分涨幅，市场广度依然疲弱，彭博汇编数据显示，标普500指数成分股中逾320只下跌，仅180余只上涨 11个行业板块中有8个收跌，公用事业、房地产和原材料板块跌幅居前。
+然而，利润端却呈现出另一番景象——同期归母净利润逆势增长了2.50%。
 
-等权重标普500指数基本持平，显示除芯片股外市场整体表现偏弱。
+这与2025年营收仅微增0.75%，归母净利润却增长5.35%的走势一脉相承。
 
-债券交易员预计，本周公布的通胀数据将显示消费者价格显著上涨，从而进一步加大美联储加息压力。
+营收与利润之间的“剪刀差”不仅没有收窄，反而在持续扩大。
 
-美国消费者价格数据将于周三公布;美联储官员已进入6月17日利率决议前的静默期。
+“增利不增收”背后，是张家港行用非息端的投资收益和成本端的精细化管理，对冲主营利息收入下滑的逻辑。
 
-“逢低买入资金回归，但仅收复了上周五行情调整的一部分，”Navellier & Associates首席投资官Louis Navellier表示。
+2025年，该行利息净收入同比下滑10.16%，但凭借投资收益增长8.95%、公允价值变动收益由亏转盈，以及业务及管理费的微降，最终守住了利润正增长。
 
-“伊朗局势仍是主要地缘政治风险”。
+2026年一季度，这一逻辑继续上演——利息净收入仅微增0.79%，公允价值变动收益由盈转亏，但通过将业务及管理费大幅削减18.98%，归母净利润依然录得2.50%的正增长。
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 18:20 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 18:18 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 18:37 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 18:41 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 18:42 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 18:31 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 18:37 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 18:19 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 18:37 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 18:34 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 18:47 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 18:52 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 18:40 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 18:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 18:42 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 18:49 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 18:41 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 18:38 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 18:47 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 18:33 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 18:29 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 18:32 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:20 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/18113169783.shtml)
-- 2026-06-29 18:21 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/033613791.shtml)
-- 2026-06-29 18:25 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.minike.top/Article/details/1133610956.shtml)
-- 2026-06-29 18:28 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/13393302122.shtml)
-- 2026-06-29 18:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/67220.shtml)
-- 2026-06-29 18:36 - [娜扎搂着我的腰和我合照](https://www.share.kurohicncr.top/Article/details/3527710311.shtml)
-- 2026-06-29 18:21 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/529999368863.shtml)
-- 2026-06-29 18:46 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.kurohicncr.top/Article/details/0016972918.shtml)
-- 2026-06-29 18:21 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/228497976.shtml)
-- 2026-06-29 18:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/78168350800.shtml)
-- 2026-06-29 18:31 - [海口塔吊事故处罚结果公布](https://www.blog.kurohicncr.top/Article/details/588356959823.shtml)
-- 2026-06-29 18:45 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/27358.shtml)
-- 2026-06-29 18:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/423431195734.shtml)
-- 2026-06-29 18:28 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/03112.shtml)
-- 2026-06-29 18:39 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/2204625.shtml)
+- 2026-06-29 18:40 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/75719857149.shtml)
+- 2026-06-29 18:26 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/61950749.shtml)
+- 2026-06-29 18:38 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/8480660.shtml)
+- 2026-06-29 18:35 - [天道](https://www.share.minike.top/Article/details/04628.shtml)
+- 2026-06-29 18:25 - [网红小徐直播时突遇地震](https://www.blog.kurohicncr.top/Article/details/089675712.shtml)
+- 2026-06-29 18:25 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/042333.shtml)
+- 2026-06-29 18:27 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/746203274.shtml)
+- 2026-06-29 18:30 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/920642763445.shtml)
+- 2026-06-29 18:30 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/62211988904.shtml)
+- 2026-06-29 18:38 - [官方通报一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/360256484.shtml)
+- 2026-06-29 18:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/079705.shtml)
+- 2026-06-29 18:43 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/0563116.shtml)
+- 2026-06-29 18:44 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/976904201087.shtml)
+- 2026-06-29 18:50 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/264166695272.shtml)
+- 2026-06-29 18:25 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/1750481593.shtml)

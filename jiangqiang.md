@@ -1,57 +1,55 @@
-# 罚没千万，难逃ST！派瑞股份“栽了”
+# “十五五”期间 武汉将亮相一批文旅新地标
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-曾经备受市场关注的大功率半导体概念股派瑞股份（维权）（300831），如今因一则财务造假的罚单站上了风口浪尖。2026年6月7日晚间，该公司一纸公告揭开了其通过篡改单据“平滑业绩”的内幕。 随着行政处罚事先告知书的落地，针对受损投资者的索赔维权通道也正式开启。 为“平滑业绩”篡改验收单 根据陕西证监局下发的《行政处罚事先告知书》，派瑞股份的财务造假手法并不复杂，但性质较为恶劣，
+发布时间：2026年05月08日 20:55 来源：中国新闻网 5月8日，武汉市文化和旅游局党委书记、局长章建育在湖北省政府新闻办举行的“开局起步‘十五五’ 加力奋进建支点”系列新闻发布会武汉专场上表示，武汉将深入实施文化创新战略，加快把文化旅游业打造成为支柱产业，努力建设世界知名文化旅游目的地，绘就新时代的“江汉揽胜图”。 “十五五”期间，武汉将推出更多武汉原创、武汉制作、武
 
 ## 正文
 
-曾经备受市场关注的大功率半导体概念股派瑞股份（维权）（300831），如今因一则财务造假的罚单站上了风口浪尖。
+发布时间：2026年05月08日 20:55 来源：中国新闻网 5月8日，武汉市文化和旅游局党委书记、局长章建育在湖北省政府新闻办举行的“开局起步‘十五五’ 加力奋进建支点”系列新闻发布会武汉专场上表示，武汉将深入实施文化创新战略，加快把文化旅游业打造成为支柱产业，努力建设世界知名文化旅游目的地，绘就新时代的“江汉揽胜图”。
 
-2026年6月7日晚间，该公司一纸公告揭开了其通过篡改单据“平滑业绩”的内幕。
+“十五五”期间，武汉将推出更多武汉原创、武汉制作、武汉出品的精品力作和文旅品牌。
 
-随着行政处罚事先告知书的落地，针对受损投资者的索赔维权通道也正式开启。
+建好长江国家文化公园武汉段和长江博物馆，系统推进文物保护利用和文化遗产保护传承。
 
-为“平滑业绩”篡改验收单 根据陕西证监局下发的《行政处罚事先告知书》，派瑞股份的财务造假手法并不复杂，但性质较为恶劣，公司通过人为篡改商品验收单据。
+加快建设武汉图书馆新馆、戏曲艺术中心、文学馆、文物考古保护展示中心等文化地标。
 
-调查显示，为了平滑公司业绩波动，派瑞股份将本应在2024年确认的部分收入，通过篡改验收单据的方式延迟到了2025年确认。
+串联黄鹤楼、古琴台、南岸嘴等核心资源，打造世界水准、武汉特色的“一桥两山”文旅新地标。
 
-具体来看，2024年虚减营业收入2271.50万元，虚减利润总额1711.73万元，分别占披露金额的11.84%和26.18%。
-
-公司将这笔钱挪到了2025年，导致该期虚增营业收入2271.50万元，虚增利润总额1711.73万元，占披露金额的比例高达26.87%和50.02% 。
-
-这种操作，虽然表面上平滑了业绩曲线，但严重误导了投资者，存在虚假陈述。
+(王梦媛） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 18:41 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 18:47 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 18:24 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 18:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 18:43 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 18:36 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 18:35 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 18:47 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 18:42 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 18:37 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 18:25 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 18:53 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 18:41 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 18:46 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 18:51 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 18:29 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 18:43 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 18:24 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 18:49 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 18:42 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 18:36 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 18:52 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 18:38 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 18:38 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:20 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/306835.shtml)
-- 2026-06-29 18:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/9376167.shtml)
-- 2026-06-29 18:34 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/48508237.shtml)
-- 2026-06-29 18:19 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/58526.shtml)
-- 2026-06-29 18:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/58340003520.shtml)
-- 2026-06-29 18:30 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/9834815580.shtml)
-- 2026-06-29 18:47 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/9089169.shtml)
-- 2026-06-29 18:44 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/9132249.shtml)
-- 2026-06-29 18:27 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/787121.shtml)
-- 2026-06-29 18:29 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/12672842169.shtml)
-- 2026-06-29 18:43 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/152469204693.shtml)
-- 2026-06-29 18:23 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/980019.shtml)
-- 2026-06-29 18:25 - [绘画区你赢了](https://www.share.minike.top/Article/details/14937596158.shtml)
-- 2026-06-29 18:28 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/83145998.shtml)
-- 2026-06-29 18:47 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/28195.shtml)
+- 2026-06-29 18:51 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/75299714.shtml)
+- 2026-06-29 18:31 - [歼-15型舰载机为何被歼-15T替代](https://www.share.minike.top/Article/details/7865831964.shtml)
+- 2026-06-29 18:24 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/42768.shtml)
+- 2026-06-29 18:44 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/65558.shtml)
+- 2026-06-29 18:48 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/6842881.shtml)
+- 2026-06-29 18:25 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/89394.shtml)
+- 2026-06-29 18:33 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/739790208803.shtml)
+- 2026-06-29 18:35 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/15330.shtml)
+- 2026-06-29 18:37 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/68702.shtml)
+- 2026-06-29 18:29 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/65869270.shtml)
+- 2026-06-29 18:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/2053723495.shtml)
+- 2026-06-29 18:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/64937936757.shtml)
+- 2026-06-29 18:51 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/47160.shtml)
+- 2026-06-29 18:43 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/973802637.shtml)
+- 2026-06-29 18:26 - [两老人多次到一洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/372838477042.shtml)

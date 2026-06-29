@@ -1,48 +1,45 @@
-# IRIB：伊朗数座城市传出爆炸声
+# 吉利汽车于5月8日斥资525.24万港元回购23.1万股
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-据伊朗官方媒体IRIB报道，周一凌晨伊朗首都德黑兰以及伊朗中部和西北部的伊斯法罕和塔布里兹传出数次爆炸声，但未提供更多细节。责任编辑：陈钰嘉
+吉利汽车（00175）发布公告，于2026年5月8日斥资525.24万港元回购23.1万股；根据认股权计划（于2023年4月28日获采纳）行使认股权而发行合共12.15万股普通股股份。责任编辑：卢昱君
 
 ## 正文
 
-据伊朗官方媒体IRIB报道，周一凌晨伊朗首都德黑兰以及伊朗中部和西北部的伊斯法罕和塔布里兹传出数次爆炸声，但未提供更多细节。
+吉利汽车（00175）发布公告，于2026年5月8日斥资525.24万港元回购23.1万股；根据认股权计划（于2023年4月28日获采纳）行使认股权而发行合共12.15万股普通股股份。
 
-责任编辑：陈钰嘉
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:32 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 18:35 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 18:32 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 18:43 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 18:32 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 18:35 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 18:35 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 18:45 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 18:30 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 18:26 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 18:24 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 18:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 18:46 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 18:41 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 18:42 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 18:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 18:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 18:39 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 18:33 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 18:40 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 18:32 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 18:39 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 18:37 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 18:26 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 18:33 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:44 - [范志毅看好日本淘汰巴西](https://www.share.kurohicncr.top/Article/details/7354807.shtml)
-- 2026-06-29 18:34 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/096420.shtml)
-- 2026-06-29 18:37 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/5807370.shtml)
-- 2026-06-29 18:43 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/0205925756.shtml)
-- 2026-06-29 18:33 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/39314103.shtml)
-- 2026-06-29 18:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/069277780.shtml)
-- 2026-06-29 18:28 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/24496969.shtml)
-- 2026-06-29 18:42 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/9872862717.shtml)
-- 2026-06-29 18:19 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/435720.shtml)
-- 2026-06-29 18:31 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/411552330871.shtml)
-- 2026-06-29 18:30 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/819446387.shtml)
-- 2026-06-29 18:25 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/907524.shtml)
-- 2026-06-29 18:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/7790324.shtml)
-- 2026-06-29 18:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/69087397.shtml)
-- 2026-06-29 18:33 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/50124.shtml)
+- 2026-06-29 18:50 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/57642156.shtml)
+- 2026-06-29 18:52 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/87743.shtml)
+- 2026-06-29 18:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/126596128.shtml)
+- 2026-06-29 18:51 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/799301.shtml)
+- 2026-06-29 18:47 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/270644.shtml)
+- 2026-06-29 18:24 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/591075864828.shtml)
+- 2026-06-29 18:31 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/65740049.shtml)
+- 2026-06-29 18:38 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/1146867487.shtml)
+- 2026-06-29 18:30 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/98472266.shtml)
+- 2026-06-29 18:45 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/098676.shtml)
+- 2026-06-29 18:27 - [朱必达辞去湖南人大常委会委员职务](https://www.share.kurohicncr.top/Article/details/6110262586.shtml)
+- 2026-06-29 18:29 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/911773263188.shtml)
+- 2026-06-29 18:42 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/7739935404.shtml)
+- 2026-06-29 18:43 - [波兰创该国高温纪录](https://www.share.minike.top/Article/details/78461596.shtml)
+- 2026-06-29 18:48 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/26439110.shtml)

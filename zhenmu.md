@@ -1,50 +1,57 @@
-# 外交部：望欧方与中方相向而行推动经贸合作
+# 中新健康｜《过敏科学（Allergy）》连续六年出版中国主题专刊
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-新华社北京6月8日电(记者马卓言、董雪)就欧盟日前推动相关国家减少所谓“对华依赖”，外交部发言人林剑8日在例行记者会上答问时表示，中方已多次阐明，中欧在产业链供应链上深度交融、相互依存，是经济全球化和市场作用的结果，符合双方企业的利益。中欧经贸关系不是你输我赢的零和博弈，完全可以相互成就、互利共赢。中方对解决中欧经贸分歧的态度是开放积极的，希望欧方与中方相向而行，通过对话协商解
+中新网北京5月7日电(记者 赵方园)5月7日，《过敏科学(Allergy)》中国主题专刊发布会在北京召开。《过敏科学》主编、瑞士哮喘研究所教授切兹米·阿克迪斯(Cezmi Akdis)出席发布会，期刊副主编、首都医科大学校长张罗回顾了六年来《过敏科学》中国主题的出版历程。 《过敏科学》创刊于1948年，是欧洲过敏科学和临床免疫学会官方期刊，是全球过敏科学与临床免疫学领域最具影响
 
 ## 正文
 
-新华社北京6月8日电(记者马卓言、董雪)就欧盟日前推动相关国家减少所谓“对华依赖”，外交部发言人林剑8日在例行记者会上答问时表示，中方已多次阐明，中欧在产业链供应链上深度交融、相互依存，是经济全球化和市场作用的结果，符合双方企业的利益。
+中新网北京5月7日电(记者 赵方园)5月7日，《过敏科学(Allergy)》中国主题专刊发布会在北京召开。
 
-中欧经贸关系不是你输我赢的零和博弈，完全可以相互成就、互利共赢。
+《过敏科学》主编、瑞士哮喘研究所教授切兹米·阿克迪斯(Cezmi Akdis)出席发布会，期刊副主编、首都医科大学校长张罗回顾了六年来《过敏科学》中国主题的出版历程。
 
-中方对解决中欧经贸分歧的态度是开放积极的，希望欧方与中方相向而行，通过对话协商解决问题，推动中欧经贸合作更好地造福双方企业与民众。
+《过敏科学》创刊于1948年，是欧洲过敏科学和临床免疫学会官方期刊，是全球过敏科学与临床免疫学领域最具影响力的学术期刊之一。
 
-(完)
+今年，《过敏科学》第六次出版中国主题，由切兹米·阿克迪斯和张罗教授共同担任客座编辑，共收录中国学者论文56篇，包括2篇述评、4篇综述、1篇指南、1篇立场文件、24篇长文、20篇速报、3篇新闻与观点以及1篇通信。
+
+专刊聚焦过敏性鼻炎、哮喘和慢性鼻窦炎鼻息肉三大临床领域，系统探讨了相关疾病的免疫机制、免疫治疗策略、环境与流行病学特征，并展示了组学技术与人工智能、数字化方法在中国临床研究中的创新应用，全面反映了中国在该领域基础研究与临床转化的最新进展。
+
+其中一篇述评介绍，中国古代最早对过敏性鼻炎的记载可追溯典籍《礼记·月令》，这一古老疾病在现代社会依然构成公共卫生挑战。
+
+首都医科大学附属北京同仁医院的研究显示，我国过敏性鼻炎的患病率从2005年的11%上升至2011年的17%，并在2019年进一步升至21%。
+
+未来防控策略须统筹社会经济发展、环境治理与生态建设，实施多层次、多维度的综合干预。
 
 ## 相关推荐
 
-- 2026-06-29 18:32 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 18:31 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 18:30 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 18:46 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 18:18 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 18:46 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 18:27 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 18:26 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 18:40 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 18:45 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 18:21 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 18:32 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 18:42 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 18:45 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 18:37 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 18:43 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 18:31 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 18:31 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 18:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 18:38 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 18:33 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 18:31 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 18:28 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/274463.shtml)
-- 2026-06-29 18:30 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/96554798.shtml)
-- 2026-06-29 18:39 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/174511600717.shtml)
-- 2026-06-29 18:43 - [逃狱兄弟](http://www.blog.minike.top/Article/details/3236122.shtml)
-- 2026-06-29 18:45 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/19057.shtml)
-- 2026-06-29 18:38 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/02655.shtml)
-- 2026-06-29 18:37 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/784810619619.shtml)
-- 2026-06-29 18:26 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/3659117.shtml)
-- 2026-06-29 18:43 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/389053.shtml)
-- 2026-06-29 18:21 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/773403280167.shtml)
-- 2026-06-29 18:45 - [扬名立万](https://www.share.minike.top/Article/details/0179763551.shtml)
-- 2026-06-29 18:37 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/65053162000.shtml)
-- 2026-06-29 18:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/46803533420.shtml)
-- 2026-06-29 18:47 - [95后小伙突然确诊癌症 医生提醒](https://www.share.kurohicncr.top/Article/details/6454765270.shtml)
-- 2026-06-29 18:42 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/0734572.shtml)
+- 2026-06-29 18:47 - [互助版模拟高考志愿填报](http://www.blog.kurohicncr.top/Article/details/05645086905.shtml)
+- 2026-06-29 18:35 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.kurohicncr.top/Article/details/9729501.shtml)
+- 2026-06-29 18:31 - [未成年少女长期吸毒导致卧床不起](https://www.share.kurohicncr.top/Article/details/293421.shtml)
+- 2026-06-29 18:34 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/34339737744.shtml)
+- 2026-06-29 18:40 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/47415787293.shtml)
+- 2026-06-29 18:53 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/8722390638.shtml)
+- 2026-06-29 18:29 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/68208446651.shtml)
+- 2026-06-29 18:42 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/65943161894.shtml)
+- 2026-06-29 18:31 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/0610724.shtml)
+- 2026-06-29 18:41 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/825554.shtml)
+- 2026-06-29 18:50 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/60127.shtml)
+- 2026-06-29 18:26 - [大马同意延长马航370残骸搜寻工作](https://www.share.minike.top/Article/details/6441421229.shtml)
+- 2026-06-29 18:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/9271344.shtml)
+- 2026-06-29 18:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/0795335954.shtml)
+- 2026-06-29 18:42 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/874014.shtml)

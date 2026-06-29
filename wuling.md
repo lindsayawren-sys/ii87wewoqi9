@@ -1,60 +1,61 @@
-# 特海国际盘中飙升近30% 翻台率及经营利润率已显著回升
+# 金牛名将程洲新品首发，国泰鑫澄十问十答
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-特海国际（09658）盘中飙升近30%，截至发稿，涨幅回落，股价上涨5.02%，现报10.68港元，成交额6992.02万港元。 特海国际近日发布第一季度业绩，实现营收2.26亿美元，同比增长14.2%；期内溢利为405.3万美元，同比下滑65.88%。经营溢利为0.14亿美元，同比增长70.7%。特海国际财务总监兼董事会秘书瞿骢表示，剔除汇率波动这个非经营性因素后，一季度公司
+5月6日，万得偏股混合型基金指数（885001.WI）再创新高，一举突破2021年历史高点。这一信号不仅意味着主动偏股基金的平均收益重回巅峰，更凸显专业投资力量在市场轮动行情中的独特优势。 相比于普通投资者容易受情绪左右、难以精准研判行业轮动、甄别优质个股，优秀基金经理依托专业投研体系，具备精选优质个股、动态调节仓位、严格控制组合回撤等多重优势，在震荡分化的市场中积极捕捉结构性
 
 ## 正文
 
-特海国际（09658）盘中飙升近30%，截至发稿，涨幅回落，股价上涨5.02%，现报10.68港元，成交额6992.02万港元。
+5月6日，万得偏股混合型基金指数（885001.WI）再创新高，一举突破2021年历史高点。
 
-特海国际近日发布第一季度业绩，实现营收2.26亿美元，同比增长14.2%；期内溢利为405.3万美元，同比下滑65.88%。
+这一信号不仅意味着主动偏股基金的平均收益重回巅峰，更凸显专业投资力量在市场轮动行情中的独特优势。
 
-经营溢利为0.14亿美元，同比增长70.7%。
+相比于普通投资者容易受情绪左右、难以精准研判行业轮动、甄别优质个股，优秀基金经理依托专业投研体系，具备精选优质个股、动态调节仓位、严格控制组合回撤等多重优势，在震荡分化的市场中积极捕捉结构性机会，为投资者持续赚取企业成长与专业定价带来的超额收益。
 
-特海国际财务总监兼董事会秘书瞿骢表示，剔除汇率波动这个非经营性因素后，一季度公司实际业务盈利水平实现增长。
+在此市场节点，国泰基金资深基金经理程洲全新力作——国泰鑫澄混合基金（A类：027187 C类：027188）即将于5月18日-5月29日正式首发。
 
-浦银国际指出，特海国际2025年以“让利顾客，让利员工”为宗旨进行了深度战略调整，导致2025年客单价承压、费用率同比攀升、经营利润率同比大幅下降。
+关于这位实力老将及新品介绍，我们整理了十大核心问题，为您逐一解答。
 
-经过一年的调整，公司26年一季度不仅翻台率同比上升，经营利润率在经营杠杆的帮助下也同比显著回升。
+程洲是国泰基金主动权益投资三部负责人、国泰鑫澄拟任基金经理，三个关键词带你快速了解他： 1）投资元老。
 
-这意味着公司在2026年一季度已基本走出调整期，并开始释放业绩。
+他拥有26年投研经验和18年基金管理经验，在全市场数千名基金经理中，管理年限与之相仿的仅30余人，是市场中少有的穿越多轮牛熊的“常青树”。
 
-公司估值在过去12个月已回调至较低水平，性价比再次凸显，市场关注度有望逐步回升。
+2）双十二基金经理。
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 18:35 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 18:22 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 18:28 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 18:23 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 18:38 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 18:29 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 18:31 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 18:21 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 18:31 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 18:36 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 18:32 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 18:24 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 18:34 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 18:53 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 18:41 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 18:37 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 18:34 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 18:51 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 18:24 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 18:24 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 18:38 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 18:28 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 18:45 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 18:41 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 18:43 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 18:44 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 18:45 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 18:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/0491772.shtml)
-- 2026-06-29 18:21 - [花万元相亲对象是50元雇的演员](https://www.share.minike.top/Article/details/865536594.shtml)
-- 2026-06-29 18:38 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/5145162483.shtml)
-- 2026-06-29 18:46 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/906234292.shtml)
-- 2026-06-29 18:18 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/9656038.shtml)
-- 2026-06-29 18:30 - [人形机器人](http://www.share.minike.top/Article/details/966306497.shtml)
-- 2026-06-29 18:43 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/5182399.shtml)
-- 2026-06-29 18:34 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/732761.shtml)
-- 2026-06-29 18:22 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/0561369610.shtml)
-- 2026-06-29 18:34 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/32716.shtml)
-- 2026-06-29 18:22 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/339755.shtml)
-- 2026-06-29 18:23 - [女心理师](https://www.share.minike.top/Article/details/2005457.shtml)
-- 2026-06-29 18:44 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/66568.shtml)
-- 2026-06-29 18:19 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/939824.shtml)
-- 2026-06-29 18:19 - [普京建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/055452.shtml)
+- 2026-06-29 18:31 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/529408944.shtml)
+- 2026-06-29 18:35 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/5050611569.shtml)
+- 2026-06-29 18:43 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/740777086.shtml)
+- 2026-06-29 18:38 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/847212140.shtml)
+- 2026-06-29 18:51 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/365088924800.shtml)
+- 2026-06-29 18:48 - [四川地震前夕 街头电线上站满燕子](https://www.blog.minike.top/Article/details/6916206.shtml)
+- 2026-06-29 18:46 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/5977029856.shtml)
+- 2026-06-29 18:47 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/67728162923.shtml)
+- 2026-06-29 18:26 - [青春环游记第三季](https://www.blog.minike.top/Article/details/31075.shtml)
+- 2026-06-29 18:33 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/4368847.shtml)
+- 2026-06-29 18:36 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/947347.shtml)
+- 2026-06-29 18:43 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/71397332478.shtml)
+- 2026-06-29 18:48 - [金刚川](http://www.share.minike.top/Article/details/302967.shtml)
+- 2026-06-29 18:51 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/6221100.shtml)
+- 2026-06-29 18:31 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/1322827.shtml)

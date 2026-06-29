@@ -1,57 +1,56 @@
-# ETF日报：市场波动加大环境下，煤炭企业较高股息率，为股价提供坚实估值安全垫，关注煤炭ETF
+# 湖南浏阳烟花厂爆炸事故已致37人死亡1人失联
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-今日A股市场大幅下跌。上证指数失守4000点关口，下跌1.70%报收3959.34点；深证成指重挫3.22%，报收14821.19点。两市成交共计2.82万亿元，较前一交易日有所缩量。盘面上下跌个股近4600家，各大板块几乎悉数下跌，仅工程机械、石油天然气等板块逆势上涨，贵金属、半导体等行业则领跌。消息面上，美国5月超预期强劲的非农就业数据引发市场对美联储年内不再降息的担忧，全
+5月4日16时43分许，浏阳市华盛烟花制造燃放有限公司发生爆炸事故。截止到5月8日12时，事故造成37人死亡、1人失联，在医救治51人（其中重症5人，生命体征平稳）。目前，现场搜救工作已基本结束。 事故发生后，长沙启动应急响应，成立浏阳“5·4”事故处置工作组，调动1500余人开展救援、处置、救治等工作。经对现场开展多轮地毯式搜救，调取公司从业人员情况，结合公司门禁、视频数据、
 
 ## 正文
 
-今日A股市场大幅下跌。
+5月4日16时43分许，浏阳市华盛烟花制造燃放有限公司发生爆炸事故。
 
-上证指数失守4000点关口，下跌1.70%报收3959.34点；深证成指重挫3.22%，报收14821.19点。
+截止到5月8日12时，事故造成37人死亡、1人失联，在医救治51人（其中重症5人，生命体征平稳）。
 
-两市成交共计2.82万亿元，较前一交易日有所缩量。
+目前，现场搜救工作已基本结束。
 
-盘面上下跌个股近4600家，各大板块几乎悉数下跌，仅工程机械、石油天然气等板块逆势上涨，贵金属、半导体等行业则领跌。
+事故发生后，长沙启动应急响应，成立浏阳“5·4”事故处置工作组，调动1500余人开展救援、处置、救治等工作。
 
-消息面上，美国5月超预期强劲的非农就业数据引发市场对美联储年内不再降息的担忧，全球股市普遍大跌。
+经对现场开展多轮地毯式搜救，调取公司从业人员情况，结合公司门禁、视频数据、线下走访、电话视频连线、人员辨认和多轮DNA比对等方式，对失联人员进行全面排查，确认事故造成37人死亡、1人失联。
 
-此前拥挤度极高的AI、半导体行业均被抛售，而贵金属等无收益资产也因高息及强美元出现明显回吐。
+伤者救治、善后处置、原因调查、排查整治等工作正在有序进行。
 
-短期流动性扰动加大市场波动，中期来看AI产业链叙事尚未改变、景气度仍高，科技有望继续成为主线，投资者可考虑逢低布局。
+公安机关已对涉嫌重大责任事故罪的8人传唤到案。
 
-同时也建议关注红利、贵金属等资产分散风险，维持攻守兼备的投资框架。
+责任编辑：韦子蓉
 
 ## 相关推荐
 
-- 2026-06-29 18:39 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 18:46 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 18:22 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 18:34 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 18:19 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 18:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 18:35 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 18:27 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 18:41 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 18:23 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 18:20 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 18:43 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 18:35 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 18:46 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 18:50 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 18:28 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 18:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 18:26 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 18:50 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 18:30 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 18:32 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:31 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/0586797656.shtml)
-- 2026-06-29 18:40 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/25806.shtml)
-- 2026-06-29 18:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/903571.shtml)
-- 2026-06-29 18:20 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/826509551.shtml)
-- 2026-06-29 18:33 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/081787652503.shtml)
-- 2026-06-29 18:22 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/196665723.shtml)
-- 2026-06-29 18:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/6765668428.shtml)
-- 2026-06-29 18:45 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/0550906.shtml)
-- 2026-06-29 18:40 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/2954071.shtml)
-- 2026-06-29 18:34 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/717440.shtml)
-- 2026-06-29 18:37 - [和周杰伦在演唱会合唱了](http://www.blog.kurohicncr.top/Article/details/4375612799.shtml)
-- 2026-06-29 18:36 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/7739263.shtml)
-- 2026-06-29 18:25 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/30096087719.shtml)
-- 2026-06-29 18:40 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/42523507.shtml)
-- 2026-06-29 18:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/81081296.shtml)
+- 2026-06-29 18:42 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/4370130.shtml)
+- 2026-06-29 18:31 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/80572192.shtml)
+- 2026-06-29 18:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/59772547981.shtml)
+- 2026-06-29 18:51 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/8100079312.shtml)
+- 2026-06-29 18:31 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/21709405.shtml)
+- 2026-06-29 18:38 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/908220.shtml)
+- 2026-06-29 18:47 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/164708766.shtml)
+- 2026-06-29 18:41 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/348754166463.shtml)
+- 2026-06-29 18:39 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/898697037.shtml)
+- 2026-06-29 18:38 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/62506970084.shtml)
+- 2026-06-29 18:44 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/904119449684.shtml)
+- 2026-06-29 18:32 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/9210941934.shtml)
+- 2026-06-29 18:42 - [机器人学校开学了](http://www.blog.minike.top/Article/details/1833737.shtml)
+- 2026-06-29 18:29 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/111671.shtml)
+- 2026-06-29 18:25 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/7233552.shtml)

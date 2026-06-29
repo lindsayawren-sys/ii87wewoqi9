@@ -1,60 +1,58 @@
-# 上周才上调展望的高盛称韩股在经历“吓人”的回档后会反弹
+# 中方敦促欧方取消对中国产品的不公平、歧视性做法
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-高盛亚太区首席股票策略师Timothy Moe表示，在触发熔断机制后的下跌之后，韩国股市料将会反弹。 “从长远来看，这将是一次技术性回调，尽管在长期牛市中，这是吓人的回调，”Moe在接受采访时表示，并补充说，“基本面仍然非常非常强劲”。 周一，韩国Kospi指数一度暴跌8.8%，领跌亚洲科技股普遍下跌。此前，受AI乐观情绪推动，科技股曾出现一波强劲上涨，许多投资人利用杠杆追捧少
+中新社北京5月7日电 (记者 尹倩芸)就欧盟禁止对使用中国逆变器项目提供资金支持相关问题，中国商务部新闻发言人7日表示，中方敦促欧方立即停止对中国的污名化行为，取消对中国产品的不公平、歧视性做法。 据媒体报道，有欧盟官员称，对于使用中国等“高风险国家”逆变器的项目，欧盟将禁止提供资金支持。 发言人称，欧方在没有任何实际证据的情况下，首次将中国划定为所谓“高风险国家”，并以此为由
 
 ## 正文
 
-高盛亚太区首席股票策略师Timothy Moe表示，在触发熔断机制后的下跌之后，韩国股市料将会反弹。
+中新社北京5月7日电 (记者 尹倩芸)就欧盟禁止对使用中国逆变器项目提供资金支持相关问题，中国商务部新闻发言人7日表示，中方敦促欧方立即停止对中国的污名化行为，取消对中国产品的不公平、歧视性做法。
 
-“从长远来看，这将是一次技术性回调，尽管在长期牛市中，这是吓人的回调，”Moe在接受采访时表示，并补充说，“基本面仍然非常非常强劲”。
+据媒体报道，有欧盟官员称，对于使用中国等“高风险国家”逆变器的项目，欧盟将禁止提供资金支持。
 
-周一，韩国Kospi指数一度暴跌8.8%，领跌亚洲科技股普遍下跌。
+发言人称，欧方在没有任何实际证据的情况下，首次将中国划定为所谓“高风险国家”，并以此为由禁止对使用中国逆变器的项目提供资金支持，这是对中国的污名化行为，且对中国产品构成不公平、歧视性待遇。
 
-此前，受AI乐观情绪推动，科技股曾出现一波强劲上涨，许多投资人利用杠杆追捧少数半导体和科技股。
+中方拒绝接受，并坚决反对。
 
-“很明显，投机活动有所增加，尤其是在韩国的散户投资者中，特别是那些涌入杠杆型ETF的投资者，”Moe表示。
+发言人表示，欧盟将中国划定为“高风险国家”，将影响中欧互信，破坏双边经贸合作，不利于中欧乃至全球产供链稳定，甚至带来“脱钩断链”的风险。
 
-高盛上周上调了对韩国股市的展望，预期AI的蓬勃发展将推动以科技股为主的市场获利增长。
+欧盟强行采取措施排挤中国产品，违背市场规律和公平原则，不仅损害中国企业利益，更将反噬自身，影响欧盟绿色转型和能源安全。
 
-Moe周一表示，韩国股市的估值非常合理，并预计其潜在利润将继续推动增长。
+发言人强调，中方敦促欧方立即停止将中国列为“高风险国家”的污名化行为，取消对中国产品的不公平、歧视性做法。
 
-“我们认为，经过震荡后，股市将重新站稳脚跟，并创下更高的高点，”他说。
+中方将密切关注，并认真评估欧方政策对中国企业利益和中欧产供链的影响，将采取措施维护中国企业正当合法权益。
 
 ## 相关推荐
 
-- 2026-06-29 18:37 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 18:44 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 18:44 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 18:41 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 18:44 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 18:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 18:24 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 18:24 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 18:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 18:45 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 18:45 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 18:45 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 18:23 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 18:40 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 18:30 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 18:33 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 18:54 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 18:34 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 18:34 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 18:29 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 18:53 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 18:27 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 18:51 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 18:29 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 18:29 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 18:37 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:43 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/710059.shtml)
-- 2026-06-29 18:19 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/1258668.shtml)
-- 2026-06-29 18:39 - [7款高价创新药有望降价](https://www.blog.kurohicncr.top/Article/details/3429288.shtml)
-- 2026-06-29 18:24 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/887791476081.shtml)
-- 2026-06-29 18:24 - [张杰我九岁就跟你了](https://www.blog.kurohicncr.top/Article/details/109578261843.shtml)
-- 2026-06-29 18:41 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/317745339519.shtml)
-- 2026-06-29 18:43 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/733621577173.shtml)
-- 2026-06-29 18:28 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/882986944.shtml)
-- 2026-06-29 18:25 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/714720.shtml)
-- 2026-06-29 18:34 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/9464193.shtml)
-- 2026-06-29 18:22 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/03740.shtml)
-- 2026-06-29 18:31 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/0844582378.shtml)
-- 2026-06-29 18:23 - [普京承认俄出现燃料危机](http://www.blog.minike.top/Article/details/6512528657.shtml)
-- 2026-06-29 18:18 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.minike.top/Article/details/14692457315.shtml)
-- 2026-06-29 18:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/48621622309.shtml)
+- 2026-06-29 18:48 - [当地回应林区违规放羊遭豹啃食](http://www.share.kurohicncr.top/Article/details/52425407193.shtml)
+- 2026-06-29 18:33 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/88720671734.shtml)
+- 2026-06-29 18:29 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/32252700460.shtml)
+- 2026-06-29 18:48 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/250572.shtml)
+- 2026-06-29 18:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/43968708833.shtml)
+- 2026-06-29 18:51 - [当家电外通风口出现鸟窝](http://www.share.minike.top/Article/details/31845226831.shtml)
+- 2026-06-29 18:41 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/335557495.shtml)
+- 2026-06-29 18:49 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/0658853.shtml)
+- 2026-06-29 18:51 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/1704646.shtml)
+- 2026-06-29 18:49 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/161054041.shtml)
+- 2026-06-29 18:42 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/27425.shtml)
+- 2026-06-29 18:44 - [送你一朵小红花](https://www.share.minike.top/Article/details/205917217.shtml)
+- 2026-06-29 18:42 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/375484886.shtml)
+- 2026-06-29 18:51 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/5719535595.shtml)
+- 2026-06-29 18:31 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/974092620248.shtml)

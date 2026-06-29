@@ -1,58 +1,59 @@
-# 广西平容高速今日建成通车
+# 北京俄罗斯文化中心举办纪念苏联伟大卫国战争胜利81周年庆祝活动
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-今天，广西全州至容县高速公路(平南至容县段)项目(简称“平容高速”)全线建成通车。平容高速是广西高速公路网规划“纵2线”的核心组成部分，全长87公里，采用双向四车道标准建设，设计时速120公里。项目全线桥隧比22.72%，含特大桥1座、大桥42座、隧道3座，设枢纽互通3处、落地互通6处、服务区2处。据了解，该项目全线收费站全面取消传统收费岗亭，采用一体化智慧云舱远程管控，配备A
+发布时间：2026年05月08日 10:48 来源：中国新闻网 5月7日，北京俄罗斯文化中心举办纪念苏联伟大卫国战争胜利81周年的庆祝活动。这也是俄罗斯首次将莫斯科红场边的亚历山大花园无名烈士墓长明火火种送达北京。 北京俄罗斯文化中心主任吴丹娜表示，“长明火是我们记忆中最神圣的象征之一。它不仅燃烧在克里姆林宫红墙外，也燃烧在全世界数百万人的心中。为后世留存这段记忆，传递不被歪曲
 
 ## 正文
 
-今天，广西全州至容县高速公路(平南至容县段)项目(简称“平容高速”)全线建成通车。
+发布时间：2026年05月08日 10:48 来源：中国新闻网 5月7日，北京俄罗斯文化中心举办纪念苏联伟大卫国战争胜利81周年的庆祝活动。
 
-平容高速是广西高速公路网规划“纵2线”的核心组成部分，全长87公里，采用双向四车道标准建设，设计时速120公里。
+这也是俄罗斯首次将莫斯科红场边的亚历山大花园无名烈士墓长明火火种送达北京。
 
-项目全线桥隧比22.72%，含特大桥1座、大桥42座、隧道3座，设枢纽互通3处、落地互通6处、服务区2处。
+北京俄罗斯文化中心主任吴丹娜表示，“长明火是我们记忆中最神圣的象征之一。
 
-据了解，该项目全线收费站全面取消传统收费岗亭，采用一体化智慧云舱远程管控，配备AI机械臂自助收发卡机器人等智能化设备，实现车道无人化智慧收费，大幅提升通行效率。
+它不仅燃烧在克里姆林宫红墙外，也燃烧在全世界数百万人的心中。
 
-平容高速建成通车，将平南至容县时空距离由2小时缩短至1小时。
+为后世留存这段记忆，传递不被歪曲、不被冷漠对待的战争真相，是我们特殊而艰巨的使命。
 
-作为连接湘桂粤的大动脉，平容高速串联柳梧、梧贵、广昆等多条高速，显著提升了西江经济带与北部湾经济区、粤港澳大湾区的互联互通水平，为广西完善路网布局、推进交通强区建设注入强劲动能。
+” 当天，北京俄罗斯文化中心联合合唱团登台首秀演出，演唱曲目涵盖《鹤群》、《海港之夜》等数首经典歌曲。
 
-(总台记者 李健飞 孟裕人)
+(记者 苏婧欣 制作 刘鹏） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 18:34 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 18:22 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 18:37 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 18:21 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 18:23 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 18:42 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 18:32 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 18:20 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 18:25 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 18:33 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 18:20 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 18:32 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 18:37 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 18:23 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 18:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 18:26 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 18:35 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 18:30 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 18:41 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 18:33 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 18:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 18:49 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 18:28 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 18:26 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 18:51 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 18:46 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 18:31 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 18:34 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 18:38 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:25 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/413612517.shtml)
-- 2026-06-29 18:45 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/618445426796.shtml)
-- 2026-06-29 18:19 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/3084664.shtml)
-- 2026-06-29 18:41 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/1626510.shtml)
-- 2026-06-29 18:29 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/98407.shtml)
-- 2026-06-29 18:46 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/81914.shtml)
-- 2026-06-29 18:42 - [起风了](https://www.share.kurohicncr.top/Article/details/55720798.shtml)
-- 2026-06-29 18:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/276268918.shtml)
-- 2026-06-29 18:42 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/010017276.shtml)
-- 2026-06-29 18:42 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.minike.top/Article/details/33808.shtml)
-- 2026-06-29 18:21 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/899097000606.shtml)
-- 2026-06-29 18:26 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/412677809.shtml)
-- 2026-06-29 18:34 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/33214793700.shtml)
-- 2026-06-29 18:42 - [看大国重器“云端穿针引线”](https://www.blog.kurohicncr.top/Article/details/0946990.shtml)
-- 2026-06-29 18:26 - [两老人多次到一洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/325429.shtml)
+- 2026-06-29 18:43 - [伊朗足球队将启程回国](https://www.blog.minike.top/Article/details/2605489.shtml)
+- 2026-06-29 18:53 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/586570689056.shtml)
+- 2026-06-29 18:38 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/79277.shtml)
+- 2026-06-29 18:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/18671.shtml)
+- 2026-06-29 18:28 - [A股割裂行情有变化了吗](https://www.blog.kurohicncr.top/Article/details/08330163.shtml)
+- 2026-06-29 18:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/789366.shtml)
+- 2026-06-29 18:35 - [疑似吴建豪老婆正脸照](http://www.blog.kurohicncr.top/Article/details/8510238530.shtml)
+- 2026-06-29 18:45 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/70404634251.shtml)
+- 2026-06-29 18:53 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/85484523.shtml)
+- 2026-06-29 18:44 - [一生一世](https://www.share.kurohicncr.top/Article/details/881041.shtml)
+- 2026-06-29 18:47 - [外交部谈对日出口管制措施](http://www.blog.minike.top/Article/details/15192936431.shtml)
+- 2026-06-29 18:37 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/50298423.shtml)
+- 2026-06-29 18:34 - [这一刀 会很帅](http://www.share.minike.top/Article/details/2478712.shtml)
+- 2026-06-29 18:51 - [许建琼任湖南省检察院副检察长](http://www.share.minike.top/Article/details/524386167926.shtml)
+- 2026-06-29 18:37 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/5546466995.shtml)

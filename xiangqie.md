@@ -1,49 +1,57 @@
-# 华勤技术获大摩增持约70.19万股 每股作价约92.58港元
+# 应李书福邀请，董明珠正式出任“极氪品质体验官”
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，6月3日，大摩增持华勤技术（03296）70.1926万股，每股作价92.5825港元。增持后最新持股数目约为439.62万股，最新持股比例为6.52%。责任编辑：卢昱君
+近日，吉利控股集团董事长李书福一行到访并参观珠海格力电器总部。活动现场，李书福邀请董明珠正式出任“极氪品质体验官”，并颁发聘书。 吉利表示，作为极氪009光辉车主，董明珠多次公开为极氪品质点赞，并高度认可焕新极氪009全栈900V高压架构的强劲动力。 今年3月，董明珠正式成为极氪009光辉车主，李书福亲自为其交车，双方围绕中国高端制造展开热烈探讨。期间，董明珠特意邀请李书福访问
 
 ## 正文
 
-香港联交所最新资料显示，6月3日，大摩增持华勤技术（03296）70.1926万股，每股作价92.5825港元。
+近日，吉利控股集团董事长李书福一行到访并参观珠海格力电器总部。
 
-增持后最新持股数目约为439.62万股，最新持股比例为6.52%。
+活动现场，李书福邀请董明珠正式出任“极氪品质体验官”，并颁发聘书。
 
-责任编辑：卢昱君
+吉利表示，作为极氪009光辉车主，董明珠多次公开为极氪品质点赞，并高度认可焕新极氪009全栈900V高压架构的强劲动力。
+
+今年3月，董明珠正式成为极氪009光辉车主，李书福亲自为其交车，双方围绕中国高端制造展开热烈探讨。
+
+期间，董明珠特意邀请李书福访问珠海格力总部。
+
+此次到访，李书福一行参观了格力科技生态展厅，董明珠分享企业发展历程。
+
+在对话中，李书福表示：“品牌源自于品质，品牌源自于人品，我们一定要尊重人。
+
+一个企业发展，要对内部员工尊重，对同行尊重，对行业自律尊重，以及对合规、法律等各方面尊重，最重要的是，我们要对用户尊重，对市场要尊重。
 
 ## 相关推荐
 
-- 2026-06-29 18:23 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 18:43 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 18:22 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 18:36 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 18:46 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 18:29 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 18:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 18:23 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 18:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 18:44 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 18:20 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 18:41 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 18:46 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 18:49 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 18:27 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 18:42 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 18:24 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 18:49 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 18:37 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 18:50 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 18:43 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 18:52 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 18:30 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 18:30 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:20 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/9224530278.shtml)
-- 2026-06-29 18:37 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/77433444.shtml)
-- 2026-06-29 18:27 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/874610275.shtml)
-- 2026-06-29 18:20 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/929454389895.shtml)
-- 2026-06-29 18:42 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/86702340888.shtml)
-- 2026-06-29 18:21 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/181188391.shtml)
-- 2026-06-29 18:30 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/755874019.shtml)
-- 2026-06-29 18:29 - [毒液2](https://www.blog.minike.top/Article/details/1809135782.shtml)
-- 2026-06-29 18:26 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/58252384602.shtml)
-- 2026-06-29 18:45 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/752994.shtml)
-- 2026-06-29 18:34 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/83843760288.shtml)
-- 2026-06-29 18:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/541604597.shtml)
-- 2026-06-29 18:28 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.kurohicncr.top/Article/details/86856787851.shtml)
-- 2026-06-29 18:48 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/26302345235.shtml)
-- 2026-06-29 18:34 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.minike.top/Article/details/9223241.shtml)
+- 2026-06-29 18:36 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/48822053797.shtml)
+- 2026-06-29 18:35 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/20398426422.shtml)
+- 2026-06-29 18:48 - [沉睡花园](https://www.blog.minike.top/Article/details/220595.shtml)
+- 2026-06-29 18:30 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/881661.shtml)
+- 2026-06-29 18:36 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/50678334.shtml)
+- 2026-06-29 18:49 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/35689.shtml)
+- 2026-06-29 18:50 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/86981405122.shtml)
+- 2026-06-29 18:28 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/62359027425.shtml)
+- 2026-06-29 18:46 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/861776961.shtml)
+- 2026-06-29 18:32 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/12382.shtml)
+- 2026-06-29 18:26 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/333064963.shtml)
+- 2026-06-29 18:24 - [扬名立万](https://www.blog.minike.top/Article/details/483906.shtml)
+- 2026-06-29 18:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/65643.shtml)
+- 2026-06-29 18:41 - [V8](http://www.blog.minike.top/Article/details/364336492.shtml)
+- 2026-06-29 18:26 - [沙特外交大臣将访华](http://www.share.kurohicncr.top/Article/details/1143722.shtml)

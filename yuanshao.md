@@ -1,57 +1,61 @@
-# 侨助出海 广州企业瞄准印尼市场
+# 特种车辆制造商Oshkosh宣派每股0.57美元季度股息
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新网广州6月8日电 (记者 蔡敏婕)“侨助经济·穗链五洲”印度尼西亚专场活动近日在广州举行。来自亚洲华人青年协会的印尼青年代表、广州优质企业代表及市、区侨务部门相关负责人聚首珠江之畔，共话丝路商机。 亚洲华人青年协会总主席陈美玲引用中国谚语“志合者，不以山海为远”作为开场。她表示，当前印尼市场发展势头向好，本土市场对人工智能、无人机、快时尚等多个领域的产业合作需求迫切，希望依
+特种车辆制造商Oshkosh Corporation宣布，将派发每股0.57美元的季度现金股息。该股息将于2026年6月30日支付给2026年6月15日登记在册的股东，除息日为2026年6月15日。 股息详情 按周四收盘价计算，该股息对应的年化收益率约为1.5%。这是Oshkosh连续第10年提高或维持季度股息水平。此次派息金额与上一季度持平。 公司背景 Oshkosh总部位于
 
 ## 正文
 
-中新网广州6月8日电 (记者 蔡敏婕)“侨助经济·穗链五洲”印度尼西亚专场活动近日在广州举行。
+特种车辆制造商Oshkosh Corporation宣布，将派发每股0.57美元的季度现金股息。
 
-来自亚洲华人青年协会的印尼青年代表、广州优质企业代表及市、区侨务部门相关负责人聚首珠江之畔，共话丝路商机。
+该股息将于2026年6月30日支付给2026年6月15日登记在册的股东，除息日为2026年6月15日。
 
-亚洲华人青年协会总主席陈美玲引用中国谚语“志合者，不以山海为远”作为开场。
+股息详情 按周四收盘价计算，该股息对应的年化收益率约为1.5%。
 
-她表示，当前印尼市场发展势头向好，本土市场对人工智能、无人机、快时尚等多个领域的产业合作需求迫切，希望依托穗印深厚侨缘资源，深化与广州相关领域企业的经贸对接和项目落地合作。
+这是Oshkosh连续第10年提高或维持季度股息水平。
 
-广州企业代表同样对合作充满期待。
+此次派息金额与上一季度持平。
 
-广东派陶瓷业有限公司相关负责人和印尼亚洲华人青年协会代表团交流，现场展示了公司产品，代表团成员实地上手体验后十分喜爱，意向引进产品落地印尼。
+公司背景 Oshkosh总部位于威斯康星州，主要生产消防车、混凝土搅拌车、军用战术车辆以及机场除雪设备。
 
-“我们一直深耕印尼市场，当地大量新建酒店项目持续落地，餐厨用品需求旺盛。
+公司旗下品牌包括Pierce、McNeilus、JLGR等。
 
-依托本次精准对接的侨商资源，接下来我们将加快推进印尼经销合作。
+其国防部门约占公司总营收的35%。
 
 ## 相关推荐
 
-- 2026-06-29 18:39 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 18:22 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 18:30 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 18:30 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 18:24 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 18:21 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 18:31 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 18:20 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 18:39 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 18:24 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 18:47 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 18:47 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 18:25 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 18:25 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 18:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 18:50 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 18:45 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 18:46 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 18:29 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 18:27 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 18:48 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 18:48 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 18:46 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 18:25 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 18:51 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 18:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:39 - [媒体：听清自己内心的声音再填志愿](https://www.share.minike.top/Article/details/6624547967.shtml)
-- 2026-06-29 18:36 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/94572259212.shtml)
-- 2026-06-29 18:23 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/07308150374.shtml)
-- 2026-06-29 18:30 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/00492768262.shtml)
-- 2026-06-29 18:28 - [谢依霖夸杨幂靠谱](http://www.share.kurohicncr.top/Article/details/3634050140.shtml)
-- 2026-06-29 18:46 - [毒液2](https://www.share.minike.top/Article/details/18858755.shtml)
-- 2026-06-29 18:25 - [海口塔吊事故处罚结果公布](https://www.blog.kurohicncr.top/Article/details/60624900283.shtml)
-- 2026-06-29 18:40 - [刘扬任湖南省副省长](http://www.share.kurohicncr.top/Article/details/28507466121.shtml)
-- 2026-06-29 18:42 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/62013297.shtml)
-- 2026-06-29 18:43 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/1955914096.shtml)
-- 2026-06-29 18:21 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/31488.shtml)
-- 2026-06-29 18:18 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/50317208.shtml)
-- 2026-06-29 18:47 - [请回答王牌2019](https://www.blog.minike.top/Article/details/9670888.shtml)
-- 2026-06-29 18:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/9988665.shtml)
-- 2026-06-29 18:41 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/668080.shtml)
+- 2026-06-29 18:38 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/56032922776.shtml)
+- 2026-06-29 18:52 - [美人鱼](http://www.blog.minike.top/Article/details/8259086511.shtml)
+- 2026-06-29 18:46 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/9858531.shtml)
+- 2026-06-29 18:39 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/53314261428.shtml)
+- 2026-06-29 18:35 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/692314964.shtml)
+- 2026-06-29 18:27 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/725140998478.shtml)
+- 2026-06-29 18:32 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/9355658.shtml)
+- 2026-06-29 18:46 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/17677.shtml)
+- 2026-06-29 18:26 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/044295.shtml)
+- 2026-06-29 18:47 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/5648752377.shtml)
+- 2026-06-29 18:36 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/66393.shtml)
+- 2026-06-29 18:36 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/609346526.shtml)
+- 2026-06-29 18:50 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/479533.shtml)
+- 2026-06-29 18:35 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/1234361155.shtml)
+- 2026-06-29 18:34 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/15551.shtml)

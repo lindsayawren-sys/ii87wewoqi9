@@ -1,56 +1,61 @@
-# 告别泡泡玛特、老铺黄金，广发基金吴远怡在管广发价值核心混合“风格漂移”
+# 地缘冲突加剧市场波动，壳牌一季度利润超预期
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-来源：财报星球 原标题：告别泡泡玛特、老铺黄金，广发基金吴远怡在管基金“风格漂移” 卸任百亿规模基金产品，广发基金吴远怡在管基金仍面临合规考验。 6月3日，广发基金发布了一则人事公告，号称“爆款捕手”的吴远怡在同日卸任了广发成长领航一年持有、广发创新升级以及广发小盘成长3只产品的基金经理职务。 这位曾经的百亿主动权益基金经理，因为提前押中泡泡玛特、老铺黄金等爆款标的而声名鹊起。
+壳牌公布的一季度业绩显示，由于中东冲突推高能源价格并加剧市场波动，其交易业务表现强劲，带动季度利润超出市场预期。 这家能源巨头在财报中披露，一季度调整后净利润为69.2亿美元，同比增长24%，高于分析师预期的61亿美元。壳牌宣布将季度股息提高5%至每股0.3906美元，同时将股票回购规模从此前的35亿美元下调至30亿美元。 自2月底美伊冲突爆发以来，布伦特原油价格已上涨逾50%
 
 ## 正文
 
-来源：财报星球 原标题：告别泡泡玛特、老铺黄金，广发基金吴远怡在管基金“风格漂移” 卸任百亿规模基金产品，广发基金吴远怡在管基金仍面临合规考验。
+壳牌公布的一季度业绩显示，由于中东冲突推高能源价格并加剧市场波动，其交易业务表现强劲，带动季度利润超出市场预期。
 
-6月3日，广发基金发布了一则人事公告，号称“爆款捕手”的吴远怡在同日卸任了广发成长领航一年持有、广发创新升级以及广发小盘成长3只产品的基金经理职务。
+这家能源巨头在财报中披露，一季度调整后净利润为69.2亿美元，同比增长24%，高于分析师预期的61亿美元。
 
-这位曾经的百亿主动权益基金经理，因为提前押中泡泡玛特、老铺黄金等爆款标的而声名鹊起。
+壳牌宣布将季度股息提高5%至每股0.3906美元，同时将股票回购规模从此前的35亿美元下调至30亿美元。
 
-如今，收缩战线的吴远怡如何再出发？
+自2月底美伊冲突爆发以来，布伦特原油价格已上涨逾50%。
 
-卸任押中“爆款”的基金产品 在公募江湖，吴远怡的崛起路径极具辨识度。
+霍尔木兹海峡的有效关闭，以及卡塔尔拉斯拉凡液化天然气基地的设施受损，均对壳牌的产量造成冲击。
 
-这位拥有理学硕士学位的基金经理，曾任职于申银万国证券研究所、惠理基金（香港）及中国人寿资产，2020年加入广发基金。
+壳牌一季度油气总产量较上季度下降4%，并预计二季度产量将继续受中东局势影响。
 
-其真正的“封神之作”无疑是广发成长领航一年持有。
+此前，壳牌已预警其交易业务将表现强劲。
 
-截至2026年6月初，吴远怡在该产品的任职回报高达181.69%，同类平均为31.02%，在同期6700余只同类产品中排名第122位。
+财报显示，化工及产品部门的调整后利润达19.3亿美元，较去年同期的4.49亿美元大幅攀升。
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 18:20 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 18:21 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 18:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 18:43 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 18:32 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 18:27 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 18:36 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 18:24 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 18:22 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 18:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 18:33 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 18:38 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 18:52 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 18:37 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 18:49 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 18:27 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 18:50 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 18:52 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 18:30 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 18:25 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 18:37 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 18:44 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 18:49 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 18:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:34 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/441112.shtml)
-- 2026-06-29 18:38 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/3378554.shtml)
-- 2026-06-29 18:36 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/11612.shtml)
-- 2026-06-29 18:42 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/9902949.shtml)
-- 2026-06-29 18:28 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/77789228.shtml)
-- 2026-06-29 18:45 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/862573.shtml)
-- 2026-06-29 18:33 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/04150.shtml)
-- 2026-06-29 18:26 - [明星大侦探第四季](https://www.share.minike.top/Article/details/725356.shtml)
-- 2026-06-29 18:33 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/48246848.shtml)
-- 2026-06-29 18:47 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/270044387.shtml)
-- 2026-06-29 18:24 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/98880232665.shtml)
-- 2026-06-29 18:38 - [金牌调解](https://www.share.minike.top/Article/details/4050298798.shtml)
-- 2026-06-29 18:23 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/71181.shtml)
-- 2026-06-29 18:27 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/49306556.shtml)
-- 2026-06-29 18:37 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/140820903.shtml)
+- 2026-06-29 18:43 - [毒液2](http://www.share.minike.top/Article/details/803304933189.shtml)
+- 2026-06-29 18:45 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/5815958795.shtml)
+- 2026-06-29 18:24 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/60408923.shtml)
+- 2026-06-29 18:50 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/92876.shtml)
+- 2026-06-29 18:26 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/4908752891.shtml)
+- 2026-06-29 18:50 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/133319639.shtml)
+- 2026-06-29 18:33 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/7531631686.shtml)
+- 2026-06-29 18:35 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/74048111319.shtml)
+- 2026-06-29 18:44 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/2039843.shtml)
+- 2026-06-29 18:37 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/374477.shtml)
+- 2026-06-29 18:24 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/612852980.shtml)
+- 2026-06-29 18:36 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/47670.shtml)
+- 2026-06-29 18:47 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/39070450.shtml)
+- 2026-06-29 18:31 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/1269083.shtml)
+- 2026-06-29 18:45 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/3869024183.shtml)

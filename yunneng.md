@@ -1,60 +1,57 @@
-# 云南曲靖：扬帆出海 开放拓局
+# 【在希望的田野上】新技术新装备助力农业生产
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-从乌蒙山腹地到南亚东南亚市场，从传统农业到“新三样”出口，从单打独斗到抱团出海——近年来，曲靖市主动服务和融入国家发展战略，紧扣“面向南亚东南亚辐射中心重要支撑区”的建设定位，持续优化营商环境，外贸经济交出了一份亮眼答卷。2026年一季度，全市外贸进出口总额达9.4亿元，同比增长56%，增速高于全省平均水平40.4个百分点。这份成绩背后，是一座内陆城市以开放促发展的生动实践。
+央视网消息(新闻联播)：农忙时节，各地因地制宜，广泛采用新技术、新装备、新方法节本增效，为丰产丰收打下基础。 眼下，黑龙江玉米、大豆等旱田作物播种进入高峰。在鹤山农场第六管理区，新型起垄施肥机正在作业，它带来的四行双层施肥新方法，能够实现均匀施肥、分期用肥。 现在，在广袤的黑土地，各种高性能播种机、施肥机联合作业，进一步提升了播种质量和效率。截至5月8日，黑龙江旱田作物播种已超
 
 ## 正文
 
-从乌蒙山腹地到南亚东南亚市场，从传统农业到“新三样”出口，从单打独斗到抱团出海——近年来，曲靖市主动服务和融入国家发展战略，紧扣“面向南亚东南亚辐射中心重要支撑区”的建设定位，持续优化营商环境，外贸经济交出了一份亮眼答卷。
+央视网消息(新闻联播)：农忙时节，各地因地制宜，广泛采用新技术、新装备、新方法节本增效，为丰产丰收打下基础。
 
-2026年一季度，全市外贸进出口总额达9.4亿元，同比增长56%，增速高于全省平均水平40.4个百分点。
+眼下，黑龙江玉米、大豆等旱田作物播种进入高峰。
 
-这份成绩背后，是一座内陆城市以开放促发展的生动实践。
+在鹤山农场第六管理区，新型起垄施肥机正在作业，它带来的四行双层施肥新方法，能够实现均匀施肥、分期用肥。
 
-“新三样”领跑，特色农产品“出海” 走进曲靖经开区曲靖亿纬锂能的生产车间，一条条自动化生产线正高速运转。
+现在，在广袤的黑土地，各种高性能播种机、施肥机联合作业，进一步提升了播种质量和效率。
 
-今年3月，这家企业成功获评云南省新能源电池领域首家、曲靖市首家海关AEO高级认证企业，成为曲靖企业国际化发展的一张亮丽名片。
+截至5月8日，黑龙江旱田作物播种已超8200万亩。
 
-“AEO高级认证是中国海关企业信用管理的最高等级，目前在昆明海关关区企业中占比仅0.8‰。
+四川油菜开始集中收获。
 
-”曲靖经开区相关负责人介绍，自2024年6月起，曲靖亿纬锂能分阶段建成3条先进磷酸铁锂圆柱电池生产线，实现“当年投产、当年见效、次年扩能”。
+记者在达州宣汉县看到，连片油菜呈淡黄色，还是七八分成熟时，收割机就已经进场作业，开始收割。
 
-目前，公司月产能达1300万颗高能量密度电芯，产品深受海内外客户青睐，已成为西南地区锂电池制造的核心基地。
+这样的变化来自当地的实践探索。
 
 ## 相关推荐
 
-- 2026-06-29 18:40 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 18:29 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 18:32 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 18:47 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 18:28 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 18:31 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 18:29 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 18:26 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 18:39 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 18:46 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 18:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 18:36 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 18:24 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 18:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 18:37 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 18:28 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 18:27 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 18:39 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 18:31 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 18:39 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 18:41 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 18:28 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 18:28 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 18:25 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 18:49 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/20556142.shtml)
-- 2026-06-29 18:21 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/0035150725.shtml)
-- 2026-06-29 18:42 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.minike.top/Article/details/76198604.shtml)
-- 2026-06-29 18:21 - [当我回母校教书](http://www.blog.minike.top/Article/details/7176568886.shtml)
-- 2026-06-29 18:36 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/17774757.shtml)
-- 2026-06-29 18:24 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/50161897444.shtml)
-- 2026-06-29 18:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/23617508427.shtml)
-- 2026-06-29 18:23 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/52510.shtml)
-- 2026-06-29 18:46 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/001696577.shtml)
-- 2026-06-29 18:25 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/213654.shtml)
-- 2026-06-29 18:28 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/475960641.shtml)
-- 2026-06-29 18:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/92747076580.shtml)
-- 2026-06-29 18:31 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/3085508.shtml)
-- 2026-06-29 18:44 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/9067507490.shtml)
-- 2026-06-29 18:26 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/58987.shtml)
+- 2026-06-29 18:28 - [许建琼任湖南省检察院副检察长](https://www.share.minike.top/Article/details/18999351.shtml)
+- 2026-06-29 18:27 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/48537.shtml)
+- 2026-06-29 18:28 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/792632659755.shtml)
+- 2026-06-29 18:47 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/1403107779.shtml)
+- 2026-06-29 18:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/238146541326.shtml)
+- 2026-06-29 18:53 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.minike.top/Article/details/888538.shtml)
+- 2026-06-29 18:34 - [断骨增高灰产拉一人提成1.5万元](https://www.share.kurohicncr.top/Article/details/2090227.shtml)
+- 2026-06-29 18:30 - [A股收评：科创50指数大涨4.61%](http://www.share.kurohicncr.top/Article/details/46925328135.shtml)
+- 2026-06-29 18:38 - [起风了](https://www.blog.kurohicncr.top/Article/details/747772811.shtml)
+- 2026-06-29 18:25 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/129496622.shtml)
+- 2026-06-29 18:46 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.minike.top/Article/details/4167023.shtml)
+- 2026-06-29 18:29 - [沙特外交大臣将访华](https://www.blog.minike.top/Article/details/16958092594.shtml)
+- 2026-06-29 18:39 - [沙丘](http://www.share.minike.top/Article/details/1256500.shtml)
+- 2026-06-29 18:41 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/724447053986.shtml)
+- 2026-06-29 18:26 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/3813193.shtml)

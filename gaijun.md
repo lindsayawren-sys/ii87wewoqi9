@@ -1,58 +1,50 @@
-# 焦点访谈｜从水下到太空 我国海洋观测实现质的飞跃
+# 各地加快推动“好房子”建设
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-央视网消息(焦点访谈)：6月8日是第18个世界海洋日，也是我国第19个全国海洋宣传日。中国拥有总长约3.2万公里的海岸线，海域辽阔，接近陆地领土面积的三分之一。推进中国式现代化，必须高效开发利用海洋，推动海洋经济高质量发展，走出一条具有中国特色的向海图强之路。那么，该如何守护好我们身边的这片蔚蓝、向海图强，推动海洋经济高质量发展呢？周智是海南大学珊瑚礁保护团队核心成员，从事珊瑚
+央视网消息(新闻联播)：记者5月6日从住房城乡建设部获悉，《住宅项目规范》实施一年来，各地加快制定地方标准，出台支持政策，有序推动安全、舒适、绿色、智慧的“好房子”建设。 今年4月份以来，内蒙古、海南等地结合本地情况，因地制宜明确了“好房子”建设地方标准或行动方案。截至目前，各地一年来共发布近50条与“好房子”相关的技术规范与支持政策。具体指标既包括层高净高、隔音降噪、电梯配置
 
 ## 正文
 
-央视网消息(焦点访谈)：6月8日是第18个世界海洋日，也是我国第19个全国海洋宣传日。
+央视网消息(新闻联播)：记者5月6日从住房城乡建设部获悉，《住宅项目规范》实施一年来，各地加快制定地方标准，出台支持政策，有序推动安全、舒适、绿色、智慧的“好房子”建设。
 
-中国拥有总长约3.2万公里的海岸线，海域辽阔，接近陆地领土面积的三分之一。
+今年4月份以来，内蒙古、海南等地结合本地情况，因地制宜明确了“好房子”建设地方标准或行动方案。
 
-推进中国式现代化，必须高效开发利用海洋，推动海洋经济高质量发展，走出一条具有中国特色的向海图强之路。
+截至目前，各地一年来共发布近50条与“好房子”相关的技术规范与支持政策。
 
-那么，该如何守护好我们身边的这片蔚蓝、向海图强，推动海洋经济高质量发展呢？
+具体指标既包括层高净高、隔音降噪、电梯配置、安全防护等硬性底线指标，也包括绿色建材使用、智能家居、全龄友好等品质提升指标。
 
-周智是海南大学珊瑚礁保护团队核心成员，从事珊瑚礁保护和研究10多年。
-
-2025年开始，周智博士和他的团队在三亚珊瑚礁国家级自然保护区，有了一整套对珊瑚礁生态系统全方位实时监测的网络。
-
-今天潜水的任务不仅要记录珊瑚礁的恢复情况，也要对这套监测系统进行日常维护。
-
-2025年，周智团队负责的“三亚珊瑚礁生态研究所科研基地”同时挂牌成为“海南珊瑚礁监测科技创新平台”。
+与此同时，围绕保障房如何建设“好房子”，湖北等多地先后明确，新建保障性住房将全部建成“好房子”。
 
 ## 相关推荐
 
-- 2026-06-29 18:32 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 18:38 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 18:26 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 18:45 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 18:30 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 18:25 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 18:35 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 18:28 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 18:45 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 18:44 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 18:29 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 18:47 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 18:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 18:53 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 18:26 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 18:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 18:50 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 18:31 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 18:27 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 18:51 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 18:42 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 18:49 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:34 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/573970551.shtml)
-- 2026-06-29 18:24 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/96875672.shtml)
-- 2026-06-29 18:25 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/024240231.shtml)
-- 2026-06-29 18:27 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/53032860.shtml)
-- 2026-06-29 18:38 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/2868820.shtml)
-- 2026-06-29 18:24 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/524632.shtml)
-- 2026-06-29 18:34 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/91325617.shtml)
-- 2026-06-29 18:38 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/0482497.shtml)
-- 2026-06-29 18:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/99994.shtml)
-- 2026-06-29 18:45 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/310766991.shtml)
-- 2026-06-29 18:44 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/937289340.shtml)
-- 2026-06-29 18:35 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/745499754468.shtml)
-- 2026-06-29 18:19 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/548216.shtml)
-- 2026-06-29 18:23 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/6279582816.shtml)
-- 2026-06-29 18:46 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/382766752.shtml)
+- 2026-06-29 18:26 - [起风了](https://www.blog.minike.top/Article/details/366882886908.shtml)
+- 2026-06-29 18:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/040372.shtml)
+- 2026-06-29 18:30 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.kurohicncr.top/Article/details/516391957.shtml)
+- 2026-06-29 18:34 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/712202018077.shtml)
+- 2026-06-29 18:36 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/3878943135.shtml)
+- 2026-06-29 18:30 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.kurohicncr.top/Article/details/69533022549.shtml)
+- 2026-06-29 18:40 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/27248473.shtml)
+- 2026-06-29 18:38 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.kurohicncr.top/Article/details/63123785897.shtml)
+- 2026-06-29 18:37 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/7357035149.shtml)
+- 2026-06-29 18:44 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/65153.shtml)
+- 2026-06-29 18:32 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/6488023.shtml)
+- 2026-06-29 18:28 - [章若楠包场白敬亭特立独行](http://www.share.kurohicncr.top/Article/details/96921.shtml)
+- 2026-06-29 18:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/155441059.shtml)
+- 2026-06-29 18:45 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/53732960397.shtml)
+- 2026-06-29 18:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/966745195.shtml)

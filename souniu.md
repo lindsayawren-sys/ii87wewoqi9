@@ -1,56 +1,60 @@
-# 开局起步“十五五”：海南力争2030年商业航天营收达500亿元
+# 受贿1.89亿余元！重庆市委原常委陆克华一审被判死缓
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新网海口6月9日电 (记者 王子谦)《海南省“十五五”高新技术产业发展规划》9日对外发布，明确提出到2030年，商业航天产业营收力争达到500亿元。 根据上述规划，到“十五五”末，海南将形成现代生物医药、商业航天、深海科技、节能环保等4个五百亿级产业集群。其中，将以服务“航天强国”战略为核心，全力推进海南商业航天发射场建设，“以场带产”形成涵盖商业发射、星箭制造、卫星应用等全
+2026年5月8日，四川省泸州市中级人民法院一审公开宣判重庆市委原常委、政法委原书记陆克华受贿案，对被告人陆克华以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的陆克华受贿所得财物及孳息依法上缴国库，不足部分继续追缴。 经审理查明：1997年至2024年，被告人陆克华利用担任原建设部房地产业司市场管理处处长、住宅产业化促进中心主任，住房和城乡建
 
 ## 正文
 
-中新网海口6月9日电 (记者 王子谦)《海南省“十五五”高新技术产业发展规划》9日对外发布，明确提出到2030年，商业航天产业营收力争达到500亿元。
+2026年5月8日，四川省泸州市中级人民法院一审公开宣判重庆市委原常委、政法委原书记陆克华受贿案，对被告人陆克华以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的陆克华受贿所得财物及孳息依法上缴国库，不足部分继续追缴。
 
-根据上述规划，到“十五五”末，海南将形成现代生物医药、商业航天、深海科技、节能环保等4个五百亿级产业集群。
+经审理查明：1997年至2024年，被告人陆克华利用担任原建设部房地产业司市场管理处处长、住宅产业化促进中心主任，住房和城乡建设部城市建设司司长、副部长，重庆市政府副市长，重庆市委常委、市政府副市长，重庆市委常委、政法委书记等职务上的便利以及职权、地位形成的便利条件，为他人在工程承揽、项目评审、资质审查等事项上提供帮助，非法收受财物共计折合人民币1.89亿余元。
 
-其中，将以服务“航天强国”战略为核心，全力推进海南商业航天发射场建设，“以场带产”形成涵盖商业发射、星箭制造、卫星应用等全链条产业集群，打造火箭链、卫星链、数据链和“航天+”产业体系。
+泸州市中级人民法院认为，被告人陆克华的行为构成受贿罪。
 
-在发射场建设方面，围绕“出厂即发射、发射即运营、返回即复用”目标体系，强化商业航天发射场硬基础设施和软实力建设，加快新发射工位和测控、安控、测发等重大基础设施和核心能力建设，探索多元化的商业发射工位融资、建设、运营模式。
+陆克华受贿数额特别巨大，并使国家和人民利益遭受特别重大损失，论罪应当判处死刑。
 
-加快海上回收平台建设，构建“回收－评估－复用”一条龙的航天绿色制造体系。
+鉴于其受贿犯罪中有未遂情节；到案后如实供述自己罪行，主动交代办案机关尚未掌握的绝大部分受贿事实；认罪悔罪，积极退赃，受贿所得财物及孳息大部分已追缴，具有法定、酌定从宽处罚情节，对其判处死刑，可不立即执行。
 
-逐步建立成熟稳定的商业航天发射任务机制，实现低成本、高频次、安全可持续的商业发射能力。
+法庭遂作出上述判决。
 
-有关火箭链方面，以火箭总装总测为重点，支持招引重点产业项目落地。
+据悉，泸州市中级人民法院于2026年1月15日公开开庭审理了该案。
 
-发挥优质企业“头雁效应”，带动国内企业将关键材料和单机研发、分系统和大部段生产等环节在海南布局，重点发展环保型火箭用复合材料、控制类及故障检测类单机、火箭回收和修复技术等，培育一批专精特新企业，建设一批火箭技术平台，积极构建“设计－制造－试验－量产”全链条产业体系。
+庭审中，检察机关出示了相关证据，被告人陆克华及其辩护人进行了质证，控辩双方在法庭的主持下充分发表了意见，陆克华进行了最后陈述，并当庭表示认罪悔罪。
 
 ## 相关推荐
 
-- 2026-06-29 18:19 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 18:19 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 18:43 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 18:30 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 18:43 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 18:38 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 18:43 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 18:44 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 18:30 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 18:19 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 18:33 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 18:49 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 18:39 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 18:49 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 18:30 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 18:28 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 18:53 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 18:48 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 18:43 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 18:26 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 18:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 18:29 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 18:39 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 18:40 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:28 - [黄金也扛不住了](https://www.share.minike.top/Article/details/178435679.shtml)
-- 2026-06-29 18:28 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/459096803.shtml)
-- 2026-06-29 18:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/972735864102.shtml)
-- 2026-06-29 18:43 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/760074521584.shtml)
-- 2026-06-29 18:36 - [网红小徐直播时突遇地震](http://www.share.minike.top/Article/details/267993.shtml)
-- 2026-06-29 18:26 - [7款高价创新药有望降价](http://www.blog.minike.top/Article/details/71839181808.shtml)
-- 2026-06-29 18:22 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/55310.shtml)
-- 2026-06-29 18:26 - [小娘惹](https://www.share.minike.top/Article/details/3974650.shtml)
-- 2026-06-29 18:35 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/142696.shtml)
-- 2026-06-29 18:46 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/4006746788.shtml)
-- 2026-06-29 18:25 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/650193.shtml)
-- 2026-06-29 18:21 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/140954.shtml)
-- 2026-06-29 18:30 - [千与千寻](http://www.share.kurohicncr.top/Article/details/79141139.shtml)
-- 2026-06-29 18:25 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/429437323874.shtml)
-- 2026-06-29 18:28 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/463659.shtml)
+- 2026-06-29 18:27 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/42321.shtml)
+- 2026-06-29 18:50 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/31070672603.shtml)
+- 2026-06-29 18:32 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/45446180202.shtml)
+- 2026-06-29 18:40 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/78518191606.shtml)
+- 2026-06-29 18:29 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/86932724861.shtml)
+- 2026-06-29 18:26 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/589386731140.shtml)
+- 2026-06-29 18:40 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.minike.top/Article/details/4821105.shtml)
+- 2026-06-29 18:49 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.kurohicncr.top/Article/details/89439472834.shtml)
+- 2026-06-29 18:48 - [沙丘](http://www.share.kurohicncr.top/Article/details/96720837661.shtml)
+- 2026-06-29 18:34 - [人类对空调和其他家电有多双标](https://www.blog.kurohicncr.top/Article/details/514453789.shtml)
+- 2026-06-29 18:36 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/626076262.shtml)
+- 2026-06-29 18:28 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/784587642.shtml)
+- 2026-06-29 18:41 - [天道](https://www.blog.kurohicncr.top/Article/details/04776.shtml)
+- 2026-06-29 18:30 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/9150418.shtml)
+- 2026-06-29 18:33 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/528255.shtml)

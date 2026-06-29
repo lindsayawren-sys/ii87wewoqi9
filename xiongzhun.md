@@ -1,53 +1,57 @@
-# 有企业用回收塑料生产一次性牙刷 扬州通报：已调查取证
+# 新闻1+1丨“五一”消费市场活力如何延续？
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新网6月8日电 据“扬州市场监管”微信公众号消息，扬州市市场监督管理局8日发布情况通报称，6月7日晚，央视《财经调查》栏目报道扬州市相关企业使用废旧、回收塑料的原料生产一次性牙刷。扬州市委、市政府高度重视，责成市、区两级市场监管、生态环境、公安部门连夜开展核查处置工作。 截至目前，已对涉事经营主体进行调查取证，并开展抽样检测，先行登记保存涉案物品4.4吨。下一步，将深入彻查案
+五一假期结束，除了旅游产品的提质升级，还有消费市场的持续增长。5月7日，文化和旅游部公布“五一”假期出游总花费同比增长2.9%，国家税务总局的消费数据也显示，五一假期服务消费增长快速，商品消费稳中有升。这个假期的消费市场，展现了哪些新特点？假日集中释放的消费活力，又怎样形成常态化的持续增长？“五一”假期 人们愿意把钱花在哪 中国社会科学院财经战略研究院市场流通与消费研究室主任
 
 ## 正文
 
-中新网6月8日电 据“扬州市场监管”微信公众号消息，扬州市市场监督管理局8日发布情况通报称，6月7日晚，央视《财经调查》栏目报道扬州市相关企业使用废旧、回收塑料的原料生产一次性牙刷。
+五一假期结束，除了旅游产品的提质升级，还有消费市场的持续增长。
 
-扬州市委、市政府高度重视，责成市、区两级市场监管、生态环境、公安部门连夜开展核查处置工作。
+5月7日，文化和旅游部公布“五一”假期出游总花费同比增长2.9%，国家税务总局的消费数据也显示，五一假期服务消费增长快速，商品消费稳中有升。
 
-截至目前，已对涉事经营主体进行调查取证，并开展抽样检测，先行登记保存涉案物品4.4吨。
+这个假期的消费市场，展现了哪些新特点？
 
-下一步，将深入彻查案件，依法从严从快作出处理。
+假日集中释放的消费活力，又怎样形成常态化的持续增长？
 
-通报指出，扬州市市场监督管理局将举一反三，立即组织开展牙刷产品质量安全隐患专项排查整治行动，强化日常常态化监管，严厉打击各类违法违规行为，全力维护市场经营秩序与广大消费者合法权益。
+“五一”假期 人们愿意把钱花在哪 中国社会科学院财经战略研究院市场流通与消费研究室主任 依绍华：今年五一假期消费最明显的特点，是服务消费呈现快速爆发式的增长。
 
-欢迎社会各界监督，可拨打12315热线举报相关线索。
+除此之外，夜经济、体验消费都呈现出快速的比较突出的增长。
+
+除此之外，我们现在的服务消费由简单的打卡式消费向深度体验式消费转变。
+
+从简单的买服务向买体验、买情绪价值消费转变。
 
 ## 相关推荐
 
-- 2026-06-29 18:37 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 18:36 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 18:29 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 18:43 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 18:36 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 18:47 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 18:32 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 18:33 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 18:45 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 18:47 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 18:27 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 18:52 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 18:50 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 18:51 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 18:43 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 18:41 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 18:45 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 18:28 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 18:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 18:49 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 18:52 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 18:33 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:36 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/3439101884.shtml)
-- 2026-06-29 18:20 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/86577553394.shtml)
-- 2026-06-29 18:29 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/94110286691.shtml)
-- 2026-06-29 18:25 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/3672341410.shtml)
-- 2026-06-29 18:47 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/73272456064.shtml)
-- 2026-06-29 18:36 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/400764797428.shtml)
-- 2026-06-29 18:27 - [当地回应林区违规放羊遭豹啃食](http://www.blog.minike.top/Article/details/0938413.shtml)
-- 2026-06-29 18:20 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.kurohicncr.top/Article/details/0095646.shtml)
-- 2026-06-29 18:26 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/61702.shtml)
-- 2026-06-29 18:22 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/549446666.shtml)
-- 2026-06-29 18:46 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/70136486260.shtml)
-- 2026-06-29 18:19 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/855154807.shtml)
-- 2026-06-29 18:18 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/73674.shtml)
-- 2026-06-29 18:20 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/903388.shtml)
-- 2026-06-29 18:29 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/325127607.shtml)
+- 2026-06-29 18:51 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.minike.top/Article/details/82288307.shtml)
+- 2026-06-29 18:44 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/13541970368.shtml)
+- 2026-06-29 18:36 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/276199795973.shtml)
+- 2026-06-29 18:35 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/686149.shtml)
+- 2026-06-29 18:38 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/23787615040.shtml)
+- 2026-06-29 18:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/1335454716.shtml)
+- 2026-06-29 18:38 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/9487543712.shtml)
+- 2026-06-29 18:46 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/36288.shtml)
+- 2026-06-29 18:30 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/434738.shtml)
+- 2026-06-29 18:30 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/53454.shtml)
+- 2026-06-29 18:50 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/415098382534.shtml)
+- 2026-06-29 18:33 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/85334775149.shtml)
+- 2026-06-29 18:53 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/283260.shtml)
+- 2026-06-29 18:37 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/1084930204.shtml)
+- 2026-06-29 18:40 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/1982532.shtml)

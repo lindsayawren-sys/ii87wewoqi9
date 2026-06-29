@@ -1,45 +1,58 @@
-# 第四届链博会首票进境展品顺利通关
+# 17家全国性行业协会商会联合发布《国内贸易交易指引（试行）》
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月08日 20:40 来源：央视新闻 责任编辑：【王祎】
+新华社北京5月8日电(记者何晓)为构建统一开放、竞争有序的市场体系，纵深推进全国统一大市场建设，5月8日，中国物流与采购联合会、中国商业联合会、中国纺织工业联合会、中国轻工业联合会、中国网络社会组织联合会等17家全国性行业协会商会在京共同发布《国内贸易交易指引(试行)》。我国内贸市场规模体量大、企业主体多、就业领域广，是强大国内市场的重要支撑。2025年，我国社会消费品零售总额
 
 ## 正文
 
-发布时间：2026年06月08日 20:40 来源：央视新闻 责任编辑：【王祎】
+新华社北京5月8日电(记者何晓)为构建统一开放、竞争有序的市场体系，纵深推进全国统一大市场建设，5月8日，中国物流与采购联合会、中国商业联合会、中国纺织工业联合会、中国轻工业联合会、中国网络社会组织联合会等17家全国性行业协会商会在京共同发布《国内贸易交易指引(试行)》。
+
+我国内贸市场规模体量大、企业主体多、就业领域广，是强大国内市场的重要支撑。
+
+2025年，我国社会消费品零售总额超50万亿元，消费市场规模稳居全球第二。
+
+但总体上来看，国内贸易仍存在交易不规范、账期长、回款难等问题，企业对建立全国统一、权责清晰的高标准交易规则呼声强烈。
+
+据了解，指引共设七章三十八条，以依法合规、平等自愿、诚实守信、公平竞争为原则，立足行业发展实际、聚焦堵点卡点问题、贯穿交易全流程，对订立交易合同、货物交付验收、账期及支付、争议解决、规范商业行为等各环节进行了明确和规定，为参与国内贸易的企业提供了可操作、易落地的行为规范。
+
+“下一步，各行业协会商会将通过标准建设、信用评价、案例推广等举措，凝聚行业共识、强化自律规范，提升国内贸易标准化、规范化、国际化水平，纵深推进全国统一大市场建设。
+
+”中国物流与采购联合会副会长胡大剑说。
 
 ## 相关推荐
 
-- 2026-06-29 18:20 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 18:46 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 18:24 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 18:20 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 18:26 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 18:34 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 18:46 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 18:43 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 18:43 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 18:46 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 18:18 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 18:46 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 18:27 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 18:28 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 18:37 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 18:47 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 18:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 18:52 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 18:30 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 18:37 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 18:29 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 18:33 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 18:35 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 18:50 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 18:34 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 18:38 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 18:43 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:24 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/881694870462.shtml)
-- 2026-06-29 18:23 - [明星大侦探第四季](http://www.share.minike.top/Article/details/051432.shtml)
-- 2026-06-29 18:30 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/94934374038.shtml)
-- 2026-06-29 18:30 - [韩国小学生都来吐槽了](http://www.blog.minike.top/Article/details/867552580.shtml)
-- 2026-06-29 18:30 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/139548879.shtml)
-- 2026-06-29 18:25 - [人形机器人](https://www.blog.minike.top/Article/details/68204282.shtml)
-- 2026-06-29 18:21 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/3233277608.shtml)
-- 2026-06-29 18:41 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.kurohicncr.top/Article/details/6220181217.shtml)
-- 2026-06-29 18:44 - [千与千寻](http://www.share.kurohicncr.top/Article/details/580759.shtml)
-- 2026-06-29 18:47 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/391718390.shtml)
-- 2026-06-29 18:32 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/3541555.shtml)
-- 2026-06-29 18:39 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/961305.shtml)
-- 2026-06-29 18:46 - [苹果回应恋与深空低分](https://www.blog.minike.top/Article/details/91346335.shtml)
-- 2026-06-29 18:22 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/450482.shtml)
-- 2026-06-29 18:38 - [金刚川](http://www.blog.minike.top/Article/details/760275429434.shtml)
+- 2026-06-29 18:26 - [2026世界杯谁能一黑到底](https://www.share.minike.top/Article/details/04098.shtml)
+- 2026-06-29 18:24 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/08621622.shtml)
+- 2026-06-29 18:44 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/324334.shtml)
+- 2026-06-29 18:38 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/0092028011.shtml)
+- 2026-06-29 18:45 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/6979753233.shtml)
+- 2026-06-29 18:52 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/130370.shtml)
+- 2026-06-29 18:35 - [章若楠包场白敬亭特立独行](https://www.blog.minike.top/Article/details/39040.shtml)
+- 2026-06-29 18:47 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/49294834038.shtml)
+- 2026-06-29 18:24 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/30506004.shtml)
+- 2026-06-29 18:42 - [两老人多次到一洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/6449845729.shtml)
+- 2026-06-29 18:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/36453234.shtml)
+- 2026-06-29 18:43 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/885287765.shtml)
+- 2026-06-29 18:30 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/638107.shtml)
+- 2026-06-29 18:36 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/581134251465.shtml)
+- 2026-06-29 18:24 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/23585741.shtml)

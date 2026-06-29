@@ -1,60 +1,56 @@
-# 国际档案日：侨批记录华侨与祖国同行历程
+# 京东“换牌”：拿下青岛资管控股权，退出北京资管股东行列
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新社北京6月9日电 (记者 刘洋)6月9日国际档案日之际，几位涉侨博物馆工作人员接受中新社记者采访，讲述侨批档案中华侨与祖国风雨同舟、携手同行的故事。 汕头市档案馆存有大量侨批档案，记录了海外华侨倾力捐资捐物、心系故土安危、支援祖国建设的事迹。汕头市档案馆侨批文化讲师卢博宇分享了一封1938年旅泰华侨许泽溥寄给家乡妻子的批信。 信中写道：“暴日侵华，以(已)把中国人从梦中惊醒
+近期，一则股东变更的工商登记信息，将京东集团在金融领域的最新布局推至台前。 4月28日，全国首家市级资产管理公司（AMC）——中信青岛资产管理有限公司（以下简称“中信青岛资管”）顺利完成公司章程备案及控股股东变更手续。京东科技通过其全资子公司网银在线（北京）商务服务有限公司，正式实现对该公司的控股，认缴出资额达20亿元，持股比例高达66.67%。 历时近一年的股权收购传闻，终于
 
 ## 正文
 
-中新社北京6月9日电 (记者 刘洋)6月9日国际档案日之际，几位涉侨博物馆工作人员接受中新社记者采访，讲述侨批档案中华侨与祖国风雨同舟、携手同行的故事。
+近期，一则股东变更的工商登记信息，将京东集团在金融领域的最新布局推至台前。
 
-汕头市档案馆存有大量侨批档案，记录了海外华侨倾力捐资捐物、心系故土安危、支援祖国建设的事迹。
+4月28日，全国首家市级资产管理公司（AMC）——中信青岛资产管理有限公司（以下简称“中信青岛资管”）顺利完成公司章程备案及控股股东变更手续。
 
-汕头市档案馆侨批文化讲师卢博宇分享了一封1938年旅泰华侨许泽溥寄给家乡妻子的批信。
+京东科技通过其全资子公司网银在线（北京）商务服务有限公司，正式实现对该公司的控股，认缴出资额达20亿元，持股比例高达66.67%。
 
-信中写道：“暴日侵华，以(已)把中国人从梦中惊醒……在此时期，不论男女，都应精忠报国，以卫国家，不得再生‘成家立业’过太平清福之念……” 卢博宇说，这封侨批反映了抗战时期华侨群体抗日救国的心声。
+历时近一年的股权收购传闻，终于尘埃落定，这也是继2024年京东集团成功收购捷信消费金融公司、拿下消费金融牌照之后的又一大动作。
 
-在山河动荡的岁月，众多海外华侨通过侨批叮嘱家人勤俭度日、节约开支，鼓励家乡亲人学习护理、制衣等技能，主动加入抗敌后援会，以实际行动投身救国事业。
+21世纪经济报道记者注意到，在选择控股地方AMC之时，京东悄然退出了北京资产管理公司的股东行列，不再持有该公司股权。
 
-不仅如此，抗战期间多名中共地下党员以侨批派送员身份为掩护，借助侨批网络秘密传递情报、筹措革命资金，海外华侨的抗日捐款也通过侨批局源源不断输送至中国，为抗日战争提供支撑。
+公开资料显示，此前京东科技曾持有北京资产管理公司15%的股权，位列第三大股东。
 
-中国华侨历史博物馆副研究馆员罗佩玲表示，侨博现存抗战时期侨批多出自海外洗衣工、餐馆打工人等底层华侨之手。
+历时一年，京东拿下地方AMC控股权 这宗备受市场关注的股权交易，始于2025年6月。
 
-文字质朴无修饰，真实记录了战乱时局与侨胞的忧国之情。
+2025年6月25日，中信集团通过上海联合产权交易所挂牌转让中信青岛资管66.67%的股权，转让底价为30.14亿元。
 
 ## 相关推荐
 
-- 2026-06-29 18:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 18:24 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 18:36 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 18:40 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 18:46 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 18:34 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 18:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 18:22 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 18:46 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 18:31 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 18:27 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 18:43 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 18:29 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 18:35 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 18:41 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 18:36 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 18:40 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 18:44 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 18:25 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 18:32 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 18:48 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 18:41 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 18:50 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 18:40 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:38 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/54671925655.shtml)
-- 2026-06-29 18:23 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/894376884.shtml)
-- 2026-06-29 18:27 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/97506007973.shtml)
-- 2026-06-29 18:34 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/0732648.shtml)
-- 2026-06-29 18:30 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/10066.shtml)
-- 2026-06-29 18:35 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/3265882205.shtml)
-- 2026-06-29 18:29 - [赵今麦时隔五年再演李诗情](http://www.share.kurohicncr.top/Article/details/5253174.shtml)
-- 2026-06-29 18:27 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/18100542.shtml)
-- 2026-06-29 18:41 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/614093562061.shtml)
-- 2026-06-29 18:38 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/3661020.shtml)
-- 2026-06-29 18:45 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.kurohicncr.top/Article/details/0161361437.shtml)
-- 2026-06-29 18:22 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/890908.shtml)
-- 2026-06-29 18:44 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/794864692263.shtml)
-- 2026-06-29 18:30 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/4492697909.shtml)
-- 2026-06-29 18:35 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/35617066739.shtml)
+- 2026-06-29 18:30 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/6595941.shtml)
+- 2026-06-29 18:37 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/96936745.shtml)
+- 2026-06-29 18:31 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/088329099785.shtml)
+- 2026-06-29 18:39 - [扬名立万](http://www.share.minike.top/Article/details/641994498.shtml)
+- 2026-06-29 18:32 - [黄金也扛不住了](https://www.share.minike.top/Article/details/6001876149.shtml)
+- 2026-06-29 18:32 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/070541390132.shtml)
+- 2026-06-29 18:53 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/204709181412.shtml)
+- 2026-06-29 18:47 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.kurohicncr.top/Article/details/052786370735.shtml)
+- 2026-06-29 18:24 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/7934433.shtml)
+- 2026-06-29 18:24 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/4339355.shtml)
+- 2026-06-29 18:26 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/16214108674.shtml)
+- 2026-06-29 18:41 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/276686.shtml)
+- 2026-06-29 18:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/744182513999.shtml)
+- 2026-06-29 18:24 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/6390527.shtml)
+- 2026-06-29 18:32 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/76607286.shtml)

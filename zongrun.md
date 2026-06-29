@@ -1,54 +1,49 @@
-# 中方：黄岩岛是中国的固有领土 敦促菲方停止海上的侵权挑衅和煽宣炒作
+# 西安咸阳机场海关查获多个品牌电子烟弹213个
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月9日电 (记者 张素)中国外交部发言人林剑6月9日主持例行记者会。 会上在回答黄岩岛相关的提问时，林剑表示，黄岩岛是中国的固有领土，中国对黄岩岛及附近海域拥有无可争辩的主权。中国在黄岩岛开展包括科考在内的任何活动，都是主权国家的正当权利。中方敦促菲律宾方面停止海上的侵权挑衅和煽宣炒作。(完）
+中新网5月8日电 据“海关发布”微信公众号消息，近日，西安咸阳机场海关关员在对一入境航班进行监管时，发现一名经“无申报通道”进境旅客的托运行李机检图像异常。经开箱查验，现场关员在其行李箱内查获多个品牌电子烟弹213个，共计2778毫升，均拆除外包装，分散包裹于衣物内。目前，海关已依法暂扣该批物品，并将案件移交海关缉私部门作进一步处理。 根据相关规定，入境旅客在其免税额度内可携带
 
 ## 正文
 
-中新网北京6月9日电 (记者 张素)中国外交部发言人林剑6月9日主持例行记者会。
+中新网5月8日电 据“海关发布”微信公众号消息，近日，西安咸阳机场海关关员在对一入境航班进行监管时，发现一名经“无申报通道”进境旅客的托运行李机检图像异常。
 
-会上在回答黄岩岛相关的提问时，林剑表示，黄岩岛是中国的固有领土，中国对黄岩岛及附近海域拥有无可争辩的主权。
+经开箱查验，现场关员在其行李箱内查获多个品牌电子烟弹213个，共计2778毫升，均拆除外包装，分散包裹于衣物内。
 
-中国在黄岩岛开展包括科考在内的任何活动，都是主权国家的正当权利。
+目前，海关已依法暂扣该批物品，并将案件移交海关缉私部门作进一步处理。
 
-中方敦促菲律宾方面停止海上的侵权挑衅和煽宣炒作。
-
-(完）
+根据相关规定，入境旅客在其免税额度内可携带电子烟烟具2个，电子烟烟弹(液态雾化物)或烟弹与烟具组合销售的产品(包括一次性电子烟等)6个，合计烟液容量不超过12毫升。
 
 ## 相关推荐
 
-- 2026-06-29 18:27 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 18:29 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 18:43 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 18:35 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 18:43 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 18:43 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 18:42 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 18:46 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 18:30 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 18:28 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 18:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 18:33 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 18:33 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 18:40 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 18:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 18:45 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 18:24 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 18:32 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 18:43 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 18:24 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 18:35 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 18:38 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 18:26 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 18:34 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 18:34 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/91533.shtml)
-- 2026-06-29 18:44 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/3522788.shtml)
-- 2026-06-29 18:46 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/313108.shtml)
-- 2026-06-29 18:20 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/2134032658.shtml)
-- 2026-06-29 18:27 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.kurohicncr.top/Article/details/510602158848.shtml)
-- 2026-06-29 18:21 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/8719803.shtml)
-- 2026-06-29 18:47 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/0045271.shtml)
-- 2026-06-29 18:45 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/181355386.shtml)
-- 2026-06-29 18:30 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/428088.shtml)
-- 2026-06-29 18:23 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/598471523.shtml)
-- 2026-06-29 18:24 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/847436592.shtml)
-- 2026-06-29 18:43 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/917159.shtml)
-- 2026-06-29 18:33 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/882979988.shtml)
-- 2026-06-29 18:22 - [挪威王储妃长子2次强奸被判4年](http://www.blog.minike.top/Article/details/778013558441.shtml)
-- 2026-06-29 18:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/400701788197.shtml)
+- 2026-06-29 18:37 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/991690350390.shtml)
+- 2026-06-29 18:41 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/1938032763.shtml)
+- 2026-06-29 18:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/089946609358.shtml)
+- 2026-06-29 18:26 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/654673984640.shtml)
+- 2026-06-29 18:34 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/1380879180.shtml)
+- 2026-06-29 18:49 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/47719742.shtml)
+- 2026-06-29 18:29 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/8069525874.shtml)
+- 2026-06-29 18:29 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/7888611.shtml)
+- 2026-06-29 18:39 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/2948050.shtml)
+- 2026-06-29 18:24 - [主力抛售电子和通信板块](https://www.blog.kurohicncr.top/Article/details/8685166.shtml)
+- 2026-06-29 18:39 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/739242751920.shtml)
+- 2026-06-29 18:31 - [叠纸](http://www.blog.kurohicncr.top/Article/details/92045674413.shtml)
+- 2026-06-29 18:44 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/8177596.shtml)
+- 2026-06-29 18:46 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/02895692711.shtml)
+- 2026-06-29 18:24 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/40008.shtml)

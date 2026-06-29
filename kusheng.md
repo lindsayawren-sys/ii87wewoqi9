@@ -1,57 +1,53 @@
-# 海底珊瑚监测、废弃渔网回收 珠澳携手保护海洋生态
+# 贵州加榜梯田备耕注水 现场宛若田园画卷
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-6月8日是世界海洋日。这两天，珠澳联动开展了净滩护海、海底保育、跨境海洋科普研学等系列活动，推进粤港澳大湾区海洋生态共建共享，让海洋保护理念走进公众生活。 在珠海庙湾岛周边海域，由大湾区潜水员组成的海洋保育队伍，开展了鹿角珊瑚监测、废弃渔网等海洋垃圾水下回收。巡查过程中，潜水员还记录了珊瑚群落生长状态和海域生态数据，为近海生态修复和常态化监测提供资料。 此外，当地还开展了为期两
+发布时间：2026年05月08日 16:25 来源：中国新闻网 连日来，位于贵州省黔东南苗族侗族自治州从江县加榜乡的加榜梯田进入春耕备耕期。注水后的梯田层层叠叠，与晨雾、云海、苗寨相映成趣。当地村民抢抓农时，开展蓄水、管护等田间劳作。 加榜梯田是自然文化遗产和物质文化遗产的有机融合，也是当今中国传统农耕文化保存较为完整的农业基地。(吴德军 制作 袁超 视频来源 从江融媒） 责任
 
 ## 正文
 
-6月8日是世界海洋日。
+发布时间：2026年05月08日 16:25 来源：中国新闻网 连日来，位于贵州省黔东南苗族侗族自治州从江县加榜乡的加榜梯田进入春耕备耕期。
 
-这两天，珠澳联动开展了净滩护海、海底保育、跨境海洋科普研学等系列活动，推进粤港澳大湾区海洋生态共建共享，让海洋保护理念走进公众生活。
+注水后的梯田层层叠叠，与晨雾、云海、苗寨相映成趣。
 
-在珠海庙湾岛周边海域，由大湾区潜水员组成的海洋保育队伍，开展了鹿角珊瑚监测、废弃渔网等海洋垃圾水下回收。
+当地村民抢抓农时，开展蓄水、管护等田间劳作。
 
-巡查过程中，潜水员还记录了珊瑚群落生长状态和海域生态数据，为近海生态修复和常态化监测提供资料。
+加榜梯田是自然文化遗产和物质文化遗产的有机融合，也是当今中国传统农耕文化保存较为完整的农业基地。
 
-此外，当地还开展了为期两天的“海洋小卫士”亲子研学营，许多亲子家庭参与了海洋科普课堂、潜水知识分享、贝壳归海等研学活动，在沉浸式体验中学习珊瑚保护、海洋垃圾治理和生物多样性保护。
-
-未来，当地还将持续开展珊瑚监测、海底保育、海滩清洁和跨境海洋科普研学等公益行动，推动粤港澳大湾区海洋生态保护和生态文明建设不断深化。
+(吴德军 制作 袁超 视频来源 从江融媒） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 18:27 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 18:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 18:43 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 18:30 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 18:40 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 18:21 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 18:41 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 18:27 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 18:44 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 18:21 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 18:41 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 18:44 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 18:41 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 18:39 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 18:20 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 18:24 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 18:48 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 18:27 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 18:34 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 18:51 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 18:48 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 18:31 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 18:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 18:47 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 18:26 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 18:27 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 18:48 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 18:51 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:20 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/494632.shtml)
-- 2026-06-29 18:36 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/8794910135.shtml)
-- 2026-06-29 18:46 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/6136421.shtml)
-- 2026-06-29 18:29 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/385045552.shtml)
-- 2026-06-29 18:36 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/709434374615.shtml)
-- 2026-06-29 18:25 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/30668703.shtml)
-- 2026-06-29 18:24 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/72073550.shtml)
-- 2026-06-29 18:22 - [爱很美味](http://www.share.minike.top/Article/details/818137.shtml)
-- 2026-06-29 18:32 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/8578408.shtml)
-- 2026-06-29 18:37 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/1683703511.shtml)
-- 2026-06-29 18:18 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/97818679855.shtml)
-- 2026-06-29 18:46 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/05950.shtml)
-- 2026-06-29 18:25 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/823695.shtml)
-- 2026-06-29 18:42 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/99259.shtml)
-- 2026-06-29 18:41 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/07044.shtml)
+- 2026-06-29 18:24 - [美人鱼](https://www.share.minike.top/Article/details/4882895.shtml)
+- 2026-06-29 18:44 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/8715015.shtml)
+- 2026-06-29 18:35 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/168250.shtml)
+- 2026-06-29 18:28 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/621552.shtml)
+- 2026-06-29 18:52 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/37219143742.shtml)
+- 2026-06-29 18:24 - [韩国小学生都来吐槽了](https://www.blog.kurohicncr.top/Article/details/985114996069.shtml)
+- 2026-06-29 18:45 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/47373452087.shtml)
+- 2026-06-29 18:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/83279.shtml)
+- 2026-06-29 18:46 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/851483874515.shtml)
+- 2026-06-29 18:34 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/102935.shtml)
+- 2026-06-29 18:52 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/8547545855.shtml)
+- 2026-06-29 18:35 - [机器人学校开学了](http://www.blog.kurohicncr.top/Article/details/48614194049.shtml)
+- 2026-06-29 18:45 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/95308428201.shtml)
+- 2026-06-29 18:25 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/653219029403.shtml)
+- 2026-06-29 18:47 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/587159356143.shtml)

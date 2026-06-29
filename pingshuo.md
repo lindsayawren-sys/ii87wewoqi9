@@ -1,58 +1,50 @@
-# 我国船舶海工装备产业加速提质升级
+# 陈扬帆任中国移动董事、总经理、党组副书记
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：今年以来，我国海洋工程装备与高端船舶制造产业转型升级提速，全球竞争力持续攀升。 在湖北武汉中船武昌造船厂，我国首型六风帆飞机部件运输船顺利下水，进入码头舾装阶段，计划11月交付。 今年以来，我国高端定制船舶不断取得突破，海工装备加速迭代升级。全球首艘10800车汽车运输船顺利交付、2.4万箱超大型集装箱船完成试航，首艘国产深海施工船“天翼领航者”号下水、
+2026年5月8日，中国移动通信集团有限公司召开领导班子（扩大）会议。受中央组织部领导委托，中央组织部有关干部局负责同志宣布了党中央关于中国移动通信集团有限公司总经理调整的决定：陈扬帆同志任中国移动通信集团有限公司董事、总经理、党组副书记，免去其中国电子信息产业集团有限公司董事、党组副书记职务。相关职务任免，按有关法律和章程的规定办理。责任编辑：刘万里 SF014
 
 ## 正文
 
-央视网消息(新闻联播)：今年以来，我国海洋工程装备与高端船舶制造产业转型升级提速，全球竞争力持续攀升。
+2026年5月8日，中国移动通信集团有限公司召开领导班子（扩大）会议。
 
-在湖北武汉中船武昌造船厂，我国首型六风帆飞机部件运输船顺利下水，进入码头舾装阶段，计划11月交付。
+受中央组织部领导委托，中央组织部有关干部局负责同志宣布了党中央关于中国移动通信集团有限公司总经理调整的决定：陈扬帆同志任中国移动通信集团有限公司董事、总经理、党组副书记，免去其中国电子信息产业集团有限公司董事、党组副书记职务。
 
-今年以来，我国高端定制船舶不断取得突破，海工装备加速迭代升级。
+相关职务任免，按有关法律和章程的规定办理。
 
-全球首艘10800车汽车运输船顺利交付、2.4万箱超大型集装箱船完成试航，首艘国产深海施工船“天翼领航者”号下水、亚洲最大圆筒型浮式生产储卸油装置开工。
-
-从深海油气开发装备到特种作业船舶，一批重大项目密集落地，产业规模和技术水平稳步提升。
-
-目前，我国已建成规模较大、体系较为完整的海洋工程装备产业，形成了全产业链协同发展的格局。
-
-海工装备设计制造、系统开发、装备集成等应用技术能力不断提升。
-
-今年一季度，我国新承接海工订单金额同比增长36.4%，稳居全球海工市场份额首位，高端特种船、海工装备成为订单增长主力。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 18:24 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 18:34 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 18:26 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 18:43 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 18:31 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 18:41 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 18:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 18:43 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 18:38 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 18:45 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 18:18 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 18:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 18:46 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 18:37 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 18:26 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 18:27 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 18:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 18:32 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 18:31 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 18:38 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 18:24 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 18:45 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 18:30 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 18:31 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:28 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/094673.shtml)
-- 2026-06-29 18:44 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.minike.top/Article/details/46664.shtml)
-- 2026-06-29 18:42 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.kurohicncr.top/Article/details/46942292692.shtml)
-- 2026-06-29 18:19 - [学者：建设性战略稳定重塑中美关系](https://www.blog.kurohicncr.top/Article/details/856336.shtml)
-- 2026-06-29 18:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/5058041658.shtml)
-- 2026-06-29 18:36 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/4740904951.shtml)
-- 2026-06-29 18:35 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/31534707.shtml)
-- 2026-06-29 18:31 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/041191.shtml)
-- 2026-06-29 18:32 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/015763178383.shtml)
-- 2026-06-29 18:30 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/379949906.shtml)
-- 2026-06-29 18:23 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/22973200928.shtml)
-- 2026-06-29 18:39 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/404559328.shtml)
-- 2026-06-29 18:42 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/080385.shtml)
-- 2026-06-29 18:26 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.minike.top/Article/details/283718.shtml)
-- 2026-06-29 18:34 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/739123526.shtml)
+- 2026-06-29 18:43 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/5905280.shtml)
+- 2026-06-29 18:51 - [TOP Prada](https://www.share.minike.top/Article/details/65827.shtml)
+- 2026-06-29 18:33 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/47202117.shtml)
+- 2026-06-29 18:28 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/1824093.shtml)
+- 2026-06-29 18:44 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/236603357.shtml)
+- 2026-06-29 18:51 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.kurohicncr.top/Article/details/1662357103.shtml)
+- 2026-06-29 18:39 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.kurohicncr.top/Article/details/18905820986.shtml)
+- 2026-06-29 18:48 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/547209353395.shtml)
+- 2026-06-29 18:51 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/15484618.shtml)
+- 2026-06-29 18:47 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/757491453987.shtml)
+- 2026-06-29 18:29 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/9646759939.shtml)
+- 2026-06-29 18:43 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/519221698889.shtml)
+- 2026-06-29 18:29 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/529589.shtml)
+- 2026-06-29 18:25 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/622558680107.shtml)
+- 2026-06-29 18:50 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/07522538353.shtml)

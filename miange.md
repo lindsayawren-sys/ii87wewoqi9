@@ -1,59 +1,61 @@
-# 长江有色: 海外供给收缩预期支撑但国内弱消费掣肘 9日铝价或小跌
+# AI时代，全球教育正面临三层重塑
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 长江铝价alu.ccmn.cn短评：美指走软及供应收紧支撑，隔夜伦铝收涨0.11%；海外铝供应短缺严峻及升水创下19年新高托举铝价，国内淡季消费压制，今现铝或小跌。 【铝期货市场】：美指走软及供应收紧支撑，隔夜伦铝偏弱震荡后，尾盘强势收阳，最新收盘报价3608美元/吨，收涨4美元，涨幅0.11%，成交量18763手减少8304手，持仓量661521手减少3913
+AI时代，全球教育正面临三层重塑 ——来自亚太经合组织研究中心联席会议青年学者论坛的声音 5月7日，在香港中文大学(深圳)举行的2026年亚太经合组织(APEC)研究中心联席会议青年学者论坛第三场圆桌论坛上，香港教育大学助理副校长李辉用一个具体的数字让在场的人停顿了片刻。2019至2020年间，李辉的团队想在广东深圳找一组从未接触过电子设备的5岁儿童作为对照组。“只找到8个小朋
 
 ## 正文
 
-长江有色金属网 长江铝价alu.ccmn.cn短评：美指走软及供应收紧支撑，隔夜伦铝收涨0.11%；海外铝供应短缺严峻及升水创下19年新高托举铝价，国内淡季消费压制，今现铝或小跌。
+AI时代，全球教育正面临三层重塑 ——来自亚太经合组织研究中心联席会议青年学者论坛的声音 5月7日，在香港中文大学(深圳)举行的2026年亚太经合组织(APEC)研究中心联席会议青年学者论坛第三场圆桌论坛上，香港教育大学助理副校长李辉用一个具体的数字让在场的人停顿了片刻。
 
-【铝期货市场】：美指走软及供应收紧支撑，隔夜伦铝偏弱震荡后，尾盘强势收阳，最新收盘报价3608美元/吨，收涨4美元，涨幅0.11%，成交量18763手减少8304手，持仓量661521手减少3913手。
+2019至2020年间，李辉的团队想在广东深圳找一组从未接触过电子设备的5岁儿童作为对照组。
 
-晚间沪铝高开跳水后现“W”型走势，不过随后盘面反弹上行，尾盘震荡小幅收阳；主力月2606合约最新收盘价报24125元/吨，涨35元，涨幅0.15%。
+“只找到8个小朋友。
 
-伦敦金属交易所（LME）6月6日伦铝最新库存量报330950吨，较上个交易日下降2250吨，跌幅0.68%。
+”他说，“现在可能已经找不着了。
 
-长江铝业网讯：6月8日现货铝价，长江现货A00铝锭价报24000元/吨，跌220元；广东现货A00铝锭价报23880元/吨，跌220元。
+” 这场以“被打破的围墙：AI时代的教育重塑与代际冲突”为题的讨论，汇聚了来自中国以及澳大利亚、智利、巴布亚新几内亚、秘鲁等经济体的学者。
 
-宏观层面，美国5月非农就业新增17.2万人（前值上修至17.9万），远超市场预期的8.5万，失业率稳定于4.3%。
+他们分别从大脑、师生关系和教育制度三个层面切入讨论，最终都指向同一个命题：当AI深度介入时，我们究竟是在谈一种新的工具，还是一种新的教育？
 
-劳动力市场韧性强化了美联储年内加息预期，CME FedWatch显示12月加息概率已升至70%以上，较一周前大幅攀升。
+大脑：被悄悄重塑的“前额叶” 李辉的实验室过去几年系统梳理了全球已有的脑科学证据。
 
-地缘方面，以伊紧张局势持续发酵，霍尔木兹海峡仍是市场关注的焦点，但特朗普政府秉持“美国优先、终结海外无意义战争”的执政理念，对以色列激进战略形成制衡，明确反对美军直接卷入对伊全面战争，一定程度上缓和了冲突失控的极端风险。
+“AI和数码经验会对儿童大脑造成结构和功能上的改变。
 
 ## 相关推荐
 
-- 2026-06-29 18:27 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 18:34 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 18:48 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 18:37 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 18:39 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 18:27 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 18:21 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 18:46 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 18:41 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 18:28 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 18:31 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 18:33 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 18:24 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 18:31 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 18:46 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 18:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 18:28 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 18:36 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 18:37 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 18:51 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 18:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 18:51 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 18:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 18:48 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 18:48 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 18:32 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 18:42 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 18:51 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:47 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/01966405.shtml)
-- 2026-06-29 18:38 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/76045592.shtml)
-- 2026-06-29 18:25 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/272306151190.shtml)
-- 2026-06-29 18:30 - [小娘惹](https://www.share.minike.top/Article/details/05617453.shtml)
-- 2026-06-29 18:25 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/4247963058.shtml)
-- 2026-06-29 18:26 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/99483.shtml)
-- 2026-06-29 18:36 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/01730012.shtml)
-- 2026-06-29 18:40 - [青春环游记第三季](https://www.share.minike.top/Article/details/55565425384.shtml)
-- 2026-06-29 18:47 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/261576741568.shtml)
-- 2026-06-29 18:45 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/21183886591.shtml)
-- 2026-06-29 18:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/585795322.shtml)
-- 2026-06-29 18:36 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/340736872740.shtml)
-- 2026-06-29 18:42 - [王安宇尊重田曦薇的一切选择](http://www.blog.kurohicncr.top/Article/details/953697591.shtml)
-- 2026-06-29 18:41 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/7313258.shtml)
-- 2026-06-29 18:47 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/4124974.shtml)
+- 2026-06-29 18:27 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/646216357705.shtml)
+- 2026-06-29 18:37 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/122316972.shtml)
+- 2026-06-29 18:27 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/385642.shtml)
+- 2026-06-29 18:53 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/06614715.shtml)
+- 2026-06-29 18:42 - [女心理师](http://www.share.minike.top/Article/details/520097.shtml)
+- 2026-06-29 18:28 - [四川达州发生一起交通事故致2死](http://www.share.minike.top/Article/details/4878372.shtml)
+- 2026-06-29 18:48 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/36468391.shtml)
+- 2026-06-29 18:37 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/67187.shtml)
+- 2026-06-29 18:40 - [明星大侦探第一季](https://www.share.minike.top/Article/details/5098577758.shtml)
+- 2026-06-29 18:37 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/57304760.shtml)
+- 2026-06-29 18:36 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/530104035.shtml)
+- 2026-06-29 18:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/67411505.shtml)
+- 2026-06-29 18:43 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/633265447621.shtml)
+- 2026-06-29 18:36 - [恋与深空各大应用商店评分](http://www.share.kurohicncr.top/Article/details/997922.shtml)
+- 2026-06-29 18:31 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/02448158939.shtml)

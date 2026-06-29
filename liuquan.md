@@ -1,56 +1,61 @@
-# 云南推42条惠企措施 民资参与铁路水电等项目持股可超10%
+# 4月银行业监管罚没1.58亿元、环比增长16%，浙江罚单数量及罚没金额领跑
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月9日电 (陆希成)近日，云南省发展和改革委员会、云南省工业和信息化厅等十二部门联合印发《云南省进一步促进民间投资发展有关措施及任务分工》(以下简称《措施》)，推出42条举措，为民间资本进入重大项目、新兴领域拓宽准入，并在政府采购、融资等方面加大支持，以激发民间投资活力。在重大项目建设领域，《措施》明确，对需报国家审批(核准)、具有一定收益的铁路、水电、跨省跨区直流
+来源：消费日报财经 进入二季度，金融监管部门对银行业的合规整顿力度继续加码。 据企业预警通最新发布的报告显示，今年4月，中国人民银行、国家金融监督管理总局、国家外汇管理局及其派出机构共对银行机构及从业人员开出罚单388张，罚没金额合计约1.58亿元，涉及受罚银行124家。 尽管罚单数量环比微降0.26%，但罚没金额环比增长16.18%，其中百万元以上大额罚单数量达47张，较上月
 
 ## 正文
 
-中新网昆明6月9日电 (陆希成)近日，云南省发展和改革委员会、云南省工业和信息化厅等十二部门联合印发《云南省进一步促进民间投资发展有关措施及任务分工》(以下简称《措施》)，推出42条举措，为民间资本进入重大项目、新兴领域拓宽准入，并在政府采购、融资等方面加大支持，以激发民间投资活力。
+来源：消费日报财经 进入二季度，金融监管部门对银行业的合规整顿力度继续加码。
 
-在重大项目建设领域，《措施》明确，对需报国家审批(核准)、具有一定收益的铁路、水电、跨省跨区直流输电通道、油气管道、进口液化天然气接收和储运设施、供水等项目，鼓励民间资本参与，持股比例可在10%以上。
+据企业预警通最新发布的报告显示，今年4月，中国人民银行、国家金融监督管理总局、国家外汇管理局及其派出机构共对银行机构及从业人员开出罚单388张，罚没金额合计约1.58亿元，涉及受罚银行124家。
 
-在政府和社会资本合作领域，《措施》要求严格执行支持民营企业参与的特许经营项目清单，并针对民营企业独资或控股、股权占比不低于35%等领域项目，引导项目业主在特许经营方案、招标文件中合理设置民间资本参与的条件；严格审核特许经营方案中投向领域、使用者付费、民营企业参与等情况。
+尽管罚单数量环比微降0.26%，但罚没金额环比增长16.18%，其中百万元以上大额罚单数量达47张，较上月增加18张，增幅超过60%。
 
-在政府采购领域，《措施》要求，超过400万元人民币、适宜中小企业的工程采购项目，严格按规定预留该部分采购项目预算总额的40%以上专门面向中小企业采购；并鼓励将民营企业的合同预付款比例提高至合同金额的30%以上。
+此外，个人罚单达214张，占罚单总量的55%以上，金融机构合规责任正从机构层面向管理层乃至一线人员深度穿透。
 
-在科技创新领域，《措施》提出多项举措：支持民营企业牵头承担省级重点研发计划项目；支持龙头民营企业牵头，联合高校、科研院所组建创新联合体申报国家重大科研项目；围绕新材料、新能源、生物医药、高原特色农业等云南重点产业，支持民营企业牵头或参与建设概念验证中心、中试基地(平台)；并整合国有企业、高校和科研院所等中试资源，支持有条件的单位结合实际面向民营企业提供试验验证、检验检测等市场化中试服务。
+浙江罚单数量及罚没金额领跑 从被罚银行类型来看，4月份呈现“农商行罚单最多、国有银行罚金最重”并存的格局。
 
-在低空经济领域，《措施》着眼打造“10分钟城区快送网、20分钟城郊配送网、30分钟城乡投送网”，鼓励民间资本投资建设货物集散地、维修保养站点等配套设施，并支持其在医院、景区、商圈、社区建设一批起降设施。
+农商行以99张罚单占总量的25.52%，居所有类型银行之首，且罚单数量较上月继续增加；股份制银行和国有银行分别被开出86张和79张罚单，紧随其后。
 
-在拓宽融资渠道方面，《措施》对民间投资项目的不动产投资信托基金(REITs)申报实行“靠前服务、主动协调、申报单列、加快审核”，帮助民营企业盘活存量资产、回笼资金；同时落实科技型企业上市融资、并购重组的“绿色通道”政策。
+罚没金额方面，国有银行合计被罚没约3479.39万元，占当月总额的22.07%，位列各类型银行首位。
 
-(完)
+农商行与股份制银行罚没金额亦达3000万元以上，分别约3428.32万元、3259.34万元，排在第二、第三位。
 
 ## 相关推荐
 
-- 2026-06-29 18:19 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 18:42 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 18:43 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 18:43 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 18:21 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 18:33 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 18:44 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 18:44 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 18:23 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 18:32 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 18:42 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 18:45 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 18:51 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 18:24 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 18:53 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 18:40 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 18:39 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 18:28 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 18:52 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 18:29 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 18:45 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 18:36 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 18:31 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 18:49 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 18:42 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:43 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/651132026212.shtml)
-- 2026-06-29 18:41 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/3734959.shtml)
-- 2026-06-29 18:26 - [拍到真的赛博朋克边缘行者了！](http://www.blog.kurohicncr.top/Article/details/643306762420.shtml)
-- 2026-06-29 18:24 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/52709276.shtml)
-- 2026-06-29 18:42 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/743972526.shtml)
-- 2026-06-29 18:29 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/81702.shtml)
-- 2026-06-29 18:18 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/75577719780.shtml)
-- 2026-06-29 18:18 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/283495.shtml)
-- 2026-06-29 18:37 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/773250829.shtml)
-- 2026-06-29 18:22 - [A股割裂行情有变化了吗](http://www.share.kurohicncr.top/Article/details/180308.shtml)
-- 2026-06-29 18:43 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/55006.shtml)
-- 2026-06-29 18:42 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/165500.shtml)
-- 2026-06-29 18:19 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/52483.shtml)
-- 2026-06-29 18:32 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/95879.shtml)
-- 2026-06-29 18:39 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/6779902673.shtml)
+- 2026-06-29 18:53 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/17158.shtml)
+- 2026-06-29 18:29 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/924443.shtml)
+- 2026-06-29 18:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/549265.shtml)
+- 2026-06-29 18:34 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/380436.shtml)
+- 2026-06-29 18:25 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/48222403.shtml)
+- 2026-06-29 18:51 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/2977670896.shtml)
+- 2026-06-29 18:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/5539263.shtml)
+- 2026-06-29 18:49 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/65915.shtml)
+- 2026-06-29 18:37 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/923836.shtml)
+- 2026-06-29 18:46 - [爱很美味](https://www.blog.minike.top/Article/details/750730.shtml)
+- 2026-06-29 18:30 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/54809897224.shtml)
+- 2026-06-29 18:36 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/0197282419.shtml)
+- 2026-06-29 18:53 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/8997159458.shtml)
+- 2026-06-29 18:39 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/02810480.shtml)
+- 2026-06-29 18:27 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/4213978.shtml)

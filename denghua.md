@@ -1,59 +1,58 @@
-# SpaceX首次公开募股据悉获得大幅超额认购
+# 世卫组织：“洪迪厄斯”号邮轮疫情病毒种类为安第斯病毒
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-根据知情人士透露，SpaceX的首次公开募股获得大幅超额认购，市场对这场有望创下纪录的发行需求强劲。 部分知情人士透露，主导此次发行的银行预计将于纽约时间周三下午4点美股收盘后停止接受机构投资者的订单。SpaceX是马斯克的火箭、卫星和人工智能公司。 关闭认购簿可以让银行有时间评估未来需求，并就定价向公司提供建议。SpaceX的IPO预计将于6月11日定价，并于次日开始交易。该
+中新社北京5月8日电 日内瓦消息：当地时间5月7日，世界卫生组织就近期“洪迪厄斯”号邮轮暴发汉坦病毒疫情等相关情况举行新闻发布会。 世卫组织方面证实，截至目前，已经收到8例病例报告，其中5例确诊为汉坦病毒感染，3例为疑似病例。目前，已有3人因感染该病毒死亡。 世卫组织总干事谭德塞表示，本轮疫情涉及的汉坦病毒种类为安第斯病毒，是目前已知唯一能够在人与人之间有限传播的汉坦病毒种类。
 
 ## 正文
 
-根据知情人士透露，SpaceX的首次公开募股获得大幅超额认购，市场对这场有望创下纪录的发行需求强劲。
+中新社北京5月8日电 日内瓦消息：当地时间5月7日，世界卫生组织就近期“洪迪厄斯”号邮轮暴发汉坦病毒疫情等相关情况举行新闻发布会。
 
-部分知情人士透露，主导此次发行的银行预计将于纽约时间周三下午4点美股收盘后停止接受机构投资者的订单。
+世卫组织方面证实，截至目前，已经收到8例病例报告，其中5例确诊为汉坦病毒感染，3例为疑似病例。
 
-SpaceX是马斯克的火箭、卫星和人工智能公司。
+目前，已有3人因感染该病毒死亡。
 
-关闭认购簿可以让银行有时间评估未来需求，并就定价向公司提供建议。
+世卫组织总干事谭德塞表示，本轮疫情涉及的汉坦病毒种类为安第斯病毒，是目前已知唯一能够在人与人之间有限传播的汉坦病毒种类。
 
-SpaceX的IPO预计将于6月11日定价，并于次日开始交易。
+其传播途径与密切且长时间接触有关，疫情引发更广泛公共卫生风险依然较低。
 
-该公司计划以每股135美元的价格发行5.556亿股股票，预计将筹集约750亿美元，公司估值约为1.8万亿美元。
+他指出，考虑到病毒的潜伏期最长可达六周，“未来可能会报告更多病例”。
 
-散户投资者仍可于周三截止日期后在部分平台上提交SpaceX股票的认购订单。
+谭德塞说，世卫组织正与多个国家密切协调，其首要任务是确保受影响的患者得到治疗，确保船上其他乘客的安全和尊严得到保障，并防止病毒进一步传播。
 
-据报道，该公司将向散户投资者分配多达30%的发行份额。
+谭德塞还透露，5月2日接到相关情况通报以来，世卫组织已采取多项行动。
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 18:41 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 18:30 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 18:42 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 18:31 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 18:23 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 18:42 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 18:33 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 18:21 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 18:32 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 18:21 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 18:20 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 18:25 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 18:43 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 18:36 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 18:51 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 18:29 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 18:47 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 18:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 18:40 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 18:44 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 18:43 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 18:46 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 18:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 18:24 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:42 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/63605041210.shtml)
-- 2026-06-29 18:24 - [急先锋](http://www.share.kurohicncr.top/Article/details/7920417844.shtml)
-- 2026-06-29 18:41 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/44445.shtml)
-- 2026-06-29 18:22 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/30085860.shtml)
-- 2026-06-29 18:19 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/06003.shtml)
-- 2026-06-29 18:19 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/80119570655.shtml)
-- 2026-06-29 18:33 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/533823.shtml)
-- 2026-06-29 18:29 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/81469.shtml)
-- 2026-06-29 18:26 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/1176585690.shtml)
-- 2026-06-29 18:29 - [娜扎搂着我的腰和我合照](http://www.blog.minike.top/Article/details/359819.shtml)
-- 2026-06-29 18:29 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/00232032.shtml)
-- 2026-06-29 18:24 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/77679.shtml)
-- 2026-06-29 18:45 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/40541253566.shtml)
-- 2026-06-29 18:29 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/42939.shtml)
-- 2026-06-29 18:35 - [德国医生在没有空调的手术室工作](https://www.blog.kurohicncr.top/Article/details/257692.shtml)
+- 2026-06-29 18:34 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/4344406617.shtml)
+- 2026-06-29 18:39 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/072836453.shtml)
+- 2026-06-29 18:29 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/16433232687.shtml)
+- 2026-06-29 18:26 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/687618.shtml)
+- 2026-06-29 18:52 - [葛军透露高考出题思路](https://www.share.kurohicncr.top/Article/details/6446856961.shtml)
+- 2026-06-29 18:30 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/07750458.shtml)
+- 2026-06-29 18:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/3248276617.shtml)
+- 2026-06-29 18:36 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/692764631.shtml)
+- 2026-06-29 18:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/64170959266.shtml)
+- 2026-06-29 18:51 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/027968740783.shtml)
+- 2026-06-29 18:27 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/98639108177.shtml)
+- 2026-06-29 18:32 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/17072.shtml)
+- 2026-06-29 18:28 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/89525955797.shtml)
+- 2026-06-29 18:27 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/85090087.shtml)
+- 2026-06-29 18:48 - [滚石点名酒店员工说有急救培训](https://www.share.kurohicncr.top/Article/details/88564783.shtml)

@@ -1,54 +1,57 @@
-# 新秀丽因受限制股份单位获归属合计发行228.98万股
+# 58岁武汉交警何同原暴雨中处警不幸殉职
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-新秀丽（01910）发布公告，由于根据本公司于2022年12月21日（经不时修订）采纳的股份奖励计划下授出的绩效挂钩受限制股份单位归属于高级管理人员，本公司于2026年6月8日发行并配发57.57万股普通股。 由于根据本公司于2022年12月21日（经不时修订）采纳的股份奖励计划下授出的绩效挂钩受限制股份单位归属于一名董事，本公司于2026年6月8日发行并配发83.78万股普通
+中新网武汉5月8日电(杨槐柳 余哲)武汉市公安局8日发布消息称，58岁的交通民警何同原在高速公路上处置交通事故时，为保护群众安全，被一辆失控车辆撞成重伤，经全力抢救无效，因公殉职。 何同原生前系武汉市公安局交通管理支队二大队六中队民警。5月2日上午，暴雨如注，武汉至大悟高速公路路面水雾弥漫，发生车辆滞留事故。正在附近巡逻的何同原立即驱车赶赴现场，抵达后，他身着反光背心，顶着风雨
 
 ## 正文
 
-新秀丽（01910）发布公告，由于根据本公司于2022年12月21日（经不时修订）采纳的股份奖励计划下授出的绩效挂钩受限制股份单位归属于高级管理人员，本公司于2026年6月8日发行并配发57.57万股普通股。
+中新网武汉5月8日电(杨槐柳 余哲)武汉市公安局8日发布消息称，58岁的交通民警何同原在高速公路上处置交通事故时，为保护群众安全，被一辆失控车辆撞成重伤，经全力抢救无效，因公殉职。
 
-由于根据本公司于2022年12月21日（经不时修订）采纳的股份奖励计划下授出的绩效挂钩受限制股份单位归属于一名董事，本公司于2026年6月8日发行并配发83.78万股普通股。
+何同原生前系武汉市公安局交通管理支队二大队六中队民警。
 
-由于根据本公司于2022年12月21日（经不时修订）采纳的股份奖励计划下授出的时间挂钩受限制股份单位归属于高级管理人员，本公司于2026年6月8日发行并配发45.75万股普通股。
+5月2日上午，暴雨如注，武汉至大悟高速公路路面水雾弥漫，发生车辆滞留事故。
 
-由于根据本公司于2022年12月21日（经不时修订）采纳的股份奖励计划下授出的时间挂钩受限制股份单位归属于一名董事，本公司于2026年6月8日发行并配发41.87万股普通股。
+正在附近巡逻的何同原立即驱车赶赴现场，抵达后，他身着反光背心，顶着风雨贴近护栏，迅速引导9名驾乘人员撤离至安全区域。
 
-责任编辑：卢昱君
+就在当事人离开危险区域的瞬间，一辆因路滑失控的小轿车撞向何同原。
+
+9名群众平安无事，而这位老交警却永远倒在了执勤岗位上。
+
+何同原1986年参警，先后在路面执勤、事故调处、车辆检验、法制审核等多个岗位工作。
+
+在战友、家人和群众的记忆里，他少语笃行、勤学善思，办事公道、责任心强。
 
 ## 相关推荐
 
-- 2026-06-29 18:34 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 18:29 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 18:32 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 18:28 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 18:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 18:47 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 18:45 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 18:22 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 18:34 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 18:42 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 18:34 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 18:32 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 18:21 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 18:35 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 18:29 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 18:34 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 18:30 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 18:39 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 18:52 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 18:44 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 18:25 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 18:38 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 18:34 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 18:44 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 18:25 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:43 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/55780985.shtml)
-- 2026-06-29 18:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/785864.shtml)
-- 2026-06-29 18:36 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.kurohicncr.top/Article/details/969179960.shtml)
-- 2026-06-29 18:36 - [扬名立万](http://www.share.minike.top/Article/details/3167925.shtml)
-- 2026-06-29 18:45 - [疑似吴建豪老婆正脸照](http://www.blog.minike.top/Article/details/427023.shtml)
-- 2026-06-29 18:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/98496076594.shtml)
-- 2026-06-29 18:35 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/57367731775.shtml)
-- 2026-06-29 18:32 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/2267829626.shtml)
-- 2026-06-29 18:27 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/973302594.shtml)
-- 2026-06-29 18:42 - [伊朗足球队将启程回国](http://www.blog.kurohicncr.top/Article/details/59732.shtml)
-- 2026-06-29 18:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/879212536.shtml)
-- 2026-06-29 18:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/397940126884.shtml)
-- 2026-06-29 18:26 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/1387417.shtml)
-- 2026-06-29 18:43 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/79672.shtml)
-- 2026-06-29 18:35 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/52277372047.shtml)
+- 2026-06-29 18:48 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/566781.shtml)
+- 2026-06-29 18:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/778278468.shtml)
+- 2026-06-29 18:50 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/1774411789.shtml)
+- 2026-06-29 18:34 - [范志毅看好日本淘汰巴西](http://www.share.minike.top/Article/details/9050514.shtml)
+- 2026-06-29 18:32 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/8243433.shtml)
+- 2026-06-29 18:28 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/6082831.shtml)
+- 2026-06-29 18:37 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/18595.shtml)
+- 2026-06-29 18:26 - [上海小区惊现鳄鱼](http://www.blog.minike.top/Article/details/836933945.shtml)
+- 2026-06-29 18:40 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/248867722.shtml)
+- 2026-06-29 18:25 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/0607561361.shtml)
+- 2026-06-29 18:43 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/83966426433.shtml)
+- 2026-06-29 18:39 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/2224476.shtml)
+- 2026-06-29 18:49 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/443776503.shtml)
+- 2026-06-29 18:34 - [王曼昱被突如其来的话筒逗笑了](http://www.share.kurohicncr.top/Article/details/870727.shtml)
+- 2026-06-29 18:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/033678.shtml)

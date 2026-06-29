@@ -1,60 +1,57 @@
-# 中外逾2000名专家学者将赴长春参加光博会
+# 13年后再看话剧《青蛇》 国话“00后”演员挑大梁
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新网长春6月9日电 (谭伟旗 金乔)9日，长春市政府新闻办召开第三届长春国际光电博览会(下称“长春光博会”)·Light国际会议暨中国光学学会长春学术大会新闻发布会，介绍相关情况。长春市工业和信息化局局长方述华介绍，卡尔蔡司、海克斯康、牧野(中国)、奥德堡等42家外资、合资企业主动参展，较上一届增长55%；来自6大洲23个国家的2000余名专家学者将应邀参会，国际交流合作格局
+中新网北京5月9日电 (记者 应妮)由中国国家话剧院出品、演出的话剧《青蛇》8日在京举行新闻发布会。该剧由“00后”演员组成全新阵容并融入先进数字技术，将于6月3日在成都开启全国首演。 话剧《青蛇》首演于2013年，由导演田沁鑫根据香港作家李碧华同名作品改编，以传统民间故事为基础，融合东方美学与戏剧表达，袁泉、秦海璐、辛柏青、董畅等实力派演员倾情献演。该剧自首演以来持续受到观众
 
 ## 正文
 
-中新网长春6月9日电 (谭伟旗 金乔)9日，长春市政府新闻办召开第三届长春国际光电博览会(下称“长春光博会”)·Light国际会议暨中国光学学会长春学术大会新闻发布会，介绍相关情况。
+中新网北京5月9日电 (记者 应妮)由中国国家话剧院出品、演出的话剧《青蛇》8日在京举行新闻发布会。
 
-长春市工业和信息化局局长方述华介绍，卡尔蔡司、海克斯康、牧野(中国)、奥德堡等42家外资、合资企业主动参展，较上一届增长55%；来自6大洲23个国家的2000余名专家学者将应邀参会，国际交流合作格局更加多元。
+该剧由“00后”演员组成全新阵容并融入先进数字技术，将于6月3日在成都开启全国首演。
 
-本届长春光博会将于6月12日至14日举办，重点聚焦半导体、超精密光学、商业航天等十余个核心细分赛道，创新设置原子级制造、商业航天、国防光电系统与装备、汽车电子、低空经济、具身智能、光+智慧农业七大特色主题展区，全力打造光电产业跨界融合、协同发展平台。
+话剧《青蛇》首演于2013年，由导演田沁鑫根据香港作家李碧华同名作品改编，以传统民间故事为基础，融合东方美学与戏剧表达，袁泉、秦海璐、辛柏青、董畅等实力派演员倾情献演。
 
-今年，活动延续“一展两会”整体架构，主体为第三届长春国际光电博览会、Light国际会议、中国光学学会长春学术大会。
+该剧自首演以来持续受到观众热切关注。
 
-此外，2026原子级制造创新发展大会也将同期举办。
+中国国家话剧院院长田沁鑫表示，此次重排强调“全新”而非复刻，希望通过青年演员和新的舞台技术，探索经典作品的当代表达。
 
-其中，Light国际会议设置绿色农业、智能与先进制造、跨学科交叉等14场分会，800余名海内外专家将现场分享前沿学术成果。
+国话也将加大对青年戏剧工作者的培养力度，努力为他们提供更多展示才华的舞台和机会。
 
-中国光学学会长春学术大会围绕新原理新方法、光学设计与特种材料等方向，开展13场专项研讨。
+发布会上，在原版《青蛇》中饰演白蛇的袁泉表示，创作过程一定是非常艰辛的，或许会有自我怀疑和困惑，但这是必经之路；当跟着导演的思路慢慢摸索，你会发现自己在角色中生长起来，这个过程非常珍贵。
 
-2026原子级制造创新发展大会聚焦原子级加工工艺、核心装备及精密检测技术，举办7场专题交流，共同探索原子级制造的发展路径与产业新生态。
+辛柏青不仅是原版中法海的饰演者，此次还担任重排版的表演指导，他表示，青年演员在理解力和表现力方面展现出较强潜力，并对这一版《青蛇》充满信心。
 
 ## 相关推荐
 
-- 2026-06-29 18:32 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 18:28 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 18:33 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 18:34 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 18:38 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 18:19 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 18:18 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 18:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 18:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 18:42 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 18:37 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 18:26 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 18:44 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 18:26 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 18:28 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 18:27 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 18:50 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 18:46 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 18:25 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 18:53 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 18:30 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 18:38 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 18:47 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 18:44 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 18:39 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:24 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/1434409.shtml)
-- 2026-06-29 18:21 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/61655.shtml)
-- 2026-06-29 18:41 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/1447196608.shtml)
-- 2026-06-29 18:44 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/35545216819.shtml)
-- 2026-06-29 18:29 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.kurohicncr.top/Article/details/6464038278.shtml)
-- 2026-06-29 18:33 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/233403667348.shtml)
-- 2026-06-29 18:29 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/539402058.shtml)
-- 2026-06-29 18:21 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/43632.shtml)
-- 2026-06-29 18:32 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/1842936.shtml)
-- 2026-06-29 18:38 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/908681688857.shtml)
-- 2026-06-29 18:38 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/48043744256.shtml)
-- 2026-06-29 18:19 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/891359085.shtml)
-- 2026-06-29 18:21 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/6845249.shtml)
-- 2026-06-29 18:32 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/059512347886.shtml)
-- 2026-06-29 18:33 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/76619099.shtml)
+- 2026-06-29 18:53 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/668054.shtml)
+- 2026-06-29 18:31 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/663112701174.shtml)
+- 2026-06-29 18:49 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/22771.shtml)
+- 2026-06-29 18:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/2610617.shtml)
+- 2026-06-29 18:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/19085018975.shtml)
+- 2026-06-29 18:29 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/77113.shtml)
+- 2026-06-29 18:38 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/097047.shtml)
+- 2026-06-29 18:26 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/22489698217.shtml)
+- 2026-06-29 18:49 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/26414.shtml)
+- 2026-06-29 18:46 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/0187397.shtml)
+- 2026-06-29 18:50 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.minike.top/Article/details/4328803.shtml)
+- 2026-06-29 18:29 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/395156159.shtml)
+- 2026-06-29 18:38 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/73628069.shtml)
+- 2026-06-29 18:29 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/45460921977.shtml)
+- 2026-06-29 18:42 - [未成年少女长期吸毒导致卧床不起](http://www.share.kurohicncr.top/Article/details/0193015.shtml)

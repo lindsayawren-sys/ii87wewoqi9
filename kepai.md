@@ -1,51 +1,53 @@
-# 银川社区嵌入式托育园探访：15分钟育儿圈破解“带娃难”
+# 中国海警局新闻发言人发表谈话
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 13:07 来源：中国新闻网 孩子谁来带，是让许多年轻父母，尤其是双职工家庭倍感焦心的难题。2026年以来，随着社区嵌入式普惠托育服务在银川加速落地，越来越多的家庭实现了“带娃自由”。 6月8日，在银川市银新苑社区托育园内，孩子们正在老师的带领下进行游戏活动，教室里不时传出清脆的笑声。这处嵌入社区的托育中心选址居民小区核心地段，家长步行3至5分
+中新社北京5月7日电 中国海警局7日消息，中国海警局新闻发言人姜略表示，5月6日，中方向阳红33号船位中国鲎藤礁附近海域开展正常生态环境调查。其间，菲海岸警卫队一架岛人型机蓄意抵近滋扰，中国海警依法依规跟踪监视、管控处置，确保中方船只作业安全，行动全程专业规范。姜略表示，菲方有关言论颠倒黑白、罔顾事实，企图混淆视听。我们正告菲方立即停止非法干扰和抹黑炒作。 姜略表示，中国海警将
 
 ## 正文
 
-发布时间：2026年06月09日 13:07 来源：中国新闻网 孩子谁来带，是让许多年轻父母，尤其是双职工家庭倍感焦心的难题。
+中新社北京5月7日电 中国海警局7日消息，中国海警局新闻发言人姜略表示，5月6日，中方向阳红33号船位中国鲎藤礁附近海域开展正常生态环境调查。
 
-2026年以来，随着社区嵌入式普惠托育服务在银川加速落地，越来越多的家庭实现了“带娃自由”。
+其间，菲海岸警卫队一架岛人型机蓄意抵近滋扰，中国海警依法依规跟踪监视、管控处置，确保中方船只作业安全，行动全程专业规范。
 
-6月8日，在银川市银新苑社区托育园内，孩子们正在老师的带领下进行游戏活动，教室里不时传出清脆的笑声。
+姜略表示，菲方有关言论颠倒黑白、罔顾事实，企图混淆视听。
 
-这处嵌入社区的托育中心选址居民小区核心地段，家长步行3至5分钟即可抵达，有效解决了远距离送托的奔波难题。
+我们正告菲方立即停止非法干扰和抹黑炒作。
 
-(记者 谢宇 宁夏银川报道） 责任编辑：【苏亦瑜】
+姜略表示，中国海警将依法在中国管辖海域持续开展维权执法活动，采取一切必要措施保障中方科考作业安全与南海地区和平稳定。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:30 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 18:24 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 18:38 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 18:27 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 18:36 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 18:41 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 18:27 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 18:25 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 18:27 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 18:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 18:29 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 18:36 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 18:42 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 18:35 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 18:33 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 18:53 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 18:47 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 18:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 18:24 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 18:52 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 18:36 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 18:43 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:26 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/16117984.shtml)
-- 2026-06-29 18:34 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/1677132463.shtml)
-- 2026-06-29 18:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/193789363.shtml)
-- 2026-06-29 18:37 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/93104131927.shtml)
-- 2026-06-29 18:34 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/021037321.shtml)
-- 2026-06-29 18:39 - [美人鱼](https://www.share.minike.top/Article/details/05997.shtml)
-- 2026-06-29 18:19 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/244066375.shtml)
-- 2026-06-29 18:41 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/946422711.shtml)
-- 2026-06-29 18:36 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/147935564.shtml)
-- 2026-06-29 18:46 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/17080.shtml)
-- 2026-06-29 18:25 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/06206136484.shtml)
-- 2026-06-29 18:45 - [世界杯在中国观看最多的比赛](https://www.share.minike.top/Article/details/71964.shtml)
-- 2026-06-29 18:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/736143371.shtml)
-- 2026-06-29 18:43 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.kurohicncr.top/Article/details/5841281011.shtml)
-- 2026-06-29 18:38 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/643432053214.shtml)
+- 2026-06-29 18:50 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/17312284.shtml)
+- 2026-06-29 18:52 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.kurohicncr.top/Article/details/809475166.shtml)
+- 2026-06-29 18:26 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/360751385.shtml)
+- 2026-06-29 18:31 - [伊朗足球队将启程回国](https://www.share.kurohicncr.top/Article/details/3118707720.shtml)
+- 2026-06-29 18:28 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/79846840030.shtml)
+- 2026-06-29 18:39 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/78265241296.shtml)
+- 2026-06-29 18:50 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/624738.shtml)
+- 2026-06-29 18:45 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/253860098.shtml)
+- 2026-06-29 18:46 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/5679336.shtml)
+- 2026-06-29 18:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/489384919972.shtml)
+- 2026-06-29 18:26 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/24075133278.shtml)
+- 2026-06-29 18:42 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.kurohicncr.top/Article/details/65500176.shtml)
+- 2026-06-29 18:33 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/838062155036.shtml)
+- 2026-06-29 18:41 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/529298266773.shtml)
+- 2026-06-29 18:24 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/64374672.shtml)

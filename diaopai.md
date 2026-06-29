@@ -1,57 +1,60 @@
-# 教育部部署“百日冲刺”行动促进高校毕业生顺利就业
+# 美伊冲突以来 沙特与阿联酋仍冒险经霍尔木兹海峡运输原油
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月8日电 (记者 曾玥)记者8日从教育部获悉，为抓住离校前后促就业关键期，全力促进高校毕业生顺利就业，教育部部署于6月至8月开展2026届高校毕业生就业“百日冲刺”行动。 数据显示，行动期间，各地各高校预计举办校园招聘活动4000余场，提供岗位信息超500万个。国家大学生就业服务平台持续推出线上专场招聘10余场，汇集提供岗位超150万个。 据悉，本次行动以“百日冲刺
+根据知情人士透露，自伊朗事实上关闭霍尔木兹海峡以来，沙特阿美和阿布扎比国家石油公司等企业仍在通过该水道运输原油。 尽管整体运输量仅为德黑兰近10周前关闭这一石油通道前的一小部分，但这两家公司的活动仍表明，部分供应仍能设法流入全球市场。在整个冲突期间，伊朗一直对霍尔木兹海峡航运构成威胁，并在周五遭到美国攻击后扣押了一艘船只，尽管该船似乎是一艘运载伊朗本国石油的受制裁船只。 沙特阿
 
 ## 正文
 
-中新网北京6月8日电 (记者 曾玥)记者8日从教育部获悉，为抓住离校前后促就业关键期，全力促进高校毕业生顺利就业，教育部部署于6月至8月开展2026届高校毕业生就业“百日冲刺”行动。
+根据知情人士透露，自伊朗事实上关闭霍尔木兹海峡以来，沙特阿美和阿布扎比国家石油公司等企业仍在通过该水道运输原油。
 
-数据显示，行动期间，各地各高校预计举办校园招聘活动4000余场，提供岗位信息超500万个。
+尽管整体运输量仅为德黑兰近10周前关闭这一石油通道前的一小部分，但这两家公司的活动仍表明，部分供应仍能设法流入全球市场。
 
-国家大学生就业服务平台持续推出线上专场招聘10余场，汇集提供岗位超150万个。
+在整个冲突期间，伊朗一直对霍尔木兹海峡航运构成威胁，并在周五遭到美国攻击后扣押了一艘船只，尽管该船似乎是一艘运载伊朗本国石油的受制裁船只。
 
-据悉，本次行动以“百日冲刺再发力 精准服务促就业”为主题。
+沙特阿美拒绝置评，而阿布扎比国家石油公司未回应置评请求。
 
-根据教育部要求，行动期间，各地各高校要聚焦当前就业工作重点难点，加力拓展市场化就业岗位。
+自3月初霍尔木兹海峡关闭以来，全球供应危机日益加剧。
 
-针对就业进展缓慢的省份、高校、学科专业和二级院系，重点组织人社厅(局)长、就业局长开展高校“一对一”定点联系，面向专业适配的校友企业、规上企业、专精特新中小企业等开展定向访企拓岗，加力组织“小而精、专而优”的院系专场招聘。
+企业为将货物运出正承担更高风险并支付更高成本。
 
-此外，教育部还要求从严做好就业数据登记，认真落实毕业去向登记制度，对违反相关规定的单位和人员严肃追责问责；切实维护毕业生就业权益，深入开展人力资源市场秩序清理整顿专项行动，严厉打击“招转培(贷)”欺诈、“付费内推”、虚假招聘、滥用试用期等违法行为。
+为了避免被发现，大多数船只通行时都关闭了应答器。
 
-(完)
+根据知情人士透露，在那些生产和供应受阻于波斯湾的企业中，阿布扎比国家石油公司是最早一批通过霍尔木兹海峡运输原油、燃料和天然气的公司之一。
 
 ## 相关推荐
 
-- 2026-06-29 18:20 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 18:31 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 18:20 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 18:33 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 18:18 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 18:41 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 18:21 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 18:31 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 18:43 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 18:21 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 18:37 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 18:24 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 18:49 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 18:33 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 18:53 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 18:46 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 18:34 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 18:32 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 18:24 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 18:24 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 18:54 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 18:48 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 18:45 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 18:29 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 18:34 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/7163251771.shtml)
-- 2026-06-29 18:40 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/8698771.shtml)
-- 2026-06-29 18:46 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/55886279.shtml)
-- 2026-06-29 18:42 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/48708.shtml)
-- 2026-06-29 18:29 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/538262585755.shtml)
-- 2026-06-29 18:42 - [请回答王牌2019](https://www.share.minike.top/Article/details/48122808.shtml)
-- 2026-06-29 18:34 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/80713.shtml)
-- 2026-06-29 18:41 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.minike.top/Article/details/29799637922.shtml)
-- 2026-06-29 18:47 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/08177864478.shtml)
-- 2026-06-29 18:22 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/22434.shtml)
-- 2026-06-29 18:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/380321799772.shtml)
-- 2026-06-29 18:24 - [南昌市委书记调整](http://www.share.kurohicncr.top/Article/details/40850166604.shtml)
-- 2026-06-29 18:22 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/3448388637.shtml)
-- 2026-06-29 18:41 - [大马同意延长马航370残骸搜寻工作](https://www.blog.minike.top/Article/details/08077100394.shtml)
-- 2026-06-29 18:42 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/640641948553.shtml)
+- 2026-06-29 18:33 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/4948459797.shtml)
+- 2026-06-29 18:51 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/615726866045.shtml)
+- 2026-06-29 18:51 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/327495694.shtml)
+- 2026-06-29 18:31 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/271985452.shtml)
+- 2026-06-29 18:33 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/676098.shtml)
+- 2026-06-29 18:36 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/79555971.shtml)
+- 2026-06-29 18:45 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/928199548899.shtml)
+- 2026-06-29 18:38 - [王曼昱被突如其来的话筒逗笑了](https://www.share.minike.top/Article/details/46559.shtml)
+- 2026-06-29 18:45 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/64280.shtml)
+- 2026-06-29 18:44 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.minike.top/Article/details/21970.shtml)
+- 2026-06-29 18:51 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/4891326240.shtml)
+- 2026-06-29 18:26 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.minike.top/Article/details/600797941.shtml)
+- 2026-06-29 18:35 - [沉睡花园](http://www.blog.minike.top/Article/details/7669630218.shtml)
+- 2026-06-29 18:39 - [中方向委方追加1亿元援助](https://www.blog.kurohicncr.top/Article/details/4093826.shtml)
+- 2026-06-29 18:36 - [人形机器人](https://www.blog.minike.top/Article/details/862805781.shtml)

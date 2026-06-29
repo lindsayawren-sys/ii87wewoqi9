@@ -1,60 +1,55 @@
-# 长江有色：9日铅价下跌 期市成交活跃持仓高位现货观望
+# 劳拉·费尔南德斯宣誓就任哥斯达黎加总统
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 今日沪期铅走势：今日沪期铅下跌，沪铅主力合约2607开盘报16300元/吨，高点报16335元/吨，低点报16055元/吨，结算价16160元/吨，收盘16170元/吨，跌幅为1.25%。 今日ccmn铅价统计，今日ccmn长江综合1#铅价报16030-16130元/吨，均价16080元，较前一日价格下跌220元；广东现货市场1#铅价报16035-16135元/
+当地时间5月8日，劳拉·费尔南德斯在哥斯达黎加首都圣何塞宣誓就职，出任哥斯达黎加总统。 2月1日，哥斯达黎加主权人民党候选人劳拉·费尔南德斯在总统选举中获胜。她领导的主权人民党在立法大会选举中赢得57个席位中的30个，成为第一大党。 劳拉·费尔南德斯出生于1986年7月4日，曾任哥斯达黎加国家规划与经济政策部长及总统府部长。(总台记者 邓雪梅)
 
 ## 正文
 
-长江有色金属网 今日沪期铅走势：今日沪期铅下跌，沪铅主力合约2607开盘报16300元/吨，高点报16335元/吨，低点报16055元/吨，结算价16160元/吨，收盘16170元/吨，跌幅为1.25%。
+当地时间5月8日，劳拉·费尔南德斯在哥斯达黎加首都圣何塞宣誓就职，出任哥斯达黎加总统。
 
-今日ccmn铅价统计，今日ccmn长江综合1#铅价报16030-16130元/吨，均价16080元，较前一日价格下跌220元；广东现货市场1#铅价报16035-16135元/吨，均价16085元，较前一日价格下跌225元。
+2月1日，哥斯达黎加主权人民党候选人劳拉·费尔南德斯在总统选举中获胜。
 
-今日现货铅市场报价在15925-16135元/吨之间，对比沪期铅2606合约贴水170-升水40元/吨，沪期铅2607合约贴水165-升水45元/吨。
+她领导的主权人民党在立法大会选举中赢得57个席位中的30个，成为第一大党。
 
-宏观面影响因素：金属市场集体承压！
+劳拉·费尔南德斯出生于1986年7月4日，曾任哥斯达黎加国家规划与经济政策部长及总统府部长。
 
-多重利空共振下估值显著走弱。
-
-美联储加息预期飙升，美元高位运行、美债收益率居高不下，叠加美股走弱压制风险偏好，大宗商品整体估值承压。
-
-5 月汽车、储能等铅酸电池核心下游需求疲软，叠加高温天气影响开工，刚需采购进一步收缩，本交易日铅价震荡大幅下跌。
-
-供需及产业链现状 铅原料供需格局分化，产业链矛盾凸显。
+(总台记者 邓雪梅)
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 18:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 18:44 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 18:24 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 18:39 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 18:46 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 18:21 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 18:29 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 18:36 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 18:40 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 18:41 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 18:26 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 18:33 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 18:25 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 18:24 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 18:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 18:36 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 18:37 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 18:46 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 18:50 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 18:32 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 18:48 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 18:27 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 18:39 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 18:45 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 18:43 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 18:39 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 18:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 18:31 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:33 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/4511442154.shtml)
-- 2026-06-29 18:23 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.kurohicncr.top/Article/details/01689931.shtml)
-- 2026-06-29 18:47 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/43542.shtml)
-- 2026-06-29 18:26 - [学者：建设性战略稳定重塑中美关系](https://www.share.minike.top/Article/details/0171626873.shtml)
-- 2026-06-29 18:19 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/08864179095.shtml)
-- 2026-06-29 18:19 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/99387718.shtml)
-- 2026-06-29 18:39 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/6355123104.shtml)
-- 2026-06-29 18:36 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/49288.shtml)
-- 2026-06-29 18:36 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/928421.shtml)
-- 2026-06-29 18:36 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/5850283474.shtml)
-- 2026-06-29 18:22 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/69245923.shtml)
-- 2026-06-29 18:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/88216993.shtml)
-- 2026-06-29 18:20 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/0817310732.shtml)
-- 2026-06-29 18:38 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/45622419637.shtml)
-- 2026-06-29 18:22 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/687673.shtml)
+- 2026-06-29 18:24 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/3288906.shtml)
+- 2026-06-29 18:31 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/17403.shtml)
+- 2026-06-29 18:27 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/333383823.shtml)
+- 2026-06-29 18:45 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/0070494121.shtml)
+- 2026-06-29 18:39 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/830912972669.shtml)
+- 2026-06-29 18:27 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/61704369803.shtml)
+- 2026-06-29 18:48 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/39409.shtml)
+- 2026-06-29 18:44 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/4574523600.shtml)
+- 2026-06-29 18:41 - [7款高价创新药有望降价](http://www.blog.minike.top/Article/details/2154322121.shtml)
+- 2026-06-29 18:42 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/3502335.shtml)
+- 2026-06-29 18:44 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/0631421569.shtml)
+- 2026-06-29 18:50 - [女生每天戴耳机18小时突发耳聋](http://www.blog.minike.top/Article/details/43612800.shtml)
+- 2026-06-29 18:28 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/79588994.shtml)
+- 2026-06-29 18:30 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/36868124.shtml)
+- 2026-06-29 18:24 - [起风了](https://www.share.kurohicncr.top/Article/details/07406.shtml)

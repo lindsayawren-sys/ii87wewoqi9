@@ -1,57 +1,58 @@
-# 宠物友好，进入“冷静期”
+# “办好人民满意的教育”——我国加快建设教育强国夯实人才培养基础
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中国新闻周刊记者：杨智杰 发于2026.6.8总第1238期《中国新闻周刊》杂志 一只白色宠物狗站在海底捞餐厅的座位上，兴奋地舔食主人手中餐盘里的蛋糕，一旁的火锅正冒着滚烫的热气。 5月21日，这段视频在社交平台很快炸开了锅，有不少网友直言难以接受宠物上桌吃饭。当天，海底捞宣布暂停国内三家宠物友好门店的宠物接待服务。其中，位于深圳的首家宠物友好门店从2025年9月开始试点，还有
+新华社北京5月7日电题：“办好人民满意的教育”——我国加快建设教育强国夯实人才培养基础 新华社记者王鹏 教育是强国建设、民族复兴之基。“十五五”规划纲要提出“统筹教育强国、科技强国、人才强国建设”，对办好人民满意的教育作出一系列重要部署。 “我们要建成的教育强国，是中国特色社会主义教育强国，应当具有强大的思政引领力、人才竞争力、科技支撑力、民生保障力、社会协同力、国际影响力，为
 
 ## 正文
 
-中国新闻周刊记者：杨智杰 发于2026.6.8总第1238期《中国新闻周刊》杂志 一只白色宠物狗站在海底捞餐厅的座位上，兴奋地舔食主人手中餐盘里的蛋糕，一旁的火锅正冒着滚烫的热气。
+新华社北京5月7日电题：“办好人民满意的教育”——我国加快建设教育强国夯实人才培养基础 新华社记者王鹏 教育是强国建设、民族复兴之基。
 
-5月21日，这段视频在社交平台很快炸开了锅，有不少网友直言难以接受宠物上桌吃饭。
+“十五五”规划纲要提出“统筹教育强国、科技强国、人才强国建设”，对办好人民满意的教育作出一系列重要部署。
 
-当天，海底捞宣布暂停国内三家宠物友好门店的宠物接待服务。
+“我们要建成的教育强国，是中国特色社会主义教育强国，应当具有强大的思政引领力、人才竞争力、科技支撑力、民生保障力、社会协同力、国际影响力，为以中国式现代化全面推进强国建设、民族复兴伟业提供有力支撑。
 
-其中，位于深圳的首家宠物友好门店从2025年9月开始试点，还有一家试点只有5天。
+”习近平总书记指明方向。
 
-类似的争议并不只发生在餐饮门店。
+“十五五”时期是建设教育强国承上启下、全面发力的关键时期，需要全面把握教育的政治属性、人民属性、战略属性，扎实推进教育改革发展，以教育之力厚植人民幸福之本，以教育之强夯实国家富强之基。
 
-5月中旬，四川乐山世豪广场因开展宠物友好活动引发投诉和受到监管，撤下了相关宣传广告和设施。
+落实立德树人根本任务 甘肃会宁，红军会宁会师旧址内的会师塔巍然矗立。
 
-此前，有媒体报道，上海兴业太古汇、静安嘉里中心、苏河湾万象天地等曾经开放宠物进入的商场，也陆续在收紧宠物友好的政策。
+会师塔下，学生整齐列队，聆听讲解员讲述红军故事，“缅怀先烈，传承红色基因”的誓言久久回荡。
 
-但争议的另一端，是越来越旺盛的市场需求。
+这是今年清明前夕，甘肃省开展“清明祭英烈 重走长征路”思政实践育人活动中的一幕。
 
 ## 相关推荐
 
-- 2026-06-29 18:26 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 18:42 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 18:46 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 18:40 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 18:18 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 18:18 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 18:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 18:20 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 18:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 18:24 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 18:19 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 18:34 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 18:27 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 18:35 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 18:37 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 18:30 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 18:27 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 18:35 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 18:38 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 18:39 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 18:27 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 18:50 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 18:36 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:28 - [天道](https://www.blog.kurohicncr.top/Article/details/477666750.shtml)
-- 2026-06-29 18:37 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/674720147.shtml)
-- 2026-06-29 18:19 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/4374857122.shtml)
-- 2026-06-29 18:18 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/37360781458.shtml)
-- 2026-06-29 18:45 - [谢依霖夸杨幂靠谱](http://www.share.minike.top/Article/details/29469159.shtml)
-- 2026-06-29 18:20 - [滚石点名酒店员工说有急救培训](http://www.share.minike.top/Article/details/1263989642.shtml)
-- 2026-06-29 18:40 - [金牌调解](https://www.blog.minike.top/Article/details/11324111311.shtml)
-- 2026-06-29 18:40 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/82166657849.shtml)
-- 2026-06-29 18:27 - [范志毅看好日本淘汰巴西](http://www.share.minike.top/Article/details/03947868365.shtml)
-- 2026-06-29 18:34 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/789555075130.shtml)
-- 2026-06-29 18:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/617657739.shtml)
-- 2026-06-29 18:38 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/31925649.shtml)
-- 2026-06-29 18:31 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/935089261.shtml)
-- 2026-06-29 18:25 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/050444.shtml)
-- 2026-06-29 18:23 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/459347956.shtml)
+- 2026-06-29 18:46 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/17155.shtml)
+- 2026-06-29 18:31 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/96560463127.shtml)
+- 2026-06-29 18:29 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/200318814353.shtml)
+- 2026-06-29 18:50 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/218716525896.shtml)
+- 2026-06-29 18:48 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/3898153148.shtml)
+- 2026-06-29 18:26 - [人形机器人](https://www.blog.minike.top/Article/details/04521.shtml)
+- 2026-06-29 18:28 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/47389606415.shtml)
+- 2026-06-29 18:42 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/526030021082.shtml)
+- 2026-06-29 18:39 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/934083789.shtml)
+- 2026-06-29 18:28 - [机器人学校开学了](http://www.share.minike.top/Article/details/781788168.shtml)
+- 2026-06-29 18:32 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/8987109798.shtml)
+- 2026-06-29 18:48 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/7513851.shtml)
+- 2026-06-29 18:36 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.kurohicncr.top/Article/details/9170651.shtml)
+- 2026-06-29 18:30 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/728273042550.shtml)
+- 2026-06-29 18:47 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/61163774802.shtml)

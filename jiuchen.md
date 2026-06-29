@@ -1,59 +1,59 @@
-# 腾讯被错判了？
+# 要价3亿美元？ 世界杯开天价版权，中国转播权还在“拉锯”，网友称“不如看苏超”
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-腾讯的成功不性感，却总是正确 出品|虎嗅黄青春频道 作者|商业消费主笔 黄青春 题图|现场拍摄 上周五（6 月 5 日），汤道生与姚顺雨的一场对谈，再次将“腾讯慢了”的论调推至舆论中心，两人在“外界为何觉得腾讯慢了”的追问上相视一笑，沉默不答；然而，当“腾讯慢了”正从行业调侃变成市场共识时，腾讯似乎仍未重视这对公司造成的影响。 最直观表现在两个层面：一是媒体对腾讯 AI 叙事的
+文 丨 《BUG》栏目 周文猛 距离2026年美加墨世界杯开幕仅剩不到五周，这场全球顶级体育盛会中国市场的转播权谈判，却陷入了前所未有的僵局。 据悉，国际足联FIFA向央视开出的单届世界杯转播权初始报价高达2.5亿至3亿美元（约18亿元-21亿元），而央视的预算可能仅在6000万美元至8000万美元；即便经过多轮谈判降至1.2亿—1.5亿美元，仍与央视预期出价存在巨大差距。更重
 
 ## 正文
 
-腾讯的成功不性感，却总是正确 出品|虎嗅黄青春频道 作者|商业消费主笔 黄青春 题图|现场拍摄 上周五（6 月 5 日），汤道生与姚顺雨的一场对谈，再次将“腾讯慢了”的论调推至舆论中心，两人在“外界为何觉得腾讯慢了”的追问上相视一笑，沉默不答；然而，当“腾讯慢了”正从行业调侃变成市场共识时，腾讯似乎仍未重视这对公司造成的影响。
+文 丨 《BUG》栏目 周文猛 距离2026年美加墨世界杯开幕仅剩不到五周，这场全球顶级体育盛会中国市场的转播权谈判，却陷入了前所未有的僵局。
 
-最直观表现在两个层面：一是媒体对腾讯 AI 叙事的持续唱衰；二是上半年港股股价震荡下行，腾讯一度从中国互联网“常青树”沦为老登股——资本开支最能说明问题，在全球科技巨头动辄将过去一年经营现金流投入 AI capex 的当下，腾讯上季度只将经营现金流的 35% 投入到 AI 领域。
+据悉，国际足联FIFA向央视开出的单届世界杯转播权初始报价高达2.5亿至3亿美元（约18亿元-21亿元），而央视的预算可能仅在6000万美元至8000万美元；即便经过多轮谈判降至1.2亿—1.5亿美元，仍与央视预期出价存在巨大差距。
 
-与此同时，WorkBuddy 成为国内类 Claude Code 生产力智能体市场第一，Hy3 Preview 在 OpenRouter 调用量连续三周第一，CodeBuddy 覆盖腾讯 90% 工程师并将编码时间缩短 40%，腾讯云 2025 年首次实现全年规模盈利。
+更重要的是，FIFA给印度市场的两届世界杯转播报价仅为3500万美元。
 
-一边是外界“慢而不自知”的口诛笔伐，一边是产品落地的稳步推进，腾讯的 AI 战略似乎游离在行业主流叙事之外。
+今日，FIFA就中国区天价世界杯版权作出回应，称谈判仍在进行，细节必须保密。
 
-这种认知与现实的反差，迫使我们重新审视腾讯：为何在 AI 上半场显得慢了？
+目前在社交平台上，网友们围绕世界杯转播天价版权费的事情已经吵开了。
 
-在所有人抢首发、冲榜单、烧流量时，腾讯不争快慢争什么？
+多数网友直言，谈不下“就不看了”，时差问题兼顾工作根本“看不了”，还不如去看“苏超”。
 
-腾讯慢而不自知？
+中国世界杯转播谈判陷入“僵局” 过去20年间，世界杯转播版权费用涨价，已成为不争的事实。
 
-外界对腾讯“慢”的指责，核心集中在三个维度：基础模型起步晚、C 端产品没跑出来、算力投入不激进。
+据《BUG》栏目不完全统计，由2002年—2006年两届世界杯转播国内版权费打包仅2400万美元（单届1200万美元）；2010年—2014年两届赛事打包转播费1.15亿美元（单届约6000万美元）；到2018年—2022年两届打包转播费约3亿美元（单届1.5亿美元），今年单届报2.5亿—3亿美元的转播费，20年间涨价已超20倍。
 
 ## 相关推荐
 
-- 2026-06-29 18:41 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 18:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 18:23 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 18:44 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 18:19 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 18:24 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 18:39 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 18:40 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 18:36 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 18:29 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 18:28 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 18:37 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 18:35 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 18:50 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 18:48 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 18:49 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 18:48 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 18:52 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 18:46 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 18:38 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 18:26 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 18:28 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 18:39 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 18:46 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 18:48 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 18:48 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:23 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/54167456.shtml)
-- 2026-06-29 18:36 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/16039.shtml)
-- 2026-06-29 18:40 - [依法管制阻遏日方军事化危险动向](http://www.share.kurohicncr.top/Article/details/65949.shtml)
-- 2026-06-29 18:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/1010086537.shtml)
-- 2026-06-29 18:35 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/92487.shtml)
-- 2026-06-29 18:24 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/165424130063.shtml)
-- 2026-06-29 18:28 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/10484630.shtml)
-- 2026-06-29 18:32 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/7647348.shtml)
-- 2026-06-29 18:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/8377551721.shtml)
-- 2026-06-29 18:24 - [啊啊啊](https://www.blog.minike.top/Article/details/930417.shtml)
-- 2026-06-29 18:23 - [专家预计全球央行加息节奏将出现反复](http://www.blog.kurohicncr.top/Article/details/5251551.shtml)
-- 2026-06-29 18:44 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/588547383.shtml)
-- 2026-06-29 18:32 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/0767193759.shtml)
-- 2026-06-29 18:26 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/2780390.shtml)
-- 2026-06-29 18:33 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/890455064589.shtml)
+- 2026-06-29 18:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/001313836.shtml)
+- 2026-06-29 18:38 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/0350193386.shtml)
+- 2026-06-29 18:32 - [王安宇尊重田曦薇的一切选择](https://www.share.minike.top/Article/details/562186468382.shtml)
+- 2026-06-29 18:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/84391.shtml)
+- 2026-06-29 18:27 - [范志毅看好日本淘汰巴西](http://www.share.minike.top/Article/details/82800471954.shtml)
+- 2026-06-29 18:50 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/376438088.shtml)
+- 2026-06-29 18:43 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/4608166356.shtml)
+- 2026-06-29 18:37 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/81349.shtml)
+- 2026-06-29 18:39 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/543649398685.shtml)
+- 2026-06-29 18:53 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/51685231.shtml)
+- 2026-06-29 18:40 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/58377.shtml)
+- 2026-06-29 18:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/58759482.shtml)
+- 2026-06-29 18:53 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/59439956.shtml)
+- 2026-06-29 18:41 - [扫黑风暴](https://www.share.minike.top/Article/details/93655600990.shtml)
+- 2026-06-29 18:35 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/04998470507.shtml)

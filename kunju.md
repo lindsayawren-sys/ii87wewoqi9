@@ -1,61 +1,56 @@
-# 从太湖到天山 一位援疆医生的“无憾”青春
+# 下周解禁市值不足400亿元
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-3年来，江苏共组织252名优秀医疗人才赴克州开展多种形式的医疗援疆。 不惑之年，江苏无锡市中医医院骨伤科(创伤正骨科)副主任医师殷铭告别江南，跨越万里山河，奔赴新疆克孜勒苏柯尔克孜自治州阿合奇县开启援疆征程。 初到阿合奇县，广袤的土地、澄澈的蓝天、连绵的雪山、壮美的风光让殷铭感到震撼，但很快他就沉下心来投入临床工作。 语言不通成为他开展工作的第一道难题，殷铭开始主动学习日常民族
+数据显示，下周A股限售股上市数量共计21.59亿股，以5月8日收盘价计算，市值约383.27亿元，均比本周三个交易日的总量有所增加。但从全年周数据来看，下周解禁规模属于偏低水平。从个股来看，有9家公司限售股解禁市值超过10亿元，分别是芯联集成-U、宏景科技、天振股份、曼恩斯特、众智科技、天工股份、万丰股份、欣灵电气、巨能股份。芯联集成解禁市值超百亿元芯联集成-U是下周解禁规模最
 
 ## 正文
 
-3年来，江苏共组织252名优秀医疗人才赴克州开展多种形式的医疗援疆。
+数据显示，下周A股限售股上市数量共计21.59亿股，以5月8日收盘价计算，市值约383.27亿元，均比本周三个交易日的总量有所增加。
 
-不惑之年，江苏无锡市中医医院骨伤科(创伤正骨科)副主任医师殷铭告别江南，跨越万里山河，奔赴新疆克孜勒苏柯尔克孜自治州阿合奇县开启援疆征程。
+但从全年周数据来看，下周解禁规模属于偏低水平。
 
-初到阿合奇县，广袤的土地、澄澈的蓝天、连绵的雪山、壮美的风光让殷铭感到震撼，但很快他就沉下心来投入临床工作。
+从个股来看，有9家公司限售股解禁市值超过10亿元，分别是芯联集成-U、宏景科技、天振股份、曼恩斯特、众智科技、天工股份、万丰股份、欣灵电气、巨能股份。
 
-语言不通成为他开展工作的第一道难题，殷铭开始主动学习日常民族用语，努力克服沟通障碍，倾听群众诉求；当地各族同胞也格外淳朴热忱，每逢殷铭面露困惑，便主动放慢语速、辅以肢体语言，尽力配合沟通。
+芯联集成解禁市值超百亿元芯联集成-U是下周解禁规模最大的一家公司，其有14.4亿股限售股将于5月11日起上市流通，占总股本的17.18%，按周五收盘价计算，解禁市值为100.22亿元，此次解禁股份类型为首发原股东限售股份。
 
-阿合奇县地广人稀、医疗资源匮乏、专业人才短缺。
+本次解除限售的股东共3名，分别为中芯国际控股有限公司、绍兴硅芯锐企业管理合伙企业和绍兴日芯锐企业管理合伙企业。
 
-来到这里后，殷铭与各族医护人员同心共进、并肩作战。
+该公司在此前举办的投资者关系活动中表示，2026年一季度毛利率进一步提升，归母净利润亏损收窄至0.88亿元，同比减亏51.53%。
 
-一方面，他主动分享骨科诊疗经验、手术技巧、临床思路，传授专业知识；另一方面，他虚心向当地医护学习，深耕本土诊疗特点，了解群众生活习惯与心理诉求，学习贴合当地群众的沟通方式，因地制宜地优化诊疗服务，让医疗救治更为人性化。
+公司2026年一季度收入同比增长13.19%。
 
-援疆期间，殷铭坚持坐诊骨科专家门诊、主持病房诊疗，全年接诊患者约500人次，主刀骨折创伤手术，完成院内会诊及疑难病例讨论数十人次。
+随着市场需求继续回升，今年二季度将有望保持收入环比实现持续提升。
 
 ## 相关推荐
 
-- 2026-06-29 18:25 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 18:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 18:30 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 18:20 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 18:21 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 18:44 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 18:21 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 18:31 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 18:18 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 18:25 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 18:40 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 18:23 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 18:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 18:24 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 18:22 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 18:46 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 18:25 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 18:27 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 18:47 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 18:49 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 18:26 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 18:37 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 18:42 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 18:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 18:52 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:30 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/260439.shtml)
-- 2026-06-29 18:36 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/9137509.shtml)
-- 2026-06-29 18:33 - [叠纸客服回应恋与深空新角色争议](http://www.blog.kurohicncr.top/Article/details/148393428.shtml)
-- 2026-06-29 18:46 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/403652.shtml)
-- 2026-06-29 18:18 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/99429871997.shtml)
-- 2026-06-29 18:35 - [毒液2](https://www.blog.kurohicncr.top/Article/details/78446242.shtml)
-- 2026-06-29 18:47 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/1928589286.shtml)
-- 2026-06-29 18:18 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/5577913.shtml)
-- 2026-06-29 18:19 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/489155.shtml)
-- 2026-06-29 18:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/751197038464.shtml)
-- 2026-06-29 18:23 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/923344144.shtml)
-- 2026-06-29 18:42 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/05169459.shtml)
-- 2026-06-29 18:43 - [王曼昱被突如其来的话筒逗笑了](https://www.share.minike.top/Article/details/17109056508.shtml)
-- 2026-06-29 18:38 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/0589100873.shtml)
-- 2026-06-29 18:40 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/550564489330.shtml)
+- 2026-06-29 18:40 - [斗破苍穹](http://www.blog.minike.top/Article/details/185455714.shtml)
+- 2026-06-29 18:42 - [女心理师](https://www.share.minike.top/Article/details/619420.shtml)
+- 2026-06-29 18:31 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/77627.shtml)
+- 2026-06-29 18:41 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/262200802.shtml)
+- 2026-06-29 18:24 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/253221.shtml)
+- 2026-06-29 18:51 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/633985738.shtml)
+- 2026-06-29 18:51 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/0074975.shtml)
+- 2026-06-29 18:37 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/65648772836.shtml)
+- 2026-06-29 18:25 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/4777384.shtml)
+- 2026-06-29 18:47 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/46344.shtml)
+- 2026-06-29 18:39 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/77045971737.shtml)
+- 2026-06-29 18:31 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/3813156944.shtml)
+- 2026-06-29 18:25 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/324692372.shtml)
+- 2026-06-29 18:48 - [中方向委方追加1亿元援助](http://www.share.kurohicncr.top/Article/details/16813668.shtml)
+- 2026-06-29 18:52 - [永远有话聊的原因](https://www.share.minike.top/Article/details/266451820.shtml)

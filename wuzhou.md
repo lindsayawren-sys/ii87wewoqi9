@@ -1,61 +1,57 @@
-# （粤港澳大湾区）中国企业“走出去”NQI·ESG双平台首批合作伙伴在穗签约
+# 美股芯片板块遭遇抛售潮，ARM、应用光电跌幅均超10%
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新社广州6月8日电 (记者 王坚)粤港澳大湾区(广州南沙)检验检测认证产业高质量发展交流活动8日在广州南沙举办。活动现场，中国企业“走出去”NQI(国家质量基础设施)·ESG(环境、社会和公司治理)双平台首批合作伙伴进行签约。据南沙区政府介绍，此次活动通过产业推介、现场签约、政企对接等环节，展示南沙在检验检测认证领域的综合优势与发展前景。目前，南沙累计吸引超3000家港澳企业
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！美东时间周四，美国三大股指高开后全线下跌，道指跌0.6%，标普500指数跌近0.4%，纳指跌0.13%，德国DAX30指数跌超1%。 当日，美股芯片股遭遇普遍抛售，费城半导体指数（SOX）跌超2.7%，板块内多数个股大幅下挫。 应用光电跌超11%，ARM跌超10%，泰瑞达、迈威尔科技跌逾7%，闪迪跌近5%，
 
 ## 正文
 
-中新社广州6月8日电 (记者 王坚)粤港澳大湾区(广州南沙)检验检测认证产业高质量发展交流活动8日在广州南沙举办。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-活动现场，中国企业“走出去”NQI(国家质量基础设施)·ESG(环境、社会和公司治理)双平台首批合作伙伴进行签约。
+美东时间周四，美国三大股指高开后全线下跌，道指跌0.6%，标普500指数跌近0.4%，纳指跌0.13%，德国DAX30指数跌超1%。
 
-据南沙区政府介绍，此次活动通过产业推介、现场签约、政企对接等环节，展示南沙在检验检测认证领域的综合优势与发展前景。
+当日，美股芯片股遭遇普遍抛售，费城半导体指数（SOX）跌超2.7%，板块内多数个股大幅下挫。
 
-目前，南沙累计吸引超3000家港澳企业、超1.1万名港澳居民在南沙发展；在规则衔接领域，南沙积极推进粤港澳检测认证互通互认，辖区企业累计发布25项“湾区标准”。
+应用光电跌超11%，ARM跌超10%，泰瑞达、迈威尔科技跌逾7%，闪迪跌近5%，超威半导体、博通、美光科技、英特尔跌超3%。
 
-南沙区副区长杨帆表示，南沙将持续落实质量强区扶持政策，优化产业发展生态，搭建“检测+认证+标准+合规”全链条服务体系，推动检验检测产业与先进制造、跨境贸易、现代农业等业态深度融合。
+上涨方面，高通涨超5%，英伟达涨逾1%。
 
-据悉，中国企业“走出去”NQI·ESG双平台由南沙开发建设集团、南沙科金控股集团联合中国企业“走出去”综合服务中心牵头打造。
+5月6日，ARM发布2026财年（2025年4月至2026年3月）年报及第四财季（2026年1月至2026年3月）财报。
 
-该平台立足南沙对外开放门户优势，融合NQI质量基础设施与ESG绿色合规两大服务体系。
+公司在第四财季营收达到14.9亿美元，同比增长20%；调整后每股收益0.60美元。
 
-南沙区政府表示，中国企业“走出去”NQI·ESG双平台将聚焦外贸企业出海痛点，一站式提供检测认证、碳核查、ESG评价等全链条服务，助力企业化解绿色贸易壁垒。
+公司全年营收同比增长23%至49.2亿美元，这是ARM自上市以来连续第三个财年营收增幅超过20%。
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 18:39 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 18:38 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 18:38 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 18:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 18:23 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 18:36 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 18:45 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 18:30 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 18:41 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 18:31 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 18:41 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 18:23 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 18:27 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 18:40 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 18:24 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 18:39 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 18:46 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 18:40 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 18:46 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 18:47 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 18:48 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 18:26 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 18:51 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 18:42 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 18:47 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:47 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/25907.shtml)
-- 2026-06-29 18:43 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/53202.shtml)
-- 2026-06-29 18:33 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/9398401.shtml)
-- 2026-06-29 18:36 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/03509906341.shtml)
-- 2026-06-29 18:40 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/32862.shtml)
-- 2026-06-29 18:32 - [挪威王储妃长子2次强奸被判4年](http://www.share.minike.top/Article/details/988433139.shtml)
-- 2026-06-29 18:27 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/4575655.shtml)
-- 2026-06-29 18:18 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/444206826044.shtml)
-- 2026-06-29 18:44 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/656987.shtml)
-- 2026-06-29 18:23 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/78844.shtml)
-- 2026-06-29 18:22 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/496523095812.shtml)
-- 2026-06-29 18:31 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/5077004.shtml)
-- 2026-06-29 18:28 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/116102902322.shtml)
-- 2026-06-29 18:47 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/92002591.shtml)
-- 2026-06-29 18:19 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/6466731.shtml)
+- 2026-06-29 18:49 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/92183897801.shtml)
+- 2026-06-29 18:28 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/87242464.shtml)
+- 2026-06-29 18:53 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/42186.shtml)
+- 2026-06-29 18:53 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/38448.shtml)
+- 2026-06-29 18:41 - [看大国重器“云端穿针引线”](http://www.blog.minike.top/Article/details/9042921.shtml)
+- 2026-06-29 18:47 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/7947339.shtml)
+- 2026-06-29 18:29 - [和周杰伦在演唱会合唱了](https://www.blog.minike.top/Article/details/70642211162.shtml)
+- 2026-06-29 18:44 - [人形机器人](https://www.blog.kurohicncr.top/Article/details/867386.shtml)
+- 2026-06-29 18:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/177841182136.shtml)
+- 2026-06-29 18:40 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/147993465150.shtml)
+- 2026-06-29 18:37 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/6696470574.shtml)
+- 2026-06-29 18:34 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/104480.shtml)
+- 2026-06-29 18:41 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/8641851493.shtml)
+- 2026-06-29 18:36 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/476529648527.shtml)
+- 2026-06-29 18:45 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/23012564341.shtml)

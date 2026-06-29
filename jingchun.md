@@ -1,57 +1,60 @@
-# 粤桂闽湘等地有暴雨或大暴雨 华北东北等地多雷雨天气
+# 司法部全面推行“扫码入企” 以数字化手段规范涉企行政检查
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新网6月8日电 据中央气象台网站消息，昨日，降水主要出现在西南地区东部、江南、华南等地，其中四川东部、重庆南部、贵州、湖南、江西南部、浙江南部、福建北部、广西北部、广东南部沿海等地部分地区出现暴雨或大暴雨，广西桂林、广东汕尾局地特大暴雨。今明两天，江南南部、华南等地仍有强降雨，日降雨量以大到暴雨为主，部分地区有大暴雨，局地特大暴雨。 中央气象台今晨继续发布暴雨橙色预警。预计今
+中新网5月8日电 据司法部微信公众号消息，为深入贯彻党中央、国务院决策部署，巩固深化规范涉企行政执法专项行动成果、健全长效机制，进一步提升行政检查效能，切实为企业松绑减负，司法部印发《关于全面推行“扫码入企”工作 进一步规范涉企行政检查的通知》(以下简称《通知》)，对“扫码入企”基本环节、基本要素进行统一规范。“扫码入企”是规范行政检查的有效措施。《国务院办公厅关于严格规范涉企
 
 ## 正文
 
-中新网6月8日电 据中央气象台网站消息，昨日，降水主要出现在西南地区东部、江南、华南等地，其中四川东部、重庆南部、贵州、湖南、江西南部、浙江南部、福建北部、广西北部、广东南部沿海等地部分地区出现暴雨或大暴雨，广西桂林、广东汕尾局地特大暴雨。
+中新网5月8日电 据司法部微信公众号消息，为深入贯彻党中央、国务院决策部署，巩固深化规范涉企行政执法专项行动成果、健全长效机制，进一步提升行政检查效能，切实为企业松绑减负，司法部印发《关于全面推行“扫码入企”工作 进一步规范涉企行政检查的通知》(以下简称《通知》)，对“扫码入企”基本环节、基本要素进行统一规范。
 
-今明两天，江南南部、华南等地仍有强降雨，日降雨量以大到暴雨为主，部分地区有大暴雨，局地特大暴雨。
+“扫码入企”是规范行政检查的有效措施。
 
-中央气象台今晨继续发布暴雨橙色预警。
+《国务院办公厅关于严格规范涉企行政检查的意见》对加快推行“扫码入企”提出明确要求。
 
-预计今天，广西大部、广东、海南岛北部、湖南南部、江西南部和东部、浙江南部、福建、台湾岛以及云南中西部等地部分地区有大到暴雨，其中，广西北部和东部、湖南南部、广东中东部和南部沿海、福建西南部、台湾岛南部等地部分地区有大暴雨，广东南部沿海、台湾岛南部等地局地特大暴雨(250～300毫米)。
+在规范涉企行政执法专项行动中，很多地方探索运用“扫码入企”治理乱检查，形成了不少有效经验做法，为在全国全面推行奠定了良好基础。
 
-上述部分地区伴有短时强降水(最大小时降雨量30～50毫米，局地可超过80毫米)，局地有雷暴大风等强对流天气。
+《通知》在总结地方实践经验的基础上，对“扫码入企”作了进一步规范。
 
-明天，强降雨落区明显收缩，仅在云南南部、广东东南部、海南岛北部、台湾岛等地有大雨或暴雨，其中台湾岛有大暴雨。
+严格统一赋码，明确省级政府行政执法监督机构要加强统筹，会同有关执法部门加快整合赋码渠道，形成统一的“执法码”。
 
-此外，8-9日，内蒙古东部、东北地区、华北北部等地仍多阵雨或雷阵雨天气，雨量分布不均，一般有小到中雨，局地有大雨或暴雨，并伴有雷暴大风或冰雹等强对流天气。
+强化各级各部门执法数据对接和信息互认。
 
-专家提醒，今天，广西、广东、福建、湖南、台湾岛等地有强降雨，公众需警惕持续强降雨可能引发的山洪、地质灾害、中小河流洪水、城乡积涝等灾害以及局地强对流天气灾害。
+明晰检查内容，强调“执法码”是关联行政检查行为、显示检查任务的唯一数字标识，全面涵盖检查主体、人员、数量、事项、时间地点、结果等内容，企业一扫码，就可以清晰知道谁来查、查什么。
 
 ## 相关推荐
 
-- 2026-06-29 18:25 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 18:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 18:23 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 18:29 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 18:37 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 18:29 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 18:21 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 18:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 18:38 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 18:24 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 18:34 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 18:36 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 18:32 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 18:53 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 18:50 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 18:47 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 18:38 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 18:25 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 18:37 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 18:41 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 18:44 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 18:33 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 18:45 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 18:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 18:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:26 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/36026276599.shtml)
-- 2026-06-29 18:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/242877.shtml)
-- 2026-06-29 18:22 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/28405.shtml)
-- 2026-06-29 18:26 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/39731201031.shtml)
-- 2026-06-29 18:45 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/982143.shtml)
-- 2026-06-29 18:35 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/11324790.shtml)
-- 2026-06-29 18:20 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/3826486076.shtml)
-- 2026-06-29 18:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/374406274736.shtml)
-- 2026-06-29 18:25 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/888087802.shtml)
-- 2026-06-29 18:36 - [V8](http://www.share.minike.top/Article/details/40953.shtml)
-- 2026-06-29 18:18 - [起风了](https://www.blog.kurohicncr.top/Article/details/435230565556.shtml)
-- 2026-06-29 18:28 - [谢依霖夸杨幂靠谱](http://www.blog.minike.top/Article/details/1164568.shtml)
-- 2026-06-29 18:34 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/579521.shtml)
-- 2026-06-29 18:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/678003445.shtml)
-- 2026-06-29 18:29 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/782858444004.shtml)
+- 2026-06-29 18:43 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/082807.shtml)
+- 2026-06-29 18:35 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/22786853537.shtml)
+- 2026-06-29 18:29 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/073550236384.shtml)
+- 2026-06-29 18:41 - [周生如故](http://www.blog.kurohicncr.top/Article/details/223738.shtml)
+- 2026-06-29 18:27 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/38868859.shtml)
+- 2026-06-29 18:33 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/65997730618.shtml)
+- 2026-06-29 18:43 - [四川达州发生一起交通事故致2死](https://www.share.minike.top/Article/details/274340246.shtml)
+- 2026-06-29 18:24 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/6634089504.shtml)
+- 2026-06-29 18:49 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/4472450.shtml)
+- 2026-06-29 18:27 - [人形机器人](https://www.blog.minike.top/Article/details/862279.shtml)
+- 2026-06-29 18:47 - [章若楠包场白敬亭特立独行](http://www.share.kurohicncr.top/Article/details/8246079.shtml)
+- 2026-06-29 18:34 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/295053769443.shtml)
+- 2026-06-29 18:53 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/676403987.shtml)
+- 2026-06-29 18:31 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/767380598.shtml)
+- 2026-06-29 18:30 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/54799795.shtml)

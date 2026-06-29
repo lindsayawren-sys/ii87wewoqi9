@@ -1,51 +1,57 @@
-# 摩根大通将10年期美债收益率预期上调至4.70%
+# 天津皇会踩街巡游 两岸信众共迎妈祖诞辰
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-据6月6日的一份报告，摩根大通策略师建议维持做空美国国债、做多德国国债的策略。“我们目前预计2年期和10年期美债收益率将分别升至4.20%和4.70%，较我们之前的预测高出30个基点和20个基点，” Jay Barry等该行策略师写道。过去一年美国劳动力市场在“稳健增长”的背景下趋稳，引发了市场对当前货币政策立场是否“实际上具有紧缩性”的质疑。责任编辑：王永生
+发布时间：2026年05月09日 07:40 来源：中国新闻网 5月8日，天后出巡散福暨天津皇会展演在天津古文化街举行。来自京津冀的十余支民间花会队伍随驾踩街散福，吸引众多两岸信众及游客参与。 这是天津天后宫纪念天后诞辰1066周年系列活动之一。700余人的展演队伍行进1.9公里，舞狮、中幡、法鼓等技艺轮番登场；天后华辇在銮驾簇拥下出巡，12把华盖宝伞随行，百人高跷队压阵。沿途
 
 ## 正文
 
-据6月6日的一份报告，摩根大通策略师建议维持做空美国国债、做多德国国债的策略。
+发布时间：2026年05月09日 07:40 来源：中国新闻网 5月8日，天后出巡散福暨天津皇会展演在天津古文化街举行。
 
-“我们目前预计2年期和10年期美债收益率将分别升至4.20%和4.70%，较我们之前的预测高出30个基点和20个基点，” Jay Barry等该行策略师写道。
+来自京津冀的十余支民间花会队伍随驾踩街散福，吸引众多两岸信众及游客参与。
 
-过去一年美国劳动力市场在“稳健增长”的背景下趋稳，引发了市场对当前货币政策立场是否“实际上具有紧缩性”的质疑。
+这是天津天后宫纪念天后诞辰1066周年系列活动之一。
 
-责任编辑：王永生
+700余人的展演队伍行进1.9公里，舞狮、中幡、法鼓等技艺轮番登场；天后华辇在銮驾簇拥下出巡，12把华盖宝伞随行，百人高跷队压阵。
+
+沿途不少民众合掌祈福。
+
+据悉，天后宫是中国现存年代最早的妈祖庙之一，与福建湄洲妈祖庙、台湾北港朝天宫并称“世界三大妈祖庙”。
+
+(汤润青 冯宏杰) 责任编辑：【张燕玲】
 
 ## 相关推荐
 
-- 2026-06-29 18:46 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 18:36 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 18:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 18:32 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 18:19 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 18:20 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 18:36 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 18:18 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 18:26 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 18:34 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 18:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 18:47 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 18:40 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 18:47 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 18:38 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 18:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 18:35 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 18:30 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 18:28 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 18:39 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 18:30 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 18:33 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 18:29 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 18:41 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 18:32 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 18:53 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:22 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/22069226.shtml)
-- 2026-06-29 18:26 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/1263246422.shtml)
-- 2026-06-29 18:45 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/84423395382.shtml)
-- 2026-06-29 18:46 - [谢依霖夸杨幂靠谱](https://www.blog.minike.top/Article/details/457099.shtml)
-- 2026-06-29 18:39 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/546828.shtml)
-- 2026-06-29 18:31 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/66236.shtml)
-- 2026-06-29 18:41 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/8549815234.shtml)
-- 2026-06-29 18:32 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/1298881.shtml)
-- 2026-06-29 18:47 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/2023214.shtml)
-- 2026-06-29 18:32 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/47380224387.shtml)
-- 2026-06-29 18:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/4453694717.shtml)
-- 2026-06-29 18:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/869262853.shtml)
-- 2026-06-29 18:18 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/165609111619.shtml)
-- 2026-06-29 18:26 - [花万元相亲对象是50元雇的演员](https://www.blog.kurohicncr.top/Article/details/0979302235.shtml)
-- 2026-06-29 18:40 - [德云色预测世界杯16强](https://www.share.kurohicncr.top/Article/details/675156.shtml)
+- 2026-06-29 18:47 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/473112886.shtml)
+- 2026-06-29 18:42 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/22443570096.shtml)
+- 2026-06-29 18:42 - [扬名立万](https://www.blog.minike.top/Article/details/6522508122.shtml)
+- 2026-06-29 18:50 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/31346526814.shtml)
+- 2026-06-29 18:52 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/4307049247.shtml)
+- 2026-06-29 18:53 - [伊朗足球队将启程回国](http://www.blog.kurohicncr.top/Article/details/11973126434.shtml)
+- 2026-06-29 18:28 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/93328382925.shtml)
+- 2026-06-29 18:35 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/201908.shtml)
+- 2026-06-29 18:37 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.kurohicncr.top/Article/details/60408475253.shtml)
+- 2026-06-29 18:51 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/126402606290.shtml)
+- 2026-06-29 18:51 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/2132494.shtml)
+- 2026-06-29 18:41 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/582563159.shtml)
+- 2026-06-29 18:24 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/97660.shtml)
+- 2026-06-29 18:52 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/50947.shtml)
+- 2026-06-29 18:50 - [请回答王牌2019](http://www.share.minike.top/Article/details/51226279539.shtml)

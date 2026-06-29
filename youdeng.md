@@ -1,56 +1,59 @@
-# 短剧产业走向价值红利阶段
+# 刚刚，财政部、证监会发布
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-近年来，短剧产业迎来爆发式增长，随着AI视频模型公司、内容平台、产业资本加速入局，AI短剧成为新的产业风口。中国网络视听协会数据显示，一季度全行业上线微短剧约12.8万部，其中AI微短剧约12.2万部，占比超过95%。市场竞争日趋激烈，推动短剧产业从“拼数量”向“拼质量”转变。在近日抖音集团短剧版权中心举办的首届短剧产业大会上，专家表示，短剧正持续向精品化、系列化迈进，是一条前
+来源：中国基金报 两家内地会计师事务所获准从事H股企业审计 经财政部、中国证监会内地会计师事务所从事H股企业审计业务审核推荐委员会审核认可，并经香港监管机构确认，容诚会计师事务所（特殊普通合伙）、天职国际会计师事务所（特殊普通合伙）获准自2026年5月15日起，可以本所名义在香港资本市场为符合条件的H股公司出具审计报告。 增补两家内地会计师事务所从事H股企业审计业务，对于降低内
 
 ## 正文
 
-近年来，短剧产业迎来爆发式增长，随着AI视频模型公司、内容平台、产业资本加速入局，AI短剧成为新的产业风口。
+来源：中国基金报 两家内地会计师事务所获准从事H股企业审计 经财政部、中国证监会内地会计师事务所从事H股企业审计业务审核推荐委员会审核认可，并经香港监管机构确认，容诚会计师事务所（特殊普通合伙）、天职国际会计师事务所（特殊普通合伙）获准自2026年5月15日起，可以本所名义在香港资本市场为符合条件的H股公司出具审计报告。
 
-中国网络视听协会数据显示，一季度全行业上线微短剧约12.8万部，其中AI微短剧约12.2万部，占比超过95%。
+增补两家内地会计师事务所从事H股企业审计业务，对于降低内地企业在港上市成本、推动两地资本市场互联互通、促进香港融入国家发展大局具有积极而深远的意义，将有助于进一步深化内地与香港会计交流合作，推动两地会计行业共同发展。
 
-市场竞争日趋激烈，推动短剧产业从“拼数量”向“拼质量”转变。
+财政部、中国证监会将根据内地与香港有关监管要求，对获准从事H股企业审计业务的会计师事务所进行严格管理，确保持续符合要求，推动其高质量完成H股企业审计业务。
 
-在近日抖音集团短剧版权中心举办的首届短剧产业大会上，专家表示，短剧正持续向精品化、系列化迈进，是一条前景广阔的商业赛道。
+财政部、中国证监会有关部门负责人就两家内地会计师事务所获准从事H股企业审计业务答记者问 2026年5月8日，财政部、中国证监会与香港会计及财务汇报局公布了增补从事H股企业审计业务的2家内地会计师事务所名单。
 
-中国电影评论学会常务副会长张卫介绍，不少平台对关照现实生活、追求积极社会效应的短剧作品进行专项扶持，资金向好剧本、好内容集中。
+日前，财政部、中国证监会有关部门负责人就增补工作有关问题回答了记者的提问。
 
-同时，平台取消无差别保底、收紧审核、提高准入门槛，这些都在加速低质、劣俗的短剧退场。
+一、请介绍一下内地会计师事务所增补从事H股企业审计业务的背景和意义。
 
-2025年2月，国家广播电视总局发布通知，要求落实微短剧“分类分层审核”制度。
+答：推动内地会计师事务所从事H股企业审计业务是深化内地与香港会计交流合作的重要举措。
 
-北京电影学院智能影像工程学院教授程樯认为，这标志着真人短剧告别了依靠低俗、擦边、贩卖焦虑来博眼球的草莽时代。
+2010年12月，财政部、中国证监会首次向香港监管机构推荐了12家可以本所名义从事H股企业审计业务的内地会计师事务所（以下简称H股会计师事务所）。
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 18:32 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 18:40 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 18:28 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 18:25 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 18:27 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 18:26 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 18:36 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-29 18:31 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 18:41 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 18:31 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 18:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 18:51 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 18:45 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 18:39 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 18:50 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 18:43 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 18:29 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 18:51 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 18:24 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 18:32 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 18:36 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 18:48 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:44 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/385538.shtml)
-- 2026-06-29 18:43 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/360334.shtml)
-- 2026-06-29 18:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/2644058049.shtml)
-- 2026-06-29 18:47 - [千与千寻](http://www.share.kurohicncr.top/Article/details/54655316047.shtml)
-- 2026-06-29 18:47 - [金牌调解](https://www.share.minike.top/Article/details/9059024.shtml)
-- 2026-06-29 18:18 - [让AI做一个账号，它会做成什么样？](https://www.blog.minike.top/Article/details/04026958.shtml)
-- 2026-06-29 18:20 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/55326333674.shtml)
-- 2026-06-29 18:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/926466817142.shtml)
-- 2026-06-29 18:23 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/70499.shtml)
-- 2026-06-29 18:42 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/6915307596.shtml)
-- 2026-06-29 18:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/13835518026.shtml)
-- 2026-06-29 18:33 - [让AI做一个账号，它会做成什么样？](https://www.blog.minike.top/Article/details/5319732992.shtml)
-- 2026-06-29 18:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/36382674.shtml)
-- 2026-06-29 18:41 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/147149.shtml)
-- 2026-06-29 18:32 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/7839969496.shtml)
+- 2026-06-29 18:44 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/81166251.shtml)
+- 2026-06-29 18:40 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/08426.shtml)
+- 2026-06-29 18:30 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/7870869.shtml)
+- 2026-06-29 18:32 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/09814179635.shtml)
+- 2026-06-29 18:37 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/95429172728.shtml)
+- 2026-06-29 18:53 - [天道](http://www.share.kurohicncr.top/Article/details/938639625340.shtml)
+- 2026-06-29 18:34 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.minike.top/Article/details/0723593323.shtml)
+- 2026-06-29 18:28 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/2645547839.shtml)
+- 2026-06-29 18:26 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/644153125.shtml)
+- 2026-06-29 18:46 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/55716.shtml)
+- 2026-06-29 18:36 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/834993683.shtml)
+- 2026-06-29 18:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/8144273583.shtml)
+- 2026-06-29 18:26 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/8961717322.shtml)
+- 2026-06-29 18:26 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/4833695686.shtml)
+- 2026-06-29 18:33 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/6696429.shtml)

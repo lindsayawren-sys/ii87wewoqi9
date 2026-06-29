@@ -1,57 +1,57 @@
-# 新浪财经李兀：中国企业正在从参与走向共建，从跟随走向引领
+# 2026年一季度央企投资增长“开门红”！央企红利ETF华泰柏瑞（561580）规模和份额连续创下历史新高
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-联想集团 X FIFA国际足联《AI世界杯》纪录片专场观影沙龙于6月8日在北京举办，新浪财经总编辑李兀出席并致辞。 李兀介绍，即将开赛的美加墨世界杯，是历史上首次大规模、深度融入 AI 技术的世界杯。“从赛事运营、裁判辅助、观赛体验，到内容传播、数据服务，科技正在以前所未有的方式，重新定义顶级体育赛事的运行逻辑。” 他表示，这不仅是足球运动的进步，更是全球数字化浪潮下产业升级、
+国务院国资委最新数据显示，央企2026年一季度经济运行平稳有序，经营质效持续改善，有效投资增速强劲，价值贡献不断提升，完成固定资产投资1.05万亿元，同比增长23.5%，拉动全社会固定资产投资增长2个百分点；实现增加值2.7万亿元，同比增长约3%；产业发展向新向优，战略性新兴产业投资同比增长19.5%，为实现“十五五”良好开局打下了坚实基础。 在此背景下，市场首只央企红利主题E
 
 ## 正文
 
-联想集团 X FIFA国际足联《AI世界杯》纪录片专场观影沙龙于6月8日在北京举办，新浪财经总编辑李兀出席并致辞。
+国务院国资委最新数据显示，央企2026年一季度经济运行平稳有序，经营质效持续改善，有效投资增速强劲，价值贡献不断提升，完成固定资产投资1.05万亿元，同比增长23.5%，拉动全社会固定资产投资增长2个百分点；实现增加值2.7万亿元，同比增长约3%；产业发展向新向优，战略性新兴产业投资同比增长19.5%，为实现“十五五”良好开局打下了坚实基础。
 
-李兀介绍，即将开赛的美加墨世界杯，是历史上首次大规模、深度融入 AI 技术的世界杯。
+在此背景下，市场首只央企红利主题ETF——央企红利ETF华泰柏瑞（561580）近期获资金青睐。
 
-“从赛事运营、裁判辅助、观赛体验，到内容传播、数据服务，科技正在以前所未有的方式，重新定义顶级体育赛事的运行逻辑。
+交易所数据显示，该ETF自4月以来（26/4/1-26/5/7）累计“吸金”超6亿元，是同期A股央企红利类主题ETF中仅有的净流入超2000万的产品。
 
-” 他表示，这不仅是足球运动的进步，更是全球数字化浪潮下产业升级、技术落地与生态重构的缩影。
+伴随资金的持续涌入，产品基金份额、基金规模分别攀升至16.90亿份、21.09亿元，连续创下历史新高。
 
-谈及中国科技力量出海，李兀说道：“如今中国方案、中国技术、中国企业，正在从参与走向共建，从跟随走向引领。
+Wind数据显示，在“高股息+100%央企属性”的双重筛选逻辑加持下，标的指数——中证央企红利指数近一年股息率最新攀升至4.11%，与十年期国债收益率（2.34%）的利差高于其发布以来（12/7/20）69%的时间，在资产荒环境中股息率优势有望持续凸显。
 
-” 他特别提到本届世界杯官方技术合作伙伴联想，企业凭借全域 AI 能力、全球化服务能力与大型赛事支撑经验服务赛场，向世界展现出中国科技稳定、可靠、专业的特质。
+值得一提的是，在板块轮动加速、市场波动增大的环境中，以中证央企红利指数为代表的央企红利类资产依然表现较亮眼。
 
-在他看来，这既是企业全球化发展的实践，也是中国产业实力、服务能力与品牌信心的集中展现。
+Wind数据显示，截至最新（2026/5/7），近一年中证央企红利全收益指数上涨18.00%，跑赢同期中证红利全收益（13.50%）、深证红利全收益（14.43%）等部分主流红利类全收益指数。
 
-“这部纪录片记录的不只是一个项目、一段历程，更是中国科技企业走向世界舞台、服务全球顶级 IP 的真实样本。
+央企红利ETF华泰柏瑞（561580）及其联接基金（A类020466/C类020467）的基金管理人华泰柏瑞基金在红利类主题指数投资领域已积累超过19年的管理经验，旗下“红利全家桶”是市场较受欢迎的红利主题投资品牌，5只ETF各具特色，规模达551.75亿元。
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 18:30 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 18:34 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 18:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 18:33 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 18:28 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 18:41 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 18:35 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 18:30 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 18:21 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 18:21 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 18:28 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 18:26 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 18:40 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 18:30 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 18:50 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 18:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 18:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 18:47 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 18:42 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 18:24 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 18:25 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:41 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/78801111711.shtml)
-- 2026-06-29 18:32 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/489407724707.shtml)
-- 2026-06-29 18:21 - [起风了](http://www.blog.minike.top/Article/details/56022527825.shtml)
-- 2026-06-29 18:42 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/52011128.shtml)
-- 2026-06-29 18:26 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/31954801793.shtml)
-- 2026-06-29 18:30 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/7489695840.shtml)
-- 2026-06-29 18:32 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/30358815019.shtml)
-- 2026-06-29 18:38 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/9398039558.shtml)
-- 2026-06-29 18:19 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/22927057.shtml)
-- 2026-06-29 18:36 - [勇敢的心第二部](https://www.share.minike.top/Article/details/580154730449.shtml)
-- 2026-06-29 18:20 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/892899793.shtml)
-- 2026-06-29 18:42 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/34716830.shtml)
-- 2026-06-29 18:29 - [朱必达辞去湖南人大常委会委员职务](http://www.share.minike.top/Article/details/41710419424.shtml)
-- 2026-06-29 18:18 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/93725825687.shtml)
-- 2026-06-29 18:39 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/921885993.shtml)
+- 2026-06-29 18:53 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/398966270.shtml)
+- 2026-06-29 18:43 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/778531780.shtml)
+- 2026-06-29 18:41 - [网红小徐直播时突遇地震](https://www.blog.minike.top/Article/details/707277705.shtml)
+- 2026-06-29 18:35 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.minike.top/Article/details/0826614209.shtml)
+- 2026-06-29 18:25 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/234291.shtml)
+- 2026-06-29 18:33 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/1763191282.shtml)
+- 2026-06-29 18:34 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/53228347.shtml)
+- 2026-06-29 18:53 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/085550666970.shtml)
+- 2026-06-29 18:38 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/15197.shtml)
+- 2026-06-29 18:31 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/25144.shtml)
+- 2026-06-29 18:39 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/9884061.shtml)
+- 2026-06-29 18:24 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/9014297.shtml)
+- 2026-06-29 18:46 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/53733218469.shtml)
+- 2026-06-29 18:50 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/49123.shtml)
+- 2026-06-29 18:39 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/608215536.shtml)

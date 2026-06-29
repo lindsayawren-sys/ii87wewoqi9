@@ -1,60 +1,61 @@
-# 退市不免责！海越能源（600387）股民索赔案已有终审胜诉
+# “自在忻州”热度攀升：“五一”小长假揽客近90万人次
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-上海久诚律师事务所股票索赔律师许峰提示，2026年5月，浙江省高级人民法院已经驳回海越能源（600387）针对投资者的上诉，维持投资者一审胜诉判决，投资者索赔案获得终审胜诉。（许峰律师专栏） 许峰律师提示，海越能源虽然已经退市，但不影响投资者索赔推进，退市不会让其对投资者的虚假陈述赔偿责任免责。 许峰律师代理的海越能源投资者索赔案已提交法院立案，前期代理部分投资者调解获赔，律师
+中新网忻州5月7日电 (杨静 刘芝彤)2026年“五一”小长假落下帷幕，山西省忻州市以“旅游满意在忻州”为目标，推进文旅供给、市场监管与安全保障，全市文旅市场运行平稳有序。假日期间，忻州市重点监测景区累计接待游客89.9万人次，门票(经营)收入4519.92万元，社会效益与经济效益双丰收。 围绕“康养福地 自在忻州”文旅品牌，忻州整合全市A级旅游景区、乡村旅游点、非遗资源及公共
 
 ## 正文
 
-上海久诚律师事务所股票索赔律师许峰提示，2026年5月，浙江省高级人民法院已经驳回海越能源（600387）针对投资者的上诉，维持投资者一审胜诉判决，投资者索赔案获得终审胜诉。
+中新网忻州5月7日电 (杨静 刘芝彤)2026年“五一”小长假落下帷幕，山西省忻州市以“旅游满意在忻州”为目标，推进文旅供给、市场监管与安全保障，全市文旅市场运行平稳有序。
 
-（许峰律师专栏） 许峰律师提示，海越能源虽然已经退市，但不影响投资者索赔推进，退市不会让其对投资者的虚假陈述赔偿责任免责。
+假日期间，忻州市重点监测景区累计接待游客89.9万人次，门票(经营)收入4519.92万元，社会效益与经济效益双丰收。
 
-许峰律师代理的海越能源投资者索赔案已提交法院立案，前期代理部分投资者调解获赔，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+围绕“康养福地 自在忻州”文旅品牌，忻州整合全市A级旅游景区、乡村旅游点、非遗资源及公共文化场馆，推出了一系列主题鲜明、形式多样的文旅活动，形成“全城有活动、处处有看点”的良好局面。
 
-2025年4月16日，海越能源公告收到证监会《行政处罚决定书》。
+各县(市、区)景区活动亮点纷呈。
 
-经查明，当事人存在以下违法事实： 1、海越能源未按规定披露控股股东非经营性资金占用 案涉期间，铜川汇能鑫能源有限公司（以下简称汇能鑫）持有海越能源19.21%的股份，高鑫金控持有汇能鑫100%的股份。
+定襄河边民俗博物馆推出“送戏下乡进景区”，以传统戏曲激活乡村文旅；岢岚宋家沟景区带来民俗歌舞与二人台表演，展现晋北乡村风情；河曲黄河唐家会湾景区举办特色民俗展演，彰显黄河文化魅力。
 
-汇能鑫仅是高鑫金控用于管理控制海越能源的持股平台，相关事务由高鑫金控管控，在经营管理、财务管理、人员管理、行政管理、办公场所等方面无独立性。
+此外，忻府区云中河温泉康养小镇推出雅集、夜游、养生体验，打造休闲康养新场景；云中河晋忻梦幻乐园举办萌宠派对、青年交友挑战赛，持续叫响“爱在云中河”社交IP。
 
-案涉期间高鑫金控实际管控海越能源，是海越能源控股股东。
+原平天涯山、爱木图景区推出嘉年华、花神巡游与红色剧场，神池荣庄子星河里景区的戏曲演出也丰富了民众文化生活。
 
-2021年至2022年期间，在控股股东高鑫金控的组织、指使下，海越能源及下属企业通过向供应商预付货款的形式，将公司资金转出，用于控股股东及其控制的公司使用。
+非遗展演成为假日文旅市场的突出亮点。
 
 ## 相关推荐
 
-- 2026-06-29 18:22 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 18:42 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 18:44 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 18:28 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 18:37 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 18:19 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 18:35 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 18:34 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 18:19 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 18:26 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 18:31 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 18:44 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 18:27 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 18:38 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 18:37 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 18:37 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 18:47 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 18:38 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 18:25 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 18:40 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 18:48 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 18:33 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 18:48 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 18:28 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 18:25 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 18:46 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 18:43 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 18:40 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 18:24 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:43 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/68670537579.shtml)
-- 2026-06-29 18:44 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.kurohicncr.top/Article/details/425342524.shtml)
-- 2026-06-29 18:34 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/343072823.shtml)
-- 2026-06-29 18:35 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/034506323.shtml)
-- 2026-06-29 18:32 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/751288.shtml)
-- 2026-06-29 18:37 - [许建琼任湖南省检察院副检察长](http://www.share.kurohicncr.top/Article/details/605313.shtml)
-- 2026-06-29 18:19 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/4251085059.shtml)
-- 2026-06-29 18:41 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/68153091.shtml)
-- 2026-06-29 18:38 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/53763193307.shtml)
-- 2026-06-29 18:20 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/8530126458.shtml)
-- 2026-06-29 18:31 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/88696962149.shtml)
-- 2026-06-29 18:30 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/2581155081.shtml)
-- 2026-06-29 18:37 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/60505.shtml)
-- 2026-06-29 18:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/27507.shtml)
-- 2026-06-29 18:33 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/856199163490.shtml)
+- 2026-06-29 18:27 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/67526.shtml)
+- 2026-06-29 18:50 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/1003020.shtml)
+- 2026-06-29 18:35 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/421356997.shtml)
+- 2026-06-29 18:34 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/3940685.shtml)
+- 2026-06-29 18:30 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/623724.shtml)
+- 2026-06-29 18:37 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/843935865123.shtml)
+- 2026-06-29 18:49 - [王曼昱被突如其来的话筒逗笑了](https://www.share.kurohicncr.top/Article/details/977083039.shtml)
+- 2026-06-29 18:48 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/3263865096.shtml)
+- 2026-06-29 18:24 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/769679.shtml)
+- 2026-06-29 18:35 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/8114800.shtml)
+- 2026-06-29 18:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/512142964.shtml)
+- 2026-06-29 18:32 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/6638866393.shtml)
+- 2026-06-29 18:49 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/075193836.shtml)
+- 2026-06-29 18:24 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/13833569.shtml)
+- 2026-06-29 18:37 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/80074076662.shtml)

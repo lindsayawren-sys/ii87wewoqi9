@@ -1,59 +1,59 @@
-# 派拉蒙千亿收购华纳面临多方挑战：加州与纽约拟提起诉讼
+# CoreWeave一季度末签约总电力容量3.5吉瓦 年内股价涨近80%
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-派拉蒙天空之舞以1110亿美元收购华纳兄弟探索的交易正遭遇越来越强大的阻力。加利福尼亚州和纽约州正准备联合其他州提起反垄断诉讼，试图阻止这项好莱坞近年来最大规模的并购案，同时娱乐业从业者也在多地举行抗议活动，表达对大规模裁员和行业垄断的深切忧虑。 加州总检察长一直是该交易最直言不讳的批评者之一。他公开指责特朗普政府放弃联邦反垄断执法责任，迫使各州在资源有限的情况下挺身而出。据报
+CoreWeave于周四公布一季度财报，营收超出分析师预期。 以下为公司业绩与伦敦证券交易所集团（LSEG）市场一致预期对比： 每股收益：亏损1.40美元，该数据或不具备与市场预期的可比性。 营收：20.8亿美元，市场预期19.7亿美元。 公司公告显示，本季度营收同比翻倍以上，去年同期为9.818亿美元；净亏损从上年同期的3.15亿美元（每股亏损1.49美元）扩大至7.40亿美
 
 ## 正文
 
-派拉蒙天空之舞以1110亿美元收购华纳兄弟探索的交易正遭遇越来越强大的阻力。
+CoreWeave于周四公布一季度财报，营收超出分析师预期。
 
-加利福尼亚州和纽约州正准备联合其他州提起反垄断诉讼，试图阻止这项好莱坞近年来最大规模的并购案，同时娱乐业从业者也在多地举行抗议活动，表达对大规模裁员和行业垄断的深切忧虑。
+以下为公司业绩与伦敦证券交易所集团（LSEG）市场一致预期对比： 每股收益：亏损1.40美元，该数据或不具备与市场预期的可比性。
 
-加州总检察长一直是该交易最直言不讳的批评者之一。
+营收：20.8亿美元，市场预期19.7亿美元。
 
-他公开指责特朗普政府放弃联邦反垄断执法责任，迫使各州在资源有限的情况下挺身而出。
+公司公告显示，本季度营收同比翻倍以上，去年同期为9.818亿美元；净亏损从上年同期的3.15亿美元（每股亏损1.49美元）扩大至7.40亿美元。
 
-据报道，此项诉讼预计将在未来数周内正式提交，若法院颁布禁令，交易可能被推迟数月。
+截至一季度末，公司签约总电力容量约3.5吉瓦，营收积压订单高达994亿美元。
 
-在监管审查的同时，行业内的反对声浪也在持续高涨。
+CoreWeave联合创始人兼首席执行官Mike Intrator在分析师电话会议上表示：“我们已迈入超大规模发展阶段。
 
-上周末，约100名好莱坞工人、编剧工会代表及行业倡导者在洛杉矶卢米埃尔音乐厅集会，这是“主街对抗合并”三城巡回活动的首站。
+” 在营收暴涨的同时，运营支出增速更快。
 
-喜剧演员亚当·康诺弗在集会上现身说法，讲述自己节目在2018年AT&T收购时代华纳后被取消的经历。
+本季度技术与基础设施成本飙升127%，至12.7亿美元；销售及市场费用增长超5倍，达6900万美元。
 
 ## 相关推荐
 
-- 2026-06-29 18:24 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 18:33 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 18:35 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 18:26 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 18:26 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 18:30 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 18:19 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 18:27 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 18:38 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 18:29 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 18:33 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 18:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 18:27 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 18:24 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 18:26 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 18:27 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 18:31 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 18:51 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 18:44 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 18:44 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 18:41 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 18:39 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 18:51 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 18:27 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 18:34 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 18:51 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:19 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/04419162.shtml)
-- 2026-06-29 18:41 - [沙丘](https://www.blog.minike.top/Article/details/5596377172.shtml)
-- 2026-06-29 18:33 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/80855.shtml)
-- 2026-06-29 18:25 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/2218627028.shtml)
-- 2026-06-29 18:46 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/55447.shtml)
-- 2026-06-29 18:41 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/473060686.shtml)
-- 2026-06-29 18:25 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/188141.shtml)
-- 2026-06-29 18:22 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/88570875283.shtml)
-- 2026-06-29 18:42 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.minike.top/Article/details/48769277331.shtml)
-- 2026-06-29 18:20 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/157195116000.shtml)
-- 2026-06-29 18:29 - [一生一世](https://www.share.minike.top/Article/details/22432782.shtml)
-- 2026-06-29 18:40 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/502617.shtml)
-- 2026-06-29 18:32 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/4401512223.shtml)
-- 2026-06-29 18:42 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/5202186.shtml)
-- 2026-06-29 18:39 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/761541138.shtml)
+- 2026-06-29 18:49 - [当家电外通风口出现鸟窝](https://www.share.minike.top/Article/details/0385764785.shtml)
+- 2026-06-29 18:33 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/0169539.shtml)
+- 2026-06-29 18:38 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/64451.shtml)
+- 2026-06-29 18:26 - [美人鱼](https://www.blog.minike.top/Article/details/7299487.shtml)
+- 2026-06-29 18:39 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/372375665875.shtml)
+- 2026-06-29 18:41 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/882966188.shtml)
+- 2026-06-29 18:33 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/0357854.shtml)
+- 2026-06-29 18:52 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/84628372.shtml)
+- 2026-06-29 18:29 - [张杰我九岁就跟你了](https://www.blog.minike.top/Article/details/9873072082.shtml)
+- 2026-06-29 18:39 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/304165048.shtml)
+- 2026-06-29 18:53 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/9341510.shtml)
+- 2026-06-29 18:54 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/83849.shtml)
+- 2026-06-29 18:40 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/49315210984.shtml)
+- 2026-06-29 18:50 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.kurohicncr.top/Article/details/25184104.shtml)
+- 2026-06-29 18:28 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/546676.shtml)

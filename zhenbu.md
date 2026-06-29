@@ -1,59 +1,57 @@
-# 湖南省第十五届运动会9月举行 比赛场馆均已竣工验收
+# 华安基金：地缘风险提振油运景气，高股息央企配置价值凸显
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新网长沙6月8日电 (记者 邓霞)记者8日从新闻发布会上获悉，湖南省第十五届运动会将于9月6日至16日在益阳市举行，湖南省第十二届残疾人运动会也将于9月26日至29日在益阳举办。目前，赛事各项筹备工作正有力有序推进。 本届湖南省运会由湖南省人民政府主办，湖南省体育局、益阳市人民政府承办，以“益山益水益阳，更快更高更强”为主题口号，会歌为《相约益阳》。会徽以益阳首字母“YY”勾
+行情回顾及主要观点： 港股方面，上周恒生港股通中国央企红利指数上涨0.25%，恒生指数下跌0.78%，恒生科技指数下跌0.63%。A股方面，上周中证国企红利指数上涨0.45%，沪深300上涨0.81%。（数据来源：Wind，截至2026/4/30，均为对应全收益指数的收益率） 受地缘局势持续紧张的催化，全球避险情绪升温，具备重资产“护城河”与稳定现金流特征的油运板块配置价值进一
 
 ## 正文
 
-中新网长沙6月8日电 (记者 邓霞)记者8日从新闻发布会上获悉，湖南省第十五届运动会将于9月6日至16日在益阳市举行，湖南省第十二届残疾人运动会也将于9月26日至29日在益阳举办。
+行情回顾及主要观点： 港股方面，上周恒生港股通中国央企红利指数上涨0.25%，恒生指数下跌0.78%，恒生科技指数下跌0.63%。
 
-目前，赛事各项筹备工作正有力有序推进。
+A股方面，上周中证国企红利指数上涨0.45%，沪深300上涨0.81%。
 
-本届湖南省运会由湖南省人民政府主办，湖南省体育局、益阳市人民政府承办，以“益山益水益阳，更快更高更强”为主题口号，会歌为《相约益阳》。
+（数据来源：Wind，截至2026/4/30，均为对应全收益指数的收益率） 受地缘局势持续紧张的催化，全球避险情绪升温，具备重资产“护城河”与稳定现金流特征的油运板块配置价值进一步凸显。
 
-会徽以益阳首字母“YY”勾勒奔跑姿态，融入绿叶、竹篾、千两茶篓工艺、朝阳等元素，展现活力多姿、热情好客的城市风貌。
+上周国际油价受美伊和谈反复扰动，布伦特原油一度冲高至114美元/桶，虽后续有所回落，但霍尔木兹海峡实质封锁未解，供应端紧绷格局为油运需求提供有力支撑。
 
-吉祥物“竹娃”“茶宝”以翠竹、千两茶为原型，展现益阳“楠竹之乡”“黑茶之乡”的城市名片。
+油轮运价维持历史高位区间，中远海能一季度归母净利润同比增长超200%，充分验证行业高景气。
 
-湖南省第十五届运动会竞赛项目设置贴合湖南体育发展实际，兼顾竞技性、群众性与普惠性，共设青少年组29个大项、成年组12个大项，届时将有14个市州和省体校共15个代表团参赛。
+在此背景下，恒生港股通中国央企红利指数中权重占比较高的油运及能源类央企，凭借高景气与高股息的双重属性，成为资金避险的重要方向。
 
-湖南省第十二届残疾人运动会以“自信自强，益美益阳”为主题，设置11个大项，将有700名运动员参赛。
+地缘风险反复扰动，油价高位宽幅震荡。
 
-赛事同步设置象棋、飞镖等群众性体育项目，推动残疾人群众体育广泛开展。
+上周国际油价上演“过山车”行情。
 
 ## 相关推荐
 
-- 2026-06-29 18:32 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 18:37 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 18:23 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 18:32 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 18:32 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 18:22 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 18:33 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 18:32 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 18:36 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 18:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 18:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 18:25 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 18:45 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 18:42 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 18:39 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 18:43 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 18:33 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 18:42 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 18:31 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 18:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 18:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 18:46 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 18:24 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 18:27 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:29 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/37807023996.shtml)
-- 2026-06-29 18:23 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/42469033.shtml)
-- 2026-06-29 18:27 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/63954.shtml)
-- 2026-06-29 18:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/020115.shtml)
-- 2026-06-29 18:23 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/017977177.shtml)
-- 2026-06-29 18:41 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/138552089714.shtml)
-- 2026-06-29 18:43 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/3898548.shtml)
-- 2026-06-29 18:25 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/68222770252.shtml)
-- 2026-06-29 18:41 - [沉睡花园](https://www.share.minike.top/Article/details/8265845.shtml)
-- 2026-06-29 18:22 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/125380.shtml)
-- 2026-06-29 18:20 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/4592466345.shtml)
-- 2026-06-29 18:22 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/882414241432.shtml)
-- 2026-06-29 18:18 - [谢依霖夸杨幂靠谱](https://www.blog.kurohicncr.top/Article/details/0533613.shtml)
-- 2026-06-29 18:25 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/85139.shtml)
-- 2026-06-29 18:47 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/759300545968.shtml)
+- 2026-06-29 18:27 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.kurohicncr.top/Article/details/629689674320.shtml)
+- 2026-06-29 18:41 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/35469.shtml)
+- 2026-06-29 18:52 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/23517945281.shtml)
+- 2026-06-29 18:47 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/0424067.shtml)
+- 2026-06-29 18:29 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/47005.shtml)
+- 2026-06-29 18:27 - [王楚钦开门红](https://www.blog.minike.top/Article/details/078725570.shtml)
+- 2026-06-29 18:39 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/54323677.shtml)
+- 2026-06-29 18:44 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/15367682454.shtml)
+- 2026-06-29 18:25 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/766852.shtml)
+- 2026-06-29 18:42 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/54358472822.shtml)
+- 2026-06-29 18:53 - [中国战机大片上新](https://www.share.minike.top/Article/details/411720.shtml)
+- 2026-06-29 18:29 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/551493929979.shtml)
+- 2026-06-29 18:30 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/934433.shtml)
+- 2026-06-29 18:27 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/412759.shtml)
+- 2026-06-29 18:48 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/68218611.shtml)

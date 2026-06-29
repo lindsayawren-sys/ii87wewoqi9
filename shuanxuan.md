@@ -1,56 +1,61 @@
-# 供需新格局催生新机遇，工业有色ETF华夏6月8日起重磅发行
+# 联想集团毛世杰：让机器人更聪明、更高效、更安全
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-2026年，全球资源博弈进入深水区，工业有色金属作为国家战略基石材料，正迎来供需共振带来的战略性配置窗口。供给端，印尼Grasberg铜矿受2025年泥石流冲击，复产时点由原定的2027年初推迟至2028年，目前产能仅维持四到五成，直接加剧全球铜矿紧缺；几内亚拟出台铝土矿出口管控，让本就偏紧的铝产业链雪上加霜。需求侧，中国经济韧性凸显：4月制造业PMI录得50.3%，连续两个月
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。联想集团副总裁毛世杰出席并演讲。 以下为演讲实录： 毛世杰：感谢各位来宾，我是来自联想集团的毛世杰，今天非常荣幸在这个会场给大家交流一下联想在机器人这个领域新的进展，到现在很多人都不知道我们在做机器人，联想在做机器人已经做了好几年的时间了。尤其是在去年我们正式成立了机器人
 
 ## 正文
 
-2026年，全球资源博弈进入深水区，工业有色金属作为国家战略基石材料，正迎来供需共振带来的战略性配置窗口。
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
 
-供给端，印尼Grasberg铜矿受2025年泥石流冲击，复产时点由原定的2027年初推迟至2028年，目前产能仅维持四到五成，直接加剧全球铜矿紧缺；几内亚拟出台铝土矿出口管控，让本就偏紧的铝产业链雪上加霜。
+联想集团副总裁毛世杰出席并演讲。
 
-需求侧，中国经济韧性凸显：4月制造业PMI录得50.3%，连续两个月站上荣枯线，生产与新订单同步扩张，“十五五”规划首年基建提速，前4个月狭义基建投资同比增长4.3%，水网、电网、算力网等新基建持续释放铜、铝等工业金属的真实需求。
+以下为演讲实录： 毛世杰：感谢各位来宾，我是来自联想集团的毛世杰，今天非常荣幸在这个会场给大家交流一下联想在机器人这个领域新的进展，到现在很多人都不知道我们在做机器人，联想在做机器人已经做了好几年的时间了。
 
-在海外供给收紧、国内需求回暖的双重支撑下，华夏中证工业有色金属主题交易型开放式指数证券投资基金（简称：工业有色ETF华夏，代码：515040）将于6月8日正式发行，为投资者提供一键布局铜、铝、稀土、钨等工业有色龙头的高效工具。
+尤其是在去年我们正式成立了机器人实验室，专注在机器人的领域。
 
-01 更纯粹“工业”龙头，高弹性捕捉β收益 对于追求贝塔（Beta）的投资者而言，指数的“纯度”决定了收益的锐度。
+机器人这个话题是一个很长远的话题并不新鲜，好几年前我们看到长线里面都有机械臂代替员工来做各种各样的操作，那个时候我们叫它机器人1.0，后来由于SLAM这些技术的变化，机器人有一定的移动性耳熟能详就是家里的扫地机器人，还有酒店的送餐机器人，他们用的这种技术模型基本上就是SLAM+CNN的一些检测识别的算法。
 
-中证工业有色金属主题指数（简称：工业有色，代码：H11059.CSI）以中证全指为样本空间，精选铜、铝、稀土等赛道中市值较大、流动性较好的30家核心上市公司，打造出一只真正意义上的“工业有色龙头战队”。
+今天的机器人突然一下这么火爆，本质上就是Transformer这种架构给AI带来的能力，然后赋能机器人，使得机器人只能在一个固定环境担任务，变成了一个可以到开放环境和多任务的状态，所以它的机器人的应用空间一下子大大的提高了。
 
-从申万三级行业来看，指数中铜板块权重30.8%、铝20.2%、稀土14.6%、钨8.1%，四大核心板块合计超73%，显著高于细分有色（57.0%）和有色金属（56.4%），同时黄金等贵金属占比极低，是更纯粹的“工业”有色资产。
+我们所有人都憧憬着人形机器人，未来的机器人4.0，它是一个通用任务，事先不需要设定任务的机器人。
 
-从成分股市值来看，前十大权重股合计权重为54.20%，成份股平均市值为1230亿，市值在500亿以上的公司权重占比合计超过70%，中大盘蓝筹特征突出。
+这种机器人今天在基础的技术模型方面还在探索的过程中，我们有不少的企业实际上是在做3.0，对外宣传是4.0，所以有一个基础的概念先给大家解释一下。
 
 ## 相关推荐
 
-- 2026-06-29 18:21 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 18:22 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 18:18 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 18:30 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 18:23 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 18:42 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 18:31 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 18:20 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 18:28 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 18:47 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 18:43 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 18:30 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 18:49 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 18:39 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 18:53 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 18:27 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 18:53 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 18:50 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 18:53 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 18:40 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 18:30 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 18:26 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 18:45 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 18:44 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 18:32 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/497215059268.shtml)
-- 2026-06-29 18:44 - [V8](http://www.share.kurohicncr.top/Article/details/10950859.shtml)
-- 2026-06-29 18:46 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/297269179598.shtml)
-- 2026-06-29 18:20 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/50659106.shtml)
-- 2026-06-29 18:30 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/74380.shtml)
-- 2026-06-29 18:45 - [毒液2](http://www.blog.kurohicncr.top/Article/details/9416242204.shtml)
-- 2026-06-29 18:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/29759495291.shtml)
-- 2026-06-29 18:31 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/3520073.shtml)
-- 2026-06-29 18:38 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/46398.shtml)
-- 2026-06-29 18:20 - [首个靠AI躺赢的国家](https://www.share.kurohicncr.top/Article/details/350100692.shtml)
-- 2026-06-29 18:21 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.kurohicncr.top/Article/details/509756261898.shtml)
-- 2026-06-29 18:47 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/3756810839.shtml)
-- 2026-06-29 18:31 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/66074758478.shtml)
-- 2026-06-29 18:45 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/34672.shtml)
-- 2026-06-29 18:38 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/4404697255.shtml)
+- 2026-06-29 18:43 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/30954037021.shtml)
+- 2026-06-29 18:41 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/27980276593.shtml)
+- 2026-06-29 18:46 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/465988105.shtml)
+- 2026-06-29 18:32 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/471154194233.shtml)
+- 2026-06-29 18:40 - [急先锋](http://www.blog.kurohicncr.top/Article/details/012832271.shtml)
+- 2026-06-29 18:31 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.kurohicncr.top/Article/details/69308.shtml)
+- 2026-06-29 18:42 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/1281295.shtml)
+- 2026-06-29 18:43 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/10083439.shtml)
+- 2026-06-29 18:31 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/96693849790.shtml)
+- 2026-06-29 18:33 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/9216394.shtml)
+- 2026-06-29 18:51 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/83256.shtml)
+- 2026-06-29 18:30 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/34987994.shtml)
+- 2026-06-29 18:33 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/569342574.shtml)
+- 2026-06-29 18:41 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/13453334.shtml)
+- 2026-06-29 18:47 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/969605515909.shtml)

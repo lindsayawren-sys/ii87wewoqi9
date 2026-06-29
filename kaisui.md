@@ -1,44 +1,47 @@
-# 外交部：绝不允许日菲侵害中方海洋权益
+# 河南省药品监督管理局党组书记、局长田文才接受审查调查
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-新华社北京6月9日电(记者曹嘉玥、万倩仪)外交部发言人林剑6月9日在例行记者会上答问时重申，中国在台湾以东海域拥有专属经济区和大陆架。日本和菲律宾绕开中方擅自启动所谓“海域划界谈判”，严重违反包括《联合国海洋法公约》在内的国际法和国际关系基本准则，严重侵害中方的海洋权益，中方绝不允许。
+中新网5月9日电 据河南省纪委监委消息，河南省市场监督管理局党组成员，省药品监督管理局党组书记、局长田文才涉嫌严重违纪违法，目前正接受河南省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-新华社北京6月9日电(记者曹嘉玥、万倩仪)外交部发言人林剑6月9日在例行记者会上答问时重申，中国在台湾以东海域拥有专属经济区和大陆架。
-
-日本和菲律宾绕开中方擅自启动所谓“海域划界谈判”，严重违反包括《联合国海洋法公约》在内的国际法和国际关系基本准则，严重侵害中方的海洋权益，中方绝不允许。
+中新网5月9日电 据河南省纪委监委消息，河南省市场监督管理局党组成员，省药品监督管理局党组书记、局长田文才涉嫌严重违纪违法，目前正接受河南省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 18:18 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 18:43 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 18:42 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 18:25 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 18:46 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 18:40 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 18:24 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 18:37 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 18:40 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 18:42 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 18:28 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 18:26 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 18:51 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 18:52 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 18:50 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 18:29 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 18:47 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 18:24 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 18:27 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 18:53 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 18:33 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 18:43 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 18:51 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 18:36 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 18:24 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:47 - [赵今麦时隔五年再演李诗情](https://www.share.kurohicncr.top/Article/details/605561906068.shtml)
-- 2026-06-29 18:31 - [乔家的儿女](http://www.share.minike.top/Article/details/31524865226.shtml)
-- 2026-06-29 18:22 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/99780097.shtml)
-- 2026-06-29 18:35 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/28927845928.shtml)
-- 2026-06-29 18:38 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/4984601.shtml)
-- 2026-06-29 18:24 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/6821095.shtml)
-- 2026-06-29 18:39 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/7184199.shtml)
-- 2026-06-29 18:26 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/39384.shtml)
-- 2026-06-29 18:23 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/708879755796.shtml)
-- 2026-06-29 18:39 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/04841569084.shtml)
-- 2026-06-29 18:42 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/57006147.shtml)
-- 2026-06-29 18:35 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/26162.shtml)
-- 2026-06-29 18:27 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/551945.shtml)
-- 2026-06-29 18:18 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.minike.top/Article/details/46769.shtml)
-- 2026-06-29 18:29 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/845291573091.shtml)
+- 2026-06-29 18:35 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/3421154.shtml)
+- 2026-06-29 18:37 - [叠纸](https://www.share.kurohicncr.top/Article/details/88093911.shtml)
+- 2026-06-29 18:53 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/6174081665.shtml)
+- 2026-06-29 18:25 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/65150426.shtml)
+- 2026-06-29 18:51 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/80329105.shtml)
+- 2026-06-29 18:51 - [海口塔吊事故处罚结果公布](http://www.blog.kurohicncr.top/Article/details/21747.shtml)
+- 2026-06-29 18:37 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/971158.shtml)
+- 2026-06-29 18:48 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/0565362019.shtml)
+- 2026-06-29 18:31 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/22732.shtml)
+- 2026-06-29 18:53 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/42479014531.shtml)
+- 2026-06-29 18:32 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.kurohicncr.top/Article/details/69109.shtml)
+- 2026-06-29 18:38 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/37015486127.shtml)
+- 2026-06-29 18:49 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/47422543.shtml)
+- 2026-06-29 18:24 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.minike.top/Article/details/1983357.shtml)
+- 2026-06-29 18:40 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/37229.shtml)

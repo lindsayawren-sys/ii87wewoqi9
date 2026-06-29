@@ -1,53 +1,52 @@
-# 香港首份五年规划拟于6月15日起开展公众咨询
+# 统一企业中国早盘涨近4% 第一季度税后利润同比增长22.5%
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新社香港6月9日电 香港特区行政长官李家超9日出席行政会议前在特区政府总部大楼会见媒体时宣布，特区政府将于6月15日就香港第一个五年规划展开公众咨询，为期两个月。 李家超强调，香港编制第一个五年规划是历史性的一步，意义重大，让香港市民和社会各界受惠，包括巩固提升香港在国际金融、航运、贸易、创科等领域优势地位；让香港抓紧更多国家战略和发展所带来的机遇；有助于香港更好融入和服务国
+统一企业中国（00220）早盘涨超3%，截至发稿，股价上涨3.91%，现报7.70港元，成交额847.96万港元。 5月7日，统一企业中国公布，今年一季度税后利润约7.37亿人民币，同比升22.46%。华泰证券指出，剔除一次性收益（税后约7300万元）后税后利润同比增长10.3%，业绩具备韧性。收入端，26Q1整体收入同比增长中单位数，其中饮料业务与食品业务收入均同比增长中单位
 
 ## 正文
 
-中新社香港6月9日电 香港特区行政长官李家超9日出席行政会议前在特区政府总部大楼会见媒体时宣布，特区政府将于6月15日就香港第一个五年规划展开公众咨询，为期两个月。
+统一企业中国（00220）早盘涨超3%，截至发稿，股价上涨3.91%，现报7.70港元，成交额847.96万港元。
 
-李家超强调，香港编制第一个五年规划是历史性的一步，意义重大，让香港市民和社会各界受惠，包括巩固提升香港在国际金融、航运、贸易、创科等领域优势地位；让香港抓紧更多国家战略和发展所带来的机遇；有助于香港更好融入和服务国家发展大局，与市民共享更多发展红利。
+5月7日，统一企业中国公布，今年一季度税后利润约7.37亿人民币，同比升22.46%。
 
-他表示，五年规划能指明方向，让香港发展更有远见、更可持续，将贯彻“一国两制”方针，坚持“爱国者治港”，落实发展经济、改善民生的施政目标，聚焦策略方向，将改善民生作为出发点和落脚点，将有为政府和高效市场结合，强化治理效能。
+华泰证券指出，剔除一次性收益（税后约7300万元）后税后利润同比增长10.3%，业绩具备韧性。
 
-李家超指出，五年规划是具前瞻性、策略性和可操作性的指导文件，每年发表的施政报告将更有效对接和回应五年规划的发展方向和要求。
+收入端，26Q1整体收入同比增长中单位数，其中饮料业务与食品业务收入均同比增长中单位数，食品业务的收入增速略好于饮料业务；OEM业务收入同比基本持平。
 
-他说，特区政府政制及内地事务局作为主责部门，正全速编写公众咨询文件，计划于6月15日发布，广听民心、广纳民情，全力为香港编制好属于广大市民的五年规划。
+公司力争在市场竞争中维持价盘的稳定和产品力的领先，看好公司经营维持稳健，分红比例高企（25年分红比例100%），股息率具备吸引力。
 
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 18:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 18:42 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 18:20 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 18:44 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 18:44 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 18:34 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 18:40 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 18:40 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 18:34 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 18:44 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 18:43 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 18:43 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 18:51 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 18:33 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 18:49 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 18:29 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 18:37 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 18:52 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 18:31 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 18:41 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:31 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/009322096.shtml)
-- 2026-06-29 18:34 - [金牌调解](https://www.share.kurohicncr.top/Article/details/65369.shtml)
-- 2026-06-29 18:23 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/20946898467.shtml)
-- 2026-06-29 18:19 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/98417509182.shtml)
-- 2026-06-29 18:34 - [天道](http://www.share.minike.top/Article/details/30419924896.shtml)
-- 2026-06-29 18:45 - [滚石点名酒店员工说有急救培训](https://www.share.minike.top/Article/details/552543899395.shtml)
-- 2026-06-29 18:34 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/9206235120.shtml)
-- 2026-06-29 18:30 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/40623704076.shtml)
-- 2026-06-29 18:23 - [沙特外交大臣将访华](https://www.blog.minike.top/Article/details/810160274.shtml)
-- 2026-06-29 18:18 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/177311792.shtml)
-- 2026-06-29 18:46 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/86465879.shtml)
-- 2026-06-29 18:34 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/037923157.shtml)
-- 2026-06-29 18:30 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/1423026.shtml)
-- 2026-06-29 18:40 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/45133924968.shtml)
-- 2026-06-29 18:38 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/30339784.shtml)
+- 2026-06-29 18:42 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/26578.shtml)
+- 2026-06-29 18:37 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/74119.shtml)
+- 2026-06-29 18:38 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/903752082.shtml)
+- 2026-06-29 18:30 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/92047.shtml)
+- 2026-06-29 18:51 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/072959603.shtml)
+- 2026-06-29 18:52 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/984451992.shtml)
+- 2026-06-29 18:38 - [NBA交易](http://www.share.minike.top/Article/details/206594978.shtml)
+- 2026-06-29 18:27 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/33663555174.shtml)
+- 2026-06-29 18:41 - [官媒首曝六代机？大V解读](http://www.share.minike.top/Article/details/167826.shtml)
+- 2026-06-29 18:46 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/56609878366.shtml)
+- 2026-06-29 18:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/3971917.shtml)
+- 2026-06-29 18:53 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/042450.shtml)
+- 2026-06-29 18:27 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/2562426.shtml)
+- 2026-06-29 18:27 - [黄金也扛不住了](http://www.share.minike.top/Article/details/733971767596.shtml)
+- 2026-06-29 18:34 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.kurohicncr.top/Article/details/3838118.shtml)

@@ -1,47 +1,56 @@
-# 德康农牧获董事长王德根增持5.6万股 每股作价约50.39港元
+# Microchip财报超预期并给出乐观指引，周五盘前股价上涨3%
 
-> 更新时间：2026-06-29 18:48:03 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，6月5日，董事长王德根增持德康农牧（02419）5.6万股，每股作价50.3918港元，总金额约为282.19万港元。增持后最新持股数目约为1271.96万股，最新持股比例为8.07%。责任编辑：卢昱君
+Microchip Technology周五盘前股价上涨约3%，此前这家芯片制造商公布的第四财季盈利和营收双双超出华尔街预期，并对当前季度给出了强于预期的业绩指引。 财报显示，截至3月31日的第四财季，Microchip营收为15.4亿美元，同比下降约22%，但高于FactSet调查分析师预期的14亿美元。调整后每股收益为0.48美元，同样高于市场预期的0.30美元。 公司表示
 
 ## 正文
 
-香港联交所最新资料显示，6月5日，董事长王德根增持德康农牧（02419）5.6万股，每股作价50.3918港元，总金额约为282.19万港元。
+Microchip Technology周五盘前股价上涨约3%，此前这家芯片制造商公布的第四财季盈利和营收双双超出华尔街预期，并对当前季度给出了强于预期的业绩指引。
 
-增持后最新持股数目约为1271.96万股，最新持股比例为8.07%。
+财报显示，截至3月31日的第四财季，Microchip营收为15.4亿美元，同比下降约22%，但高于FactSet调查分析师预期的14亿美元。
 
-责任编辑：卢昱君
+调整后每股收益为0.48美元，同样高于市场预期的0.30美元。
+
+公司表示，尽管终端市场需求仍存在不确定性，但客户库存调整已进入尾声，订单趋势正在改善。
+
+更令市场鼓舞的是，公司预计第一财季营收在14.4亿至14.7亿美元之间，中位值为14.55亿美元，远超FactSet分析师预期的13.4亿美元。
+
+Microchip的强劲财报和乐观指引与经济疲弱信号形成鲜明对比。
+
+分析人士指出，Microchip约60%的收入来自工业和汽车领域，其业绩回暖可能预示着更广泛的芯片行业正在触底反弹。
+
+该股在过去12个月中累计下跌约38%，落后于费城半导体指数的表现。
 
 ## 相关推荐
 
-- 2026-06-29 18:36 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 18:33 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 18:44 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 18:46 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 18:23 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 18:33 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 18:34 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 18:43 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-29 18:46 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 18:20 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 18:29 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 18:31 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 18:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 18:35 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 18:24 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 18:47 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 18:45 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 18:40 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 18:51 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 18:36 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 18:26 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:37 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/2682231.shtml)
-- 2026-06-29 18:35 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/2084396.shtml)
-- 2026-06-29 18:26 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/8125875.shtml)
-- 2026-06-29 18:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/419664.shtml)
-- 2026-06-29 18:44 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/43656501667.shtml)
-- 2026-06-29 18:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/1243900834.shtml)
-- 2026-06-29 18:42 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/404163154316.shtml)
-- 2026-06-29 18:23 - [女心理师](https://www.blog.kurohicncr.top/Article/details/885766476526.shtml)
-- 2026-06-29 18:32 - [朱必达辞去湖南人大常委会委员职务](https://www.share.minike.top/Article/details/69965975186.shtml)
-- 2026-06-29 18:43 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/98306418813.shtml)
-- 2026-06-29 18:31 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/881928.shtml)
-- 2026-06-29 18:47 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/47125045588.shtml)
-- 2026-06-29 18:40 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/80085.shtml)
-- 2026-06-29 18:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/23708623102.shtml)
-- 2026-06-29 18:24 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/33710613710.shtml)
+- 2026-06-29 18:32 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/66630720356.shtml)
+- 2026-06-29 18:32 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/293060239.shtml)
+- 2026-06-29 18:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/5436238.shtml)
+- 2026-06-29 18:34 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/53361154.shtml)
+- 2026-06-29 18:33 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/823065520.shtml)
+- 2026-06-29 18:27 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/66828.shtml)
+- 2026-06-29 18:24 - [周生如故](https://www.share.minike.top/Article/details/39203.shtml)
+- 2026-06-29 18:41 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/8694268794.shtml)
+- 2026-06-29 18:52 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/13620.shtml)
+- 2026-06-29 18:33 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.kurohicncr.top/Article/details/95571337.shtml)
+- 2026-06-29 18:47 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.kurohicncr.top/Article/details/71164.shtml)
+- 2026-06-29 18:37 - [啊啊啊](https://www.share.minike.top/Article/details/832988427883.shtml)
+- 2026-06-29 18:37 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/12586736530.shtml)
+- 2026-06-29 18:25 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/462645493.shtml)
+- 2026-06-29 18:47 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/804402.shtml)

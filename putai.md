@@ -1,56 +1,57 @@
-# 董路谈足球小将第1000场比赛：“中国足球什么都不缺，只缺胜利”
+# 俄罗斯同意延长停火并换俘 乌克兰称不会袭击红场阅兵
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-中新网圣保罗6月9日电 题：董路谈足球小将第1000场比赛：“中国足球什么都不缺，只缺胜利” 中新网记者 林春茵 “中国足球什么都不缺，只缺胜利。”中国足球小将项目创始人董路8日晚间在巴西圣保罗瓜鲁柳斯国际机场接受中新网记者采访时说。 当天23时许，在欧洲赛事荷兰杯闯入四强的中国足球小将U17、U16混编队从荷兰飞抵圣保罗，即将开启“巴西中国文化年国际青少年足球邀请赛暨比亚迪×
+新华社莫斯科/基辅5月8日电(记者黄河 李东旭)俄罗斯总统助理乌沙科夫8日晚表示，俄方同意并支持美国总统特朗普提出的延长停火和俄乌交换被俘人员的方案。乌克兰总统泽连斯基下令，莫斯科红场9日举行的阅兵活动不会成为乌方攻击目标。乌沙科夫说，俄方同意美方将俄乌停火延长至5月11日的提议，并支持美方关于俄乌双方在11日前互换1000名被俘人员的提议。据他介绍，上述提议是俄美双方电话沟通
 
 ## 正文
 
-中新网圣保罗6月9日电 题：董路谈足球小将第1000场比赛：“中国足球什么都不缺，只缺胜利” 中新网记者 林春茵 “中国足球什么都不缺，只缺胜利。
+新华社莫斯科/基辅5月8日电(记者黄河 李东旭)俄罗斯总统助理乌沙科夫8日晚表示，俄方同意并支持美国总统特朗普提出的延长停火和俄乌交换被俘人员的方案。
 
-”中国足球小将项目创始人董路8日晚间在巴西圣保罗瓜鲁柳斯国际机场接受中新网记者采访时说。
+乌克兰总统泽连斯基下令，莫斯科红场9日举行的阅兵活动不会成为乌方攻击目标。
 
-当天23时许，在欧洲赛事荷兰杯闯入四强的中国足球小将U17、U16混编队从荷兰飞抵圣保罗，即将开启“巴西中国文化年国际青少年足球邀请赛暨比亚迪×中国足球小将世界挑战赛·巴西站”征程。
+乌沙科夫说，俄方同意美方将俄乌停火延长至5月11日的提议，并支持美方关于俄乌双方在11日前互换1000名被俘人员的提议。
 
-作为中巴文化年重点体育人文交流活动，此次活动由巴西文化部支持，美洲国际大学生体育联合会与巴西大学生体育联合会发起，巴西中国友好协会与中复体育共同执行。
+据他介绍，上述提议是俄美双方电话沟通达成，“特朗普总统的上述提议特意选在卫国战争胜利81周年之际提出”。
 
-据巴西中国友好协会常务副会长刘伟介绍，此行球队将先后对阵圣保罗、帕尔梅拉斯、桑托斯、伊图阿诺、巴伊亚和维多利亚等巴西传统足球俱乐部青训梯队。
+泽连斯基在社交媒体发文称，在美方斡旋的谈判框架内，俄方同意与乌方互换战俘的方案，5月9日至11日也应实现停火。
 
-在此期间训练交流并参访比亚迪巴西工厂、博物馆等。
+他表示，释放战俘是俄乌冲突需要解决的关键人道主义问题之一，也是决定乌方立场的重要根据。
 
-6月22日，球队转赴墨西哥继续两场比赛，现场观摩美加墨世界杯。
+乌方正在持续努力让被囚禁的乌克兰人返回家园。
 
-当晚，经过10余个小时长途飞行的球员神态轻松。
+他指示乌方团队立即为换俘做好一切必要准备。
 
 ## 相关推荐
 
-- 2026-06-29 18:18 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 18:21 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 18:42 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 18:35 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 18:41 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 18:41 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 18:33 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 18:44 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 18:30 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 18:42 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 18:45 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 18:24 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 18:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 18:46 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 18:26 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 18:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 18:47 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 18:51 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 18:43 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 18:44 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 18:30 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:36 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/3298814255.shtml)
-- 2026-06-29 18:20 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/12428892.shtml)
-- 2026-06-29 18:38 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/440512180.shtml)
-- 2026-06-29 18:46 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.minike.top/Article/details/069943.shtml)
-- 2026-06-29 18:20 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/21699905298.shtml)
-- 2026-06-29 18:28 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/085476980506.shtml)
-- 2026-06-29 18:32 - [沙特外交大臣将访华](http://www.blog.kurohicncr.top/Article/details/94112.shtml)
-- 2026-06-29 18:37 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/79789.shtml)
-- 2026-06-29 18:23 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/05590.shtml)
-- 2026-06-29 18:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/4561862.shtml)
-- 2026-06-29 18:41 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/0387706.shtml)
-- 2026-06-29 18:34 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/38054163.shtml)
-- 2026-06-29 18:23 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/435989247151.shtml)
-- 2026-06-29 18:26 - [机器人学校开学了](http://www.share.kurohicncr.top/Article/details/34154705.shtml)
-- 2026-06-29 18:25 - [医药生物行业今日涨5.91%](https://www.blog.minike.top/Article/details/5291531505.shtml)
+- 2026-06-29 18:32 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/401592873.shtml)
+- 2026-06-29 18:30 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/74113396.shtml)
+- 2026-06-29 18:42 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/6117478875.shtml)
+- 2026-06-29 18:24 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/44932450926.shtml)
+- 2026-06-29 18:41 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/689834579.shtml)
+- 2026-06-29 18:51 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/101473446.shtml)
+- 2026-06-29 18:53 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/77714.shtml)
+- 2026-06-29 18:50 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/802909607572.shtml)
+- 2026-06-29 18:38 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/60033830861.shtml)
+- 2026-06-29 18:50 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/6190509.shtml)
+- 2026-06-29 18:34 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.minike.top/Article/details/68262.shtml)
+- 2026-06-29 18:50 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/90701570.shtml)
+- 2026-06-29 18:32 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/211254.shtml)
+- 2026-06-29 18:35 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/9017792901.shtml)
+- 2026-06-29 18:27 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/38910.shtml)

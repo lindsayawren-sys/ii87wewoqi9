@@ -1,58 +1,61 @@
-# 周期轮动下多元配置迎机遇 银华华瑞 FOF正在发行中
+# 广西实现县级中医医疗机构全覆盖 优质资源下沉基层
 
-> 更新时间：2026-06-29 18:48:02 UTC+8
+> 更新时间：2026-06-29 18:54:02 UTC+8
 
 ## 摘要
 
-全球市场起伏加剧，单一资产单边波动、股债走势同步抬升等扰动因素接连显现，如何筛选优质资产、借助多元配置平滑波动，成为当前资产配置的重要命题。 面对这一问题，银华基金FOF投资管理部基金经理王嘉鹏给出了朴素而直接的答案：在周期的往复轮转中，力争寻找高性价比的资产。 立足于周期思维，王嘉鹏长期深耕大类资产配置与基金优选，打造出多只产品。眼下，拟由其担纲的银华华瑞多元配置三个月持有期
+中新网南宁5月7日电(杨志雄 黄艳梅)广西壮族自治区中医药管理局局长黎甲文7日在新闻发布会上介绍，“十四五”时期，广西持续完善中医药服务网络，着力提升民众看中医、用中医的便利性和可及性。广西近五年新建了10家县级中医医院，县办公立中医医疗机构首次实现100%覆盖。 广西中医药(壮瑶医药)“十四五”发展情况新闻发布会当日在南宁举行。黎甲文介绍，“十四五”时期，广西坚持传承精华、守
 
 ## 正文
 
-全球市场起伏加剧，单一资产单边波动、股债走势同步抬升等扰动因素接连显现，如何筛选优质资产、借助多元配置平滑波动，成为当前资产配置的重要命题。
+中新网南宁5月7日电(杨志雄 黄艳梅)广西壮族自治区中医药管理局局长黎甲文7日在新闻发布会上介绍，“十四五”时期，广西持续完善中医药服务网络，着力提升民众看中医、用中医的便利性和可及性。
 
-面对这一问题，银华基金FOF投资管理部基金经理王嘉鹏给出了朴素而直接的答案：在周期的往复轮转中，力争寻找高性价比的资产。
+广西近五年新建了10家县级中医医院，县办公立中医医疗机构首次实现100%覆盖。
 
-立足于周期思维，王嘉鹏长期深耕大类资产配置与基金优选，打造出多只产品。
+广西中医药(壮瑶医药)“十四五”发展情况新闻发布会当日在南宁举行。
 
-眼下，拟由其担纲的银华华瑞多元配置三个月持有期混合（FOF）（A类：027506；C类：027507）正在发行中。
+黎甲文介绍，“十四五”时期，广西坚持传承精华、守正创新，强化服务体系内涵建设，优化人才培养机制，打造传承创新平台，推动中医药产业融合发展，全区中医药(壮瑶医药)传承创新发展取得显著成效，中医药服务可及性、便捷性显著提升。
 
-该产品致力于为投资者提供多元配置的解决方案，通过动态调整力求适应多变市场。
+“十四五”时期，广西中医年总诊疗人次数达到6003.52万人次，常住人口人均1.2次；全区县级以上中医类医院床位数达4.45万张，每千人口中医类医院床位数达0.9张，分别比“十三五”末增长17.72%、18.42%。
 
-立足周期思维，摒弃静态拼盘配置 在王嘉鹏看来，所有的资产都有其固定的周期轮动规律，没有一种资产可以长期维持超高的收益率。
+广西持续健全完善中医药(壮瑶医药)政策体系，新修订的《广西壮族自治区中医药条例》正式施行，中医药(壮瑶医药)振兴发展重大工程持续推进，广西14个设区市成立或加挂中医药局。
 
-基于这一判断，他锚定全球资产，通过多元均衡配置力争降低市场波动的影响，追求不同品类阶段性投资机会。
+“十四五”时期，广西中医类医疗机构达2886个，比“十三五”增长35.2%；中医类医院达150家，其中三级甲等23家，11家县级中医医院达到三级标准。
 
-此次发行的银华华瑞多元配置三个月持有期混合（FOF）正是这一理念的落地实践，该基金将关注中债、A股、港股、美股、黄金等资产的投资机遇，力争兼顾组合的风险和收益。
+广西在全区社区卫生服务中心和乡镇卫生院建设了1441个中医馆，实现全覆盖，并进入“从有到优”的新发展阶段。
 
 ## 相关推荐
 
-- 2026-06-29 18:35 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 18:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 18:22 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 18:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 18:40 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 18:35 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 18:24 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 18:22 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 18:19 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 18:47 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 18:29 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 18:18 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 18:46 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 18:30 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 18:53 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 18:42 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 18:53 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 18:33 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 18:46 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 18:26 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 18:51 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 18:44 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 18:25 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 18:35 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 18:44 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 18:49 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 18:28 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:32 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/53727.shtml)
-- 2026-06-29 18:23 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/34652286399.shtml)
-- 2026-06-29 18:41 - [V8](http://www.blog.minike.top/Article/details/04601332440.shtml)
-- 2026-06-29 18:19 - [小娘惹](https://www.blog.minike.top/Article/details/49812.shtml)
-- 2026-06-29 18:35 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/15616.shtml)
-- 2026-06-29 18:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/01955176292.shtml)
-- 2026-06-29 18:33 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/321269.shtml)
-- 2026-06-29 18:46 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/706236517.shtml)
-- 2026-06-29 18:37 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/235539339344.shtml)
-- 2026-06-29 18:35 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/87403182388.shtml)
-- 2026-06-29 18:40 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/50288555610.shtml)
-- 2026-06-29 18:38 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/43322171.shtml)
-- 2026-06-29 18:25 - [王安宇尊重田曦薇的一切选择](https://www.share.minike.top/Article/details/496921.shtml)
-- 2026-06-29 18:19 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/5187216.shtml)
-- 2026-06-29 18:44 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/19420255657.shtml)
+- 2026-06-29 18:48 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/068366.shtml)
+- 2026-06-29 18:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/59009602.shtml)
+- 2026-06-29 18:28 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/500793880192.shtml)
+- 2026-06-29 18:30 - [官方通报一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/4519938.shtml)
+- 2026-06-29 18:49 - [速度与激情9](https://www.blog.minike.top/Article/details/4914932.shtml)
+- 2026-06-29 18:33 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/50406.shtml)
+- 2026-06-29 18:33 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/76253366582.shtml)
+- 2026-06-29 18:27 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/4326391.shtml)
+- 2026-06-29 18:37 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/22518.shtml)
+- 2026-06-29 18:46 - [德国医生在没有空调的手术室工作](http://www.share.kurohicncr.top/Article/details/978492.shtml)
+- 2026-06-29 18:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/9064911.shtml)
+- 2026-06-29 18:35 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/69405.shtml)
+- 2026-06-29 18:26 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/290453210450.shtml)
+- 2026-06-29 18:30 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/348084107381.shtml)
+- 2026-06-29 18:36 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/39408363.shtml)
