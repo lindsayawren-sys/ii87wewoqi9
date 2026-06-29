@@ -1,57 +1,60 @@
-# 韩国央行行长：人工智能热潮抵消了伊朗局势动荡带来的冲击
+# 斯伦贝谢与Vår Energi扩大数字化油田开发工作流程合作
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-韩国央行行长申铉松表示，受人工智能热潮推动，半导体出口大幅增长，其利好效应将抵消伊朗局势冲突与全球能源冲击对韩国经济造成的负面影响。 周四，韩国银行行长申铉松在就任后首次货币政策会议落幕之际发表讲话。他预计，芯片出口的旺盛态势将推动韩国 2026 年国内生产总值（GDP）增速提升 0.7 个百分点，这一正向作用超过海湾局势危机给 GDP 带来的 0.4 个百分点拖累。 今年，人
+斯伦贝谢（SLB）与Vår Energi已扩大其数字合作，旨在挪威大陆架的运营中规模化推广井位规划和综合油田开发规划。 该协议扩大了斯伦贝谢Delfi数字平台的部署范围。Vår Energi将利用该平台，在云原生环境中实现勘探、地下评估、井位规划、海底设计、油田开发规划及生产等环节的互联互通。 双方合作的井位规划工作流程已成功将规划周期从数月缩短至数天，而综合油田开发规划的验证
 
 ## 正文
 
-韩国央行行长申铉松表示，受人工智能热潮推动，半导体出口大幅增长，其利好效应将抵消伊朗局势冲突与全球能源冲击对韩国经济造成的负面影响。
+斯伦贝谢（SLB）与Vår Energi已扩大其数字合作，旨在挪威大陆架的运营中规模化推广井位规划和综合油田开发规划。
 
-周四，韩国银行行长申铉松在就任后首次货币政策会议落幕之际发表讲话。
+该协议扩大了斯伦贝谢Delfi数字平台的部署范围。
 
-他预计，芯片出口的旺盛态势将推动韩国 2026 年国内生产总值（GDP）增速提升 0.7 个百分点，这一正向作用超过海湾局势危机给 GDP 带来的 0.4 个百分点拖累。
+Vår Energi将利用该平台，在云原生环境中实现勘探、地下评估、井位规划、海底设计、油田开发规划及生产等环节的互联互通。
 
-今年，人工智能所用高带宽存储芯片需求激增，为韩国经济与股市注入强劲动力。
+双方合作的井位规划工作流程已成功将规划周期从数月缩短至数天，而综合油田开发规划的验证工作也已将周期从数月缩减至数周。
 
-一季度韩国半导体出口额达 785 亿美元，同比大涨 139%；韩国两大芯片巨头三星与 SK 海力士的市值均已突破 1 万亿美元。
+斯伦贝谢表示，这些集成化工作流程旨在通过让不同团队使用共享数据和标准化流程进行协同工作，从而支持更快、更一致的决策。
 
-散户投资者纷纷入场分享行业丰厚收益，韩国综合股价指数在不到 18 个月的时间里涨幅超两倍。
+此次合作反映了油气行业向云端规划方法转型的大趋势，其目的是缩短开发里程碑之间的时间间隔，并从成熟的海上资产中获取最大价值。
 
-韩国银行将 2026 年经济增长预期从 2% 上调至 2.6%。
+斯伦贝谢数字业务总裁Rakesh Jaggi指出，扩大平台部署是为了支持Vår Energi在应对日益复杂的海上开发挑战时，缩短实现首次产油的时间。
 
-申铉松称，股市繁荣以及为对冲伊朗局势冲击而出台的补充预算，将分别拉动 GDP 增长 0.1 个百分点和 0.2 个百分点。
+Rakesh Jaggi表示：“随着海上开发项目变得日益复杂，其绩效越来越依赖于团队能否利用可信赖的数据快速达成共识、评估方案并做出决策。
 
 ## 相关推荐
 
-- 2026-06-29 23:34 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 23:29 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 23:06 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 23:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 23:35 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 23:13 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 23:12 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 23:13 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 23:26 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 23:18 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 23:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 23:39 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 23:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 23:21 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 23:13 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 23:27 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 23:34 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 23:18 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 23:13 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 23:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 23:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 23:22 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 23:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 23:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 23:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/9438913662.shtml)
-- 2026-06-29 23:25 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/582303.shtml)
-- 2026-06-29 23:20 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/117879339060.shtml)
-- 2026-06-29 23:23 - [MG总经理直播被冲](http://www.blog.kurohicncr.top/Article/details/5803425414.shtml)
-- 2026-06-29 23:29 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/45954870.shtml)
-- 2026-06-29 23:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/93038001.shtml)
-- 2026-06-29 23:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/27586.shtml)
-- 2026-06-29 23:32 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/887887634.shtml)
-- 2026-06-29 23:18 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/01013.shtml)
-- 2026-06-29 23:32 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/796507904.shtml)
-- 2026-06-29 23:09 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/72416870068.shtml)
-- 2026-06-29 23:07 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/76469813616.shtml)
-- 2026-06-29 23:13 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/59789290924.shtml)
-- 2026-06-29 23:35 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/23532163983.shtml)
-- 2026-06-29 23:32 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/7428593027.shtml)
+- 2026-06-29 23:28 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/84451029324.shtml)
+- 2026-06-29 23:21 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/55590372.shtml)
+- 2026-06-29 23:36 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/9560879.shtml)
+- 2026-06-29 23:33 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/466647.shtml)
+- 2026-06-29 23:20 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/631862968.shtml)
+- 2026-06-29 23:40 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/986333293536.shtml)
+- 2026-06-29 23:23 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/8584327489.shtml)
+- 2026-06-29 23:17 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/01208.shtml)
+- 2026-06-29 23:17 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/6604587.shtml)
+- 2026-06-29 23:32 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/26520176126.shtml)
+- 2026-06-29 23:18 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/029351654766.shtml)
+- 2026-06-29 23:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/43891855255.shtml)
+- 2026-06-29 23:14 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/469741748200.shtml)
+- 2026-06-29 23:36 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/38292770.shtml)
+- 2026-06-29 23:39 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/443984061.shtml)

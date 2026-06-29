@@ -1,58 +1,55 @@
-# 特朗普称霍尔木兹海峡不归任何人管辖 警告阿曼守规矩
+# 江汽集团项兴初：传统燃油车市场份额正从每年10%-15%速度收窄
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普27日在白宫举行的内阁会议上说，霍尔木兹海峡不归任何人管辖，并就此警告海湾盟友阿曼，如果“不守规矩”，就会被“炸飞”。 被问及是否愿意接受一份由伊朗和阿曼共同控制霍尔木兹海峡的短期协议时，特朗普说，这一海峡是国际水域，应对所有人开放，不归任何人管辖。他表示，美方将维护海峡秩序，但“不会有人控制它，这也是我们(与伊朗)谈判的一部分”。 特朗普还说，阿曼也会像其他国家
+专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行。江汽集团董事长项兴初表示，当前传统燃油车市场份额正从每年10%-15%的速度收窄，多数车企的利润面临一些挑战，产业上下游分工被打破。 他指出，整车企业与零部件企业正在从技术共创迈向生态融合，这就要求行业必须跨界合作。新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网
 
 ## 正文
 
-美国总统特朗普27日在白宫举行的内阁会议上说，霍尔木兹海峡不归任何人管辖，并就此警告海湾盟友阿曼，如果“不守规矩”，就会被“炸飞”。
+专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行。
 
-被问及是否愿意接受一份由伊朗和阿曼共同控制霍尔木兹海峡的短期协议时，特朗普说，这一海峡是国际水域，应对所有人开放，不归任何人管辖。
+江汽集团董事长项兴初表示，当前传统燃油车市场份额正从每年10%-15%的速度收窄，多数车企的利润面临一些挑战，产业上下游分工被打破。
 
-他表示，美方将维护海峡秩序，但“不会有人控制它，这也是我们(与伊朗)谈判的一部分”。
+他指出，整车企业与零部件企业正在从技术共创迈向生态融合，这就要求行业必须跨界合作。
 
-特朗普还说，阿曼也会像其他国家一样遵守规则，并称“如果他们不守规矩，我们就只能把他们炸飞。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-他们很清楚这一点，所以会安分守己”。
-
-据伊朗媒体当天早些时候报道，伊朗最高国家安全委员会副秘书阿里·巴盖里表示，伊朗与美国尚未就霍尔木兹海峡相关问题达成一致。
-
-伊朗与阿曼目前正就船只通过霍尔木兹海峡的新机制进行磋商，伊美之间的间接接触也仍在继续。
-
-霍尔木兹海峡是全球最重要的能源运输水道之一，阿曼和伊朗分别位于海峡两岸。
+责任编辑：梁斌 SF055
 
 ## 相关推荐
 
-- 2026-06-29 23:24 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 23:14 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 23:33 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 23:35 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 23:15 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 23:16 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 23:12 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 23:08 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 23:33 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 23:17 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 23:08 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 23:22 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 23:21 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 23:21 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 23:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 23:21 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 23:36 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 23:37 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 23:31 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 23:35 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 23:33 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 23:35 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 23:23 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 23:30 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 23:23 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 23:28 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 23:40 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:31 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/059365652.shtml)
-- 2026-06-29 23:08 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.minike.top/Article/details/904746.shtml)
-- 2026-06-29 23:10 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/1285824464.shtml)
-- 2026-06-29 23:18 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/03479.shtml)
-- 2026-06-29 23:26 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/553763372.shtml)
-- 2026-06-29 23:29 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/49459482514.shtml)
-- 2026-06-29 23:23 - [金牌调解](http://www.blog.minike.top/Article/details/377564228687.shtml)
-- 2026-06-29 23:07 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/44370938.shtml)
-- 2026-06-29 23:15 - [明星大侦探第一季](http://www.share.minike.top/Article/details/646363529.shtml)
-- 2026-06-29 23:28 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/36204217.shtml)
-- 2026-06-29 23:23 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/588660.shtml)
-- 2026-06-29 23:13 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/507024911682.shtml)
-- 2026-06-29 23:14 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/5775439.shtml)
-- 2026-06-29 23:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/9357142935.shtml)
-- 2026-06-29 23:14 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/492484.shtml)
+- 2026-06-29 23:29 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/31896484.shtml)
+- 2026-06-29 23:26 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/5665662.shtml)
+- 2026-06-29 23:28 - [AI接过张雪峰志愿填报衣钵](https://www.blog.kurohicncr.top/Article/details/53635.shtml)
+- 2026-06-29 23:29 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/213963825.shtml)
+- 2026-06-29 23:22 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/2336102009.shtml)
+- 2026-06-29 23:30 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/425971.shtml)
+- 2026-06-29 23:35 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/31951.shtml)
+- 2026-06-29 23:12 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/01485.shtml)
+- 2026-06-29 23:14 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/0729102107.shtml)
+- 2026-06-29 23:19 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/088400872798.shtml)
+- 2026-06-29 23:32 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/435271754.shtml)
+- 2026-06-29 23:12 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/1107864159.shtml)
+- 2026-06-29 23:25 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/58635553658.shtml)
+- 2026-06-29 23:30 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/24078086.shtml)
+- 2026-06-29 23:20 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/5180477.shtml)

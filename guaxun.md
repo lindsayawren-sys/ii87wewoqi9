@@ -1,57 +1,60 @@
-# 2026年广西“安全生产月”活动将重点推广企业安全发展项目
+# “香会”是啥？今年有何看点？
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月28日电(林浩)5月28日，广西壮族自治区副主席曹志强宣布2026年广西“安全生产月”活动启动。 当天，2026年广西“安全生产月”活动启动仪式在南宁市举行。本次活动以“人人讲安全、个个会应急——排查整治风险隐患”为主题，全面部署安全生产宣传教育、隐患排查整治及企业安全发展项目推广等工作。 广西壮族自治区应急管理厅厅长周长青在活动中介绍，今年6月第25个全国“安全
+发布时间：2026年05月29日 13:51 来源：中国新闻网 第23届香格里拉对话会将于当地时间5月29日晚在新加坡开幕。香格里拉对话会的正式名称是“亚洲安全峰会”，由英国国际战略研究所发起，每年都会吸引来自亚太、欧洲、北美等地区国家的防务高层参会，共同探讨亚太地区面临的安全挑战。 今年“香会”有4个看点值得关注。第一，中美关系。这几乎是每年“香会”都绕不开的话题。本届“香会
 
 ## 正文
 
-中新网南宁5月28日电(林浩)5月28日，广西壮族自治区副主席曹志强宣布2026年广西“安全生产月”活动启动。
+发布时间：2026年05月29日 13:51 来源：中国新闻网 第23届香格里拉对话会将于当地时间5月29日晚在新加坡开幕。
 
-当天，2026年广西“安全生产月”活动启动仪式在南宁市举行。
+香格里拉对话会的正式名称是“亚洲安全峰会”，由英国国际战略研究所发起，每年都会吸引来自亚太、欧洲、北美等地区国家的防务高层参会，共同探讨亚太地区面临的安全挑战。
 
-本次活动以“人人讲安全、个个会应急——排查整治风险隐患”为主题，全面部署安全生产宣传教育、隐患排查整治及企业安全发展项目推广等工作。
+今年“香会”有4个看点值得关注。
 
-广西壮族自治区应急管理厅厅长周长青在活动中介绍，今年6月第25个全国“安全生产月”期间，广西将突出地方特色，聚焦企业主体责任落实，重点推广广西企业安全发展项目。
+第一，中美关系。
 
-该项目融合事故隐患内部报告奖励和合理化建议机制，鼓励员工争当“安全哨兵”，构建企业全员参与、主动排查隐患、主动整改的安全治理新格局，推动企业安全管理从“他律”向“自律”转变。
+这几乎是每年“香会”都绕不开的话题。
 
-当前广西正值主汛期，各类安全风险交织叠加，安全形势严峻复杂。
+本届“香会”在中美元首会晤后不久举行，会议期间中美互动的新动向将引发各方关注。
 
-接下来，广西将把应急科普作为筑牢安全防线的先手棋，聚焦隐患排查、五进宣传、应急演练等重点内容，推动安全科普进企业、进农村、进社区、进校园、进家庭，面向独居老人、留守儿童等群体开展精准宣传，推动“人人讲安全、个个会应急”从口号转化为全民行动自觉，提升社会整体抵御风险的能力。
+第二，中东局势。
 
-今年“安全生产月”期间，广西还将举办“安全宣传咨询日”活动，依托公园、科普场馆、应急训练基地等场所，开展应急装备展示、实操训练、情景互动等沉浸式体验活动，打造“线上+线下、宣讲+实操”的立体化安全宣传格局。
+美以伊战事和霍尔木兹海峡局势牵动世界神经，有分析认为美国防长或将在“香会”期间有新的表态。
 
 ## 相关推荐
 
-- 2026-06-29 23:13 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 23:23 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 23:21 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 23:12 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 23:21 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 23:08 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 23:10 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 23:08 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 23:08 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 23:23 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 23:26 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 23:15 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 23:39 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 23:33 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 23:34 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 23:20 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 23:39 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 23:17 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 23:33 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 23:36 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 23:19 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 23:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 23:38 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 23:12 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 23:16 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:06 - [一见倾心](http://www.share.kurohicncr.top/Article/details/081352496482.shtml)
-- 2026-06-29 23:15 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/84045148.shtml)
-- 2026-06-29 23:15 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/5494697.shtml)
-- 2026-06-29 23:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/83067370650.shtml)
-- 2026-06-29 23:29 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/21994920.shtml)
-- 2026-06-29 23:23 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/85365911.shtml)
-- 2026-06-29 23:30 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/474525.shtml)
-- 2026-06-29 23:23 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/8789128.shtml)
-- 2026-06-29 23:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/1903705.shtml)
-- 2026-06-29 23:34 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/687385489326.shtml)
-- 2026-06-29 23:24 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/530975.shtml)
-- 2026-06-29 23:09 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/475862953.shtml)
-- 2026-06-29 23:32 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/2896720.shtml)
-- 2026-06-29 23:19 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/05110.shtml)
-- 2026-06-29 23:20 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/38499.shtml)
+- 2026-06-29 23:21 - [蔚来车主罚站](https://www.share.minike.top/Article/details/3999420.shtml)
+- 2026-06-29 23:37 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/4067389.shtml)
+- 2026-06-29 23:39 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/30617491281.shtml)
+- 2026-06-29 23:28 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/6973512.shtml)
+- 2026-06-29 23:35 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/97613723.shtml)
+- 2026-06-29 23:25 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/05252869.shtml)
+- 2026-06-29 23:14 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/02667973620.shtml)
+- 2026-06-29 23:25 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/1499312623.shtml)
+- 2026-06-29 23:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/040327.shtml)
+- 2026-06-29 23:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/72606.shtml)
+- 2026-06-29 23:25 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/4834447974.shtml)
+- 2026-06-29 23:25 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/896530.shtml)
+- 2026-06-29 23:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/3977219395.shtml)
+- 2026-06-29 23:29 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/1618161.shtml)
+- 2026-06-29 23:18 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/4213996.shtml)

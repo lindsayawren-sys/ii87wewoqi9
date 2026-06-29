@@ -1,57 +1,56 @@
-# 半导体减持潮：翱捷科技半年遭阿里减持两次 广立微一季度亏损董监高却套现3.74亿元
+# 美国知名律所拟斥资5亿美元自研AI平台
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：光心 随着大盘指数创出阶段性新高，A股掀起一波减持潮。 2026年5月，减持潮蔓延至半导体行业。5月22日至5月28日，至少有中微公司、澜起科技、翱捷科技、广立微、长芯博创、灿勤科技、晶升股份、富乐德、东微半导、华海诚科、芯朋微、芯联集成、燕东微13家半导体产业链上市公司披露了减持计划，涵盖半导体设备、芯片设计、材料等多个细分领域的头部企业。
+美国知名律所凯易律师事务所（Kirkland & Ellis）宣布，将投入5亿美元用于开发定制人工智能平台，此举将加速法律行业在人工智能技术领域的投资竞赛。 凯易律师事务所去年公布的营收为106亿美元，该律所当地时间周四表示，将在未来三到四年内分批投资这笔资金，首笔投资将于2026年投入1亿美元。 这家总部位于芝加哥、在全球拥有数千名律师的律所表示，仍将购买部分第三方人工智能程
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：光心 随着大盘指数创出阶段性新高，A股掀起一波减持潮。
+美国知名律所凯易律师事务所（Kirkland & Ellis）宣布，将投入5亿美元用于开发定制人工智能平台，此举将加速法律行业在人工智能技术领域的投资竞赛。
 
-2026年5月，减持潮蔓延至半导体行业。
+凯易律师事务所去年公布的营收为106亿美元，该律所当地时间周四表示，将在未来三到四年内分批投资这笔资金，首笔投资将于2026年投入1亿美元。
 
-5月22日至5月28日，至少有中微公司、澜起科技、翱捷科技、广立微、长芯博创、灿勤科技、晶升股份、富乐德、东微半导、华海诚科、芯朋微、芯联集成、燕东微13家半导体产业链上市公司披露了减持计划，涵盖半导体设备、芯片设计、材料等多个细分领域的头部企业。
+这家总部位于芝加哥、在全球拥有数千名律师的律所表示，仍将购买部分第三方人工智能程序的授权许可。
 
-据5月28日收盘价计算，上述13家企业合计减持金额将高达145亿元。
+但该律所拒绝透露其计划中的平台是否会采用特定的生成式人工智能模型。
 
-其中，中微公司、澜起科技、翱捷科技减持金额最高，分别高达58亿元、32亿元、14亿元。
+寻求简化运营和法律工作的大型律师事务所已成为人工智能的关键客户，其中一些律所已与领先的人工智能初创公司签署协议，共同开发专注于法律领域的人工智能工具。
 
-若以减持方的类别划分，中微公司、澜起科技、翱捷科技、晶升股份、华海诚科、燕东微6家为第三方投资机构减持。
+总部位于伦敦的富而德律师事务所（Freshfields）上个月表示，将与开发Claude的Anthropic公司的法律团队合作，开发用于法律服务的人工智能应用程序。
 
-其中，中微公司还同步发布了董事及高管减持公告。
+凯易律师事务所表示，其平台将基于250名凯易律师提供的信息进行设计，并将汇集事务所内外180多名技术专家的参与。
 
-这些减持机构中有两家比较瞩目。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 23:10 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 23:29 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 23:20 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 23:14 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 23:17 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 23:18 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 23:33 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 23:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 23:15 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 23:22 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 23:07 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 23:27 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 23:13 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 23:37 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 23:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 23:37 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 23:35 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 23:26 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 23:12 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 23:26 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 23:41 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:08 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/986336646.shtml)
-- 2026-06-29 23:06 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/05118355.shtml)
-- 2026-06-29 23:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/38071054430.shtml)
-- 2026-06-29 23:08 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/735164.shtml)
-- 2026-06-29 23:30 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/19807.shtml)
-- 2026-06-29 23:28 - [急先锋](http://www.blog.minike.top/Article/details/1150928.shtml)
-- 2026-06-29 23:12 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/434716416675.shtml)
-- 2026-06-29 23:28 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/52645810867.shtml)
-- 2026-06-29 23:31 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/01383580560.shtml)
-- 2026-06-29 23:33 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/58273.shtml)
-- 2026-06-29 23:25 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/8252408956.shtml)
-- 2026-06-29 23:08 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/782273.shtml)
-- 2026-06-29 23:19 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/10683.shtml)
-- 2026-06-29 23:17 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/6027272.shtml)
-- 2026-06-29 23:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/33352882117.shtml)
+- 2026-06-29 23:32 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/3188900.shtml)
+- 2026-06-29 23:37 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/74713.shtml)
+- 2026-06-29 23:22 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/90337179329.shtml)
+- 2026-06-29 23:26 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/8655790575.shtml)
+- 2026-06-29 23:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/020016.shtml)
+- 2026-06-29 23:27 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/737811.shtml)
+- 2026-06-29 23:31 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/72371530.shtml)
+- 2026-06-29 23:13 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/92893.shtml)
+- 2026-06-29 23:31 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/45863916.shtml)
+- 2026-06-29 23:41 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/502462785890.shtml)
+- 2026-06-29 23:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/48371051.shtml)
+- 2026-06-29 23:26 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/616020768.shtml)
+- 2026-06-29 23:30 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/523874209156.shtml)
+- 2026-06-29 23:35 - [女心理师](http://www.share.kurohicncr.top/Article/details/316681463.shtml)
+- 2026-06-29 23:33 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/9653551.shtml)

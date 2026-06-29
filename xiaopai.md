@@ -1,59 +1,61 @@
-# 激活城市宜居新空间 口袋公园书写城市更新大文章
+# 王毅会见古巴外长罗德里格斯
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-推窗见绿、出门进园、行路见荫。在寸土寸金的城市，“见缝插绿”的口袋公园让居民有了随处可及的休憩角落。凭借小巧、灵活、亲民的特质，“口袋公园游”正悄然走红。 孟夏时节，漫步在上海市静安区打造的昌平路“口袋公园带”，一路绿意葱茏，繁花盛开。 “上班午休时间来到这里散散步，看看花木，整个人都松弛下来了。这种‘小确幸’，是大城市里珍贵的礼物。”上海市民董女士说。 土地资源紧缺、人口分布
+新华社纽约5月27日电 当地时间27日，中共中央政治局委员、外交部长王毅在纽约会见古巴外长罗德里格斯。 王毅转达习近平主席对劳尔同志和迪亚斯-卡内尔主席的诚挚问候，欢迎罗德里格斯出席安理会高级别会议，表示此次会议主题确定为“维护联合国宪章宗旨和原则、加强以联合国为核心的国际体系”，反映了各方的共同诉求，得到广泛响应支持。而要实现这一目标，就应坚持尊重各国主权独立，反对各种强权霸
 
 ## 正文
 
-推窗见绿、出门进园、行路见荫。
+新华社纽约5月27日电 当地时间27日，中共中央政治局委员、外交部长王毅在纽约会见古巴外长罗德里格斯。
 
-在寸土寸金的城市，“见缝插绿”的口袋公园让居民有了随处可及的休憩角落。
+王毅转达习近平主席对劳尔同志和迪亚斯-卡内尔主席的诚挚问候，欢迎罗德里格斯出席安理会高级别会议，表示此次会议主题确定为“维护联合国宪章宗旨和原则、加强以联合国为核心的国际体系”，反映了各方的共同诉求，得到广泛响应支持。
 
-凭借小巧、灵活、亲民的特质，“口袋公园游”正悄然走红。
+而要实现这一目标，就应坚持尊重各国主权独立，反对各种强权霸凌。
 
-孟夏时节，漫步在上海市静安区打造的昌平路“口袋公园带”，一路绿意葱茏，繁花盛开。
+古巴人民团结一心，坚定维权，展现出反对外来封锁干涉的坚定意志，赢得国际社会的尊重。
 
-“上班午休时间来到这里散散步，看看花木，整个人都松弛下来了。
+中方将继续为古巴主持公道、仗义执言，支持古巴人民的正义事业，助力古经济民生的发展。
 
-这种‘小确幸’，是大城市里珍贵的礼物。
+罗德里格斯转达劳尔大将和迪亚斯-卡内尔主席对习近平主席的亲切问候，感谢中方邀请古巴参加此次安理会高级别会议，表示当今世界正在动荡失序。
 
-”上海市民董女士说。
+只有中方有能力召开此次会议，凝聚国际社会共识，维护全球南方正当权益。
 
-土地资源紧缺、人口分布密集，大城市想在钢筋水泥里“挤”出绿色空间，并非易事。
+古巴正面临革命以来最严峻形势，根源就是美国对古封锁制裁。
 
 ## 相关推荐
 
-- 2026-06-29 23:11 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 23:08 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 23:25 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 23:31 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 23:34 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 23:19 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 23:36 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 23:07 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 23:06 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 23:33 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 23:07 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 23:25 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 23:21 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 23:12 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 23:18 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 23:20 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 23:31 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 23:31 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 23:31 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 23:25 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 23:37 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 23:17 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 23:16 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 23:32 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 23:41 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 23:26 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 23:16 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 23:26 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:06 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/00284774891.shtml)
-- 2026-06-29 23:24 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/06009634529.shtml)
-- 2026-06-29 23:34 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/610205434557.shtml)
-- 2026-06-29 23:32 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/064024959.shtml)
-- 2026-06-29 23:35 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/53008066309.shtml)
-- 2026-06-29 23:24 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/1917051356.shtml)
-- 2026-06-29 23:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/96480695729.shtml)
-- 2026-06-29 23:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/583760973310.shtml)
-- 2026-06-29 23:31 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/98524.shtml)
-- 2026-06-29 23:21 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/55552664953.shtml)
-- 2026-06-29 23:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/03035722.shtml)
-- 2026-06-29 23:07 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/64933.shtml)
-- 2026-06-29 23:24 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/230015.shtml)
-- 2026-06-29 23:30 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/59864471.shtml)
-- 2026-06-29 23:06 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/713822272.shtml)
+- 2026-06-29 23:33 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/2901629194.shtml)
+- 2026-06-29 23:25 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/987075.shtml)
+- 2026-06-29 23:32 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/42364.shtml)
+- 2026-06-29 23:34 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/991363572.shtml)
+- 2026-06-29 23:17 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/46432.shtml)
+- 2026-06-29 23:24 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/583273802963.shtml)
+- 2026-06-29 23:35 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/58815736532.shtml)
+- 2026-06-29 23:14 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/93250413.shtml)
+- 2026-06-29 23:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/884381.shtml)
+- 2026-06-29 23:23 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/69783682.shtml)
+- 2026-06-29 23:18 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/578223092.shtml)
+- 2026-06-29 23:21 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/8142812978.shtml)
+- 2026-06-29 23:28 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/14318.shtml)
+- 2026-06-29 23:16 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/833957.shtml)
+- 2026-06-29 23:32 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/806519.shtml)

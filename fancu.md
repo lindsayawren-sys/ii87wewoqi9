@@ -1,49 +1,58 @@
-# 广发证券遭易方达基金减持284.517万股 每股作价16.5368港元
+# 广东法院全国率先开启全域数字化办案
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，5月21日，易方达基金减持广发证券（01776）284.517万股，每股作价16.5368港元，总金额约为4705万港元。减持后最新持股数目约为1.13亿股，最新持股比例为5.88%。责任编辑：卢昱君
+中新网广州5月29日电 (记者 方伟彬)记者29日从广东省高级人民法院获悉，该院28日召开全省法院数字化办案工作会议，正式启用“广东法院电子卷宗编目中心”，标志着广东法院在全国率先开启全域、全量、全时数字化办案新模式——各级法院一体迈入“网上办案”新阶段。 广东是全国案件体量最大的省份，长期以来，纸质卷宗带来的“卷宗靠手搬、签字靠跑腿、归档靠加班”困境，严重挤占法官研究案情的时
 
 ## 正文
 
-香港联交所最新数据显示，5月21日，易方达基金减持广发证券（01776）284.517万股，每股作价16.5368港元，总金额约为4705万港元。
+中新网广州5月29日电 (记者 方伟彬)记者29日从广东省高级人民法院获悉，该院28日召开全省法院数字化办案工作会议，正式启用“广东法院电子卷宗编目中心”，标志着广东法院在全国率先开启全域、全量、全时数字化办案新模式——各级法院一体迈入“网上办案”新阶段。
 
-减持后最新持股数目约为1.13亿股，最新持股比例为5.88%。
+广东是全国案件体量最大的省份，长期以来，纸质卷宗带来的“卷宗靠手搬、签字靠跑腿、归档靠加班”困境，严重挤占法官研究案情的时间。
 
-责任编辑：卢昱君
+即便部分法院此前已引入电子卷宗，却因材料缺漏、编目混乱，数字化始终“卡脖子”。
+
+据广东高院介绍，此轮改革从根上破局，该院2024年9月起由院长张海波挂帅，依托最高法院“一张网”平台，出台“1+7+N”制度体系，统一全省扫描标准，构建“1+5”编目中心，引入增强型OCR和多模态大模型，实行立案庭单一入口闭环管理，以10个方面、28项节点的验收标准和监测体系，把“高质量电子卷宗”钉死在每个环节。
+
+数据印证质效跃升，试点以来，程序性文书制作时间缩短83%，文书审签流转工作量减少70%，平均结案时间下降18%，上诉移送时间压缩75%，归档缩短19天，邮寄、文印成本分别下降52%、45%。
+
+在云浮市新兴县人民法院稔村法庭，58岁的庭长陈钦儒亲历了近四十年的办案变迁——从手写笔录到老式打字机，再到今天的数字化。
+
+“山区群众的变化最大。
+
+”他说：“在家用手机登录‘一张网’，传身份证和证据，当天就能立上案；开庭也不用成箱搬卷宗，对群众是实实在在的减负。
 
 ## 相关推荐
 
-- 2026-06-29 23:19 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 23:12 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 23:32 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 23:34 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 23:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 23:27 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 23:30 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 23:28 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 23:17 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 23:23 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 23:31 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 23:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 23:20 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 23:27 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 23:17 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 23:18 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 23:40 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 23:35 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 23:26 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 23:40 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 23:13 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 23:26 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 23:25 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 23:37 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 23:13 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:20 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/844038.shtml)
-- 2026-06-29 23:07 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/51852.shtml)
-- 2026-06-29 23:20 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/06866605.shtml)
-- 2026-06-29 23:31 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/67799.shtml)
-- 2026-06-29 23:30 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/709899743198.shtml)
-- 2026-06-29 23:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/0651869098.shtml)
-- 2026-06-29 23:22 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/4576237188.shtml)
-- 2026-06-29 23:07 - [明星大侦探第四季](https://www.share.minike.top/Article/details/49413143.shtml)
-- 2026-06-29 23:11 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/628527450505.shtml)
-- 2026-06-29 23:28 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/461293115221.shtml)
-- 2026-06-29 23:11 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/05692.shtml)
-- 2026-06-29 23:21 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/39636024.shtml)
-- 2026-06-29 23:33 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/2187595810.shtml)
-- 2026-06-29 23:23 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/58258.shtml)
-- 2026-06-29 23:17 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/742319.shtml)
+- 2026-06-29 23:26 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/717612.shtml)
+- 2026-06-29 23:26 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/46784.shtml)
+- 2026-06-29 23:16 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/087639001784.shtml)
+- 2026-06-29 23:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/84528694386.shtml)
+- 2026-06-29 23:27 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/386877271834.shtml)
+- 2026-06-29 23:25 - [周生如故](http://www.share.minike.top/Article/details/460896.shtml)
+- 2026-06-29 23:41 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/28955330021.shtml)
+- 2026-06-29 23:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/377853.shtml)
+- 2026-06-29 23:34 - [沙丘](http://www.share.kurohicncr.top/Article/details/789497314.shtml)
+- 2026-06-29 23:27 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/9769462327.shtml)
+- 2026-06-29 23:36 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/10840.shtml)
+- 2026-06-29 23:41 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/2640459998.shtml)
+- 2026-06-29 23:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/08217.shtml)
+- 2026-06-29 23:37 - [斛珠夫人](http://www.share.minike.top/Article/details/1113767680.shtml)
+- 2026-06-29 23:40 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/1999184299.shtml)

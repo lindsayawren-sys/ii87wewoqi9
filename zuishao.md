@@ -1,50 +1,54 @@
-# 江汽集团项兴初：传统燃油车市场份额正从每年10%-15%速度收窄
+# 文化中国行·文博日历丨不用一钉一铁！世界上单孔跨度最大的古代木拱廊桥是如何建造的？
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行。江汽集团董事长项兴初表示，当前传统燃油车市场份额正从每年10%-15%的速度收窄，多数车企的利润面临一些挑战，产业上下游分工被打破。 他指出，整车企业与零部件企业正在从技术共创迈向生态融合，这就要求行业必须跨界合作。新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网
+近日，国家文物局组织的 廊桥保护成果 主题宣传活动走进福建 木拱结构的廊桥风行于北宋 是我国木结构桥梁的活化石 北宋名画《清明上河图》中的虹桥就是 木拱廊桥的雏形 三个看点带你认识 世界上单孔跨度最大的古代木拱廊桥鸾峰桥 《清明上河图》里的虹桥 其实“躲进”了闽浙山区 在千古名画《清明上河图》中 最震撼的画面莫过于“画眼” 这座无柱、单拱、横跨汴河的虹桥 数十根圆木纵横交错 不
 
 ## 正文
 
-专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行。
+近日，国家文物局组织的 廊桥保护成果 主题宣传活动走进福建 木拱结构的廊桥风行于北宋 是我国木结构桥梁的活化石 北宋名画《清明上河图》中的虹桥就是 木拱廊桥的雏形 三个看点带你认识 世界上单孔跨度最大的古代木拱廊桥鸾峰桥 《清明上河图》里的虹桥 其实“躲进”了闽浙山区 在千古名画《清明上河图》中 最震撼的画面莫过于“画眼” 这座无柱、单拱、横跨汴河的虹桥 数十根圆木纵横交错 不用一钉一铁，编木成桥 却扛得住漕运繁忙、车马往来 虹桥在中原地区早已不见踪影 在很长一段时间内 人们由此认为 这一我国古代杰出的桥梁类型已经失传 直到闽浙山区的百余座木拱廊桥 呈现于世人眼前 百余座木拱廊桥横跨于山谷之间 形制与《清明上河图》中的虹桥一脉相承 却多了一个关键进化：桥上盖了廊屋 从单纯的交通工程变成了 有人气、有信仰、有生活的空间 数百年前 鸾峰桥是如何建造的？
 
-江汽集团董事长项兴初表示，当前传统燃油车市场份额正从每年10%-15%的速度收窄，多数车企的利润面临一些挑战，产业上下游分工被打破。
+百余座木拱廊桥 分布于福建、浙江两省交界山区 其中位于闽东的木拱廊桥极具代表性 在闽东的木拱廊桥被列为全国重点文物保护单位的共有11座，以屏南县的百祥桥、千乘桥、万安桥，古田县的田地桥，柘荣县的东源桥，寿宁县的杨梅州桥、鸾峰桥、仙宫桥、登云桥、升平桥、飞云桥等最具代表性。
 
-他指出，整车企业与零部件企业正在从技术共创迈向生态融合，这就要求行业必须跨界合作。
+现地处福建宁德寿宁县的鸾峰桥 是世界上单孔跨度最大的古代木拱廊桥 始建于明朝 自清嘉庆五年(1800)重修以来 已伫立200多年 站在鸾峰桥下 可以清楚地看到桥体的结构 数十根粗大的原木相互交叉穿叠 形成37.6米的单孔跨度 圆木间完全依靠榫卯咬合 不用一钉一铁 却组成了异常牢固的木构系统 在风雨中屹立数百年 数百年前建造的鸾峰桥 是如何做到的呢？
 
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+⬇️⬇️⬇️ 木拱结构架中 纵向的圆形梁被称为苗 横向方形梁木被称为牛头 圆形的节苗与方形的牛头之间 通过榫卯节点交接 而闽浙山区木拱桥的木拱结构 由两套系统组成 主拱系统是 三排纵向苗搭起的三节苗系统 副拱系统则是 以五排纵向苗搭起的五节苗系统为主 木拱桥之所以需要两个系统 主要是通过拱木间的接触 产生互相传递和反馈作用 以约束拱木结构的变形、移位 实现对桥面负荷的重新分配 避免了由此而引起拱架的损坏 此外，还有一个特殊部件为剪刀苗 用来解决桥前后晃动的问题 不得不提的 还有位于木拱廊桥四角的“将军柱” 看似装饰的“将军柱” 实则是整座桥的“定海神针” 它将轻盈的廊屋与坚实的拱架牢牢锁在一起 这也是木拱廊桥“关键进化” 能够在桥上盖廊屋的重要结构 一座座木拱廊桥 凝聚着先民的建造智慧 这种建造智慧只在中国闽浙山区 发展成了成熟技术 在世界文明当中是
 
-责任编辑：梁斌 SF055
+恰恰相反，就是要它重 木拱廊桥的拱架 靠的是编木咬合产生的整体受力 如果没有廊屋重量的向下压实 拱架反而容易松散失稳 在以往山高路远、村落散落的岁月里 出门一趟，往往跋涉数十里不见人烟 人们由此在桥上休息、露宿 “桥上盖廊屋”由此发展成 一道风景、一种文化 明末清初文学家周亮工在闽为官时，曾赞叹：“闽中桥梁最为巨丽，桥上建屋，翼翼楚楚，无处不堪图画。
+
+” 现处寿宁县鳌阳镇后墩村的飞云桥 廊屋内雕梁画栋 桥两端的多边形藻井结构精致 绘有中华传统文化中的人物故事 图案生动而华丽 现处寿宁县城蟾溪上的仙宫桥 桥下，蟾溪穿城而过 桥上，人们歇息乘凉 廊屋顶升起八角攒尖顶 廊屋内更是处处精巧 此外，不少廊桥的中央设有神明的牌位 当端午节来临 福建宁德的周宁、屏南等地 迎来了一年一度的走桥仪式 女性长者身着特色服饰 手持祈福牌，吟唱祈福歌谣 这一民俗源自古代“走百病”的民间旧俗 人们认为端午时节行走于桥上 可以驱邪避疫、祈求安康 百余座木拱廊桥 伫立在大山之中、溪流之上 以廊桥为主题的旅游线路 更是将古桥、古道、古村落“串珠成链” 一座座廊桥 正成为带动乡村振兴的文化支点 游客们沿溪而来，走上廊桥 穿越的不只是一条河流 更是千百年来先民 以智慧和情感铸就的文明长廊
 
 ## 相关推荐
 
-- 2026-06-29 23:07 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 23:29 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 23:11 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 23:22 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 23:27 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 23:21 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 23:17 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 23:12 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 23:12 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 23:16 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 23:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 23:22 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 23:25 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 23:31 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 23:26 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 23:41 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 23:37 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 23:40 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 23:38 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 23:18 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 23:37 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 23:19 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:33 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/25570.shtml)
-- 2026-06-29 23:31 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/093279442.shtml)
-- 2026-06-29 23:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/754959932.shtml)
-- 2026-06-29 23:13 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/99339.shtml)
-- 2026-06-29 23:21 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/38644935.shtml)
-- 2026-06-29 23:06 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/872914430.shtml)
-- 2026-06-29 23:30 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/095285.shtml)
-- 2026-06-29 23:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/387038742120.shtml)
-- 2026-06-29 23:13 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/88989686730.shtml)
-- 2026-06-29 23:18 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/3183978.shtml)
-- 2026-06-29 23:23 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/28788060484.shtml)
-- 2026-06-29 23:16 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/08910764234.shtml)
-- 2026-06-29 23:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/244986457268.shtml)
-- 2026-06-29 23:26 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/1794373748.shtml)
-- 2026-06-29 23:10 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/641362.shtml)
+- 2026-06-29 23:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/3406029353.shtml)
+- 2026-06-29 23:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/2054958586.shtml)
+- 2026-06-29 23:35 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/1300958.shtml)
+- 2026-06-29 23:27 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/647771644.shtml)
+- 2026-06-29 23:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/691186.shtml)
+- 2026-06-29 23:17 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/5282817596.shtml)
+- 2026-06-29 23:28 - [世界杯](http://www.share.kurohicncr.top/Article/details/5121182642.shtml)
+- 2026-06-29 23:37 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/66815.shtml)
+- 2026-06-29 23:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/9619100883.shtml)
+- 2026-06-29 23:32 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/078842603.shtml)
+- 2026-06-29 23:24 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/848116919884.shtml)
+- 2026-06-29 23:18 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/618579.shtml)
+- 2026-06-29 23:40 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/6853931315.shtml)
+- 2026-06-29 23:37 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/076197511880.shtml)
+- 2026-06-29 23:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/779724.shtml)

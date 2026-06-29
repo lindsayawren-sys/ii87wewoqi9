@@ -1,55 +1,60 @@
-# 谌贻琴在山东调研时强调 坚定不移实施就业优先战略 多措并举做好稳就业促就业工作
+# 女掌门徐茹斌管控成本，南粤银行董监高薪酬下滑了
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-新华社济南5月28日电 国务委员谌贻琴近日在山东调研就业工作，强调要深入学习贯彻习近平总书记重要指示精神，认真落实党中央、国务院决策部署，牢固树立和践行正确政绩观，坚定不移实施就业优先战略，强化服务支撑，以更大力度、更实举措稳就业、促就业。5月26日至28日，谌贻琴先后来到济南市、淄博市，深入企业、社区、就业服务机构、大学生创新创业孵化基地和招聘活动现场等，调研重点行业用工、基
+来源：银瑞社 作者：许淑敏 掌舵广东南粤银行一年的时间，董事长徐茹斌始终很低调。 2026年外界能看到关于徐茹斌的信息，还是她在南粤银行2026年经营工作会议上发表讲话。 此次会议提出，2026年是“十五五”规划开局之年，也是南粤银行改革、转型和发展的关键一年。 2026年，更是徐茹斌掌舵的第一个完整年份，任务重大。 市场对她期待颇高。 因为徐茹斌是打破了南粤银行传统的领导者。
 
 ## 正文
 
-新华社济南5月28日电 国务委员谌贻琴近日在山东调研就业工作，强调要深入学习贯彻习近平总书记重要指示精神，认真落实党中央、国务院决策部署，牢固树立和践行正确政绩观，坚定不移实施就业优先战略，强化服务支撑，以更大力度、更实举措稳就业、促就业。
+来源：银瑞社 作者：许淑敏 掌舵广东南粤银行一年的时间，董事长徐茹斌始终很低调。
 
-5月26日至28日，谌贻琴先后来到济南市、淄博市，深入企业、社区、就业服务机构、大学生创新创业孵化基地和招聘活动现场等，调研重点行业用工、基层就业创业服务、重点群体就业帮扶、职业技能提升培训等情况。
+2026年外界能看到关于徐茹斌的信息，还是她在南粤银行2026年经营工作会议上发表讲话。
 
-谌贻琴指出，就业是最大的民生。
+此次会议提出，2026年是“十五五”规划开局之年，也是南粤银行改革、转型和发展的关键一年。
 
-当前就业形势总体稳定，要持续强化就业优先导向，加快推进稳岗扩容提质行动，有效激发创业带动就业效能，不断推动高质量充分就业取得新进展。
+2026年，更是徐茹斌掌舵的第一个完整年份，任务重大。
 
-要织密就业服务网络，加强地方经验总结推广，推动“15分钟就业服务圈”与“一刻钟便民生活圈”融合，支持社区“微就业”、“微创业”，加强数智就业服务，帮助劳动者在家门口好就业、就好业。
+市场对她期待颇高。
 
-要做好高校毕业生等青年群体就业政策支持和服务保障，加强农民工、就业困难人员精准帮扶，不断增进民生福祉。
+因为徐茹斌是打破了南粤银行传统的领导者。
 
-要深化大规模职业技能提升培训，强化产教评、订单式、项目制培训模式，进一步提升培训的针对性和有效性，支持劳动者提技增收，更好服务经济社会发展大局。
+首先，她是该行首位女性董事长，其次，她同时担任南粤银行党委书记、董事长两职，打破了粤财控股入主后该行两职分任的格局。
+
+徐茹斌是70后，此前在粤财控股旗下的粤财信托、粤财资产工作过，具备一定的财务管理实力。
 
 ## 相关推荐
 
-- 2026-06-29 23:27 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 23:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 23:17 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 23:23 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 23:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 23:17 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 23:09 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 23:06 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 23:33 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 23:26 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 23:22 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 23:21 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 23:40 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 23:31 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 23:26 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 23:33 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 23:20 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 23:26 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 23:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 23:38 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 23:20 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 23:30 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 23:34 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 23:18 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 23:38 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:20 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/757542.shtml)
-- 2026-06-29 23:06 - [乔家的儿女](http://www.share.minike.top/Article/details/57998679276.shtml)
-- 2026-06-29 23:07 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/619296.shtml)
-- 2026-06-29 23:34 - [速度与激情9](http://www.share.minike.top/Article/details/97236.shtml)
-- 2026-06-29 23:16 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/97679.shtml)
-- 2026-06-29 23:25 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/196934594.shtml)
-- 2026-06-29 23:26 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/07851735.shtml)
-- 2026-06-29 23:23 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/537778760.shtml)
-- 2026-06-29 23:10 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/1770984624.shtml)
-- 2026-06-29 23:13 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/2776442929.shtml)
-- 2026-06-29 23:08 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/62765312374.shtml)
-- 2026-06-29 23:35 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/737142.shtml)
-- 2026-06-29 23:13 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/4648759150.shtml)
-- 2026-06-29 23:35 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/7820513639.shtml)
-- 2026-06-29 23:30 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/910742504.shtml)
+- 2026-06-29 23:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/85068252918.shtml)
+- 2026-06-29 23:24 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/7626415289.shtml)
+- 2026-06-29 23:32 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/726927010764.shtml)
+- 2026-06-29 23:23 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/8894055786.shtml)
+- 2026-06-29 23:17 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/851265362.shtml)
+- 2026-06-29 23:30 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/6961242.shtml)
+- 2026-06-29 23:33 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/029949032620.shtml)
+- 2026-06-29 23:18 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/56429.shtml)
+- 2026-06-29 23:37 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/3932633707.shtml)
+- 2026-06-29 23:16 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/045441766.shtml)
+- 2026-06-29 23:13 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/3732492.shtml)
+- 2026-06-29 23:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/684685548.shtml)
+- 2026-06-29 23:12 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/4457319.shtml)
+- 2026-06-29 23:16 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/845339412493.shtml)
+- 2026-06-29 23:37 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/580332009.shtml)

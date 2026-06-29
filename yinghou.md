@@ -1,57 +1,44 @@
-# 申万宏源：建滔积层板首予“增持”评级 厚植一体化护城河
+# 国际油价27日大幅下跌
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-申万宏源发布研报称，建滔积层板（01888）盈利能力或将大幅提升，该行预计2026-2028年公司分别实现营收268、356、383亿港元，对应综合毛利率分别为30%、31%、32%，其中毛利率假设主要基于公司逐步提价以及产品结构升级，预计2026-2028年公司实现归母净利润46.2、66.6、75.4亿港元，对应估值分别为37、26、23倍。公司估值低于可比公司，但考虑不同
+发布时间：2026年05月28日 09:33 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-申万宏源发布研报称，建滔积层板（01888）盈利能力或将大幅提升，该行预计2026-2028年公司分别实现营收268、356、383亿港元，对应综合毛利率分别为30%、31%、32%，其中毛利率假设主要基于公司逐步提价以及产品结构升级，预计2026-2028年公司实现归母净利润46.2、66.6、75.4亿港元，对应估值分别为37、26、23倍。
-
-公司估值低于可比公司，但考虑不同市场的估值差异，该行以谨慎性原则，首次覆盖，给予公司“增持”评级。
-
-申万宏源主要观点如下： 产业链一体化建设的全球CCL头部企业，迎来三重转变机遇 建滔积层板是全球最大的刚性覆铜板销售企业，占据2024年全球销售额14.4%。
-
-公司具备行业稀缺的产业链一体化布局优势，覆铜板上游的铜箔、玻纤、树脂、填料等均具备资产能力；其母公司建滔集团（00148）则是PCB的核心供应商。
-
-在AI需求驱动的原材料涨价周期中，公司当前正处于“传统CCL多次提价修复利润，AI-CCL高端材料成长重估，从CCL头部企业向AI电子布领先供应商转型”的三重转变阶段。
-
-三重转变对公司的盈利预期与估值水平均有深刻影响，资本市场正处在对公司深刻转变的认知过程中。
-
-传统业务周期拐点，传统CCL多轮提价修复盈利 CCL在PCB产业链格局较分散，盈利能力在过去弱于下游PCB与上游材料板块，提价难度也相对高于产业链其他环节。
-
-2025年以来，需求推动下行业逐步落实CCL提价规划，传统CCL盈利能力迎来重估。
+发布时间：2026年05月28日 09:33 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 23:29 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 23:16 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 23:30 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 23:24 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 23:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 23:06 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 23:22 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 23:16 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 23:19 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 23:17 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 23:10 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 23:31 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 23:14 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 23:24 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 23:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 23:26 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 23:36 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 23:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 23:35 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 23:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 23:36 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 23:40 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 23:31 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:35 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/297900864873.shtml)
-- 2026-06-29 23:19 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/98826505.shtml)
-- 2026-06-29 23:10 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/596754733.shtml)
-- 2026-06-29 23:08 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/2626049071.shtml)
-- 2026-06-29 23:07 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/7257706742.shtml)
-- 2026-06-29 23:13 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/787988851.shtml)
-- 2026-06-29 23:27 - [急先锋](http://www.blog.kurohicncr.top/Article/details/87617877.shtml)
-- 2026-06-29 23:31 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/614522.shtml)
-- 2026-06-29 23:26 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/69629081532.shtml)
-- 2026-06-29 23:31 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/989826.shtml)
-- 2026-06-29 23:13 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/67435076.shtml)
-- 2026-06-29 23:06 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/66115157.shtml)
-- 2026-06-29 23:09 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/082301.shtml)
-- 2026-06-29 23:16 - [美人鱼](https://www.share.kurohicncr.top/Article/details/66065403.shtml)
-- 2026-06-29 23:13 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/654630.shtml)
+- 2026-06-29 23:29 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/507422568251.shtml)
+- 2026-06-29 23:37 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/137308037575.shtml)
+- 2026-06-29 23:24 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/79787857859.shtml)
+- 2026-06-29 23:18 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/974992998788.shtml)
+- 2026-06-29 23:30 - [美人鱼](http://www.share.kurohicncr.top/Article/details/6228629802.shtml)
+- 2026-06-29 23:23 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.kurohicncr.top/Article/details/742853650.shtml)
+- 2026-06-29 23:42 - [千与千寻](https://www.share.minike.top/Article/details/5934210127.shtml)
+- 2026-06-29 23:24 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.minike.top/Article/details/6639623323.shtml)
+- 2026-06-29 23:36 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/8424055.shtml)
+- 2026-06-29 23:16 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/793047360987.shtml)
+- 2026-06-29 23:39 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/8951132018.shtml)
+- 2026-06-29 23:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/28911.shtml)
+- 2026-06-29 23:19 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/497302.shtml)
+- 2026-06-29 23:24 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/956525.shtml)
+- 2026-06-29 23:14 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/42262446961.shtml)

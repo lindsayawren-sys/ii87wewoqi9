@@ -1,61 +1,59 @@
-# 尾盘：原油价格走低 道指上涨240点
+# 荷兰汇盈Debanik Basu：ESG应成为投资决策的核心考量
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-北京时间5月28日凌晨，美股周三尾盘继续上扬。道指上涨240点。油价因市场对美伊停火抱有希望而下跌。 道指涨241.11点，涨幅为0.48%，报50702.79点；纳指涨23.74点，涨幅为0.09%，报26679.92点；标普500指数涨7.35点，涨幅为0.10%，报7526.47点。 油价的下跌为市场提供了一定支撑。据报道，伊朗国家电视台称该国承诺在一个月内将霍尔木兹海峡
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月28日，深交所2026全球投资者大会举行，荷兰汇盈投资亚洲有限公司亚太区责任投资及尽职治理主管Debanik Basu表示，荷兰汇盈资管总管理规模约600亿美元，深耕亚
 
 ## 正文
 
-北京时间5月28日凌晨，美股周三尾盘继续上扬。
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-道指上涨240点。
+5月28日，深交所2026全球投资者大会举行，荷兰汇盈投资亚洲有限公司亚太区责任投资及尽职治理主管Debanik Basu表示，荷兰汇盈资管总管理规模约600亿美元，深耕亚洲、中东市场，在中国布局大量投资敞口，坚持长期布局亚洲及中国市场。
 
-油价因市场对美伊停火抱有希望而下跌。
+他表示，ESG、流动性与可持续发展紧密绑定，是机构长期价值投资、防范市场风险的核心依据。
 
-道指涨241.11点，涨幅为0.48%，报50702.79点；纳指涨23.74点，涨幅为0.09%，报26679.92点；标普500指数涨7.35点，涨幅为0.10%，报7526.47点。
+在ESG实践层面，Basu否定行业一刀切的ESG践行与披露模式，指出公募、私募，以及公募主动、被动管理产品的ESG落地路径均存在差异。
 
-油价的下跌为市场提供了一定支撑。
+同时他肯定亚洲尤其是中国公司治理的长期进步，过去十年可再生能源成本持续下行，太阳能发电成本年复合降幅达10%，叠加监管政策扶持，气候应对成本最高可降低50%，亚洲新能源赛道具备突出投资潜力。
 
-据报道，伊朗国家电视台称该国承诺在一个月内将霍尔木兹海峡的商业通航恢复至战前水平后，美国原油期货下跌逾3%，至每桶91美元下方。
+此外，全产业链均存在碳排放差异，ESG指标是投资决策不可或缺的参考依据。
 
-然而，白宫否认了伊朗官方媒体的这一报道，称其为“完全捏造”。
+针对资本市场ESG监管与信息披露，Basu认为统一监管标准是市场各方沟通的基础，中国资本市场ESG披露监管要求严格，利好机构投资者。
 
-周二飙升19%、市值首次突破1万亿美元的美光科技，周三上涨不到1%。
+他强调，企业合规披露不能流于表面，需将ESG指标融入公司战略与日常经营决策，真正发挥风险管理作用。
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 23:10 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 23:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 23:17 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 23:13 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 23:22 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 23:15 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 23:09 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 23:23 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 23:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 23:28 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 23:13 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 23:13 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 23:29 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 23:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 23:20 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 23:37 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 23:14 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 23:14 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 23:30 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 23:20 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 23:12 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 23:19 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 23:15 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 23:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 23:37 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 23:30 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 23:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:15 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/06909.shtml)
-- 2026-06-29 23:09 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/658386939237.shtml)
-- 2026-06-29 23:35 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/2706004095.shtml)
-- 2026-06-29 23:07 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/6420478896.shtml)
-- 2026-06-29 23:32 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/84130.shtml)
-- 2026-06-29 23:13 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/7370599.shtml)
-- 2026-06-29 23:09 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/067992062.shtml)
-- 2026-06-29 23:30 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/453732717110.shtml)
-- 2026-06-29 23:16 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/54174128.shtml)
-- 2026-06-29 23:19 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/77839779835.shtml)
-- 2026-06-29 23:07 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/346508.shtml)
-- 2026-06-29 23:29 - [起风了](http://www.blog.minike.top/Article/details/482832.shtml)
-- 2026-06-29 23:22 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/452622.shtml)
-- 2026-06-29 23:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/4326679307.shtml)
-- 2026-06-29 23:22 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/891942213.shtml)
+- 2026-06-29 23:31 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/433141.shtml)
+- 2026-06-29 23:21 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/6264130.shtml)
+- 2026-06-29 23:21 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/68269020.shtml)
+- 2026-06-29 23:17 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/9129387194.shtml)
+- 2026-06-29 23:30 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/597290237028.shtml)
+- 2026-06-29 23:23 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/9260722265.shtml)
+- 2026-06-29 23:22 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/47766.shtml)
+- 2026-06-29 23:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/800354369.shtml)
+- 2026-06-29 23:13 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/62614610.shtml)
+- 2026-06-29 23:12 - [一生一世](http://www.blog.minike.top/Article/details/637635.shtml)
+- 2026-06-29 23:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/11813289689.shtml)
+- 2026-06-29 23:21 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/1256894.shtml)
+- 2026-06-29 23:19 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/67647614.shtml)
+- 2026-06-29 23:13 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/04495.shtml)
+- 2026-06-29 23:24 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/8466382700.shtml)

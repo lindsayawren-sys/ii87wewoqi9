@@ -1,47 +1,48 @@
-# 欧洲三大股指27日涨跌不一
+# 外媒：美军否认一架飞行器被伊朗击落
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月28日 13:20 来源：央视新闻 责任编辑：【王祎】
+中新网5月29日电 据路透社报道，伊朗媒体此前称一架美军飞行器在伊朗布什尔附近被击落，美方当地时间28日表示这一说法不实。 据报道，伊朗媒体早些时候报道称，伊南部布什尔省当日传出的爆炸声系伊朗防空系统拦截“敌对飞行器”所致。对此，美军中央司令部在社交媒体上称，“没有美国飞行器被击落”。
 
 ## 正文
 
-发布时间：2026年05月28日 13:20 来源：央视新闻 责任编辑：【王祎】
+中新网5月29日电 据路透社报道，伊朗媒体此前称一架美军飞行器在伊朗布什尔附近被击落，美方当地时间28日表示这一说法不实。
+
+据报道，伊朗媒体早些时候报道称，伊南部布什尔省当日传出的爆炸声系伊朗防空系统拦截“敌对飞行器”所致。
+
+对此，美军中央司令部在社交媒体上称，“没有美国飞行器被击落”。
 
 ## 相关推荐
 
-- 2026-06-29 23:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 23:26 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 23:26 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 23:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 23:15 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 23:20 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 23:06 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 23:09 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 23:21 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 23:27 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 23:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 23:26 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 23:16 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 23:18 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 23:20 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 23:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 23:29 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 23:29 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 23:21 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 23:22 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 23:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 23:25 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 23:15 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 23:29 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 23:12 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 23:40 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 23:33 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:22 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/17452.shtml)
-- 2026-06-29 23:08 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/913242706885.shtml)
-- 2026-06-29 23:20 - [记者：预计热火将追求小哈达威和康利](https://www.blog.kurohicncr.top/Article/details/48618.shtml)
-- 2026-06-29 23:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/08237327351.shtml)
-- 2026-06-29 23:16 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/23536153.shtml)
-- 2026-06-29 23:10 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/1045667.shtml)
-- 2026-06-29 23:30 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/2991761.shtml)
-- 2026-06-29 23:29 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/9587723.shtml)
-- 2026-06-29 23:35 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/250713049.shtml)
-- 2026-06-29 23:11 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/38565228375.shtml)
-- 2026-06-29 23:27 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/301432611.shtml)
-- 2026-06-29 23:33 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/711470180.shtml)
-- 2026-06-29 23:23 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/3269371.shtml)
-- 2026-06-29 23:26 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/26348.shtml)
-- 2026-06-29 23:21 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/36808.shtml)
+- 2026-06-29 23:20 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/494106.shtml)
+- 2026-06-29 23:34 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/3721928.shtml)
+- 2026-06-29 23:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/32742841.shtml)
+- 2026-06-29 23:16 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/262676045.shtml)
+- 2026-06-29 23:16 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/9418389.shtml)
+- 2026-06-29 23:23 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/828612720.shtml)
+- 2026-06-29 23:23 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/463603086.shtml)
+- 2026-06-29 23:17 - [浙江进入梅雨最强“攻击时段”](http://www.blog.minike.top/Article/details/16663090339.shtml)
+- 2026-06-29 23:39 - [英法德葡存在什么隐患](http://www.share.minike.top/Article/details/539865834750.shtml)
+- 2026-06-29 23:29 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/928025012313.shtml)
+- 2026-06-29 23:37 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/32030572304.shtml)
+- 2026-06-29 23:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/93002.shtml)
+- 2026-06-29 23:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/9409834703.shtml)
+- 2026-06-29 23:31 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/381690966.shtml)
+- 2026-06-29 23:29 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/1117685757.shtml)

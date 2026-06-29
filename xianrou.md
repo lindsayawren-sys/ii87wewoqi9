@@ -1,60 +1,61 @@
-# 为什么年纪轻轻，头发却“留不住”？医生分享防脱心得
+# AI 服务器销量激增，戴尔股价大涨近 40%
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-年纪轻轻，头发怎么就“留不住”了呢 皮肤科医生：当心三大“发量杀手” 门诊里，皮肤科医生每天都被追问：“医生，我每天洗头掉一大把，是不是要秃了？”“防脱洗发水到底有没有用？”在5月28日“全国爱发日”到来之际，我们特邀江苏省中医院皮肤科主治医师李雪纯，跟大家分享防脱心得。 为什么年纪轻轻，头发却“留不住”每天掉多少根头发，才需要去医院？李雪纯表示，毛囊有自己的生长周期，正常人每
+市场对人工智能的旺盛需求，为戴尔的服务器、存储及网络业务注入强劲增长动力。在截至四月的财季里，公司总营收达438亿美元，同比大增88%，较此前预期高出逾80亿美元。 扣除特殊项目后，戴尔每股收益为4.86美元，远超此前2.90美元的预期。公司将全年营收增速预期从此前的23%上调至50%。财报发布后，戴尔股价大涨超38%。 搭载英伟达、超威半导体显卡的AI服务器本季销售额达161
 
 ## 正文
 
-年纪轻轻，头发怎么就“留不住”了呢 皮肤科医生：当心三大“发量杀手” 门诊里，皮肤科医生每天都被追问：“医生，我每天洗头掉一大把，是不是要秃了？
+市场对人工智能的旺盛需求，为戴尔的服务器、存储及网络业务注入强劲增长动力。
 
-”“防脱洗发水到底有没有用？
+在截至四月的财季里，公司总营收达438亿美元，同比大增88%，较此前预期高出逾80亿美元。
 
-”在5月28日“全国爱发日”到来之际，我们特邀江苏省中医院皮肤科主治医师李雪纯，跟大家分享防脱心得。
+扣除特殊项目后，戴尔每股收益为4.86美元，远超此前2.90美元的预期。
 
-为什么年纪轻轻，头发却“留不住”每天掉多少根头发，才需要去医院？
+公司将全年营收增速预期从此前的23%上调至50%。
 
-李雪纯表示，毛囊有自己的生长周期，正常人每天掉50—100根头发，完全正常。
+财报发布后，戴尔股价大涨超38%。
 
-如果每天掉发超过100根，而且持续一两个月不见好转，或者发现头发慢慢变细变软、发际线悄悄“撤退”、头顶发缝越来越宽，就要警惕了。
+搭载英伟达、超威半导体显卡的AI服务器本季销售额达161亿美元，同比暴涨757%，环比增幅也接近80%。
 
-我国脱发人群超2.5亿，20—35岁占六成以上，年轻化趋势明显。
+戴尔首席运营官杰夫・克拉克在财报电话会议上表示，AI服务器销量走高，主要源于客户加码开展智能代理程序研发等各类AI相关业务。
 
-多数属于雄激素性脱发，如果遗传了容易被雄激素攻击的毛囊，熬夜、压力等“催化剂”会显著加速这一进程。
+还有部分客户利用传统服务器，在应用场景中运行已训练完成的人工智能模型，也就是业内所说的推理运算。
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 23:09 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 23:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 23:08 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 23:22 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 23:14 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 23:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 23:13 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 23:21 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 23:26 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 23:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 23:09 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 23:15 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 23:17 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 23:28 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 23:36 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 23:16 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 23:35 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 23:38 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 23:35 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 23:19 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 23:35 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 23:25 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 23:39 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 23:16 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 23:23 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 23:37 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 23:20 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 23:19 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:31 - [一汽大众黄金超混技术来袭](http://www.share.minike.top/Article/details/00290523.shtml)
-- 2026-06-29 23:27 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/847132334.shtml)
-- 2026-06-29 23:34 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/6718816.shtml)
-- 2026-06-29 23:26 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/983828214510.shtml)
-- 2026-06-29 23:20 - [杨德龙：创新药迎来新的发展机遇](https://www.share.minike.top/Article/details/97798.shtml)
-- 2026-06-29 23:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/21827609410.shtml)
-- 2026-06-29 23:31 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/58824.shtml)
-- 2026-06-29 23:12 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/784065109.shtml)
-- 2026-06-29 23:10 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/065372091.shtml)
-- 2026-06-29 23:16 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/88101.shtml)
-- 2026-06-29 23:16 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/1692267.shtml)
-- 2026-06-29 23:14 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/10457910115.shtml)
-- 2026-06-29 23:10 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/8811594.shtml)
-- 2026-06-29 23:18 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/07851.shtml)
-- 2026-06-29 23:17 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/187955926.shtml)
+- 2026-06-29 23:17 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/42583732027.shtml)
+- 2026-06-29 23:25 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/308701.shtml)
+- 2026-06-29 23:36 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/6973793.shtml)
+- 2026-06-29 23:32 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/08336530.shtml)
+- 2026-06-29 23:27 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/2616057567.shtml)
+- 2026-06-29 23:19 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/11881710.shtml)
+- 2026-06-29 23:23 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/565964.shtml)
+- 2026-06-29 23:33 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/24803414173.shtml)
+- 2026-06-29 23:15 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/516428066.shtml)
+- 2026-06-29 23:29 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/4996152984.shtml)
+- 2026-06-29 23:21 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/976255.shtml)
+- 2026-06-29 23:20 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/51340950.shtml)
+- 2026-06-29 23:28 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/512624234.shtml)
+- 2026-06-29 23:39 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/140187.shtml)
+- 2026-06-29 23:35 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/6732932.shtml)

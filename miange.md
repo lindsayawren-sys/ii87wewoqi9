@@ -1,59 +1,61 @@
-# 建筑系统解决方案公司Limbach将出席Stifel波士顿跨行业一对一会议
+# 欧洲企业将获得欧盟科技推进计划中大部分移动卫星频谱
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-建筑系统解决方案公司Limbach Holdings近日宣布，将出席2026年6月2日举行的Stifel第九届波士顿跨行业一对一会议。公司管理层将在会议当天与投资者进行一对一的交流，介绍业务进展及战略规划。 Q1业绩：营收增长，盈利承压 就在此次会议宣布前约三周，Limbach刚刚公布了2026年第一季度财报。公司当季营收为1.389亿美元，同比增长4.3%，符合管理层预期。然
+欧洲周三宣布计划，将大部分宝贵的移动卫星频谱分配给欧洲企业，同时减少美国运营商可获得的份额，此举旨在减少对科技巨头的依赖并促进本土企业发展。 在跨大西洋关系紧张之际，欧盟此举源于对其他地区技术崛起及美国科技巨头主导地位的担忧。 马斯克旗下的“星链”和亚马逊的低地球轨道业务是卫星互联网市场的主要参与者，分析师表示，欧盟关于卫星频谱的最新计划可能会使这些美国竞争对手处于不利地位。
 
 ## 正文
 
-建筑系统解决方案公司Limbach Holdings近日宣布，将出席2026年6月2日举行的Stifel第九届波士顿跨行业一对一会议。
+欧洲周三宣布计划，将大部分宝贵的移动卫星频谱分配给欧洲企业，同时减少美国运营商可获得的份额，此举旨在减少对科技巨头的依赖并促进本土企业发展。
 
-公司管理层将在会议当天与投资者进行一对一的交流，介绍业务进展及战略规划。
+在跨大西洋关系紧张之际，欧盟此举源于对其他地区技术崛起及美国科技巨头主导地位的担忧。
 
-Q1业绩：营收增长，盈利承压 就在此次会议宣布前约三周，Limbach刚刚公布了2026年第一季度财报。
+马斯克旗下的“星链”和亚马逊的低地球轨道业务是卫星互联网市场的主要参与者，分析师表示，欧盟关于卫星频谱的最新计划可能会使这些美国竞争对手处于不利地位。
 
-公司当季营收为1.389亿美元，同比增长4.3%，符合管理层预期。
+欧盟执委会表示，三分之一的频谱将保留用于安全和军事等国家用途，由一家欧盟运营商提供，该运营商将把这一能力与欧盟由290颗卫星组成的IRIS2多轨道阵列整合。
 
-然而，盈利端出现明显下滑：净利润降至440万美元，较上年同期的1020万美元下降57.1%；调整后EBITDA为870万美元，较上年同期的1490万美元下降41.7%。
+IRIS2是欧洲对“星链”的回应。
 
-盈利下滑主要归因于三方面因素：ODR业务收入下降导致的固定成本吸收不足、上年度高额净项目调增的缺失，以及新收购的Pioneer Power业务利润率偏低。
+欧盟执行机构表示，剩余的三分之二频谱将由欧盟和非欧盟运营商平分用于商业用途。
 
-业主直接关系业务：战略转型的核心 Limbach近年来的核心战略是向业主直接关系业务转型，即直接服务于拥有关键基础设施的建筑业主，而非依赖新建项目的总承包商关系业务。
+此举是一项折中方案，此前至少有一位委员曾希望将美国运营商排除在外。
 
-2024年，ODR业务已贡献了公司约67%的收入和约75%的毛利润。
+该2GHz频段非常适合提供直连服务，使用户能够绕过电信运营商，同时也适用于提供关键通信能力，并确保偏远地区能够接入高速互联网。
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 23:30 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 23:23 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 23:12 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 23:08 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 23:19 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 23:30 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 23:22 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 23:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 23:10 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 23:34 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 23:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 23:20 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 23:24 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 23:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 23:22 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 23:35 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 23:20 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 23:23 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 23:35 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 23:18 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 23:28 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 23:31 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 23:16 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 23:37 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 23:21 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 23:31 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 23:15 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:33 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/9652345.shtml)
-- 2026-06-29 23:23 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/744489.shtml)
-- 2026-06-29 23:14 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/537354202.shtml)
-- 2026-06-29 23:09 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/35409017.shtml)
-- 2026-06-29 23:19 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/8292319.shtml)
-- 2026-06-29 23:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/98257803596.shtml)
-- 2026-06-29 23:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/7762388190.shtml)
-- 2026-06-29 23:35 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/57601288.shtml)
-- 2026-06-29 23:33 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/363653.shtml)
-- 2026-06-29 23:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/7693751146.shtml)
-- 2026-06-29 23:23 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/150990725887.shtml)
-- 2026-06-29 23:10 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/853735037.shtml)
-- 2026-06-29 23:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/60432236.shtml)
-- 2026-06-29 23:27 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/847433919.shtml)
-- 2026-06-29 23:24 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/4307657.shtml)
+- 2026-06-29 23:25 - [炽夏](https://www.blog.minike.top/Article/details/0167413.shtml)
+- 2026-06-29 23:29 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/41636273.shtml)
+- 2026-06-29 23:37 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/726266621.shtml)
+- 2026-06-29 23:25 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/3808075363.shtml)
+- 2026-06-29 23:23 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/88817.shtml)
+- 2026-06-29 23:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/48810778.shtml)
+- 2026-06-29 23:27 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/271324660.shtml)
+- 2026-06-29 23:21 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/09461670.shtml)
+- 2026-06-29 23:36 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/8848280.shtml)
+- 2026-06-29 23:41 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/9120458.shtml)
+- 2026-06-29 23:36 - [炽夏](http://www.blog.minike.top/Article/details/9942251.shtml)
+- 2026-06-29 23:22 - [千与千寻](http://www.share.minike.top/Article/details/43709480450.shtml)
+- 2026-06-29 23:29 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/95531990012.shtml)
+- 2026-06-29 23:25 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/03708331.shtml)
+- 2026-06-29 23:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/324869.shtml)

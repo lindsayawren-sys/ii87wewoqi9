@@ -1,57 +1,58 @@
-# 阿维塔王辉：没有利润的销量是伪销量，靠价格战换来的规模是虚假繁荣
+# 韩国央行行长：人工智能热潮抵消伊朗局势冲突带来的冲击
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行。阿维塔科技董事长王辉出席并演讲。 王辉表示，行业有一个共识，电动化是上半场，智能化是下半场。但这个共识之下，过去三五年所有汽车企业的动作都是一样的，在智能化、在新能源领域堆砌了大量技术，于是内卷成了最简单最直接的出路。 “这里的内卷不仅是卷价格，也包括产品技术配置、生态配置、服
+人工智能热潮带来的利好，足以抵消伊朗局势冲突对韩国经济的冲击，韩国央行行长如此表示。 韩国央行行长于周四主持就任后的首场货币政策会议，并在会后表态：人工智能行业繁荣推动半导体出口大增，预计将使韩国2026年国内生产总值（GDP）增速提升0.7个百分点。该正向提振，超过海湾危机预计对GDP造成的0.4个百分点拖累。 今年，人工智能所用高带宽内存芯片需求激增，持续提振韩国经济与股市
 
 ## 正文
 
-专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行。
+人工智能热潮带来的利好，足以抵消伊朗局势冲突对韩国经济的冲击，韩国央行行长如此表示。
 
-阿维塔科技董事长王辉出席并演讲。
+韩国央行行长于周四主持就任后的首场货币政策会议，并在会后表态：人工智能行业繁荣推动半导体出口大增，预计将使韩国2026年国内生产总值（GDP）增速提升0.7个百分点。
 
-王辉表示，行业有一个共识，电动化是上半场，智能化是下半场。
+该正向提振，超过海湾危机预计对GDP造成的0.4个百分点拖累。
 
-但这个共识之下，过去三五年所有汽车企业的动作都是一样的，在智能化、在新能源领域堆砌了大量技术，于是内卷成了最简单最直接的出路。
+今年，人工智能所用高带宽内存芯片需求激增，持续提振韩国经济与股市。
 
-“这里的内卷不仅是卷价格，也包括产品技术配置、生态配置、服务。
+韩国一季度出口额达785亿美元，同比大涨139%。
 
-但卷到最后，卷的不是对手，而是自己的利润。
+本土两大芯片巨头三星与SK海力士的市值均已突破1万亿美元。
 
-”他说，行业规模在增长，但行业整体健康度面临挑战。
+受行业高额利润吸引，散户资金不断入场，韩国综合股价指数（KOSPI）在不到18个月内涨幅超两倍。
 
-他认为，没有利润的销量是伪销量，靠价格战换来的规模是虚假繁荣。
+韩国央行将2026年经济增长预期从2%上调至2.6%。
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 23:16 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 23:33 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 23:23 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 23:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 23:07 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 23:15 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 23:06 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 23:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 23:26 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 23:35 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 23:29 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 23:23 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 23:34 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 23:22 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 23:33 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 23:34 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 23:21 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 23:35 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 23:13 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 23:26 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 23:41 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 23:32 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:14 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/75845000.shtml)
-- 2026-06-29 23:16 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/803410.shtml)
-- 2026-06-29 23:15 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/110725013471.shtml)
-- 2026-06-29 23:28 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/9793577.shtml)
-- 2026-06-29 23:06 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/0851326.shtml)
-- 2026-06-29 23:20 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/6300350.shtml)
-- 2026-06-29 23:32 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/80616425.shtml)
-- 2026-06-29 23:25 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/0951579.shtml)
-- 2026-06-29 23:18 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/44135047642.shtml)
-- 2026-06-29 23:07 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/597198790268.shtml)
-- 2026-06-29 23:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/513917630.shtml)
-- 2026-06-29 23:17 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/13908725462.shtml)
-- 2026-06-29 23:18 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/9180292.shtml)
-- 2026-06-29 23:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/0064607297.shtml)
-- 2026-06-29 23:25 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/98998431.shtml)
+- 2026-06-29 23:27 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/78777.shtml)
+- 2026-06-29 23:29 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/17222257.shtml)
+- 2026-06-29 23:41 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/97715.shtml)
+- 2026-06-29 23:19 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/259808.shtml)
+- 2026-06-29 23:32 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/38964857.shtml)
+- 2026-06-29 23:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/54480187144.shtml)
+- 2026-06-29 23:22 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/695189.shtml)
+- 2026-06-29 23:18 - [恋与深空致歉](http://www.blog.minike.top/Article/details/6886141.shtml)
+- 2026-06-29 23:34 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/531959900.shtml)
+- 2026-06-29 23:21 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/11506.shtml)
+- 2026-06-29 23:38 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/72692.shtml)
+- 2026-06-29 23:27 - [存储三巨头被告了](http://www.share.minike.top/Article/details/354528.shtml)
+- 2026-06-29 23:36 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/80527.shtml)
+- 2026-06-29 23:39 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/5302778839.shtml)
+- 2026-06-29 23:29 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/5874595189.shtml)

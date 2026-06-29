@@ -1,53 +1,60 @@
-# 超120件广东艺术精品亮相香港艺术馆
+# 连跌7个月市值缩水超千亿，赛力斯怎么了
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新网香港5月28日电 “粤艺远洋——沐文堂广东及外销艺术捐赠展”预展及开幕典礼28日在香港艺术馆举行，展出香港艺术收藏家关善明捐赠的超120件广东艺术精品。 香港特区政府文化体育及旅游局局长罗淑佩在致辞时表示，这批文物体系完整，门类丰富，如今落户香港，有助于巩固香港艺术馆在外销艺术收藏及研究领域的全球领导地位，也正好呼应香港作为中外文化交流中心的重要角色。 关善明表示，非常欣
+来源：陆玖商业评论 赛力斯面临的从不是单一财务指标的恶化或者股价的普通回调，而是一组业务层面的系统性难题。 最近，赛力斯出了一堆利好消息，股价还是没涨上去。 5月25日，赛力斯公告称旗下蓝电科技完成约66.71亿元增资扩股，引入宁德时代子公司等五家战投，被外界视为“进一步剥离非核心资产、集中资源全力押注问界主业”的明确信号。次日，赛力斯A股和港股纷纷上涨。 5月27日，赛力斯精
 
 ## 正文
 
-中新网香港5月28日电 “粤艺远洋——沐文堂广东及外销艺术捐赠展”预展及开幕典礼28日在香港艺术馆举行，展出香港艺术收藏家关善明捐赠的超120件广东艺术精品。
+来源：陆玖商业评论 赛力斯面临的从不是单一财务指标的恶化或者股价的普通回调，而是一组业务层面的系统性难题。
 
-香港特区政府文化体育及旅游局局长罗淑佩在致辞时表示，这批文物体系完整，门类丰富，如今落户香港，有助于巩固香港艺术馆在外销艺术收藏及研究领域的全球领导地位，也正好呼应香港作为中外文化交流中心的重要角色。
+最近，赛力斯出了一堆利好消息，股价还是没涨上去。
 
-关善明表示，非常欣慰将超2000件藏品悉数捐赠予香港艺术馆以进行研究、修复、出版、贮存和展览等重要工作，助力香港艺术馆更具代表性地展示广东文化，进一步弘扬岭南艺术。
+5月25日，赛力斯公告称旗下蓝电科技完成约66.71亿元增资扩股，引入宁德时代子公司等五家战投，被外界视为“进一步剥离非核心资产、集中资源全力押注问界主业”的明确信号。
 
-展览展出的超120件广东艺术精品涵盖外销画、画珐琅、银器、扇具等，展示清代广东工匠如何兼顾宫廷审美、外销需求与本地风尚，见证了广东工艺全球化的黄金时代。
+次日，赛力斯A股和港股纷纷上涨。
 
-展览同时设置互动体验区，通过互动屏幕把观众带回19世纪的广东，“亲身”体验清代广东独有的玻璃画工艺。
+5月27日，赛力斯精心准备的“王炸”——问界全新一代M9正式上市，预售期间累计预订量突破7万台，还请了黄渤、于和伟双影帝当品牌大使，声势浩大。
 
-(完)
+然而资本市场并不买单，当天赛力斯A股收跌2.07%，港股收跌1.63%。
+
+截至5月28日收盘，赛力斯股价跌势进一步加剧：A股收跌1.94%；港股盘中一度跌超4%，最终收跌2.76%。
+
+其实，这只是赛力斯漫长下跌通道中的一个缩影。
 
 ## 相关推荐
 
-- 2026-06-29 23:34 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 23:18 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 23:21 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 23:14 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 23:27 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 23:29 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 23:27 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 23:14 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 23:08 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 23:10 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 23:15 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 23:33 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 23:39 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 23:35 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 23:29 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 23:18 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 23:34 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 23:37 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 23:12 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 23:20 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 23:32 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 23:39 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 23:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 23:30 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 23:16 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:34 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/23838797976.shtml)
-- 2026-06-29 23:17 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/278273893004.shtml)
-- 2026-06-29 23:15 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/17913336.shtml)
-- 2026-06-29 23:09 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/07764535.shtml)
-- 2026-06-29 23:34 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/167831.shtml)
-- 2026-06-29 23:32 - [沉睡花园](https://www.blog.minike.top/Article/details/218887.shtml)
-- 2026-06-29 23:07 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/712724.shtml)
-- 2026-06-29 23:20 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/82968298.shtml)
-- 2026-06-29 23:06 - [起风了](https://www.share.kurohicncr.top/Article/details/762014761279.shtml)
-- 2026-06-29 23:20 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/510578013959.shtml)
-- 2026-06-29 23:07 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/3681619101.shtml)
-- 2026-06-29 23:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/314850197.shtml)
-- 2026-06-29 23:15 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/575291054.shtml)
-- 2026-06-29 23:15 - [毒液2](https://www.share.minike.top/Article/details/553832380.shtml)
-- 2026-06-29 23:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/45207085137.shtml)
+- 2026-06-29 23:16 - [返利科技盘中上演“天地板”](https://www.blog.kurohicncr.top/Article/details/93235734831.shtml)
+- 2026-06-29 23:31 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/32941.shtml)
+- 2026-06-29 23:19 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/5762664.shtml)
+- 2026-06-29 23:39 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/54143.shtml)
+- 2026-06-29 23:41 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/735413901557.shtml)
+- 2026-06-29 23:39 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/70442.shtml)
+- 2026-06-29 23:12 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/44082263.shtml)
+- 2026-06-29 23:32 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/29857322.shtml)
+- 2026-06-29 23:34 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/6003995.shtml)
+- 2026-06-29 23:29 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/20529.shtml)
+- 2026-06-29 23:17 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/0617536886.shtml)
+- 2026-06-29 23:24 - [记者：预计热火将追求小哈达威和康利](https://www.blog.kurohicncr.top/Article/details/11491.shtml)
+- 2026-06-29 23:36 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/5980446962.shtml)
+- 2026-06-29 23:25 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/94824044.shtml)
+- 2026-06-29 23:12 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/332140.shtml)

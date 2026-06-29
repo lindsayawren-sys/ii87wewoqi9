@@ -1,61 +1,58 @@
-# 美方官员：美伊已达成协议 尚待特朗普最终批准
+# 美银：白银今年可达100美元/盎司，但涨势难以为继
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-两名美国官员透露，美国与伊朗谈判代表已达成一份为期60天的谅解备忘录。该备忘录旨在延长停火状态，并就伊朗核问题展开谈判，不过特朗普总统尚未对此作出最终批准。 这份谅解备忘录的签署，将是冲突爆发以来最重大的外交突破。但想要达成满足特朗普核问题诉求的最终协议，双方仍需开展多轮密集谈判。 美国官员表示，协议条款在本周二就已基本敲定，但当时双方均需报请高层审批。 美方官员称，伊朗方面随
+文章来源：金十数据 白银价格在每盎司75美元下方徘徊之际，美国银行（Bank of America）对其后续走势给出了“先升后降”的判断：短期内仍有冲高空间，但支撑上涨的基础正在发生变化。 由金属研究主管迈克尔·威德默（Michael Widmer）带领的美银大宗商品团队在最新报告中指出，受黄金上涨带动，银价有望在2026年第四季度触及每盎司100美元。 不过，该行同时提醒，这
 
 ## 正文
 
-两名美国官员透露，美国与伊朗谈判代表已达成一份为期60天的谅解备忘录。
+文章来源：金十数据 白银价格在每盎司75美元下方徘徊之际，美国银行（Bank of America）对其后续走势给出了“先升后降”的判断：短期内仍有冲高空间，但支撑上涨的基础正在发生变化。
 
-该备忘录旨在延长停火状态，并就伊朗核问题展开谈判，不过特朗普总统尚未对此作出最终批准。
+由金属研究主管迈克尔·威德默（Michael Widmer）带领的美银大宗商品团队在最新报告中指出，受黄金上涨带动，银价有望在2026年第四季度触及每盎司100美元。
 
-这份谅解备忘录的签署，将是冲突爆发以来最重大的外交突破。
+不过，该行同时提醒，这一上涨难以长期维持。
 
-但想要达成满足特朗普核问题诉求的最终协议，双方仍需开展多轮密集谈判。
+“尽管金价上涨可能在未来数月再次推动银价突破100美元/盎司，但由于基本需求趋弱，我们认为白银不会持续跑赢，”分析师在报告中写道。
 
-美国官员表示，协议条款在本周二就已基本敲定，但当时双方均需报请高层审批。
+在更长时间维度上，美银预计价格将出现回落，到2027年第二季度，银价或重新回到约75美元/盎司的区间。
 
-美方官员称，伊朗方面随后反馈已完成内部审批、准备签署协议，不过伊朗官方尚未对此予以证实。
+报告认为，限制银价持续走强的核心因素来自需求结构的转变。
 
-美方谈判代表已向特朗普汇报最终协议的全部细节，特朗普表示需要数日时间斟酌。
+随着价格持续攀升，下游行业开始主动降低对白银的依赖。
 
-一名美国官员表示：“总统已告知斡旋方，他希望留出几天时间考虑此事。
+分析师指出，太阳能光伏等关键领域正在通过技术手段减少用银，甚至尝试使用成本更低的替代材料。
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 23:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 23:08 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 23:11 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 23:30 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 23:25 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 23:33 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 23:23 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 23:33 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 23:07 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 23:10 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 23:34 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 23:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 23:17 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 23:29 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 23:19 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 23:23 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 23:17 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 23:17 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 23:17 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 23:33 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 23:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 23:36 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 23:22 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 23:37 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 23:41 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 23:15 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:32 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/57869992.shtml)
-- 2026-06-29 23:28 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/0703374584.shtml)
-- 2026-06-29 23:23 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/89097521.shtml)
-- 2026-06-29 23:08 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/416084.shtml)
-- 2026-06-29 23:26 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/253024721.shtml)
-- 2026-06-29 23:32 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/9019689.shtml)
-- 2026-06-29 23:16 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/772734338504.shtml)
-- 2026-06-29 23:29 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/633566548.shtml)
-- 2026-06-29 23:35 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/089363421.shtml)
-- 2026-06-29 23:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/16106661523.shtml)
-- 2026-06-29 23:27 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/59572.shtml)
-- 2026-06-29 23:09 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/7692099585.shtml)
-- 2026-06-29 23:25 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/0344689.shtml)
-- 2026-06-29 23:34 - [炽夏](http://www.blog.kurohicncr.top/Article/details/3053327712.shtml)
-- 2026-06-29 23:31 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/76734650.shtml)
+- 2026-06-29 23:41 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/023472237.shtml)
+- 2026-06-29 23:17 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/5679526118.shtml)
+- 2026-06-29 23:22 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/526785765.shtml)
+- 2026-06-29 23:24 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/76278419419.shtml)
+- 2026-06-29 23:27 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/1655242.shtml)
+- 2026-06-29 23:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/34388801.shtml)
+- 2026-06-29 23:34 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/3071647952.shtml)
+- 2026-06-29 23:37 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/009181.shtml)
+- 2026-06-29 23:18 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/58482704813.shtml)
+- 2026-06-29 23:39 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/48505912.shtml)
+- 2026-06-29 23:27 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/4371169.shtml)
+- 2026-06-29 23:20 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/0562676.shtml)
+- 2026-06-29 23:23 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/75892868.shtml)
+- 2026-06-29 23:22 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/079775069981.shtml)
+- 2026-06-29 23:20 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/725032162.shtml)

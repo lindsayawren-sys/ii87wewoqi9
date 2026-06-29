@@ -1,57 +1,59 @@
-# Marvell预计定制芯片业务2029财年营收超100亿美元
+# Salesforce应对AI颠覆：不招工程师、砸钱回购，市场仍在观望
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-Marvell Technology周三预测，随着云公司扩展人工智能数据中心，并投资定制芯片以减少对英伟达处理器的依赖，其定制芯片业务2029财年的营收将超过100亿美元。 人工智能的广泛应用推动了对专用芯片的需求，这些芯片与Marvell的互连技术一起，在先进的数据中心中发挥着至关重要的作用，它们连接着用于训练和运行人工智能模型的数千个处理器。 该公司股价今年迄今已上涨超过一
+华尔街正密切关注Salesforce（CRM）如何在人工智能浪潮中自我重塑。尽管这家云软件巨头交出了一份超预期的季报，但市场对其AI战略的疑虑，连同业绩指引的微妙信号，使其股价近期承压。 激进转型：停招工程师，押注AI代理 Salesforce的AI转型决心在招聘策略上体现得尤为彻底。公司首席执行官马克·贝尼奥夫明确表示，2026财年公司将不再招聘新工程师。这一反硅谷常规的决定
 
 ## 正文
 
-Marvell Technology周三预测，随着云公司扩展人工智能数据中心，并投资定制芯片以减少对英伟达处理器的依赖，其定制芯片业务2029财年的营收将超过100亿美元。
+华尔街正密切关注Salesforce（CRM）如何在人工智能浪潮中自我重塑。
 
-人工智能的广泛应用推动了对专用芯片的需求，这些芯片与Marvell的互连技术一起，在先进的数据中心中发挥着至关重要的作用，它们连接着用于训练和运行人工智能模型的数千个处理器。
+尽管这家云软件巨头交出了一份超预期的季报，但市场对其AI战略的疑虑，连同业绩指引的微妙信号，使其股价近期承压。
 
-该公司股价今年迄今已上涨超过一倍。
+激进转型：停招工程师，押注AI代理 Salesforce的AI转型决心在招聘策略上体现得尤为彻底。
 
-晨星分析师威廉·克尔温表示，Marvell的定制芯片收入预期“意味着仅一项业务就能在2028财年至2029财年带来50亿美元的新增收入，预示着2029财年将再次实现强劲增长”。
+公司首席执行官马克·贝尼奥夫明确表示，2026财年公司将不再招聘新工程师。
 
-Marvell目前预计2028财年营收将增长至约165亿美元，高于此前预测的150亿美元。
+这一反硅谷常规的决定，源于AI工具已为开发工作带来超过30%的效率提升。
 
-Marvell预计第二季度营收为27亿美元，上下浮动5%，高于LSEG调查的分析师平均预期的26亿美元。
+目前，AI代理已承担了公司内部30%至50%的工作，并直接导致客户支持人员数量从9000人缩减至5000人。
 
-调整后每股收益预计为93美分，上下浮动5美分，高于预期的90美分。
+这种“效率优先”的理念，正通过其核心AI产品Agentforce推向客户。
 
-Marvell和规模更大的竞争对手博通 （Broadcom） 帮助云计算公司设计定制芯片，以满足其特定的数据中心需求。
+Agentforce旨在部署能独立完成销售线索筛选、客户服务等任务的AI“数字劳动力”。
 
 ## 相关推荐
 
-- 2026-06-29 23:34 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 23:07 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 23:29 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 23:16 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 23:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 23:10 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 23:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 23:30 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 23:27 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 23:12 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 23:15 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 23:30 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 23:32 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 23:32 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 23:39 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 23:16 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 23:41 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 23:18 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 23:27 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 23:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 23:33 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 23:18 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 23:19 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 23:27 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:17 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/69699.shtml)
-- 2026-06-29 23:32 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/76046.shtml)
-- 2026-06-29 23:25 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/59012822.shtml)
-- 2026-06-29 23:30 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/5319632.shtml)
-- 2026-06-29 23:13 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/678636044424.shtml)
-- 2026-06-29 23:19 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/53294828739.shtml)
-- 2026-06-29 23:12 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/6710295098.shtml)
-- 2026-06-29 23:18 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/6174422238.shtml)
-- 2026-06-29 23:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/19569.shtml)
-- 2026-06-29 23:26 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/250708814139.shtml)
-- 2026-06-29 23:15 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/346732.shtml)
-- 2026-06-29 23:28 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/30369108168.shtml)
-- 2026-06-29 23:19 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/2477335.shtml)
-- 2026-06-29 23:09 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/282202841789.shtml)
-- 2026-06-29 23:15 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/95014368.shtml)
+- 2026-06-29 23:41 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/6183133386.shtml)
+- 2026-06-29 23:26 - [沉睡花园](https://www.share.minike.top/Article/details/8792810399.shtml)
+- 2026-06-29 23:20 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/4372049891.shtml)
+- 2026-06-29 23:37 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/75077.shtml)
+- 2026-06-29 23:24 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/01543152.shtml)
+- 2026-06-29 23:32 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/556159966.shtml)
+- 2026-06-29 23:17 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/002150939885.shtml)
+- 2026-06-29 23:17 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/570274943.shtml)
+- 2026-06-29 23:21 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/4136299.shtml)
+- 2026-06-29 23:22 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/77122226.shtml)
+- 2026-06-29 23:31 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/96601231429.shtml)
+- 2026-06-29 23:36 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/5790368.shtml)
+- 2026-06-29 23:28 - [周生如故](http://www.share.minike.top/Article/details/514365729464.shtml)
+- 2026-06-29 23:23 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/2150461.shtml)
+- 2026-06-29 23:18 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/399073308386.shtml)

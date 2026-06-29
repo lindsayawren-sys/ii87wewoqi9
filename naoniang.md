@@ -1,60 +1,57 @@
-# 河南“十五五”如何融入服务全国统一大市场？
+# 汽车之家-S午后涨超7% 全面推进一站式交易服务平台转型
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新网郑州5月28日电 (李贵刚 王宇 阚力)“十五五”时期，河南将如何在融入服务全国统一大市场上发挥更大作用？5月28日，河南省政府新闻办举行“开局起步‘十五五’——奋力谱写中原大地推进中国式现代化新篇章”专题新闻发布会，河南省政府省长王凯就此问题答记者问。 王凯在新闻发布会上介绍，河南最大的特点和优势就是承东启西、连南贯北，沟通四海、联接八方，这种独特的区位优势、交通优势，
+汽车之家-S（02518）午后涨超7%，截至发稿，股价上涨7.36%，现报33.86港元。 5月28日晚，汽车之家披露2026年第一季度未经审计财务业绩。财报显示，公司第一季度总营收为10.5亿元人民币。此外，为持续回馈股东、兑现长期价值承诺，结合公司股息政策，董事会已批准派发每股美国存托股0.66美元，或每股普通股0.1650美元的现金分红，将以美元支付给于2026年7月2日
 
 ## 正文
 
-中新网郑州5月28日电 (李贵刚 王宇 阚力)“十五五”时期，河南将如何在融入服务全国统一大市场上发挥更大作用？
+汽车之家-S（02518）午后涨超7%，截至发稿，股价上涨7.36%，现报33.86港元。
 
-5月28日，河南省政府新闻办举行“开局起步‘十五五’——奋力谱写中原大地推进中国式现代化新篇章”专题新闻发布会，河南省政府省长王凯就此问题答记者问。
+5月28日晚，汽车之家披露2026年第一季度未经审计财务业绩。
 
-王凯在新闻发布会上介绍，河南最大的特点和优势就是承东启西、连南贯北，沟通四海、联接八方，这种独特的区位优势、交通优势，使河南在全国统一大市场建设中独具特色。
+财报显示，公司第一季度总营收为10.5亿元人民币。
 
-为主动融入服务全国统一大市场，河南连续两年召开“新春第一会”进行部署安排，采取了一系列有效措施，打出了一套“组合拳”。
+此外，为持续回馈股东、兑现长期价值承诺，结合公司股息政策，董事会已批准派发每股美国存托股0.66美元，或每股普通股0.1650美元的现金分红，将以美元支付给于2026年7月2日休市后登记在册的美国存托股及普通股持有人，分红总金额约为人民币5亿元。
 
-王凯介绍，“十五五”时期，河南将着重从破卡点、建枢纽、成支点三个方面，纵深推进融入服务全国统一大市场。
+值得一提的是，汽车之家全面推进一站式交易服务平台转型，业务边界从传统信息服务，拓展为“内容+交易+服务”一体化综合平台。
 
-破卡点重点是加快健全市场基础制度规则，严格落实市场准入“全国一张清单”，规范地方政府经济促进行为，落实招商引资鼓励和禁止事项清单，对各类经营主体一视同仁、平等对待，破除各种形式的地方保护和市场分割，有效降低制度性交易成本。
+另外，近期品牌焕新发布会顺利举办，全新LOGO与升级后的APP正式亮相，平台进一步聚焦用户场景与购车全链路服务，精准匹配市场消费需求。
 
-融入服务全国统一大市场，建设好枢纽至关重要。
+此次升级不仅实现用户体验的全面革新，也是平台价值从“信息中介”向“服务基础设施”的历史性跨越。
 
-王凯指出，“十五五”时期，河南将主要是建设物流通道、消费商贸、产业链接和要素配置“四个枢纽”。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 23:20 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 23:15 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 23:10 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 23:21 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 23:21 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 23:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 23:27 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 23:16 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 23:33 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 23:21 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 23:09 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 23:13 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 23:34 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 23:30 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 23:34 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 23:31 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 23:28 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 23:31 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 23:28 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 23:17 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 23:13 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 23:37 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 23:41 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 23:33 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:25 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/859566.shtml)
-- 2026-06-29 23:15 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/2902012179.shtml)
-- 2026-06-29 23:10 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/716070.shtml)
-- 2026-06-29 23:22 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/00799944.shtml)
-- 2026-06-29 23:16 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/07484.shtml)
-- 2026-06-29 23:09 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/441314.shtml)
-- 2026-06-29 23:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/18386582.shtml)
-- 2026-06-29 23:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/675841.shtml)
-- 2026-06-29 23:07 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/372552755162.shtml)
-- 2026-06-29 23:12 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/600624.shtml)
-- 2026-06-29 23:09 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/25819003677.shtml)
-- 2026-06-29 23:14 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/49797.shtml)
-- 2026-06-29 23:11 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/483883.shtml)
-- 2026-06-29 23:23 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/8670865.shtml)
-- 2026-06-29 23:12 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/551529531688.shtml)
+- 2026-06-29 23:15 - [送你一朵小红花](https://www.blog.minike.top/Article/details/9727334.shtml)
+- 2026-06-29 23:33 - [东方风云榜直播](http://www.blog.minike.top/Article/details/391474575908.shtml)
+- 2026-06-29 23:13 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/7777202.shtml)
+- 2026-06-29 23:24 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/67029597482.shtml)
+- 2026-06-29 23:15 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/773845015251.shtml)
+- 2026-06-29 23:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/23680564.shtml)
+- 2026-06-29 23:37 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/5572514777.shtml)
+- 2026-06-29 23:38 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/318308467.shtml)
+- 2026-06-29 23:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/95192.shtml)
+- 2026-06-29 23:13 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/539918979.shtml)
+- 2026-06-29 23:29 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/6947053.shtml)
+- 2026-06-29 23:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/4862858.shtml)
+- 2026-06-29 23:30 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/4464127.shtml)
+- 2026-06-29 23:17 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/74973345.shtml)
+- 2026-06-29 23:26 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/2651804100.shtml)

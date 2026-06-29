@@ -1,61 +1,61 @@
-# 三星电子以巨额奖金协议化解罢工危机，员工投票批准薪资方案
+# 沈阳博物馆用多件展品讲述辽宁与《红楼梦》的缘分
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-三星电子工会宣布，工会成员已投票批准此前达成的临时薪资协议，标志着这家全球最大存储芯片制造商成功避免了一场可能动摇全球半导体供应链的大规模罢工。根据投票结果，在为期六天的投票中，62616名工会成员里有73.7%的人投下赞成票，协议正式生效。 临时协议：在罢工截止前90分钟达成 此次薪资谈判可谓一波三折。自去年年底以来，三星劳资双方一直围绕绩效奖金分配问题陷入僵局。工会最初要求
+中新网沈阳5月28日电 (记者 韩宏)“绘梦三重缘——辽宁与红楼梦文化”展28日正在沈阳博物馆展出，以旅顺博物馆珍藏的清代孙温、孙允谟《红楼梦》画册为主要展品，辅以沈阳地区清代历史文物，系统揭示辽宁与《红楼梦》之间深厚而独特的文化渊源。 本次展览由沈阳博物馆携手旅顺博物馆联合主办，展览围绕辽宁与《红楼梦》的三重因缘展开：曹氏先祖在辽宁生活，让这部作品“生于斯”；程伟元、高鹗与辽
 
 ## 正文
 
-三星电子工会宣布，工会成员已投票批准此前达成的临时薪资协议，标志着这家全球最大存储芯片制造商成功避免了一场可能动摇全球半导体供应链的大规模罢工。
+中新网沈阳5月28日电 (记者 韩宏)“绘梦三重缘——辽宁与红楼梦文化”展28日正在沈阳博物馆展出，以旅顺博物馆珍藏的清代孙温、孙允谟《红楼梦》画册为主要展品，辅以沈阳地区清代历史文物，系统揭示辽宁与《红楼梦》之间深厚而独特的文化渊源。
 
-根据投票结果，在为期六天的投票中，62616名工会成员里有73.7%的人投下赞成票，协议正式生效。
+本次展览由沈阳博物馆携手旅顺博物馆联合主办，展览围绕辽宁与《红楼梦》的三重因缘展开：曹氏先祖在辽宁生活，让这部作品“生于斯”；程伟元、高鹗与辽宁的深厚关联，让这部作品“传于世”；孙温、孙允谟《红楼梦》画册现珍藏于辽宁，让这部作品“见于形”。
 
-临时协议：在罢工截止前90分钟达成 此次薪资谈判可谓一波三折。
+展览现场，画卷依照《红楼梦》情节徐徐铺陈，青山绿水相映成趣，雕梁画栋错落有致，画中人物相聚闲叙，于细腻笔墨间尽显人物命运与世情百态。
 
-自去年年底以来，三星劳资双方一直围绕绩效奖金分配问题陷入僵局。
+值得关注的是，珍藏于辽宁的《红楼梦》画册展出，吸引了诸多观众前来。
 
-工会最初要求取消奖金上限、将营业利润的15%纳入员工奖金池，并上调工资7%。
+旅顺博物馆藏清代孙温、孙允谟《红楼梦》画册，是目前存世规模最大、情节最完整的《红楼梦》题材绘画作品，被誉为“二百余年来《红楼梦》绘画的集大成之作”。
 
-在谈判多次破裂后，工会于3月中旬举行的罢工投票中获得93.1%成员赞成，并计划于5月21日起举行为期18天的总罢工。
+画册此次在沈阳博物馆展出，让本地观众在“家门口”一睹这部“纸上红楼”的丹青风华。
 
-戏剧性的转折发生在5月20日深夜。
+展览还融入数字多媒体技术，让静态古画得以动态演绎，观众可“走入”大观园，领略界画之精、名物之盛、花木之趣。
 
-在韩国雇佣劳动部长金荣春亲自介入调解后，劳资双方在罢工预定开始前约90分钟达成了临时协议。
+互动装置、打卡点等巧妙设计，也为不同年龄段的观众提供了轻松而富有教育意义的参观方式。
 
 ## 相关推荐
 
-- 2026-06-29 23:24 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 23:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 23:20 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 23:23 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 23:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 23:16 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 23:24 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 23:09 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 23:32 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 23:35 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 23:17 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 23:09 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 23:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 23:33 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 23:28 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 23:32 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 23:19 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 23:38 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 23:35 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 23:14 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 23:15 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 23:23 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 23:17 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 23:30 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 23:41 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 23:19 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 23:26 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 23:39 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 23:32 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 23:37 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:22 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/393205567298.shtml)
-- 2026-06-29 23:33 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/54966747445.shtml)
-- 2026-06-29 23:12 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/604350542.shtml)
-- 2026-06-29 23:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/864591449.shtml)
-- 2026-06-29 23:23 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/288381.shtml)
-- 2026-06-29 23:17 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/02255966361.shtml)
-- 2026-06-29 23:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/0385587.shtml)
-- 2026-06-29 23:09 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/90876617983.shtml)
-- 2026-06-29 23:14 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/905694.shtml)
-- 2026-06-29 23:15 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/60467.shtml)
-- 2026-06-29 23:08 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/43675654.shtml)
-- 2026-06-29 23:10 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.kurohicncr.top/Article/details/6965923246.shtml)
-- 2026-06-29 23:22 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/7830638.shtml)
-- 2026-06-29 23:15 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/80794.shtml)
-- 2026-06-29 23:18 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/0524449.shtml)
+- 2026-06-29 23:25 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/910787967532.shtml)
+- 2026-06-29 23:19 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/926794600383.shtml)
+- 2026-06-29 23:27 - [啊啊啊](http://www.share.minike.top/Article/details/7904917707.shtml)
+- 2026-06-29 23:32 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/327677819274.shtml)
+- 2026-06-29 23:14 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/8172686467.shtml)
+- 2026-06-29 23:14 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/895174795798.shtml)
+- 2026-06-29 23:29 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/0147776.shtml)
+- 2026-06-29 23:34 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/063107798.shtml)
+- 2026-06-29 23:17 - [英法德葡存在什么隐患](https://www.blog.minike.top/Article/details/9239820.shtml)
+- 2026-06-29 23:36 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/1952137367.shtml)
+- 2026-06-29 23:40 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/305098.shtml)
+- 2026-06-29 23:22 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/81034241.shtml)
+- 2026-06-29 23:14 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/8586891525.shtml)
+- 2026-06-29 23:16 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/445938114479.shtml)
+- 2026-06-29 23:39 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/4376055.shtml)

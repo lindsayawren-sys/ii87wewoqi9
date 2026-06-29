@@ -1,58 +1,60 @@
-# 北京拟到2035年初步建成国际一流的和谐宜居之都
+# 豆包回应“家长听豆包给婴儿每顿只喂60ml奶”：不实，正常情况下不会给出该建议
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新网北京5月28日电 (记者 陈杭)《中共北京市委 北京市人民政府关于推动城市高质量发展的实施意见》(以下简称《实施意见》)28日正式发布。《实施意见》牢牢把握首都城市战略定位，锚定建设国际一流的和谐宜居之都的目标，对当前和今后一个时期首都城市高质量发展进行全面部署，由十部分、30条内容构成。到2030年，国际一流的和谐宜居之都建设取得显著成效；到2035年，国际一流的和谐宜
+5月28日，豆包官方发布关于“家长听豆包给婴儿每顿只喂60ml奶”相关不实报道的情况说明： 近日，有媒体报道称，广西南宁一对新手父母“根据豆包建议，每顿只给满月婴儿喂60毫升奶”，并称孩子因此哭闹，体重未增长。到医院复查后，医生称喂养方式错误，足月满月宝宝正常单次奶量可达80至100毫升，60毫升远达不到生长需求。部分自媒体营销号甚至造谣称“家长听豆包给婴儿每天只喂60ml奶”
 
 ## 正文
 
-中新网北京5月28日电 (记者 陈杭)《中共北京市委 北京市人民政府关于推动城市高质量发展的实施意见》(以下简称《实施意见》)28日正式发布。
+5月28日，豆包官方发布关于“家长听豆包给婴儿每顿只喂60ml奶”相关不实报道的情况说明： 近日，有媒体报道称，广西南宁一对新手父母“根据豆包建议，每顿只给满月婴儿喂60毫升奶”，并称孩子因此哭闹，体重未增长。
 
-《实施意见》牢牢把握首都城市战略定位，锚定建设国际一流的和谐宜居之都的目标，对当前和今后一个时期首都城市高质量发展进行全面部署，由十部分、30条内容构成。
+到医院复查后，医生称喂养方式错误，足月满月宝宝正常单次奶量可达80至100毫升，60毫升远达不到生长需求。
 
-到2030年，国际一流的和谐宜居之都建设取得显著成效；到2035年，国际一流的和谐宜居之都初步建成。
+部分自媒体营销号甚至造谣称“家长听豆包给婴儿每天只喂60ml奶”。
 
-形成148项重点任务清单 《实施意见》由十部分、30条构成，分为三大板块。
+经了解，相关事实如下： 1，婴儿喂养是否充足，不能脱离每日总奶量，喂养频次、体重增长、婴儿反应等因素考察。
 
-第一板块包括第一部分，为总论，明确了总体要求和发展目标；第二板块包括第二至第九部分，为分论，围绕“八个全面”具体部署了当前和今后一个时期北京城市建设发展的重要举措；第三板块包括第十部分，主要强调实施保障。
+根据中国国家卫生健康委员会2024年发布的《婴幼儿营养喂养评估服务指南(试行)>〉，母乳喂养时，3月龄以下婴儿应按需喂养，每日母乳喂养8~10次或以上；混合喂养和人工喂养时：满月婴儿每日喂奶约600~700ml。
 
-北京市规划和自然资源委员会相关负责人表示，《实施意见》起草过程中，重点突出五个方面内容：一是深入贯彻落实党中央决策部署，把北京的发展纳入中国式现代化事业全局考量，积极发挥首都示范引领作用；二是牢牢把握首都城市战略定位，加强“四个中心”功能建设，把“全面落实首都城市战略定位，持续提升首都功能”作为第一项任务予以部署。
+2，我们对豆包进行了多轮测试，正常情况下，不会给出“满月婴儿每顿只喂60ml”的建议，豆包会在回复中给出每日总奶量，提示家长关注婴儿后续反应，并建议出现哭闹等情况时增加喂养或及时咨询医生。
 
-三是坚定不移推动城市内涵式发展，以科技创新引领新质生产力发展，加快推进城市更新项目实施；四是坚持和加强党对城市工作的全面领导，完善党领导城市工作的体制机制，加强政策创新；五是突出实施导向，形成了《实施意见》148项重点任务清单及2026年度工作安排，同时组织实施一批城市更新重点项目。
+除豆包外，其他主流大模型也给出了类似的建议。
 
-加强“四个中心”功能建设 北京因“都”而立，因“都”而兴，是展示中国式现代化建设成果、中国特色社会主义制度优势的重要窗口。
+3，媒体报道后，我们第一时间联系了相关医院及接受媒体采访的医生。
 
 ## 相关推荐
 
-- 2026-06-29 23:11 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 23:10 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 23:10 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 23:20 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 23:10 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-29 23:22 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 23:09 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 23:19 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 23:18 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 23:18 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 23:09 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 23:19 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 23:13 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 23:32 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 23:16 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 23:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 23:15 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 23:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 23:22 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 23:24 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 23:36 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 23:19 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 23:22 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 23:14 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 23:28 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 23:30 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:09 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/43479754077.shtml)
-- 2026-06-29 23:13 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/12812382545.shtml)
-- 2026-06-29 23:35 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/92433232.shtml)
-- 2026-06-29 23:09 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/12520427141.shtml)
-- 2026-06-29 23:06 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/831604.shtml)
-- 2026-06-29 23:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/059671.shtml)
-- 2026-06-29 23:17 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/0138636888.shtml)
-- 2026-06-29 23:34 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/6552308.shtml)
-- 2026-06-29 23:27 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/79642452.shtml)
-- 2026-06-29 23:10 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/5174112425.shtml)
-- 2026-06-29 23:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/27898.shtml)
-- 2026-06-29 23:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/100401934.shtml)
-- 2026-06-29 23:32 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/714618889.shtml)
-- 2026-06-29 23:27 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/9929240.shtml)
-- 2026-06-29 23:13 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/48318.shtml)
+- 2026-06-29 23:36 - [流金岁月](https://www.share.kurohicncr.top/Article/details/385852.shtml)
+- 2026-06-29 23:13 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/90715967618.shtml)
+- 2026-06-29 23:41 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/91674.shtml)
+- 2026-06-29 23:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/012521003.shtml)
+- 2026-06-29 23:39 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/8834364994.shtml)
+- 2026-06-29 23:23 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/351439492141.shtml)
+- 2026-06-29 23:15 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/319777.shtml)
+- 2026-06-29 23:19 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/3876917680.shtml)
+- 2026-06-29 23:38 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/064565474.shtml)
+- 2026-06-29 23:26 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/2676127779.shtml)
+- 2026-06-29 23:19 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/405393004.shtml)
+- 2026-06-29 23:30 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/495410379656.shtml)
+- 2026-06-29 23:24 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/2310882.shtml)
+- 2026-06-29 23:40 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/68691.shtml)
+- 2026-06-29 23:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/64391703.shtml)

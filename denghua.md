@@ -1,55 +1,60 @@
-# 小新在国新办见到了五位民营企业家
+# 浙江启动“班超”“校超” 高校能以寝室为基本参赛单元
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月28日 16:52 来源：中国新闻网 5月28日中新社记者在国务院新闻办的发布厅内，见到了台上的主角——五位民营企业家。 到场的五位可是各有来头：泡泡玛特的王宁让中国潮玩走向世界；稀宇科技闫俊杰刷新AI公司上市纪录；卧龙控股陈嫣妮带领制造业全球布局；晶峰晶体高青突破“卡脖子”技术；飞尚科技刘文峰深耕物联网安全。 2026年是“十五五”开局之年，也是《民
+中新网杭州5月28日电(林波 武怡晗 顾俊丽)5月28日，浙江省教育厅发布《中小学校“浙里阳光”班级超级联赛方案》《高校“三大球”校园超级联赛方案》，率先在全国省级层面启动“班超”“校超”，推动所有学校在年底前建立起“人人有参与、班班有队伍、周周有赛事”的常态化机制。 其中，中小学“班超”以覆盖全员、全程、全域为目标，以足球、篮球、排球“三大球”为重点，以班级为基本单元，构建上
 
 ## 正文
 
-发布时间：2026年05月28日 16:52 来源：中国新闻网 5月28日中新社记者在国务院新闻办的发布厅内，见到了台上的主角——五位民营企业家。
+中新网杭州5月28日电(林波 武怡晗 顾俊丽)5月28日，浙江省教育厅发布《中小学校“浙里阳光”班级超级联赛方案》《高校“三大球”校园超级联赛方案》，率先在全国省级层面启动“班超”“校超”，推动所有学校在年底前建立起“人人有参与、班班有队伍、周周有赛事”的常态化机制。
 
-到场的五位可是各有来头：泡泡玛特的王宁让中国潮玩走向世界；稀宇科技闫俊杰刷新AI公司上市纪录；卧龙控股陈嫣妮带领制造业全球布局；晶峰晶体高青突破“卡脖子”技术；飞尚科技刘文峰深耕物联网安全。
+其中，中小学“班超”以覆盖全员、全程、全域为目标，以足球、篮球、排球“三大球”为重点，以班级为基本单元，构建上下衔接、横向互动的“千校万班”赛事体系。
 
-2026年是“十五五”开局之年，也是《民营经济促进法》施行一周年。
+在组织形式上，鼓励学校充分利用大课间及碎片化时间，广泛开展人人可参与的短、频、快“班超”微竞赛。
 
-民营经济是推进中国式现代化的生力军，它贡献了90%以上的城镇就业，完成了70%以上的技术创新成果。
+针对不同学段特点，小学段侧重项目体验与兴趣培养，开展趣味化、游戏式的比赛活动；初高中段逐步推行标准化赛制，并鼓励设置基本功挑战赛、多元对抗赛、活力家庭赛等个性化、体验式赛事活动。
 
-今天出席发布会的五位企业家，既是中国民营企业界高质量发展的缩影，也是展示中国经济的鲜活名片。
+此外，“班超”特别注重全员参与，鼓励更多学生发挥专长，除参加比赛外，积极参与赛事的组织、执裁、解说等活动。
 
-(郎佳慧 董语飞 陶思阅 制作 徐妙巧) 责任编辑：【罗攀】
+同时，高校“校超”以“全员参与、全程贯通、全域联动”为目标，通过“百校千场”赛事丰富高校“三大球”活动。
+
+各高校将以寝室、班级、社团等为基本参赛单元，健全“3+X”多层级赛事机制，分层分类设立学生高水平组、普通组，以及教工组、师生混合组等，最大程度降低参赛门槛。
+
+在赛事形式上，鼓励高校积极创新，设置基本功挑战赛、师生友谊赛等，并探索高教园区内的“15分钟运动圈”跨校赛事。
 
 ## 相关推荐
 
-- 2026-06-29 23:23 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 23:06 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 23:15 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 23:16 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 23:35 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 23:35 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 23:10 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 23:31 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 23:27 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 23:21 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 23:28 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 23:22 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 23:27 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 23:20 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 23:16 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 23:20 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 23:32 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 23:26 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 23:18 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 23:17 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 23:13 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 23:41 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 23:26 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 23:33 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 23:19 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 23:17 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 23:32 - [电影后室值得看吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:20 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/67456501031.shtml)
-- 2026-06-29 23:15 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/79676041107.shtml)
-- 2026-06-29 23:30 - [毒液2](https://www.blog.kurohicncr.top/Article/details/34115878715.shtml)
-- 2026-06-29 23:13 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/6262343.shtml)
-- 2026-06-29 23:17 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/59675685252.shtml)
-- 2026-06-29 23:36 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/6108479071.shtml)
-- 2026-06-29 23:24 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/837949299.shtml)
-- 2026-06-29 23:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/33123413576.shtml)
-- 2026-06-29 23:07 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/0778539337.shtml)
-- 2026-06-29 23:34 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/3216341.shtml)
-- 2026-06-29 23:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/33379929084.shtml)
-- 2026-06-29 23:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/19573.shtml)
-- 2026-06-29 23:23 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/7557954.shtml)
-- 2026-06-29 23:26 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/807661010.shtml)
-- 2026-06-29 23:32 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/004718367.shtml)
+- 2026-06-29 23:35 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/9684996980.shtml)
+- 2026-06-29 23:23 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/905475062388.shtml)
+- 2026-06-29 23:28 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/18923347514.shtml)
+- 2026-06-29 23:40 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/63246068860.shtml)
+- 2026-06-29 23:26 - [青春环游记第三季](http://www.share.minike.top/Article/details/343362675.shtml)
+- 2026-06-29 23:33 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/65851.shtml)
+- 2026-06-29 23:41 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.minike.top/Article/details/183341.shtml)
+- 2026-06-29 23:17 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/6552243.shtml)
+- 2026-06-29 23:24 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/72884076.shtml)
+- 2026-06-29 23:30 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/978958197.shtml)
+- 2026-06-29 23:21 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/6465832287.shtml)
+- 2026-06-29 23:37 - [金刚川](http://www.blog.minike.top/Article/details/1317618930.shtml)
+- 2026-06-29 23:15 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/6236977.shtml)
+- 2026-06-29 23:36 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/677752787.shtml)
+- 2026-06-29 23:39 - [毒液2](http://www.share.minike.top/Article/details/7875284128.shtml)

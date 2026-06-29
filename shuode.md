@@ -1,60 +1,57 @@
-# 美股折扣零售商Dollar Tree与Dollar General发布财报后股价大涨
+# 金价跌破4400，今年跌掉20%！中国矿企老板：不慌，我们还在赚
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-当通胀高企、油价飙升，市场普遍预期依赖中低收入客群的折扣零售商会最先受到冲击时，Dollar Tree和Dollar General却用一份亮眼的财报给出了截然不同的答案。在整体零售环境阴云密布的背景下，这两家折扣零售巨头的股价在财报发布后双双飙升，上演了逆势行情。 Dollar Tree公布的2026财年第一季度财报显示，净销售额同比增长7.2%至50亿美元，同店销售额增长3
+5月28日，现货黄金盘中跌破4400美元/盎司，跌幅超1.5%，报4386美元，COMEX黄金报4420美元。就在前一天，金价刚触及两个月低点4450美元。一天之后，这个低点就被刷新了。黄金多头正面临2026年以来最严峻的考验。三重压力同步发酵：美伊冲突升级、美联储鹰派信号、美元走强——金价连续两日下挫，一度跌至4365美元，距离决定牛熊走向的关键技术支撑4370美元仅一步之遥
 
 ## 正文
 
-当通胀高企、油价飙升，市场普遍预期依赖中低收入客群的折扣零售商会最先受到冲击时，Dollar Tree和Dollar General却用一份亮眼的财报给出了截然不同的答案。
+5月28日，现货黄金盘中跌破4400美元/盎司，跌幅超1.5%，报4386美元，COMEX黄金报4420美元。
 
-在整体零售环境阴云密布的背景下，这两家折扣零售巨头的股价在财报发布后双双飙升，上演了逆势行情。
+就在前一天，金价刚触及两个月低点4450美元。
 
-Dollar Tree公布的2026财年第一季度财报显示，净销售额同比增长7.2%至50亿美元，同店销售额增长3.5%，远高于市场预期。
+一天之后，这个低点就被刷新了。
 
-更令人瞩目的是，调整后摊薄每股收益飙升38%至1.74美元，业绩增长主要由更高的商品加成率、更低的货运成本和损耗减少所驱动。
+黄金多头正面临2026年以来最严峻的考验。
 
-公司同时将全年调整后每股收益指引上调至6.70至7.10美元区间。
+三重压力同步发酵：美伊冲突升级、美联储鹰派信号、美元走强——金价连续两日下挫，一度跌至4365美元，距离决定牛熊走向的关键技术支撑4370美元仅一步之遥。
 
-受此利好刺激，Dollar Tree股价当日大涨约16%。
+仅仅几周前，黄金还在5600美元附近的历史高位上意气风发。
 
-Dollar General同样交出了扎实的成绩单。
+自年初创下近5600美元/盎司的历史高位以来，金价回撤幅度已超20%。
 
-公司第一季度净销售额达104.36亿美元，同比增长5.26%，超出市场预期的102.5亿美元；净利润3.92亿美元，同比增长7.87%；每股收益1.78美元，同样超越分析师预期的1.48美元。
+此刻站在技术牛熊分界线前，投资者最关心的问题只有一个：牛市还在吗？
 
 ## 相关推荐
 
-- 2026-06-29 23:34 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 23:32 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 23:21 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 23:20 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 23:35 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 23:32 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 23:15 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 23:27 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 23:34 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 23:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 23:16 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 23:30 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 23:07 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 23:26 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 23:15 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 23:33 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 23:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 23:15 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 23:17 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 23:12 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 23:25 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 23:33 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 23:23 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 23:32 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 23:22 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:11 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/59198.shtml)
-- 2026-06-29 23:10 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/604382.shtml)
-- 2026-06-29 23:19 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/6933962.shtml)
-- 2026-06-29 23:20 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/757073.shtml)
-- 2026-06-29 23:22 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/046049240174.shtml)
-- 2026-06-29 23:28 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/10455.shtml)
-- 2026-06-29 23:19 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/864035144977.shtml)
-- 2026-06-29 23:34 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/810149175988.shtml)
-- 2026-06-29 23:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/7848094790.shtml)
-- 2026-06-29 23:06 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/80672.shtml)
-- 2026-06-29 23:12 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/367388969111.shtml)
-- 2026-06-29 23:30 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/12223728707.shtml)
-- 2026-06-29 23:29 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/53213.shtml)
-- 2026-06-29 23:35 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/56570928.shtml)
-- 2026-06-29 23:27 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/381119.shtml)
+- 2026-06-29 23:41 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/04820103.shtml)
+- 2026-06-29 23:15 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/7796324.shtml)
+- 2026-06-29 23:12 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/05868835824.shtml)
+- 2026-06-29 23:35 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/7601157341.shtml)
+- 2026-06-29 23:16 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/13967546516.shtml)
+- 2026-06-29 23:41 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/88491.shtml)
+- 2026-06-29 23:34 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/91171831530.shtml)
+- 2026-06-29 23:15 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/834192828666.shtml)
+- 2026-06-29 23:41 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/64966.shtml)
+- 2026-06-29 23:41 - [浙江进入梅雨最强“攻击时段”](http://www.blog.minike.top/Article/details/7924429.shtml)
+- 2026-06-29 23:39 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/6362411424.shtml)
+- 2026-06-29 23:18 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/529264.shtml)
+- 2026-06-29 23:30 - [电影后室值得看吗](http://www.share.minike.top/Article/details/5260456.shtml)
+- 2026-06-29 23:29 - [扬名立万](http://www.blog.minike.top/Article/details/1000004.shtml)
+- 2026-06-29 23:39 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/540521821829.shtml)

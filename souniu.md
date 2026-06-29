@@ -1,49 +1,48 @@
-# 日本历史学者：我对高市早苗政府的政策非常担心
+# 邮储银行周口市分行被罚75万元：项目贷款资金回流 贷后管理不到位等
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新网5月28日电 (记者 张素 周昕 黄钰钦)纪念东京审判开庭80周年国际研讨会28日起在上海、南京举行。来华出席研讨会的日本历史学者、细菌战问题研究专家森正孝27日接受中新社记者专访时表示，我对高市早苗政府的政策非常担心，她一直在强调把日本变成“又富又强”的国家，这个“强”是指强军强兵，不是让人民变得更强。“前事不忘，后事之师”，这是我1985年第一次来中国时，一个朋友教会
+5月28日金融一线消息，据国家金融监督管理总局周口监管分局行政处罚信息公示表显示，中国邮政储蓄银行股份有限公司周口市分行因项目贷款资金回流，贷后管理不到位、未发现流动资金贷款被挪用，个人住房贷款业务办理不审慎，被罚款75万元。同时，耿坤（时任中国邮政储蓄银行股份有限公司沈丘支行公司金融部客户经理）因贷后管理不到位，未发现流动资金贷款被挪用，被警告；邵艳（时任中国邮政储蓄银行股份
 
 ## 正文
 
-中新网5月28日电 (记者 张素 周昕 黄钰钦)纪念东京审判开庭80周年国际研讨会28日起在上海、南京举行。
+5月28日金融一线消息，据国家金融监督管理总局周口监管分局行政处罚信息公示表显示，中国邮政储蓄银行股份有限公司周口市分行因项目贷款资金回流，贷后管理不到位、未发现流动资金贷款被挪用，个人住房贷款业务办理不审慎，被罚款75万元。
 
-来华出席研讨会的日本历史学者、细菌战问题研究专家森正孝27日接受中新社记者专访时表示，我对高市早苗政府的政策非常担心，她一直在强调把日本变成“又富又强”的国家，这个“强”是指强军强兵，不是让人民变得更强。
+同时，耿坤（时任中国邮政储蓄银行股份有限公司沈丘支行公司金融部客户经理）因贷后管理不到位，未发现流动资金贷款被挪用，被警告；邵艳（时任中国邮政储蓄银行股份有限公司周口市分行消费部经理）因个人住房贷款业务办理不审慎，被警告；王震（时任中国邮政储蓄银行股份有限公司周口市分行副行长）因项目贷款资金回流，被警告；柳昆仑（中国邮政储蓄银行股份有限公司太康县支行公司部客户经理）因贷后管理不到位，未发现流动资金贷款被挪用，被警告。
 
-“前事不忘，后事之师”，这是我1985年第一次来中国时，一个朋友教会我的，至今仍铭刻于我心间。
-
-这位历史学者还告诫日本勿再走上历史老路。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 23:08 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 23:18 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 23:16 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 23:15 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 23:18 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 23:21 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 23:30 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 23:10 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 23:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 23:14 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 23:20 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 23:31 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 23:20 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 23:38 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 23:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 23:41 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 23:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 23:20 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 23:16 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 23:28 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 23:19 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 23:25 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 23:14 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:34 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/026577.shtml)
-- 2026-06-29 23:34 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/29126103.shtml)
-- 2026-06-29 23:34 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/5643931299.shtml)
-- 2026-06-29 23:32 - [一见倾心](https://www.share.minike.top/Article/details/46389610099.shtml)
-- 2026-06-29 23:33 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/979778488907.shtml)
-- 2026-06-29 23:10 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/7427100.shtml)
-- 2026-06-29 23:11 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/613806009.shtml)
-- 2026-06-29 23:15 - [返利科技盘中上演“天地板”](http://www.blog.kurohicncr.top/Article/details/7901877.shtml)
-- 2026-06-29 23:09 - [美股](https://www.share.kurohicncr.top/Article/details/33806506582.shtml)
-- 2026-06-29 23:14 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/864293.shtml)
-- 2026-06-29 23:15 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/67043876636.shtml)
-- 2026-06-29 23:06 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/3605911.shtml)
-- 2026-06-29 23:33 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/821145286009.shtml)
-- 2026-06-29 23:13 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/71122710327.shtml)
-- 2026-06-29 23:09 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/05806042.shtml)
+- 2026-06-29 23:33 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/4484249809.shtml)
+- 2026-06-29 23:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/58777116.shtml)
+- 2026-06-29 23:34 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/6607684667.shtml)
+- 2026-06-29 23:27 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/297494.shtml)
+- 2026-06-29 23:32 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/37155.shtml)
+- 2026-06-29 23:21 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/959637.shtml)
+- 2026-06-29 23:32 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/618067415538.shtml)
+- 2026-06-29 23:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/223593938247.shtml)
+- 2026-06-29 23:35 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/363689001433.shtml)
+- 2026-06-29 23:20 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/687245.shtml)
+- 2026-06-29 23:41 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/166425268209.shtml)
+- 2026-06-29 23:31 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/83500002239.shtml)
+- 2026-06-29 23:36 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/327155.shtml)
+- 2026-06-29 23:21 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/942382072.shtml)
+- 2026-06-29 23:30 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/52149534065.shtml)

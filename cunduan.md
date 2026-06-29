@@ -1,61 +1,61 @@
-# 富国银行CEO：预计投资银行和交易业务将实现15%左右的增长
+# 事关黄金！万亿资管巨头发声：长期看涨，买黄金股比买实物金强
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-富国银行CEO沙夫（Charlie Scharf）周三表示，预计第二季度投资银行和交易业务收入将增长15%左右。 在伯恩斯坦会议上发言时，沙夫表示，该行财富管理业务的收入增长也正朝着低两位数增长的目标稳步推进。 第一季度，富国银行投资银行部门 收入增长12.7%， 市场业务收入增长19%。 沙夫表示，投资银行和市场业务领域的客户活动依然强劲，同时该行通过增加资产负债表规模，继续
+文章来源：中新经纬 近期，霍尔木兹海峡局势持续紧张，国际油价剧烈波动，黄金在通胀上升与利率反转的拉扯中反复博弈。 近日，南非资产管理机构晋达资管环球天然资源部门主管Paul Gooden表示，当前石油市场正面临1200万桶/天的历史级供应中断，远超1970年代两次石油危机之和；而黄金的结构性看多逻辑依然完好，央行购金和地缘避险构成长期支撑。 长期结构性看多黄金，黄金股优于实物黄
 
 ## 正文
 
-富国银行CEO沙夫（Charlie Scharf）周三表示，预计第二季度投资银行和交易业务收入将增长15%左右。
+文章来源：中新经纬 近期，霍尔木兹海峡局势持续紧张，国际油价剧烈波动，黄金在通胀上升与利率反转的拉扯中反复博弈。
 
-在伯恩斯坦会议上发言时，沙夫表示，该行财富管理业务的收入增长也正朝着低两位数增长的目标稳步推进。
+近日，南非资产管理机构晋达资管环球天然资源部门主管Paul Gooden表示，当前石油市场正面临1200万桶/天的历史级供应中断，远超1970年代两次石油危机之和；而黄金的结构性看多逻辑依然完好，央行购金和地缘避险构成长期支撑。
 
-第一季度，富国银行投资银行部门 收入增长12.7%， 市场业务收入增长19%。
+长期结构性看多黄金，黄金股优于实物黄金 Paul Gooden在接受中新经纬采访时表示，若市场对霍尔木兹海峡短期内难以重启产生忧虑并转向悲观，将对金价形成阶段性压力。
 
-沙夫表示，投资银行和市场业务领域的客户活动依然强劲，同时该行通过增加资产负债表规模，继续看到深化客户关系的机遇。
+但整体而言，该机构维持对黄金的长期结构性看多立场。
 
-此前，监管机构已取消了富国银行的资产上限，使该行在经历多年限制后，得以在存款和贷款业务方面更积极地扩张。
+他指出，黄金主题的驱动因素共有四个。
 
-沙夫还表示，富国银行预计将在“几乎不增加或完全不增加成本”的情况下实现增长，因为该行正寻求在全公司范围内进一步提高运营效率。
+一是弱势美元，美国政府似乎希望美元走弱；二是财政赤字，（美国）政府靠通胀化解债务，这对黄金作为通胀对冲工具有利；三是地缘政治，不确定时期投资者会增持黄金。
 
-富国银行的展望紧随竞争对手的乐观评论之后。
+这三个驱动因素目前都完好。
 
-摩根大通首席执行官戴蒙在同一场会议上表示，该行第二季度的投资银行业务费用可能增长10% 或更多。
+第四个是货币政策，此前市场预期美联储将降息以降低持有黄金的机会成本，但当前通胀冲击下美联储可能不会降息，这是一个不确定性因素。
 
 ## 相关推荐
 
-- 2026-06-29 23:22 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 23:25 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 23:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 23:25 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 23:22 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 23:09 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 23:10 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 23:16 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 23:07 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 23:14 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 23:06 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 23:11 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 23:35 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 23:16 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 23:13 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 23:31 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 23:13 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 23:41 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 23:38 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 23:41 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 23:37 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 23:32 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 23:30 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 23:23 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 23:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 23:28 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 23:18 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 23:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 23:14 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 23:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:09 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/4539973224.shtml)
-- 2026-06-29 23:27 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/078140456504.shtml)
-- 2026-06-29 23:21 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/1312333026.shtml)
-- 2026-06-29 23:32 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/337987.shtml)
-- 2026-06-29 23:27 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/812584559522.shtml)
-- 2026-06-29 23:16 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/378594607354.shtml)
-- 2026-06-29 23:25 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/7621749.shtml)
-- 2026-06-29 23:18 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/016522742048.shtml)
-- 2026-06-29 23:16 - [送你一朵小红花](https://www.share.minike.top/Article/details/3492868.shtml)
-- 2026-06-29 23:26 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/68796313.shtml)
-- 2026-06-29 23:19 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/47741.shtml)
-- 2026-06-29 23:24 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/8855234.shtml)
-- 2026-06-29 23:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/95204.shtml)
-- 2026-06-29 23:15 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/8260581702.shtml)
-- 2026-06-29 23:19 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/3231712494.shtml)
+- 2026-06-29 23:27 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/14164.shtml)
+- 2026-06-29 23:26 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/735099936.shtml)
+- 2026-06-29 23:41 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/67012.shtml)
+- 2026-06-29 23:27 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/5732900518.shtml)
+- 2026-06-29 23:31 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/4452416.shtml)
+- 2026-06-29 23:34 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/505109943.shtml)
+- 2026-06-29 23:14 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/4160312960.shtml)
+- 2026-06-29 23:13 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/7644842.shtml)
+- 2026-06-29 23:20 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/47558302060.shtml)
+- 2026-06-29 23:20 - [急先锋](http://www.share.minike.top/Article/details/34163814363.shtml)
+- 2026-06-29 23:23 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/376764801.shtml)
+- 2026-06-29 23:33 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/68801.shtml)
+- 2026-06-29 23:15 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/361347.shtml)
+- 2026-06-29 23:30 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/7481203.shtml)
+- 2026-06-29 23:37 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/271463716352.shtml)

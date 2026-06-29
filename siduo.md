@@ -1,57 +1,60 @@
-# 东西问｜武契奇到访中共一大纪念馆，这处红色地标何以越来越吸引国际目光？
+# 倒计时10天！今年高考有哪些新变化？
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新社上海5月28日电 题：武契奇到访中共一大纪念馆，这处红色地标何以越来越吸引国际目光？ 中新社记者 许婧 2026年5月28日，正在对中国进行国事访问的塞尔维亚总统武契奇，在上海参观中共一大纪念馆。他表示，被中国人勤奋努力与持之以恒的品质所打动。 武契奇的到访，令中共一大会址这一见证历史起点的红色地标再次受到国际关注。越来越多外国政要、学者与游客正将这里作为读懂中国的必到一
+中新网北京5月28日电(记者 袁秀月)2026年高考进入倒计时，再有10天，各地考生将迎来人生中的一次大考。在考试内容和形式、高校招生上，今年高考有诸多变化。 加强项目式、探究式的真实情境问题设计 严控大类招生的数量和规模 2025年，第五批8省份新高考落地。截至目前，已有29个省区市实行了“新高考”模式。 今年初，教育部发布“关于做好2026年普通高校招生工作的通知”(以下简
 
 ## 正文
 
-中新社上海5月28日电 题：武契奇到访中共一大纪念馆，这处红色地标何以越来越吸引国际目光？
+中新网北京5月28日电(记者 袁秀月)2026年高考进入倒计时，再有10天，各地考生将迎来人生中的一次大考。
 
-中新社记者 许婧 2026年5月28日，正在对中国进行国事访问的塞尔维亚总统武契奇，在上海参观中共一大纪念馆。
+在考试内容和形式、高校招生上，今年高考有诸多变化。
 
-他表示，被中国人勤奋努力与持之以恒的品质所打动。
+加强项目式、探究式的真实情境问题设计 严控大类招生的数量和规模 2025年，第五批8省份新高考落地。
 
-武契奇的到访，令中共一大会址这一见证历史起点的红色地标再次受到国际关注。
+截至目前，已有29个省区市实行了“新高考”模式。
 
-越来越多外国政要、学者与游客正将这里作为读懂中国的必到一站。
+今年初，教育部发布“关于做好2026年普通高校招生工作的通知”(以下简称“通知”)，其中提到“进一步深化考试招生制度改革，引导学生德智体美劳全面发展”。
 
-中共一大纪念馆何以突破地域与文化隔阂，持续吸引全球目光？
+通知提到，持续深化考试内容和形式改革。
 
-中共一大纪念馆相关负责人近日接受中新社“东西问”采访时说，红色地标的国际吸引力根植于其不可复制的历史价值与精神内核。
+优化试题呈现方式和素材选取，融入科技前沿动态，浸润人文教育元素，加强项目式、探究式的真实情境问题设计，更好考查学生关键能力、学科素养和思维品质。
 
-精神内核构筑跨域吸引力 这份精神共鸣与价值契合，在日益频繁的国际交流中充分彰显。
+在推进高考综合改革上，通知要求，高校要优化招生工作方案，原则上按专业开展招生，严控大类招生的数量和规模；在实行院校专业组投档的省份，进一步优化专业组设置，将关联度高、培养要求相近的专业编入同一专业组，合理控制同一专业组的专业数量，提升考生专业志愿满足率。
 
 ## 相关推荐
 
-- 2026-06-29 23:20 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 23:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 23:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 23:16 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 23:18 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 23:18 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 23:25 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 23:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 23:18 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 23:25 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 23:28 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 23:32 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 23:13 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 23:15 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 23:29 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 23:38 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 23:16 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 23:39 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 23:23 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 23:17 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 23:40 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 23:39 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 23:27 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 23:36 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 23:35 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:17 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/61894.shtml)
-- 2026-06-29 23:14 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/1214803961.shtml)
-- 2026-06-29 23:11 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/4906620.shtml)
-- 2026-06-29 23:20 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/23829331.shtml)
-- 2026-06-29 23:18 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/352609652.shtml)
-- 2026-06-29 23:12 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/462086668.shtml)
-- 2026-06-29 23:29 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/97942781329.shtml)
-- 2026-06-29 23:20 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/284448918653.shtml)
-- 2026-06-29 23:21 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/5471396709.shtml)
-- 2026-06-29 23:20 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/0331909866.shtml)
-- 2026-06-29 23:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/280619.shtml)
-- 2026-06-29 23:19 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/387685.shtml)
-- 2026-06-29 23:26 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/1759623.shtml)
-- 2026-06-29 23:28 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/6918004447.shtml)
-- 2026-06-29 23:20 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/59670014.shtml)
+- 2026-06-29 23:19 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/454665532995.shtml)
+- 2026-06-29 23:17 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/917341148435.shtml)
+- 2026-06-29 23:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/60227559377.shtml)
+- 2026-06-29 23:29 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/7999786.shtml)
+- 2026-06-29 23:40 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/522050145.shtml)
+- 2026-06-29 23:20 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/100987255649.shtml)
+- 2026-06-29 23:29 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/33328.shtml)
+- 2026-06-29 23:20 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/6215496.shtml)
+- 2026-06-29 23:12 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/25794.shtml)
+- 2026-06-29 23:22 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/272835.shtml)
+- 2026-06-29 23:12 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/25853877.shtml)
+- 2026-06-29 23:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/7262833.shtml)
+- 2026-06-29 23:24 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/04870.shtml)
+- 2026-06-29 23:16 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/05083024.shtml)
+- 2026-06-29 23:38 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/5685352326.shtml)

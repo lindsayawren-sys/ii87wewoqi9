@@ -1,58 +1,56 @@
-# 多元业态融合 拓展夏季消费新空间
+# 美伊谈判拖延之际 美债收益率走低
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-夏日消费观察之四 多元业态融合 拓展夏季消费新空间 当避暑不再只是纳凉，看球不止于几十分钟的赛事，夜游也不能仅用“逛吃”二字概括，文旅多元业态的融合正在持续打造新模式、新场景，拓宽服务边界。 国家统计局数据显示，今年1—4月份，全国服务业生产指数同比增长4.9%。服务零售额同比增长5.6%，增速比1—3月份加快0.1个百分点。其中，通讯信息服务类、旅游咨询租赁服务类、文体休闲服
+美债收益率小幅下跌，正值美国和伊朗就重新开放霍尔木兹海峡达成协议的希望与双方的强硬言论发生冲突之际。 油价下跌5%，尽管穿过该海峡的船只交通已经放缓。市场关注明日的指标。 市场平均预期显示，美国首次申请失业救济人数预计将从209000人增至213000人。4月份耐用品订单增速预计将从0.8%加快至3.5%。最新的第一季度GDP增长预期预计将维持在2%的年化增速不变。个人消费支出
 
 ## 正文
 
-夏日消费观察之四 多元业态融合 拓展夏季消费新空间 当避暑不再只是纳凉，看球不止于几十分钟的赛事，夜游也不能仅用“逛吃”二字概括，文旅多元业态的融合正在持续打造新模式、新场景，拓宽服务边界。
+美债收益率小幅下跌，正值美国和伊朗就重新开放霍尔木兹海峡达成协议的希望与双方的强硬言论发生冲突之际。
 
-国家统计局数据显示，今年1—4月份，全国服务业生产指数同比增长4.9%。
+油价下跌5%，尽管穿过该海峡的船只交通已经放缓。
 
-服务零售额同比增长5.6%，增速比1—3月份加快0.1个百分点。
+市场关注明日的指标。
 
-其中，通讯信息服务类、旅游咨询租赁服务类、文体休闲服务类、交通出行服务类零售额较快增长。
+市场平均预期显示，美国首次申请失业救济人数预计将从209000人增至213000人。
 
-近期，文旅市场消费业态不断创新。
+4月份耐用品订单增速预计将从0.8%加快至3.5%。
 
-在贵州黔南布依族苗族自治州龙里县醒狮镇，避暑旅游成为一趟文化之旅。
+最新的第一季度GDP增长预期预计将维持在2%的年化增速不变。
 
-走进“中国根雕艺术之乡”大岩村的根雕工作室，游客可以感受传统根雕技艺的魅力；走进谷新村的枫香染保护基地，游客可以亲身体验西南地区少数民族特有的传统印染技艺和民族风情。
+个人消费支出价格指数（PCE）涨幅预计将从3.5%加快至3.8%。
 
-黑龙江哈尔滨太阳岛气候凉爽，同样是游客休闲纳凉的理想去处。
+10年期美债收益率下降0.010个百分点，至4.480%。
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 23:12 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 23:19 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 23:31 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 23:28 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 23:36 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 23:08 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 23:11 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 23:13 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 23:30 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 23:23 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 23:06 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 23:29 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 23:16 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 23:31 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 23:30 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 23:38 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 23:12 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 23:24 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 23:22 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 23:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 23:23 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:30 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/848353.shtml)
-- 2026-06-29 23:20 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/5741669083.shtml)
-- 2026-06-29 23:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/37808.shtml)
-- 2026-06-29 23:31 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/98132258.shtml)
-- 2026-06-29 23:24 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/482778.shtml)
-- 2026-06-29 23:16 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/47612636.shtml)
-- 2026-06-29 23:27 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/19676983.shtml)
-- 2026-06-29 23:26 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/739420.shtml)
-- 2026-06-29 23:33 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/21778.shtml)
-- 2026-06-29 23:07 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/792526.shtml)
-- 2026-06-29 23:07 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/950963.shtml)
-- 2026-06-29 23:31 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/00481243.shtml)
-- 2026-06-29 23:34 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/95045.shtml)
-- 2026-06-29 23:11 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/5745353.shtml)
-- 2026-06-29 23:29 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/439592.shtml)
+- 2026-06-29 23:23 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/194725.shtml)
+- 2026-06-29 23:37 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/89124.shtml)
+- 2026-06-29 23:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/135432.shtml)
+- 2026-06-29 23:30 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/76226391.shtml)
+- 2026-06-29 23:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/757048843.shtml)
+- 2026-06-29 23:27 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/613436.shtml)
+- 2026-06-29 23:27 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/381146484337.shtml)
+- 2026-06-29 23:40 - [85花告别古偶](https://www.share.minike.top/Article/details/865997547.shtml)
+- 2026-06-29 23:25 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/01296.shtml)
+- 2026-06-29 23:24 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/056430.shtml)
+- 2026-06-29 23:33 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/3558713.shtml)
+- 2026-06-29 23:18 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/601603944752.shtml)
+- 2026-06-29 23:26 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/68606636.shtml)
+- 2026-06-29 23:39 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/775558766.shtml)
+- 2026-06-29 23:15 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/54177441.shtml)

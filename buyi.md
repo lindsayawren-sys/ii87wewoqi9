@@ -1,54 +1,59 @@
-# 深夜！全线翻红！美伊谈判，重大利好
+# 明尼阿波利斯联储行长卡什卡里：现在就断定美联储需要升息还为时过早
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！美媒：美伊谈判代表已就谅解备忘录达成一致。 据美国媒体28日援引美国官员的话报道说，美伊谈判代表已就谅解备忘录达成一致，但仍需要美国总统特朗普最终批准。 资本市场方面，美股三大指数、现货黄金均翻红。 责任编辑：宋雅芳
+明尼阿波利斯联储行长尼尔·卡什卡里表示，现在断定利率需要上升还为时过早，但他认为美联储应当保留所有政策选项。 卡什卡里周五在首尔高丽大学的一场活动上表示，“我认为，现在就断定我们需要立即加息还为时过早。我们需要继续观察经济数据，并关注中东冲突的后续发展，然后我才会考虑是否需要调整政策。” 美联储官员在4月会议上维持利率不变。虽然卡什卡里支持这一决定，但他是三位对会后声明措辞提出
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+明尼阿波利斯联储行长尼尔·卡什卡里表示，现在断定利率需要上升还为时过早，但他认为美联储应当保留所有政策选项。
 
-美媒：美伊谈判代表已就谅解备忘录达成一致。
+卡什卡里周五在首尔高丽大学的一场活动上表示，“我认为，现在就断定我们需要立即加息还为时过早。
 
-据美国媒体28日援引美国官员的话报道说，美伊谈判代表已就谅解备忘录达成一致，但仍需要美国总统特朗普最终批准。
+我们需要继续观察经济数据，并关注中东冲突的后续发展，然后我才会考虑是否需要调整政策。
 
-资本市场方面，美股三大指数、现货黄金均翻红。
+” 美联储官员在4月会议上维持利率不变。
 
-责任编辑：宋雅芳
+虽然卡什卡里支持这一决定，但他是三位对会后声明措辞提出异议的决策者之一。
+
+该声明暗示美联储下一步行动可能是降息。
+
+卡什卡里和其另外两位同事主张采用更中性的表述，以传递这样一个信号：加息与降息的可能性同样存在。
+
+与许多美联储官员一样，卡什卡里表示，伊朗战争加剧了美国经济前景的不确定性。
 
 ## 相关推荐
 
-- 2026-06-29 23:19 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 23:09 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 23:25 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 23:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 23:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 23:20 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 23:28 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 23:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 23:10 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 23:26 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 23:10 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 23:31 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 23:10 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 23:32 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 23:34 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 23:24 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 23:13 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 23:16 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 23:28 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 23:23 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 23:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 23:37 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 23:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 23:12 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 23:36 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 23:25 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 23:35 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/527435279.shtml)
-- 2026-06-29 23:24 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/6551836961.shtml)
-- 2026-06-29 23:29 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/7366371405.shtml)
-- 2026-06-29 23:16 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/4172835496.shtml)
-- 2026-06-29 23:28 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/65234974.shtml)
-- 2026-06-29 23:07 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/462641.shtml)
-- 2026-06-29 23:32 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/5369192911.shtml)
-- 2026-06-29 23:17 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/286749224.shtml)
-- 2026-06-29 23:07 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/47047907620.shtml)
-- 2026-06-29 23:10 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/78629720.shtml)
-- 2026-06-29 23:13 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/20552.shtml)
-- 2026-06-29 23:07 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/57835.shtml)
-- 2026-06-29 23:33 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/52946938.shtml)
-- 2026-06-29 23:10 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/355292741497.shtml)
-- 2026-06-29 23:29 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/945484.shtml)
+- 2026-06-29 23:17 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/45288762.shtml)
+- 2026-06-29 23:14 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.minike.top/Article/details/61678.shtml)
+- 2026-06-29 23:30 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/9348023336.shtml)
+- 2026-06-29 23:41 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/24978.shtml)
+- 2026-06-29 23:37 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/1062455.shtml)
+- 2026-06-29 23:30 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/403280250.shtml)
+- 2026-06-29 23:31 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/9473047005.shtml)
+- 2026-06-29 23:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/521564015.shtml)
+- 2026-06-29 23:12 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/3008260.shtml)
+- 2026-06-29 23:41 - [东方风云榜直播](https://www.blog.minike.top/Article/details/70439747.shtml)
+- 2026-06-29 23:26 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/40324264.shtml)
+- 2026-06-29 23:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/1845691593.shtml)
+- 2026-06-29 23:41 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/485851556415.shtml)
+- 2026-06-29 23:30 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/20027010.shtml)
+- 2026-06-29 23:16 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/497504612360.shtml)

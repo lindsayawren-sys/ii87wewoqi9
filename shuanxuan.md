@@ -1,47 +1,61 @@
-# 记者采访被打骨折！涉嫌代孕黑窝点 为何如此嚣张？
+# 中信证券获大股东160亿元增资，券商股异动，顶流券商ETF华宝（512000）涨超2%，单日“暴力”吸金3.85亿元
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月28日 16:37 来源：中国新闻网 记者采访被打骨折！涉嫌代孕黑窝点，为何如此嚣张？ 责任编辑：【张楠】
+5月29日早盘，券商板块走强，中信建投领涨6.67%，中信证券、锦龙股份涨超4%，国金证券、广发证券、财通证券等涨幅居前。 规模350亿元+的顶流券商ETF华宝（512000）场内价格现涨超2%。近期资金密集涌入，上交所数据显示，512000最新单日大举吸金3.85亿元，近5日累计获净流入8.26亿元。 消息面上，5月28日晚间，中信证券发布公告称，为加快建设国际一流投资银行，
 
 ## 正文
 
-发布时间：2026年05月28日 16:37 来源：中国新闻网 记者采访被打骨折！
+5月29日早盘，券商板块走强，中信建投领涨6.67%，中信证券、锦龙股份涨超4%，国金证券、广发证券、财通证券等涨幅居前。
 
-涉嫌代孕黑窝点，为何如此嚣张？
+规模350亿元+的顶流券商ETF华宝（512000）场内价格现涨超2%。
 
-责任编辑：【张楠】
+近期资金密集涌入，上交所数据显示，512000最新单日大举吸金3.85亿元，近5日累计获净流入8.26亿元。
+
+消息面上，5月28日晚间，中信证券发布公告称，为加快建设国际一流投资银行，深入推动国际化战略，夯实公司资本基础，提升风险抵御能力，公司拟向中信金控发行H股股票，募集资金总额为人民币160亿元，由中信金控以现金方式全额认购。
+
+公告还称，此次发行募集资金，扣除发行相关费用后的净额，将全部留存境外用于发展公司国际化业务。
+
+分析认为，此举有望直接增强公司的资本实力，提升净资本和风险覆盖能力；有利于加快公司国际化步伐，有利于中信证券继续深化其香港平台和境外业务布局，强化国际资本市场的影响力和服务能力。
+
+此外，控股股东持股比例提升也进一步彰显大股东对公司中长期发展的坚定支持，有助于稳定市场信心。
+
+就券商板块而言，当前仍处于业绩与估值明显背离的状态。
 
 ## 相关推荐
 
-- 2026-06-29 23:11 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 23:06 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 23:15 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 23:28 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 23:06 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 23:14 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 23:23 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 23:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 23:26 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 23:12 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 23:22 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 23:29 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 23:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 23:36 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 23:26 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 23:36 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 23:12 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 23:21 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 23:34 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 23:29 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 23:33 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 23:26 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 23:29 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 23:16 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 23:26 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 23:29 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:20 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/9351505.shtml)
-- 2026-06-29 23:12 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/8278503.shtml)
-- 2026-06-29 23:16 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/97933.shtml)
-- 2026-06-29 23:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/1803508548.shtml)
-- 2026-06-29 23:26 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/489990924956.shtml)
-- 2026-06-29 23:12 - [美人鱼](http://www.share.kurohicncr.top/Article/details/598908731.shtml)
-- 2026-06-29 23:31 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/14063752.shtml)
-- 2026-06-29 23:14 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/568487260.shtml)
-- 2026-06-29 23:17 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/362320274368.shtml)
-- 2026-06-29 23:21 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/678589971434.shtml)
-- 2026-06-29 23:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/270152463.shtml)
-- 2026-06-29 23:13 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/808085.shtml)
-- 2026-06-29 23:11 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/67245907758.shtml)
-- 2026-06-29 23:13 - [高考1357分的同学如何报志愿？](https://www.share.kurohicncr.top/Article/details/404974055.shtml)
-- 2026-06-29 23:27 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/020275926044.shtml)
+- 2026-06-29 23:31 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/487239.shtml)
+- 2026-06-29 23:22 - [起风了](https://www.share.minike.top/Article/details/417843.shtml)
+- 2026-06-29 23:38 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/3295562.shtml)
+- 2026-06-29 23:15 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/449644950.shtml)
+- 2026-06-29 23:34 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/462118389795.shtml)
+- 2026-06-29 23:24 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/68209.shtml)
+- 2026-06-29 23:36 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/806035590597.shtml)
+- 2026-06-29 23:32 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/145389.shtml)
+- 2026-06-29 23:26 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/94968.shtml)
+- 2026-06-29 23:12 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/89101865.shtml)
+- 2026-06-29 23:15 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/1685812.shtml)
+- 2026-06-29 23:37 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/862979.shtml)
+- 2026-06-29 23:22 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/28426192.shtml)
+- 2026-06-29 23:16 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/767942749099.shtml)
+- 2026-06-29 23:31 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/6814858.shtml)

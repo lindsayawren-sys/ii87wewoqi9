@@ -1,61 +1,60 @@
-# 文化观察：AI短剧如何从“观望”走向“行动”？
+# Oppenheimer高调上调Quanta评级：AI电力基建核心标的获“跑赢大盘”
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月28日电(林波)“AI技术的发展不可逆，AI短剧的发展也不可逆，它会越来越快，效果也会越来越好。”近日，“星河计划”AI剧集编剧研修班在浙江杭州的之江编剧村举行。其间，中国作家协会会员、编剧肖堃接受专访时表示，尽管当前AI影视创作仍面临诸多挑战，但其在影视产业链上的重要性已日益凸显，而这一趋势正深刻改变着内容创作的生态。 作为一位资深的网络文学作家和编剧，肖堃坦言
+随着人工智能数据中心对电力需求的爆发式增长，支撑电网基础设施的服务商正成为华尔街的新宠。Oppenheimer在周四发布的最新报告中，将基础设施服务巨头Quanta Services的评级从“与大盘持平”上调至“跑赢大盘”，并给出了高达800美元的目标价。 Oppenheimer分析师在报告中指出，Quanta“无可争议地处于具有卓越增长前景的市场中”。该机构认为，Quanta
 
 ## 正文
 
-中新网杭州5月28日电(林波)“AI技术的发展不可逆，AI短剧的发展也不可逆，它会越来越快，效果也会越来越好。
+随着人工智能数据中心对电力需求的爆发式增长，支撑电网基础设施的服务商正成为华尔街的新宠。
 
-”近日，“星河计划”AI剧集编剧研修班在浙江杭州的之江编剧村举行。
+Oppenheimer在周四发布的最新报告中，将基础设施服务巨头Quanta Services的评级从“与大盘持平”上调至“跑赢大盘”，并给出了高达800美元的目标价。
 
-其间，中国作家协会会员、编剧肖堃接受专访时表示，尽管当前AI影视创作仍面临诸多挑战，但其在影视产业链上的重要性已日益凸显，而这一趋势正深刻改变着内容创作的生态。
+Oppenheimer分析师在报告中指出，Quanta“无可争议地处于具有卓越增长前景的市场中”。
 
-作为一位资深的网络文学作家和编剧，肖堃坦言，自己也曾对AI持观望态度，但如今已将AI工具深度嵌入日常创作行动中。
+该机构认为，Quanta在发电、复杂设施开发、地下管网现代化以及管道建设方面的业务布局，对于满足电气化需求、AI发展及其他长期驱动力至关重要，并预计该股将保持估值溢价，利润率也有望进一步扩张。
 
-他认为，AI在查资料、格式转换，甚至初步的内容校验方面都带来了极大便利。
+此次评级上调紧随Quanta发布的亮眼一季报。
 
-“对于想从网络小说转行做剧本创作的作者，AI能帮他们把格式进行初步转化，大大降低了工作量。
+数据显示，公司第一季度营收同比增长26.3%，达到创纪录的78.7亿美元，远超市场预期的69.9亿美元。
 
-” 他同时指出，AI工具“有时会自己编造信息”，需要人工校对。
+调整后每股收益飙升逾50%至2.68美元，较市场共识预期高出31%。
 
-“但它偶尔提出的意见，确实能让你注意到自己忽略的问题。
+强劲的业绩主要得益于电力基础设施解决方案部门的出色表现，该部门营收同比增长近31%至64.7亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 23:06 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 23:09 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 23:09 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 23:10 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 23:30 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 23:34 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 23:23 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 23:11 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 23:16 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 23:08 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 23:15 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 23:16 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 23:27 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 23:10 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 23:06 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 23:29 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 23:17 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 23:25 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 23:21 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 23:23 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 23:28 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 23:35 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 23:33 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 23:33 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 23:26 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 23:23 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 23:30 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 23:40 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 23:28 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:20 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/444051915.shtml)
-- 2026-06-29 23:31 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/129908112207.shtml)
-- 2026-06-29 23:18 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/5636702.shtml)
-- 2026-06-29 23:14 - [明星大侦探第四季](https://www.share.minike.top/Article/details/9345554.shtml)
-- 2026-06-29 23:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/47864463362.shtml)
-- 2026-06-29 23:30 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/168809982.shtml)
-- 2026-06-29 23:20 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/1933917164.shtml)
-- 2026-06-29 23:29 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/429167211833.shtml)
-- 2026-06-29 23:23 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/727356.shtml)
-- 2026-06-29 23:12 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/432732.shtml)
-- 2026-06-29 23:19 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/275121974.shtml)
-- 2026-06-29 23:28 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/652298383915.shtml)
-- 2026-06-29 23:22 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/0166171818.shtml)
-- 2026-06-29 23:30 - [时光音乐会](https://www.blog.minike.top/Article/details/560129226.shtml)
-- 2026-06-29 23:35 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/296631241.shtml)
+- 2026-06-29 23:28 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/0334854.shtml)
+- 2026-06-29 23:29 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/644941993.shtml)
+- 2026-06-29 23:37 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/38758371.shtml)
+- 2026-06-29 23:32 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/18660688.shtml)
+- 2026-06-29 23:19 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/2161023.shtml)
+- 2026-06-29 23:30 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/17494609.shtml)
+- 2026-06-29 23:14 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/803682258504.shtml)
+- 2026-06-29 23:30 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/50011.shtml)
+- 2026-06-29 23:19 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.minike.top/Article/details/466276936.shtml)
+- 2026-06-29 23:21 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/29829677.shtml)
+- 2026-06-29 23:19 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/6007288.shtml)
+- 2026-06-29 23:30 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/85628.shtml)
+- 2026-06-29 23:39 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/945293989.shtml)
+- 2026-06-29 23:33 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/29096.shtml)
+- 2026-06-29 23:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/972709168801.shtml)

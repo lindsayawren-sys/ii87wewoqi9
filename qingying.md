@@ -1,57 +1,56 @@
-# 【新思想引领新征程】传统产业的“蝶变”跃迁
+# 从赛场到民间 一颗网球传递中塞跨国温情
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-视频：【新思想引领新征程】传统产业的“蝶变”跃迁来源：央视综合 央视网消息(新闻联播)：习近平总书记指出，传统制造业是实体经济的重要组成部分，要把握市场需求，加强科技创新，让传统产业焕发新活力。今年以来，各地以科技创新为重点，探索传统产业转型升级新模式，推动传统产业焕新升级、“蝶变”跃迁，为建设制造强国夯实根基。 这是全球已投运的最大海上风电机组，近150米的风电叶片相当于50
+视频丨从赛场到民间 一颗网球传递中塞跨国温情 近日，塞尔维亚总统武契奇访华，再次让中塞“铁杆友谊”成为焦点。在文体交流领域，两国合作正从国家层面延伸至民间。近年来，网球在中国深受大众喜爱，而在世界网坛版图上，塞尔维亚是一个不可忽视的名字。这个不到700万人口的国度，诞生了德约科维奇、伊万诺维奇等巨星。 和这些巨星曾在一个俱乐部训练的塞尔维亚教练米利·维尔伊科维奇，最近四年一直在
 
 ## 正文
 
-视频：【新思想引领新征程】传统产业的“蝶变”跃迁来源：央视综合 央视网消息(新闻联播)：习近平总书记指出，传统制造业是实体经济的重要组成部分，要把握市场需求，加强科技创新，让传统产业焕发新活力。
+视频丨从赛场到民间 一颗网球传递中塞跨国温情 近日，塞尔维亚总统武契奇访华，再次让中塞“铁杆友谊”成为焦点。
 
-今年以来，各地以科技创新为重点，探索传统产业转型升级新模式，推动传统产业焕新升级、“蝶变”跃迁，为建设制造强国夯实根基。
+在文体交流领域，两国合作正从国家层面延伸至民间。
 
-这是全球已投运的最大海上风电机组，近150米的风电叶片相当于50层楼高，而支撑它的超强碳纤维却来自于千里之外的石化基地。
+近年来，网球在中国深受大众喜爱，而在世界网坛版图上，塞尔维亚是一个不可忽视的名字。
 
-不仅如此，拆开这台风机，轴承、法兰、齿轮、电机……近九成的部件来自120多家钢铁、机械等传统老厂，从生产到研发，带动上万个就业岗位，提供了近千项专利。
+这个不到700万人口的国度，诞生了德约科维奇、伊万诺维奇等巨星。
 
-不仅是风电，我们熟悉的“新三样”也都脱胎于传统产业。
+和这些巨星曾在一个俱乐部训练的塞尔维亚教练米利·维尔伊科维奇，最近四年一直在深圳罗湖执教。
 
-如果放眼全部的中国制造，传统产业提供了超八成的基础支撑。
+他用一颗网球在中国交下挚友，也见证着两国民间情谊的生根发芽。
 
-党的十八大以来，习近平总书记一直高度重视传统产业的发展，多次深入老工业厂区，以“必须敢打市场牌、敢打改革牌、敢打创新牌”部署老工业基地浴火重生。
+在深圳罗湖区的一家网球场上，64岁的塞尔维亚教练米利·维尔伊科维奇正在给中国孩子上课。
 
-随着新质生产力重要论述提出，总书记强调，发展新质生产力不是要忽视、放弃传统产业，要防止一哄而上、泡沫化，也不要搞一种模式，要因地制宜发展新质生产力。
+米利是国际职业网球教练组织最高级别认证教练。
 
 ## 相关推荐
 
-- 2026-06-29 23:29 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 23:22 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 23:30 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 23:26 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 23:12 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 23:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 23:08 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 23:07 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 23:22 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 23:33 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 23:27 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 23:15 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 23:17 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 23:21 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 23:13 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 23:23 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 23:40 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 23:22 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 23:34 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 23:31 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 23:26 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:33 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/675855567332.shtml)
-- 2026-06-29 23:24 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/947546.shtml)
-- 2026-06-29 23:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/650426716.shtml)
-- 2026-06-29 23:32 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/10003.shtml)
-- 2026-06-29 23:18 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.minike.top/Article/details/67481364252.shtml)
-- 2026-06-29 23:26 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/19831970.shtml)
-- 2026-06-29 23:21 - [世界杯](https://www.blog.minike.top/Article/details/51748825971.shtml)
-- 2026-06-29 23:29 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/511549.shtml)
-- 2026-06-29 23:23 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/575120424.shtml)
-- 2026-06-29 23:28 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/80439957680.shtml)
-- 2026-06-29 23:08 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/798141196.shtml)
-- 2026-06-29 23:15 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/79990.shtml)
-- 2026-06-29 23:09 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/35792841749.shtml)
-- 2026-06-29 23:14 - [绘画区你赢了](https://www.blog.minike.top/Article/details/274624878.shtml)
-- 2026-06-29 23:33 - [啊啊啊](https://www.blog.minike.top/Article/details/5282446.shtml)
+- 2026-06-29 23:17 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/54909.shtml)
+- 2026-06-29 23:18 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/272359891972.shtml)
+- 2026-06-29 23:13 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/77292849.shtml)
+- 2026-06-29 23:28 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/35936880.shtml)
+- 2026-06-29 23:41 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/380723.shtml)
+- 2026-06-29 23:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/29827.shtml)
+- 2026-06-29 23:37 - [世界杯](https://www.blog.minike.top/Article/details/654506215874.shtml)
+- 2026-06-29 23:17 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/51617996.shtml)
+- 2026-06-29 23:27 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/15210365.shtml)
+- 2026-06-29 23:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/239171256872.shtml)
+- 2026-06-29 23:32 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/58036201536.shtml)
+- 2026-06-29 23:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/95342918.shtml)
+- 2026-06-29 23:41 - [恋与深空 日服](https://www.share.minike.top/Article/details/359462.shtml)
+- 2026-06-29 23:22 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/2801534.shtml)
+- 2026-06-29 23:30 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/095146.shtml)

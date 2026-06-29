@@ -1,58 +1,57 @@
-# 2025年山东法院新收行政案件约5.4万件 呈现“一升三降”态势
+# 观点汇总|国泰海通秦和平最新研判：存储类股票估值范式切换，美伊冲突只是噪音，下半年紧盯两大方向
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新网济南5月27日电(周艺伟)山东省高级人民法院审判委员会专职委员、一级高级法官黄伟东27日表示，2025年，山东法院新收各类行政案件53903件，同比上升1.53%；审结53012件，同比上升0.15%；收案情况呈现“一升三降”态势，一审行政案件收案24752件，同比上升7.52%，在连续两年收案量下降之后有所反弹，行政案件二审、申请再审、非诉执行审查收案量下降。 当日，山
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月28日，美联储下半年政策路径的核心判断是什么？美股港股科技板块将如何演绎？新浪证券对话国泰海通证券海外科技首席分析师秦和平为投资者深度解析>>视频直播 秦和平指出，近期海外科技市场变化较多，核心亮点集中在火爆的算力板块，尤其是存储赛道。近期英伟达业绩指引释放出明确数据，带动Rubin价值重估，直接推动美
 
 ## 正文
 
-中新网济南5月27日电(周艺伟)山东省高级人民法院审判委员会专职委员、一级高级法官黄伟东27日表示，2025年，山东法院新收各类行政案件53903件，同比上升1.53%；审结53012件，同比上升0.15%；收案情况呈现“一升三降”态势，一审行政案件收案24752件，同比上升7.52%，在连续两年收案量下降之后有所反弹，行政案件二审、申请再审、非诉执行审查收案量下降。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当日，山东省高级人民法院召开新闻发布会，发布2025年山东法院行政审判白皮书。
+5月28日，美联储下半年政策路径的核心判断是什么？
 
-黄伟东介绍，2025年，山东法院一审行政案件中，公安领域案件量稳居首位，公安类收案4158件，占比16.80%，同比增长15.18%，主要涉及治安管理处罚、道路交通管理等事项。
+美股港股科技板块将如何演绎？
 
-劳动和社会保障类收案2311件，占比9.34%，同比增长33.66%，成为案件量增长最快的领域，主要涉及工伤认定、社保缴纳、劳动监察等争议。
+新浪证券对话国泰海通证券海外科技首席分析师秦和平为投资者深度解析>>视频直播 秦和平指出，近期海外科技市场变化较多，核心亮点集中在火爆的算力板块，尤其是存储赛道。
 
-同时，山东法院一审行政案件所涉行政行为类型相对集中，行政复议类收案4293件，同比增长60.79%，成为增幅最大的行政行为类型。
+近期英伟达业绩指引释放出明确数据，带动Rubin价值重估，直接推动美股半导体ETF大幅上涨。
 
-涉行政处罚、不履行职责、工伤保险确认、政府信息公开案件保持高位运行，行政处罚类收案5642件，同比增长9.32%，居各行政行为类型收案量首位。
+这一行情也传导至A股，带动存储、PCB、MLCC等产业链龙头同步走高。
 
-“2025年，山东法院一审行政案件中，行政机关败诉1103件，败诉率为4.67%，维持在较低水平。
+经过我们测算，本轮板块上涨的核心动力，源于AI超级周期下的商业范式迁移，和传统SaaS时代完全不同。
 
-”黄伟东说，败诉案件呈现“层级下沉、基层集中”的特征，区县政府和职能部门败诉占比58.07%，乡镇政府及街道办事处败诉占比34.03%，两类基层机关合计败诉1015件，成为败诉高发主体，而市级机关败诉占比5.73%，省级机关败诉占比为2.17%。
+传统SaaS服务中，软件增值服务占比70%，算力成本仅占30%；但进入AI Agent时代，成本结构彻底反转，70%的应用服务成本由算力基础设施构成，软件增值服务占比从70%降至30%，算力在整体应用服务成本中的占比提升两倍多。
 
 ## 相关推荐
 
-- 2026-06-29 23:13 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 23:21 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 23:07 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 23:21 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 23:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 23:32 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 23:24 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 23:09 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 23:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 23:07 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 23:12 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 23:27 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 23:27 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 23:19 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 23:22 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 23:25 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 23:20 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 23:21 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 23:26 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 23:24 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 23:14 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 23:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 23:14 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:31 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/09181256740.shtml)
-- 2026-06-29 23:23 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/35779591.shtml)
-- 2026-06-29 23:18 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/956126.shtml)
-- 2026-06-29 23:17 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/26383596.shtml)
-- 2026-06-29 23:25 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/60579857.shtml)
-- 2026-06-29 23:07 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/294056.shtml)
-- 2026-06-29 23:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/8671023411.shtml)
-- 2026-06-29 23:29 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/3383229.shtml)
-- 2026-06-29 23:08 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/432308483680.shtml)
-- 2026-06-29 23:32 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/6049690717.shtml)
-- 2026-06-29 23:18 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/2351110.shtml)
-- 2026-06-29 23:24 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/45936997487.shtml)
-- 2026-06-29 23:12 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/2178391941.shtml)
-- 2026-06-29 23:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/68070274.shtml)
-- 2026-06-29 23:12 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/9350956.shtml)
+- 2026-06-29 23:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/4284419086.shtml)
+- 2026-06-29 23:20 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/667184241.shtml)
+- 2026-06-29 23:30 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/5506403.shtml)
+- 2026-06-29 23:22 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/47242608882.shtml)
+- 2026-06-29 23:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/877141120780.shtml)
+- 2026-06-29 23:35 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/158721905.shtml)
+- 2026-06-29 23:35 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/08811346537.shtml)
+- 2026-06-29 23:38 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/97648.shtml)
+- 2026-06-29 23:23 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/305436408.shtml)
+- 2026-06-29 23:21 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/285546257917.shtml)
+- 2026-06-29 23:38 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/29860110.shtml)
+- 2026-06-29 23:24 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/395442.shtml)
+- 2026-06-29 23:14 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/536550733.shtml)
+- 2026-06-29 23:18 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/61518993.shtml)
+- 2026-06-29 23:39 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/706720412182.shtml)

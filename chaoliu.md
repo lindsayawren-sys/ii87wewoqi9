@@ -1,57 +1,56 @@
-# 王毅会见巴拿马外长马丁内斯-阿查
+# 王毅同美国各界人士座谈
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新社纽约5月27日电 (记者 王帆)当地时间26日，中共中央政治局委员、外交部长王毅在纽约主持联合国安理会高级别会议期间会见巴拿马外长马丁内斯-阿查。 王毅表示，中巴交往历史悠久。19世纪大量中国劳工赴巴修建铁路、开凿运河，为巴拿马经济社会发展作出奉献。中巴建交近9年来，双边关系发展总体顺利，两国贸易额较建交前翻了一番，为巴拿马人民带来实实在在好处。事实充分证明，中巴建交符合
+中新社纽约5月28日电 当地时间27日，中共中央政治局委员、外交部长王毅在纽约主持联合国安理会高级别会议期间同美国战略和工商界人士举行座谈。 王毅表示，此次来纽约主持安理会高级别会议，与会各方的一致呼声就是重温宪章初心，重振联合国权威，践行多边主义。重振联合国首要是重振安理会，关键是常任理事国之间能够协调合作，其中中美关系的走向至关重要。事实证明，中美关系超越双边范畴，影响世界
 
 ## 正文
 
-中新社纽约5月27日电 (记者 王帆)当地时间26日，中共中央政治局委员、外交部长王毅在纽约主持联合国安理会高级别会议期间会见巴拿马外长马丁内斯-阿查。
+中新社纽约5月28日电 当地时间27日，中共中央政治局委员、外交部长王毅在纽约主持联合国安理会高级别会议期间同美国战略和工商界人士举行座谈。
 
-王毅表示，中巴交往历史悠久。
+王毅表示，此次来纽约主持安理会高级别会议，与会各方的一致呼声就是重温宪章初心，重振联合国权威，践行多边主义。
 
-19世纪大量中国劳工赴巴修建铁路、开凿运河，为巴拿马经济社会发展作出奉献。
+重振联合国首要是重振安理会，关键是常任理事国之间能够协调合作，其中中美关系的走向至关重要。
 
-中巴建交近9年来，双边关系发展总体顺利，两国贸易额较建交前翻了一番，为巴拿马人民带来实实在在好处。
+事实证明，中美关系超越双边范畴，影响世界和平，关乎人类命运。
 
-事实充分证明，中巴建交符合两国长远利益，是人心所向、大势所趋。
+实现中美关系健康、稳定、可持续发展，是国际社会的共同期待，也是中美两国应当承担的使命。
 
-坚持一个中国原则是中巴建交的政治基础。
+王毅表示，中美元首在北京举行历史性会晤，就事关中美关系以及世界和平发展的重大问题进行了坦诚、深入、建设性、战略性沟通，达成一系列重要共识。
 
-中方赞赏巴方领导人多次重申恪守一中原则，不给台湾以活动空间。
+双方同意将“中美建设性战略稳定关系”作为两国关系新定位，希望朝着合作为主、竞争有度、分歧可控、和平可期的方向作出努力，共同探索新时代大国正确相处之道。
 
-中国企业在巴拿马深耕多年，为巴拿马促进经济、改善民生作出重要贡献，希望巴方切实维护中方企业的正当权益。
+习近平主席指出，实现中华民族伟大复兴和让美国再次伟大，可以并行不悖、相互成就、造福世界。
 
 ## 相关推荐
 
-- 2026-06-29 23:06 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 23:24 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 23:30 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 23:14 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 23:28 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 23:18 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 23:28 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 23:13 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 23:24 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 23:28 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 23:28 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 23:36 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 23:14 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 23:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 23:20 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 23:30 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 23:36 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 23:40 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 23:14 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 23:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 23:19 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:31 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/4933990.shtml)
-- 2026-06-29 23:08 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/34863622.shtml)
-- 2026-06-29 23:17 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/42354407735.shtml)
-- 2026-06-29 23:19 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/405858418547.shtml)
-- 2026-06-29 23:12 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/66451948.shtml)
-- 2026-06-29 23:20 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/148168.shtml)
-- 2026-06-29 23:10 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/61325698056.shtml)
-- 2026-06-29 23:19 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/00207630004.shtml)
-- 2026-06-29 23:18 - [急先锋](https://www.share.minike.top/Article/details/24291.shtml)
-- 2026-06-29 23:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/20861412.shtml)
-- 2026-06-29 23:33 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/937944.shtml)
-- 2026-06-29 23:15 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/3956396557.shtml)
-- 2026-06-29 23:13 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/72586933544.shtml)
-- 2026-06-29 23:08 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/28421058.shtml)
-- 2026-06-29 23:23 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/19736.shtml)
+- 2026-06-29 23:29 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/58270776.shtml)
+- 2026-06-29 23:41 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/18001864776.shtml)
+- 2026-06-29 23:19 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/3608737960.shtml)
+- 2026-06-29 23:22 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/26685971723.shtml)
+- 2026-06-29 23:22 - [美股](https://www.share.minike.top/Article/details/661852.shtml)
+- 2026-06-29 23:30 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/59993258.shtml)
+- 2026-06-29 23:15 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/8637173626.shtml)
+- 2026-06-29 23:38 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/2751496040.shtml)
+- 2026-06-29 23:18 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/5584239.shtml)
+- 2026-06-29 23:17 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/8656607025.shtml)
+- 2026-06-29 23:34 - [东方风云榜](http://www.blog.minike.top/Article/details/25311.shtml)
+- 2026-06-29 23:32 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/251814786.shtml)
+- 2026-06-29 23:27 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/90685828067.shtml)
+- 2026-06-29 23:26 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/99374207714.shtml)
+- 2026-06-29 23:16 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/00077699.shtml)

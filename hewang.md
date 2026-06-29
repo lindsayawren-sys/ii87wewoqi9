@@ -1,58 +1,61 @@
-# 金价低位震荡，加仓还是止损？
+# 全球媒体聚焦｜外媒：欧洲企业加码在华业务 “融入中国供应链已成必然选择”
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 新京报贝壳财经记者 徐雨婷 编辑 陈莉 校对 柳宝庆 持续低位震荡的金价让投资者开始摇摆。 “黄金跌跌不休，幸好之前清仓了一波黄金。”有投资者直言，虽长期看好黄金，但在金价低位震荡行情下，已经不敢入场。也有投资者准备趁下跌抄底，对冲高位持仓的亏损。 5月28日，现货黄金盘中跌破4400美元/盎司，跌幅超1.5%。截至发稿，现货黄
+中国欧盟商会5月27日发布的一项最新调查报告显示，为保持全球竞争力，越来越多欧洲企业正维持或扩大其在中国大陆的供应链布局。 美国消费者新闻与商业频道网站援引调查报告指出，近三分之一受访欧洲企业表示正进一步深化在华本土化生产，37%的企业称过去两年未改变供应链战略。另外，68%的受访企业选择维持或扩大在华业务。 报道援引中国欧盟商会主席彦辞的观点称，数据表明，欧洲企业正愈发依赖中
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 新京报贝壳财经记者 徐雨婷 编辑 陈莉 校对 柳宝庆 持续低位震荡的金价让投资者开始摇摆。
+中国欧盟商会5月27日发布的一项最新调查报告显示，为保持全球竞争力，越来越多欧洲企业正维持或扩大其在中国大陆的供应链布局。
 
-“黄金跌跌不休，幸好之前清仓了一波黄金。
+美国消费者新闻与商业频道网站援引调查报告指出，近三分之一受访欧洲企业表示正进一步深化在华本土化生产，37%的企业称过去两年未改变供应链战略。
 
-”有投资者直言，虽长期看好黄金，但在金价低位震荡行情下，已经不敢入场。
+另外，68%的受访企业选择维持或扩大在华业务。
 
-也有投资者准备趁下跌抄底，对冲高位持仓的亏损。
+报道援引中国欧盟商会主席彦辞的观点称，数据表明，欧洲企业正愈发依赖中国作为其核心采购和制造基地。
 
-5月28日，现货黄金盘中跌破4400美元/盎司，跌幅超1.5%。
+报道说，尽管面临美欧关税壁垒，中国仍占据全球约28%的制造业份额。
 
-截至发稿，现货黄金报4386美元/盎司，跌1.54%；COMEX黄金报4420美元/盎司，跌1.37%。
+中国欧盟商会调查显示，成本优势是欧洲企业扩大在华生产的主要原因之一，而工厂加速推进的自动化转型同样发挥着关键作用。
 
-金价低位震荡，加仓还是止损？
+报道援引罗兰贝格全球管理委员会联席总裁戴璞的话指出，中国工厂自动化水平相较两年前呈现惊人飞跃。
 
-失守4400美元/盎司 下方关键支撑在何处？
+报道注意到，约四分之三的在华欧洲企业认为，他们在中国的生产基地效率高于其他地区。
 
 ## 相关推荐
 
-- 2026-06-29 23:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 23:33 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 23:35 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 23:23 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 23:17 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 23:11 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 23:34 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 23:31 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 23:31 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 23:33 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 23:30 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 23:32 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 23:38 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 23:34 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 23:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 23:25 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 23:13 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 23:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 23:28 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 23:24 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 23:37 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 23:38 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 23:24 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 23:20 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 23:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 23:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 23:25 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:32 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/68448.shtml)
-- 2026-06-29 23:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/7588397.shtml)
-- 2026-06-29 23:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/415463385578.shtml)
-- 2026-06-29 23:27 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/748219231805.shtml)
-- 2026-06-29 23:33 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/24310613931.shtml)
-- 2026-06-29 23:24 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/8166199.shtml)
-- 2026-06-29 23:10 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/652325.shtml)
-- 2026-06-29 23:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/183592.shtml)
-- 2026-06-29 23:12 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/10093902440.shtml)
-- 2026-06-29 23:31 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/78561.shtml)
-- 2026-06-29 23:07 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/840016124.shtml)
-- 2026-06-29 23:18 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/6473231775.shtml)
-- 2026-06-29 23:33 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/775868.shtml)
-- 2026-06-29 23:23 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/6882624355.shtml)
-- 2026-06-29 23:22 - [我和我的家乡](http://www.share.minike.top/Article/details/243194855119.shtml)
+- 2026-06-29 23:33 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/53768796.shtml)
+- 2026-06-29 23:15 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/85571684798.shtml)
+- 2026-06-29 23:27 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/4710350355.shtml)
+- 2026-06-29 23:23 - [女心理师](http://www.blog.minike.top/Article/details/65922354674.shtml)
+- 2026-06-29 23:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/046453635780.shtml)
+- 2026-06-29 23:39 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/46331.shtml)
+- 2026-06-29 23:19 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/4746610.shtml)
+- 2026-06-29 23:40 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/8623822.shtml)
+- 2026-06-29 23:36 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/1347024.shtml)
+- 2026-06-29 23:19 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/515187075.shtml)
+- 2026-06-29 23:35 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/540017297.shtml)
+- 2026-06-29 23:16 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/080907928993.shtml)
+- 2026-06-29 23:32 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/88960097560.shtml)
+- 2026-06-29 23:29 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/3230545.shtml)
+- 2026-06-29 23:36 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/51953080758.shtml)

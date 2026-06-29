@@ -1,57 +1,54 @@
-# 全球规模最大声光视讯展在穗开幕 预计吸引超11万名专业观众到场
+# 快讯：恒指高开0.62% 科指涨1.05% 科网股普涨 黄金股回暖 联想涨超14%
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新网广州5月28日电(王华 秦小雅)2026第二十四届广州国际专业灯光、音响展览会(以下简称：灯光音响展)28日在广交会展馆启幕。作为全球规模最大的声光视讯行业展会，本届展会展览面积达22万平方米，汇聚2227家海内外参展企业，预计吸引超11万名全球专业观众到场参观采购、交流合作。 本届灯光音响展面积增至22万平方米，居全球同类展会首位，并成功入选“广东省会展项目百强”和“广
+美股周四温和向好，据报美伊达成停火协议，利好市场气氛，三大指数均创出历史新高收市。美元走势回落，美国十年期债息下滑至4.44厘水平，金价低位反弹，油价反复受压。 今日港股三大指数集体高开，恒指开盘涨0.62%，报25161.52点，恒科指涨1.05%，国企指数涨0.5%。盘面上，科网股普涨，联想涨超14%，百度涨超3%，快手、阿里巴巴涨超1%；AI应用股高开，深演智能涨超12%
 
 ## 正文
 
-中新网广州5月28日电(王华 秦小雅)2026第二十四届广州国际专业灯光、音响展览会(以下简称：灯光音响展)28日在广交会展馆启幕。
+美股周四温和向好，据报美伊达成停火协议，利好市场气氛，三大指数均创出历史新高收市。
 
-作为全球规模最大的声光视讯行业展会，本届展会展览面积达22万平方米，汇聚2227家海内外参展企业，预计吸引超11万名全球专业观众到场参观采购、交流合作。
+美元走势回落，美国十年期债息下滑至4.44厘水平，金价低位反弹，油价反复受压。
 
-本届灯光音响展面积增至22万平方米，居全球同类展会首位，并成功入选“广东省会展项目百强”和“广州市重点品牌展会”。
+今日港股三大指数集体高开，恒指开盘涨0.62%，报25161.52点，恒科指涨1.05%，国企指数涨0.5%。
 
-本届展会呈现国际化、高端化、专业化特征，汇聚哈曼国际、雅马哈、铁三角、Bose Professional等国际知名品牌，以及海康威视、ITC保伦电子、浩洋、音王、汇丰音响、星网视易等国内行业龙头。
+盘面上，科网股普涨，联想涨超14%，百度涨超3%，快手、阿里巴巴涨超1%；AI应用股高开，深演智能涨超12%；黄金股回暖，紫金黄金国际涨超5%；锂电池股普遍上涨，比亚迪电子涨超2%；今日创想三维上市，首日涨超80%。
 
-海外参展品牌上百个，来自共建“一带一路”沿线和欧美地区的采购团数量连年增加。
-
-本届灯光音响展还打破传统布展模式，实现从单品展示到场景体验、从设备销售到方案输出的全面升级。
-
-展馆布局精准适配产业融合趋势，形成“前台演出场景+后台系统集成”的完整产业闭环。
-
-此外，本届展会同期举办的Visual X光影显示元宇宙展，对接XR虚拟技术、AI智能交互等新兴消费需求。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-29 23:24 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 23:35 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 23:31 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 23:12 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 23:10 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 23:15 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 23:30 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 23:22 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 23:30 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 23:09 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 23:33 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 23:19 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 23:36 - [刘念回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 23:34 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 23:35 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 23:28 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 23:17 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 23:16 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 23:19 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 23:41 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 23:27 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 23:14 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 23:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 23:20 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 23:26 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:23 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/276330.shtml)
-- 2026-06-29 23:06 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/7880191086.shtml)
-- 2026-06-29 23:08 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/39699.shtml)
-- 2026-06-29 23:33 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/4229679.shtml)
-- 2026-06-29 23:21 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/87233579252.shtml)
-- 2026-06-29 23:06 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/9471782.shtml)
-- 2026-06-29 23:28 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/74929479908.shtml)
-- 2026-06-29 23:11 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/46596251.shtml)
-- 2026-06-29 23:09 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/96936823.shtml)
-- 2026-06-29 23:33 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/1112302088.shtml)
-- 2026-06-29 23:21 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/620592997.shtml)
-- 2026-06-29 23:23 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/795817.shtml)
-- 2026-06-29 23:31 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/375325.shtml)
-- 2026-06-29 23:30 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/37343065.shtml)
-- 2026-06-29 23:14 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/34534.shtml)
+- 2026-06-29 23:20 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/92904311873.shtml)
+- 2026-06-29 23:12 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/842099267000.shtml)
+- 2026-06-29 23:40 - [扫黑风暴](http://www.blog.minike.top/Article/details/825762763271.shtml)
+- 2026-06-29 23:21 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/372950013.shtml)
+- 2026-06-29 23:39 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/15236.shtml)
+- 2026-06-29 23:27 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/31620073.shtml)
+- 2026-06-29 23:21 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/900280.shtml)
+- 2026-06-29 23:20 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/996658254.shtml)
+- 2026-06-29 23:24 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/506766465015.shtml)
+- 2026-06-29 23:30 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/197393612309.shtml)
+- 2026-06-29 23:18 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/748523.shtml)
+- 2026-06-29 23:38 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/4942669303.shtml)
+- 2026-06-29 23:25 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/07838765692.shtml)
+- 2026-06-29 23:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/5869866.shtml)
+- 2026-06-29 23:21 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/863123.shtml)

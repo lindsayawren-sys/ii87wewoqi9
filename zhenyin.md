@@ -1,51 +1,59 @@
-# 陈忠岳：推动AI深度融入现代产业化体系
+# 三星、SK海力士暴涨“冲击”基金持仓封顶线 引发强制抛盘
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-专题：2026世界智能产业博览会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！聆听前沿声音，洞见未来趋势。 5月28日，以“智行天下 能动未来”为主题的2026世界智能产业博览会在天津启幕。陈忠岳在开幕式嘉宾发言中表示，要推动AI深度融入现代产业化体系。 责任编辑：宋雅芳
+三星电子和SK海力士股价扶摇直上，不料却给一些基金添了烦恼：它们的仓位已经变得过于庞大，以至于现在不得不卖出了。 随着这两家韩国芯片制造商股价创出盘中新高，受制于单只股票持仓上限10%规定的基金愈来愈多地触及这一限制。其中就包括GAM Investment Management和Jupiter Asset Management，这两家公司已被迫调整投资组合以保持合规。 分析人士
 
 ## 正文
 
-专题：2026世界智能产业博览会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+三星电子和SK海力士股价扶摇直上，不料却给一些基金添了烦恼：它们的仓位已经变得过于庞大，以至于现在不得不卖出了。
 
-聆听前沿声音，洞见未来趋势。
+随着这两家韩国芯片制造商股价创出盘中新高，受制于单只股票持仓上限10%规定的基金愈来愈多地触及这一限制。
 
-5月28日，以“智行天下 能动未来”为主题的2026世界智能产业博览会在天津启幕。
+其中就包括GAM Investment Management和Jupiter Asset Management，这两家公司已被迫调整投资组合以保持合规。
 
-陈忠岳在开幕式嘉宾发言中表示，要推动AI深度融入现代产业化体系。
+分析人士将今年创纪录的外资流出归因于这种机械性抛压，这会增大已然颇为剧烈的市场波动。
 
-责任编辑：宋雅芳
+这一动态也凸显出相关交易的拥挤程度：投资者蜂拥投入AI热潮，推动这两家芯片制造商的市值双双突破1万亿美元。
+
+这个问题也促使投资者去寻觅替代方案。
+
+Eugene Asset Management驻首尔的首席投资官Ha SeokKeun表示，投资者可能会寻求通过关联公司、控股公司，或持有这两家公司大量股份的保险公司，间接扩大半导体板块敞口。
+
+在韩国国民年金公团上调国内股票配置目标的消息传出后，这双韩国芯片股周五上涨。
 
 ## 相关推荐
 
-- 2026-06-29 23:10 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 23:21 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 23:06 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 23:09 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 23:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 23:35 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 23:09 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 23:11 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 23:29 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 23:11 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 23:20 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 23:40 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 23:12 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 23:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 23:16 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 23:13 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 23:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 23:30 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 23:39 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 23:32 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 23:33 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 23:41 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 23:33 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 23:33 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:23 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/440919.shtml)
-- 2026-06-29 23:28 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/208321.shtml)
-- 2026-06-29 23:11 - [爱很美味](http://www.share.minike.top/Article/details/047753150.shtml)
-- 2026-06-29 23:22 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/2715705638.shtml)
-- 2026-06-29 23:15 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/79619258.shtml)
-- 2026-06-29 23:10 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/191047002.shtml)
-- 2026-06-29 23:12 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/890633006227.shtml)
-- 2026-06-29 23:23 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/567902.shtml)
-- 2026-06-29 23:13 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/28761.shtml)
-- 2026-06-29 23:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/34154.shtml)
-- 2026-06-29 23:11 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/6315187353.shtml)
-- 2026-06-29 23:19 - [周生如故](https://www.blog.kurohicncr.top/Article/details/19560267.shtml)
-- 2026-06-29 23:35 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/231985.shtml)
-- 2026-06-29 23:10 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/40961429.shtml)
-- 2026-06-29 23:33 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/00747.shtml)
+- 2026-06-29 23:41 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/329074.shtml)
+- 2026-06-29 23:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/19846.shtml)
+- 2026-06-29 23:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/00270954.shtml)
+- 2026-06-29 23:13 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/732112001083.shtml)
+- 2026-06-29 23:29 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/9401235.shtml)
+- 2026-06-29 23:15 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/537937.shtml)
+- 2026-06-29 23:18 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/047587.shtml)
+- 2026-06-29 23:33 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/371906.shtml)
+- 2026-06-29 23:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/87687.shtml)
+- 2026-06-29 23:29 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/494967744996.shtml)
+- 2026-06-29 23:20 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/870332.shtml)
+- 2026-06-29 23:17 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/22046.shtml)
+- 2026-06-29 23:30 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/7647841171.shtml)
+- 2026-06-29 23:18 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/159324.shtml)
+- 2026-06-29 23:35 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/2277748.shtml)

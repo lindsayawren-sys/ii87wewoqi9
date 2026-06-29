@@ -1,60 +1,60 @@
-# 澳门特区政府行政法务司：将为澳门经济适度多元发展提供法治支撑
+# “乒乓搭台 经贸唱戏”主题路演系列活动在杜塞尔多夫启动
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新社厦门5月28日电 (记者 谢雁冰)由中国法学会、香港特区政府律政司、澳门特区政府行政法务司共同主办的第14届内地与港澳法律研讨会28日在厦门举行。澳门特区政府行政法务司司长黄少泽当天在视频致辞中表示，澳门特区政府将提升立法质量，为澳门经济适度多元发展提供稳固的法治支撑，为粤港澳大湾区规则融合提供示范样本。黄少泽说，澳门是21世纪海上丝绸之路重要节点、中国与葡语国家商贸合作
+中新网柏林5月28日电 杜塞尔多夫消息：由ADV Advantage Sport发起的“乒乓搭台 经贸唱戏”主题路演系列活动近日在杜塞尔多夫启动。 主办方将传统商务场景搬到乒乓球台边，通过挥拍互动、轻松交流帮助嘉宾快速建立信任。近120位中德企业高管、行业协会代表以及品牌、公关和体育领域人士参与活动，共同探索体育与商务融合的新型交流模式。 据悉，乒乓球作为中德两国都广受欢迎的运
 
 ## 正文
 
-中新社厦门5月28日电 (记者 谢雁冰)由中国法学会、香港特区政府律政司、澳门特区政府行政法务司共同主办的第14届内地与港澳法律研讨会28日在厦门举行。
+中新网柏林5月28日电 杜塞尔多夫消息：由ADV Advantage Sport发起的“乒乓搭台 经贸唱戏”主题路演系列活动近日在杜塞尔多夫启动。
 
-澳门特区政府行政法务司司长黄少泽当天在视频致辞中表示，澳门特区政府将提升立法质量，为澳门经济适度多元发展提供稳固的法治支撑，为粤港澳大湾区规则融合提供示范样本。
+主办方将传统商务场景搬到乒乓球台边，通过挥拍互动、轻松交流帮助嘉宾快速建立信任。
 
-黄少泽说，澳门是21世纪海上丝绸之路重要节点、中国与葡语国家商贸合作服务平台，也是粤港澳大湾区建设的重要一员，在国家战略中担当“精准联系人”的角色，始终坚持背靠祖国、联通世界，主动融入国家发展大局，为与葡语国家之间搭建桥梁发挥独特作用。
+近120位中德企业高管、行业协会代表以及品牌、公关和体育领域人士参与活动，共同探索体育与商务融合的新型交流模式。
 
-黄少泽表示，行政法务司作为澳门特区政府负责公共行政、法务工作等核心领域的主管部门，在健全和完善澳门法律体系、推动规则衔接、促进涉外合作等方面主动担当、积极作为，为高质量共建“一带一路”提供法治支撑。
+据悉，乒乓球作为中德两国都广受欢迎的运动，正成为促进双方沟通与互信的重要纽带。
 
-同时，利用澳门大陆法系的制度特色，发挥中葡双语优势，持续深化与内地、香港的法律交流。
+活动依托ADV Advantage Sport旗下签约运动员资源，包括乒坛名将贝内迪克特·杜达(Benedikt Duda)、邱党、安东·卡尔伯格(Anton Källberg)及万远等，通过体育互动拉近企业间距离，推动商业合作交流。
 
-在坚守“一国”之本、善用“两制”之利的前提下，以宪法与基本法为核心筑牢宪制秩序，健全维护国家安全法律体系，为建设高水平对外开放营造安全稳固的制度环境。
+德国中国商会秘书长王星表示，此类创新交流形式轻松、高效且真诚，有助于提升中国品牌在德国市场的影响力。
 
-黄少泽说，今年是“十五五”开局之年，也是澳门“三五”规划的启航之年。
+在当前国际形势下，加强民间与企业层面交流尤为重要，而体育正是促进沟通与互信的重要桥梁。
 
-“十五五”规划纲要为内地与港澳法治合作提供了更广阔的制度空间和实践场景。
+据悉，该系列路演下一站将在汉堡举行，未来将持续为有意拓展德国市场的中国企业及深化对华合作的德国企业搭建务实、高效的交流平台。
 
 ## 相关推荐
 
-- 2026-06-29 23:11 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 23:12 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 23:31 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 23:22 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 23:30 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 23:10 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 23:31 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 23:23 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 23:18 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 23:26 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 23:33 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 23:13 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 23:16 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 23:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 23:32 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 23:32 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 23:32 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 23:20 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 23:29 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 23:25 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 23:28 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 23:32 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 23:40 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 23:35 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 23:40 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 23:14 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 23:13 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 23:17 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:10 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/37936.shtml)
-- 2026-06-29 23:25 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/21050417.shtml)
-- 2026-06-29 23:32 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/9726973014.shtml)
-- 2026-06-29 23:35 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/13511859311.shtml)
-- 2026-06-29 23:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/820663060363.shtml)
-- 2026-06-29 23:18 - [东方风云榜](http://www.blog.minike.top/Article/details/832027766.shtml)
-- 2026-06-29 23:25 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/495547122.shtml)
-- 2026-06-29 23:11 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/3689061786.shtml)
-- 2026-06-29 23:16 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/285040324.shtml)
-- 2026-06-29 23:07 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/731613037.shtml)
-- 2026-06-29 23:33 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/2555249.shtml)
-- 2026-06-29 23:33 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/605634939.shtml)
-- 2026-06-29 23:33 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/379484338.shtml)
-- 2026-06-29 23:28 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/0524671449.shtml)
-- 2026-06-29 23:35 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/123131291433.shtml)
+- 2026-06-29 23:33 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/49666524.shtml)
+- 2026-06-29 23:16 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/277753.shtml)
+- 2026-06-29 23:35 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/122309.shtml)
+- 2026-06-29 23:38 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/658885833739.shtml)
+- 2026-06-29 23:34 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/99992717.shtml)
+- 2026-06-29 23:12 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/9538341282.shtml)
+- 2026-06-29 23:36 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/57566987.shtml)
+- 2026-06-29 23:37 - [田曦薇没招了](http://www.share.minike.top/Article/details/45870571996.shtml)
+- 2026-06-29 23:17 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/35276.shtml)
+- 2026-06-29 23:18 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/416432.shtml)
+- 2026-06-29 23:34 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/3428231356.shtml)
+- 2026-06-29 23:18 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.minike.top/Article/details/541005562.shtml)
+- 2026-06-29 23:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/15436730.shtml)
+- 2026-06-29 23:16 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/085138332.shtml)
+- 2026-06-29 23:40 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/66867929.shtml)

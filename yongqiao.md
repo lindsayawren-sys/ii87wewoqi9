@@ -1,56 +1,57 @@
-# 法国卫生部长：从6月中旬起将报销减肥药费用
+# 河南多维金融举措支持豫企出海
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-法国卫生部长里斯特 （Stephanie Rist） 周四在接受TF1电视台采访时表示，从6月中旬起，法国将为重度肥胖患者报销减肥药费用。 诺和诺德的Wegovy和礼来公司的Mounjaro是两种注射剂，作为抗肥胖治疗药物已在全球范围内引起广泛关注。 相关审批程序正在最后敲定，预计报销政策将于6月中旬生效。 适用对象为：身体质量指数（BMI） ≥35且至少伴有一种并发症的患者，
+中新网郑州5月28日电 (记者 韩章云)5月28日，记者从国家金融监督管理总局河南监管局(以下简称河南金融监管局)获悉，截至3月末，该省银行业支持外贸企业贷款余额，保险业短期出口信用保险累计保障外贸企业数量、承保金额同比均实现增长，金融支持企业“走出去”实现良好开局。近年来，河南金融监管局围绕跨境金融服务体系建设，多措并举为河南企业“扬帆出海”注入金融动能。 其中，2025年河
 
 ## 正文
 
-法国卫生部长里斯特 （Stephanie Rist） 周四在接受TF1电视台采访时表示，从6月中旬起，法国将为重度肥胖患者报销减肥药费用。
+中新网郑州5月28日电 (记者 韩章云)5月28日，记者从国家金融监督管理总局河南监管局(以下简称河南金融监管局)获悉，截至3月末，该省银行业支持外贸企业贷款余额，保险业短期出口信用保险累计保障外贸企业数量、承保金额同比均实现增长，金融支持企业“走出去”实现良好开局。
 
-诺和诺德的Wegovy和礼来公司的Mounjaro是两种注射剂，作为抗肥胖治疗药物已在全球范围内引起广泛关注。
+近年来，河南金融监管局围绕跨境金融服务体系建设，多措并举为河南企业“扬帆出海”注入金融动能。
 
-相关审批程序正在最后敲定，预计报销政策将于6月中旬生效。
+其中，2025年河南印发《关于加强金融支持促进外贸稳定增长的指导意见》，围绕加大信贷投放、加强产品创新、提升服务质效等七大方面提出22条举措，明确将支持豫企“走出去”、积极布局海外市场作为工作重点，要求对有外贸实绩的企业做到金融服务全覆盖，全力以赴满足外贸企业金融需求。
 
-适用对象为：身体质量指数（BMI） ≥35且至少伴有一种并发症的患者，或BMI≥40（无论是否伴有并发症）的患者。
+今年以来，河南银行保险机构紧跟豫企“走出去”实际需求，提供资源对接和金融支持。
 
-多达1000000人可能受益于此项报销政策，处方权仍由医生酌情决定。
+截至2026年3月末，河南全省银行业支持外贸企业贷款余额3818亿元，较年初增加368亿元，同比增长10.7%；全省保险业短期出口信用保险累计保障外贸企业6032家、承保金额661.87亿元，同比分别增长9.7%、57%，金融支持企业“走出去”实现良好开局。
 
-里斯特表示，报销比例为65%，但在实际操作中，由于合并症的存在，绝大多数符合条件的患者可享受100%的报销。
+政策性金融机构发挥“前锋”优势，为出海项目提供长期限、低成本金融服务。
 
-里斯特估计，全面实施后，该政策每年将给国家带来约1亿欧元的支出。
+如，国家开发银行河南省分行累计为郑州中欧班列集结中心等该省开放通道建设项目投放46.11亿元，有力支撑了“空、陆、海、网”四条丝绸之路关键节点建设。
 
-在法国，患者每月需为这些药物支付约300欧元。
+除贷款支持外，河南积极发挥投行业务优势，协助企业进行境外融资。
 
 ## 相关推荐
 
-- 2026-06-29 23:20 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 23:14 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 23:16 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 23:20 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 23:18 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 23:27 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 23:15 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 23:26 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 23:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 23:19 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 23:23 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 23:12 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 23:18 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 23:16 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 23:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 23:22 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 23:23 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 23:14 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 23:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 23:23 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 23:34 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/38041109664.shtml)
-- 2026-06-29 23:30 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/523273809082.shtml)
-- 2026-06-29 23:27 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/854929700140.shtml)
-- 2026-06-29 23:27 - [流金岁月](http://www.share.minike.top/Article/details/64924705676.shtml)
-- 2026-06-29 23:20 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/4086052.shtml)
-- 2026-06-29 23:16 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/3996006732.shtml)
-- 2026-06-29 23:11 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/1386779925.shtml)
-- 2026-06-29 23:35 - [巴西队主帅称日本队是世界最佳之一](http://www.share.kurohicncr.top/Article/details/780005.shtml)
-- 2026-06-29 23:31 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/995145.shtml)
-- 2026-06-29 23:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/2506961720.shtml)
-- 2026-06-29 23:10 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/006687.shtml)
-- 2026-06-29 23:35 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/55855912598.shtml)
-- 2026-06-29 23:12 - [金刚川](https://www.blog.minike.top/Article/details/76128.shtml)
-- 2026-06-29 23:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/018480810.shtml)
-- 2026-06-29 23:33 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/38356.shtml)
+- 2026-06-29 23:37 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/537682925448.shtml)
+- 2026-06-29 23:40 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/16738927620.shtml)
+- 2026-06-29 23:27 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/588578697613.shtml)
+- 2026-06-29 23:24 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/8400970.shtml)
+- 2026-06-29 23:19 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/06540.shtml)
+- 2026-06-29 23:16 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/97731314766.shtml)
+- 2026-06-29 23:41 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/6952591.shtml)
+- 2026-06-29 23:30 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/90790.shtml)
+- 2026-06-29 23:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/642733374.shtml)
+- 2026-06-29 23:14 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/98033208810.shtml)
+- 2026-06-29 23:17 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/94956.shtml)
+- 2026-06-29 23:24 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/14211361.shtml)
+- 2026-06-29 23:16 - [金牌调解](https://www.blog.minike.top/Article/details/874531282.shtml)
+- 2026-06-29 23:34 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/435850794288.shtml)
+- 2026-06-29 23:41 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/8481625389.shtml)

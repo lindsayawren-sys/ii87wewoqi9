@@ -1,59 +1,61 @@
-# 联合国工发组织副总干事：中国在多边体系中发挥引领作用
+# 5月29日美股成交额前20：微软将于下周推出多款自研AI模型
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新社厦门5月27日电 (记者 刘亮)联合国工业发展组织副总干事邹刺勇27日指出，当前中国在科技和可持续发展方面取得显著成效，在多边体系中也持续发挥着引领作用。 当天，2026金砖国家新工业革命伙伴关系论坛在福建省厦门市开幕。论坛旨在加强各国在智能制造领域政策交流和产业对接，更好发挥金砖国家“大富矿”“大市场”“大工厂”优势，构建互利共赢的产业生态。 邹刺勇在论坛期间接受媒体采
+周四美股成交额第1名美光科技收跌0.53%，成交454.75亿美元。在过去一年暴涨684%后，美光科技凭借AI芯片需求与存储周期回暖，股价仍有巨大上涨潜力。 分析师指出，其第二财季营收与每股收益均远超预期，并给出极为强劲的第三财季指引，推动股价飙升至万亿市值。高带宽内存（HBM）技术正在从根本上改变存储行业的商业模式，使美光从周期性大宗商品供应商转型为准基础设施企业。通过签署五
 
 ## 正文
 
-中新社厦门5月27日电 (记者 刘亮)联合国工业发展组织副总干事邹刺勇27日指出，当前中国在科技和可持续发展方面取得显著成效，在多边体系中也持续发挥着引领作用。
+周四美股成交额第1名美光科技收跌0.53%，成交454.75亿美元。
 
-当天，2026金砖国家新工业革命伙伴关系论坛在福建省厦门市开幕。
+在过去一年暴涨684%后，美光科技凭借AI芯片需求与存储周期回暖，股价仍有巨大上涨潜力。
 
-论坛旨在加强各国在智能制造领域政策交流和产业对接，更好发挥金砖国家“大富矿”“大市场”“大工厂”优势，构建互利共赢的产业生态。
+分析师指出，其第二财季营收与每股收益均远超预期，并给出极为强劲的第三财季指引，推动股价飙升至万亿市值。
 
-邹刺勇在论坛期间接受媒体采访时表示，中国智能制造及人工智能产业居全球领先地位，金砖国家若能与其在这些前沿领域深度合作，将为全球产业发展带来巨大潜力。
+高带宽内存（HBM）技术正在从根本上改变存储行业的商业模式，使美光从周期性大宗商品供应商转型为准基础设施企业。
 
-而实现这一目标，需要金砖国家在政策、技术、生态等多维度加强交流协作。
+通过签署五年期战略客户协议（SCA），美光锁定了长期定价与出货量，显著增强了未来盈利的稳定性和可预见性。
 
-中国如今已成为可持续发展领域的引领者，不仅在生态保护上成果斐然，在太阳能、风能等新能源发展方面也卓有成效。
+第2名英伟达收高0.78%，成交296.8亿美元。
 
-邹刺勇表示，这些成果展现了中国政府的执行力及其对可持续发展的坚定承诺，也展现政府政策与企业行动的紧密协同。
+周四之前，英伟达股价已经连续四个交易日下跌。
 
-邹刺勇观察到，在为全球可持续发展作出积极贡献的同时，中国在多边体系中也持续发挥引领作用。
+据报道，英伟达CEO黄仁勋将于下周访问韩国。
 
 ## 相关推荐
 
-- 2026-06-29 23:06 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 23:26 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 23:34 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 23:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 23:10 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 23:25 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 23:18 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 23:29 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 23:23 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 23:23 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 23:13 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 23:08 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 23:06 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 23:18 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 23:16 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 23:30 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 23:18 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 23:23 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 23:29 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 23:24 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 23:13 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 23:35 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 23:33 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 23:14 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 23:33 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 23:20 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 23:13 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 23:33 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/2154611.shtml)
-- 2026-06-29 23:15 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/1128088470.shtml)
-- 2026-06-29 23:35 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/9814989.shtml)
-- 2026-06-29 23:17 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/091183589.shtml)
-- 2026-06-29 23:25 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/65371.shtml)
-- 2026-06-29 23:09 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/78830908599.shtml)
-- 2026-06-29 23:17 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/65325861904.shtml)
-- 2026-06-29 23:29 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/53991.shtml)
-- 2026-06-29 23:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/55835564.shtml)
-- 2026-06-29 23:31 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/293787.shtml)
-- 2026-06-29 23:17 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/4757219.shtml)
-- 2026-06-29 23:33 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/70668293.shtml)
-- 2026-06-29 23:13 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/40777358.shtml)
-- 2026-06-29 23:26 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/2876326894.shtml)
-- 2026-06-29 23:20 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/14864192.shtml)
+- 2026-06-29 23:40 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/056849751844.shtml)
+- 2026-06-29 23:26 - [《贺子珍》](https://www.share.minike.top/Article/details/09646099.shtml)
+- 2026-06-29 23:26 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/28465919059.shtml)
+- 2026-06-29 23:39 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/162054554.shtml)
+- 2026-06-29 23:22 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/68640374.shtml)
+- 2026-06-29 23:38 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/4877905.shtml)
+- 2026-06-29 23:39 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/509765.shtml)
+- 2026-06-29 23:27 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.kurohicncr.top/Article/details/7989892.shtml)
+- 2026-06-29 23:26 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/33358789237.shtml)
+- 2026-06-29 23:12 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/43036.shtml)
+- 2026-06-29 23:35 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/61074.shtml)
+- 2026-06-29 23:36 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/62190068606.shtml)
+- 2026-06-29 23:13 - [天道](http://www.blog.minike.top/Article/details/88375.shtml)
+- 2026-06-29 23:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/8122071.shtml)
+- 2026-06-29 23:40 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/08401187.shtml)

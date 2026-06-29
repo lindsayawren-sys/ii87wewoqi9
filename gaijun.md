@@ -1,61 +1,58 @@
-# 今起实施 12306“敬”字票能省多少钱？优惠购票攻略请查收
+# 2026世界智能产业博览会同期活动《精益赋能·智能跃迁》智能工厂梯度培育闭门会在津举办
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-今起 铁路部门推出的 “老年旅客淡季周中购票优惠服务” 正式实施在5月29日至6月30日期间，年满60周岁及以上的旅客，在每周一中午到周五中午时段出行，可以享受动车组列车执行票价九折的优惠，以及普通常旅客会员3倍积分优惠。 老年旅客如何购买优惠车票？ 一起了解 记者登录铁路12306网站看到，部分列车车次已经标注了绿色的“敬”字，年满60周岁及以上的旅客，购买相关车次的车票，订
+专题：2026世界智能产业博览会 2026世界智能产业博览会同期活动——《精益赋能·智能跃迁》智能工厂梯度培育闭门会于5月29日在天津举行。本次同期活动由爱波瑞智能制造研究院承办，汇聚了中国工程院院士、国家智能制造专家咨询委员会专家、工信部相关机构负责人、央国企及行业链主企业高管、行业协会负责人、数智化转型专家学者等150多名嘉宾，围绕人工智能与精益管理深度融合、国家级智能工厂
 
 ## 正文
 
-今起 铁路部门推出的 “老年旅客淡季周中购票优惠服务” 正式实施在5月29日至6月30日期间，年满60周岁及以上的旅客，在每周一中午到周五中午时段出行，可以享受动车组列车执行票价九折的优惠，以及普通常旅客会员3倍积分优惠。
+专题：2026世界智能产业博览会 2026世界智能产业博览会同期活动——《精益赋能·智能跃迁》智能工厂梯度培育闭门会于5月29日在天津举行。
 
-老年旅客如何购买优惠车票？
+本次同期活动由爱波瑞智能制造研究院承办，汇聚了中国工程院院士、国家智能制造专家咨询委员会专家、工信部相关机构负责人、央国企及行业链主企业高管、行业协会负责人、数智化转型专家学者等150多名嘉宾，围绕人工智能与精益管理深度融合、国家级智能工厂建设、智能化穿透管理落地路径、AI人才体系建设等核心议题展开深度研讨与分享，通过战略指引、标准解读、案例分享、圆桌对话、座谈研讨、工厂参观等形式，为制造业企业实现数智化跃迁注入全新动能。
 
-一起了解 记者登录铁路12306网站看到，部分列车车次已经标注了绿色的“敬”字，年满60周岁及以上的旅客，购买相关车次的车票，订单和车票页面将显示“长者优惠”字样，购票旅客可在既有折扣的基础上再享受一轮优惠。
+爱波瑞集团董事长、中国企业改革与发展研究会副会长王洪艳在开场主旨导引中指出，国家智能工厂梯度培育分为基础级、先进级、卓越级、领航级四个层级，尤其领航级工厂要求60%以上的场景融合AI技术，为企业运营模式升级树立了全新标杆。
 
-国铁哈尔滨局大庆车务段大庆东站客运主任 曹阳：在每周一的中午到周五的中午，这个周中时段出行，给予动车组列车执行票价九折的优惠，符合条件的老年旅客还可以叠加残疾军人等优待对象的折上折。
+她强调，精益是智能化落地的根基，智能化则为精益管理提质增效，二者相辅相成、双向赋能。
 
-这个“周中”时段，指的是每周一中午12点至周五中午12点之间的车票，可以享受折上折的优惠，同时需要注意的是，6月18日至22日端午出行高峰期不享受优惠。
+企业想要穿越经营周期，核心在于三点：一是坚守经营本质，推动精益与人工智能深度融合、双向共生；二是激发创新活力，让愿景成为前行的内生动力；三是加速产业生态重构，重塑供需关系与价值逻辑，在协同共创中行稳致远，共探适配本土发展的中国式管理范式。
 
-那么符合条件的老年旅客，购买“敬”字头车票到底可以省多少钱呢？
+国际欧亚科学院材料学部秘书长、中国电子企业协会国际合作专家会副主任阮汝祥在开场致辞中表示，新质生产力的核心在于科技创新，关键在于将科技成果高效转化为现实生产力，最终落脚在产业的转型升级与价值跃升上。
 
-一张原价100元的动车票，符合条件的老年旅客仅需支付90元，如果这名旅客同时持有残疾军人证，还可在九折基础上再享九折优惠，实际支付81元。
+精益管理是智能制造的基石，智能跃迁是精益管理的升华，二者不是简单的叠加关系，而是内在逻辑上的递进与耦合。
 
-银发列车焕新上线 多项优惠激发消费活力 “敬”字头列车推出的“长者优惠”，对于老年旅客来说，一方面提升了购票体验，另一方面降低了出行成本。
+广大制造企业要坚持精益为本，夯实智能制造的管理根基；强化科技赋能，加快形成新质生产力。
 
 ## 相关推荐
 
-- 2026-06-29 23:12 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 23:11 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 23:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 23:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 23:29 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 23:16 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 23:09 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 23:23 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 23:27 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 23:08 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 23:17 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 23:28 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 23:08 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 23:06 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 23:28 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 23:40 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 23:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 23:12 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 23:15 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 23:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 23:14 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 23:16 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 23:20 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 23:27 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 23:31 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 23:36 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 23:18 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:27 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/502339.shtml)
-- 2026-06-29 23:16 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/626536784331.shtml)
-- 2026-06-29 23:14 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/0695192.shtml)
-- 2026-06-29 23:22 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/870485.shtml)
-- 2026-06-29 23:26 - [炽夏](https://www.blog.kurohicncr.top/Article/details/405019510.shtml)
-- 2026-06-29 23:30 - [扬名立万](https://www.share.minike.top/Article/details/6884832.shtml)
-- 2026-06-29 23:23 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/5764891.shtml)
-- 2026-06-29 23:29 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/645438092204.shtml)
-- 2026-06-29 23:13 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/94809.shtml)
-- 2026-06-29 23:27 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/6944654.shtml)
-- 2026-06-29 23:32 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/334748.shtml)
-- 2026-06-29 23:16 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/51826.shtml)
-- 2026-06-29 23:28 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/27049032487.shtml)
-- 2026-06-29 23:15 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/090596374.shtml)
-- 2026-06-29 23:06 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/099087.shtml)
+- 2026-06-29 23:35 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/7220092.shtml)
+- 2026-06-29 23:20 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/55838724.shtml)
+- 2026-06-29 23:28 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/43885525.shtml)
+- 2026-06-29 23:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/86082565178.shtml)
+- 2026-06-29 23:29 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/55960.shtml)
+- 2026-06-29 23:15 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/1215189001.shtml)
+- 2026-06-29 23:30 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/715346590205.shtml)
+- 2026-06-29 23:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/2905257.shtml)
+- 2026-06-29 23:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/0750626.shtml)
+- 2026-06-29 23:30 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/1971245575.shtml)
+- 2026-06-29 23:40 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/8116153038.shtml)
+- 2026-06-29 23:39 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/459092094635.shtml)
+- 2026-06-29 23:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/7387146.shtml)
+- 2026-06-29 23:14 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/93182.shtml)
+- 2026-06-29 23:35 - [乌是否掌握了扭转战局的钥匙](http://www.share.kurohicncr.top/Article/details/448944223.shtml)

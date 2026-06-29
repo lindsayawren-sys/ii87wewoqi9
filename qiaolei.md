@@ -1,61 +1,47 @@
-# 突然变脸，华宝基金科创芯片ETF（589190）翻绿收跌3%，行情到哪了？逾7000万资金逢跌增仓
+# 湖北：东部地区出现降雨 局地有暴雨
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-5月27日，科创芯片宽幅震荡，全“芯”布局芯片产业的科创芯片ETF华宝（589190）早盘冲高，场内价格一度涨超2%，午后突发下坠，收跌3.03%，单日振幅达5.48%。 权重龙头集体回调，中芯国际跌近2%，寒武纪跌逾5%，海光信息跌超7%。半导体材料局部走强，中船特气涨超9%，天岳先进涨超8%；此外，佰维存储走势活跃，盘中一度涨超11%，收涨3%。 近期行情波动加大，就在前一
+发布时间：2026年05月28日 09:54 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-5月27日，科创芯片宽幅震荡，全“芯”布局芯片产业的科创芯片ETF华宝（589190）早盘冲高，场内价格一度涨超2%，午后突发下坠，收跌3.03%，单日振幅达5.48%。
-
-权重龙头集体回调，中芯国际跌近2%，寒武纪跌逾5%，海光信息跌超7%。
-
-半导体材料局部走强，中船特气涨超9%，天岳先进涨超8%；此外，佰维存储走势活跃，盘中一度涨超11%，收涨3%。
-
-近期行情波动加大，就在前一日，科创芯片等热门赛道集体回调，589190盘中一度下跌4.8%，收跌2.12%，资金借势积极增仓，上交所数据显示，589190单日获资金大举净流入7001万元，近5日累计吸金1.02亿元。
-
-银河证券认为，外部宏观扰动、板块加速轮动与短期获利兑现共同放大了行情波动，但市场增量资金充裕的基础未发生根本性变化，更多属于行情中途的资金博弈与情绪释放，科技主线依然延续强势。
-
-* 就芯片赛道而言，一方面，海外芯片巨头延续强映射，带动板块情绪。
-
-隔夜美股芯片上演史诗级暴涨，费城半导体指数大涨超5%，存储巨头美光科技大涨超19%，总市值首次突破1万亿美元。
-
-瑞银认为AI浪潮已经从根本上改变了存储芯片行业的估值逻辑，将美光目标价从535美元大幅上调至1625美元。
+发布时间：2026年05月28日 09:54 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 23:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 23:24 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 23:29 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 23:13 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 23:08 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 23:30 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 23:25 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 23:25 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 23:15 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 23:16 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 23:11 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 23:31 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 23:32 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 23:09 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 23:20 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 23:16 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 23:28 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 23:38 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 23:33 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 23:37 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 23:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 23:21 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 23:29 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 23:19 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 23:41 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 23:29 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 23:21 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 23:20 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 23:34 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:30 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/1192672552.shtml)
-- 2026-06-29 23:23 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/6291664.shtml)
-- 2026-06-29 23:13 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/888964.shtml)
-- 2026-06-29 23:27 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/750862124032.shtml)
-- 2026-06-29 23:20 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/126366.shtml)
-- 2026-06-29 23:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/776943894.shtml)
-- 2026-06-29 23:27 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.minike.top/Article/details/542915123008.shtml)
-- 2026-06-29 23:30 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/8507102963.shtml)
-- 2026-06-29 23:16 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/5829653.shtml)
-- 2026-06-29 23:31 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/94318685.shtml)
-- 2026-06-29 23:24 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/25637872.shtml)
-- 2026-06-29 23:15 - [周生如故](https://www.blog.minike.top/Article/details/13580638637.shtml)
-- 2026-06-29 23:26 - [东方风云榜直播](http://www.share.minike.top/Article/details/5995426.shtml)
-- 2026-06-29 23:09 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/954171041.shtml)
-- 2026-06-29 23:18 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/8138012876.shtml)
+- 2026-06-29 23:22 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/692647247272.shtml)
+- 2026-06-29 23:28 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/647230.shtml)
+- 2026-06-29 23:30 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/5252932.shtml)
+- 2026-06-29 23:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/72504.shtml)
+- 2026-06-29 23:20 - [青春环游记第三季](http://www.blog.minike.top/Article/details/0809460.shtml)
+- 2026-06-29 23:38 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/28889302452.shtml)
+- 2026-06-29 23:15 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/81808.shtml)
+- 2026-06-29 23:27 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/919848042631.shtml)
+- 2026-06-29 23:30 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/734067107903.shtml)
+- 2026-06-29 23:16 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/67477131953.shtml)
+- 2026-06-29 23:40 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/175828339.shtml)
+- 2026-06-29 23:28 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/483063220296.shtml)
+- 2026-06-29 23:17 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/87589.shtml)
+- 2026-06-29 23:31 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/645136410228.shtml)
+- 2026-06-29 23:24 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/820356482625.shtml)

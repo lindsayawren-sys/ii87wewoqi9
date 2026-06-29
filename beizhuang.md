@@ -1,59 +1,60 @@
-# 海关总署关于铁路、公路运输方式进口煤炭检验采信有关事项的解读
+# 中国产业叙事：长飞光纤
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-海关总署于2026年5月22日发布《关于铁路、公路运输方式进口煤炭检验采信要求的公告》(2026年第69号，以下简称“公告”)，决定对铁路、公路运输方式(以下统称“陆运”)进口煤炭检验实施采信管理。为帮助进口企业、检验机构更好地理解进口煤炭采信的各项要求，现就公告内容解读如下：一、海关依法对陆运进口煤炭实施采信 根据《中华人民共和国进出口商品检验法》第六条第三款的规定，对法检目
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：新财富 上世纪80年代，中国正处于改革开放初期，通信基础设施极度落后，进而成为了制约经济发展的关键瓶颈。彼时，国家规划建设“八纵八横”的国家一级光缆干线工程，但核心材料光纤，却完全依赖进口，价格高昂且供应受制于海外。在这样的背景下，打破国外技术垄断，实现光纤国产化，就成为一项十分紧迫的国家战略任务。
 
 ## 正文
 
-海关总署于2026年5月22日发布《关于铁路、公路运输方式进口煤炭检验采信要求的公告》(2026年第69号，以下简称“公告”)，决定对铁路、公路运输方式(以下统称“陆运”)进口煤炭检验实施采信管理。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-为帮助进口企业、检验机构更好地理解进口煤炭采信的各项要求，现就公告内容解读如下：一、海关依法对陆运进口煤炭实施采信 根据《中华人民共和国进出口商品检验法》第六条第三款的规定，对法检目录内的进出口商品检验，海关可以采信第三方检验机构的检验结果，并对检验机构实行目录管理。
+来源：新财富 上世纪80年代，中国正处于改革开放初期，通信基础设施极度落后，进而成为了制约经济发展的关键瓶颈。
 
-陆运进口煤炭批次多、单位运输工具装载量小、口岸实施法定检验耗时长、难度大，为保障陆运进口煤炭质量安全和通关便利，经风险评估和先期试点，海关决定依法实施采信。
+彼时，国家规划建设“八纵八横”的国家一级光缆干线工程，但核心材料光纤，却完全依赖进口，价格高昂且供应受制于海外。
 
-二、煤炭检验结果采信模式由企业自愿选择 根据《海关进出口商品检验采信管理办法》(以下简称《采信办法》)，进口煤炭实施检验结果采信后，企业在报关时自愿勾选是否采用采信模式，报关时未选择采信的，由海关实施法定检验。
+在这样的背景下，打破国外技术垄断，实现光纤国产化，就成为一项十分紧迫的国家战略任务。
 
-三、企业需上传《质量安全符合性声明》 进口采信商品《质量安全符合性声明》是充分体现企业作为质量安全第一责任人的文件，因此应由进口采信商品的收货人或者其代理人等承担质量安全主体责任的企业授权人填写。
+01 二十年的国产化之路 长飞光纤，诞生于改革开放第十年，也是全球信息通信技术酝酿巨变的时候——其成立之初，目标很明确：引进、消化、吸收荷兰飞利浦的PCVD（等离子体化学气相沉积）光纤预制棒技术，实现光纤光缆的国产化。
 
-代理企业可代为上传已经签发完毕的符合性声明，并在单一窗口申报时，确保符合性声明内容与申报信息保持一致。
+这条路走得很艰难。
 
-四、煤炭检验采信的境外监装要求 为保证进口货物与检验报告的一致性，海关设置境外监装要求。
+1991年，长飞生产出第一根成品光纤；同年10月，开始生产光缆。
 
-采信机构对煤炭的装运全过程监督，应采集装运影像资料、数重量信息、运输工具信息(包括车号、集装箱号)，如为铁路运输，需对站台装卸过程进行监督，并采集铁路运输工具相关信息(包括集装箱号、车皮号、站台信息等)，防止未经检验的煤炭混入。
+真正的转折点在于1992年，长飞开始全面投产光纤光缆，并于当年超额完成了设计指标——生产销售光缆5000公里、光纤6万公里。
 
 ## 相关推荐
 
-- 2026-06-29 23:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 23:23 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 23:20 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 23:09 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 23:28 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 23:31 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 23:30 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 23:27 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 23:13 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 23:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 23:15 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 23:18 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 23:29 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 23:12 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 23:41 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 23:33 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 23:18 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 23:37 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 23:22 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 23:27 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 23:27 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 23:40 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 23:36 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 23:18 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 23:13 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 23:34 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 23:40 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:34 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/02241038.shtml)
-- 2026-06-29 23:18 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/94912748112.shtml)
-- 2026-06-29 23:11 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/86194852226.shtml)
-- 2026-06-29 23:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/39935.shtml)
-- 2026-06-29 23:07 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/126468728.shtml)
-- 2026-06-29 23:28 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/151517.shtml)
-- 2026-06-29 23:23 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/75940.shtml)
-- 2026-06-29 23:31 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/9021476165.shtml)
-- 2026-06-29 23:33 - [英法德葡存在什么隐患](http://www.blog.kurohicncr.top/Article/details/966753.shtml)
-- 2026-06-29 23:16 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/866794574102.shtml)
-- 2026-06-29 23:18 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/428713.shtml)
-- 2026-06-29 23:06 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/646362440.shtml)
-- 2026-06-29 23:31 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/155548.shtml)
-- 2026-06-29 23:10 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/92544.shtml)
-- 2026-06-29 23:23 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/1885361.shtml)
+- 2026-06-29 23:21 - [电影后室值得看吗](http://www.share.minike.top/Article/details/063139.shtml)
+- 2026-06-29 23:21 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/59157931.shtml)
+- 2026-06-29 23:36 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/12114.shtml)
+- 2026-06-29 23:15 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/2532808.shtml)
+- 2026-06-29 23:37 - [急先锋](https://www.blog.minike.top/Article/details/109529488.shtml)
+- 2026-06-29 23:28 - [毒液2](http://www.blog.minike.top/Article/details/337419.shtml)
+- 2026-06-29 23:30 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/5823550069.shtml)
+- 2026-06-29 23:30 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/873937.shtml)
+- 2026-06-29 23:14 - [扫黑风暴](http://www.share.minike.top/Article/details/29085986690.shtml)
+- 2026-06-29 23:22 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/47412.shtml)
+- 2026-06-29 23:17 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/71659724.shtml)
+- 2026-06-29 23:32 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.kurohicncr.top/Article/details/76637022.shtml)
+- 2026-06-29 23:37 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/227067.shtml)
+- 2026-06-29 23:20 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/96977487.shtml)
+- 2026-06-29 23:15 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/77487009.shtml)

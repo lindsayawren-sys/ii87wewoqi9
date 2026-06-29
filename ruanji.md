@@ -1,61 +1,61 @@
-# 西藏萨嘎达瓦：古老传统与现代暖意交融
+# 结直肠癌早筛早治是关键 专家教你科学守护肠道健康
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新网拉萨5月28日电 题：西藏萨嘎达瓦：古老传统与现代暖意交融 作者 贡桑拉姆 贡确 藏历四月的拉萨，晨曦微露。全长近10公里的林廓转经道上，手持念珠、口诵经文的祈福信众已络绎不绝，步履沉静而坚定。 萨嘎达瓦传统宗教活动于5月17日藏历四月初一正式开启，为期一个月。这个为纪念释迦牟尼佛诞生、成佛、涅槃的月份，藏传佛教信众们通过转经、朝佛、素食、布施等方式，延续这一传统宗教活动
+朝“问”健康丨结直肠癌早筛早治是关键 专家教你科学守护肠道健康 今天(29日)是世界肠道健康日。肠道被誉为人体第二大脑，也是重要免疫器官。结直肠癌发病形势不容乐观，依据国家卫健委相关筛查方案监测数据，2022年我国新发结直肠癌51.71万例，占全部恶性肿瘤新发病例10.7%，发病数量逐年攀升，现已成为发病率仅次于肺癌的第二大恶性肿瘤。 该病早期症状隐匿，仅会出现排便异常、便秘等
 
 ## 正文
 
-中新网拉萨5月28日电 题：西藏萨嘎达瓦：古老传统与现代暖意交融 作者 贡桑拉姆 贡确 藏历四月的拉萨，晨曦微露。
+朝“问”健康丨结直肠癌早筛早治是关键 专家教你科学守护肠道健康 今天(29日)是世界肠道健康日。
 
-全长近10公里的林廓转经道上，手持念珠、口诵经文的祈福信众已络绎不绝，步履沉静而坚定。
+肠道被誉为人体第二大脑，也是重要免疫器官。
 
-萨嘎达瓦传统宗教活动于5月17日藏历四月初一正式开启，为期一个月。
+结直肠癌发病形势不容乐观，依据国家卫健委相关筛查方案监测数据，2022年我国新发结直肠癌51.71万例，占全部恶性肿瘤新发病例10.7%，发病数量逐年攀升，现已成为发病率仅次于肺癌的第二大恶性肿瘤。
 
-这个为纪念释迦牟尼佛诞生、成佛、涅槃的月份，藏传佛教信众们通过转经、朝佛、素食、布施等方式，延续这一传统宗教活动。
+该病早期症状隐匿，仅会出现排便异常、便秘等表现，容易被忽视，待到便血症状出现时，大多已发展至晚期。
 
-“各位转经信众，上电梯时请注意安全，提起您的藏装再上电梯。
+北京友谊医院消化中心副主任医师 信亮亮：肠道肿瘤始于黏膜层病变，黏膜增生隆起就会形成肠息肉，其中腺瘤性息肉癌变风险最高。
 
-”在转经道沿线的一座人行天桥电梯口，清晰的藏语提示音循环播放，提醒着身着传统藏装的长者们。
+这类息肉若没能及时发现干预，会逐步发展为恶性肿瘤。
 
-自2011年起，拉萨陆续建成的人行天桥，不仅实现了人车分流，保障了交通安全，如今更在细节处体现着关怀。
+病变周期可达10至15年，在此期间及时干预，都能有效控制病情。
 
-加装的电梯、降低的台阶、放缓的坡道、加固的护栏，尤其是信众必经的千佛崖等路段，这些改造让民众出行更加平坦、便利、安全。
+专家表示，结直肠癌主要由息肉恶变、肠道炎症、遗传因素三类原因引发，多数病例可防可控，定期筛查能有效降低患病风险。
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 23:08 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 23:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 23:31 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 23:28 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 23:28 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 23:22 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 23:20 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 23:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 23:25 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 23:09 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 23:16 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 23:30 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 23:08 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 23:20 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 23:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 23:25 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 23:30 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 23:34 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 23:36 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 23:37 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 23:32 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 23:19 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 23:14 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 23:35 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 23:18 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 23:17 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 23:24 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 23:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 23:18 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:22 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/3577292.shtml)
-- 2026-06-29 23:13 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/104411414.shtml)
-- 2026-06-29 23:27 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/795821.shtml)
-- 2026-06-29 23:28 - [急先锋](http://www.blog.kurohicncr.top/Article/details/6071411080.shtml)
-- 2026-06-29 23:24 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/2195113954.shtml)
-- 2026-06-29 23:23 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/5308074210.shtml)
-- 2026-06-29 23:36 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/542091236.shtml)
-- 2026-06-29 23:14 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/953081706725.shtml)
-- 2026-06-29 23:25 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/40713.shtml)
-- 2026-06-29 23:13 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/08899693923.shtml)
-- 2026-06-29 23:28 - [一见倾心](http://www.share.kurohicncr.top/Article/details/190154.shtml)
-- 2026-06-29 23:28 - [世界杯](https://www.share.minike.top/Article/details/0783040086.shtml)
-- 2026-06-29 23:15 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/10330.shtml)
-- 2026-06-29 23:26 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/43340931.shtml)
-- 2026-06-29 23:31 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/42736.shtml)
+- 2026-06-29 23:33 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/4129404953.shtml)
+- 2026-06-29 23:40 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/542631.shtml)
+- 2026-06-29 23:19 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/828559537069.shtml)
+- 2026-06-29 23:14 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/2240392084.shtml)
+- 2026-06-29 23:27 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/741585345922.shtml)
+- 2026-06-29 23:32 - [天道](http://www.blog.minike.top/Article/details/052686.shtml)
+- 2026-06-29 23:32 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/990336066099.shtml)
+- 2026-06-29 23:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/53447264888.shtml)
+- 2026-06-29 23:18 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/93031443378.shtml)
+- 2026-06-29 23:36 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/93986782607.shtml)
+- 2026-06-29 23:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/92984.shtml)
+- 2026-06-29 23:37 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/5643391.shtml)
+- 2026-06-29 23:40 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/23030487.shtml)
+- 2026-06-29 23:35 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/229088322200.shtml)
+- 2026-06-29 23:36 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/255665872431.shtml)

@@ -1,47 +1,48 @@
-# 亚太资源拟折让约33.49%按“2供1”基准发行供股
+# 时习之丨“钢铁”见证 中塞友谊
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-亚太资源（01104）公布，公司建议按“2供1”基准，折让约33.49%按每股供股股份1.45港元的认购价，（i）透过发行约7.47亿股供股股份（假设已发行股份数目于记录日期或之前并无变动）筹集所得款项总额最多约10.83亿港元；或（ii）透过发行约8.14亿股供股股份（假设除根据尚未行使的认股权证获悉数行使而将予配发及发行的新股份外，已发行股份数目于记录日期或之前并无变动）筹
+5月25日晚，国家主席习近平在北京人民大会堂为塞尔维亚总统武契奇举行“友谊勋章”颁授仪式。“友谊勋章”是中华人民共和国对外最高荣誉勋章，这枚勋章背后是两国元首保持的密切往来和深厚友谊。
 
 ## 正文
 
-亚太资源（01104）公布，公司建议按“2供1”基准，折让约33.49%按每股供股股份1.45港元的认购价，（i）透过发行约7.47亿股供股股份（假设已发行股份数目于记录日期或之前并无变动）筹集所得款项总额最多约10.83亿港元；或（ii）透过发行约8.14亿股供股股份（假设除根据尚未行使的认股权证获悉数行使而将予配发及发行的新股份外，已发行股份数目于记录日期或之前并无变动）筹集所得款项总额最多约11.8亿港元。
+5月25日晚，国家主席习近平在北京人民大会堂为塞尔维亚总统武契奇举行“友谊勋章”颁授仪式。
 
-公司拟将供股所得款项净额用于（i）补充指定作TanamiGold股份认购事项的内部资源；（ii）偿还集团的未偿还银行借款；（iii）提升集团把握机遇投资于资源行业的能力；及（iv）为集团提供一般营运资金。
-
-责任编辑：卢昱君
+“友谊勋章”是中华人民共和国对外最高荣誉勋章，这枚勋章背后是两国元首保持的密切往来和深厚友谊。
 
 ## 相关推荐
 
-- 2026-06-29 23:24 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 23:17 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 23:33 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 23:27 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 23:25 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 23:31 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 23:28 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 23:34 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 23:24 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 23:15 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 23:32 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 23:40 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 23:38 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 23:37 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 23:12 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 23:35 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 23:19 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 23:41 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 23:13 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 23:16 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 23:40 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 23:37 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 23:36 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 23:23 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 23:35 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:15 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/04881642896.shtml)
-- 2026-06-29 23:19 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/85699.shtml)
-- 2026-06-29 23:26 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/1247947.shtml)
-- 2026-06-29 23:12 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/519604549980.shtml)
-- 2026-06-29 23:22 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/26908003.shtml)
-- 2026-06-29 23:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/86419512.shtml)
-- 2026-06-29 23:14 - [勇敢的心第二部](https://www.share.minike.top/Article/details/6933167716.shtml)
-- 2026-06-29 23:33 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.minike.top/Article/details/673870686.shtml)
-- 2026-06-29 23:27 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/868656280.shtml)
-- 2026-06-29 23:31 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.kurohicncr.top/Article/details/136896874.shtml)
-- 2026-06-29 23:24 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/6347717.shtml)
-- 2026-06-29 23:12 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/328087.shtml)
-- 2026-06-29 23:07 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/7185274994.shtml)
-- 2026-06-29 23:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/27542869.shtml)
-- 2026-06-29 23:08 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/3015991732.shtml)
+- 2026-06-29 23:15 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/914462175.shtml)
+- 2026-06-29 23:29 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/8513266.shtml)
+- 2026-06-29 23:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/1002403.shtml)
+- 2026-06-29 23:13 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/79390.shtml)
+- 2026-06-29 23:29 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/3382501.shtml)
+- 2026-06-29 23:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/21168688779.shtml)
+- 2026-06-29 23:29 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/83430.shtml)
+- 2026-06-29 23:41 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/90293.shtml)
+- 2026-06-29 23:16 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/756513.shtml)
+- 2026-06-29 23:19 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.kurohicncr.top/Article/details/143463601.shtml)
+- 2026-06-29 23:34 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/88652560386.shtml)
+- 2026-06-29 23:13 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/274162.shtml)
+- 2026-06-29 23:28 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/63449711164.shtml)
+- 2026-06-29 23:18 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/4280439.shtml)
+- 2026-06-29 23:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/3264720.shtml)

@@ -1,58 +1,54 @@
-# 日经指数下跌0.6% 受科技和金属股拖累
+# 国防部：美方应慎之又慎处理台湾问题
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-随着近期美伊和平协议前景的不确定性持续存在，日本股市走低。日经指数下跌0.6%，至64594.99点。科技股和金属股领跌。软银集团下跌4.7%，Mitsui Kinzoku下跌5.6%。美国总统特朗普表示，如果伊朗认为他会软化立场以避免与德黑兰陷入长期僵局，那就是打错算盘了。投资者正密切关注中东局势的发展。责任编辑：王永生
+中新网5月28日电 5月28日下午，国防部举行例行记者会，国防部新闻发言人蒋斌大校答记者问。 记者：美国代理海军部长日前公开表示，美国正暂缓一项价值140亿美元的对台军售案，引发岛内舆论关注。美国会众议院近日公布2027财年《国防授权法案》部分内容，其中“台湾安全合作倡议”涉及10亿美元，用于协助提升台“防卫能力”。请问发言人对此有何评论？ 蒋斌：中方坚决反对美国向中国台湾地区
 
 ## 正文
 
-随着近期美伊和平协议前景的不确定性持续存在，日本股市走低。
+中新网5月28日电 5月28日下午，国防部举行例行记者会，国防部新闻发言人蒋斌大校答记者问。
 
-日经指数下跌0.6%，至64594.99点。
+记者：美国代理海军部长日前公开表示，美国正暂缓一项价值140亿美元的对台军售案，引发岛内舆论关注。
 
-科技股和金属股领跌。
+美国会众议院近日公布2027财年《国防授权法案》部分内容，其中“台湾安全合作倡议”涉及10亿美元，用于协助提升台“防卫能力”。
 
-软银集团下跌4.7%，Mitsui Kinzoku下跌5.6%。
+请问发言人对此有何评论？
 
-美国总统特朗普表示，如果伊朗认为他会软化立场以避免与德黑兰陷入长期僵局，那就是打错算盘了。
+蒋斌：中方坚决反对美国向中国台湾地区出售武器的立场是一贯、明确的。
 
-投资者正密切关注中东局势的发展。
-
-责任编辑：王永生
+美方应恪守一个中国原则和中美三个联合公报特别是“八·一七”公报规定，落实好中美元首会晤重要共识，兑现对中方所作承诺和表态，慎之又慎处理台湾问题，以实际行动维护中美两国两军关系稳定、健康、可持续发展。
 
 ## 相关推荐
 
-- 2026-06-29 23:19 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 23:33 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 23:27 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 23:14 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 23:06 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 23:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 23:28 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 23:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 23:27 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 23:12 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 23:16 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 23:15 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 23:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 23:30 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 23:26 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 23:23 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 23:25 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 23:18 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 23:14 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 23:32 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 23:38 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 23:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 23:22 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 23:29 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 23:39 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 23:21 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:08 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/5398917.shtml)
-- 2026-06-29 23:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/5228819.shtml)
-- 2026-06-29 23:32 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/738782.shtml)
-- 2026-06-29 23:33 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/246762653053.shtml)
-- 2026-06-29 23:24 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/303984.shtml)
-- 2026-06-29 23:22 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/84524.shtml)
-- 2026-06-29 23:28 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/896454531.shtml)
-- 2026-06-29 23:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/79253033.shtml)
-- 2026-06-29 23:35 - [张凌赫 客串](https://www.share.minike.top/Article/details/834881.shtml)
-- 2026-06-29 23:07 - [恋与深空 日服](https://www.blog.minike.top/Article/details/10390.shtml)
-- 2026-06-29 23:06 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/636894407.shtml)
-- 2026-06-29 23:23 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/4407174.shtml)
-- 2026-06-29 23:18 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/92223701.shtml)
-- 2026-06-29 23:30 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/7920531.shtml)
-- 2026-06-29 23:21 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/601669911.shtml)
+- 2026-06-29 23:21 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/89681.shtml)
+- 2026-06-29 23:35 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/161388131843.shtml)
+- 2026-06-29 23:41 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.kurohicncr.top/Article/details/2485633405.shtml)
+- 2026-06-29 23:31 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/714455250595.shtml)
+- 2026-06-29 23:32 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/22774040384.shtml)
+- 2026-06-29 23:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/1072538044.shtml)
+- 2026-06-29 23:17 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/4541310624.shtml)
+- 2026-06-29 23:35 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/666536.shtml)
+- 2026-06-29 23:23 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/668850041.shtml)
+- 2026-06-29 23:18 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/98561532.shtml)
+- 2026-06-29 23:26 - [恋与深空 日服](http://www.share.minike.top/Article/details/18943958.shtml)
+- 2026-06-29 23:23 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/99101498.shtml)
+- 2026-06-29 23:22 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/01188.shtml)
+- 2026-06-29 23:34 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/216896.shtml)
+- 2026-06-29 23:26 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/9753420.shtml)

@@ -1,55 +1,57 @@
-# 浙江嘉兴南湖机场首条国际货运航线正式开通
+# Humana完成8300万美元佛罗里达基础设施投资，深化协同患者护理模式
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新网嘉兴5月28日电(胡丰盛 傅飞扬)5月28日上午，一架装载着电子电器、药品和纺织服装圆通航空“嘉兴号”(B767-300F)全货机从浙江嘉兴南湖机场缓缓滑出，飞往孟加拉国达卡机场，标志着南湖机场首条国际货运航线正式开通。 除当日已开通的嘉兴⇌达卡航线外，南湖机场年内还将陆续开通19条国际货运航线，届时航线总数将达20条，其中亚洲9条、欧洲6条、美洲5条，初步构建起“辐射亚
+Humana公司近日宣布，其位于佛罗里达州奥兰多的最新CenterWell Pharmacy邮件订单配送中心已全面投入运营。这项耗资8300万美元、面积达16.2万平方英尺的设施旨在加强佛罗里达州乃至全美的处方药配送能力，是实现更简单、更协同护理体验的重要一环。 增强可靠、直接的药物获取渠道 该奥兰多配送中心日处理处方量最高可达64，000张，并雇用了超过165名员工，包括药剂
 
 ## 正文
 
-中新网嘉兴5月28日电(胡丰盛 傅飞扬)5月28日上午，一架装载着电子电器、药品和纺织服装圆通航空“嘉兴号”(B767-300F)全货机从浙江嘉兴南湖机场缓缓滑出，飞往孟加拉国达卡机场，标志着南湖机场首条国际货运航线正式开通。
+Humana公司近日宣布，其位于佛罗里达州奥兰多的最新CenterWell Pharmacy邮件订单配送中心已全面投入运营。
 
-除当日已开通的嘉兴⇌达卡航线外，南湖机场年内还将陆续开通19条国际货运航线，届时航线总数将达20条，其中亚洲9条、欧洲6条、美洲5条，初步构建起“辐射亚洲、通达欧美”的国际货运航线网络。
+这项耗资8300万美元、面积达16.2万平方英尺的设施旨在加强佛罗里达州乃至全美的处方药配送能力，是实现更简单、更协同护理体验的重要一环。
 
-作为长三角地区首个专业性航空货运枢纽，南湖机场可以有效承接长三角航空货运溢出资源，与周边大型机场形成“客货协同、错位互补”的发展格局，提升区域全球资源配置能力，有力支撑外贸发展和高水平对外开放。
+增强可靠、直接的药物获取渠道 该奥兰多配送中心日处理处方量最高可达64，000张，并雇用了超过165名员工，包括药剂师、药学技术人员、工程师和软件专家，且计划继续扩招。
 
-“自2025年12月26日正式投运以来，南湖机场在持续优化客运航线网络的同时，高效推进口岸开放、货运设施建设、航司引进、航线布局等各项货运筹备工作。
+Humana旗下CenterWell Pharmacy总裁Bethanie Stein博士强调了公司对患者护理和增长的承诺，她表示：“随着需求持续增长，我们正通过像奥兰多这样现代化、高效的药房来扩大产能，确保更多人能够安全、可靠地获得药物，从而支持长期依从性和健康。
 
-”嘉兴航空枢纽办相关负责人表示，接下来，当地将不断完善航空物流基础设施、优化口岸通关服务、推进综保区扩区、加快临空产业集聚，推动航空物流与先进制造、跨境贸易、现代服务业深度融合。
+” 该设施配备了行业领先的设备，旨在简化专业和传统药物的安全处理与配送流程。
 
-(完)
+目前，CenterWell Pharmacy是全美最大的综合居家配送、专业、临终关怀及零售药房服务商之一，其全国范围内的配药准确率高达99.9992%，并因其客户满意度和对患者护理的承诺获得了多项认证和奖项。
+
+整合佛罗里达州患者护理 此项基础设施投资是Humana通过其CenterWell品牌在佛罗里达州持续扩张并深化协同护理战略的一部分。
+
+该公司不仅是该州领先的Medicare Advantage供应商（拥有超过110万会员），还通过Humana Healthy Horizons管理着超过54万佛罗里达人的Medicaid福利，并作为TRICARE供应商为全州超过77万名军人、退休人员及其家属提供服务。
 
 ## 相关推荐
 
-- 2026-06-29 23:22 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 23:33 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 23:07 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 23:25 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 23:08 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 23:33 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 23:13 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 23:12 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 23:26 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 23:34 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 23:08 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 23:19 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 23:07 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 23:22 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 23:16 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 23:35 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 23:37 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 23:39 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 23:13 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 23:20 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 23:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 23:34 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 23:23 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 23:40 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:27 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/26744120.shtml)
-- 2026-06-29 23:28 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/21973477386.shtml)
-- 2026-06-29 23:13 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/65029540884.shtml)
-- 2026-06-29 23:07 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/7628956662.shtml)
-- 2026-06-29 23:13 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/51208300472.shtml)
-- 2026-06-29 23:28 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/575720713142.shtml)
-- 2026-06-29 23:20 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/436943547.shtml)
-- 2026-06-29 23:12 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/98106.shtml)
-- 2026-06-29 23:23 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/717574736.shtml)
-- 2026-06-29 23:24 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/74628163838.shtml)
-- 2026-06-29 23:22 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/809191.shtml)
-- 2026-06-29 23:12 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/906653877935.shtml)
-- 2026-06-29 23:09 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/2282908354.shtml)
-- 2026-06-29 23:20 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/998579231.shtml)
-- 2026-06-29 23:24 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/20675130.shtml)
+- 2026-06-29 23:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/1950182342.shtml)
+- 2026-06-29 23:26 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/937460152696.shtml)
+- 2026-06-29 23:32 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/15789.shtml)
+- 2026-06-29 23:27 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/172874304392.shtml)
+- 2026-06-29 23:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/218102700.shtml)
+- 2026-06-29 23:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/99432.shtml)
+- 2026-06-29 23:40 - [东方风云榜](http://www.blog.minike.top/Article/details/298113.shtml)
+- 2026-06-29 23:36 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/523495746613.shtml)
+- 2026-06-29 23:18 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/98782301740.shtml)
+- 2026-06-29 23:38 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/173794.shtml)
+- 2026-06-29 23:27 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/15093.shtml)
+- 2026-06-29 23:15 - [沙丘](http://www.blog.kurohicncr.top/Article/details/023803530.shtml)
+- 2026-06-29 23:35 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/79067.shtml)
+- 2026-06-29 23:20 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/07047.shtml)
+- 2026-06-29 23:12 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/792527328085.shtml)

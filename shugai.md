@@ -1,61 +1,59 @@
-# 广东金融气象探索“气象+保险+信贷”新路径
+# 新疆经济看点丨新疆向西开放空中通道持续扩容
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新网茂名5月28日电 题：广东金融气象探索“气象+保险+信贷”新路径 中新网记者 王坚 五月的广东茂名，荔红飘香。一场以“气象赋能高质量发展”为主题的研讨会近日在这里召开。来自全国气象、保险、金融监管、农业农村领域的专家齐聚一堂，共话气象与金融的深度融合。 作为金融气象融合探索的前沿阵地，近年来，广东省气象部门尝试把气象数据变成风险管理和信贷评估的依据，让金融工具更好地分担气
+天山网-新疆日报记者 马伊宁 风起天山云海，航架欧亚通途。凭借丝绸之路经济带核心区得天独厚的区位禀赋，新疆航空对外开放蹄疾步稳，不断注入全新发展动能。 6月1日起，中国南方航空将开通广州—乌鲁木齐—法兰克福航线，这是中国西北地区通往德国的首条直飞航线。今年以来，乌鲁木齐天山国际机场、喀什徕宁国际机场、伊犁伊宁国际机场多点发力，集中新开、加密、复航多条中西亚直飞客运航线，新疆空中
 
 ## 正文
 
-中新网茂名5月28日电 题：广东金融气象探索“气象+保险+信贷”新路径 中新网记者 王坚 五月的广东茂名，荔红飘香。
+天山网-新疆日报记者 马伊宁 风起天山云海，航架欧亚通途。
 
-一场以“气象赋能高质量发展”为主题的研讨会近日在这里召开。
+凭借丝绸之路经济带核心区得天独厚的区位禀赋，新疆航空对外开放蹄疾步稳，不断注入全新发展动能。
 
-来自全国气象、保险、金融监管、农业农村领域的专家齐聚一堂，共话气象与金融的深度融合。
+6月1日起，中国南方航空将开通广州—乌鲁木齐—法兰克福航线，这是中国西北地区通往德国的首条直飞航线。
 
-作为金融气象融合探索的前沿阵地，近年来，广东省气象部门尝试把气象数据变成风险管理和信贷评估的依据，让金融工具更好地分担气象灾害带来的冲击。
+今年以来，乌鲁木齐天山国际机场、喀什徕宁国际机场、伊犁伊宁国际机场多点发力，集中新开、加密、复航多条中西亚直飞客运航线，新疆空中互联互通网络越织越密，向西开放空中通道持续扩容。
 
-从巨灾保险到指数保险，从风险减量到天气衍生品，一条覆盖气象、保险、银行、证券的服务链条已初具“雏形”。
+4月28日，成都航空搭载C909机型，正式开通喀什至奥什直飞航线。
 
-而这场别开生面的研讨会选在茂名，正是因其在岭南气候和先行探索方面的代表意义。
+这既是成都航空首条通往吉尔吉斯斯坦的航线，也是C909机型执飞的第二条中亚定期航线。
 
-其中，破解荔枝产业“大小年”困局，成为这场探索的重要突破口。
+以往喀什与奥什两地往来，多依赖公路客运或中转航班，路途辗转耗时漫长。
 
-茂名作为广东农业第一大市，荔枝产量约占全国四分之一、全球五分之一。
+直飞航线开通后，跨境通行迈入“小时级”便捷时代。
 
 ## 相关推荐
 
-- 2026-06-29 23:34 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 23:32 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 23:30 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 23:23 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 23:30 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 23:09 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 23:11 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 23:34 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 23:15 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 23:19 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 23:19 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 23:26 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 23:35 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 23:33 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 23:35 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 23:33 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 23:14 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 23:29 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 23:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 23:40 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 23:29 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 23:15 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 23:25 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 23:18 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 23:21 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 23:27 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 23:36 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 23:28 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/700930.shtml)
-- 2026-06-29 23:21 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/01096970.shtml)
-- 2026-06-29 23:13 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/407136107113.shtml)
-- 2026-06-29 23:22 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/96616431049.shtml)
-- 2026-06-29 23:16 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/7585611500.shtml)
-- 2026-06-29 23:08 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/971296032199.shtml)
-- 2026-06-29 23:22 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/09824092.shtml)
-- 2026-06-29 23:22 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/47579.shtml)
-- 2026-06-29 23:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/8762783948.shtml)
-- 2026-06-29 23:24 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/94390028006.shtml)
-- 2026-06-29 23:15 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/0239014262.shtml)
-- 2026-06-29 23:17 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/09351187.shtml)
-- 2026-06-29 23:23 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/08809882363.shtml)
-- 2026-06-29 23:13 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/454556807.shtml)
-- 2026-06-29 23:28 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/253718939182.shtml)
+- 2026-06-29 23:38 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/076833264.shtml)
+- 2026-06-29 23:15 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/12237560.shtml)
+- 2026-06-29 23:28 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/729000481.shtml)
+- 2026-06-29 23:21 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/34904939.shtml)
+- 2026-06-29 23:19 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/596061165431.shtml)
+- 2026-06-29 23:38 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/2033284.shtml)
+- 2026-06-29 23:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/070999.shtml)
+- 2026-06-29 23:27 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/08160244145.shtml)
+- 2026-06-29 23:37 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/738216.shtml)
+- 2026-06-29 23:14 - [肝不好身体这几处会“说话”](http://www.blog.kurohicncr.top/Article/details/1177352.shtml)
+- 2026-06-29 23:30 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/018221.shtml)
+- 2026-06-29 23:15 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/5065038.shtml)
+- 2026-06-29 23:41 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/145464.shtml)
+- 2026-06-29 23:39 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/972545.shtml)
+- 2026-06-29 23:16 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/208990055942.shtml)

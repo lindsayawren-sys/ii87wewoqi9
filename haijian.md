@@ -1,57 +1,59 @@
-# 老馆长回忆四字侨批“钱二我在”令人泪目 两块钱是全家救命钱
+# 日本考虑发行过渡债券为政府投资计划筹集资金
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月29日 09:34 来源：中国新闻网 近日，电影《给阿嬷的情书》引发社会热议。广东汕头侨批文物馆名誉馆长林庆熙曾表示，“潮汕话以‘批’来称为‘信’，有的批写四个字的，‘钱二我在’，寄给你两块钱，我还健在。尽管只是两块钱，但是对于家庭来讲，这可能是救命钱”。华侨后人谢龙波表示，“我祖父带了一千斤尿素化肥，捐给了我们这里的生产队，相当于是两千块钱人民币，在
+据报道，日本计划发行“过渡债券”，为政府旨在促进增长和经济安全领域投资的旗舰项目提供资金。 过渡债券用于满足临时资金需求，并附有偿还资金的具体担保。 据报道，执政的自民党将于周四向政府提交一份提案，其中将包含发行过渡性债券的方案。 消息人士称，日本政府将考虑把发行过渡性债券的方案纳入其将于7月公布的中期财政规划中。 日本首相高市早苗列出了17个旨在扩大国内投资的战略领域，这将需
 
 ## 正文
 
-发布时间：2026年05月29日 09:34 来源：中国新闻网 近日，电影《给阿嬷的情书》引发社会热议。
+据报道，日本计划发行“过渡债券”，为政府旨在促进增长和经济安全领域投资的旗舰项目提供资金。
 
-广东汕头侨批文物馆名誉馆长林庆熙曾表示，“潮汕话以‘批’来称为‘信’，有的批写四个字的，‘钱二我在’，寄给你两块钱，我还健在。
+过渡债券用于满足临时资金需求，并附有偿还资金的具体担保。
 
-尽管只是两块钱，但是对于家庭来讲，这可能是救命钱”。
+据报道，执政的自民党将于周四向政府提交一份提案，其中将包含发行过渡性债券的方案。
 
-华侨后人谢龙波表示，“我祖父带了一千斤尿素化肥，捐给了我们这里的生产队，相当于是两千块钱人民币，在当时来说是相当于一笔巨款，华侨是一代帮一代”。
+消息人士称，日本政府将考虑把发行过渡性债券的方案纳入其将于7月公布的中期财政规划中。
 
-侨批派送员许自助表示，“(侨批)大部分(捐建)学校、电厂、水利、公路，听说祖国建设发展了，(华侨)他就很高兴了”。
+日本首相高市早苗列出了17个旨在扩大国内投资的战略领域，这将需要政府数年的持续投入。
 
-2020年10月13日习近平总书记在广东省汕头市考察时表示，“中国的改革开放、中国的发展建设跟我们有这么一大批心系桑梓、心系祖国的华侨是分不开的”。
+关键在于如何为这些项目筹集资金，因为日本巨额的公共债务以及高市早苗的扩张性财政政策已经令市场对该国日益恶化的财政状况感到不安。
 
-(王庆然 吴晟炜 何俊杰 柯宁 制作 王雪茵） 责任编辑：【周驰】
+由于过渡性债券是为临时融资而发行的，因此不会被纳入政府计算日本财政指标（例如债务占国内生产总值比率）的考量范围。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 23:25 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 23:31 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 23:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 23:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 23:35 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 23:09 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 23:32 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 23:26 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 23:12 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 23:18 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 23:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 23:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 23:29 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 23:14 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 23:20 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 23:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 23:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 23:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 23:36 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 23:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 23:25 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 23:12 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 23:28 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 23:13 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 23:36 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:33 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/57178585215.shtml)
-- 2026-06-29 23:14 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/132635972391.shtml)
-- 2026-06-29 23:14 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/24929368.shtml)
-- 2026-06-29 23:28 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/294236227.shtml)
-- 2026-06-29 23:18 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/41969.shtml)
-- 2026-06-29 23:25 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/33060454.shtml)
-- 2026-06-29 23:11 - [东方风云榜](http://www.share.minike.top/Article/details/26516581803.shtml)
-- 2026-06-29 23:12 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/4682621613.shtml)
-- 2026-06-29 23:16 - [月亮](http://www.share.minike.top/Article/details/3990747169.shtml)
-- 2026-06-29 23:14 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/91651017146.shtml)
-- 2026-06-29 23:23 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/65773017135.shtml)
-- 2026-06-29 23:24 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/7715491.shtml)
-- 2026-06-29 23:13 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/7788388810.shtml)
-- 2026-06-29 23:08 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/55811155.shtml)
-- 2026-06-29 23:14 - [小娘惹](http://www.blog.minike.top/Article/details/91127.shtml)
+- 2026-06-29 23:28 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/135455263731.shtml)
+- 2026-06-29 23:27 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/68339727410.shtml)
+- 2026-06-29 23:36 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/6510585209.shtml)
+- 2026-06-29 23:36 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/469419266107.shtml)
+- 2026-06-29 23:38 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/9492314995.shtml)
+- 2026-06-29 23:34 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/16659.shtml)
+- 2026-06-29 23:33 - [周生如故](https://www.share.minike.top/Article/details/25160332259.shtml)
+- 2026-06-29 23:21 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/061341635.shtml)
+- 2026-06-29 23:41 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/206783035252.shtml)
+- 2026-06-29 23:23 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/09529086183.shtml)
+- 2026-06-29 23:29 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/781893638600.shtml)
+- 2026-06-29 23:34 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/53335.shtml)
+- 2026-06-29 23:31 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/59693896.shtml)
+- 2026-06-29 23:15 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/83477715264.shtml)
+- 2026-06-29 23:32 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/55045.shtml)

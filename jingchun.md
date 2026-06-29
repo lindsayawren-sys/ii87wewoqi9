@@ -1,47 +1,58 @@
-# 日韩股市集体高开 韩股开盘上涨2.4%
+# 国防部：“新型军国主义”大有成为东亚“祸乱”之势
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-专题：弃牛熊看K型 A股新杠铃结构勾勒配置方向 日经指数开盘上涨0.7%，报65133.97点，电子股领涨。韩国综合股价指数（KOSPI）开盘上涨2.4%，至8384.31点。责任编辑：王永生
+中新社北京5月28日电 (记者 郭超凯)中国国防部28日举行例行记者会。针对美日近期在西南诸岛开展联合军演，国防部新闻发言人蒋斌在会上表示，日本右翼势力在军事安全领域不断危险冒进、试探挑衅，“新型军国主义”大有成为东亚“祸乱”之势。会上有记者提问，据报道，美日近期在西南诸岛开展联合军演，距台湾仅110公里并设联合指挥中心。日防卫大臣直言此举意在强化区域威慑与应急作战能力。请问对
 
 ## 正文
 
-专题：弃牛熊看K型 A股新杠铃结构勾勒配置方向 日经指数开盘上涨0.7%，报65133.97点，电子股领涨。
+中新社北京5月28日电 (记者 郭超凯)中国国防部28日举行例行记者会。
 
-韩国综合股价指数（KOSPI）开盘上涨2.4%，至8384.31点。
+针对美日近期在西南诸岛开展联合军演，国防部新闻发言人蒋斌在会上表示，日本右翼势力在军事安全领域不断危险冒进、试探挑衅，“新型军国主义”大有成为东亚“祸乱”之势。
 
-责任编辑：王永生
+会上有记者提问，据报道，美日近期在西南诸岛开展联合军演，距台湾仅110公里并设联合指挥中心。
+
+日防卫大臣直言此举意在强化区域威慑与应急作战能力。
+
+请问对此有何评论？
+
+蒋斌表示，中方一贯主张，有关国家间军事合作不应针对第三方或损害第三方利益，不应破坏地区和平稳定。
+
+日本右翼势力在军事安全领域不断危险冒进、试探挑衅，“新型军国主义”大有成为东亚“祸乱”之势。
+
+所有爱好和平的人们都不应放任日本倒行逆施，让其破坏和平、为祸世界。
 
 ## 相关推荐
 
-- 2026-06-29 23:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 23:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 23:14 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 23:30 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 23:20 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 23:34 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 23:06 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 23:06 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 23:17 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 23:31 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 23:29 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 23:25 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 23:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 23:41 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 23:22 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 23:29 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 23:19 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 23:30 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 23:36 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 23:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 23:20 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 23:28 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 23:14 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:30 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/8080087.shtml)
-- 2026-06-29 23:28 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/11255536137.shtml)
-- 2026-06-29 23:15 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/8139418771.shtml)
-- 2026-06-29 23:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/6772202.shtml)
-- 2026-06-29 23:14 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/96961035698.shtml)
-- 2026-06-29 23:24 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/41252352.shtml)
-- 2026-06-29 23:20 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/64548614963.shtml)
-- 2026-06-29 23:33 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/48485293658.shtml)
-- 2026-06-29 23:32 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/162305.shtml)
-- 2026-06-29 23:23 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/56825.shtml)
-- 2026-06-29 23:17 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/64415175321.shtml)
-- 2026-06-29 23:08 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/0775304.shtml)
-- 2026-06-29 23:16 - [恋与深空致歉](http://www.share.minike.top/Article/details/095827.shtml)
-- 2026-06-29 23:25 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/56597.shtml)
-- 2026-06-29 23:20 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/758901636772.shtml)
+- 2026-06-29 23:14 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/14076370787.shtml)
+- 2026-06-29 23:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/10133384661.shtml)
+- 2026-06-29 23:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/210835968.shtml)
+- 2026-06-29 23:13 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/716832.shtml)
+- 2026-06-29 23:33 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/555046081151.shtml)
+- 2026-06-29 23:26 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/051016754.shtml)
+- 2026-06-29 23:13 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/2811155.shtml)
+- 2026-06-29 23:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/578441.shtml)
+- 2026-06-29 23:21 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/910760712.shtml)
+- 2026-06-29 23:28 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/180202980142.shtml)
+- 2026-06-29 23:22 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/657526956803.shtml)
+- 2026-06-29 23:25 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/794747479881.shtml)
+- 2026-06-29 23:41 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/45945121007.shtml)
+- 2026-06-29 23:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/78141.shtml)
+- 2026-06-29 23:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/5752833408.shtml)

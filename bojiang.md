@@ -1,58 +1,58 @@
-# 你怎么看“踩点”到达？预防迟到有哪些“小妙招”？
+# 富国银行CEO：预计投资银行和交易业务将实现15%左右的增长
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-你怎么看“踩点”到达？58.4%受访者认为有风险易迟到 超七成受访者认为这种习惯让人精神紧张 因为等电梯时间长迟到，遇到堵车错过高铁……你是否曾因为没有预留好充足的时间，导致出现“踩点”甚至迟到的情况？近日，中国青年报社社会调查中心联合问卷网(wenjuan.com)进行的一项1333人参与的调查显示，58.4%的受访者认为“踩点”有风险，容易因突发状况迟到，73.1%的受访者
+富国银行CEO沙夫（Charlie Scharf）周三表示，预计第二季度投资银行和交易业务收入将增长15%左右。 在伯恩斯坦会议上发言时，沙夫表示，该行财富管理业务的收入增长也正朝着低两位数增长的目标稳步推进。 第一季度，富国银行投资银行部门 收入增长12.7%， 市场业务收入增长19%。 沙夫表示，投资银行和市场业务领域的客户活动依然强劲，同时该行通过增加资产负债表规模，继续
 
 ## 正文
 
-你怎么看“踩点”到达？
+富国银行CEO沙夫（Charlie Scharf）周三表示，预计第二季度投资银行和交易业务收入将增长15%左右。
 
-58.4%受访者认为有风险易迟到 超七成受访者认为这种习惯让人精神紧张 因为等电梯时间长迟到，遇到堵车错过高铁……你是否曾因为没有预留好充足的时间，导致出现“踩点”甚至迟到的情况？
+在伯恩斯坦会议上发言时，沙夫表示，该行财富管理业务的收入增长也正朝着低两位数增长的目标稳步推进。
 
-近日，中国青年报社社会调查中心联合问卷网(wenjuan.com)进行的一项1333人参与的调查显示，58.4%的受访者认为“踩点”有风险，容易因突发状况迟到，73.1%的受访者认为“踩点”习惯会让人长期处于精神紧张的状态。
+第一季度，富国银行投资银行部门 收入增长12.7%， 市场业务收入增长19%。
 
-超半数受访者认为“踩点”有风险来自天津的05后陆潞感觉，她自己和身边很多人都有“踩点”行为。
+沙夫表示，投资银行和市场业务领域的客户活动依然强劲，同时该行通过增加资产负债表规模，继续看到深化客户关系的机遇。
 
-今年“五一”假期期间，她想坐高铁去其他城市看音乐节，并在前一天推算了到达高铁站所需的时间，预计提前10分钟左右到达高铁站。
+此前，监管机构已取消了富国银行的资产上限，使该行在经历多年限制后，得以在存款和贷款业务方面更积极地扩张。
 
-然而第二天，她比自己的计划晚了4分钟出门，在路上发现时间有点来不及了，“我又冲下来打车，最后在还剩两三分钟的时候成功进站了”。
+沙夫还表示，富国银行预计将在“几乎不增加或完全不增加成本”的情况下实现增长，因为该行正寻求在全公司范围内进一步提高运营效率。
 
-在北京工作的00后李林觉得“踩点”还是有风险的，“除非迫不得已，我一般都不会‘踩点’，‘踩点’一旦失败就是迟到”。
+富国银行的展望紧随竞争对手的乐观评论之后。
 
-她觉得按照约定好的时间准时到达，是对对方的一种尊重，“如果是和熟人见面，我们一般会约定一个时间区间，比如9点30分至9点40分，这样会放松一些”。
+摩根大通首席执行官戴蒙在同一场会议上表示，该行第二季度的投资银行业务费用可能增长10% 或更多。
 
 ## 相关推荐
 
-- 2026-06-29 23:19 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 23:19 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 23:11 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 23:29 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 23:09 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 23:23 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 23:32 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 23:13 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 23:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 23:22 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 23:33 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 23:22 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 23:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 23:26 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 23:38 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 23:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 23:15 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 23:14 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 23:18 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 23:13 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 23:22 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 23:32 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 23:33 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 23:32 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:23 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/451936.shtml)
-- 2026-06-29 23:19 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/306990177.shtml)
-- 2026-06-29 23:32 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/59647.shtml)
-- 2026-06-29 23:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/9823552863.shtml)
-- 2026-06-29 23:06 - [锐评T1零封KC](https://www.share.minike.top/Article/details/0627421.shtml)
-- 2026-06-29 23:25 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/67337.shtml)
-- 2026-06-29 23:11 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/601986.shtml)
-- 2026-06-29 23:24 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/916511786.shtml)
-- 2026-06-29 23:18 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/99321411518.shtml)
-- 2026-06-29 23:33 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/07021919388.shtml)
-- 2026-06-29 23:19 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/80666445.shtml)
-- 2026-06-29 23:23 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/292396.shtml)
-- 2026-06-29 23:28 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/464000275978.shtml)
-- 2026-06-29 23:23 - [电影后室值得看吗](http://www.share.minike.top/Article/details/85153952303.shtml)
-- 2026-06-29 23:18 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/742256.shtml)
+- 2026-06-29 23:26 - [起风了](https://www.share.minike.top/Article/details/86533908601.shtml)
+- 2026-06-29 23:18 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/184336560.shtml)
+- 2026-06-29 23:37 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/9059997690.shtml)
+- 2026-06-29 23:13 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/8059409.shtml)
+- 2026-06-29 23:40 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/344716.shtml)
+- 2026-06-29 23:34 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/608124601282.shtml)
+- 2026-06-29 23:29 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/358420.shtml)
+- 2026-06-29 23:38 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/058972296.shtml)
+- 2026-06-29 23:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/564742690967.shtml)
+- 2026-06-29 23:40 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/298936.shtml)
+- 2026-06-29 23:12 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/0546958.shtml)
+- 2026-06-29 23:36 - [东方风云榜](http://www.share.minike.top/Article/details/732587004.shtml)
+- 2026-06-29 23:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/9056082371.shtml)
+- 2026-06-29 23:34 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/14610939567.shtml)
+- 2026-06-29 23:29 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/47207175228.shtml)

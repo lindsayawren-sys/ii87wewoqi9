@@ -1,61 +1,56 @@
-# 唱词引用《诗经》篇章 河北梆子大型新编历史剧《胡服骑射》将亮相石家庄
+# 美联储理事库克：若通胀未能及时回落，准备加息
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新网石家庄5月28日电 (邢璐 苗孛)由河北省河北梆子剧院创排，聚焦战国时期赵武灵王推行“胡服骑射”军事与文化改革壮阔历程的大型新编历史剧《胡服骑射》，将于5月29日晚在石家庄亮相。 据河北梆子剧院院长赵涛介绍，《胡服骑射》最初名为《赵武灵王》，于今年1月底在石家庄首演。演出后不少观众在社交媒体平台分享观剧感受，称赞其“文武戏俱佳”、“有血性，有温度”，并期盼该剧能持续打磨，
+美联储理事莉莎·库克（Lisa Cook）表示，如果通胀未能及时回落，她准备加息。 库克周三在斯坦福大学表示，目前正确的做法是保持利率稳定，但风险仍然偏向于通胀走高。 根据一份公布的演讲稿，她表示：“在通胀率高于目标水平五年后，我特别关注高通胀固化为价格和薪资制定行为的风险。” 关于劳动力市场，库克表示，她预计在无需降息的情况下，就业市场将保持稳定，但如果就业市场恶化，她也准备
 
 ## 正文
 
-中新网石家庄5月28日电 (邢璐 苗孛)由河北省河北梆子剧院创排，聚焦战国时期赵武灵王推行“胡服骑射”军事与文化改革壮阔历程的大型新编历史剧《胡服骑射》，将于5月29日晚在石家庄亮相。
+美联储理事莉莎·库克（Lisa Cook）表示，如果通胀未能及时回落，她准备加息。
 
-据河北梆子剧院院长赵涛介绍，《胡服骑射》最初名为《赵武灵王》，于今年1月底在石家庄首演。
+库克周三在斯坦福大学表示，目前正确的做法是保持利率稳定，但风险仍然偏向于通胀走高。
 
-演出后不少观众在社交媒体平台分享观剧感受，称赞其“文武戏俱佳”、“有血性，有温度”，并期盼该剧能持续打磨，开展巡演。
+根据一份公布的演讲稿，她表示：“在通胀率高于目标水平五年后，我特别关注高通胀固化为价格和薪资制定行为的风险。
 
-此后，主创团队结合专家和观众意见，认为赵武灵王故事的核心正是通过胡服骑射革故鼎新、富国强兵。
+” 关于劳动力市场，库克表示，她预计在无需降息的情况下，就业市场将保持稳定，但如果就业市场恶化，她也准备向下调整政策立场。
 
-为了更贴近故事本身，最终将剧名调整为《胡服骑射》。
+库克说，虽然通胀受到供应驱动型冲击（比如与伊朗的战争）的推高，但即使是暂时和短暂的冲击也可能影响中期通胀。
 
-该剧导演翟建蕊表示，主创团队在尊重史实基础上，着力挖掘赵武灵王改革精神与时代价值，并在艺术呈现上进行多重探索。
+此外，她表示，人工智能（AI）带来的投资需求增加，可能会给价格带来又一重冲击。
 
-“比如道白采用半文言文，唱词引用《诗经》篇章，提升文学性。
+库克对AI提升生产力的前景持乐观态度，这反过来将支持新的就业岗位，并给通胀带来下行压力。
 
-”翟建蕊说，剧中孟姚登场时所唱“泄泄其羽雄雉飞”，化自《诗经·邶风·雄雉》中的“雄雉于飞，泄泄其羽”；“上下齐音向云追”则取自同篇的“雄雉于飞，上下其音”。
+她说：“与AI相关的失业可能会先于就业增长而出现。
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 23:33 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 23:09 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 23:26 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 23:26 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 23:24 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 23:29 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 23:22 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 23:33 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 23:17 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 23:11 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 23:24 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 23:08 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 23:23 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 23:33 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 23:34 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 23:41 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 23:19 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 23:34 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 23:29 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 23:28 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 23:35 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 23:27 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 23:12 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 23:23 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:23 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/8171049645.shtml)
-- 2026-06-29 23:31 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/424311018809.shtml)
-- 2026-06-29 23:17 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/93253104.shtml)
-- 2026-06-29 23:26 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/4617978917.shtml)
-- 2026-06-29 23:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/35983644377.shtml)
-- 2026-06-29 23:26 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/9451255566.shtml)
-- 2026-06-29 23:28 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/135232.shtml)
-- 2026-06-29 23:06 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/46887912445.shtml)
-- 2026-06-29 23:11 - [急先锋](https://www.blog.kurohicncr.top/Article/details/041865.shtml)
-- 2026-06-29 23:06 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/753203123240.shtml)
-- 2026-06-29 23:26 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/45743.shtml)
-- 2026-06-29 23:18 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/97073741.shtml)
-- 2026-06-29 23:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/28404.shtml)
-- 2026-06-29 23:23 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/69948788.shtml)
-- 2026-06-29 23:23 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/9283981.shtml)
+- 2026-06-29 23:39 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/817198.shtml)
+- 2026-06-29 23:24 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/6411077.shtml)
+- 2026-06-29 23:29 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/24412976.shtml)
+- 2026-06-29 23:38 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/926453245508.shtml)
+- 2026-06-29 23:34 - [青春环游记第三季](https://www.share.minike.top/Article/details/370240587.shtml)
+- 2026-06-29 23:31 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/7611670.shtml)
+- 2026-06-29 23:14 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/310678632384.shtml)
+- 2026-06-29 23:40 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/56721.shtml)
+- 2026-06-29 23:14 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/9636597153.shtml)
+- 2026-06-29 23:12 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/4120008082.shtml)
+- 2026-06-29 23:30 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/00804860792.shtml)
+- 2026-06-29 23:27 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/82915824858.shtml)
+- 2026-06-29 23:30 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/7046473295.shtml)
+- 2026-06-29 23:23 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/867994030.shtml)
+- 2026-06-29 23:22 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/435187117569.shtml)

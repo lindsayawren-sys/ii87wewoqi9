@@ -1,56 +1,57 @@
-# 险企巨头，股权上相恋了
+# 大处着眼，小处破局！从立嘉国际智能装备展览会看重庆装备制造提档密码
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-作者：姜鑫 作为国内人身险市场体量最大的两家公司，中国人寿和中国平安正从昔日的行业竞争对手化为股东“密友”。 根据财报及今年5月20日的港交所权益披露信息，中国人寿与中国平安之间出现了“互相持股”格局——中国平安持续买入中国人寿H股股票，中国人寿也出现在中国平安A股流通股股东名单中。 险资增持同业，并非个案。中国平安同样手握中国太保H股股票，新华保险连续两个季度增持中国人保A股
+中新网重庆5月28日电(黄维正)2026重庆国际工业博览会暨第26届立嘉国际智能装备展览会5月28日在重庆国际博览中心启幕。 本届展会以“智领新质·匠荟启新”为主题，展出面积约9.1万平方米，汇聚1300家国内外品牌企业，集中展出1100台(套)1吨以上高端装备、上万件精密核心功能部件。 印象中制造业什么样？巨大的厂房、轰鸣的机床、粗壮的机械臂……但走进这场展会，吸引人的还有那
 
 ## 正文
 
-作者：姜鑫 作为国内人身险市场体量最大的两家公司，中国人寿和中国平安正从昔日的行业竞争对手化为股东“密友”。
+中新网重庆5月28日电(黄维正)2026重庆国际工业博览会暨第26届立嘉国际智能装备展览会5月28日在重庆国际博览中心启幕。
 
-根据财报及今年5月20日的港交所权益披露信息，中国人寿与中国平安之间出现了“互相持股”格局——中国平安持续买入中国人寿H股股票，中国人寿也出现在中国平安A股流通股股东名单中。
+本届展会以“智领新质·匠荟启新”为主题，展出面积约9.1万平方米，汇聚1300家国内外品牌企业，集中展出1100台(套)1吨以上高端装备、上万件精密核心功能部件。
 
-险资增持同业，并非个案。
+印象中制造业什么样？
 
-中国平安同样手握中国太保H股股票，新华保险连续两个季度增持中国人保A股股份。
+巨大的厂房、轰鸣的机床、粗壮的机械臂……但走进这场展会，吸引人的还有那些往小了做、往精了钻的科技成果。
 
-今年一季度，保险股经历了调整，跌幅远超大盘，险企巨头在其他机构选择离场时增持了同业股份。
+在2026年重庆市重大技术装备成果专区，七腾机器人展台前，一款形似“钢铁猛虎”的机器人格外引人注目。
 
-这背后是险企巨头在低利率、优质资产难寻以及政策放开背景下的“双向奔赴”。
+这款防爆四足机器人-X3 Stable整机满足Ex d IIB T4 Gb防爆等级要求，质量小于100千克，实现小型化、轻量化设计。
 
-增持同业 5月20日，港交所权益披露信息显示，中国平安再度增持中国人寿H股股份，持股达11.99亿股，占已发行的有投票权股份的16.12%。
+轻量化设计使得该款机器人更机动灵活，运动能力得到提升，能轻松攀爬20厘米台阶，跨越300毫米沟壑，越障高度达200毫米，涉水深度达300毫米。
 
-3月25日，中国平安增持中国太保H股股份，持股达3.35亿股，占已发行的有投票权股份的12.08%。
+该企业防爆轮式机器人-L4-S身形小巧，同样“出圈”。
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 23:22 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 23:11 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 23:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 23:16 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 23:08 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 23:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 23:22 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 23:27 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 23:32 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 23:29 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 23:18 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 23:21 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 23:34 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 23:36 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 23:31 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 23:28 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 23:19 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 23:40 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 23:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 23:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:22 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/88363.shtml)
-- 2026-06-29 23:07 - [月亮](http://www.share.kurohicncr.top/Article/details/086465291.shtml)
-- 2026-06-29 23:13 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/270930494057.shtml)
-- 2026-06-29 23:17 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/257809184.shtml)
-- 2026-06-29 23:10 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/162049250.shtml)
-- 2026-06-29 23:19 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/316310.shtml)
-- 2026-06-29 23:12 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/346783437.shtml)
-- 2026-06-29 23:30 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/5511126527.shtml)
-- 2026-06-29 23:21 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/6114894.shtml)
-- 2026-06-29 23:29 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/060195501027.shtml)
-- 2026-06-29 23:10 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/15782145530.shtml)
-- 2026-06-29 23:26 - [美股](http://www.share.kurohicncr.top/Article/details/96432929.shtml)
-- 2026-06-29 23:30 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/031091.shtml)
-- 2026-06-29 23:31 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/03081.shtml)
-- 2026-06-29 23:30 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/936937658184.shtml)
+- 2026-06-29 23:36 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/0593930136.shtml)
+- 2026-06-29 23:25 - [日防卫省正考虑引进美企人工智能系统](http://www.share.minike.top/Article/details/32750393.shtml)
+- 2026-06-29 23:38 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/843392.shtml)
+- 2026-06-29 23:38 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/6434730124.shtml)
+- 2026-06-29 23:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/2884173896.shtml)
+- 2026-06-29 23:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/890516.shtml)
+- 2026-06-29 23:40 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/843926.shtml)
+- 2026-06-29 23:35 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/294401383.shtml)
+- 2026-06-29 23:39 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/20694.shtml)
+- 2026-06-29 23:25 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/671348.shtml)
+- 2026-06-29 23:17 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/74820652.shtml)
+- 2026-06-29 23:26 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/526396616.shtml)
+- 2026-06-29 23:41 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/6985682423.shtml)
+- 2026-06-29 23:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/00532654.shtml)
+- 2026-06-29 23:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/0245043894.shtml)

@@ -1,56 +1,57 @@
-# Axios称美伊商定延长休战正等待特朗普批准 两国早前互指违反停火
+# 高考临近 多家AI平台涉考功能“限时上锁”
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-据Axios报道，伊朗与美国已达成一项协议，将延长停火，并争取一份结束战争的最终协议。市场憧憬这场持续三个月的冲突可能接近解决，油价应声下跌。 Axios援引两名美国官员和一名参与谈判的地区内消息人士的话报道称，协议内容包括将停火延长60天，并启动围绕伊朗核计划的谈判。报道称，美国总统唐纳德·特朗普仍需批准相关条款。 受该消息影响，油价跌至每桶94美元附近。此前，由于市场对达成
+高考临近，近日“高考期间AI工具将禁用”相关话题引起广泛关注。不少网友对此感到疑惑。记者向多个AI平台核实得知，相关举措并不是“一刀切”的全面禁用，而是在考试时段对答题、拍题等涉考功能“限时上锁”。这一举措能否守护高考公平？来听总台记者报道。记者以用户身份向多家主流AI平台客服咨询，均得到了明确答复：高考期间，平台可正常使用，但针对涉考场景的功能会进行专项管控。除了AI平台，高
 
 ## 正文
 
-据Axios报道，伊朗与美国已达成一项协议，将延长停火，并争取一份结束战争的最终协议。
+高考临近，近日“高考期间AI工具将禁用”相关话题引起广泛关注。
 
-市场憧憬这场持续三个月的冲突可能接近解决，油价应声下跌。
+不少网友对此感到疑惑。
 
-Axios援引两名美国官员和一名参与谈判的地区内消息人士的话报道称，协议内容包括将停火延长60天，并启动围绕伊朗核计划的谈判。
+记者向多个AI平台核实得知，相关举措并不是“一刀切”的全面禁用，而是在考试时段对答题、拍题等涉考功能“限时上锁”。
 
-报道称，美国总统唐纳德·特朗普仍需批准相关条款。
+这一举措能否守护高考公平？
 
-受该消息影响，油价跌至每桶94美元附近。
+来听总台记者报道。
 
-此前，由于市场对达成协议前景更为悲观，油价一度上涨。
+记者以用户身份向多家主流AI平台客服咨询，均得到了明确答复：高考期间，平台可正常使用，但针对涉考场景的功能会进行专项管控。
 
-Axios的报道还推动标普500指数刷新纪录。
+除了AI平台，高考期间，有中小学作业辅导工具也对答疑功能进行了限制。
 
-Axios报道称，这份谅解备忘录将写明，途经关键航道霍尔木兹海峡的航运将“畅通无阻”。
+据了解，各平台的这种管控实行“分时段”的精准限制，仅在考试时段，对拍题识图、试题解析等功能进行临时管控，日常聊天、生活问答等非涉考功能不受影响。
 
 ## 相关推荐
 
-- 2026-06-29 23:06 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 23:18 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 23:11 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 23:12 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 23:34 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 23:31 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 23:17 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 23:36 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 23:10 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 23:33 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 23:25 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 23:14 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 23:38 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 23:26 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 23:37 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 23:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 23:39 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 23:21 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 23:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 23:15 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 23:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:31 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/0252968.shtml)
-- 2026-06-29 23:20 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/118527.shtml)
-- 2026-06-29 23:06 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/6041228262.shtml)
-- 2026-06-29 23:29 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/708974393.shtml)
-- 2026-06-29 23:35 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/01226391681.shtml)
-- 2026-06-29 23:12 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/10964315023.shtml)
-- 2026-06-29 23:25 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/1893923644.shtml)
-- 2026-06-29 23:11 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/13778939.shtml)
-- 2026-06-29 23:17 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/32954.shtml)
-- 2026-06-29 23:23 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/35188383.shtml)
-- 2026-06-29 23:16 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/61529268160.shtml)
-- 2026-06-29 23:23 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/802141076.shtml)
-- 2026-06-29 23:15 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/3661313.shtml)
-- 2026-06-29 23:27 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/06371.shtml)
-- 2026-06-29 23:24 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/40507542245.shtml)
+- 2026-06-29 23:40 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/2015269.shtml)
+- 2026-06-29 23:29 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/9095932377.shtml)
+- 2026-06-29 23:33 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/6389552682.shtml)
+- 2026-06-29 23:26 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/378003153.shtml)
+- 2026-06-29 23:30 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/429262743394.shtml)
+- 2026-06-29 23:12 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/56856.shtml)
+- 2026-06-29 23:36 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/7644216256.shtml)
+- 2026-06-29 23:41 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/3292004.shtml)
+- 2026-06-29 23:23 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/18323289020.shtml)
+- 2026-06-29 23:35 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/577439779843.shtml)
+- 2026-06-29 23:16 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/376069742.shtml)
+- 2026-06-29 23:38 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/53526.shtml)
+- 2026-06-29 23:12 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/84410933916.shtml)
+- 2026-06-29 23:15 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/00891689.shtml)
+- 2026-06-29 23:32 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/539519407505.shtml)

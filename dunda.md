@@ -1,61 +1,57 @@
-# 银发列车焕新上线 哪些车次有优惠？这份指南请收好
+# 肯尼亚一学校起火已致10名学生丧生
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-视频 | 银发列车焕新上线 哪些车次有优惠？这份指南请收好 明天(5月29日)起，铁路部门推出的“老年旅客淡季周中购票优惠服务”就正式实施了，哪些车次有优惠？老年旅客如何购买优惠车票？ 记者登录铁路12306网站看到，部分列车车次已经标注了绿色的“敬”字，年满60周岁及以上的旅客，购买相关车次的车票，订单和车票页面将显示“长者优惠”字样，购票旅客可在既有折扣的基础上再享受一轮优
+中新网北京5月28日电 内罗毕消息：肯尼亚纳库鲁一所学校当地时间28日发生火灾，造成至少10名学生丧生。 据肯尼亚首都调频广播电台(Capital FM)网站消息，28日凌晨1时许，纳库鲁一所女子学校的宿舍突发火灾，火势迅速席卷整栋建筑，校内陷入混乱。消防人员和警方此后迅速赶到现场开展救援和疏散工作。 当地警方通报称，截至当天上午，此次火灾造成10名学生死亡，另有多名学生受伤，
 
 ## 正文
 
-视频 | 银发列车焕新上线 哪些车次有优惠？
+中新网北京5月28日电 内罗毕消息：肯尼亚纳库鲁一所学校当地时间28日发生火灾，造成至少10名学生丧生。
 
-这份指南请收好 明天(5月29日)起，铁路部门推出的“老年旅客淡季周中购票优惠服务”就正式实施了，哪些车次有优惠？
+据肯尼亚首都调频广播电台(Capital FM)网站消息，28日凌晨1时许，纳库鲁一所女子学校的宿舍突发火灾，火势迅速席卷整栋建筑，校内陷入混乱。
 
-老年旅客如何购买优惠车票？
+消防人员和警方此后迅速赶到现场开展救援和疏散工作。
 
-记者登录铁路12306网站看到，部分列车车次已经标注了绿色的“敬”字，年满60周岁及以上的旅客，购买相关车次的车票，订单和车票页面将显示“长者优惠”字样，购票旅客可在既有折扣的基础上再享受一轮优惠。
+当地警方通报称，截至当天上午，此次火灾造成10名学生死亡，另有多名学生受伤，救援人员目前仍在事发现场进行搜索。
 
-国铁哈尔滨局大庆车务段大庆东站客运主任 曹阳：在每周一的中午到周五的中午，这个周中时段出行，给予动车组列车执行票价九折的优惠，符合条件的老年旅客还可以叠加残疾军人等优待对象的折上折。
+事故原因暂不明确，相关调查已经启动。
 
-这个“周中”时段，指的是每周一中午12时至周五中午12时之间的车票，可以享受折上折的优惠，同时需要注意的是，6月18日至22日端午出行高峰期不享受优惠。
-
-那么符合条件的老年旅客，购买“敬”字头车票到底可以省多少钱呢？
-
-一张原价100元的动车票，符合条件的老年旅客仅需支付90元，如果这名旅客同时持有残疾军人证，还可在九折基础上再享九折优惠，实际支付81元。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:17 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 23:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 23:22 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 23:16 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 23:19 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 23:27 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 23:08 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 23:17 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 23:25 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 23:32 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 23:29 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 23:21 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 23:14 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 23:13 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 23:32 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 23:17 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 23:24 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 23:30 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 23:41 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 23:17 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 23:28 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 23:34 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 23:36 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 23:29 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 23:17 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 23:21 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 23:30 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 23:24 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 23:28 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 23:35 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:35 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/70980793170.shtml)
-- 2026-06-29 23:08 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/8812625545.shtml)
-- 2026-06-29 23:16 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/600837969.shtml)
-- 2026-06-29 23:20 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/13799.shtml)
-- 2026-06-29 23:19 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/174107.shtml)
-- 2026-06-29 23:24 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/989341833477.shtml)
-- 2026-06-29 23:06 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/003637526628.shtml)
-- 2026-06-29 23:14 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/2461205.shtml)
-- 2026-06-29 23:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/4625858462.shtml)
-- 2026-06-29 23:25 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/201455.shtml)
-- 2026-06-29 23:10 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/752474.shtml)
-- 2026-06-29 23:16 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/026893656392.shtml)
-- 2026-06-29 23:30 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/9692576221.shtml)
-- 2026-06-29 23:13 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/31285.shtml)
-- 2026-06-29 23:28 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/53343.shtml)
+- 2026-06-29 23:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/157209.shtml)
+- 2026-06-29 23:39 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/90639299.shtml)
+- 2026-06-29 23:30 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/834111502.shtml)
+- 2026-06-29 23:33 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/7187545054.shtml)
+- 2026-06-29 23:34 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/442035740.shtml)
+- 2026-06-29 23:36 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/8909306194.shtml)
+- 2026-06-29 23:20 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/8219015.shtml)
+- 2026-06-29 23:19 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/19243888275.shtml)
+- 2026-06-29 23:22 - [第一炉香](http://www.share.minike.top/Article/details/0400130.shtml)
+- 2026-06-29 23:37 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/815360.shtml)
+- 2026-06-29 23:20 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/091898.shtml)
+- 2026-06-29 23:21 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/944609725781.shtml)
+- 2026-06-29 23:22 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/350372840558.shtml)
+- 2026-06-29 23:32 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/407497.shtml)
+- 2026-06-29 23:29 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/486504025.shtml)

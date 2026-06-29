@@ -1,56 +1,56 @@
-# BEYOND Expo 2026开幕，聚焦AI从数字走向物理世界
+# 世纪华通（002602）股民索赔多次提交法院立案，提示抓住索赔尾巴
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-专题：BEYOND Expo 2026 5月27日下午，BEYOND Expo 2026开幕式在澳门举行。本届博览会以“AI：数实共生”为主题，聚焦人工智能从数字系统走向物理世界的产业进程，围绕具身智能、机器人、空间计算、AI Agent、开放生态和全球资本等方向展开讨论，呈现人工智能加速进入产业场景和现实世界的新进展。 本次开幕式吸引1000余位来自中国、韩国、东南亚、阿联酋
+2026年5月26日、27日，上海久诚律师事务所股票索赔律师许峰代理的世纪华通（维权）（002602）投资者索赔案再提交绍兴市中级人民法院立案。（许峰律师专栏） 许峰律师代理的前期大量世纪华通投资者索赔案已获赔到位，律师团队同步还在推进后续案件的立案工作，还在持续接受其他投资者的索赔委托。目前该案已有投资者胜诉判决，但时效所剩已不多。 2024年11月6日，世纪华通公告收到证监
 
 ## 正文
 
-专题：BEYOND Expo 2026 5月27日下午，BEYOND Expo 2026开幕式在澳门举行。
+2026年5月26日、27日，上海久诚律师事务所股票索赔律师许峰代理的世纪华通（维权）（002602）投资者索赔案再提交绍兴市中级人民法院立案。
 
-本届博览会以“AI：数实共生”为主题，聚焦人工智能从数字系统走向物理世界的产业进程，围绕具身智能、机器人、空间计算、AI Agent、开放生态和全球资本等方向展开讨论，呈现人工智能加速进入产业场景和现实世界的新进展。
+（许峰律师专栏） 许峰律师代理的前期大量世纪华通投资者索赔案已获赔到位，律师团队同步还在推进后续案件的立案工作，还在持续接受其他投资者的索赔委托。
 
-本次开幕式吸引1000余位来自中国、韩国、东南亚、阿联酋、沙特、卡塔尔、巴西、欧盟等多个国家和地区的嘉宾参与。
+目前该案已有投资者胜诉判决，但时效所剩已不多。
 
-参会嘉宾涵盖企业高管、创业领袖、投资机构代表、地方政府代表、国际合作伙伴及媒体，形成跨区域、跨产业、跨生态的全球创新交流现场。
+2024年11月6日，世纪华通公告收到证监会《行政处罚决定书》，经查明，世纪华通违法事实如下： 一、2018-2022年年报商誉有关情况存在虚假记载 （一）2018年未按规定执行商誉减值测试，导致2018年年报少计提商誉减值准备6，236.30万元。
 
-开幕式上，BEYOND Expo联合创始人贺建东首先登台致辞。
+（二）2019-2022年年报商誉原值披露错误。
 
-他在现场谈到，BEYOND Expo希望连接亚洲创新力量与全球合作伙伴，让科技、投资、体育和娱乐在同一周内形成更多交流机会。
+（三）2019-2022年年报报告分部的披露不符合会计准则的规定，未将点点作为单独的报告分部进行披露。
 
-围绕今年大会方向，BEYOND Expo 2026展区将汇聚近800家参展企业，既包括大型科技企业，也首次引入OPC（一人公司）等更小型的创新主体，让独立创业者和个人创作者与头部品牌同场展示。
+（四）2020-2022年未按规定执行商誉减值测试，导致2020年、2022年未按规定计提商誉减值准备，虚增、虚减利润。
 
-贺建东谈到，亚洲不仅拥有AI软件和模型创新，也拥有先进制造、硬件创新和基础设施能力，能够为AI进入物理世界提供重要支撑。
+二、虚构软件著作权转让业务或提前确认收入，导致2020年-2021年年报、关于业绩承诺完成情况的临时报告存在虚假记载 （一）虚构《千年3》软件著作权转让交易，2020年虚增营业收入。
 
 ## 相关推荐
 
-- 2026-06-29 23:18 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 23:25 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 23:11 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 23:31 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 23:07 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 23:16 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 23:31 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 23:31 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 23:35 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 23:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 23:33 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 23:33 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 23:30 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 23:27 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 23:34 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 23:30 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 23:41 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 23:15 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 23:29 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 23:26 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:12 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/919958749719.shtml)
-- 2026-06-29 23:27 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/8216713069.shtml)
-- 2026-06-29 23:33 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/90959.shtml)
-- 2026-06-29 23:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/7752281.shtml)
-- 2026-06-29 23:09 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/6297734.shtml)
-- 2026-06-29 23:19 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/651812.shtml)
-- 2026-06-29 23:17 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/46769.shtml)
-- 2026-06-29 23:24 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/77467739.shtml)
-- 2026-06-29 23:09 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/1763116895.shtml)
-- 2026-06-29 23:08 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/33581867.shtml)
-- 2026-06-29 23:06 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.kurohicncr.top/Article/details/9399791221.shtml)
-- 2026-06-29 23:21 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/4241106.shtml)
-- 2026-06-29 23:16 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/11668647.shtml)
-- 2026-06-29 23:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/8911345045.shtml)
-- 2026-06-29 23:06 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/81946.shtml)
+- 2026-06-29 23:41 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/0558130.shtml)
+- 2026-06-29 23:37 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/97213421194.shtml)
+- 2026-06-29 23:36 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/463378.shtml)
+- 2026-06-29 23:27 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/869086038.shtml)
+- 2026-06-29 23:39 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/70408.shtml)
+- 2026-06-29 23:26 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/33149.shtml)
+- 2026-06-29 23:22 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/48776840.shtml)
+- 2026-06-29 23:39 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/6905335701.shtml)
+- 2026-06-29 23:14 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/6883954.shtml)
+- 2026-06-29 23:15 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/958972870986.shtml)
+- 2026-06-29 23:23 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/77135646.shtml)
+- 2026-06-29 23:38 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/8322086.shtml)
+- 2026-06-29 23:23 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/462582575.shtml)
+- 2026-06-29 23:14 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/4708353507.shtml)
+- 2026-06-29 23:33 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/30333885.shtml)

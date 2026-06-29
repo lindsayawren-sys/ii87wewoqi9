@@ -1,44 +1,60 @@
-# 夜空中最亮的星
+# 中国经济面面观｜为什么是“六张网”——看政策出台的深层逻辑
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-苍穹之上 群星为司南 当长夜无垠 是谁引燃星火 追光万丈 当众生抱恙 是谁仁心妙手 萃取天光 当饥饿退潮 是谁流芳箸端 幻化星芒 当深空有约 是谁九天揽月 问鼎苍茫 光阴荏苒 他们以赤诚为墨 在天穹之上 落下生命韵脚 甘为大地脊梁的人 终为星辰铭记 策划：黄豁、刘亢 监制：樊华、幸培瑜、王圣志 统筹：韩珅、凌军辉、王志斌、杨丁淼 编导：彭卓 记者：林凯、黄培锋 摄制：季宇石、陈
+一张“网”能带来多大想象空间？国家发展改革委近日在相关发布会上给出答案：“十五五”时期，水网、新型电网、算力网、新一代通信网、城市地下管网、物流网——“六张网”总投资预计超过10万亿元，成为新一轮扩内需、稳增长的核心抓手。万亿级投资为何聚焦“六张网”？新华社《中国经济面面观》栏目邀请相关领域专家进行深入解读。 从“要素扩张”到“要素流动” “‘十五五’到了中国经济转型升级的关键
 
 ## 正文
 
-苍穹之上 群星为司南 当长夜无垠 是谁引燃星火 追光万丈 当众生抱恙 是谁仁心妙手 萃取天光 当饥饿退潮 是谁流芳箸端 幻化星芒 当深空有约 是谁九天揽月 问鼎苍茫 光阴荏苒 他们以赤诚为墨 在天穹之上 落下生命韵脚 甘为大地脊梁的人 终为星辰铭记 策划：黄豁、刘亢 监制：樊华、幸培瑜、王圣志 统筹：韩珅、凌军辉、王志斌、杨丁淼 编导：彭卓 记者：林凯、黄培锋 摄制：季宇石、陈帅 配音：李林欣 包装：沈阔、潘嘉伟、闫若彤 新华社音视频部 新华社江苏分社 联合制作
+一张“网”能带来多大想象空间？
+
+国家发展改革委近日在相关发布会上给出答案：“十五五”时期，水网、新型电网、算力网、新一代通信网、城市地下管网、物流网——“六张网”总投资预计超过10万亿元，成为新一轮扩内需、稳增长的核心抓手。
+
+万亿级投资为何聚焦“六张网”？
+
+新华社《中国经济面面观》栏目邀请相关领域专家进行深入解读。
+
+从“要素扩张”到“要素流动” “‘十五五’到了中国经济转型升级的关键窗口。
+
+”复旦大学管理学院科创管理研究中心首席经济学家邵宇在访谈中表示，“六张网”的推出不仅是稳增长的经济手段，更标志着中国经济发展的底层逻辑正在发生转变——从要素驱动、规模扩张，转向要素自由流动和新产业机遇的创造。
+
+“六张网放在一起看，本质是要素的自由流动：物流、信息、通讯、能源等形成一张协同网。
+
+” 这一逻辑可以从三个维度理解：第一，稳增长。
 
 ## 相关推荐
 
-- 2026-06-29 23:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 23:30 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 23:09 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 23:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 23:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 23:32 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-29 23:20 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 23:11 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 23:26 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 23:28 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 23:17 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 23:14 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 23:31 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 23:34 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 23:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 23:14 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 23:33 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 23:25 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 23:32 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 23:14 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 23:28 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 23:30 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 23:18 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 23:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 23:33 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 23:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:35 - [天道](http://www.share.kurohicncr.top/Article/details/80539713.shtml)
-- 2026-06-29 23:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/167874525934.shtml)
-- 2026-06-29 23:09 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/945988.shtml)
-- 2026-06-29 23:26 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/8355134.shtml)
-- 2026-06-29 23:24 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/938276359159.shtml)
-- 2026-06-29 23:22 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/17741071.shtml)
-- 2026-06-29 23:09 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/19841.shtml)
-- 2026-06-29 23:29 - [美股](https://www.share.minike.top/Article/details/2663295.shtml)
-- 2026-06-29 23:07 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/67277.shtml)
-- 2026-06-29 23:19 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/0573401256.shtml)
-- 2026-06-29 23:08 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/18413419528.shtml)
-- 2026-06-29 23:10 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/80952299.shtml)
-- 2026-06-29 23:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/3553543967.shtml)
-- 2026-06-29 23:22 - [天道](http://www.share.minike.top/Article/details/70351.shtml)
-- 2026-06-29 23:31 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/959004959.shtml)
+- 2026-06-29 23:21 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/432453166015.shtml)
+- 2026-06-29 23:13 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/7794175.shtml)
+- 2026-06-29 23:35 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/59788353.shtml)
+- 2026-06-29 23:12 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/488691907188.shtml)
+- 2026-06-29 23:18 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/26216349956.shtml)
+- 2026-06-29 23:39 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/8135266742.shtml)
+- 2026-06-29 23:24 - [返利科技盘中上演“天地板”](http://www.blog.minike.top/Article/details/444330244092.shtml)
+- 2026-06-29 23:15 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/699067842545.shtml)
+- 2026-06-29 23:26 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/15184917318.shtml)
+- 2026-06-29 23:39 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/7811453.shtml)
+- 2026-06-29 23:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/486349341.shtml)
+- 2026-06-29 23:18 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/815066.shtml)
+- 2026-06-29 23:30 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/915033.shtml)
+- 2026-06-29 23:37 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.minike.top/Article/details/8956510.shtml)
+- 2026-06-29 23:33 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/6763865.shtml)

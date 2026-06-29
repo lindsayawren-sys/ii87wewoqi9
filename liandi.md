@@ -1,58 +1,57 @@
-# 江汽集团项兴初：全面对标华为、学习华为
+# SpaceX上市倒计时，恒指公司重磅官宣：纳入！投资者有机会参与吗？
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行。江汽集团董事长项兴初出席并演讲。 项兴初指出，行业有四大变革趋势。一是技术创新变革加速迭代，众多技术路线正逐步走向收敛。二是产业边界不断扩大，但组织边界需要聚焦收敛。三是传统燃油汽车品牌加速淘汰，新汽车、新生态、新分工快速形成。四是中国品牌迎来历史性崛起的黄金机遇。 他提到，近
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者|曾子建 编辑|程鹏 袁东 杜波 校对|陈柯名 5月27日，恒生指数公司发布重磅公告，宣布将全球商业航天龙头企业SpaceX纳入恒生港美科技指数成分股体系，进一步丰富指数全球优质科技资产布局。 根据纳入规则，SpaceX在完成美股上市后的第11个交易日，将正式生效成为该指数成分股。此外，跟踪该指数的核心
 
 ## 正文
 
-专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-江汽集团董事长项兴初出席并演讲。
+记者|曾子建 编辑|程鹏 袁东 杜波 校对|陈柯名 5月27日，恒生指数公司发布重磅公告，宣布将全球商业航天龙头企业SpaceX纳入恒生港美科技指数成分股体系，进一步丰富指数全球优质科技资产布局。
 
-项兴初指出，行业有四大变革趋势。
+根据纳入规则，SpaceX在完成美股上市后的第11个交易日，将正式生效成为该指数成分股。
 
-一是技术创新变革加速迭代，众多技术路线正逐步走向收敛。
+此外，跟踪该指数的核心产品为南方港美科技ETF，为投资者一键布局中美顶尖科技赛道提供重要工具。
 
-二是产业边界不断扩大，但组织边界需要聚焦收敛。
+恒指港美科技指数将纳入SpaceX 恒生指数有限公司于2026年5月27日发布官方公告，宣布将SpaceX纳入恒生港美科技指数成分股。
 
-三是传统燃油汽车品牌加速淘汰，新汽车、新生态、新分工快速形成。
+公告显示，恒生港美科技指数的编算方法将发生更新，新增太空探索技术公司SpaceX（股票代号：SPCX.O）至指定美国上市成分股名单。
 
-四是中国品牌迎来历史性崛起的黄金机遇。
+目前美国上市成分股为科技七巨头，即亚马逊、谷歌-A、英伟达、苹果、特斯拉、微软和META。
 
-他提到，近年来面对行业价值战、价格战及增收不增利的困境，江淮汽车反复思考自身出路，最终明确必须跳出低水平竞争，走向高价值赛道。
+本次纳入SpaceX后，八只美国上市成分股的比重将于SpaceX的第7个交易日收市后重新计算为等权重，新增成分股和更新后的成分股比重将于SpaceX的第11个交易日生效。
 
 ## 相关推荐
 
-- 2026-06-29 23:29 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 23:18 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 23:35 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 23:24 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 23:13 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 23:29 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 23:12 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 23:13 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 23:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 23:33 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 23:34 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 23:22 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 23:32 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 23:28 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 23:34 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 23:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 23:26 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 23:18 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 23:25 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 23:21 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 23:26 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 23:34 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 23:22 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/04610849.shtml)
-- 2026-06-29 23:30 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/6925645899.shtml)
-- 2026-06-29 23:22 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/8658522753.shtml)
-- 2026-06-29 23:28 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/157279.shtml)
-- 2026-06-29 23:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/5117449799.shtml)
-- 2026-06-29 23:27 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/128457902158.shtml)
-- 2026-06-29 23:26 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/83730371.shtml)
-- 2026-06-29 23:11 - [时光音乐会](https://www.share.minike.top/Article/details/816647.shtml)
-- 2026-06-29 23:11 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/44329924.shtml)
-- 2026-06-29 23:33 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/01869455355.shtml)
-- 2026-06-29 23:27 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/118622743108.shtml)
-- 2026-06-29 23:34 - [一生一世](http://www.blog.kurohicncr.top/Article/details/939272.shtml)
-- 2026-06-29 23:35 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/726777286.shtml)
-- 2026-06-29 23:18 - [一生一世](https://www.blog.kurohicncr.top/Article/details/07037705338.shtml)
-- 2026-06-29 23:33 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/84204560.shtml)
+- 2026-06-29 23:18 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/621067867648.shtml)
+- 2026-06-29 23:39 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/700631.shtml)
+- 2026-06-29 23:26 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/03089537.shtml)
+- 2026-06-29 23:25 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/555839.shtml)
+- 2026-06-29 23:30 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/30167807.shtml)
+- 2026-06-29 23:20 - [扬名立万](https://www.share.kurohicncr.top/Article/details/083475056.shtml)
+- 2026-06-29 23:23 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/2054044.shtml)
+- 2026-06-29 23:13 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/589012.shtml)
+- 2026-06-29 23:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/03678690.shtml)
+- 2026-06-29 23:16 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/43386.shtml)
+- 2026-06-29 23:24 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/63149530226.shtml)
+- 2026-06-29 23:30 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/62582489166.shtml)
+- 2026-06-29 23:21 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/33504841.shtml)
+- 2026-06-29 23:33 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/436901270.shtml)
+- 2026-06-29 23:39 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/40400.shtml)

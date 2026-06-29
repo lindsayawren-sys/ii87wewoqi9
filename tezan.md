@@ -1,55 +1,44 @@
-# 东岳集团午后涨超13% 本年内股价累计涨幅已近60%
+# 美媒：美伊谈判代表已就谅解备忘录达成一致
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-东岳集团（00189）盘中涨超19%，高见18.10港元，本年内股价累计涨幅已近60%。截至发稿，股价上涨13.65%，现报17.23港元，成交额17.70亿港元。 开源证券指出，欧美此前过于严苛和激进的HFCs削减计划、HFO替代品推进不及预期、国际货源以及本土库存紧张，叠加旺季需求到来，引发了本次海外制冷剂价格大幅调涨，并促使其放宽HFCs的合规期限，事实上延长了HFCs的
+新华社华盛顿5月28日电 据美国媒体28日援引美国官员的话报道说，美伊谈判代表已就谅解备忘录达成一致，但仍需要美国总统特朗普最终批准。
 
 ## 正文
 
-东岳集团（00189）盘中涨超19%，高见18.10港元，本年内股价累计涨幅已近60%。
-
-截至发稿，股价上涨13.65%，现报17.23港元，成交额17.70亿港元。
-
-开源证券指出，欧美此前过于严苛和激进的HFCs削减计划、HFO替代品推进不及预期、国际货源以及本土库存紧张，叠加旺季需求到来，引发了本次海外制冷剂价格大幅调涨，并促使其放宽HFCs的合规期限，事实上延长了HFCs的生命周期。
-
-我们认为本质就是欧美高GWP的HFCs制冷剂出现供给短缺，需要从政策上放宽要求以保障国内需求。
-
-直接证明了HFCs制冷剂的需求旺盛，难以被快速替代。
-
-需求坚挺、库存不足、价格上涨，全球制冷剂补库行情或在酝酿。
-
-责任编辑：卢昱君
+新华社华盛顿5月28日电 据美国媒体28日援引美国官员的话报道说，美伊谈判代表已就谅解备忘录达成一致，但仍需要美国总统特朗普最终批准。
 
 ## 相关推荐
 
-- 2026-06-29 23:08 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 23:29 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 23:07 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 23:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 23:22 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 23:12 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 23:35 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 23:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 23:06 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 23:20 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 23:07 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 23:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 23:22 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 23:30 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 23:26 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 23:40 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 23:13 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 23:20 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 23:36 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 23:19 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 23:26 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 23:21 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 23:34 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:21 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/586368719.shtml)
-- 2026-06-29 23:23 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/92712359.shtml)
-- 2026-06-29 23:09 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/1689895545.shtml)
-- 2026-06-29 23:28 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/2832286701.shtml)
-- 2026-06-29 23:18 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/54031547917.shtml)
-- 2026-06-29 23:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/8795100847.shtml)
-- 2026-06-29 23:28 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/4243452185.shtml)
-- 2026-06-29 23:28 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/155851263089.shtml)
-- 2026-06-29 23:20 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/026905.shtml)
-- 2026-06-29 23:35 - [急先锋](https://www.share.kurohicncr.top/Article/details/84064.shtml)
-- 2026-06-29 23:23 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/19910077.shtml)
-- 2026-06-29 23:32 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/306031286980.shtml)
-- 2026-06-29 23:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/022509662557.shtml)
-- 2026-06-29 23:25 - [急先锋](http://www.share.kurohicncr.top/Article/details/1017175.shtml)
-- 2026-06-29 23:32 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/05360371.shtml)
+- 2026-06-29 23:38 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/24319371.shtml)
+- 2026-06-29 23:16 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/38820391188.shtml)
+- 2026-06-29 23:40 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/9174939.shtml)
+- 2026-06-29 23:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/66252.shtml)
+- 2026-06-29 23:22 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/80976480.shtml)
+- 2026-06-29 23:19 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/579573.shtml)
+- 2026-06-29 23:16 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/614173862.shtml)
+- 2026-06-29 23:12 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/2188002.shtml)
+- 2026-06-29 23:41 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/50291207049.shtml)
+- 2026-06-29 23:12 - [男子称在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/60700970254.shtml)
+- 2026-06-29 23:22 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/94354293640.shtml)
+- 2026-06-29 23:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/51119.shtml)
+- 2026-06-29 23:36 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/160957648.shtml)
+- 2026-06-29 23:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/13273.shtml)
+- 2026-06-29 23:26 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/99081987.shtml)

@@ -1,56 +1,61 @@
-# 杨德龙：华为提出的韬定律另辟蹊径 打破了主宰芯片行业60年的摩尔定律
+# 油价下跌 交易员权衡伊朗和平协议进展迹象
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-专题：半导体领域取得新突破！华为发布韬（τ）定律 创造芯片性能提升新范式 这两天，华为发表“韬定律”，引爆了A股和港股的半导体板块，引发半导体板块集体暴涨。华为提出半导体行业发展的新范式，标志着中国在半导体技术方面已实现重大突破，打破了自1965年以来摩尔定律在半导体技术发展中的主导地位。华为另辟蹊径，再次引领全球。 2026年5月25日，在2026国际电路与系统研讨会上，华为
+油价下跌，市场乐观认为美国和伊朗将达成和平协议，尽管两国就谈判进展作出了相互矛盾的表态。 布伦特原油约每桶96美元。伊朗国家电视台称已获得一份关于结束伊朗战争的非正式谅解备忘录草案，但白宫称报道所述谅解备忘录“完全捏造”。 达成重开霍尔木兹海峡的协议可能会向供应严重不足的石油市场释放大量原油。霍尔木兹海峡通常承担全球约五分之一的石油和液化天然气供应运输。但与伊朗的谈判仍存在关键
 
 ## 正文
 
-专题：半导体领域取得新突破！
+油价下跌，市场乐观认为美国和伊朗将达成和平协议，尽管两国就谈判进展作出了相互矛盾的表态。
 
-华为发布韬（τ）定律 创造芯片性能提升新范式 这两天，华为发表“韬定律”，引爆了A股和港股的半导体板块，引发半导体板块集体暴涨。
+布伦特原油约每桶96美元。
 
-华为提出半导体行业发展的新范式，标志着中国在半导体技术方面已实现重大突破，打破了自1965年以来摩尔定律在半导体技术发展中的主导地位。
+伊朗国家电视台称已获得一份关于结束伊朗战争的非正式谅解备忘录草案，但白宫称报道所述谅解备忘录“完全捏造”。
 
-华为另辟蹊径，再次引领全球。
+达成重开霍尔木兹海峡的协议可能会向供应严重不足的石油市场释放大量原油。
 
-2026年5月25日，在2026国际电路与系统研讨会上，华为公司董事、半导体业务部总裁何丁波在题为《半导体新路径探索与实践》的主题演讲中，正式发表“韬定律”。
+霍尔木兹海峡通常承担全球约五分之一的石油和液化天然气供应运输。
 
-这也是中国在全球半导体领域首次提出制造产业发展的新原则。
+但与伊朗的谈判仍存在关键分歧，包括德黑兰240亿美元被冻结资产，以及其不愿允许船只自由通过该海峡。
 
-基于该定律，华为在过去六年已成功设计并量产了381款芯片。
+“似乎有一些头寸平仓在加速油价下跌，但更重要的是，市场确实不愿逢低买入，”CIBC Private Wealth Group高级能源交易员Rebecca Babin表示。
 
-今年秋季，华为将发布新的麒麟手机芯片，完整采用逻辑折叠技术，大幅提升相关性能。
+对于任何有关潜在和平协议的消息，她表示，“最终细节和时间安排如何，还有待观察，但眼下的心态是先卖再提问。
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 23:20 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 23:30 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 23:18 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 23:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 23:10 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 23:09 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 23:28 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 23:16 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 23:32 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 23:35 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 23:28 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 23:22 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 23:15 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 23:24 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 23:28 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 23:38 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 23:29 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 23:32 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 23:21 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 23:19 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 23:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 23:25 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 23:41 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 23:40 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:29 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/624976732489.shtml)
-- 2026-06-29 23:22 - [男子称在京东买到“同仁堂”假药](http://www.blog.minike.top/Article/details/80818.shtml)
-- 2026-06-29 23:06 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/94531.shtml)
-- 2026-06-29 23:17 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/114915.shtml)
-- 2026-06-29 23:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/816106201.shtml)
-- 2026-06-29 23:29 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/85113.shtml)
-- 2026-06-29 23:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/1328279476.shtml)
-- 2026-06-29 23:21 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/463631770149.shtml)
-- 2026-06-29 23:15 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/4666585951.shtml)
-- 2026-06-29 23:29 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/5446662.shtml)
-- 2026-06-29 23:21 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/1145216.shtml)
-- 2026-06-29 23:29 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/57465607.shtml)
-- 2026-06-29 23:33 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/565995395414.shtml)
-- 2026-06-29 23:34 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/82004108652.shtml)
-- 2026-06-29 23:08 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/70009181014.shtml)
+- 2026-06-29 23:23 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/04175828493.shtml)
+- 2026-06-29 23:21 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/47004.shtml)
+- 2026-06-29 23:16 - [美股](http://www.blog.minike.top/Article/details/472816050941.shtml)
+- 2026-06-29 23:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/754758.shtml)
+- 2026-06-29 23:15 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/101229529537.shtml)
+- 2026-06-29 23:30 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/7406797.shtml)
+- 2026-06-29 23:38 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/400300.shtml)
+- 2026-06-29 23:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/1725769.shtml)
+- 2026-06-29 23:18 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/6631894986.shtml)
+- 2026-06-29 23:31 - [美股](http://www.share.minike.top/Article/details/66142538.shtml)
+- 2026-06-29 23:15 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/305909860970.shtml)
+- 2026-06-29 23:39 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/401672.shtml)
+- 2026-06-29 23:21 - [巴西10号球衣是天才传承史](https://www.blog.kurohicncr.top/Article/details/950219795.shtml)
+- 2026-06-29 23:21 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/85483115.shtml)
+- 2026-06-29 23:40 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/632731.shtml)

@@ -1,59 +1,47 @@
-# 现货挺价推升集运欧线 后市需看涨价落地成色
+# 中芯国际遭国家集成电路产业投资基金减持700万股 每股均价86.69港元
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-● 本报记者 马爽 沉寂多时的集运指数（欧线）期货，近期又“热”了起来。4月中旬以来，集运指数（欧线）期货2606合约从低位一路反弹，5月22日盘中最高触及3120点，较4月15日盘中低点上涨超六成；2607合约也不甘落后，5月以来累计涨幅超过三成。不过，快速拉升之后，本周相关合约转入高位震荡。 业内人士表示，本轮集运指数（欧线）期货走强，并不是简单的“旺季来了”，而是现货挺价
+香港联交所最新资料显示，5月26日，国家集成电路产业投资基金股份有限公司减持中芯国际（00981）700万股，每股均价86.69港元，总金额约为6.07亿港元。减持后最新持股数目约为6.40亿股，最新持股比例为7.99%。责任编辑：卢昱君
 
 ## 正文
 
-● 本报记者 马爽 沉寂多时的集运指数（欧线）期货，近期又“热”了起来。
+香港联交所最新资料显示，5月26日，国家集成电路产业投资基金股份有限公司减持中芯国际（00981）700万股，每股均价86.69港元，总金额约为6.07亿港元。
 
-4月中旬以来，集运指数（欧线）期货2606合约从低位一路反弹，5月22日盘中最高触及3120点，较4月15日盘中低点上涨超六成；2607合约也不甘落后，5月以来累计涨幅超过三成。
+减持后最新持股数目约为6.40亿股，最新持股比例为7.99%。
 
-不过，快速拉升之后，本周相关合约转入高位震荡。
-
-业内人士表示，本轮集运指数（欧线）期货走强，并不是简单的“旺季来了”，而是现货挺价、旺季前置、航司控舱、绕航持续、燃料油成本抬升以及资金情绪共振的结果。
-
-当前，现货涨价和舱位偏紧仍对盘面形成支撑，但部分利多预期已提前反映在价格中。
-
-后续行情能否继续走强，还要看6月中上旬涨价预期能否兑现、7月航司报价是否继续上调，以及地缘风险和运力管理力度是否延续。
-
-现货挺价预期升温 4月中旬以来，集运指数（欧线）期货市场显著回暖。
-
-文华财经数据显示，5月22日盘中，集运指数（欧线）期货2606合约最高触及3120点，创下2024年7月中旬以来的新高，较4月15日盘中低点1918.3点上涨62.64%。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:25 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 23:25 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 23:18 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 23:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 23:13 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 23:35 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 23:30 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 23:31 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 23:16 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 23:20 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 23:29 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 23:23 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 23:16 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 23:16 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 23:24 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 23:13 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 23:15 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 23:36 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 23:16 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 23:21 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 23:20 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 23:37 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 23:24 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 23:36 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:15 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/57031765.shtml)
-- 2026-06-29 23:34 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/964790449800.shtml)
-- 2026-06-29 23:25 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/2838105902.shtml)
-- 2026-06-29 23:25 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/7429286.shtml)
-- 2026-06-29 23:14 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/183596.shtml)
-- 2026-06-29 23:32 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/789215310.shtml)
-- 2026-06-29 23:30 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/565541028908.shtml)
-- 2026-06-29 23:23 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/873365635759.shtml)
-- 2026-06-29 23:15 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/893681873.shtml)
-- 2026-06-29 23:09 - [青春环游记第三季](https://www.share.minike.top/Article/details/0819741.shtml)
-- 2026-06-29 23:07 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/39986203.shtml)
-- 2026-06-29 23:30 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/552352.shtml)
-- 2026-06-29 23:09 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/94450259.shtml)
-- 2026-06-29 23:19 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/50946365.shtml)
-- 2026-06-29 23:30 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/3022882.shtml)
+- 2026-06-29 23:23 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/165411656.shtml)
+- 2026-06-29 23:19 - [急先锋](http://www.share.minike.top/Article/details/4640954377.shtml)
+- 2026-06-29 23:16 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/50404631.shtml)
+- 2026-06-29 23:17 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/364635860947.shtml)
+- 2026-06-29 23:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/8577994.shtml)
+- 2026-06-29 23:36 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/711659026.shtml)
+- 2026-06-29 23:14 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/320846238220.shtml)
+- 2026-06-29 23:17 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/14356.shtml)
+- 2026-06-29 23:28 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/628183.shtml)
+- 2026-06-29 23:35 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/72409303852.shtml)
+- 2026-06-29 23:39 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/0965169.shtml)
+- 2026-06-29 23:13 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/74092190769.shtml)
+- 2026-06-29 23:16 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/925942977615.shtml)
+- 2026-06-29 23:31 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/839474450.shtml)
+- 2026-06-29 23:34 - [极限挑战第一季](http://www.blog.minike.top/Article/details/995026.shtml)

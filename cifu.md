@@ -1,59 +1,56 @@
-# 人民日报经济新方位·精准发力建好“六张网”：新型电网 更强更绿更智能
+# 这只人工智能个股应声大涨，原因解读
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-“十五五”时期投资5万亿元以上，推动西电东送规模超4.2亿千瓦 新型电网 更强更绿更智能（经济新方位·精准发力建好“六张网”） 本报记者 王云杉 窦 皓《人民日报》（2026年05月29日 第 02 版） 电网是连接电力生产和消费的枢纽平台，是新型电力系统的核心环节。随着新能源发电占比不断提升、产业转型升级加速，一张更坚强、更绿色、更智能的电网成为时代所需。 “十五五”时期，我
+核心要点 Nebius集团脱胎于俄罗斯互联网巨头扬克斯，主营图形处理器（GPU）供应，为人工智能模型训练提供算力支撑。 荷兰云服务商Nebius周四盘前股价大涨。此前，一名前 OpenAI 员工创立的基金披露，已大举增持该公司股份。 根据周三公布的监管文件，由前 OpenAI 研究员利奥波德・阿申布伦纳创办的对冲基金态势洞察，目前持有Nebius 1240 万股 A 类股份，持
 
 ## 正文
 
-“十五五”时期投资5万亿元以上，推动西电东送规模超4.2亿千瓦 新型电网 更强更绿更智能（经济新方位·精准发力建好“六张网”） 本报记者 王云杉 窦 皓《人民日报》（2026年05月29日 第 02 版） 电网是连接电力生产和消费的枢纽平台，是新型电力系统的核心环节。
+核心要点 Nebius集团脱胎于俄罗斯互联网巨头扬克斯，主营图形处理器（GPU）供应，为人工智能模型训练提供算力支撑。
 
-随着新能源发电占比不断提升、产业转型升级加速，一张更坚强、更绿色、更智能的电网成为时代所需。
+荷兰云服务商Nebius周四盘前股价大涨。
 
-“十五五”时期，我国着力推进新型电网建设，将投资5万亿元以上，推动西电东送规模达4.2亿千瓦以上，有力保障13.5万亿千瓦时用电需求，支撑“双碳”目标实现和能源强国建设。
+此前，一名前 OpenAI 员工创立的基金披露，已大举增持该公司股份。
 
-适应能源结构转型，筑牢能源安全防线 浙江省余姚大发化纤有限公司厂房的屋顶上，5000千瓦的光伏板整齐排列。
+根据周三公布的监管文件，由前 OpenAI 研究员利奥波德・阿申布伦纳创办的对冲基金态势洞察，目前持有Nebius 1240 万股 A 类股份，持股比例达 5.6%。
 
-“屋顶光伏板发的电总体上能满足生产需要，但是存在波动性。
+该基金管理着数十亿美元资产，主要投资人工智能发展所需的实体基础设施领域。
 
-我们仍要接入大电网，光伏大发时余电上网，出力不足时电网兜底保障。
+Nebius在美国上市，该股盘前涨幅一度达到 11%，今年以来累计涨幅已达 149%。
 
-”该公司总经理沈军耀介绍。
+如今Nebius已成为欧洲核心的人工智能算力服务商。
 
-大规模新能源装机在助力企业绿色发展的同时，也带来挑战：光伏“看天吃饭”，阴天、下雨都会导致发电量骤降。
+近几个月来，公司接连达成多项重磅合作：今年 3 月，其与元宇宙达成总额 270 亿美元的合作协议。
 
 ## 相关推荐
 
-- 2026-06-29 23:08 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 23:34 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 23:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 23:16 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 23:20 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 23:33 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 23:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 23:13 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 23:21 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 23:31 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 23:18 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 23:11 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 23:23 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 23:16 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 23:20 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 23:39 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 23:12 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 23:21 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 23:15 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 23:19 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 23:25 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 23:19 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 23:28 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:32 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/1833933016.shtml)
-- 2026-06-29 23:35 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/976667699.shtml)
-- 2026-06-29 23:20 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/8804850.shtml)
-- 2026-06-29 23:16 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/11598666.shtml)
-- 2026-06-29 23:31 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/29847326.shtml)
-- 2026-06-29 23:22 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/5181341706.shtml)
-- 2026-06-29 23:20 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/233289.shtml)
-- 2026-06-29 23:12 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/208232127466.shtml)
-- 2026-06-29 23:30 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/54473835.shtml)
-- 2026-06-29 23:10 - [明星大侦探第一季](https://www.share.minike.top/Article/details/17706141810.shtml)
-- 2026-06-29 23:31 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/41936450.shtml)
-- 2026-06-29 23:33 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/434005962.shtml)
-- 2026-06-29 23:14 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/64227944.shtml)
-- 2026-06-29 23:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/2109197.shtml)
-- 2026-06-29 23:35 - [TOP Prada](http://www.blog.minike.top/Article/details/80526504685.shtml)
+- 2026-06-29 23:28 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/58967.shtml)
+- 2026-06-29 23:34 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/8596778128.shtml)
+- 2026-06-29 23:29 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/0519196.shtml)
+- 2026-06-29 23:40 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/0570447105.shtml)
+- 2026-06-29 23:19 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/57702336877.shtml)
+- 2026-06-29 23:20 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/6877447646.shtml)
+- 2026-06-29 23:23 - [记者：预计热火将追求小哈达威和康利](https://www.blog.minike.top/Article/details/491347.shtml)
+- 2026-06-29 23:14 - [时光音乐会](https://www.share.minike.top/Article/details/537143590.shtml)
+- 2026-06-29 23:12 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/5859030364.shtml)
+- 2026-06-29 23:41 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/690647241.shtml)
+- 2026-06-29 23:37 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/9806684444.shtml)
+- 2026-06-29 23:15 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/053891170797.shtml)
+- 2026-06-29 23:31 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/273286658924.shtml)
+- 2026-06-29 23:21 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/411301.shtml)
+- 2026-06-29 23:41 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/8304094.shtml)

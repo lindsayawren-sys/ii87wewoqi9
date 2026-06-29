@@ -1,60 +1,56 @@
-# （经济观察）深耕“蓝色药库” 中国海洋生物医药产业加速壮大
+# 金价，还在跌
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新社北京5月28日电 (记者 阮煜琳)中国自然资源部等八部门近日联合印发《关于加快海洋药物和功能制品高质量发展的指导意见》(下称意见)，这是中国首部国家层面支持海洋生物医药产业发展的政策性文件。多位受访专家表示，该指导意见具有里程碑意义。自然资源部海洋战略规划与经济司司长沈君28日在北京举行的新闻发布会上表示，意见聚焦产业难点、痛点和堵点问题，针对性地提出相关举措，统筹加强海
+文章来源：中国经济网 国际金价与银价周三承压下跌，金价跌破每盎司4500美元关口。截至收盘，纽约商品交易所6月交割的黄金期价收于每盎司4448.40美元，跌幅为1.20%。 28日，现货黄金向下跌破4400美元，截至北京时间16时25分，现货黄金报4392.19美元/盎司。 媒体查询发现，28日，国内金饰价格同步大幅下跌，周生生单日下跌26元/克，老庙、老凤祥黄金单日下跌22元
 
 ## 正文
 
-中新社北京5月28日电 (记者 阮煜琳)中国自然资源部等八部门近日联合印发《关于加快海洋药物和功能制品高质量发展的指导意见》(下称意见)，这是中国首部国家层面支持海洋生物医药产业发展的政策性文件。
+文章来源：中国经济网 国际金价与银价周三承压下跌，金价跌破每盎司4500美元关口。
 
-多位受访专家表示，该指导意见具有里程碑意义。
+截至收盘，纽约商品交易所6月交割的黄金期价收于每盎司4448.40美元，跌幅为1.20%。
 
-自然资源部海洋战略规划与经济司司长沈君28日在北京举行的新闻发布会上表示，意见聚焦产业难点、痛点和堵点问题，针对性地提出相关举措，统筹加强海洋生物医药产业“资源链+科技链+产业链+应用链”全链条创新体系建设，推动科技创新和产业创新深度融合。
+28日，现货黄金向下跌破4400美元，截至北京时间16时25分，现货黄金报4392.19美元/盎司。
 
-海洋生物量占地球总生物量87%，物种丰度远超陆地，是巨大的药源宝库。
+媒体查询发现，28日，国内金饰价格同步大幅下跌，周生生单日下跌26元/克，老庙、老凤祥黄金单日下跌22元/克，相比5月内最高点已跌超100元。
 
-中国海洋大学教授、青岛海洋生物医药研究院执行院长张栋华说，“蓝色药库”喻指通过科技创新，从海洋蕴藏的丰富资源中开发出能够维护人民生命健康的生物医药和健康产品。
+金价横盘之下，多家国际投行近期纷纷下调了金价展望。
 
-意见为“蓝色药库”全链条创新与高质量建设提供了政策指引。
+摩根士丹利则将下半年目标价从5700美元/盎司下调至5200美元/盎司；花旗将2026年金价“缓慢回落”作为基准情景，赋予50%的最高概率，目标价3650美元/盎司。
 
-近年来，中国海洋生物医药产业得到长足发展，2025年产业增加值已达996亿元(人民币，下同)，“十四五”以来增长了近四成，产业链涵盖海洋创新药物、海洋保健食品、海洋生物材料、海洋生物制品等领域，其中壳聚糖、海藻酸钠等原料级产品产量占全球份额超80%，自主研发海洋药物品类约占全球上市总品类28%。
+伴随金价出现震荡下行，市场投资情绪也有所“降温”。
 
-意见明确，力争到2030年，多项海洋创新药上市，产业增加值突破1300亿元，创新能力和集聚水平显著提升，综合实力进入国际前列。
+据悉，多家银行顺势调整积存金业务。
 
 ## 相关推荐
 
-- 2026-06-29 23:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 23:07 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 23:16 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 23:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 23:13 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 23:21 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 23:33 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 23:33 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 23:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 23:23 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 23:09 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 23:29 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 23:07 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 23:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 23:32 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 23:13 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 23:16 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 23:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 23:19 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 23:40 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 23:35 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 23:25 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 23:34 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 23:37 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:24 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/48264594885.shtml)
-- 2026-06-29 23:11 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/477089.shtml)
-- 2026-06-29 23:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/543373292538.shtml)
-- 2026-06-29 23:31 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/2478509.shtml)
-- 2026-06-29 23:20 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/45320.shtml)
-- 2026-06-29 23:27 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/33138070259.shtml)
-- 2026-06-29 23:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/96241229686.shtml)
-- 2026-06-29 23:24 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/55816381369.shtml)
-- 2026-06-29 23:27 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/8421985.shtml)
-- 2026-06-29 23:33 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/27052929.shtml)
-- 2026-06-29 23:26 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/671216.shtml)
-- 2026-06-29 23:14 - [流金岁月](https://www.share.minike.top/Article/details/462179140.shtml)
-- 2026-06-29 23:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/8781419485.shtml)
-- 2026-06-29 23:32 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/79374.shtml)
-- 2026-06-29 23:08 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/628829.shtml)
+- 2026-06-29 23:36 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/2129702375.shtml)
+- 2026-06-29 23:32 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/381331699.shtml)
+- 2026-06-29 23:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/6361222686.shtml)
+- 2026-06-29 23:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/5198991723.shtml)
+- 2026-06-29 23:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/8217726494.shtml)
+- 2026-06-29 23:24 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/422040160404.shtml)
+- 2026-06-29 23:24 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/1683518.shtml)
+- 2026-06-29 23:17 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/623135874.shtml)
+- 2026-06-29 23:15 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.minike.top/Article/details/2005986325.shtml)
+- 2026-06-29 23:36 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/89685742.shtml)
+- 2026-06-29 23:39 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/09031.shtml)
+- 2026-06-29 23:25 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/3652567353.shtml)
+- 2026-06-29 23:33 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/426344714367.shtml)
+- 2026-06-29 23:24 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/614470.shtml)
+- 2026-06-29 23:14 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/879751282.shtml)

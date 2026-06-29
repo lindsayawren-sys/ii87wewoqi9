@@ -1,59 +1,60 @@
-# 2026年初市场波动冲击养老储蓄，大批储户资产跌出百万美元行列
+# 黄金牛市还在吗？关键在4370美元这一“生死线”
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-2026 年开年，养老储蓄群体遭遇不小冲击。 富达投资最新报告显示，截至 3 月末，美国 401 （k） 退休账户平均余额较年初下滑 4%，降至 14.1 万美元；个人退休账户（IRA）平均余额同样下跌 4%，为 13.14 万美元。随着账户资产缩水，账户资产达到百万美元及以上的养老投资者人数也随之减少。 账户余额回落，反映出美国股市一季度走势疲软：标普 500 指数累计下跌
+来源：华尔街见闻 黄金多头正面临2026年以来最严峻的考验。受美伊冲突升级、美联储鹰派信号及美元走强三重压力叠加，金价连续两日下挫，一度跌至近两个月低点，距离决定牛熊走向的关键技术支撑仅一步之遥。 周四，现货黄金日内最大跌幅达2%，触及每盎司约4365美元，截至目前报4388.85美元，跌幅1.51%。 消息面上，据央视新闻，美国军队对霍尔木兹海峡附近伊朗军事目标实施打击，伊斯
 
 ## 正文
 
-2026 年开年，养老储蓄群体遭遇不小冲击。
+来源：华尔街见闻 黄金多头正面临2026年以来最严峻的考验。
 
-富达投资最新报告显示，截至 3 月末，美国 401 （k） 退休账户平均余额较年初下滑 4%，降至 14.1 万美元；个人退休账户（IRA）平均余额同样下跌 4%，为 13.14 万美元。
+受美伊冲突升级、美联储鹰派信号及美元走强三重压力叠加，金价连续两日下挫，一度跌至近两个月低点，距离决定牛熊走向的关键技术支撑仅一步之遥。
 
-随着账户资产缩水，账户资产达到百万美元及以上的养老投资者人数也随之减少。
+周四，现货黄金日内最大跌幅达2%，触及每盎司约4365美元，截至目前报4388.85美元，跌幅1.51%。
 
-账户余额回落，反映出美国股市一季度走势疲软：标普 500 指数累计下跌 4.3%，纳斯达克综合指数跌幅达 7%，罗素 2000 小盘股指数基本持平。
+消息面上，据央视新闻，美国军队对霍尔木兹海峡附近伊朗军事目标实施打击，伊斯兰革命卫队随即宣称对美军基地发动反击，科威特防空系统也宣布应对导弹和无人机威胁，和平谈判前景急剧恶化。
 
-不过纵向对比来看，401 （k） 账户平均余额较去年同期仍上涨 11%；403 （b） 账户平均余额同比增长 13%；个人退休账户平均余额较去年一季度攀升 7%。
+与此同时，美联储官员Lisa Cook周三表示通胀走势方向有误，并表示若情况持续将准备加息，进一步打压市场情绪。
 
-富达投资副总裁柯尔斯滕・亨特・彼得森在接受雅虎财经采访时表示：“尽管本季度市场出现波动，但选择提高储蓄比例的参与者有所增加，调整资产配置的人数则有所减少。
+布伦特原油价格随之飙升至每桶98美元附近，通胀预期升温，市场对美联储降息的押注大幅退潮。
 
-这两点都有助于为退休生活筑牢财务根基。
+CME美联储观察工具显示，交易员目前定价9月前零降息，10月加息概率亦在上升。
 
-” 储蓄比例创下历史新高 近五分之一的账户参与者上调了储蓄比例，这一现象很大程度上得益于企业养老金计划自带的年度自动提存机制。
+黄金本周累计跌幅已超3%，自2月底伊朗战争爆发以来累计下跌逾17%，年内涨幅几近抹平。
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 23:13 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 23:07 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 23:24 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 23:08 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 23:24 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 23:25 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 23:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 23:18 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 23:12 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 23:25 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 23:22 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 23:24 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 23:31 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 23:12 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 23:14 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 23:35 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 23:16 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 23:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 23:22 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 23:30 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 23:27 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 23:19 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 23:35 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 23:22 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 23:26 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 23:20 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:23 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/7401272.shtml)
-- 2026-06-29 23:19 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.kurohicncr.top/Article/details/71116469328.shtml)
-- 2026-06-29 23:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/333651.shtml)
-- 2026-06-29 23:20 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/911135245614.shtml)
-- 2026-06-29 23:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/98297.shtml)
-- 2026-06-29 23:08 - [起风了](http://www.share.kurohicncr.top/Article/details/678445567.shtml)
-- 2026-06-29 23:23 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/488338657061.shtml)
-- 2026-06-29 23:20 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/85573877272.shtml)
-- 2026-06-29 23:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/64675403794.shtml)
-- 2026-06-29 23:08 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/01664.shtml)
-- 2026-06-29 23:33 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/44445503.shtml)
-- 2026-06-29 23:32 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/83129866965.shtml)
-- 2026-06-29 23:14 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/429883560.shtml)
-- 2026-06-29 23:13 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/1548029076.shtml)
-- 2026-06-29 23:14 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/1964155.shtml)
+- 2026-06-29 23:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/16284305.shtml)
+- 2026-06-29 23:12 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/01280731.shtml)
+- 2026-06-29 23:25 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/075286076.shtml)
+- 2026-06-29 23:34 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/0221892961.shtml)
+- 2026-06-29 23:35 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/275772059396.shtml)
+- 2026-06-29 23:16 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/264779493.shtml)
+- 2026-06-29 23:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/704997144.shtml)
+- 2026-06-29 23:24 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/8750146.shtml)
+- 2026-06-29 23:30 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/60104636.shtml)
+- 2026-06-29 23:33 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/14063982.shtml)
+- 2026-06-29 23:27 - [绘画区你赢了](http://www.share.minike.top/Article/details/3618693328.shtml)
+- 2026-06-29 23:21 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/288199102.shtml)
+- 2026-06-29 23:25 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/048840532313.shtml)
+- 2026-06-29 23:39 - [我们的少年时代2](https://www.blog.minike.top/Article/details/6987513062.shtml)
+- 2026-06-29 23:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/82197356.shtml)

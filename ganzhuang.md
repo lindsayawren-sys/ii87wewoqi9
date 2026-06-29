@@ -1,59 +1,60 @@
-# 全文|理想汽车Q1业绩会实录：自研AI芯片和大模型让“挖人”竞争彻底失效
+# 威创股份索赔时效仅剩半年，已有一审胜诉判决
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 理想汽车公布2026年第一季度财报：一季度累计实现交付量95142辆，同比增长2.5%；整体营收230亿元，季末现金储备943亿元，连续10个季度保持千亿左右的资金规模。 财报发布后，理想汽车管理层召开了电话会议，公司董事长兼CEO李想，CFO李铁，总裁马东辉和首席技术官（CTO）谢炎等高管参加会议，并回答了分析师提问。 以下为本次电话会议
+登录新浪财经APP 搜索【信披】查看更多考评等级 上海沪紫律师事务所刘鹏律师代理的威创股份虚假陈述案，近日收到一批胜诉判决。即便已退市，威创股份仍面临投资者的依法索赔。（刘鹏律师专栏） 依据判决于2023年6月19日-2023年12月22日期间买入，并在2023年12月23日之后卖出或仍持有而亏损的投资者还可加入。（威创股份维权入口） 鉴于已有一审胜诉判决，后续同类型案件也将更
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 理想汽车公布2026年第一季度财报：一季度累计实现交付量95142辆，同比增长2.5%；整体营收230亿元，季末现金储备943亿元，连续10个季度保持千亿左右的资金规模。
+登录新浪财经APP 搜索【信披】查看更多考评等级 上海沪紫律师事务所刘鹏律师代理的威创股份虚假陈述案，近日收到一批胜诉判决。
 
-财报发布后，理想汽车管理层召开了电话会议，公司董事长兼CEO李想，CFO李铁，总裁马东辉和首席技术官（CTO）谢炎等高管参加会议，并回答了分析师提问。
+即便已退市，威创股份仍面临投资者的依法索赔。
 
-以下为本次电话会议分析师问答环节的主要内容： 摩根士丹利分析师Tim Hsiao：感谢接受我的提问。
+（刘鹏律师专栏） 依据判决于2023年6月19日-2023年12月22日期间买入，并在2023年12月23日之后卖出或仍持有而亏损的投资者还可加入。
 
-我有两个问题，第一个问题是有关于我们新车型 L9，刚才我听到李想总提到了，就是说上市以来的话，大概理想这边有超过 1 万的订单。
+（威创股份维权入口） 鉴于已有一审胜诉判决，后续同类型案件也将更快获得处理，符合要求的可积极参与。
 
-想首先请教一下，这理想 L9 就是整体的订单表现如何？
+值得注意的是该案诉讼时效将在2026年12月到期，仅剩半年，符合要求的投资者建议尽早参与索赔。
 
-然后 L8 版本目前也看到，觉得这周期已经是 9~11 周，想请问一下公司产能目前准备如何？
+回溯威创股份退市前，2023年12月23日，威创股份发布了一则公告，其中不仅公司实际控制人发生了变更，而且新实控人划走了公司13亿现金未归还。
 
-另外一块就是公司在季度的指引中，L9 这块占的份额有多少？
+同日，公司收到证监会立案调查通知。
 
-马东辉：全新的 L9，从订单结构来看的话，其中主力的 Livis 版本订单占比将近 90%，然后顶配的Ultra版本的话占比是 10%，这也充分体现了用户认可车型的话高阶技术的价值，愿意为高端配置买单，也标志着理想增程产品正式稳固，在 50 万以上的高端市场，也实现了品牌向上的突破，后续我们也将重点去强化Ultra版本的产品力传播，进一步优化订单的结构。
+2025年2月21日，公司收到证监会广东监管局下发的《行政处罚决定书》，广东证监局依法对公司及相关人员作出行政处罚及采取市场禁入措施，对公司及相关人员开出合计5670万元的“罚单”，惩罚金额接近顶格。
 
 ## 相关推荐
 
-- 2026-06-29 23:35 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 23:10 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 23:08 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 23:16 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 23:34 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 23:12 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 23:27 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 23:22 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 23:35 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 23:06 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 23:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 23:21 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 23:20 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 23:13 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 23:14 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 23:14 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 23:31 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 23:34 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 23:20 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 23:25 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 23:29 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 23:30 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 23:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 23:16 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 23:33 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 23:26 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 23:32 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/843841.shtml)
-- 2026-06-29 23:18 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/27357.shtml)
-- 2026-06-29 23:20 - [一汽大众黄金超混技术来袭](http://www.share.kurohicncr.top/Article/details/60515428910.shtml)
-- 2026-06-29 23:19 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/965224507.shtml)
-- 2026-06-29 23:17 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/2216562830.shtml)
-- 2026-06-29 23:18 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/9579374.shtml)
-- 2026-06-29 23:35 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/285889954487.shtml)
-- 2026-06-29 23:36 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/49018873459.shtml)
-- 2026-06-29 23:13 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/26309.shtml)
-- 2026-06-29 23:24 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/45013.shtml)
-- 2026-06-29 23:26 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/583479.shtml)
-- 2026-06-29 23:28 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/45765783177.shtml)
-- 2026-06-29 23:32 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/998207486519.shtml)
-- 2026-06-29 23:17 - [恋与深空7天掉粉超50万](https://www.blog.minike.top/Article/details/32567973.shtml)
-- 2026-06-29 23:13 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/59991148648.shtml)
+- 2026-06-29 23:41 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/8062521938.shtml)
+- 2026-06-29 23:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/34196176377.shtml)
+- 2026-06-29 23:20 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/84763629431.shtml)
+- 2026-06-29 23:34 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/31287.shtml)
+- 2026-06-29 23:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/974053.shtml)
+- 2026-06-29 23:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/336073607.shtml)
+- 2026-06-29 23:41 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/39003.shtml)
+- 2026-06-29 23:21 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/921060454336.shtml)
+- 2026-06-29 23:16 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/134489885736.shtml)
+- 2026-06-29 23:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/49041943.shtml)
+- 2026-06-29 23:15 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/4830421.shtml)
+- 2026-06-29 23:27 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/433992434.shtml)
+- 2026-06-29 23:35 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/47662133.shtml)
+- 2026-06-29 23:15 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/345994.shtml)
+- 2026-06-29 23:40 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/967417762.shtml)

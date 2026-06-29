@@ -1,60 +1,56 @@
-# 广西百色500千伏蓝田站配套线路工程投产 赋能百业千家
+# 美媒称，美军再次打击伊朗
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-中新网百色5月28日电 (韦露 黄一浩 林洁琪)5月28日，南方电网广西电网公司介绍，随着最后一回220千伏线路——天隆Ⅱ线成功带电投运，南方电网500千伏蓝田变电站配套线路工程(以下简称“工程”)于27日全面竣工投产。 这项总投资9873万元、新建改造220千伏线路约56千米、建设220千伏出线9回的重大电网工程，为实现百色西北部电网结构质的飞跃，也为革命老区振兴、铝工业升级
+中新社华盛顿5月27日电 据美联社等多家美国媒体报道，美军27日向伊朗南部港口城市阿巴斯港的一处地面无人机控制站实施打击。 这是美军三天之内第二次对伊朗发动短暂的军事打击。美军25日曾对伊朗南部的导弹发射阵地和布设水雷的船只发动“自卫性”打击。 美联社27日援引美方匿名官员的消息称，美军当天的行动同样属于“防御性质”。美军在霍尔木兹海峡击落了4架无人机，在伊方的地面无人机控制站
 
 ## 正文
 
-中新网百色5月28日电 (韦露 黄一浩 林洁琪)5月28日，南方电网广西电网公司介绍，随着最后一回220千伏线路——天隆Ⅱ线成功带电投运，南方电网500千伏蓝田变电站配套线路工程(以下简称“工程”)于27日全面竣工投产。
+中新社华盛顿5月27日电 据美联社等多家美国媒体报道，美军27日向伊朗南部港口城市阿巴斯港的一处地面无人机控制站实施打击。
 
-这项总投资9873万元、新建改造220千伏线路约56千米、建设220千伏出线9回的重大电网工程，为实现百色西北部电网结构质的飞跃，也为革命老区振兴、铝工业升级和绿色能源转型筑牢坚实基础。
+这是美军三天之内第二次对伊朗发动短暂的军事打击。
 
-工程主要分布在百色西北部的田林县、隆林各族自治县，工程投运后，百色西北部电网架构进一步优化，从供电“末梢”跃升为区域枢纽。
+美军25日曾对伊朗南部的导弹发射阵地和布设水雷的船只发动“自卫性”打击。
 
-百色是广西铝产业发展的核心区。
+美联社27日援引美方匿名官员的消息称，美军当天的行动同样属于“防御性质”。
 
-依托蓝田站配套线路工程，田林、隆林两县近百万千瓦的铝工业负荷可实现就近接入，供电距离缩短150公里以上，有效降低线路损耗，提高供电可靠性。
+美军在霍尔木兹海峡击落了4架无人机，在伊方的地面无人机控制站准备发射第5架无人机时，美军对其实施了打击。
 
-同时，新建田林～隆林百矿铝Ⅰ回220千伏线路，与原有供电路径形成双电源配置，为隆林铝产业提供可靠供电保障。
+美国总统特朗普当天在白宫举行的内阁会议上表示，美伊谈判“进展顺利”，但并未透露更多细节。
 
-广西隆林百矿铝业有限公司供电车间主任陈光洪说：“我们过去主要依赖平班电厂供电，现在可以从广西大电网稳定获得源源不断的电能，企业生产计划性大幅提升。
+特朗普说，伊朗试图“拖延时间”，但不会成功。
 
-” 新能源发展方面，南方电网广西百色供电局规划发展部经理毛佳介绍，工程进一步打通了清洁能源输送通道，同时为规划的新能源项目预留接入空间，确保“建成即并网、并网即消纳”。
+他不会因为中期选举临近就急于同伊朗达成协议。
 
 ## 相关推荐
 
-- 2026-06-29 23:17 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 23:11 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 23:27 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 23:14 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 23:26 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 23:25 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 23:19 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 23:35 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 23:31 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 23:28 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 23:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 23:17 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 23:17 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 23:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 23:22 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 23:41 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 23:30 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 23:40 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 23:34 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 23:18 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 23:30 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 23:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 23:25 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 23:12 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:12 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/50983.shtml)
-- 2026-06-29 23:30 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/465695865.shtml)
-- 2026-06-29 23:07 - [多人将马路护栏当球网打羽毛球](http://www.blog.kurohicncr.top/Article/details/76302722158.shtml)
-- 2026-06-29 23:10 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/74520.shtml)
-- 2026-06-29 23:07 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/169768380.shtml)
-- 2026-06-29 23:09 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/0826047800.shtml)
-- 2026-06-29 23:27 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/919168.shtml)
-- 2026-06-29 23:20 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/14002938.shtml)
-- 2026-06-29 23:15 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/629474788051.shtml)
-- 2026-06-29 23:30 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/85164.shtml)
-- 2026-06-29 23:12 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/4027612878.shtml)
-- 2026-06-29 23:13 - [蔚来车主罚站](https://www.share.minike.top/Article/details/3620109.shtml)
-- 2026-06-29 23:22 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/6733523.shtml)
-- 2026-06-29 23:34 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/4447017.shtml)
-- 2026-06-29 23:28 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/05465299824.shtml)
+- 2026-06-29 23:27 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/553305.shtml)
+- 2026-06-29 23:16 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/287556618.shtml)
+- 2026-06-29 23:22 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/6506477872.shtml)
+- 2026-06-29 23:18 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/2493847426.shtml)
+- 2026-06-29 23:36 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/563787381902.shtml)
+- 2026-06-29 23:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/975638481.shtml)
+- 2026-06-29 23:21 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/67900.shtml)
+- 2026-06-29 23:14 - [明星大侦探第一季](http://www.share.minike.top/Article/details/589150.shtml)
+- 2026-06-29 23:41 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/383739.shtml)
+- 2026-06-29 23:32 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/51967.shtml)
+- 2026-06-29 23:25 - [沉睡花园](https://www.share.minike.top/Article/details/9712777958.shtml)
+- 2026-06-29 23:22 - [沙丘](https://www.blog.kurohicncr.top/Article/details/65975554717.shtml)
+- 2026-06-29 23:16 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/8447938.shtml)
+- 2026-06-29 23:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/6538264102.shtml)
+- 2026-06-29 23:39 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/283541284.shtml)

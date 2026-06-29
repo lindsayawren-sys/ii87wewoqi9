@@ -1,58 +1,59 @@
-# FDIC：美国银行业一季度关键指标改善 但账面损失略增
+# 全国文化科技卫生“三下乡”集中示范暨“民法典宣传月”推进活动在江西举行
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-美国联邦存款保险公司（FDIC）报告称，尽管面临中东战争和利率上升，美国银行业的关键指标在第一季度有所改善，不过行业的账面损失出现小幅增加。 根据FDIC对全美4278家受保银行进行的季度评估，银行业第一季度的净利润环比增长3.6%，达到805亿美元。贷款和租赁总余额较上一季度增长1.6%，较上年同期增长7.1%，创下2023年第二季度以来的最快年度增速。 FDIC表示，季度盈
+中新网吉安5月29日电 (记者 谢雁冰)今年5月28日，是民法典颁布六周年纪念日。当天，江西省吉安市青原区渼陂古村迎来一场惠民盛宴，2026年全国文化科技卫生“三下乡”(江西省)集中示范暨“民法典宣传月”推进活动在当地举行，把科技、文化、卫生和法律服务送到基层一线。本次活动由司法部、全国普法办、中共江西省委、江西省人民政府共同主办，省委宣传部、省司法厅、中共吉安市委、市政府承办
 
 ## 正文
 
-美国联邦存款保险公司（FDIC）报告称，尽管面临中东战争和利率上升，美国银行业的关键指标在第一季度有所改善，不过行业的账面损失出现小幅增加。
+中新网吉安5月29日电 (记者 谢雁冰)今年5月28日，是民法典颁布六周年纪念日。
 
-根据FDIC对全美4278家受保银行进行的季度评估，银行业第一季度的净利润环比增长3.6%，达到805亿美元。
+当天，江西省吉安市青原区渼陂古村迎来一场惠民盛宴，2026年全国文化科技卫生“三下乡”(江西省)集中示范暨“民法典宣传月”推进活动在当地举行，把科技、文化、卫生和法律服务送到基层一线。
 
-贷款和租赁总余额较上一季度增长1.6%，较上年同期增长7.1%，创下2023年第二季度以来的最快年度增速。
+本次活动由司法部、全国普法办、中共江西省委、江西省人民政府共同主办，省委宣传部、省司法厅、中共吉安市委、市政府承办。
 
-FDIC表示，季度盈利增长主要受到大型银行非利息收入强劲增长的推动。
+渼陂古村是一座红色法治文化名村，中央苏区时期“二七”会议曾在这里颁布《赣西南土地法》。
 
-FDIC称，银行业的净息差收窄至3.31%，银行持仓资产的未实现“账面”损失较上一季度增加6.2%，达到3251亿美元，3月住房贷款利率的上行导致抵押贷款支持证券的估值缩水。
+新时代的渼陂古村大力弘扬红色法治文化，传承红色法治基因，积极推动红色法治文化阵地建设，探索出一条“红色+法治”的乡村治理新路径。
 
-第一季度用于在银行倒闭时为储户提供赔付的FDIC存款保险基金规模增加36亿美元，至1574亿美元。
+暖场环节，江西本土普法IP“赣法宝”成为全场焦点。
 
-受到监管机构额外审查的“问题银行”数量减少6家至54家，处于历史正常水平。
+这个融合青花瓷元素、井冈山与滕王阁等赣鄱特色印记的普法小精灵，凭借装满法律知识的“魔法口袋”、趣味十足的动漫形象圈粉无数。
 
-当季FDIC仅记录了一起银行倒闭事件。
+现场播放的《赣法宝说民法典》动画短片，用幽默风趣的语言解读民法典，把严肃的法条变成大家听得懂、用得上的生活常识。
 
 ## 相关推荐
 
-- 2026-06-29 23:33 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 23:27 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 23:11 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 23:34 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 23:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 23:35 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 23:14 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 23:32 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 23:35 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 23:07 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 23:13 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 23:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 23:36 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 23:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 23:32 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 23:41 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 23:13 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 23:14 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 23:22 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 23:29 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 23:18 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 23:31 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 23:30 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 23:19 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 23:21 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:07 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/17945028.shtml)
-- 2026-06-29 23:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/314188.shtml)
-- 2026-06-29 23:23 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/9556928959.shtml)
-- 2026-06-29 23:17 - [田曦薇没招了](https://www.blog.minike.top/Article/details/0782880.shtml)
-- 2026-06-29 23:12 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/2206537.shtml)
-- 2026-06-29 23:32 - [美股](https://www.share.minike.top/Article/details/90828278.shtml)
-- 2026-06-29 23:18 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/362015672.shtml)
-- 2026-06-29 23:21 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/624169623.shtml)
-- 2026-06-29 23:17 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/12560.shtml)
-- 2026-06-29 23:20 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/56639.shtml)
-- 2026-06-29 23:35 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/908363399706.shtml)
-- 2026-06-29 23:26 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/6728919.shtml)
-- 2026-06-29 23:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/70016694794.shtml)
-- 2026-06-29 23:30 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/219737315479.shtml)
-- 2026-06-29 23:07 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/08241.shtml)
+- 2026-06-29 23:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/90221.shtml)
+- 2026-06-29 23:28 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/85698841925.shtml)
+- 2026-06-29 23:32 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/598241.shtml)
+- 2026-06-29 23:30 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/1931086.shtml)
+- 2026-06-29 23:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/35423.shtml)
+- 2026-06-29 23:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/2919945.shtml)
+- 2026-06-29 23:22 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/82073.shtml)
+- 2026-06-29 23:22 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/91082885.shtml)
+- 2026-06-29 23:33 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/226551.shtml)
+- 2026-06-29 23:26 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/02413769327.shtml)
+- 2026-06-29 23:22 - [毒液2](http://www.blog.kurohicncr.top/Article/details/231615046951.shtml)
+- 2026-06-29 23:33 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/91814341179.shtml)
+- 2026-06-29 23:39 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/83627032937.shtml)
+- 2026-06-29 23:26 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/4839067.shtml)
+- 2026-06-29 23:38 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/62804447.shtml)

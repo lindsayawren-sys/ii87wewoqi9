@@ -1,59 +1,50 @@
-# 江西银行：钱正获聘任为首席合规官
+# 人民币兑美元中间价报6.8240，上调51点 升值至2023年2月15日以来最高！
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-5月28日金融一线消息，江西银行发布公告称，董事会已审议通过聘任钱正担任首席合规官的议案，任期自国家金融监督管理总局江西监管局核准其任职资格之日起至江西银行第四届董事会任期届满之日止。 简历显示，钱正，1976年1月生，高级经济师。1998年9月至2002年9月，任职于上饶市公安局法制科三级警司。2005年7月至2016年6月，任职于中国人民银行南昌中心支行先后担任办公室干部、
+5月28日，人民币兑美元中间价报6.8240，上调51点。升值至2023年2月15日以来最高。 美联储6月维持利率不变的概率为99.9% 据CME“美联储观察”：美联储到6月维持利率不变的概率为99.9%，累计降息25个基点的概率为0.1%。美联储到7月维持利率不变的概率为91.4%，累计加息25个基点的概率8.5%。责任编辑：郭建
 
 ## 正文
 
-5月28日金融一线消息，江西银行发布公告称，董事会已审议通过聘任钱正担任首席合规官的议案，任期自国家金融监督管理总局江西监管局核准其任职资格之日起至江西银行第四届董事会任期届满之日止。
+5月28日，人民币兑美元中间价报6.8240，上调51点。
 
-简历显示，钱正，1976年1月生，高级经济师。
+升值至2023年2月15日以来最高。
 
-1998年9月至2002年9月，任职于上饶市公安局法制科三级警司。
+美联储6月维持利率不变的概率为99.9% 据CME“美联储观察”：美联储到6月维持利率不变的概率为99.9%，累计降息25个基点的概率为0.1%。
 
-2005年7月至2016年6月，任职于中国人民银行南昌中心支行先后担任办公室干部、副主任科员、法律事务办公室副主任（正科）、法律事务处（金融消费权益保护处）金融消费权益保护科科长。
+美联储到7月维持利率不变的概率为91.4%，累计加息25个基点的概率8.5%。
 
-2016年6月至2026年2月，先后担任江西银行合规部副总经理、合规部总经理、鹰潭分行党委书记、行长。
-
-自2026年2月起，担任江西银行合规部总经理。
-
-责任编辑：秦艺
+责任编辑：郭建
 
 ## 相关推荐
 
-- 2026-06-29 23:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 23:06 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 23:34 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 23:32 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 23:34 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 23:27 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 23:21 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 23:24 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 23:32 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 23:29 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 23:28 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 23:22 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 23:20 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 23:15 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 23:13 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 23:23 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 23:40 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 23:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 23:16 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 23:26 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 23:29 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 23:20 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 23:17 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 23:37 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 23:23 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:12 - [美股](http://www.blog.kurohicncr.top/Article/details/90357305.shtml)
-- 2026-06-29 23:22 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/62913699.shtml)
-- 2026-06-29 23:30 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/644210803239.shtml)
-- 2026-06-29 23:07 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/32412.shtml)
-- 2026-06-29 23:20 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/5733317569.shtml)
-- 2026-06-29 23:22 - [巴西10号球衣是天才传承史](https://www.share.minike.top/Article/details/0353305.shtml)
-- 2026-06-29 23:08 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/809783.shtml)
-- 2026-06-29 23:29 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/27163714.shtml)
-- 2026-06-29 23:19 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/80651310420.shtml)
-- 2026-06-29 23:22 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/105539.shtml)
-- 2026-06-29 23:27 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/32017291044.shtml)
-- 2026-06-29 23:27 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/450653749599.shtml)
-- 2026-06-29 23:24 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/109426024.shtml)
-- 2026-06-29 23:06 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/37062.shtml)
-- 2026-06-29 23:14 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/37207570536.shtml)
+- 2026-06-29 23:38 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/82930135606.shtml)
+- 2026-06-29 23:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/43308.shtml)
+- 2026-06-29 23:40 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/148520833561.shtml)
+- 2026-06-29 23:31 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/8039037.shtml)
+- 2026-06-29 23:40 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/345395629.shtml)
+- 2026-06-29 23:36 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/1701177.shtml)
+- 2026-06-29 23:13 - [绘画区你赢了](https://www.share.minike.top/Article/details/707759184.shtml)
+- 2026-06-29 23:33 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.minike.top/Article/details/498505131.shtml)
+- 2026-06-29 23:20 - [炽夏](https://www.blog.minike.top/Article/details/6685053.shtml)
+- 2026-06-29 23:35 - [这一刀 会很帅](http://www.share.minike.top/Article/details/7829134.shtml)
+- 2026-06-29 23:20 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/02749090924.shtml)
+- 2026-06-29 23:22 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/48778.shtml)
+- 2026-06-29 23:30 - [国际清算银行警告AI投资热潮](http://www.blog.kurohicncr.top/Article/details/17374.shtml)
+- 2026-06-29 23:15 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/14378791.shtml)
+- 2026-06-29 23:17 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/995827.shtml)

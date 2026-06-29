@@ -1,57 +1,47 @@
-# 多国“洋网红”走进中国（庐山）杏林文化园 沉浸式感受中医药文化魅力
+# IGG授出136.9万股奖励股份及25.197万股受限制股份
 
-> 更新时间：2026-06-29 23:36:02 UTC+8
+> 更新时间：2026-06-29 23:42:02 UTC+8
 
 ## 摘要
 
-德国汉学家培高德：德国社会如何更好理解当代中国？武契奇品尝的嘉兴原汤粽有多鲜？利润暴跌，日系车巨头集体失速倒计时10天！今年高考有哪些新变化？林志玲辞任董事的台湾“文策院”，是个什么机构？国家首次专门发文，解决未落户常住人口急难愁盼英法加澳频繁介入西太平洋局势，“刷存在感”背后安全格局生变？这里的荔枝，何以C位出道？美伊谈判仍在继续 美以伊最新局势一文速览武契奇夫人塔玛拉体验中
+IGG（00799）发布公告，于2026年5月27日，董事会（包括全体独立非执行董事，惟身为股份奖励承授人的相关董事就其本人获授奖励股份一事已放弃投票者除外）议决，（1）根据股份奖励计划向九名股份奖励承授人（均为董事，乃根据公司薪酬委员会的推荐）授出合共136.9万股奖励股份；及（2）根据股份激励计划向六名受限制股份承授人授出合共25.197万股受限制股份，惟须待各相关股份奖励
 
 ## 正文
 
-德国汉学家培高德：德国社会如何更好理解当代中国？
+IGG（00799）发布公告，于2026年5月27日，董事会（包括全体独立非执行董事，惟身为股份奖励承授人的相关董事就其本人获授奖励股份一事已放弃投票者除外）议决，（1）根据股份奖励计划向九名股份奖励承授人（均为董事，乃根据公司薪酬委员会的推荐）授出合共136.9万股奖励股份；及（2）根据股份激励计划向六名受限制股份承授人授出合共25.197万股受限制股份，惟须待各相关股份奖励承授人及受限制股份承授人接纳后，方可作实。
 
-武契奇品尝的嘉兴原汤粽有多鲜？
-
-利润暴跌，日系车巨头集体失速倒计时10天！
-
-今年高考有哪些新变化？
-
-林志玲辞任董事的台湾“文策院”，是个什么机构？
-
-国家首次专门发文，解决未落户常住人口急难愁盼英法加澳频繁介入西太平洋局势，“刷存在感”背后安全格局生变？
-
-这里的荔枝，何以C位出道？
-
-美伊谈判仍在继续 美以伊最新局势一文速览武契奇夫人塔玛拉体验中华文化 提议在塞举办中国服装秀“纸面上的安全堡垒”难守“人命关天”的安全生产防线不到1个月，“巴铁”总统、总理为何先后访华？
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 23:29 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 23:16 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 23:34 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 23:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 23:25 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 23:19 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 23:30 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 23:12 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 23:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 23:23 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 23:35 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 23:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 23:37 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 23:34 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 23:16 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 23:21 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 23:21 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 23:25 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 23:38 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 23:14 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 23:14 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 23:23 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 23:35 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:32 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/332903068170.shtml)
-- 2026-06-29 23:13 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/1676146.shtml)
-- 2026-06-29 23:26 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/370987696214.shtml)
-- 2026-06-29 23:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/159016.shtml)
-- 2026-06-29 23:29 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/278498555.shtml)
-- 2026-06-29 23:12 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/215600024.shtml)
-- 2026-06-29 23:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/2308091663.shtml)
-- 2026-06-29 23:18 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/03794.shtml)
-- 2026-06-29 23:12 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/819003021.shtml)
-- 2026-06-29 23:17 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/805190.shtml)
-- 2026-06-29 23:18 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/618181613549.shtml)
-- 2026-06-29 23:22 - [存储三巨头被告了](http://www.share.minike.top/Article/details/095963324.shtml)
-- 2026-06-29 23:17 - [扫黑风暴](https://www.share.minike.top/Article/details/11544.shtml)
-- 2026-06-29 23:29 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/2902989.shtml)
-- 2026-06-29 23:31 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/339786769674.shtml)
+- 2026-06-29 23:22 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/277489406638.shtml)
+- 2026-06-29 23:13 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/69388.shtml)
+- 2026-06-29 23:17 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/730195266045.shtml)
+- 2026-06-29 23:15 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/70869.shtml)
+- 2026-06-29 23:20 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/82885866.shtml)
+- 2026-06-29 23:41 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/36299693381.shtml)
+- 2026-06-29 23:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/453869785754.shtml)
+- 2026-06-29 23:36 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/546400807.shtml)
+- 2026-06-29 23:34 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/39184231.shtml)
+- 2026-06-29 23:16 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/08765809.shtml)
+- 2026-06-29 23:19 - [时光音乐会](http://www.blog.minike.top/Article/details/20194617.shtml)
+- 2026-06-29 23:26 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/7369223.shtml)
+- 2026-06-29 23:29 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/40282752.shtml)
+- 2026-06-29 23:25 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/10495177.shtml)
+- 2026-06-29 23:14 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/31047768.shtml)
