@@ -1,46 +1,56 @@
-# 巨腾国际公布于5月19日上午起复牌
+# 阿贝尔重申伯克希尔核心经营原则
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-巨腾国际（03336）发布公告，公司股份（证券代号：03336）将于今天（2026年5月19日）上午九时正起恢复买卖。责任编辑：卢昱君
+格雷格・阿贝尔：我们最大的优势之一，是配置资本时保持耐心 阿贝尔重申并坚守前任巴菲特长期推崇的核心投资与经营原则。 阿贝尔向投资者表示，持有美国国债现金储备、保持财务独立、灵活配置资本、税务优化，以及摒弃自大、官僚主义、安于现状这三大弊病，仍是伯克希尔的首要坚守。 阿贝尔称：“我们早已反复听到：自大、官僚作风、固步自封，这些弊病会悄悄侵蚀企业，并最终拖垮公司。我们绝不容许这种情
 
 ## 正文
 
-巨腾国际（03336）发布公告，公司股份（证券代号：03336）将于今天（2026年5月19日）上午九时正起恢复买卖。
+格雷格・阿贝尔：我们最大的优势之一，是配置资本时保持耐心 阿贝尔重申并坚守前任巴菲特长期推崇的核心投资与经营原则。
 
-责任编辑：卢昱君
+阿贝尔向投资者表示，持有美国国债现金储备、保持财务独立、灵活配置资本、税务优化，以及摒弃自大、官僚主义、安于现状这三大弊病，仍是伯克希尔的首要坚守。
+
+阿贝尔称：“我们早已反复听到：自大、官僚作风、固步自封，这些弊病会悄悄侵蚀企业，并最终拖垮公司。
+
+我们绝不容许这种情况在伯克希尔发生。
+
+” 阿贝尔认为，伯克希尔的独特之处在于：既能整合经营各类不同业务，又能高效、灵活地调配资本。
+
+他表示：“我们清楚伯克希尔是一家综合集团，但我们是与众不同的综合集团 —— 资本调配效率极高。
+
+我们可以把资金从保险板块调配至非保险业务、投入股票市场，若有需要，也可以选择以现金形式留存。
+
+”责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 21:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 21:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 21:00 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 21:22 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 21:00 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 21:02 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 21:12 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 21:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 21:15 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 21:28 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 21:09 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 21:00 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 21:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 21:35 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 21:26 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 21:07 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 21:07 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 21:14 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 21:23 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 21:34 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 21:30 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 21:22 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:03 - [周生如故](https://www.blog.minike.top/Article/details/687031594802.shtml)
-- 2026-06-29 21:04 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/807163772757.shtml)
-- 2026-06-29 21:20 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/12079316.shtml)
-- 2026-06-29 21:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/44511.shtml)
-- 2026-06-29 21:07 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/05767049.shtml)
-- 2026-06-29 21:22 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/1321396374.shtml)
-- 2026-06-29 21:17 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/303236731.shtml)
-- 2026-06-29 21:05 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/57551.shtml)
-- 2026-06-29 21:06 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/30046840.shtml)
-- 2026-06-29 21:08 - [斛珠夫人](https://www.blog.minike.top/Article/details/6203273879.shtml)
-- 2026-06-29 21:29 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/036484366463.shtml)
-- 2026-06-29 21:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/299723756646.shtml)
-- 2026-06-29 21:23 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/946098.shtml)
-- 2026-06-29 21:04 - [2026全国田径冠军赛江苏队4金收官](http://www.share.minike.top/Article/details/42721813.shtml)
-- 2026-06-29 21:08 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/21356260595.shtml)
+- 2026-06-29 21:32 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/37682.shtml)
+- 2026-06-29 21:31 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/78083418627.shtml)
+- 2026-06-29 21:32 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/251468088226.shtml)
+- 2026-06-29 21:20 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/3694071972.shtml)
+- 2026-06-29 21:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/8954777.shtml)
+- 2026-06-29 21:34 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/916145298847.shtml)
+- 2026-06-29 21:19 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/42791303.shtml)
+- 2026-06-29 21:28 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/892933394.shtml)
+- 2026-06-29 21:14 - [乔家的儿女](http://www.blog.minike.top/Article/details/144321161437.shtml)
+- 2026-06-29 21:16 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/0238002.shtml)
+- 2026-06-29 21:25 - [王楚钦称抽签结果出来心情不好](http://www.share.kurohicncr.top/Article/details/0676004.shtml)
+- 2026-06-29 21:21 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/3920701542.shtml)
+- 2026-06-29 21:09 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.minike.top/Article/details/4274333887.shtml)
+- 2026-06-29 21:26 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/939993650.shtml)
+- 2026-06-29 21:29 - [Ella回应SHE何时合体](https://www.share.kurohicncr.top/Article/details/38848369.shtml)

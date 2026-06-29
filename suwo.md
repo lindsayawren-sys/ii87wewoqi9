@@ -1,59 +1,60 @@
-# 绕桶、马球、耐力赛，锡林郭勒草原牧民夏日赛马花样多
+# 预测平台Kalshi：霍尔木兹海峡至少要到8月或更晚才能恢复正常
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-一张圆桌映照中国制造全球新坐标平陆运河重塑广西开放新格局赖清德，如何走到被弹劾地步？古今“驴友”大PK，谁才是狠人？低空安全司亮相 万亿级产业“管理双翼”就位港交所上市热潮彰显香港国际金融中心竞争力广西柳州发生5.2级地震 专家分析解读原因与特征大陆对“台独”釜底抽薪，“倚美谋独”的梦该醒了周乾：给故宫“体检”，我闻到了300多年前的灰2025年全国备案博物馆达7188家 免费
+预测市场平台Kalshi的交易员认为，霍尔木兹海峡的航运要到夏末或9月才能恢复正常。 尽管美伊双方维持停火状态，但伊朗尚未表态何时会开放海峡，美国也未宣布何时会解除对该航道的海上封锁。 目前，交易员判断，海峡航运在9月1日前恢复正常的概率为57%；在8月前恢复的概率约为56%。 Kalshi对“正常航运”的定义同上（7日移动平均值超过60艘）。 周一，美伊双方就海峡附近一艘船只
 
 ## 正文
 
-一张圆桌映照中国制造全球新坐标平陆运河重塑广西开放新格局赖清德，如何走到被弹劾地步？
+预测市场平台Kalshi的交易员认为，霍尔木兹海峡的航运要到夏末或9月才能恢复正常。
 
-古今“驴友”大PK，谁才是狠人？
+尽管美伊双方维持停火状态，但伊朗尚未表态何时会开放海峡，美国也未宣布何时会解除对该航道的海上封锁。
 
-低空安全司亮相 万亿级产业“管理双翼”就位港交所上市热潮彰显香港国际金融中心竞争力广西柳州发生5.2级地震 专家分析解读原因与特征大陆对“台独”釜底抽薪，“倚美谋独”的梦该醒了周乾：给故宫“体检”，我闻到了300多年前的灰2025年全国备案博物馆达7188家 免费开放率超91%不满足于台式奶茶的台湾人，疯狂“批发”霸王茶姬回家人这一辈子，一定要去青州看一次“东方微笑”！
+目前，交易员判断，海峡航运在9月1日前恢复正常的概率为57%；在8月前恢复的概率约为56%。
 
-今天是国际博物馆日，我们为什么需要博物馆？
+Kalshi对“正常航运”的定义同上（7日移动平均值超过60艘）。
 
-原来文物也爱“串门”《给阿嬷的情书》导演蓝鸿春:潮汕方言电影因何跨越山海能源危机叠加日元贬值，日本实体经济正为中东战火埋单“肯德基指数”回暖释放消费市场积极信号周末看摩托车赛成国人新爱好洋媳妇开拖拉机刨地种玉米圈粉500万蒙曼：今天诗词走红速度古人无法想象5G基站里藏着哪些硬核科技？
+周一，美伊双方就海峡附近一艘船只的事件发布了相互矛盾的声明。
 
-云南建水：感受彝族烟盒舞的特色风情这首“湘”味十足的Rap里，藏着几千年前的潮流DNA安徽贵池：暮色绘就“千里江山图”赛事美食双向赋能 江苏小龙虾消费市场持续升温河北磁县“小兵马俑”出圈 小众博物馆的“引客”之道北京天坛的奠基土来自山西后土祠？
+伊朗官方媒体声称，伊方发射两枚导弹击中一艘美国军舰，迫使其撤退；美国中央司令部则对此予以否认。
 
-水下仿生机器鱼展演栩栩如生美国博主“车轮哥”带老外组团“朝圣”中国电车“法拉利大叔”自评走红视频醉驾男子路遇检查假装“路人”，交警一眼识破！
+此外，交易员还关注到，阿联酋周一宣布，自停火以来首次成功拦截伊朗导弹。
 
-河南南阳上演“沉浸式拆飞机”名场面夜鹭化身耐心“垂钓者” 上演“守株待鱼”今天，为什么不能打孩子？
+此前，周日（5月3日），美国总统特朗普表示，美军将“引导”自战争爆发以来滞留在海峡附近的船只通行。
 
 ## 相关推荐
 
-- 2026-06-29 21:16 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 21:29 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 21:09 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 21:22 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 21:06 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 21:07 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 21:06 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 21:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 21:24 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 21:03 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 21:11 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 21:15 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 21:11 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 21:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 21:21 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 21:15 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 21:24 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 21:06 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 21:35 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 21:23 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 21:18 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 21:22 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 21:34 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 21:23 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 21:35 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 21:15 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 21:35 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:14 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.kurohicncr.top/Article/details/310539446931.shtml)
-- 2026-06-29 21:01 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/1704434969.shtml)
-- 2026-06-29 21:26 - [委内瑞拉发生余震](https://www.blog.minike.top/Article/details/64828.shtml)
-- 2026-06-29 21:12 - [回顾世界杯争议事件](https://www.share.minike.top/Article/details/90878107637.shtml)
-- 2026-06-29 21:19 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/727618081854.shtml)
-- 2026-06-29 21:16 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.kurohicncr.top/Article/details/9901577.shtml)
-- 2026-06-29 21:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/278542736742.shtml)
-- 2026-06-29 21:20 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/8784010003.shtml)
-- 2026-06-29 21:04 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/34898890.shtml)
-- 2026-06-29 21:01 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/46524073527.shtml)
-- 2026-06-29 21:23 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/5825275357.shtml)
-- 2026-06-29 21:09 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/190487.shtml)
-- 2026-06-29 21:24 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/6802522.shtml)
-- 2026-06-29 21:02 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/4419876198.shtml)
-- 2026-06-29 21:16 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/943000003.shtml)
+- 2026-06-29 21:07 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/95975191.shtml)
+- 2026-06-29 21:32 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/75325.shtml)
+- 2026-06-29 21:35 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/11905.shtml)
+- 2026-06-29 21:13 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/78522554.shtml)
+- 2026-06-29 21:32 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/846624.shtml)
+- 2026-06-29 21:23 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/557694749283.shtml)
+- 2026-06-29 21:35 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/40645750.shtml)
+- 2026-06-29 21:20 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/91036835.shtml)
+- 2026-06-29 21:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/807757086.shtml)
+- 2026-06-29 21:32 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/260936325624.shtml)
+- 2026-06-29 21:23 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/737533848.shtml)
+- 2026-06-29 21:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/64969528613.shtml)
+- 2026-06-29 21:25 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/178982117065.shtml)
+- 2026-06-29 21:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/103319807.shtml)
+- 2026-06-29 21:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/8808152757.shtml)

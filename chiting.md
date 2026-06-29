@@ -1,58 +1,60 @@
-# 两岸百余名青年武汉乐享体育嘉年华
+# 沉下心来干实事、谋长远——“树立和践行正确政绩观”系列评
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中新网武汉5月19日电 (马芙蓉 邵晓明)“加油，加油！”19日下午，中南民族大学体育馆呐喊声此起彼伏。鄂台青年传统体育嘉年华在此举行，两岸百余名青年体验趣味运动，在协作中增进默契与了解。 本次活动以“打卡集章”形式展开，参与者手持“同心手册”，依次体验毽球、跷旱船、太极柔力球、三人板鞋、高脚马、蹴球、同心鼓、投壶等8个传统体育项目。每个项目展台前，两岸青年或组队竞技、或互助体
+人民论坛网评 | 沉下心来干实事、谋长远 ——“树立和践行正确政绩观”系列评 习近平总书记指出，形式主义实质是主观主义、功利主义，根源是政绩观错位、责任心缺失。一些党员干部急功近利，本质上是政绩观有偏差、责任心缺失，把履职尽责作为算计个人得失、权衡利弊的工具。树立和践行正确政绩观，容不得党员干部因追求功利，稀释初心使命、弱化责任担当。 有什么样的政绩观，就有怎样的作为。破除功利
 
 ## 正文
 
-中新网武汉5月19日电 (马芙蓉 邵晓明)“加油，加油！
+人民论坛网评 | 沉下心来干实事、谋长远 ——“树立和践行正确政绩观”系列评 习近平总书记指出，形式主义实质是主观主义、功利主义，根源是政绩观错位、责任心缺失。
 
-”19日下午，中南民族大学体育馆呐喊声此起彼伏。
+一些党员干部急功近利，本质上是政绩观有偏差、责任心缺失，把履职尽责作为算计个人得失、权衡利弊的工具。
 
-鄂台青年传统体育嘉年华在此举行，两岸百余名青年体验趣味运动，在协作中增进默契与了解。
+树立和践行正确政绩观，容不得党员干部因追求功利，稀释初心使命、弱化责任担当。
 
-本次活动以“打卡集章”形式展开，参与者手持“同心手册”，依次体验毽球、跷旱船、太极柔力球、三人板鞋、高脚马、蹴球、同心鼓、投壶等8个传统体育项目。
+有什么样的政绩观，就有怎样的作为。
 
-每个项目展台前，两岸青年或组队竞技、或互助体验。
+破除功利主义，涵养责任担当，关键要树立正确政绩观。
 
-在“跷旱船”项目中，两岸青年对坐于彼此脚上，模拟划船姿态快速行进；“三人板鞋”讲究团队协作，要求三人同步前行，步伐一致方能稳健快速；“高脚马”则考验参与者平衡力及勇气，两岸青年相互鼓劲，完成一次次挑战。
+干事创业，‌要始终牢记“我是谁、为了谁、依靠谁”，摒弃“一分付出兑换一分回报”的功利思维，把“公权为民，一丝一毫都不能私用”刻在心中，在岗位上多比“贡献度”，以实干诠释担当。
 
-“同心鼓”项目格外引人注目。
+算好“全局账”，自觉将本职工作置于发展大局中谋划，做到局部服从整体‌；算好“长远账”，以“功成不必在我”的境界，甘于从事那些周期长、见效慢但利于长远的基础性工作‌；算好“民心账”，坚持把群众满意作为衡量政绩的根本标准。
 
-两岸10名青年共同牵拉绳索，合力颠动皮球，保证皮球不掉落。
+纠正错位的政绩观，需要标本兼治，强化责任担当。
 
 ## 相关推荐
 
-- 2026-06-29 21:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 21:28 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 21:05 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 21:25 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 21:17 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 21:04 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 21:21 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 21:17 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 21:17 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 21:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 21:16 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 21:18 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 21:17 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 21:07 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 21:17 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 21:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 21:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 21:30 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 21:30 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 21:13 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 21:08 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 21:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 21:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 21:33 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 21:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 21:14 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:17 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/628149942.shtml)
-- 2026-06-29 21:19 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/52800367.shtml)
-- 2026-06-29 21:01 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/826419492518.shtml)
-- 2026-06-29 21:19 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/50373191193.shtml)
-- 2026-06-29 21:19 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/317666358778.shtml)
-- 2026-06-29 21:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/83827537043.shtml)
-- 2026-06-29 21:29 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/1321026219.shtml)
-- 2026-06-29 21:25 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/72102818.shtml)
-- 2026-06-29 21:21 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/250183193108.shtml)
-- 2026-06-29 21:28 - [日美楼市危机复盘：见底顺序曝光](https://www.share.minike.top/Article/details/8561231030.shtml)
-- 2026-06-29 21:27 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/99269942512.shtml)
-- 2026-06-29 21:22 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/19508.shtml)
-- 2026-06-29 21:28 - [无畏为自己的猫正名了](http://www.blog.kurohicncr.top/Article/details/6062619.shtml)
-- 2026-06-29 21:03 - [女生学医适合选什么专业](https://www.blog.kurohicncr.top/Article/details/3854101.shtml)
-- 2026-06-29 21:18 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/64027.shtml)
+- 2026-06-29 21:32 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/4600538.shtml)
+- 2026-06-29 21:07 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/94977.shtml)
+- 2026-06-29 21:06 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/20676313884.shtml)
+- 2026-06-29 21:13 - [TOP Prada](https://www.blog.minike.top/Article/details/965666218.shtml)
+- 2026-06-29 21:30 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/8360730.shtml)
+- 2026-06-29 21:24 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/43308.shtml)
+- 2026-06-29 21:30 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/336645952.shtml)
+- 2026-06-29 21:15 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/48944460.shtml)
+- 2026-06-29 21:10 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/99675591.shtml)
+- 2026-06-29 21:26 - [金刚川](http://www.blog.kurohicncr.top/Article/details/175258.shtml)
+- 2026-06-29 21:25 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/3784771629.shtml)
+- 2026-06-29 21:32 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/08194941562.shtml)
+- 2026-06-29 21:24 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/07946561784.shtml)
+- 2026-06-29 21:26 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/00838.shtml)
+- 2026-06-29 21:23 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.kurohicncr.top/Article/details/7839236004.shtml)

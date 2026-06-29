@@ -1,60 +1,58 @@
-# “光”调整，“电”防御！华宝基金电力ETF（159146）收涨3.63%创新高，8股强势涨停！算电协同持续落地
+# “五一”小长假上海多个著名景区迎来大客流
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-周二（5月19日），电力板块爆发涨停潮，中证全指电力公用事业指数涨超3.5%。成份股全线上扬，涪陵电力、上海电力、建投能源、赣能股份、豫能控股、广西能源、林洋能源、华能蒙电等8股涨停，浙能电力、京能电力、江苏新能、大唐发电、国电电力等多股大涨超5%。 热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）全天走强，场内收涨3.63%，收盘价创上市新高！单日放量
+中新网上海5月2日电 (记者 李姝徵)“五一”小长假，上海外滩、南京路步行街、豫园、新天地等标志性景区客流如织。 记者2日从上海警方获悉，据统计，2026年5月1日，外滩滨水区累计客流58.5万人次，同比上升5.9%；南京路步行街累计客流29.8万人次，同比上升34.6%。 为维护节日期间中心城区的持续稳定，上海黄浦警方坚持科技赋能，启动“互联网+大客流”安保模式，以客流管控实
 
 ## 正文
 
-周二（5月19日），电力板块爆发涨停潮，中证全指电力公用事业指数涨超3.5%。
+中新网上海5月2日电 (记者 李姝徵)“五一”小长假，上海外滩、南京路步行街、豫园、新天地等标志性景区客流如织。
 
-成份股全线上扬，涪陵电力、上海电力、建投能源、赣能股份、豫能控股、广西能源、林洋能源、华能蒙电等8股涨停，浙能电力、京能电力、江苏新能、大唐发电、国电电力等多股大涨超5%。
+记者2日从上海警方获悉，据统计，2026年5月1日，外滩滨水区累计客流58.5万人次，同比上升5.9%；南京路步行街累计客流29.8万人次，同比上升34.6%。
 
-热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）全天走强，场内收涨3.63%，收盘价创上市新高！
+为维护节日期间中心城区的持续稳定，上海黄浦警方坚持科技赋能，启动“互联网+大客流”安保模式，以客流管控实战需求为牵引，通过前期开展多警种实战实训进一步提升管理能力，并依托警务大客流监测系统以及现场设置的智能移动引导屏、警务瞭望台、无人机移动部署平台等科技化手段，持续加强社会面整体防控、客流安全疏导、交通组织管理等各项工作。
 
-单日放量成交超4400万元，资金近五日累计增持超4200万元。
+5月1日，黄浦警方依托警务大客流监测系统，对外滩、南京路等区域客流热力图进行全时段追踪，当客流量达预警值，外围疏导力量迅速前出，在远端道路、地铁出入口提前分流，避免客流过度扎堆。
 
-与之相对，“光”板块走弱，光模块CPO含量超50%的创业板人工智能ETF华宝（159363）场内跌1%，资金逢跌增持1.4亿份。
+在外滩滨水区，黄浦警方采取“南北均衡、交替开关”等策略，重点强化江堤、步道、路口等易拥堵节点的现场指挥。
 
-市场结构上，A股常围绕“光”与“电”切换：今日光模块板块随外围调整，电力独立走强，既体现电力作为算力内部的防御属性，也揭示了电力不同于传统红利板块的核心逻辑——在AI时代，电还具备确定的成长性。
+执勤警力通过智能移动引导屏、语音提示与铁马设施相结合，引导游客有序行进，避免游客对冲滞留。
 
-从消息面来看，今日电力板块爆发涨停潮，其核心驱动是“算电协同”从政策预期迈入实际落地阶段。
+外滩江堤核心观景区落实“潮汐式”疏导，现场民警根据实时人流密度动态调整上下行通道流向。
 
-直接消息催化或来自两方面：一是国内首次实现大型数据中心以虚拟电厂形式参与电力现货交易，实现“算随电动”，验证了算力与电力双向协同的商业模式；二是上海发布会明确“十五五”算力规模倍增并配套建设四大千万千瓦级绿电基地，强化了需求预期。
+“五一”期间，豫园客流持续走高。
 
 ## 相关推荐
 
-- 2026-06-29 21:04 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 21:04 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 21:26 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 21:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 21:07 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 21:25 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 21:20 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 21:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 21:08 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 21:03 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 21:20 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 21:23 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 21:13 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 21:08 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 21:16 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 21:09 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 21:34 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 21:27 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 21:21 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 21:21 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 21:28 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 21:34 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 21:09 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 21:14 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 21:17 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 21:28 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:17 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/955314189.shtml)
-- 2026-06-29 21:29 - [C罗10球7球对垫底队](http://www.share.minike.top/Article/details/79369447.shtml)
-- 2026-06-29 21:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/612155.shtml)
-- 2026-06-29 21:22 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/4168653.shtml)
-- 2026-06-29 21:06 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/978675348403.shtml)
-- 2026-06-29 21:09 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.minike.top/Article/details/85531934804.shtml)
-- 2026-06-29 21:05 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/24929179.shtml)
-- 2026-06-29 21:09 - [本届世界杯已有5人涉性侵风波](https://www.share.minike.top/Article/details/5389046812.shtml)
-- 2026-06-29 21:20 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/0838153.shtml)
-- 2026-06-29 21:00 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/45272.shtml)
-- 2026-06-29 21:02 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/98304540.shtml)
-- 2026-06-29 21:23 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/4419161.shtml)
-- 2026-06-29 21:09 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/023397.shtml)
-- 2026-06-29 21:15 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/980035.shtml)
-- 2026-06-29 21:24 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/942400.shtml)
+- 2026-06-29 21:30 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/847221743021.shtml)
+- 2026-06-29 21:15 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/3127805465.shtml)
+- 2026-06-29 21:22 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/2873712.shtml)
+- 2026-06-29 21:26 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/988527026.shtml)
+- 2026-06-29 21:10 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/5625508.shtml)
+- 2026-06-29 21:22 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.kurohicncr.top/Article/details/8179474360.shtml)
+- 2026-06-29 21:27 - [网红小徐直播时突遇地震](https://www.blog.minike.top/Article/details/74575827916.shtml)
+- 2026-06-29 21:33 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/831129717.shtml)
+- 2026-06-29 21:17 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/060251.shtml)
+- 2026-06-29 21:34 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/33236628.shtml)
+- 2026-06-29 21:17 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/385555520.shtml)
+- 2026-06-29 21:18 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/3081791662.shtml)
+- 2026-06-29 21:17 - [T1零封KC MSI](http://www.share.minike.top/Article/details/72081934.shtml)
+- 2026-06-29 21:34 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/45685729873.shtml)
+- 2026-06-29 21:27 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/144785323.shtml)

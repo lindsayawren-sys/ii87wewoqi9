@@ -1,50 +1,58 @@
-# 大美边疆看我家丨云南建水：感受彝族烟盒舞的特色风情
+# 陈芋汐夺全运会后首冠
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 11:55 来源：中国新闻网 5月18日，云南建水，各族人民身穿民族服饰，在凤凰花下翩翩起舞，场面十分热闹。彝族烟盒舞，是云南省红河哈尼族彝族自治州的传统舞蹈，也是国家级非物质文化遗产之一。烟盒舞，就是用“烟盒”作道具的舞蹈，跳舞时将其上下两瓣分别持于双手，并用手指作有规律的弹响。彝族烟盒舞是凝聚人心、增进交融的民族团结载体。(作者：吴俊松 徐
+中新网北京5月1日电(记者 刘星晨 岳川)2026世界泳联跳水世界杯总决赛5月1日在国家游泳中心开赛。在当日最受瞩目的女子双人10米台决赛中，中国组合陈芋汐/卢为以366.12分摘得冠军，成绩断层领先于其他对手。 这次比赛是本年度跳水世界杯的收官之战，共设男子、女子单人和双人3米跳板，男子、女子单人和双人10米跳台以及混合团体9个项目。中国跳水队在今年2月的世界杯蒙特利尔站包揽
 
 ## 正文
 
-发布时间：2026年05月19日 11:55 来源：中国新闻网 5月18日，云南建水，各族人民身穿民族服饰，在凤凰花下翩翩起舞，场面十分热闹。
+中新网北京5月1日电(记者 刘星晨 岳川)2026世界泳联跳水世界杯总决赛5月1日在国家游泳中心开赛。
 
-彝族烟盒舞，是云南省红河哈尼族彝族自治州的传统舞蹈，也是国家级非物质文化遗产之一。
+在当日最受瞩目的女子双人10米台决赛中，中国组合陈芋汐/卢为以366.12分摘得冠军，成绩断层领先于其他对手。
 
-烟盒舞，就是用“烟盒”作道具的舞蹈，跳舞时将其上下两瓣分别持于双手，并用手指作有规律的弹响。
+这次比赛是本年度跳水世界杯的收官之战，共设男子、女子单人和双人3米跳板，男子、女子单人和双人10米跳台以及混合团体9个项目。
 
-彝族烟盒舞是凝聚人心、增进交融的民族团结载体。
+中国跳水队在今年2月的世界杯蒙特利尔站包揽全部9个项目的金牌，从而获得了总决赛所有项目的参赛席位。
 
-(作者：吴俊松 徐帆） 责任编辑：【魏聪聪】
+主场作战的“梦之队”派出了新老结合的阵容，由奥运冠军王宗源、陈芋汐、陈艺文和练俊杰领衔。
+
+去年，陈芋汐在总决赛中收获了女子单人、双人10米跳台及混合团体共三枚金牌。
+
+由于未参加蒙特利尔站比赛，这次总决赛是陈芋汐本赛季国际赛场首秀。
+
+因原计划参加女子单人和双人10米跳台比赛的14岁小将崔家溪退赛，中国队在赛前调整了出战阵容，蒋林静独自出战女子单人10米跳台项目，卢为代替崔家溪与陈芋汐搭档参加女子双人10米跳台比赛。
 
 ## 相关推荐
 
-- 2026-06-29 21:24 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 21:16 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 21:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 21:04 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 21:01 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 21:08 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 21:11 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 21:00 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-29 21:12 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 21:19 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 21:32 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 21:11 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 21:33 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 21:34 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 21:12 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 21:19 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 21:33 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 21:27 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 21:22 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 21:09 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 21:31 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 21:18 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:04 - [18岁高二体育生训练晕倒后离世](http://www.blog.minike.top/Article/details/4467271413.shtml)
-- 2026-06-29 21:01 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/8282720681.shtml)
-- 2026-06-29 21:29 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/3599922.shtml)
-- 2026-06-29 21:24 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/34496.shtml)
-- 2026-06-29 21:26 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/78644290.shtml)
-- 2026-06-29 21:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/42984.shtml)
-- 2026-06-29 21:26 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/6442651.shtml)
-- 2026-06-29 21:15 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/75520216.shtml)
-- 2026-06-29 21:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/16768378.shtml)
-- 2026-06-29 21:20 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.kurohicncr.top/Article/details/2229112.shtml)
-- 2026-06-29 21:13 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/741494.shtml)
-- 2026-06-29 21:11 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/4949907.shtml)
-- 2026-06-29 21:27 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/004399.shtml)
-- 2026-06-29 21:20 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/13848164.shtml)
-- 2026-06-29 21:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/42499.shtml)
+- 2026-06-29 21:07 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/414803378012.shtml)
+- 2026-06-29 21:26 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/0995326.shtml)
+- 2026-06-29 21:23 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/82608496.shtml)
+- 2026-06-29 21:21 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/98182559.shtml)
+- 2026-06-29 21:32 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/12503.shtml)
+- 2026-06-29 21:28 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/86927.shtml)
+- 2026-06-29 21:24 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/5906511726.shtml)
+- 2026-06-29 21:16 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/67759.shtml)
+- 2026-06-29 21:22 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/451298.shtml)
+- 2026-06-29 21:24 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/93531.shtml)
+- 2026-06-29 21:15 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/598079.shtml)
+- 2026-06-29 21:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/133655606.shtml)
+- 2026-06-29 21:23 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/01714.shtml)
+- 2026-06-29 21:12 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/5075538.shtml)
+- 2026-06-29 21:09 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/29621565516.shtml)

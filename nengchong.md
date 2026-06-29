@@ -1,44 +1,58 @@
-# 俄罗斯总统普京抵达北京
+# 山西晋城：千年老街焕新彩 文旅盛宴醉游人
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 23:35 来源：央视新闻客户端 责任编辑：【韦俊龙】
+中新网晋城5月5日电 (杨佩佩 高俊明)“五一”假期，山西省晋城市城区南大街以“‘晋’享好戏 花漾凤城”为核心，开启文化艺术周活动。千年古街深挖历史文脉与本土文化底蕴，将传统演艺、非遗韵律、潮流体验与市井烟火完美相融，让老街焕发新活力，成为全市假期热门文旅打卡地。 本次南大街文化艺术周活动全方位打造沉浸式文旅体验场景，让游客在青石板路与古巷风貌中，感受老城底蕴，品味文化魅力。文
 
 ## 正文
 
-发布时间：2026年05月19日 23:35 来源：央视新闻客户端 责任编辑：【韦俊龙】
+中新网晋城5月5日电 (杨佩佩 高俊明)“五一”假期，山西省晋城市城区南大街以“‘晋’享好戏 花漾凤城”为核心，开启文化艺术周活动。
+
+千年古街深挖历史文脉与本土文化底蕴，将传统演艺、非遗韵律、潮流体验与市井烟火完美相融，让老街焕发新活力，成为全市假期热门文旅打卡地。
+
+本次南大街文化艺术周活动全方位打造沉浸式文旅体验场景，让游客在青石板路与古巷风貌中，感受老城底蕴，品味文化魅力。
+
+文庙巷口，“花漾凤城一路有戏”街区行进式表演成为一大亮点，表演队伍移步换景，与古色古香的街巷建筑、青砖黛瓦相得益彰，勾勒出“一步一景、一景一戏”的唯美画卷。
+
+非遗广场上，“最晋城最动听”古建音乐会悠扬奏响，成为老街人气聚集地。
+
+独具特色的老式录音机舞台造型吸睛十足，传统音律与现代潮流音乐碰撞交融，既有本土民俗曲调的温婉绵长，又有潮流乐曲的青春活力，灯光随旋律变幻，游客们自发打开手机闪光灯，跟着节奏合唱互动，用音乐点亮老街夜空，勾勒出兼具烟火气与文艺感的诗意画面。
+
+漫步南大街，既能触摸千年老街的历史厚重感，感受老城街巷的岁月积淀，又能沉浸式参与丰富的文化活动，解锁多元文旅体验。
+
+古街两侧，剪纸、面塑等非遗技艺展示让游客近距离感受非遗魅力，本土特色小吃勾起浓浓乡愁，让游客在游玩之余，品味晋城独特的风味与文化。
 
 ## 相关推荐
 
-- 2026-06-29 21:25 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 21:07 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 21:13 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 21:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 21:14 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 21:26 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 21:04 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 21:19 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 21:08 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 21:13 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 21:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 21:03 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 21:07 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 21:26 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 21:07 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 21:06 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 21:22 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 21:34 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 21:12 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 21:12 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 21:27 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 21:28 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 21:20 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 21:13 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:25 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/43111928.shtml)
-- 2026-06-29 21:11 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/0266485.shtml)
-- 2026-06-29 21:08 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/8513860.shtml)
-- 2026-06-29 21:04 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/0045048604.shtml)
-- 2026-06-29 21:18 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/19402.shtml)
-- 2026-06-29 21:01 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/86948778182.shtml)
-- 2026-06-29 21:24 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/2776084816.shtml)
-- 2026-06-29 21:01 - [明星大侦探第一季](http://www.share.minike.top/Article/details/99818130.shtml)
-- 2026-06-29 21:10 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/405778363139.shtml)
-- 2026-06-29 21:08 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/854461.shtml)
-- 2026-06-29 21:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/8560404261.shtml)
-- 2026-06-29 21:10 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/952433.shtml)
-- 2026-06-29 21:18 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/870967145314.shtml)
-- 2026-06-29 21:18 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.minike.top/Article/details/18900781143.shtml)
-- 2026-06-29 21:00 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/43816.shtml)
+- 2026-06-29 21:22 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/414266.shtml)
+- 2026-06-29 21:33 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/8942887.shtml)
+- 2026-06-29 21:32 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/76480621.shtml)
+- 2026-06-29 21:08 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/818112.shtml)
+- 2026-06-29 21:29 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/962188055.shtml)
+- 2026-06-29 21:22 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/87785.shtml)
+- 2026-06-29 21:27 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/6362557.shtml)
+- 2026-06-29 21:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/45123.shtml)
+- 2026-06-29 21:23 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/3709746647.shtml)
+- 2026-06-29 21:30 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/86369.shtml)
+- 2026-06-29 21:35 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.minike.top/Article/details/602450563.shtml)
+- 2026-06-29 21:08 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/6972935191.shtml)
+- 2026-06-29 21:22 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/480744296.shtml)
+- 2026-06-29 21:33 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/33671514461.shtml)
+- 2026-06-29 21:25 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/1083440820.shtml)

@@ -1,60 +1,57 @@
-# 追赶三星、海力士，国产存储双雄竞逐上市
+# “拼小团”出游热度高，这份“避坑指南”请收好
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-来源：财经杂志 存储超级周期下，国产NAND闪存龙头企业长江存储提交IPO上市辅导备案，正式开启上市进程 文|《财经》研究员 康国亮 编辑|杨秀红 继长鑫科技之后，“国产存储双雄”之一的长江存储（全称“长江存储控股股份有限公司”）也正式开启上市进程。 5月19日，根据证监会官网，长江存储发布首次公开发行股票并上市辅导备案报告，辅导机构为中信证券和中信建投证券。 据胡润研究院发布
+35岁的郑州游客安迪还记得去年3月的新疆之行。8天7晚的行程，她和几位陌生游客一起“拼小团”。“一个人想在短时间内转一圈北疆，拼团是性价比最高的方式。”安迪说。 川西、新疆、内蒙古，这些地方风景壮美，但有一个共同的难题：公共交通覆盖有限，自驾对路况不熟悉的游客来说挑战不小。“拼小团”恰好解决了这个痛点。在社交平台搜索“新疆小团”“川西拼团”，评论区里问路线、求推荐的网友成百上千
 
 ## 正文
 
-来源：财经杂志 存储超级周期下，国产NAND闪存龙头企业长江存储提交IPO上市辅导备案，正式开启上市进程 文|《财经》研究员 康国亮 编辑|杨秀红 继长鑫科技之后，“国产存储双雄”之一的长江存储（全称“长江存储控股股份有限公司”）也正式开启上市进程。
+35岁的郑州游客安迪还记得去年3月的新疆之行。
 
-5月19日，根据证监会官网，长江存储发布首次公开发行股票并上市辅导备案报告，辅导机构为中信证券和中信建投证券。
+8天7晚的行程，她和几位陌生游客一起“拼小团”。
 
-据胡润研究院发布的《2025全球独角兽榜》，长江存储彼时以1600亿元估值首次入围，位列中国十大独角兽第九，与滴滴估值相当。
+“一个人想在短时间内转一圈北疆，拼团是性价比最高的方式。
 
-国盛证券等多家机构预测其IPO（首次公开募股）估值约3000亿元。
+”安迪说。
 
-备案报告显示，长江存储成立于2016年12月21日，注册资本178.20亿元，法定代表人为陈南翔。
+川西、新疆、内蒙古，这些地方风景壮美，但有一个共同的难题：公共交通覆盖有限，自驾对路况不熟悉的游客来说挑战不小。
 
-公开资料显示，长江存储是中国3D NAND闪存领域的龙头企业，与专注于DRAM领域的长鑫科技并称“国产存储双雄”。
+“拼小团”恰好解决了这个痛点。
 
-据了解，NAND闪存主要用于消费电子的存储硬盘，而DRAM则主要用于消费电子的运行内存，二者是两类主流的存储芯片。
+在社交平台搜索“新疆小团”“川西拼团”，评论区里问路线、求推荐的网友成百上千。
 
-“长鑫科技和长江存储是中国存储芯片的两大支柱，一个主攻DRAM、一个主攻NAND闪存，肩负着中国在存储芯片领域自主可控的历史性任务，现在它们正处于产业周期、业绩释放以及IPO上市三重因素的最佳窗口期。
+某在线旅游平台数据显示，近期“拼小团”产品订单量同比增长1.5倍。
 
 ## 相关推荐
 
-- 2026-06-29 21:14 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 21:05 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 21:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 21:01 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 21:23 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 21:19 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 21:28 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 21:02 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 21:08 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 21:04 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 21:00 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 21:00 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 21:05 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 21:28 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 21:13 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 21:09 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 21:28 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 21:21 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 21:26 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 21:27 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 21:23 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 21:27 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 21:13 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 21:21 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 21:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/894899401970.shtml)
-- 2026-06-29 21:14 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/34251707378.shtml)
-- 2026-06-29 21:28 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/899657845.shtml)
-- 2026-06-29 21:05 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/283960423.shtml)
-- 2026-06-29 21:02 - [天道](http://www.share.kurohicncr.top/Article/details/582974.shtml)
-- 2026-06-29 21:05 - [返利科技盘中上演“天地板”](http://www.share.kurohicncr.top/Article/details/134629949931.shtml)
-- 2026-06-29 21:14 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/70493.shtml)
-- 2026-06-29 21:22 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/18419.shtml)
-- 2026-06-29 21:08 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/7309806.shtml)
-- 2026-06-29 21:19 - [国际清算银行警告AI投资热潮](http://www.share.kurohicncr.top/Article/details/15009.shtml)
-- 2026-06-29 21:25 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/11902.shtml)
-- 2026-06-29 21:13 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/7197658.shtml)
-- 2026-06-29 21:03 - [小娘惹](http://www.share.minike.top/Article/details/24679397.shtml)
-- 2026-06-29 21:03 - [女心理师](https://www.share.minike.top/Article/details/75872425898.shtml)
-- 2026-06-29 21:04 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/067248183870.shtml)
+- 2026-06-29 21:17 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/215419762.shtml)
+- 2026-06-29 21:11 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/05989692662.shtml)
+- 2026-06-29 21:32 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/598779.shtml)
+- 2026-06-29 21:17 - [Ella回应SHE何时合体](https://www.share.kurohicncr.top/Article/details/73686.shtml)
+- 2026-06-29 21:16 - [沙丘](http://www.blog.kurohicncr.top/Article/details/502335649.shtml)
+- 2026-06-29 21:31 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/39022.shtml)
+- 2026-06-29 21:31 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/67777744937.shtml)
+- 2026-06-29 21:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/9415059.shtml)
+- 2026-06-29 21:14 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/67504975139.shtml)
+- 2026-06-29 21:27 - [爱奇艺抬高国剧新标尺](https://www.share.minike.top/Article/details/37547322662.shtml)
+- 2026-06-29 21:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/79517373466.shtml)
+- 2026-06-29 21:34 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/93018967.shtml)
+- 2026-06-29 21:12 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/48008.shtml)
+- 2026-06-29 21:18 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/1636355.shtml)
+- 2026-06-29 21:17 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/324416875624.shtml)

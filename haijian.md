@@ -1,61 +1,60 @@
-# 普利制药已有一审胜诉，符合要求还可加入
+# 带着宠物去旅行！“五一”假期全国铁路宠物托运订单大幅增加
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-上海沪紫律师事务所刘鹏律师团队近日再次收到一批胜诉判决。此前海口市中级人民法院对投资者诉普利制药证券虚假陈述责任纠纷案件作出一审胜诉判决，公司需赔付股民损失。回溯此案，2025年3月21日，公司收到证监会的处罚决定，因财务造假极其严重触及重大违法强制退市，该公司已在2025年4月正式告别A股。（刘鹏律师专栏） 依据判决，投资者于2022年4月26日-2024年4月16日期间买入
+“五一”假期，“带着宠物去旅行”成为不少爱宠人士的新选择，铁路部门全新升级了宠物托运服务，宠物不仅能和主人同车出发、同时到达，还能自己单独“坐”高铁。 上午10点，在杭州东站，焦先生带着自己的宠物猫来办理宠物托运手续，这是他首次尝试带着宠物去旅行。 记者了解到，目前，全国共有121座高铁车站、228趟动车组列车实行“爱宠行”服务。数据显示，“五一”假期，全国铁路办理宠物托运的订
 
 ## 正文
 
-上海沪紫律师事务所刘鹏律师团队近日再次收到一批胜诉判决。
+“五一”假期，“带着宠物去旅行”成为不少爱宠人士的新选择，铁路部门全新升级了宠物托运服务，宠物不仅能和主人同车出发、同时到达，还能自己单独“坐”高铁。
 
-此前海口市中级人民法院对投资者诉普利制药证券虚假陈述责任纠纷案件作出一审胜诉判决，公司需赔付股民损失。
+上午10点，在杭州东站，焦先生带着自己的宠物猫来办理宠物托运手续，这是他首次尝试带着宠物去旅行。
 
-回溯此案，2025年3月21日，公司收到证监会的处罚决定，因财务造假极其严重触及重大违法强制退市，该公司已在2025年4月正式告别A股。
+记者了解到，目前，全国共有121座高铁车站、228趟动车组列车实行“爱宠行”服务。
 
-（刘鹏律师专栏） 依据判决，投资者于2022年4月26日-2024年4月16日期间买入，并在2024年4月17日之后卖出或仍持有而亏损的即可报名索赔。
+数据显示，“五一”假期，全国铁路办理宠物托运的订单量同比增长了九倍以上。
 
-（普利制药维权入口） 鉴于已有一审胜诉，后续同类型案件将更快获得判决。
+铁路部门提醒，“五一”假期期间车站客流量较大，在乘车当日至少提前两个小时前往高铁站办理托运手续，并且出具与乘车区间一致且在托运日期内有效的《动物检疫合格证明》。
 
-目前该案时效还未到期，受损投资者可查看是否符合索赔区间进而参与挽回损失。
+价格方面，宠物托运服务按运输里程梯次计价。
 
-据公告，证监会认定公司通过虚构成品药和原料药销售业务、开展贸易业务按总额法核算的方式，虚增收入和利润。
+旅客如果选择让宠物单独“坐”高铁，每只宠物价格在558元至1258元不等； 选择“携宠同行”的话，每只宠物价格则在360元至860元不等。
 
-经计算，公司2021年、2022年虚假记载的营业收入金额合计达10.31亿元，且占该两年披露的年度营业收入合计金额的31.08%；虚假记载的利润总额金额合计达6.95亿元，且占该两年披露的年度利润总额合计金额的76.72%。
+两种服务均可获赠2000元基础保险。
 
 ## 相关推荐
 
-- 2026-06-29 21:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 21:00 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 21:20 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 21:03 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 21:14 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 21:26 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 21:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 21:09 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 21:26 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 21:20 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 21:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 21:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 21:16 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 21:15 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 21:23 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 21:28 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 21:29 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 21:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 21:34 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 21:18 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 21:27 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 21:22 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 21:21 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 21:16 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 21:33 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 21:12 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 21:27 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 21:18 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 21:33 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:07 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/7796742.shtml)
-- 2026-06-29 21:26 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/36554595.shtml)
-- 2026-06-29 21:25 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/321435.shtml)
-- 2026-06-29 21:12 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/989977847831.shtml)
-- 2026-06-29 21:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/68137201037.shtml)
-- 2026-06-29 21:17 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/4967725300.shtml)
-- 2026-06-29 21:23 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/3811941894.shtml)
-- 2026-06-29 21:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/136517023.shtml)
-- 2026-06-29 21:23 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/9235282.shtml)
-- 2026-06-29 21:15 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/8334952573.shtml)
-- 2026-06-29 21:18 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/2656269820.shtml)
-- 2026-06-29 21:15 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/232895802.shtml)
-- 2026-06-29 21:02 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/9458562.shtml)
-- 2026-06-29 21:21 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/59851.shtml)
-- 2026-06-29 21:01 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/46156065.shtml)
+- 2026-06-29 21:15 - [沙丘](http://www.share.kurohicncr.top/Article/details/480706924.shtml)
+- 2026-06-29 21:12 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/9945882.shtml)
+- 2026-06-29 21:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/619853.shtml)
+- 2026-06-29 21:19 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/8528527.shtml)
+- 2026-06-29 21:23 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/32732.shtml)
+- 2026-06-29 21:07 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/676942.shtml)
+- 2026-06-29 21:33 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/950496838.shtml)
+- 2026-06-29 21:12 - [美人鱼](https://www.share.minike.top/Article/details/693846.shtml)
+- 2026-06-29 21:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/47527306.shtml)
+- 2026-06-29 21:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/329955627.shtml)
+- 2026-06-29 21:15 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/59334832.shtml)
+- 2026-06-29 21:08 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/67592941.shtml)
+- 2026-06-29 21:08 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/291245.shtml)
+- 2026-06-29 21:14 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/279424132.shtml)
+- 2026-06-29 21:21 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/1714174.shtml)

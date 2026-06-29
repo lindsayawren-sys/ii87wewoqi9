@@ -1,60 +1,51 @@
-# 科创芯片杀疯了！中芯国际飙升10%，寒武纪、华虹公司齐创新高，华宝基金科创芯片ETF（589190）涨近4%！
+# 游戏驿站提议560亿美元收购eBay
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-5月20日午后，科创芯片再接再厉，权重龙头集体飙升，中芯国际涨超11%，华虹公司涨超12%，寒武纪涨逾4%，寒武纪、华虹公司齐创历史新高。全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格现涨3.76%，持续刷新上市以来的历史高点。 分析人士认为，半导体景气向上叠加自主可控，国产替代进入加速期。近日，长鑫科技业绩爆表，长江存储首次公开发行股票并上市辅导备案报告，皆
+游戏驿站CEO瑞安·科恩（Ryan Cohen）接受采访时表示，游戏驿站已主动提出以约560亿美元收购eBay。 科恩表示，游戏驿站已持有eBay约5%的股份，并提出以现金加股票的方式收购eBay，报价每股125美元，较eBay上周五收盘价溢价约20%。 科恩还表示，如果eBay拒绝接受收购要约，他准备发起代理权争夺战，直接向该公司的股东提出收购要约。责任编辑：于健 SF069
 
 ## 正文
 
-5月20日午后，科创芯片再接再厉，权重龙头集体飙升，中芯国际涨超11%，华虹公司涨超12%，寒武纪涨逾4%，寒武纪、华虹公司齐创历史新高。
+游戏驿站CEO瑞安·科恩（Ryan Cohen）接受采访时表示，游戏驿站已主动提出以约560亿美元收购eBay。
 
-全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格现涨3.76%，持续刷新上市以来的历史高点。
+科恩表示，游戏驿站已持有eBay约5%的股份，并提出以现金加股票的方式收购eBay，报价每股125美元，较eBay上周五收盘价溢价约20%。
 
-分析人士认为，半导体景气向上叠加自主可控，国产替代进入加速期。
+科恩还表示，如果eBay拒绝接受收购要约，他准备发起代理权争夺战，直接向该公司的股东提出收购要约。
 
-近日，长鑫科技业绩爆表，长江存储首次公开发行股票并上市辅导备案报告，皆给整个半导体板块带来了重大驱动力。
-
-财通证券认为，当前半导体零部件行业整体处于新一轮上行周期的早期阶段，叠加极低国产化率与自主可控紧迫性，正迎来景气上行+国产替代的双重驱动，行业趋势明确向上。
-
-布局芯片产业“超级周期”，优选20CM高弹品种！
-
-公开资料显示，科创芯片ETF华宝（589190）及其联接基金（A类021224、C类021225）被动跟踪上证科创板芯片指数，在均衡配置、全链布局芯片产业的同时，在集成电路、半导体设备等核心领域权重占比超90%，硬科技含量高、技术壁垒强。
-
-数据来源：沪深交易所等。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 21:22 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 21:12 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 21:03 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 21:13 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 21:09 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 21:17 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 21:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 21:19 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 21:24 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 21:23 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 21:17 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 21:08 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 21:23 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 21:31 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 21:20 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 21:25 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 21:15 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 21:11 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 21:20 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 21:12 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 21:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 21:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 21:06 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 21:11 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 21:20 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 21:22 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:13 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/311686258.shtml)
-- 2026-06-29 21:22 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/3297137.shtml)
-- 2026-06-29 21:19 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/95526418.shtml)
-- 2026-06-29 21:02 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/88030434328.shtml)
-- 2026-06-29 21:08 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/5934052.shtml)
-- 2026-06-29 21:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/5888413.shtml)
-- 2026-06-29 21:19 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/7089741382.shtml)
-- 2026-06-29 21:19 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/0223588.shtml)
-- 2026-06-29 21:19 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/744539790.shtml)
-- 2026-06-29 21:03 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/946227042.shtml)
-- 2026-06-29 21:06 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/0678953.shtml)
-- 2026-06-29 21:26 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/37852.shtml)
-- 2026-06-29 21:07 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/21860408898.shtml)
-- 2026-06-29 21:13 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/06037725.shtml)
-- 2026-06-29 21:10 - [爱很美味](https://www.share.minike.top/Article/details/7189575.shtml)
+- 2026-06-29 21:27 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/222114368742.shtml)
+- 2026-06-29 21:27 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/44065523420.shtml)
+- 2026-06-29 21:21 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/0611513.shtml)
+- 2026-06-29 21:21 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/471852792014.shtml)
+- 2026-06-29 21:09 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/4763493820.shtml)
+- 2026-06-29 21:06 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/79975743.shtml)
+- 2026-06-29 21:12 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/31928886.shtml)
+- 2026-06-29 21:13 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.kurohicncr.top/Article/details/863326.shtml)
+- 2026-06-29 21:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/69130.shtml)
+- 2026-06-29 21:22 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/52163975092.shtml)
+- 2026-06-29 21:13 - [恋与深空制作组回应争议](https://www.share.kurohicncr.top/Article/details/64091.shtml)
+- 2026-06-29 21:14 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/030834.shtml)
+- 2026-06-29 21:06 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/31076889637.shtml)
+- 2026-06-29 21:34 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/6723455.shtml)
+- 2026-06-29 21:06 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/115616496.shtml)

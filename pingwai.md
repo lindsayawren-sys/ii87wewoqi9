@@ -1,56 +1,60 @@
-# 多国宗教界人士走进新疆
+# 【央视快评】在新征程上贡献青春力量——庆祝五四青年节
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中新社乌鲁木齐5月19日电 (胡嘉琛)由印度尼西亚、巴基斯坦、马尔代夫、阿联酋等9个国家的宗教界人士组成的17人参访团，17日至19日在乌鲁木齐先后参访新疆伊斯兰教经学院、乌鲁木齐陕西大寺等，切身感受当地宗教和谐。 走进新疆伊斯兰教经学院，教室宽敞明亮，图书馆书籍丰富。参访团成员详细了解教职人员培养、宗教活动开展等情况，并与正在上课的老师和学生交谈。 印度尼西亚伊斯兰教法学者理
+五四精神耀青春，青年奋进正当时。 在五四青年节到来之际，习近平总书记给中国青年五四奖章暨新时代青年先锋奖获奖者代表回信，向全国青年送上节日祝福，对新时代青年扎根基层、实干担当提出殷切期望。总书记的回信温暖真挚，饱含力量，为新时代青年成长成才、建功立业指明前进方向、注入澎湃动力。 青春最美的模样，是在脚踏实地的基层一线发光发热。总书记在回信中高度肯定青年们扎根各行各业、默默耕耘、
 
 ## 正文
 
-中新社乌鲁木齐5月19日电 (胡嘉琛)由印度尼西亚、巴基斯坦、马尔代夫、阿联酋等9个国家的宗教界人士组成的17人参访团，17日至19日在乌鲁木齐先后参访新疆伊斯兰教经学院、乌鲁木齐陕西大寺等，切身感受当地宗教和谐。
+五四精神耀青春，青年奋进正当时。
 
-走进新疆伊斯兰教经学院，教室宽敞明亮，图书馆书籍丰富。
+在五四青年节到来之际，习近平总书记给中国青年五四奖章暨新时代青年先锋奖获奖者代表回信，向全国青年送上节日祝福，对新时代青年扎根基层、实干担当提出殷切期望。
 
-参访团成员详细了解教职人员培养、宗教活动开展等情况，并与正在上课的老师和学生交谈。
+总书记的回信温暖真挚，饱含力量，为新时代青年成长成才、建功立业指明前进方向、注入澎湃动力。
 
-印度尼西亚伊斯兰教法学者理事会主席苏达诺托·阿卜杜拉·哈基姆说：“我亲眼看到了很多学生阅读维吾尔文、汉文和阿拉伯文书籍，还得知学生在校期间可以享受奖学金、助学金。
+青春最美的模样，是在脚踏实地的基层一线发光发热。
 
-这为培养具有较高文化水平和宗教学识的宗教人士提供了有效保障。
+总书记在回信中高度肯定青年们扎根各行各业、默默耕耘、实干奉献的风采。
 
-” “政府出资建设了设施完善的礼拜殿，令我惊讶。
+领袖的这份肯定，既是深情鼓励，更是时代召唤，标定了新时代青年的历史坐标。
 
-”马尔代夫国际清真旅游组织副主席易卜拉欣·穆罕默德说，中国各级政府持续改善宗教活动场所条件、注重伊斯兰教人才培养，这一现实证明了一些西方媒体报道的不实。
+奋进新征程，广大青年迎来了尽情挥洒的美好时代。
 
-乌鲁木齐陕西大寺始建于清乾隆年间，采用中原传统建筑风格的梁柱结构，八角形立柱上雕刻着宝剑、葫芦、花篮等图案，是新疆多种宗教交融共存的生动写照。
+在科技创新一线，青年科研人员把论文写在实验室、写在生产线，破解产业瓶颈、补齐技术短板，让自主创新的底气越来越足；在乡村振兴的田野间，一批批返乡青年、大学生村官扎根田间地头，帮乡亲们打通产销链路、发展特色产业，用新知识新理念唤醒乡土活力，让乡村既有烟火气，更有新气象；在城市街巷社区，无数青年志愿者走家串户，化解邻里矛盾、帮扶困难群众，把细微的温暖送到群众身边；在祖国边疆哨所，年轻官兵用青春守护山河无恙、家国安宁，把忠诚担当刻在边境线上。
 
 ## 相关推荐
 
-- 2026-06-29 21:25 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 21:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 21:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 21:17 - [炽夏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 21:07 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 21:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 21:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 21:00 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 21:05 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 21:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 21:12 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 21:32 - [任泽平：AI浪潮刚刚开始](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 21:21 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 21:23 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 21:30 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 21:34 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 21:32 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 21:20 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 21:07 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 21:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 21:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 21:08 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 21:24 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 21:15 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:01 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/1241685.shtml)
-- 2026-06-29 21:11 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/69075343.shtml)
-- 2026-06-29 21:16 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/537326841543.shtml)
-- 2026-06-29 21:05 - [任泽平：AI浪潮刚刚开始](https://www.share.minike.top/Article/details/616945.shtml)
-- 2026-06-29 21:20 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/75982333.shtml)
-- 2026-06-29 21:03 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/346895.shtml)
-- 2026-06-29 21:06 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/002885509.shtml)
-- 2026-06-29 21:09 - [任泽平：AI浪潮刚刚开始](https://www.share.kurohicncr.top/Article/details/885317415.shtml)
-- 2026-06-29 21:11 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/0636106.shtml)
-- 2026-06-29 21:12 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/738492031209.shtml)
-- 2026-06-29 21:09 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/610480.shtml)
-- 2026-06-29 21:01 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/196435.shtml)
-- 2026-06-29 21:23 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/625198892368.shtml)
-- 2026-06-29 21:28 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/5765865576.shtml)
-- 2026-06-29 21:15 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/482176791425.shtml)
+- 2026-06-29 21:32 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/56898338358.shtml)
+- 2026-06-29 21:10 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/53223297.shtml)
+- 2026-06-29 21:25 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/880688463210.shtml)
+- 2026-06-29 21:06 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/130824624368.shtml)
+- 2026-06-29 21:15 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/88924.shtml)
+- 2026-06-29 21:35 - [济南航空航天全面起势](http://www.blog.kurohicncr.top/Article/details/998182.shtml)
+- 2026-06-29 21:15 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/8000166.shtml)
+- 2026-06-29 21:08 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/6384595750.shtml)
+- 2026-06-29 21:10 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/77430133161.shtml)
+- 2026-06-29 21:19 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/04324.shtml)
+- 2026-06-29 21:25 - [请回答王牌2019](http://www.blog.minike.top/Article/details/99877838.shtml)
+- 2026-06-29 21:22 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/533750.shtml)
+- 2026-06-29 21:12 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/85460.shtml)
+- 2026-06-29 21:34 - [巴西10号球衣是天才传承史](https://www.share.kurohicncr.top/Article/details/0808365.shtml)
+- 2026-06-29 21:15 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/48170388492.shtml)

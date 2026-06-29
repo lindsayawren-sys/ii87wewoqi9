@@ -1,61 +1,54 @@
-# 深圳文博会开幕在即 香港馆打造“城市盲盒”展现文化魅力
+# 傅里叶盘中涨近8% 公司为全球AI音频芯片龙头企业
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中新网香港5月19日电 第二十二届中国(深圳)国际文化产业博览交易会(深圳文博会)将于5月21日至25日在深圳举行。其中，香港馆将以“开箱香港”为主题，通过主题展览、文创产品展销、讲座及工作坊等活动，展示香港多元设计潮流和作为中外文化艺术交流中心的魅力。据介绍，今年香港馆将场馆打造成一座立体“城市盲盒”，展区分为“工艺盲盒”“情感盲盒”及“虚实盲盒”三个部分。在“工艺盲盒”展区
+傅里叶（03625）早盘一度涨近8%，截至发稿，股价上涨3.73%，现报130.60港元，成交额2210.15万港元。 公开资料显示，傅里叶半导体是国内领先的感知智能芯片设计企业，采用Fabless轻资产运营模式，专注智能音频与触觉反馈芯片的研发、设计与销售，核心亮点突出，是国产替代赛道的标杆企业。按2024年出货量计算，公司在全球功放音频芯片领域稳居前三，中国市场排名第二，智
 
 ## 正文
 
-中新网香港5月19日电 第二十二届中国(深圳)国际文化产业博览交易会(深圳文博会)将于5月21日至25日在深圳举行。
+傅里叶（03625）早盘一度涨近8%，截至发稿，股价上涨3.73%，现报130.60港元，成交额2210.15万港元。
 
-其中，香港馆将以“开箱香港”为主题，通过主题展览、文创产品展销、讲座及工作坊等活动，展示香港多元设计潮流和作为中外文化艺术交流中心的魅力。
+公开资料显示，傅里叶半导体是国内领先的感知智能芯片设计企业，采用Fabless轻资产运营模式，专注智能音频与触觉反馈芯片的研发、设计与销售，核心亮点突出，是国产替代赛道的标杆企业。
 
-据介绍，今年香港馆将场馆打造成一座立体“城市盲盒”，展区分为“工艺盲盒”“情感盲盒”及“虚实盲盒”三个部分。
+按2024年出货量计算，公司在全球功放音频芯片领域稳居前三，中国市场排名第二，智慧屏专用音频芯片国内市占率第一，行业头部地位稳固。
 
-在“工艺盲盒”展区，观众可触摸香港工艺的当代变迁；“情感盲盒”展区聚焦设计与人之间的情感连接；“虚实盲盒”展区则以数码叙事与沉浸式体验探索未来。
+业绩层面，公司保持高速增长态势，2024年营收同比增长136.3%，毛利率由负转正并提升至20%，净亏损大幅收窄，盈利拐点清晰可见。
 
-香港馆还首创文创产品“展销专区”，在现场限量销售83款别具特色的香港文创产品。
+上市前公司已获得顺为资本、国家大基金旗下基金、闻泰、华勤等顶级财务资本与产业资本加持，产业协同效应显著，资本认可度处于行业第一梯队。
 
-其中部分产品来自香港特区政府文化体育及旅游局(文体旅局)辖下文创产业发展处(文创处)与北京故宫“故宫文创香港空间”合办的“香港文创荟萃”项目，也有一些产品出自曾获文创处资助的香港原创艺术玩具设计师。
-
-此外，香港馆将举办多场文化活动，包括以霓虹和麻将工艺转型为主题的《传统手艺现代重生》讲座等，并举办相关工作坊，让观众近距离接触香港设计师的创作过程，亲手感受工艺、情感与数码创意的交汇。
-
-据了解，本次是文创处携香港业界连续第三年参展，香港馆由致远基金会承办及策展。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:21 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 21:27 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 21:25 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 21:29 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 21:29 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 21:28 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 21:15 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 21:09 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 21:05 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 21:17 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 21:03 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 21:09 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 21:28 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 21:08 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 21:05 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 21:11 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 21:06 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 21:17 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 21:18 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 21:09 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 21:23 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 21:35 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 21:09 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 21:25 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 21:24 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 21:33 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 21:13 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:05 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/1060082047.shtml)
-- 2026-06-29 21:01 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/03582835830.shtml)
-- 2026-06-29 21:11 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/368455.shtml)
-- 2026-06-29 21:13 - [沙丘](https://www.blog.minike.top/Article/details/891288327.shtml)
-- 2026-06-29 21:23 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/36478.shtml)
-- 2026-06-29 21:22 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/40872.shtml)
-- 2026-06-29 21:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/02179.shtml)
-- 2026-06-29 21:02 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/397881.shtml)
-- 2026-06-29 21:26 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/7276507634.shtml)
-- 2026-06-29 21:20 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/76601792.shtml)
-- 2026-06-29 21:12 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/23415517508.shtml)
-- 2026-06-29 21:09 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/658722814.shtml)
-- 2026-06-29 21:27 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/99247063140.shtml)
-- 2026-06-29 21:02 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/29060982.shtml)
-- 2026-06-29 21:11 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/81164031126.shtml)
+- 2026-06-29 21:18 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/859206.shtml)
+- 2026-06-29 21:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/23738284222.shtml)
+- 2026-06-29 21:08 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/3640579.shtml)
+- 2026-06-29 21:35 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/130904792.shtml)
+- 2026-06-29 21:15 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/6970324.shtml)
+- 2026-06-29 21:10 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/01587225381.shtml)
+- 2026-06-29 21:24 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/06714.shtml)
+- 2026-06-29 21:07 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/78623127127.shtml)
+- 2026-06-29 21:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/90113.shtml)
+- 2026-06-29 21:21 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/48007.shtml)
+- 2026-06-29 21:16 - [网红小徐直播时突遇地震](https://www.share.minike.top/Article/details/091096257.shtml)
+- 2026-06-29 21:31 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/02911784882.shtml)
+- 2026-06-29 21:26 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/201386167.shtml)
+- 2026-06-29 21:31 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/59149165.shtml)
+- 2026-06-29 21:06 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/882687312.shtml)

@@ -1,57 +1,56 @@
-# 纽约州州长称已达成解决长岛铁路罢工的协议
+# Blue Owl减持约半数SpaceX持股，交易估值1.25万亿美元
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-纽约州州长凯茜．霍楚尔（Kathy Hochul）表示，代表长岛铁路（Long Island Rail Road， 简称LIRR）工人的工会在周一与大都会运输署（MTA）达成协议。这场罢工导致美国最繁忙的通勤铁路陷入停顿，至周一已进入第三天。 霍楚尔表示，列车服务将于周二中午分阶段恢复。她说，MTA与代表工人的五个工会于周一晚间达成了一项“公平的协议”。 这位民主党州长没有透露
+另类资产管理公司Blue Owl Capital联合首席执行官Marc Lipschultz周四透露，公司已出售其所持SpaceX股份的约一半，交易估值约为1.25万亿美元。此次减持锁定了可观收益，同时保留了余下仓位以博取未来潜在上涨空间。 Lipschultz在分析师电话会上表示：“具体到SpaceX……我们在这项投资上赚了大约10倍。我们已在一级市场上卖掉了其中大约一半的持
 
 ## 正文
 
-纽约州州长凯茜．霍楚尔（Kathy Hochul）表示，代表长岛铁路（Long Island Rail Road， 简称LIRR）工人的工会在周一与大都会运输署（MTA）达成协议。
+另类资产管理公司Blue Owl Capital联合首席执行官Marc Lipschultz周四透露，公司已出售其所持SpaceX股份的约一半，交易估值约为1.25万亿美元。
 
-这场罢工导致美国最繁忙的通勤铁路陷入停顿，至周一已进入第三天。
+此次减持锁定了可观收益，同时保留了余下仓位以博取未来潜在上涨空间。
 
-霍楚尔表示，列车服务将于周二中午分阶段恢复。
+Lipschultz在分析师电话会上表示：“具体到SpaceX……我们在这项投资上赚了大约10倍。
 
-她说，MTA与代表工人的五个工会于周一晚间达成了一项“公平的协议”。
+我们已在一级市场上卖掉了其中大约一半的持仓，对应的估值是1.25万亿美元，我们仍然持有剩余的一半。
 
-这位民主党州长没有透露协议的具体条款，但表示该协议“在保护乘客和纳税人利益的同时，为工人带来了加薪”。
+” Blue Owl Technology Finance Corp基金于2021年向SpaceX股票投资了2700万美元，此后多次上调该持仓估值。
 
-上周末，约3，500名长岛铁路员工罢工离岗。
+截至2025年底，这笔投资已被标记为1.95亿美元，年度增幅达1.05亿美元。
 
-此前，他们的工会与长岛铁路的管理机构MTA进行了长达数月的谈判，但未能达成协议。
+SpaceX是该基金最大的未实现收益来源。
 
-每天往返于纽约和长岛之间的约30万名通勤者因此滞留。
+市场普遍预期SpaceX最早将于今年6月启动IPO，估值可能高达1.75万亿美元，募资规模约750亿美元，届时有望成为史上最大IPO。
 
 ## 相关推荐
 
-- 2026-06-29 21:28 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 21:22 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 21:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 21:27 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 21:20 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 21:29 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 21:26 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 21:29 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 21:08 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 21:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 21:09 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 21:08 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 21:28 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 21:34 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 21:25 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 21:14 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 21:29 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 21:17 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 21:26 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 21:06 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 21:22 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:24 - [锐评白玉兰提名片段](http://www.blog.kurohicncr.top/Article/details/6354433.shtml)
-- 2026-06-29 21:15 - [田曦薇没招了](http://www.share.minike.top/Article/details/06968676837.shtml)
-- 2026-06-29 21:18 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/98761.shtml)
-- 2026-06-29 21:29 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/2639708904.shtml)
-- 2026-06-29 21:08 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/3398576866.shtml)
-- 2026-06-29 21:16 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/1944800.shtml)
-- 2026-06-29 21:09 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/18355590.shtml)
-- 2026-06-29 21:12 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/813427321355.shtml)
-- 2026-06-29 21:23 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/236622270053.shtml)
-- 2026-06-29 21:20 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/60744300836.shtml)
-- 2026-06-29 21:20 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/163073809.shtml)
-- 2026-06-29 21:26 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/84941090.shtml)
-- 2026-06-29 21:21 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/010287.shtml)
-- 2026-06-29 21:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/548186621.shtml)
-- 2026-06-29 21:23 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/6958797.shtml)
+- 2026-06-29 21:19 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/7695344266.shtml)
+- 2026-06-29 21:10 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/552674.shtml)
+- 2026-06-29 21:11 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/802083498297.shtml)
+- 2026-06-29 21:29 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/95051.shtml)
+- 2026-06-29 21:13 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/24962.shtml)
+- 2026-06-29 21:14 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/4678612076.shtml)
+- 2026-06-29 21:31 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/571850802.shtml)
+- 2026-06-29 21:27 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/50656.shtml)
+- 2026-06-29 21:12 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/703178374407.shtml)
+- 2026-06-29 21:28 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/65513198984.shtml)
+- 2026-06-29 21:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/6764665.shtml)
+- 2026-06-29 21:33 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/26392.shtml)
+- 2026-06-29 21:13 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/659328919.shtml)
+- 2026-06-29 21:12 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/99477.shtml)
+- 2026-06-29 21:30 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/890849.shtml)

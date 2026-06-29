@@ -1,56 +1,59 @@
-# “浪漫邂逅”秒变“杀猪盘” “爆照打假”背后隐藏连环骗局
+# 尾盘：美股涨跌不一 纳指与标普指数涨幅收窄
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-本报通讯员 金霞 许泰溶 葛明亮 语音交友房间里的“浪漫邂逅”，转眼变成步步紧逼的“杀猪盘”；一句“敢不敢赌照片是本人”，背后竟是环环相扣的诈骗陷阱。近日，江苏省南通市崇川区检察院依法办理了一起利用某语音聊天软件中的婚恋交友直播间实施诈骗的案件，将“爆照打假”“担保对赌”的连环骗局公之于众。经该院提起公诉，近日，法院以诈骗罪判处被告人夏某拘役五个月，缓刑八个月。 “一进房间，全
+北京时间5月2日凌晨，美股周五尾盘涨跌不一，道指转跌，纳指与标普指数涨幅收窄。苹果引领科技股上涨。油价下跌，伊朗已递交与美国谈判的最新方案，美伊有望举行第二轮和谈。 道指跌73.75点，跌幅为0.15%，报49578.39点；纳指涨203.21点，涨幅为0.82%，报25095.53点；标普500指数涨25.58点，涨幅为0.35%，报7234.59点。 苹果股价走高，此前这家
 
 ## 正文
 
-本报通讯员 金霞 许泰溶 葛明亮 语音交友房间里的“浪漫邂逅”，转眼变成步步紧逼的“杀猪盘”；一句“敢不敢赌照片是本人”，背后竟是环环相扣的诈骗陷阱。
+北京时间5月2日凌晨，美股周五尾盘涨跌不一，道指转跌，纳指与标普指数涨幅收窄。
 
-近日，江苏省南通市崇川区检察院依法办理了一起利用某语音聊天软件中的婚恋交友直播间实施诈骗的案件，将“爆照打假”“担保对赌”的连环骗局公之于众。
+苹果引领科技股上涨。
 
-经该院提起公诉，近日，法院以诈骗罪判处被告人夏某拘役五个月，缓刑八个月。
+油价下跌，伊朗已递交与美国谈判的最新方案，美伊有望举行第二轮和谈。
 
-“一进房间，全是网友在热情互动，我以为遇到了正常的交友，没想到全是在演戏。
+道指跌73.75点，跌幅为0.15%，报49578.39点；纳指涨203.21点，涨幅为0.82%，报25095.53点；标普500指数涨25.58点，涨幅为0.35%，报7234.59点。
 
-”家住南通的被害人邓女士回忆起2025年8月的遭遇仍心有余悸。
+苹果股价走高，此前这家消费科技巨头公布的第二财季财报显示盈利和营收均超预期。
 
-当天凌晨，她在使用某语音聊天软件时，发现一个名叫“姻缘房”的直播间人气很高。
+不仅如此，该公司对本季度的营收展望也好于预期，这掩盖了iPhone营收在三个季度内第二次未能达到预期的事实。
 
-一心想要交友、脱单的邓女士便点了进去。
+另一方面，据报道伊朗已通过巴基斯坦调解人就美国就结束中东冲突的协议草案的最新修正案作出回应，油价随之下跌。
 
-刚进直播间，主持人就以游戏互动为由要求“爆照”。
+据伊朗官方媒体周五报道，伊朗于周四向巴基斯坦调解方提交了其与美国谈判的最新方案。
 
 ## 相关推荐
 
-- 2026-06-29 21:16 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 21:04 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 21:24 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 21:17 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 21:01 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 21:21 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 21:28 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 21:00 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 21:14 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 21:19 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 21:35 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 21:16 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 21:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 21:09 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 21:34 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 21:16 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 21:33 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 21:33 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 21:21 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 21:29 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 21:24 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 21:30 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 21:21 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:29 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/22772145760.shtml)
-- 2026-06-29 21:11 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.kurohicncr.top/Article/details/6829881.shtml)
-- 2026-06-29 21:07 - [这一刀 会很帅](http://www.share.minike.top/Article/details/53324.shtml)
-- 2026-06-29 21:09 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/477142583031.shtml)
-- 2026-06-29 21:02 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/66058995191.shtml)
-- 2026-06-29 21:19 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/430420099346.shtml)
-- 2026-06-29 21:14 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/989246.shtml)
-- 2026-06-29 21:07 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/35346363.shtml)
-- 2026-06-29 21:08 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/88007117.shtml)
-- 2026-06-29 21:06 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/308471016194.shtml)
-- 2026-06-29 21:12 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/7947977852.shtml)
-- 2026-06-29 21:02 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/87538.shtml)
-- 2026-06-29 21:13 - [如何看待乌空军3架米格-29被摧毁](http://www.share.minike.top/Article/details/71763.shtml)
-- 2026-06-29 21:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/28248125353.shtml)
-- 2026-06-29 21:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/49745468360.shtml)
+- 2026-06-29 21:22 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/9185166291.shtml)
+- 2026-06-29 21:10 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/614236961806.shtml)
+- 2026-06-29 21:11 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/11248.shtml)
+- 2026-06-29 21:18 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/4673002.shtml)
+- 2026-06-29 21:25 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/745707334.shtml)
+- 2026-06-29 21:23 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/44432.shtml)
+- 2026-06-29 21:17 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/79593355561.shtml)
+- 2026-06-29 21:15 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/872616216610.shtml)
+- 2026-06-29 21:14 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/42530.shtml)
+- 2026-06-29 21:29 - [送你一朵小红花](http://www.share.minike.top/Article/details/90656258.shtml)
+- 2026-06-29 21:29 - [千与千寻](https://www.share.minike.top/Article/details/5831277.shtml)
+- 2026-06-29 21:24 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/8326957086.shtml)
+- 2026-06-29 21:23 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/182525.shtml)
+- 2026-06-29 21:17 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/343866.shtml)
+- 2026-06-29 21:33 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/00292.shtml)

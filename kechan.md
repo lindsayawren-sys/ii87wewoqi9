@@ -1,61 +1,61 @@
-# “抢算力”还是“抢电力”？资金已率先布局
+# 云南边境的目瑙纵歌，何以火爆全网？
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-随着各地气温攀升，我国多地进入用电高峰期，夏季电力需求激增，供需偏紧的背景下，一般会催化一波电力板块的行情，市场上也一直流传着“冬炒煤，夏炒电”的说法。截至5月18日，绿电ETF华夏（562550）已连续10个交易日获资金净流入，合计“吸金”2.90亿元，最新规模为16.16亿元，创历史新高，位居同指数规模第一。 市场正在形成“AI的尽头是电力，电力的尽头是绿电”的共识。机构测
+上万各族民众身着节日盛装踏鼓而舞 AI拟人吟唱洗脑的“哦嘫哦嘫” 最近，你的短视频平台 是不是也被这首歌“硬控”了？ 视频：景颇族老歌遇上AI 目瑙纵歌再次火爆出圈来源：中国新闻网 没有顶流明星，没有亿级宣发 抖音播放量破20亿 B站二创视频满天飞 朋友圈里 连平时跳广场舞的阿姨都在打听 “这是什么神曲？” 别急，云南小伙伴告诉你 这是源自中缅边境德宏大山深处的 传统民族旋律
 
 ## 正文
 
-随着各地气温攀升，我国多地进入用电高峰期，夏季电力需求激增，供需偏紧的背景下，一般会催化一波电力板块的行情，市场上也一直流传着“冬炒煤，夏炒电”的说法。
+上万各族民众身着节日盛装踏鼓而舞 AI拟人吟唱洗脑的“哦嘫哦嘫” 最近，你的短视频平台 是不是也被这首歌“硬控”了？
 
-截至5月18日，绿电ETF华夏（562550）已连续10个交易日获资金净流入，合计“吸金”2.90亿元，最新规模为16.16亿元，创历史新高，位居同指数规模第一。
+视频：景颇族老歌遇上AI 目瑙纵歌再次火爆出圈来源：中国新闻网 没有顶流明星，没有亿级宣发 抖音播放量破20亿 B站二创视频满天飞 朋友圈里 连平时跳广场舞的阿姨都在打听 “这是什么神曲？
 
-市场正在形成“AI的尽头是电力，电力的尽头是绿电”的共识。
+” 别急，云南小伙伴告诉你 这是源自中缅边境德宏大山深处的 传统民族旋律 它的名字叫“目瑙纵歌” 目瑙纵歌是什么？
 
-机构测算，进入AI推理时代，中国大模型凭借成本优势进行“Token出海”，其对国内电力需求的潜在拉动弹性可能超过10%。
+目瑙纵歌是云南景颇族的盛大节日 通常在每年正月十五前后举行 “目瑙”是景颇支语 “纵歌”是载瓦支语 合起来意即“大家一起来跳舞” 那盛大而热烈的场面 堪称万人集体舞的“天花板” 这场流传千年之舞，到底有多硬核？
 
-而在能源转型的硬性约束下，这部分新增算力用电需求，可能由由绿电承接。
+生活在祖国西南边陲的景颇族 自称是“太阳的子孙”“太阳的后裔” 景颇族创世史诗《目瑙斋瓦》 记载了目瑙纵歌的起源 这场传承千年的舞蹈 曾经是献给太阳神的虔诚祭礼 千年之后，它逐渐发展成为 庆祝丰收、重走来时路、凝聚民族魂的盛大仪式 2006年，“景颇族目瑙纵歌” 被列入第一批国家级非物质文化遗产名录 2012年2月6日，德宏芒市广场 18604名舞者同时起舞 一举刷新 “世界最大规模景颇族目瑙纵歌舞” 吉尼斯纪录 这场“天堂之舞”，到底有多浪漫？
 
-电力的双重催化：迎峰度夏+AI算力 电力催化因素，首先是迎峰度夏，传统需求高峰如期而至。
+景颇族目瑙纵歌的核心领舞者叫“瑙双” 他们头戴犀鸟羽冠 冠顶插有百鸟的羽毛 这个崇拜犀鸟的民族有个浪漫的传说 目瑙纵歌是一种来自太阳王宫的舞蹈 是由百鸟带回了人间 传给了景颇族的祖先 当“瑙双”带领队伍 绕着“目瑙示栋”(舞场中心的图腾柱)回旋起舞 舞者脚下踩出的每一步 都是景颇族翻越喜马拉雅山南下的漫漫足迹 我们看到的是一场盛大的舞蹈 他们跳着的是一部民族迁徙的史诗 这场万人狂欢之舞，到底有多上头？
 
-结合历年全社会用电量数据看，每年的用电高峰都出现在夏季高温时段。
+中国境内的景颇族主要分布在云南省德宏州 在缅甸，这个民族被称为“克钦” 在印度、尼泊尔，则叫“新福(颇)” 景颇族过节 从不关起门来“自嗨” 他们与傣族、阿昌族等兄弟民族 连同来自五湖四海的游客 一同汇入沸腾的大舞台 万人大齐舞，大地跟着抖 而贯穿全场、庄重雄浑的背景音乐 正是由景颇族艺术家石勒干 于1991年创作的《目瑙纵歌进行曲》 也是当前火爆网络的 《目瑙纵歌》的旋律源头 目瑙纵歌怎么火了？
 
-每年5月起，“迎峰度夏”便成为能源领域的关键词。
+一首诞生于30多年的曲子 何以经过AI改编后火爆出圈？
 
 ## 相关推荐
 
-- 2026-06-29 21:22 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 21:17 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 21:22 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 21:27 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 21:23 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 21:20 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 21:06 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 21:14 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 21:16 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 21:17 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 21:27 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 21:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 21:23 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 21:26 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 21:02 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 21:26 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 21:09 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 21:31 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 21:27 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 21:27 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 21:17 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 21:16 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 21:14 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 21:11 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 21:13 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 21:32 - [高质量发展看新疆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 21:10 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 21:33 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 21:31 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 21:07 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:18 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/5812612756.shtml)
-- 2026-06-29 21:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/522101.shtml)
-- 2026-06-29 21:18 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/370212189689.shtml)
-- 2026-06-29 21:00 - [任泽平：AI浪潮刚刚开始](http://www.share.kurohicncr.top/Article/details/3878481.shtml)
-- 2026-06-29 21:29 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/73118549.shtml)
-- 2026-06-29 21:20 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/547746592.shtml)
-- 2026-06-29 21:01 - [厨房装空调还是装冷烟机](https://www.share.minike.top/Article/details/745520120.shtml)
-- 2026-06-29 21:24 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/5580563668.shtml)
-- 2026-06-29 21:14 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/242586.shtml)
-- 2026-06-29 21:04 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/211309358.shtml)
-- 2026-06-29 21:17 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/095501502902.shtml)
-- 2026-06-29 21:00 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/231428737.shtml)
-- 2026-06-29 21:19 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/767066927.shtml)
-- 2026-06-29 21:16 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/47450546.shtml)
-- 2026-06-29 21:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/4164427329.shtml)
+- 2026-06-29 21:08 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/792046.shtml)
+- 2026-06-29 21:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/55948956.shtml)
+- 2026-06-29 21:08 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/797301.shtml)
+- 2026-06-29 21:23 - [爱很美味](http://www.blog.minike.top/Article/details/2267773.shtml)
+- 2026-06-29 21:26 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/0228900000.shtml)
+- 2026-06-29 21:11 - [绘画区你赢了](http://www.blog.minike.top/Article/details/524001403.shtml)
+- 2026-06-29 21:13 - [湖南姑娘被东北同事带偏口音](http://www.blog.kurohicncr.top/Article/details/38214956185.shtml)
+- 2026-06-29 21:23 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/429362445.shtml)
+- 2026-06-29 21:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/0966965500.shtml)
+- 2026-06-29 21:25 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/8213322852.shtml)
+- 2026-06-29 21:17 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/337717.shtml)
+- 2026-06-29 21:28 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/5650944.shtml)
+- 2026-06-29 21:20 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/7929573.shtml)
+- 2026-06-29 21:23 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/91642390075.shtml)
+- 2026-06-29 21:17 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/917608.shtml)

@@ -1,50 +1,59 @@
-# 丁薛祥会见俄罗斯第一副总理曼图罗夫
+# 露露乐蒙新任CEO尚未正式上任，已深陷舆论风口
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-新华社北京5月19日电中共中央政治局常委、国务院副总理丁薛祥19日在北京会见俄罗斯第一副总理曼图罗夫。 丁薛祥表示，在习近平主席和普京总统战略引领下，中俄有关方面共同努力，推动两国投资合作保持良好发展态势。今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年，双方要以此为契机，进一步落实好两国元首重要共识，发挥中俄投资合作委员会统筹协调作用，稳步推进重点
+耐克资深高管海蒂・奥尼尔定于 9 月接任，但投资者普遍表达不满 内容速览 露露乐蒙任命前耐克高管海蒂・奥尼尔为新任首席执行官，引发市场负面反响；消息公布当日公司股价大跌 13%，同时遭到多方质疑与批评。 露露乐蒙（LULU）董事会此前承受巨大压力：公司创始人与管理层决裂、发起代理权之争，知名激进投资者也伺机入局，外界倒逼董事会尽快物色新任 CEO，挽救经营颓势。 上周，露露乐蒙
 
 ## 正文
 
-新华社北京5月19日电中共中央政治局常委、国务院副总理丁薛祥19日在北京会见俄罗斯第一副总理曼图罗夫。
+耐克资深高管海蒂・奥尼尔定于 9 月接任，但投资者普遍表达不满 内容速览 露露乐蒙任命前耐克高管海蒂・奥尼尔为新任首席执行官，引发市场负面反响；消息公布当日公司股价大跌 13%，同时遭到多方质疑与批评。
 
-丁薛祥表示，在习近平主席和普京总统战略引领下，中俄有关方面共同努力，推动两国投资合作保持良好发展态势。
+露露乐蒙（LULU）董事会此前承受巨大压力：公司创始人与管理层决裂、发起代理权之争，知名激进投资者也伺机入局，外界倒逼董事会尽快物色新任 CEO，挽救经营颓势。
 
-今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年，双方要以此为契机，进一步落实好两国元首重要共识，发挥中俄投资合作委员会统筹协调作用，稳步推进重点项目，拓展合作领域，取得更多务实成果，持续为两国关系发展注入强劲动力。
+上周，露露乐蒙敲定由前耐克高管海蒂・奥尼尔出任 CEO。
 
-曼图罗夫表示，俄方愿同中方加强战略对接，丰富合作内容，积极解决双方关心的问题，不断提升两国投资合作水平。
+董事长玛蒂・莫菲特及董事会原本以为人选尘埃落定、万事稳妥，不料这次任命适得其反、引发强烈反噬。
 
-（完） 责任编辑：刘万里 SF014
+消息官宣当天，露露乐蒙股价暴跌 13%，此后继续走弱。
+
+华尔街分析师质疑奥尼尔在耐克的过往任职表现；投资者则抱怨，她还要四个多月后才正式到岗，令本就处境艰难的公司在脆弱过渡期缺少正式一把手。
+
+露露乐蒙表示，奥尼尔获得董事会全力支持，董事会坚信她过往亮眼的业绩记录与运营专业能力，是带领公司前行的合适人选。
+
+官宣奥尼尔出任 CEO 几天后，露露乐蒙宣布新增一名董事：联合利华前资深高管艾西・埃格尔斯顿・布雷西。
 
 ## 相关推荐
 
-- 2026-06-29 21:22 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 21:17 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 21:17 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 21:13 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 21:21 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 21:14 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 21:27 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 21:25 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 21:28 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 21:13 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 21:11 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 21:12 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 21:21 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 21:09 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 21:10 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 21:28 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 21:31 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 21:29 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 21:13 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 21:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 21:22 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 21:29 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 21:14 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:08 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/99535.shtml)
-- 2026-06-29 21:25 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/6812707537.shtml)
-- 2026-06-29 21:21 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/57932630335.shtml)
-- 2026-06-29 21:25 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/56321240.shtml)
-- 2026-06-29 21:10 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/4270371646.shtml)
-- 2026-06-29 21:17 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/2838376403.shtml)
-- 2026-06-29 21:12 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/096171315720.shtml)
-- 2026-06-29 21:12 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/27196941.shtml)
-- 2026-06-29 21:01 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/64959980.shtml)
-- 2026-06-29 21:07 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/365432858.shtml)
-- 2026-06-29 21:14 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/65414450701.shtml)
-- 2026-06-29 21:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/6635613.shtml)
-- 2026-06-29 21:03 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/3933667924.shtml)
-- 2026-06-29 21:02 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/55104.shtml)
-- 2026-06-29 21:06 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/18184470.shtml)
+- 2026-06-29 21:28 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/36934895997.shtml)
+- 2026-06-29 21:35 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/749169068588.shtml)
+- 2026-06-29 21:20 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/54839303.shtml)
+- 2026-06-29 21:14 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/8544554650.shtml)
+- 2026-06-29 21:10 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/99981246.shtml)
+- 2026-06-29 21:26 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/681697.shtml)
+- 2026-06-29 21:21 - [TOP Prada](http://www.blog.minike.top/Article/details/905823.shtml)
+- 2026-06-29 21:34 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/805901.shtml)
+- 2026-06-29 21:12 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/56212214985.shtml)
+- 2026-06-29 21:28 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/487281086732.shtml)
+- 2026-06-29 21:11 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/158082762999.shtml)
+- 2026-06-29 21:17 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/91011363560.shtml)
+- 2026-06-29 21:35 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/03355169890.shtml)
+- 2026-06-29 21:10 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/2711266615.shtml)
+- 2026-06-29 21:06 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/414707.shtml)

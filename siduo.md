@@ -1,56 +1,55 @@
-# 2026重庆国际友好城市合作大会开幕
+# 花旗：中国海外发展给予“买入”评级 目标价14.2港元
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中新社重庆5月20日电 (梁钦卿)2026重庆国际友好城市合作大会20日在重庆开幕。来自29个国家38个城市的政府代表团和9个国际友好组织，17个国家的驻华使节，部分外国企业和商协会代表等汇聚山城，携手拓展多层次、宽领域、深层次友城务实合作。 本次大会召开前，重庆已与39个国家的59个城市建立友好城市关系，并与137个城市保持友好交流城市关系。开幕式上，重庆市分别与越南老街省、
+花旗发布研报称，对中国海外发展（00688）开启30日正面催化因素观察，因公司去年的土地收购金额为行业最高，在15个城市投入924亿元人民币。该行现予目标价14.2港元及“买入”评级。 公司今年首季销售强劲，达511亿元人民币，同比增长11%。该行预期在3月强劲销售后，次季销售将持续强劲。另外，公司资产负债表强劲，使其有能力在核心城市承接大型综合项目。同时，公司成本管理有效，销
 
 ## 正文
 
-中新社重庆5月20日电 (梁钦卿)2026重庆国际友好城市合作大会20日在重庆开幕。
+花旗发布研报称，对中国海外发展（00688）开启30日正面催化因素观察，因公司去年的土地收购金额为行业最高，在15个城市投入924亿元人民币。
 
-来自29个国家38个城市的政府代表团和9个国际友好组织，17个国家的驻华使节，部分外国企业和商协会代表等汇聚山城，携手拓展多层次、宽领域、深层次友城务实合作。
+该行现予目标价14.2港元及“买入”评级。
 
-本次大会召开前，重庆已与39个国家的59个城市建立友好城市关系，并与137个城市保持友好交流城市关系。
+公司今年首季销售强劲，达511亿元人民币，同比增长11%。
 
-开幕式上，重庆市分别与越南老街省、缅甸仰光省、乌兹别克斯坦吉扎克州、斯洛伐克特伦钦州，渝中区分别与匈牙利巴拉顿博格拉尔市、白俄罗斯明斯克州涅斯维日区建立友好交流关系。
+该行预期在3月强劲销售后，次季销售将持续强劲。
 
-重庆国际“朋友圈”新增6城，遍布五大洲的伙伴网络日趋完善。
+另外，公司资产负债表强劲，使其有能力在核心城市承接大型综合项目。
 
-未来三年，重庆将与白俄罗斯明斯克州围绕工业机器人、医疗器械、农副产品等13个重点项目开展合作；与美国西雅图市开展城市治理、动物保护、园林景观等合作；与蒙古国乌兰巴托市开展教育培训、体育赛事、文旅推广等合作。
+同时，公司成本管理有效，销售及管理费用比率和融资成本均为行业最低水平，加上全产业链扩张，租金收入不断提升，并已发行商业房地产投资信托基金。
 
-此外，中国长安汽车和乌兹别克斯坦ADM集团将合作制造新能源汽车。
-
-尼泊尔—中国经贸协会和重庆市进出口商会，白俄罗斯工商会和重庆市贸促会，将开展投资推介、贸易促进等活动。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:28 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 21:06 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 21:12 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 21:10 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 21:12 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 21:01 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 21:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 21:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 21:21 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 21:06 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 21:26 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 21:15 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 21:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 21:10 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 21:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 21:29 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 21:06 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 21:24 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 21:08 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 21:23 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 21:31 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:19 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/909354430.shtml)
-- 2026-06-29 21:03 - [林逸向方筱然求婚了](http://www.blog.minike.top/Article/details/847910.shtml)
-- 2026-06-29 21:10 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/05652490276.shtml)
-- 2026-06-29 21:01 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/12477267.shtml)
-- 2026-06-29 21:17 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/68585239591.shtml)
-- 2026-06-29 21:04 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/62560942244.shtml)
-- 2026-06-29 21:16 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/244003.shtml)
-- 2026-06-29 21:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/6136652.shtml)
-- 2026-06-29 21:25 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/90322.shtml)
-- 2026-06-29 21:28 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/675365112.shtml)
-- 2026-06-29 21:12 - [C罗10球7球对垫底队](http://www.blog.kurohicncr.top/Article/details/551184068041.shtml)
-- 2026-06-29 21:11 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/01375300883.shtml)
-- 2026-06-29 21:11 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/70797.shtml)
-- 2026-06-29 21:07 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/93959734.shtml)
-- 2026-06-29 21:08 - [店员光脚踩入盆中清洗土豆](http://www.share.kurohicncr.top/Article/details/028910791126.shtml)
+- 2026-06-29 21:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/335747219.shtml)
+- 2026-06-29 21:33 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/52010.shtml)
+- 2026-06-29 21:18 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/599905407.shtml)
+- 2026-06-29 21:33 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/86385.shtml)
+- 2026-06-29 21:30 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/986477.shtml)
+- 2026-06-29 21:29 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.minike.top/Article/details/125255751255.shtml)
+- 2026-06-29 21:09 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/1818855.shtml)
+- 2026-06-29 21:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/923851.shtml)
+- 2026-06-29 21:30 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/3451540228.shtml)
+- 2026-06-29 21:35 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/51234.shtml)
+- 2026-06-29 21:27 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/278473.shtml)
+- 2026-06-29 21:21 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/484847701436.shtml)
+- 2026-06-29 21:27 - [千与千寻](http://www.share.kurohicncr.top/Article/details/996577392.shtml)
+- 2026-06-29 21:21 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/02675942800.shtml)
+- 2026-06-29 21:11 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/85335478486.shtml)

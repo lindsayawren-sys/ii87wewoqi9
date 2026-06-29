@@ -1,57 +1,49 @@
-# AI进入“结果交付时代”，百度率先跨过价值拐点
+# 世界超级摩托车锦标赛匈牙利站“张雪机车”夺冠
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-昨日晚间，百度发布2026年第一季度财报。季度总营收321亿元，其中百度一般性业务收入260亿元，同比增长2%，超出市场预期。更具标志性意义的是，百度核心AI新业务收入达136亿元，占一般性业务收入的52%，同比增长49%，首次过半。 对于此次财报发布，百度创始人李彦宏点评道：“AI业务收入占比的首次过半，标志着AI已成为百度的核心驱动力。”百度首席财务官何海健同样指出，这是一
+在刚刚结束的2026世界超级摩托车锦标赛(WSBK)匈牙利站WorldSSP组别第一回合正赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯夺得冠军。 (央视新闻客户端)
 
 ## 正文
 
-昨日晚间，百度发布2026年第一季度财报。
+在刚刚结束的2026世界超级摩托车锦标赛(WSBK)匈牙利站WorldSSP组别第一回合正赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯夺得冠军。
 
-季度总营收321亿元，其中百度一般性业务收入260亿元，同比增长2%，超出市场预期。
-
-更具标志性意义的是，百度核心AI新业务收入达136亿元，占一般性业务收入的52%，同比增长49%，首次过半。
-
-对于此次财报发布，百度创始人李彦宏点评道：“AI业务收入占比的首次过半，标志着AI已成为百度的核心驱动力。
-
-”百度首席财务官何海健同样指出，这是一个重要的里程碑，“既体现了AI技术对公司贡献的持续提升，也说明我们的收入结构正在变得更加多元化。
-
-” 当行业仍在争论大模型参数与算力规模时，百度开始用财务数据证明：AI的竞争正从“模型能力”转向“结果交付”。
-
-收入结构质变：AI业务占比过半，利润率进入扩张通道 此次财报发布，清晰呈现出了百度收入结构的根本性转向。
-
-2026年第一季度，百度核心AI新业务收入136亿元，在一般性业务中的占比从2025年第一季度的36%跃升至52%，连续多个季度保持增长态势。
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-29 21:26 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 21:15 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 21:21 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 21:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 21:03 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 21:10 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 21:27 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 21:00 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 21:09 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 21:19 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 21:10 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 21:19 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 21:29 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 21:17 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 21:14 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 21:19 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 21:30 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 21:22 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 21:19 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 21:27 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 21:24 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 21:16 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 21:06 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 21:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 21:09 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 21:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:20 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/31232.shtml)
-- 2026-06-29 21:01 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/4284468.shtml)
-- 2026-06-29 21:23 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/271654880.shtml)
-- 2026-06-29 21:29 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/8285639.shtml)
-- 2026-06-29 21:12 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.kurohicncr.top/Article/details/1320569.shtml)
-- 2026-06-29 21:07 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/697016.shtml)
-- 2026-06-29 21:28 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.kurohicncr.top/Article/details/790499606.shtml)
-- 2026-06-29 21:01 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/3976115.shtml)
-- 2026-06-29 21:03 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/39959.shtml)
-- 2026-06-29 21:06 - [锐评白玉兰提名片段](http://www.share.kurohicncr.top/Article/details/582428544762.shtml)
-- 2026-06-29 21:17 - [网约车出事故平台拒赔称只是中介](http://www.blog.minike.top/Article/details/61743060.shtml)
-- 2026-06-29 21:27 - [周生如故](https://www.blog.minike.top/Article/details/670325204.shtml)
-- 2026-06-29 21:09 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/71442.shtml)
-- 2026-06-29 21:11 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/554963.shtml)
-- 2026-06-29 21:12 - [不烧钱的低成本爱好](http://www.share.minike.top/Article/details/230261143064.shtml)
+- 2026-06-29 21:35 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/64466172737.shtml)
+- 2026-06-29 21:15 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/522549480561.shtml)
+- 2026-06-29 21:17 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/247681667364.shtml)
+- 2026-06-29 21:24 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/336252319994.shtml)
+- 2026-06-29 21:15 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/116542.shtml)
+- 2026-06-29 21:31 - [速度与激情9](https://www.blog.minike.top/Article/details/63563306165.shtml)
+- 2026-06-29 21:10 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/620169828064.shtml)
+- 2026-06-29 21:31 - [任泽平：AI浪潮刚刚开始](http://www.share.minike.top/Article/details/20618.shtml)
+- 2026-06-29 21:14 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/05922.shtml)
+- 2026-06-29 21:22 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/39544676.shtml)
+- 2026-06-29 21:22 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/4356068376.shtml)
+- 2026-06-29 21:18 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/6463233.shtml)
+- 2026-06-29 21:13 - [半导体和股市为何没让韩国人起飞](http://www.share.kurohicncr.top/Article/details/847146.shtml)
+- 2026-06-29 21:32 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/10449728522.shtml)
+- 2026-06-29 21:10 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/298075.shtml)

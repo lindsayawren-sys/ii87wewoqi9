@@ -1,54 +1,60 @@
-# 湖南桑植县一山体滑坡致电力受损 电力部门冒雨抢修
+# “世界看见惠安——惠女繁花嘉年华”主题晚会绽放国际交流光彩
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 13:52 来源：中国新闻网 5月18日，湖南张家界，受持续强降雨影响，张家界桑植县河口乡塘坊村龚家坡路段发生山体滑坡，导致乡道C400公路中断，倒伏的树木砸断10千伏新河线河太支线的两档供电线路，影响塘坊村691户民众生产生活用电。当地接到险情报告后，冒雨组织供电员工开展应急抢修工作。从树障清理，新电杆吊装立杆、架线、送电，历经10余个小时的
+中新网福建惠安5月2日电 (记者 孙虹)今年“五一”期间，侨乡福建惠安县延续“惠女风情推介年”主线，开展“惠女繁花嘉年华”系列活动。“世界看见惠安——惠女繁花嘉年华”主题晚会1日晚在崇武古城精彩上演，汇聚两岸亲情、民族交融、中外互鉴，推动非遗活化、文旅融合与民间友好交流再上新台阶。 灯光流转、乐声悠扬，惠安女服饰年度回顾大秀于此间惊艳亮相，集中呈现去年以来惠女文化从国内走向国际
 
 ## 正文
 
-发布时间：2026年05月19日 13:52 来源：中国新闻网 5月18日，湖南张家界，受持续强降雨影响，张家界桑植县河口乡塘坊村龚家坡路段发生山体滑坡，导致乡道C400公路中断，倒伏的树木砸断10千伏新河线河太支线的两档供电线路，影响塘坊村691户民众生产生活用电。
+中新网福建惠安5月2日电 (记者 孙虹)今年“五一”期间，侨乡福建惠安县延续“惠女风情推介年”主线，开展“惠女繁花嘉年华”系列活动。
 
-当地接到险情报告后，冒雨组织供电员工开展应急抢修工作。
+“世界看见惠安——惠女繁花嘉年华”主题晚会1日晚在崇武古城精彩上演，汇聚两岸亲情、民族交融、中外互鉴，推动非遗活化、文旅融合与民间友好交流再上新台阶。
 
-从树障清理，新电杆吊装立杆、架线、送电，历经10余个小时的排险作业，10千伏新河线河太支线于5月18日21时恢复供电。
+灯光流转、乐声悠扬，惠安女服饰年度回顾大秀于此间惊艳亮相，集中呈现去年以来惠女文化从国内走向国际的经典造型。
 
-目前，该村正在开展公路清障工作，预计19日下午可恢复公路畅通。
+惠安女服饰以鲜明的海洋特色、精巧的非遗技艺，成为传播中华传统文化、讲好中国故事的鲜活载体。
 
-(高双志 龙锦涛 杜瑜 制作 徐妙巧） 责任编辑：【罗攀】
+现场观众在流光溢彩中沉浸式感受千年非遗的匠心传承与时尚表达，掌声接连不断。
+
+在中国，向海而生、坚韧担当的惠安女享誉海内外；在韩国，传承百年、踏浪耕海的济州岛海女文化被列入联合国教科文组织人类非物质文化遗产名录。
+
+两种海洋女性文化跨越山海在舞台上温情相遇，展开文化交流与文明互鉴。
+
+“济州岛海女和惠安女都是在大海里拼搏求生的女性代表，有很多相似的地方，美丽、勇敢、坚强，都深受大家喜欢。
 
 ## 相关推荐
 
-- 2026-06-29 21:13 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 21:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 21:21 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 21:01 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 21:24 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 21:12 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 21:12 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 21:21 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 21:09 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 21:28 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 21:24 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 21:24 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 21:06 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 21:10 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 21:30 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 21:27 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 21:31 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 21:35 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 21:33 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 21:11 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 21:24 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 21:18 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 21:34 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 21:28 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 21:27 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 21:26 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 21:10 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 21:08 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:22 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/78435.shtml)
-- 2026-06-29 21:23 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/216129246216.shtml)
-- 2026-06-29 21:14 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/20012.shtml)
-- 2026-06-29 21:22 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/0600438.shtml)
-- 2026-06-29 21:13 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/7291963171.shtml)
-- 2026-06-29 21:20 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/48437.shtml)
-- 2026-06-29 21:03 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/233937409.shtml)
-- 2026-06-29 21:14 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/3546097960.shtml)
-- 2026-06-29 21:16 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/4833923.shtml)
-- 2026-06-29 21:14 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/67813176581.shtml)
-- 2026-06-29 21:29 - [我和我的家乡](http://www.blog.minike.top/Article/details/83228636.shtml)
-- 2026-06-29 21:28 - [巴西10号球衣是天才传承史](https://www.share.kurohicncr.top/Article/details/58099585.shtml)
-- 2026-06-29 21:12 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/1997020245.shtml)
-- 2026-06-29 21:10 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/46700841.shtml)
-- 2026-06-29 21:00 - [流金岁月](http://www.share.minike.top/Article/details/46350109.shtml)
+- 2026-06-29 21:28 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/43383370808.shtml)
+- 2026-06-29 21:11 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/020572857789.shtml)
+- 2026-06-29 21:24 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/021022.shtml)
+- 2026-06-29 21:06 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/9047147507.shtml)
+- 2026-06-29 21:06 - [男子称在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/072526.shtml)
+- 2026-06-29 21:18 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/49058.shtml)
+- 2026-06-29 21:33 - [急先锋](http://www.share.kurohicncr.top/Article/details/464225160.shtml)
+- 2026-06-29 21:21 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/4997078.shtml)
+- 2026-06-29 21:17 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/26502628.shtml)
+- 2026-06-29 21:31 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/5978644488.shtml)
+- 2026-06-29 21:12 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/969806575276.shtml)
+- 2026-06-29 21:09 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/940380383490.shtml)
+- 2026-06-29 21:07 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/3166697323.shtml)
+- 2026-06-29 21:19 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/999099.shtml)
+- 2026-06-29 21:35 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/078821784238.shtml)

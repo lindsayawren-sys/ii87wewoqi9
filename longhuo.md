@@ -1,53 +1,61 @@
-# 湖北宣恩暴雨灾情已致3人死亡 4人失联
+# “灰烬下的史诗”庞贝文物展开幕 108件古罗马珍宝云南首展
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中新网恩施5月19日电 湖北省恩施土家族苗族自治州宣恩县防汛抗旱指挥部办公室18日晚发布情况通报，截至18日20时，灾情已造成3人死亡、4人失联。 5月17日至18日，恩施州宣恩县沙道沟镇白水河村上游普降大到暴雨，最大降雨量达292.6毫米，导致河水暴涨，白水河村沿河区域多处房屋被淹、部分房屋倒塌、道路通讯中断。 汛情发生后，恩施州和宣恩县两级防汛抗旱指挥部迅速启动应急响应，第
+中新网昆明5月1日电 (罗婕)5月1日，由云南省博物馆与意大利那不勒斯国家考古博物馆联合主办的“灰烬下的史诗——意大利那不勒斯国家考古博物馆馆藏庞贝文物展”正式开幕，108件(套)古罗马时期珍贵文物，首次在云南昆明展出。 庞贝曾是罗马帝国的核心港口市镇，这里土地肥沃、海产丰富、气候宜人。公元79年，维苏威火山的喷发让庞贝被掩埋，关于古代世界日常生活独特且珍贵的记录就此保留下来。
 
 ## 正文
 
-中新网恩施5月19日电 湖北省恩施土家族苗族自治州宣恩县防汛抗旱指挥部办公室18日晚发布情况通报，截至18日20时，灾情已造成3人死亡、4人失联。
+中新网昆明5月1日电 (罗婕)5月1日，由云南省博物馆与意大利那不勒斯国家考古博物馆联合主办的“灰烬下的史诗——意大利那不勒斯国家考古博物馆馆藏庞贝文物展”正式开幕，108件(套)古罗马时期珍贵文物，首次在云南昆明展出。
 
-5月17日至18日，恩施州宣恩县沙道沟镇白水河村上游普降大到暴雨，最大降雨量达292.6毫米，导致河水暴涨，白水河村沿河区域多处房屋被淹、部分房屋倒塌、道路通讯中断。
+庞贝曾是罗马帝国的核心港口市镇，这里土地肥沃、海产丰富、气候宜人。
 
-汛情发生后，恩施州和宣恩县两级防汛抗旱指挥部迅速启动应急响应，第一时间组织武警、公安、应急、消防、交通、电力、通讯等部门赶赴现场，紧急转移群众287人，全力开展人员搜救、医疗救治、道路疏通、通讯抢修等应急救援工作。
+公元79年，维苏威火山的喷发让庞贝被掩埋，关于古代世界日常生活独特且珍贵的记录就此保留下来。
 
-目前，应急救援工作还在全力开展中。
+此次展品涵盖大理石雕塑、巨幅壁画、青铜器、金银饰品及火山灰下出土的生活遗存。
 
-(完)
+观众可看到高达2.3米的托加长袍雕像，身着罗马公民标志性长袍；长达3.1米的巨幅壁画，描绘家庭的守护神。
+
+此外，色泽如初的蓝色玻璃化妆碗和鹿头造型的青铜来通杯，展现古罗马工匠对材质与形态的精准把控。
+
+庞贝的命运，与海紧密相连。
+
+萨尔诺河绕城而过，通达地中海，使这座城市成为罗马帝国重要的贸易枢纽。
 
 ## 相关推荐
 
-- 2026-06-29 21:24 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 21:29 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 21:27 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 21:17 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 21:16 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 21:01 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 21:19 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 21:11 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 21:13 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 21:02 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 21:15 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 21:02 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 21:24 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 21:28 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 21:18 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 21:22 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 21:27 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 21:24 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 21:35 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 21:30 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 21:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 21:09 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 21:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 21:28 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 21:07 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 21:12 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 21:13 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 21:14 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:04 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/019763132242.shtml)
-- 2026-06-29 21:15 - [金牌调解](http://www.share.kurohicncr.top/Article/details/909047140045.shtml)
-- 2026-06-29 21:28 - [新官上任三把火](https://www.share.minike.top/Article/details/86869032008.shtml)
-- 2026-06-29 21:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/52083.shtml)
-- 2026-06-29 21:08 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/254059210153.shtml)
-- 2026-06-29 21:28 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/05851727640.shtml)
-- 2026-06-29 21:01 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/4418092504.shtml)
-- 2026-06-29 21:08 - [时光音乐会](http://www.share.minike.top/Article/details/4038166.shtml)
-- 2026-06-29 21:20 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/2558780692.shtml)
-- 2026-06-29 21:07 - [一见倾心](https://www.share.kurohicncr.top/Article/details/2443435992.shtml)
-- 2026-06-29 21:14 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/259272324.shtml)
-- 2026-06-29 21:19 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/351066.shtml)
-- 2026-06-29 21:21 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/74594458.shtml)
-- 2026-06-29 21:10 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/76887032705.shtml)
-- 2026-06-29 21:26 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/81633597366.shtml)
+- 2026-06-29 21:11 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/238849608887.shtml)
+- 2026-06-29 21:18 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/900439970563.shtml)
+- 2026-06-29 21:27 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/1829327050.shtml)
+- 2026-06-29 21:13 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/493129484.shtml)
+- 2026-06-29 21:24 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/66886.shtml)
+- 2026-06-29 21:24 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/710170643.shtml)
+- 2026-06-29 21:28 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/41095106293.shtml)
+- 2026-06-29 21:32 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/2719665252.shtml)
+- 2026-06-29 21:20 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/831578066.shtml)
+- 2026-06-29 21:11 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/5373005.shtml)
+- 2026-06-29 21:24 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/372718567.shtml)
+- 2026-06-29 21:06 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.minike.top/Article/details/236832.shtml)
+- 2026-06-29 21:21 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/132179555.shtml)
+- 2026-06-29 21:21 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/25960410.shtml)
+- 2026-06-29 21:34 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/4057082.shtml)

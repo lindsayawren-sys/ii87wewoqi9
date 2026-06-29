@@ -1,60 +1,57 @@
-# AMD苏姿丰重仓中国AI，预判50亿用户红利
+# 巴西电机及电气设备制造商Weg高管：长周期设备订单现改善迹象
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-记者丨陶力 董静怡 编辑丨骆一帆 包芳鸣 视频丨肖航 5月19日，上海前滩香格里拉酒店，成为中国AI圈的焦点。 AMD首次将全球AI开发者大会移师中国，这场原本计划容纳不到1000人的技术盛会，最终报名人数超过2000名。当AMD董事长兼CEO苏姿丰身着简约正装现身Demo展区时，现场瞬间掀起热潮。她所到之处，被开发者和媒体里三层外三层围堵，大家纷纷将手机举过头顶拍摄，不少人踮
+巴西电机及电气设备制造商Weg周四在一季度财报会议上表示，尽管巴西本土市场需求疲软拖累了整体业绩，但长周期设备订单已出现改善迹象，尤其是在德国和美国市场。 财报显示，第一季度净运营收入为94.7亿雷亚尔，同比下降6.1%；净利润为14.6亿雷亚尔，同比下降5.7%，略低于市场预期。巴西本土收入下降19.5%，主要受大型集中式太阳能发电项目交付减少、电网输电瓶颈及高利率环境影响。
 
 ## 正文
 
-记者丨陶力 董静怡 编辑丨骆一帆 包芳鸣 视频丨肖航 5月19日，上海前滩香格里拉酒店，成为中国AI圈的焦点。
+巴西电机及电气设备制造商Weg周四在一季度财报会议上表示，尽管巴西本土市场需求疲软拖累了整体业绩，但长周期设备订单已出现改善迹象，尤其是在德国和美国市场。
 
-AMD首次将全球AI开发者大会移师中国，这场原本计划容纳不到1000人的技术盛会，最终报名人数超过2000名。
+财报显示，第一季度净运营收入为94.7亿雷亚尔，同比下降6.1%；净利润为14.6亿雷亚尔，同比下降5.7%，略低于市场预期。
 
-当AMD董事长兼CEO苏姿丰身着简约正装现身Demo展区时，现场瞬间掀起热潮。
+巴西本土收入下降19.5%，主要受大型集中式太阳能发电项目交付减少、电网输电瓶颈及高利率环境影响。
 
-她所到之处，被开发者和媒体里三层外三层围堵，大家纷纷将手机举过头顶拍摄，不少人踮脚争抢合影机会，场面堪比大型“追星现场”。
+然而，海外市场表现稳健。
 
-“你们兴奋吗？
+境外收入按雷亚尔计算增长4.5%至59亿雷亚尔，按美元计算则增长16.1%至11.2亿美元。
 
-”在随后的演讲中，苏姿丰以一句热情的问候开篇，在近10分钟的演讲中，她预判未来五年全球AI活跃用户将突破50亿，大语言模型单一交互时代即将落幕，多智能体AI成为新赛道。
+Weg财务总监表示，长周期工业设备订单在德国和美国市场出现改善，发电、输配电业务表现尤其突出。
 
-“无论你是谈论数据中心、PC，还是边缘设备，AI实际上正在重新定义计算的每一层。
+在短期市场展望方面，Weg财务行政副总裁表示，巴西市场对短周期设备的需求因高利率和选举年不确定性而疲软，但订单在3月份已有所改善，预计未来几个月将出现增长。
 
-” 目前，AMD明确将中国定位为路线图核心驱动力量，以端到端全栈算力，深度参与中国智能体与企业级AI生态建设。
+Weg计划继续推进今年36亿雷亚尔的全球投资计划，其中约一半将投向巴西，公司还在圣卡塔琳娜州新建了一座电池储能系统工厂。
 
 ## 相关推荐
 
-- 2026-06-29 21:18 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 21:07 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 21:16 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 21:19 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 21:06 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 21:09 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 21:23 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 21:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 21:00 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 21:29 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 21:03 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 21:13 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 21:02 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 21:28 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 21:11 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 21:33 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 21:11 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 21:08 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 21:08 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 21:27 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 21:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 21:25 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 21:30 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 21:11 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 21:14 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/02676018.shtml)
-- 2026-06-29 21:20 - [急先锋](https://www.share.minike.top/Article/details/45658603436.shtml)
-- 2026-06-29 21:19 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/9338813188.shtml)
-- 2026-06-29 21:02 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/75412364.shtml)
-- 2026-06-29 21:25 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/25404664111.shtml)
-- 2026-06-29 21:20 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/36302552372.shtml)
-- 2026-06-29 21:13 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/562584.shtml)
-- 2026-06-29 21:16 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/629654845204.shtml)
-- 2026-06-29 21:03 - [锐评白玉兰提名片段](http://www.blog.kurohicncr.top/Article/details/316725936312.shtml)
-- 2026-06-29 21:20 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/574349.shtml)
-- 2026-06-29 21:01 - [林逸向方筱然求婚了](https://www.blog.minike.top/Article/details/226579.shtml)
-- 2026-06-29 21:12 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/1551789.shtml)
-- 2026-06-29 21:20 - [半导体和股市为何没让韩国人起飞](https://www.blog.kurohicncr.top/Article/details/545459488739.shtml)
-- 2026-06-29 21:23 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/86310722.shtml)
-- 2026-06-29 21:03 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/7255411.shtml)
+- 2026-06-29 21:30 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/3397263.shtml)
+- 2026-06-29 21:24 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.kurohicncr.top/Article/details/320520.shtml)
+- 2026-06-29 21:30 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/414034.shtml)
+- 2026-06-29 21:33 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/080445049153.shtml)
+- 2026-06-29 21:14 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/049928813941.shtml)
+- 2026-06-29 21:22 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/112688.shtml)
+- 2026-06-29 21:16 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/8934991189.shtml)
+- 2026-06-29 21:08 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/50965257283.shtml)
+- 2026-06-29 21:10 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/6158865.shtml)
+- 2026-06-29 21:24 - [啊啊啊](https://www.blog.minike.top/Article/details/01280519.shtml)
+- 2026-06-29 21:19 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/12029658327.shtml)
+- 2026-06-29 21:31 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/0146605336.shtml)
+- 2026-06-29 21:14 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/26157937655.shtml)
+- 2026-06-29 21:23 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/13445759.shtml)
+- 2026-06-29 21:30 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/26090.shtml)

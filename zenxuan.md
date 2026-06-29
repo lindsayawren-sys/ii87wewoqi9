@@ -1,56 +1,60 @@
-# 湖南遭遇入汛以来最强降水过程 电力部门争分夺秒抢修保供电
+# 特朗普称美国将开始引导受困船只通过霍尔木兹海峡
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中新网长沙5月19日电(彭小桐 李文丹 龙锦涛)连日来，湖南遭遇入汛以来最强降水过程，多地出现暴雨、大暴雨，常德澧县局地小时雨强突破全省历史极值，张家界桑植等地发生山体滑坡等次生灾害，部分电力设施受损。面对严峻汛情，国网湖南电力迅速启动应急响应，抢修人员向险而行，在暴雨洪流中筑起一道坚固的保电防线。 5月18日凌晨，常德石门县遭遇罕见特大暴雨，全县最大降雨量出现在壶瓶山镇，高达
+美国总统唐纳德·特朗普表示，将从周一开始引导一些被困在波斯湾的中立船只通过霍尔木兹海峡驶出。 “目的只是为了解放那些完全没有做错任何事的人、公司和国家——他们是情势的受害者，”特朗普周日在社群媒体的贴文写道。“如果人道主义进程受到任何形式的干扰，很遗憾，我们将不得不采取强硬措施来应对这种干扰。” 特朗普在贴文中并未详细说明美国将采取哪些具体措施来帮助船只离开霍尔木兹海峡。美国中
 
 ## 正文
 
-中新网长沙5月19日电(彭小桐 李文丹 龙锦涛)连日来，湖南遭遇入汛以来最强降水过程，多地出现暴雨、大暴雨，常德澧县局地小时雨强突破全省历史极值，张家界桑植等地发生山体滑坡等次生灾害，部分电力设施受损。
+美国总统唐纳德·特朗普表示，将从周一开始引导一些被困在波斯湾的中立船只通过霍尔木兹海峡驶出。
 
-面对严峻汛情，国网湖南电力迅速启动应急响应，抢修人员向险而行，在暴雨洪流中筑起一道坚固的保电防线。
+“目的只是为了解放那些完全没有做错任何事的人、公司和国家——他们是情势的受害者，”特朗普周日在社群媒体的贴文写道。
 
-5月18日凌晨，常德石门县遭遇罕见特大暴雨，全县最大降雨量出现在壶瓶山镇，高达376.4毫米，刷新历史极值。
+“如果人道主义进程受到任何形式的干扰，很遗憾，我们将不得不采取强硬措施来应对这种干扰。
 
-极端强降雨引发严重山洪，壶瓶山镇多处道路、桥梁被冲毁，局部交通中断，部分电力设施受损。
+” 特朗普在贴文中并未详细说明美国将采取哪些具体措施来帮助船只离开霍尔木兹海峡。
 
-国网常德供电公司迅速成立应急抢险指挥部，科学调配抢修力量，紧急派出193名专业人员深入受灾一线，开展全覆盖、拉网式隐患排查。
+美国中央司令部周日表示，将提供军事支援以恢复霍尔木兹海峡的商业航运，包括使用导弹驱逐舰、飞机和无人机。
 
-同时，237名抢修人员整装待命，多台应急发电机及抢修物资提前到位。
+根据一位不愿具名美国官员的话，这项新举措目前不涉及美国海军护航，而是一个各国、保险公司和航运组织之间的协调过程。
 
-截至发稿，石门县主电网运行整体平稳。
+“随着我们的海上封锁不变，我们对这项防御任务的支持对于地区安全和全球经济至关重要，”中央司令部司令Brad Cooper海军上将在新闻稿中表示。
 
-抢修队伍正抢抓天气窗口期，待道路抢通后立即投入作业，用最短时间恢复供电，保障受灾群众基本生活用电需求。
+Al Mayadeen援引伊朗议会国家安全委员会主席的话在X发文指出，美国对霍尔木兹海峡的任何干预都将是违反停火协议。
 
 ## 相关推荐
 
-- 2026-06-29 21:24 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 21:29 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 21:23 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 21:16 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 21:04 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 21:23 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 21:12 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 21:12 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 21:20 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 21:27 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 21:09 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 21:08 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 21:17 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 21:11 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 21:06 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 21:35 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 21:32 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 21:21 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 21:20 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 21:06 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 21:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 21:35 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 21:17 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 21:17 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:25 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/262038112810.shtml)
-- 2026-06-29 21:28 - [锐评白玉兰提名片段](https://www.blog.minike.top/Article/details/273211060.shtml)
-- 2026-06-29 21:13 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/6026277.shtml)
-- 2026-06-29 21:23 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/57215039912.shtml)
-- 2026-06-29 21:00 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/389365.shtml)
-- 2026-06-29 21:26 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/21033.shtml)
-- 2026-06-29 21:08 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/39693155.shtml)
-- 2026-06-29 21:23 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/98231.shtml)
-- 2026-06-29 21:28 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/4616433596.shtml)
-- 2026-06-29 21:19 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/61954.shtml)
-- 2026-06-29 21:25 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/878424413773.shtml)
-- 2026-06-29 21:01 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/915693616.shtml)
-- 2026-06-29 21:27 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/94577922.shtml)
-- 2026-06-29 21:17 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/239182690048.shtml)
-- 2026-06-29 21:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/2166880284.shtml)
+- 2026-06-29 21:31 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/137458.shtml)
+- 2026-06-29 21:06 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/79781823.shtml)
+- 2026-06-29 21:15 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/77071.shtml)
+- 2026-06-29 21:27 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/29726536.shtml)
+- 2026-06-29 21:21 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/819684.shtml)
+- 2026-06-29 21:26 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/133178106696.shtml)
+- 2026-06-29 21:18 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/91929506043.shtml)
+- 2026-06-29 21:24 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/69325.shtml)
+- 2026-06-29 21:33 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/703017.shtml)
+- 2026-06-29 21:31 - [记者乘坐无人驾驶汽车去采访](http://www.share.minike.top/Article/details/254824.shtml)
+- 2026-06-29 21:32 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/968220.shtml)
+- 2026-06-29 21:07 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/1639672.shtml)
+- 2026-06-29 21:33 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/147592.shtml)
+- 2026-06-29 21:33 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/09693.shtml)
+- 2026-06-29 21:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/4972557156.shtml)

@@ -1,58 +1,60 @@
-# 哔哩哔哩-W早盘涨逾3% 今日将发布第一季度业绩
+# 山西闻喜8万亩蔬菜绿意浓 标准化种植赋能"菜篮子"富民
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-哔哩哔哩-W （09626）早盘涨超3%，截至发稿，股价上涨2.78%，现报154.80港元，成交额2.97亿港元。 哔哩哔哩今日将发布截至2026年3月31日止第一季度业绩。里昂此前研报指出，哔哩哔哩2026年第一季预计将维持稳健的收入增长，盈利能力进一步改善。该行预计总收入同比增长7%至75亿元人民币，经调整净利润5.43亿元人民币。报告指，哔哩哔哩广告收入应持续强劲增长，
+中新网运城5月1日电 (李庭耀 杨秀文)春末夏初，山西运城闻喜县的田野间绿意盎然。在裴社镇、桐城镇、后宫乡等乡镇的大田蔬菜基地里，菠菜、香菜、生菜等绿叶菜长势喜人。连日来，菜农们忙着收割、分拣、捆扎、装车，一车车新鲜蔬菜陆续发往辽宁、河北、陕西等地。 产业筑基：万亩蔬菜成“黄金产业” 作为农业农村部蔬菜标准园建设县和运城蔬菜大县，闻喜将蔬菜产业确立为全县农业五大主导产业之一。目
 
 ## 正文
 
-哔哩哔哩-W （09626）早盘涨超3%，截至发稿，股价上涨2.78%，现报154.80港元，成交额2.97亿港元。
+中新网运城5月1日电 (李庭耀 杨秀文)春末夏初，山西运城闻喜县的田野间绿意盎然。
 
-哔哩哔哩今日将发布截至2026年3月31日止第一季度业绩。
+在裴社镇、桐城镇、后宫乡等乡镇的大田蔬菜基地里，菠菜、香菜、生菜等绿叶菜长势喜人。
 
-里昂此前研报指出，哔哩哔哩2026年第一季预计将维持稳健的收入增长，盈利能力进一步改善。
+连日来，菜农们忙着收割、分拣、捆扎、装车，一车车新鲜蔬菜陆续发往辽宁、河北、陕西等地。
 
-该行预计总收入同比增长7%至75亿元人民币，经调整净利润5.43亿元人民币。
+产业筑基：万亩蔬菜成“黄金产业” 作为农业农村部蔬菜标准园建设县和运城蔬菜大县，闻喜将蔬菜产业确立为全县农业五大主导产业之一。
 
-报告指，哔哩哔哩广告收入应持续强劲增长，主要受游戏广告需求稳健以及AI应用推广增加所带动。
+目前，全县设施与大田蔬菜种植面积稳定在8万余亩，年播种面积达9万亩左右，年产量28万吨、年产值超8.7亿元，小小蔬菜已然成为带动群众增收的“黄金产业”。
 
-同时认为，哔哩哔哩凭借年轻用户群体，是捕捉AI广告的重要平台之一。
+得天独厚的自然条件为当地蔬菜产业发展提供了沃土。
 
-花旗也看好公司强劲的广告增长势头将推动未来利润增长。
+闻喜县地处运城盆地，光照充足、昼夜温差大、土壤肥沃，特别适宜绿叶蔬菜生长。
 
-预期哔哩哔哩今年第一季收入将同比增长7%至75亿元人民币，非公认会计准则经营利润为5.53亿元人民币，均大致符合市场预期。
+近年来，该县锚定“标准化种植、规模化发展、品牌化运营”目标，持续优化种植结构，重点发展菠菜、香菜、芹菜、生菜等市场紧俏的绿叶蔬菜。
 
 ## 相关推荐
 
-- 2026-06-29 21:03 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 21:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 21:04 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 21:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 21:12 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 21:18 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 21:12 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 21:12 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 21:19 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 21:21 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 21:11 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 21:19 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 21:23 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 21:08 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 21:09 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 21:29 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 21:06 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 21:22 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 21:22 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 21:06 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 21:35 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 21:25 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 21:16 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 21:30 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 21:27 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 21:20 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:28 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/178272448734.shtml)
-- 2026-06-29 21:25 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/80395136572.shtml)
-- 2026-06-29 21:07 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/586310.shtml)
-- 2026-06-29 21:05 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/6915391.shtml)
-- 2026-06-29 21:17 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/83807669363.shtml)
-- 2026-06-29 21:07 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/48092955351.shtml)
-- 2026-06-29 21:24 - [王楚钦称抽签结果出来心情不好](http://www.share.kurohicncr.top/Article/details/800540704503.shtml)
-- 2026-06-29 21:27 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/818301872024.shtml)
-- 2026-06-29 21:14 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/575674013.shtml)
-- 2026-06-29 21:26 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/486832709.shtml)
-- 2026-06-29 21:11 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/398739272060.shtml)
-- 2026-06-29 21:22 - [一生一世](http://www.share.minike.top/Article/details/70612614828.shtml)
-- 2026-06-29 21:23 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/09133093.shtml)
-- 2026-06-29 21:07 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/369508759033.shtml)
-- 2026-06-29 21:17 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/4716077002.shtml)
+- 2026-06-29 21:29 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/801496615.shtml)
+- 2026-06-29 21:29 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/6208554.shtml)
+- 2026-06-29 21:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/07398117.shtml)
+- 2026-06-29 21:24 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/59101783.shtml)
+- 2026-06-29 21:30 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/57221539.shtml)
+- 2026-06-29 21:26 - [日美楼市危机复盘：见底顺序曝光](https://www.share.kurohicncr.top/Article/details/041973180372.shtml)
+- 2026-06-29 21:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/95073602.shtml)
+- 2026-06-29 21:10 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/84147218830.shtml)
+- 2026-06-29 21:15 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/185441.shtml)
+- 2026-06-29 21:22 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/0060657.shtml)
+- 2026-06-29 21:16 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/5867443111.shtml)
+- 2026-06-29 21:10 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/889718599101.shtml)
+- 2026-06-29 21:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/2124910753.shtml)
+- 2026-06-29 21:25 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/7889047977.shtml)
+- 2026-06-29 21:25 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/5356514.shtml)

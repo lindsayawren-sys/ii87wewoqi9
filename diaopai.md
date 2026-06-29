@@ -1,58 +1,50 @@
-# 同一天两袋“生命种子”从太原出发 为生命“续航”
+# 直击湖南浏阳烟花厂爆炸事故现场：浓烟滚滚 多部门紧急救援
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中新网太原5月19日电 (范丽芳 张梦)5月19日上午，在山西省一家采集医院，来自太原的刘先生与朔州的吴先生在同天完成造血干细胞采集捐献，分别成为山西省第363例和第364例非血缘造血干细胞捐献者。两袋带着体温的“生命种子”分别被送往患者所在医院，为素不相识的血液病患者生命“续航”。 太原的刘先生是一名国企员工，常年坚持无偿献血。2020年献血时，他留下血样加入中华骨髓库，成为
+发布时间：2026年05月05日 12:59 来源：中国新闻网 5月4日16时40分许，湖南长沙浏阳市华盛烟花制造燃放有限公司车间发生爆炸。截至5月5日8时，爆炸事故已致21人死亡，61人受伤。(记者 杨华峰 唐小晴 制作 田敏娜 ） 责任编辑：【卢岩】
 
 ## 正文
 
-中新网太原5月19日电 (范丽芳 张梦)5月19日上午，在山西省一家采集医院，来自太原的刘先生与朔州的吴先生在同天完成造血干细胞采集捐献，分别成为山西省第363例和第364例非血缘造血干细胞捐献者。
+发布时间：2026年05月05日 12:59 来源：中国新闻网 5月4日16时40分许，湖南长沙浏阳市华盛烟花制造燃放有限公司车间发生爆炸。
 
-两袋带着体温的“生命种子”分别被送往患者所在医院，为素不相识的血液病患者生命“续航”。
+截至5月5日8时，爆炸事故已致21人死亡，61人受伤。
 
-太原的刘先生是一名国企员工，常年坚持无偿献血。
-
-2020年献血时，他留下血样加入中华骨髓库，成为造血干细胞志愿捐献者。
-
-2026年4月，刘先生得知自己与一名患者配型成功后，仅用3天就完成再动员、高分辨血样采集和捐前体检流程；5月，他正式进入捐献准备阶段，并于今天顺利完成采集。
-
-“一切都是为了救人，所有的这些都是值得的。
-
-”刘先生说。
-
-朔州的吴先生同样在今天完成造血干细胞捐献，这天，恰好是他加入中华骨髓库的第999天。
+(记者 杨华峰 唐小晴 制作 田敏娜 ） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 21:01 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 21:09 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 21:17 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 21:25 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 21:27 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 21:22 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 21:12 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 21:23 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 21:05 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 21:14 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 21:28 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 21:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 21:33 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 21:15 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 21:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 21:09 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 21:18 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 21:29 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 21:29 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 21:25 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 21:13 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 21:17 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 21:33 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 21:06 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 21:11 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 21:35 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/1954189.shtml)
-- 2026-06-29 21:28 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/224396.shtml)
-- 2026-06-29 21:23 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/88376839695.shtml)
-- 2026-06-29 21:25 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/88812.shtml)
-- 2026-06-29 21:09 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/06686684973.shtml)
-- 2026-06-29 21:08 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/34433.shtml)
-- 2026-06-29 21:23 - [世界杯高票价为何没劝退球迷](https://www.blog.minike.top/Article/details/8881958.shtml)
-- 2026-06-29 21:11 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/88420601.shtml)
-- 2026-06-29 21:07 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.kurohicncr.top/Article/details/3095899.shtml)
-- 2026-06-29 21:19 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/98824772.shtml)
-- 2026-06-29 21:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/8064030419.shtml)
-- 2026-06-29 21:06 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/46497313007.shtml)
-- 2026-06-29 21:18 - [女生学医适合选什么专业](http://www.share.minike.top/Article/details/754092624.shtml)
-- 2026-06-29 21:15 - [普京建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/491000719.shtml)
-- 2026-06-29 21:29 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/02465574.shtml)
+- 2026-06-29 21:06 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/68178.shtml)
+- 2026-06-29 21:18 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/7528829.shtml)
+- 2026-06-29 21:18 - [杨德龙：创新药迎来新的发展机遇](http://www.share.minike.top/Article/details/06259445181.shtml)
+- 2026-06-29 21:20 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/98715353.shtml)
+- 2026-06-29 21:30 - [温网](http://www.share.kurohicncr.top/Article/details/891766.shtml)
+- 2026-06-29 21:21 - [高质量发展看新疆](https://www.blog.minike.top/Article/details/4005315.shtml)
+- 2026-06-29 21:35 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/98629800.shtml)
+- 2026-06-29 21:33 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/22779304694.shtml)
+- 2026-06-29 21:25 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/52641754.shtml)
+- 2026-06-29 21:33 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.kurohicncr.top/Article/details/002646435783.shtml)
+- 2026-06-29 21:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/980878163.shtml)
+- 2026-06-29 21:26 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/283304.shtml)
+- 2026-06-29 21:10 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/76946368.shtml)
+- 2026-06-29 21:32 - [极限挑战第一季](https://www.share.minike.top/Article/details/57229386.shtml)
+- 2026-06-29 21:26 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/040001.shtml)

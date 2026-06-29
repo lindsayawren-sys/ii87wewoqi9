@@ -1,56 +1,59 @@
-# 特朗普签署命令，要求美联储考虑扩大金融科技公司对其支付渠道的访问权限
+# “05后”持有人猛增10倍，年轻人涌向AI基金
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普于当地时间周二签署了一项行政命令，呼吁监管机构和美联储审查可能扼杀金融创新的规则，包括美联储是否可以扩大金融科技公司对其支付渠道（即银行间资金转移系统）的访问权限。 该命令要求美联储与其他监管机构共同审查相关政策，以便更新政策，从而支持金融科技发展。命令还呼吁美联储审视其发放支付账户和服务的方式，并考虑如何扩大金融科技公司和其他非银行机构的准入范围。 非传统金融机
+“以前总觉得投资要研究K线、读财报，现在发现买ETF就行了。”工作三年的李阳（化名）向记者感慨道。ETF正成为年轻人开启投资之门的“钥匙”。天弘基金最新内部数据显示，截至2025年末，其权益ETF（含联接基金）持有人中，35岁以下群体占比已从2024年底的43.6%提升至48.2%。其中，“00后”持有人数量同比增长97.3%，“05后”更是同比增长227.8%。此外，AI产业
 
 ## 正文
 
-美国总统特朗普于当地时间周二签署了一项行政命令，呼吁监管机构和美联储审查可能扼杀金融创新的规则，包括美联储是否可以扩大金融科技公司对其支付渠道（即银行间资金转移系统）的访问权限。
+“以前总觉得投资要研究K线、读财报，现在发现买ETF就行了。
 
-该命令要求美联储与其他监管机构共同审查相关政策，以便更新政策，从而支持金融科技发展。
+”工作三年的李阳（化名）向记者感慨道。
 
-命令还呼吁美联储审视其发放支付账户和服务的方式，并考虑如何扩大金融科技公司和其他非银行机构的准入范围。
+ETF正成为年轻人开启投资之门的“钥匙”。
 
-非传统金融机构获得所谓“主账户”的权限已引起美联储的日益关注，多家金融科技公司已申请或计划申请。
+天弘基金最新内部数据显示，截至2025年末，其权益ETF（含联接基金）持有人中，35岁以下群体占比已从2024年底的43.6%提升至48.2%。
 
-美联储主账户通常被比作银行的银行账户，允许持有者直接通过美联储的支付系统进行资金转移。
+其中，“00后”持有人数量同比增长97.3%，“05后”更是同比增长227.8%。
 
-加密货币交易所 Kraken 于今年 3 月获得了美联储主账户，使其能够接入美联储的批发支付系统 Fedwire，并可隔夜持有有限的余额。
+此外，AI产业链相关产品正吸引年轻投资者进入。
 
-据公开信息显示，加密货币公司 Ripple、Anchorage Digital 和金融科技汇款公司 Wise 也希望获得主账户。
+到2025年末，天弘基金旗下AI产业链指数产品中，“05后”持有人户数较2024年末猛增10倍，“00后”持有人户数同比增长超2倍，“95后”持有人户数同比增长超92%。
 
-美联储此前已表示将向更多加密货币和金融科技公司开放支付渠道。
+从“选股焦虑”到“赛道思维”“个股踩雷、追热点屡屡踏空”，李阳这样总结自己去年的投资经历。
 
 ## 相关推荐
 
-- 2026-06-29 21:02 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 21:23 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 21:00 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 21:05 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 21:29 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 21:25 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 21:16 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 21:16 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 21:25 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 21:00 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 21:34 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 21:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 21:06 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 21:26 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 21:26 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 21:22 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 21:21 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 21:20 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 21:08 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 21:10 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 21:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 21:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 21:19 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:20 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/656245.shtml)
-- 2026-06-29 21:12 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/46754591.shtml)
-- 2026-06-29 21:09 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/2606531.shtml)
-- 2026-06-29 21:15 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/51937019.shtml)
-- 2026-06-29 21:27 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/944699.shtml)
-- 2026-06-29 21:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/5348480.shtml)
-- 2026-06-29 21:13 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/764147.shtml)
-- 2026-06-29 21:26 - [欧洲安装一台空调要花近8000元](http://www.share.minike.top/Article/details/893184858.shtml)
-- 2026-06-29 21:12 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/879626.shtml)
-- 2026-06-29 21:06 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/59568719525.shtml)
-- 2026-06-29 21:02 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/174937147646.shtml)
-- 2026-06-29 21:06 - [黄金也扛不住了](https://www.share.minike.top/Article/details/73737557080.shtml)
-- 2026-06-29 21:20 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/40054.shtml)
-- 2026-06-29 21:06 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/6175696249.shtml)
-- 2026-06-29 21:03 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/8786192143.shtml)
+- 2026-06-29 21:06 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/0570137486.shtml)
+- 2026-06-29 21:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/773096.shtml)
+- 2026-06-29 21:15 - [LPL第三赛段赛制公布](http://www.blog.kurohicncr.top/Article/details/10045922315.shtml)
+- 2026-06-29 21:18 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/45015183682.shtml)
+- 2026-06-29 21:22 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/35067386530.shtml)
+- 2026-06-29 21:34 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/24377.shtml)
+- 2026-06-29 21:34 - [乔家的儿女](http://www.blog.minike.top/Article/details/90708173757.shtml)
+- 2026-06-29 21:17 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.kurohicncr.top/Article/details/260304667672.shtml)
+- 2026-06-29 21:24 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/4089776.shtml)
+- 2026-06-29 21:30 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/62767.shtml)
+- 2026-06-29 21:24 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/8855434.shtml)
+- 2026-06-29 21:27 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/80759.shtml)
+- 2026-06-29 21:31 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/1470920.shtml)
+- 2026-06-29 21:33 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/7249758.shtml)
+- 2026-06-29 21:10 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/172374672564.shtml)

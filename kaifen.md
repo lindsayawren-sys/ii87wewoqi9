@@ -1,56 +1,48 @@
-# 中国有数｜法治护航民营经济当好生力军
+# 聚水潭于5月4日斥资103.6万港元回购6.17万股
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月20日 11:05 来源：三里河 一秒钟能干什么？人形机器人能跑10米，人工智能大模型调用词元量超16亿，这背后，都闪耀着民营企业的力量。2026年5月20日，民营经济促进法实施一周年。作为第一部专门关于民营经济发展的基础性法律，它给广大民营企业吃下定心丸。这一年，国家以法治之力为民营经济保驾护航，激发民营企业勃勃生机。(李金磊 黄蕾） 责任编辑：【李
+聚水潭（06687）发布公告，于2026年5月4日斥资103.6万港元回购6.17万股。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年05月20日 11:05 来源：三里河 一秒钟能干什么？
+聚水潭（06687）发布公告，于2026年5月4日斥资103.6万港元回购6.17万股。
 
-人形机器人能跑10米，人工智能大模型调用词元量超16亿，这背后，都闪耀着民营企业的力量。
-
-2026年5月20日，民营经济促进法实施一周年。
-
-作为第一部专门关于民营经济发展的基础性法律，它给广大民营企业吃下定心丸。
-
-这一年，国家以法治之力为民营经济保驾护航，激发民营企业勃勃生机。
-
-(李金磊 黄蕾） 责任编辑：【李金磊】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:01 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 21:18 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 21:09 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 21:01 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 21:03 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 21:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 21:12 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 21:27 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 21:10 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 21:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 21:21 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 21:13 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 21:12 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 21:28 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 21:26 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 21:21 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 21:25 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 21:35 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 21:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 21:32 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 21:20 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 21:14 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 21:28 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 21:24 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 21:22 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 21:34 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 21:09 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 21:30 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:08 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/12611.shtml)
-- 2026-06-29 21:11 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/485773782.shtml)
-- 2026-06-29 21:12 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/75996393.shtml)
-- 2026-06-29 21:05 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/13044724.shtml)
-- 2026-06-29 21:19 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/68805352.shtml)
-- 2026-06-29 21:22 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/613718838648.shtml)
-- 2026-06-29 21:06 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/48821444.shtml)
-- 2026-06-29 21:27 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/805408.shtml)
-- 2026-06-29 21:29 - [记者暗访养老机构消防安全](http://www.blog.minike.top/Article/details/77578.shtml)
-- 2026-06-29 21:20 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/0785981897.shtml)
-- 2026-06-29 21:16 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/788185055922.shtml)
-- 2026-06-29 21:20 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/08214284498.shtml)
-- 2026-06-29 21:05 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/1314821.shtml)
-- 2026-06-29 21:02 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/59181555184.shtml)
-- 2026-06-29 21:27 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/55880329076.shtml)
+- 2026-06-29 21:25 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/7875558267.shtml)
+- 2026-06-29 21:21 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/99345014119.shtml)
+- 2026-06-29 21:18 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/53968687526.shtml)
+- 2026-06-29 21:27 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.kurohicncr.top/Article/details/88840575.shtml)
+- 2026-06-29 21:09 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/9243656.shtml)
+- 2026-06-29 21:28 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/72227647074.shtml)
+- 2026-06-29 21:31 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/017243569449.shtml)
+- 2026-06-29 21:19 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/31845189.shtml)
+- 2026-06-29 21:25 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/994377913.shtml)
+- 2026-06-29 21:24 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/986315456.shtml)
+- 2026-06-29 21:35 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/678077669.shtml)
+- 2026-06-29 21:20 - [网红小徐直播时突遇地震](http://www.share.kurohicncr.top/Article/details/54632009.shtml)
+- 2026-06-29 21:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/95277.shtml)
+- 2026-06-29 21:30 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/524201.shtml)
+- 2026-06-29 21:30 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/94614019481.shtml)

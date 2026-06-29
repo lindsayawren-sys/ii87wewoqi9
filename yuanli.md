@@ -1,57 +1,61 @@
-# 光大期货：5月19日软商品日报
+# 美债市场又迎来“土拨鼠日” 交易商密切关注再融资声明措辞潜在调整
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，2026 年 4 月份我国进口食糖 3 万吨，同比减少 10 万吨。2026 年 1-4 月我国累计进口食糖 65 万吨，同比增加 37 万吨。25/26 榨季截 4 月底我国累计进口食糖 242 万吨，同比增加 68 万吨。现货报价方面，广西集团报价区间5380~5490元/吨，下调
+周三对美国国债交易商来说，将有点像“土拨鼠日”。就像过去一年多以来一直做的那样，他们将密切关注美国财政部在其最新发债计划中是否会调整指引。 投资者将留意财政部在季度再融资声明中是否调整预计“至少在未来几个季度”不会增加中期国债和长期国债发行的措辞。虽然较长期美国国债目前的成本高于短期债，但依靠国库券来维持近2万亿美元的年度赤字融资也有其自身风险。 “他们不能一直只是说‘至少几个
 
 ## 正文
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，2026 年 4 月份我国进口食糖 3 万吨，同比减少 10 万吨。
+周三对美国国债交易商来说，将有点像“土拨鼠日”。
 
-2026 年 1-4 月我国累计进口食糖 65 万吨，同比增加 37 万吨。
+就像过去一年多以来一直做的那样，他们将密切关注美国财政部在其最新发债计划中是否会调整指引。
 
-25/26 榨季截 4 月底我国累计进口食糖 242 万吨，同比增加 68 万吨。
+投资者将留意财政部在季度再融资声明中是否调整预计“至少在未来几个季度”不会增加中期国债和长期国债发行的措辞。
 
-现货报价方面，广西集团报价区间5380~5490元/吨，下调10~20元/吨；云南报价区间5190~5230元/吨，下调30元/吨。
+虽然较长期美国国债目前的成本高于短期债，但依靠国库券来维持近2万亿美元的年度赤字融资也有其自身风险。
 
-加工糖报价区间5820~6050元/吨，下调20元/吨。
+“他们不能一直只是说‘至少几个季度’，”Brandywine Global Investment Management驻费城投资组合经理Jack McIntyre表示。
 
-原糖调整后暂无明显方向，后期继续受原油、巴西压榨进度主导。
+他说，官员们在某个时候将不得不考虑增加附息债发行。
 
-国内现货报价小幅下调，进口数据同比大幅回落，未来核心是国内去库进度。
+由于短期债拍卖更加频繁，增加到期期限不超过一年的国库券发行会让政府的债务成本更容易受到利率突然波动以及市场情绪变化的影响。
 
-盘面跟随大宗商品调整后窄幅整理，缺少方向。
+就在上个月，国际货币基金组织还警告了此类危险。
 
 ## 相关推荐
 
-- 2026-06-29 21:24 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 21:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 21:12 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 21:07 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 21:09 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 21:04 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 21:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 21:20 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 21:20 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 21:19 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 21:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 21:18 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 21:09 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 21:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 21:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 21:29 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 21:06 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 21:10 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 21:33 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 21:20 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 21:12 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 21:27 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 21:30 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 21:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 21:15 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 21:11 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:08 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/25229993625.shtml)
-- 2026-06-29 21:25 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/498161016018.shtml)
-- 2026-06-29 21:22 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/39453.shtml)
-- 2026-06-29 21:14 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/38401195776.shtml)
-- 2026-06-29 21:21 - [厨房装空调还是装冷烟机](http://www.blog.minike.top/Article/details/3948751714.shtml)
-- 2026-06-29 21:09 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/509880318.shtml)
-- 2026-06-29 21:06 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/5758735075.shtml)
-- 2026-06-29 21:05 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/86363720.shtml)
-- 2026-06-29 21:09 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/3023975916.shtml)
-- 2026-06-29 21:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/4380274.shtml)
-- 2026-06-29 21:27 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/01594215.shtml)
-- 2026-06-29 21:13 - [金牌调解](http://www.share.kurohicncr.top/Article/details/9316417.shtml)
-- 2026-06-29 21:03 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/01132264428.shtml)
-- 2026-06-29 21:02 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/80648249011.shtml)
-- 2026-06-29 21:00 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/16311692.shtml)
+- 2026-06-29 21:12 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/81724783756.shtml)
+- 2026-06-29 21:06 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/767478.shtml)
+- 2026-06-29 21:15 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/2535115.shtml)
+- 2026-06-29 21:10 - [爱很美味](https://www.blog.minike.top/Article/details/39785532.shtml)
+- 2026-06-29 21:28 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.minike.top/Article/details/21878069.shtml)
+- 2026-06-29 21:33 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/8837925242.shtml)
+- 2026-06-29 21:16 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/9944923.shtml)
+- 2026-06-29 21:24 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/0262895652.shtml)
+- 2026-06-29 21:32 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/1559416.shtml)
+- 2026-06-29 21:34 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/80007.shtml)
+- 2026-06-29 21:32 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/98360760.shtml)
+- 2026-06-29 21:18 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/5674010.shtml)
+- 2026-06-29 21:18 - [毒液2](https://www.share.minike.top/Article/details/663416.shtml)
+- 2026-06-29 21:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/82339.shtml)
+- 2026-06-29 21:31 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/4440632.shtml)

@@ -1,60 +1,53 @@
-# 开盘：美股周二低开 美债收益率飙升令股指承压
+# 习近平回信勉励中国青年五四奖章暨新时代青年先锋奖获奖者代表
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-北京时间5月19日晚，美股周二低开。引领AI牛市的芯片股继续遭到抛售。美国国债收益率攀升令股指承压。交易员还关注美国总统特朗普取消对伊朗打击计划后的石油市场。 道指跌184.58点，跌幅为0.37%，报49501.54点；标普500指数跌32.45点，跌幅为0.44%，报7370.60点；纳指跌157.53点，跌幅为0.60%，报25933.20点。 美光科技股价下跌2%，可能
+原标题：习近平回信勉励中国青年五四奖章暨新时代青年先锋奖获奖者代表 胸怀远大理想矢志拼搏奋斗 带动广大青年把个人追求融入国家发展大局 新华社北京5月3日电 在五四青年节到来之际，中共中央总书记、国家主席、中央军委主席习近平给中国青年五四奖章暨新时代青年先锋奖获奖者代表回信，向全国各族青年致以节日祝贺并提出殷切期望。 习近平在回信中说，你们牢记党的嘱托，扎根科技创新、乡村振兴、社
 
 ## 正文
 
-北京时间5月19日晚，美股周二低开。
+原标题：习近平回信勉励中国青年五四奖章暨新时代青年先锋奖获奖者代表 胸怀远大理想矢志拼搏奋斗 带动广大青年把个人追求融入国家发展大局 新华社北京5月3日电 在五四青年节到来之际，中共中央总书记、国家主席、中央军委主席习近平给中国青年五四奖章暨新时代青年先锋奖获奖者代表回信，向全国各族青年致以节日祝贺并提出殷切期望。
 
-引领AI牛市的芯片股继续遭到抛售。
+习近平在回信中说，你们牢记党的嘱托，扎根科技创新、乡村振兴、社会服务、卫国戍边等基层一线，以实干担当书写无悔青春，展现了新时代中国青年自信自强、昂扬向上的良好风貌。
 
-美国国债收益率攀升令股指承压。
+习近平强调，今年是“十五五”开局之年，青年建功正当其时。
 
-交易员还关注美国总统特朗普取消对伊朗打击计划后的石油市场。
+希望你们胸怀远大理想，矢志拼搏奋斗，带动广大青年把个人追求融入国家发展大局，立足各自岗位不断创造新业绩，在新征程上贡献青春力量。
 
-道指跌184.58点，跌幅为0.37%，报49501.54点；标普500指数跌32.45点，跌幅为0.44%，报7370.60点；纳指跌157.53点，跌幅为0.60%，报25933.20点。
+中国青年五四奖章暨新时代青年先锋奖，旨在树立和表彰政治进步、品德高尚、贡献突出的优秀青年典型。
 
-美光科技股价下跌2%，可能录得连续第四个交易日走低，原因是市场担忧对内存芯片制造商的人工智能热潮尤其涨得过快过猛。
-
-不过美光股价今年迄今仍累计上涨逾138%。
-
-该股周一在竞争对手希捷科技下跌7%后跟跌，此前希捷就产能跟上需求的问题发出警告。
+近日，党的十八大以来获奖的16名青年代表给习近平总书记写信，汇报在基层扎根奉献的情况和体会，表达建功“十五五”、走好新时代长征路的决心。
 
 ## 相关推荐
 
-- 2026-06-29 21:07 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 21:19 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 21:08 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 21:14 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 21:18 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 21:19 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 21:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 21:03 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 21:23 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 21:07 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 21:05 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 21:13 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 21:16 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 21:02 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 21:07 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 21:12 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 21:15 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 21:30 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 21:36 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 21:28 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 21:26 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 21:34 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 21:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 21:08 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 21:10 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/685392959915.shtml)
-- 2026-06-29 21:17 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/3623091.shtml)
-- 2026-06-29 21:00 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/901363233212.shtml)
-- 2026-06-29 21:03 - [佛得角队长门德斯被控强奸](https://www.share.minike.top/Article/details/16684712763.shtml)
-- 2026-06-29 21:28 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/752373372.shtml)
-- 2026-06-29 21:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/85923.shtml)
-- 2026-06-29 21:24 - [一见倾心](https://www.blog.minike.top/Article/details/720783.shtml)
-- 2026-06-29 21:08 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/868903530.shtml)
-- 2026-06-29 21:10 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/08913336703.shtml)
-- 2026-06-29 21:23 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/6056888.shtml)
-- 2026-06-29 21:23 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/364223.shtml)
-- 2026-06-29 21:21 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/589889841802.shtml)
-- 2026-06-29 21:00 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/936011473.shtml)
-- 2026-06-29 21:24 - [天道](https://www.blog.minike.top/Article/details/062684149693.shtml)
-- 2026-06-29 21:10 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/30296748150.shtml)
+- 2026-06-29 21:15 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/49309980.shtml)
+- 2026-06-29 21:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/405986966.shtml)
+- 2026-06-29 21:16 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/648142.shtml)
+- 2026-06-29 21:26 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/6147216.shtml)
+- 2026-06-29 21:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/72175987.shtml)
+- 2026-06-29 21:11 - [我和我的家乡](https://www.blog.minike.top/Article/details/428743072.shtml)
+- 2026-06-29 21:33 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/05419489395.shtml)
+- 2026-06-29 21:23 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/93083.shtml)
+- 2026-06-29 21:23 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/8947967469.shtml)
+- 2026-06-29 21:33 - [斛珠夫人](http://www.blog.minike.top/Article/details/36867913124.shtml)
+- 2026-06-29 21:06 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/43761017.shtml)
+- 2026-06-29 21:35 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/236247.shtml)
+- 2026-06-29 21:32 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/860316.shtml)
+- 2026-06-29 21:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/44090492.shtml)
+- 2026-06-29 21:14 - [啊啊啊](http://www.share.minike.top/Article/details/046973266.shtml)

@@ -1,58 +1,58 @@
-# 强降水致海南多个乡镇出现险情 消防及时救援
+# 美国精神航空救助谈判破裂，全面停止运营
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中新网海口5月19日电 (岳彦名 吴清剑)5月18日至19日，海南南部地区遭遇强降雨，保亭、陵水等地出现险情，消防救援人员及时开展抢险救援。 19日凌晨5时许，保亭黎族苗族自治县三道镇一居民家中积水倒灌，水深30厘米。保亭消防救援人员抵达现场后发现，该处地势低洼，路旁水沟的水正不断倒灌进居民家中，屋内积水已淹没至脚掌，部分家具浸泡在水中。经过近1个小时的连续作业，累计排涝约60
+美国廉价航空公司精神航空（Spirit Airlines）于周六宣布，因债权人就特朗普政府拟提供的5亿美元救助方案谈判破裂，公司将停止所有运营活动。 公司在官网声明中表示：“2026年5月2日，我们万分遗憾地启动有序停业程序，即刻生效。所有航班已取消，客户服务全面终止。过去34年，我们的超低成本运营模式深刻影响了行业发展，对此我们深感自豪。” 债务僵局：债权人与政府谈不拢 过去
 
 ## 正文
 
-中新网海口5月19日电 (岳彦名 吴清剑)5月18日至19日，海南南部地区遭遇强降雨，保亭、陵水等地出现险情，消防救援人员及时开展抢险救援。
+美国廉价航空公司精神航空（Spirit Airlines）于周六宣布，因债权人就特朗普政府拟提供的5亿美元救助方案谈判破裂，公司将停止所有运营活动。
 
-19日凌晨5时许，保亭黎族苗族自治县三道镇一居民家中积水倒灌，水深30厘米。
+公司在官网声明中表示：“2026年5月2日，我们万分遗憾地启动有序停业程序，即刻生效。
 
-保亭消防救援人员抵达现场后发现，该处地势低洼，路旁水沟的水正不断倒灌进居民家中，屋内积水已淹没至脚掌，部分家具浸泡在水中。
+所有航班已取消，客户服务全面终止。
 
-经过近1个小时的连续作业，累计排涝约60立方米，险情得以解除。
+过去34年，我们的超低成本运营模式深刻影响了行业发展，对此我们深感自豪。
 
-19日清晨6时许，受强降雨天气影响，陵水黎族自治县光坡镇港坡村一户居民屋内积水达1.5米，3名被困群众受困于高处，无法自行撤离。
+” 债务僵局：债权人与政府谈不拢 过去10天，精神航空与白宫及投行顾问展开密集谈判，但债券持有人坚决反对政府贷款优先于其债权，最终导致谈判崩盘。
 
-消防救援人员到达现场后，快速启用橡皮舟展开救援，同时安抚群众情绪、协助穿戴救生装备，小心避开水下潜在隐患。
+支持方：花旗集团管理的2.75亿美元高级循环信贷额度持有人、无担保债权人委员会（持有数十亿美元次级债权） 反对方：部分债券持有人（包括城堡投资、赛勒斯资本、阿瑞斯、太平洋投资管理公司、竞技场资本），他们更倾向于清算资产而非重组。
 
-经过半小时的紧张转运，被困群众全部被安全转移至地势较高的安全区域。
+反对派指出，2026年初公司已累积巨额运营亏损，而伊朗冲突爆发后燃油价格暴涨，进一步压垮了这家本就脆弱的航司。
 
-19日7时59分，陵水黎族自治县南平农场基建队因强降雨引发严重内涝，农场低洼区域几乎全被淹没，积水最深处达数米，多名群众被困家中，无法自行转移。
+救助方案流产：政府入股计划落空 特朗普政府原计划向精神航空注资5亿美元，助其走出破产保护，此举将使美国政府持有公司最高90%股权，成为近年政府深度介入私营企业的典型案例。
 
 ## 相关推荐
 
-- 2026-06-29 21:23 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 21:02 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 21:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 21:08 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 21:27 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 21:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 21:06 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 21:27 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 21:17 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 21:01 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 21:13 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 21:01 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 21:28 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 21:34 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 21:28 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 21:23 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 21:06 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 21:28 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 21:19 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 21:33 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 21:26 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 21:26 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 21:30 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 21:30 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:05 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.kurohicncr.top/Article/details/74636311.shtml)
-- 2026-06-29 21:15 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/75780743160.shtml)
-- 2026-06-29 21:08 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/168858705918.shtml)
-- 2026-06-29 21:20 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/0509097.shtml)
-- 2026-06-29 21:18 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/26071.shtml)
-- 2026-06-29 21:28 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/37584303.shtml)
-- 2026-06-29 21:13 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/9822913.shtml)
-- 2026-06-29 21:25 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.kurohicncr.top/Article/details/16109.shtml)
-- 2026-06-29 21:06 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.kurohicncr.top/Article/details/24966.shtml)
-- 2026-06-29 21:16 - [欧洲缘何成为变暖最快的大洲](https://www.share.kurohicncr.top/Article/details/548296631423.shtml)
-- 2026-06-29 21:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/0320219893.shtml)
-- 2026-06-29 21:19 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/371831.shtml)
-- 2026-06-29 21:28 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/3013904.shtml)
-- 2026-06-29 21:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/2492176.shtml)
-- 2026-06-29 21:14 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/82665447.shtml)
+- 2026-06-29 21:21 - [T1零封KC MSI](https://www.share.minike.top/Article/details/120600131608.shtml)
+- 2026-06-29 21:25 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/47477716.shtml)
+- 2026-06-29 21:21 - [勇敢的心第二部](https://www.share.minike.top/Article/details/96030556314.shtml)
+- 2026-06-29 21:19 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/999214.shtml)
+- 2026-06-29 21:20 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/1597772640.shtml)
+- 2026-06-29 21:30 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/07887548937.shtml)
+- 2026-06-29 21:31 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/09212.shtml)
+- 2026-06-29 21:21 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/514093345884.shtml)
+- 2026-06-29 21:17 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/790645930.shtml)
+- 2026-06-29 21:33 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/056043715.shtml)
+- 2026-06-29 21:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/24315979254.shtml)
+- 2026-06-29 21:06 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/38586651.shtml)
+- 2026-06-29 21:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/35692.shtml)
+- 2026-06-29 21:08 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/328802901036.shtml)
+- 2026-06-29 21:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/12025474334.shtml)

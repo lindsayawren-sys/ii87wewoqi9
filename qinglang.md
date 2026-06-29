@@ -1,51 +1,58 @@
-# 2026年全民数字素养与技能提升月启动
+# 时政微观察丨奋斗，铸就欣欣向荣的中国
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-新华社权威快报|2026年全民数字素养与技能提升月启动 以“文明网络空间 昂扬奋进力量”为主题的2026年中国网络文明大会，5月19日在广西壮族自治区南宁市开幕，大会上举行了2026年全民数字素养与技能提升月启动仪式。 本次提升月以“数智赋能 全民共享”为主题，将举办全民数字素养与技能提升论坛、全民共享美好数字生活宣传活动等系列活动，以更加贴近群众、贴近生活的内容和更具知识性、
+“在中国式现代化新征程上，广大劳动群众紧紧团结在党的周围，奋力拼搏进取，勇于创新创造，为党和国家事业发展作出了重要贡献。”在“五一”国际劳动节到来之际，习近平总书记代表党中央，向全国广大劳动群众致以节日祝贺和诚挚慰问。 民生在勤，勤则不匮。 “人世间的一切幸福都需要靠辛勤的劳动来创造。”习近平总书记热爱劳动、关心劳动者，始终保持对劳动人民的深厚感情。在总书记的倡导和引领下，我们
 
 ## 正文
 
-新华社权威快报|2026年全民数字素养与技能提升月启动 以“文明网络空间 昂扬奋进力量”为主题的2026年中国网络文明大会，5月19日在广西壮族自治区南宁市开幕，大会上举行了2026年全民数字素养与技能提升月启动仪式。
+“在中国式现代化新征程上，广大劳动群众紧紧团结在党的周围，奋力拼搏进取，勇于创新创造，为党和国家事业发展作出了重要贡献。
 
-本次提升月以“数智赋能 全民共享”为主题，将举办全民数字素养与技能提升论坛、全民共享美好数字生活宣传活动等系列活动，以更加贴近群众、贴近生活的内容和更具知识性、趣味性、互动性的形式，营造全民参与、全民提升的良好氛围。
+”在“五一”国际劳动节到来之际，习近平总书记代表党中央，向全国广大劳动群众致以节日祝贺和诚挚慰问。
 
-记者：王思北、黄庆刚 海报制作：王思北 新华社国内部、新华社广西分社联合出品
+民生在勤，勤则不匮。
+
+“人世间的一切幸福都需要靠辛勤的劳动来创造。
+
+”习近平总书记热爱劳动、关心劳动者，始终保持对劳动人民的深厚感情。
+
+在总书记的倡导和引领下，我们大力弘扬劳动最光荣、劳动最崇高、劳动最伟大、劳动最美丽的社会风尚，营造起尊重劳动、尊重知识、尊重人才、尊重创造的良好氛围。
+
+挥锹铲土、培土围堰、提水浇灌……今年3月30日，习近平总书记来到北京昌平区百善镇，一边植树，一边询问孩子们的学习生活、劳动锻炼和参加植树情况。
+
+党的十八大以来，每年春天，习近平总书记都会参加首都义务植树活动，和干部群众一起挥锹劳动。
 
 ## 相关推荐
 
-- 2026-06-29 21:20 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 21:15 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 21:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 21:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 21:08 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 21:14 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 21:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 21:26 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 21:21 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 21:07 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 21:25 - [王楚钦开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 21:19 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 21:19 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 21:25 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 21:23 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 21:26 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 21:10 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 21:35 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 21:10 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 21:18 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 21:11 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 21:11 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 21:08 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 21:11 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 21:18 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 21:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 21:32 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:05 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/639428136447.shtml)
-- 2026-06-29 21:26 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/484782.shtml)
-- 2026-06-29 21:17 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/35639440.shtml)
-- 2026-06-29 21:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/834829903450.shtml)
-- 2026-06-29 21:14 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/348891868.shtml)
-- 2026-06-29 21:29 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/95933.shtml)
-- 2026-06-29 21:14 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/540849966576.shtml)
-- 2026-06-29 21:06 - [第一炉香](http://www.blog.minike.top/Article/details/3185415736.shtml)
-- 2026-06-29 21:07 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/1328819.shtml)
-- 2026-06-29 21:09 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/878804.shtml)
-- 2026-06-29 21:01 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/194707189379.shtml)
-- 2026-06-29 21:18 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/244198.shtml)
-- 2026-06-29 21:06 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/26602620.shtml)
-- 2026-06-29 21:26 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/953810845.shtml)
-- 2026-06-29 21:04 - [记者乘坐无人驾驶汽车去采访](http://www.share.minike.top/Article/details/224148131017.shtml)
+- 2026-06-29 21:30 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/31112.shtml)
+- 2026-06-29 21:10 - [无畏为自己的猫正名了](http://www.blog.minike.top/Article/details/4946821604.shtml)
+- 2026-06-29 21:07 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/7746241064.shtml)
+- 2026-06-29 21:07 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/94344513258.shtml)
+- 2026-06-29 21:07 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/86737.shtml)
+- 2026-06-29 21:14 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/685744.shtml)
+- 2026-06-29 21:19 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/878525085974.shtml)
+- 2026-06-29 21:34 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/9389110.shtml)
+- 2026-06-29 21:28 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/917279654724.shtml)
+- 2026-06-29 21:27 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/3002403884.shtml)
+- 2026-06-29 21:06 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/26445081126.shtml)
+- 2026-06-29 21:06 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/8008232.shtml)
+- 2026-06-29 21:09 - [田曦薇没招了](https://www.blog.minike.top/Article/details/0029888.shtml)
+- 2026-06-29 21:29 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/19023.shtml)
+- 2026-06-29 21:14 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/5264194.shtml)

@@ -1,49 +1,59 @@
-# 广西坠河车辆经打捞已露出水面
+# 神舟二十一号乘组在轨六个月 各项任务有序推进
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-记者在广西环江“5·16”过桥车辆坠河事件事发地漫水桥附近看到，19日11时15分许，经现场搜救人员打捞，坠河车辆已露出水面。(记者曹祎铭、王楚然)
+央视网消息(新闻联播)：神舟二十一号乘组张陆、武飞、张洪章在中国空间站迎来了“五一”国际劳动节。目前，三名航天员已在轨驻留满六个月，身心状态良好，各项任务有序推进。 5月3日，中国载人航天工程办公室发布最新视频。神舟二十一号航天员利用脑电采集设备、虚拟现实眼镜等，进行在轨脑电测试研究，地面科研人员将依托下行数据开展后续研究。此外，乘组完成了执行功能训练、应急决策能力评估和在轨情
 
 ## 正文
 
-记者在广西环江“5·16”过桥车辆坠河事件事发地漫水桥附近看到，19日11时15分许，经现场搜救人员打捞，坠河车辆已露出水面。
+央视网消息(新闻联播)：神舟二十一号乘组张陆、武飞、张洪章在中国空间站迎来了“五一”国际劳动节。
 
-(记者曹祎铭、王楚然)
+目前，三名航天员已在轨驻留满六个月，身心状态良好，各项任务有序推进。
+
+5月3日，中国载人航天工程办公室发布最新视频。
+
+神舟二十一号航天员利用脑电采集设备、虚拟现实眼镜等，进行在轨脑电测试研究，地面科研人员将依托下行数据开展后续研究。
+
+此外，乘组完成了执行功能训练、应急决策能力评估和在轨情绪状态测试，相关指标可用于分析航天员执行功能的训练效果。
+
+在微重力物理科学领域，乘组进行空间流体存储、输运等相关实验，并完成了实验柜样品更换和设备维护等工作。
+
+在轨期间，乘组常态化进行空间站平台照料与维护，同时进行听力测试、肌肉超声检查等多项医学检查，持续开展在轨锻炼。
+
+按计划，神舟二十一号乘组将在轨驻留七个月，根据当前任务需求，三名航天员使用遥操作交会对接系统开展交会对接在轨训练，为后续天舟十号和神舟二十三号的到来做相应准备。
 
 ## 相关推荐
 
-- 2026-06-29 21:01 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 21:29 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 21:21 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 21:01 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 21:16 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 21:26 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 21:15 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 21:07 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 21:12 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 21:21 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 21:09 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 21:10 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 21:08 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 21:18 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 21:02 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 21:22 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 21:08 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 21:35 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 21:08 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 21:10 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 21:06 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 21:08 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 21:17 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 21:21 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 21:06 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 21:24 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 21:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 21:19 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/431450741368.shtml)
-- 2026-06-29 21:12 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/89722272465.shtml)
-- 2026-06-29 21:15 - [欧洲安装一台空调要花近8000元](http://www.share.kurohicncr.top/Article/details/52349613929.shtml)
-- 2026-06-29 21:05 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/235472.shtml)
-- 2026-06-29 21:20 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/106267.shtml)
-- 2026-06-29 21:17 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/005989.shtml)
-- 2026-06-29 21:17 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/82646254750.shtml)
-- 2026-06-29 21:21 - [王楚钦称抽签结果出来心情不好](http://www.share.kurohicncr.top/Article/details/6021480.shtml)
-- 2026-06-29 21:04 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/127451875733.shtml)
-- 2026-06-29 21:03 - [扫黑风暴](https://www.blog.minike.top/Article/details/330424329584.shtml)
-- 2026-06-29 21:00 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/2827287.shtml)
-- 2026-06-29 21:09 - [欧洲缘何成为变暖最快的大洲](http://www.share.minike.top/Article/details/6859048390.shtml)
-- 2026-06-29 21:25 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/5008058.shtml)
-- 2026-06-29 21:22 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/59095796655.shtml)
-- 2026-06-29 21:17 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/80903993056.shtml)
+- 2026-06-29 21:25 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/57273184457.shtml)
+- 2026-06-29 21:14 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/1798660.shtml)
+- 2026-06-29 21:29 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/7280868.shtml)
+- 2026-06-29 21:18 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/17136641.shtml)
+- 2026-06-29 21:10 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/242771120220.shtml)
+- 2026-06-29 21:15 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.minike.top/Article/details/69748616776.shtml)
+- 2026-06-29 21:27 - [T1零封KC MSI](https://www.share.minike.top/Article/details/741188912218.shtml)
+- 2026-06-29 21:29 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/803148.shtml)
+- 2026-06-29 21:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/60517591.shtml)
+- 2026-06-29 21:23 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/9919964574.shtml)
+- 2026-06-29 21:18 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/79574436.shtml)
+- 2026-06-29 21:17 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/3702509.shtml)
+- 2026-06-29 21:19 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/222195.shtml)
+- 2026-06-29 21:19 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/930408.shtml)
+- 2026-06-29 21:14 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/3523716535.shtml)

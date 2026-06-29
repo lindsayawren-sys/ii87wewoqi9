@@ -1,58 +1,61 @@
-# 首设APEC经济体展区 文博会链动亚太“星汉灿烂”
+# 哈萨克斯坦2026年以来登记麻疹感染病例逾5000例
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-首设APEC经济体展区，从“产品展销”到“价值共创” 文博会链动亚太“星汉灿烂” 羊城晚报记者 赵鹏 5月21日-25日，第二十二届中国(深圳)国际文化产业博览交易会(以下简称“文博会”)将在深圳国际会展中心盛大举行。今年11月，亚太经合组织(APEC)第三十三次领导人非正式会议将在深圳举办。值此“APEC中国年”的重要节点，本届文博会迎来重磅升级——首次全新设立APEC经济体
+中新网阿斯塔纳5月4日电 哈通社4日援引哈萨克斯坦卫生部消息称，2026年以来，该国已累计登记超过5000例麻疹感染病例，整体发病水平呈上升趋势。 哈卫生部指出，本轮麻疹感染病例增长主要与疫苗接种覆盖率下降有关，其中包括部分人群拒绝接种疫苗以及新冠疫情期间常规免疫接种中断等因素。此外，人口流动增加亦对麻疹疫情传播产生影响。 从病例结构看，儿童为主要受影响群体。数据显示，约83%
 
 ## 正文
 
-首设APEC经济体展区，从“产品展销”到“价值共创” 文博会链动亚太“星汉灿烂” 羊城晚报记者 赵鹏 5月21日-25日，第二十二届中国(深圳)国际文化产业博览交易会(以下简称“文博会”)将在深圳国际会展中心盛大举行。
+中新网阿斯塔纳5月4日电 哈通社4日援引哈萨克斯坦卫生部消息称，2026年以来，该国已累计登记超过5000例麻疹感染病例，整体发病水平呈上升趋势。
 
-今年11月，亚太经合组织(APEC)第三十三次领导人非正式会议将在深圳举办。
+哈卫生部指出，本轮麻疹感染病例增长主要与疫苗接种覆盖率下降有关，其中包括部分人群拒绝接种疫苗以及新冠疫情期间常规免疫接种中断等因素。
 
-值此“APEC中国年”的重要节点，本届文博会迎来重磅升级——首次全新设立APEC经济体展区。
+此外，人口流动增加亦对麻疹疫情传播产生影响。
 
-该展区以亚太文化交流为突破口，汇聚亚太多元文化资源、产业力量与贸易渠道，不仅生动呈现亚太地区文旅发展丰硕成果，更搭建起常态化、专业化的国际文化交流合作平台。
+从病例结构看，儿童为主要受影响群体。
 
-构建亚太文化共生鲜活图景 被誉为“中国文化产业第一展”的文博会，历经20余年深耕沉淀，早已从本土文化产业展示窗口，成长为链接中国与全球文化市场的核心枢纽。
+数据显示，约83%的感染者为14岁以下人群，其中超过70%为5岁以下儿童。
 
-本届展会立足粤港澳大湾区区位优势与深圳对外开放高地优势，紧扣亚太合作时代主题，创新性打造APEC经济体展区，成为全年文化产业对外交流的标志性亮点。
+接种情况方面，76.3%的感染者未接种疫苗。
 
-作为适配APEC合作机制的特色功能展区，APEC经济体展区精准聚焦亚太文旅产业发展前沿，全方位集中展示各经济体特色文创产品、非物质文化遗产、地域特色美食、智慧文旅成果等优质内容，以多元、鲜活、沉浸式的形式，让亚太各国各地区特色文化资源实现集中亮相、深度交融。
+从地区分布看，阿斯塔纳、阿拉木图等城市病例较为集中。
 
-该展区将汇聚亚太多个经济体的文旅头部企业，以“文化+旅游”“文化+创意”“文化+美食”为主题，打造一场集展示、交易、交流、合作于一体的文化盛宴。
+消息称，哈萨克斯坦正通过扩大疫苗接种范围应对本轮麻疹疫情，包括开展儿童常规免疫接种，为6至11个月婴儿提供补充接种，对2至5岁儿童进行集中补种，并对青少年开展“补漏式”免疫接种等。
 
 ## 相关推荐
 
-- 2026-06-29 21:13 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 21:02 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 21:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 21:25 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 21:04 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 21:29 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 21:26 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 21:28 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 21:02 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 21:18 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 21:19 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 21:01 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 21:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 21:31 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 21:13 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 21:30 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 21:31 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 21:31 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 21:19 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 21:30 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 21:26 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 21:14 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 21:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 21:22 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 21:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 21:23 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 21:24 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:20 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/986775.shtml)
-- 2026-06-29 21:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/13625.shtml)
-- 2026-06-29 21:24 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/43163559.shtml)
-- 2026-06-29 21:03 - [金鹰奖第二阶段投票明日开启](http://www.share.minike.top/Article/details/508723533616.shtml)
-- 2026-06-29 21:25 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/21912.shtml)
-- 2026-06-29 21:22 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/592302390381.shtml)
-- 2026-06-29 21:20 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/407310.shtml)
-- 2026-06-29 21:12 - [天道](http://www.blog.minike.top/Article/details/37710255018.shtml)
-- 2026-06-29 21:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/216302055450.shtml)
-- 2026-06-29 21:11 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/340137.shtml)
-- 2026-06-29 21:20 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/1762062.shtml)
-- 2026-06-29 21:02 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/416673.shtml)
-- 2026-06-29 21:12 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/10066204950.shtml)
-- 2026-06-29 21:25 - [沙丘](https://www.blog.kurohicncr.top/Article/details/77100785833.shtml)
-- 2026-06-29 21:23 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/584924665.shtml)
+- 2026-06-29 21:13 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/34360.shtml)
+- 2026-06-29 21:20 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.kurohicncr.top/Article/details/253944042.shtml)
+- 2026-06-29 21:26 - [王楚钦称抽签结果出来心情不好](http://www.share.minike.top/Article/details/62369.shtml)
+- 2026-06-29 21:15 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/17633116.shtml)
+- 2026-06-29 21:21 - [多人将马路护栏当球网打羽毛球](http://www.blog.kurohicncr.top/Article/details/46473716.shtml)
+- 2026-06-29 21:10 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/3142515790.shtml)
+- 2026-06-29 21:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/32216.shtml)
+- 2026-06-29 21:24 - [急先锋](https://www.share.minike.top/Article/details/07312910395.shtml)
+- 2026-06-29 21:23 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/98534.shtml)
+- 2026-06-29 21:35 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/19943.shtml)
+- 2026-06-29 21:35 - [女心理师](http://www.share.minike.top/Article/details/6034233.shtml)
+- 2026-06-29 21:31 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/8032822688.shtml)
+- 2026-06-29 21:25 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/40479.shtml)
+- 2026-06-29 21:32 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/60335288592.shtml)
+- 2026-06-29 21:13 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/95782752928.shtml)

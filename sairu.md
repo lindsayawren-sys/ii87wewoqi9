@@ -1,49 +1,59 @@
-# 习言道｜网络空间承载着人类对美好未来的无限憧憬
+# 苹果暗示可能正在酝酿一笔大型AI收购
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 08:06 来源：中国新闻网 “世界因互联网而更多彩，生活因互联网而更丰富。”习近平总书记高度重视网络强国建设，引领我国从网络大国向着网络强国阔步迈进。 责任编辑：【任帅】
+苹果（AAPL）的下一任CEO约翰·特努斯尚未透露他的战略——但在他正式上任之前，公司刚刚做了一个值得注意的改变。 随着这家iPhone制造商准备在今年晚些时候推出其期待已久的人工智能功能，其财务策略的突然转变表明，该公司可能很快就会进行一笔大规模收购。 苹果并不以率先拥抱新技术或为了轰动性收购而慷慨解囊著称。当其他大型科技公司竞相在资本支出上投入数千亿美元时，苹果一直处于旁观
 
 ## 正文
 
-发布时间：2026年05月19日 08:06 来源：中国新闻网 “世界因互联网而更多彩，生活因互联网而更丰富。
+苹果（AAPL）的下一任CEO约翰·特努斯尚未透露他的战略——但在他正式上任之前，公司刚刚做了一个值得注意的改变。
 
-”习近平总书记高度重视网络强国建设，引领我国从网络大国向着网络强国阔步迈进。
+随着这家iPhone制造商准备在今年晚些时候推出其期待已久的人工智能功能，其财务策略的突然转变表明，该公司可能很快就会进行一笔大规模收购。
 
-责任编辑：【任帅】
+苹果并不以率先拥抱新技术或为了轰动性收购而慷慨解囊著称。
+
+当其他大型科技公司竞相在资本支出上投入数千亿美元时，苹果一直处于旁观状态——通过股票回购和分红将资金返还给股东。
+
+不过，苹果可能很快就会加入这场游戏。
+
+在周四的第二季度财报电话会议上，苹果表示将放弃其长期持有的净现金中性目标。
+
+早在2018年，苹果就开始缩减其庞大的现金储备，目标是保持现金和债务水平相当，但苹果表示，未来将分别评估这两个指标。
+
+首席财务官凯文·帕雷克表示，这一决定将帮助公司“在如何最优地利用我们的债务和现金组合来支持业务方面，做出更优的经济决策”。
 
 ## 相关推荐
 
-- 2026-06-29 21:19 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 21:28 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 21:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 21:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 21:25 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 21:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 21:07 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 21:26 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 21:28 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 21:19 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 21:22 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 21:00 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 21:09 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 21:27 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 21:21 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 21:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 21:19 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 21:08 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 21:17 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 21:22 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 21:26 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 21:32 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 21:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 21:18 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 21:21 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 21:14 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:02 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/39217.shtml)
-- 2026-06-29 21:20 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/65980.shtml)
-- 2026-06-29 21:17 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.minike.top/Article/details/625507.shtml)
-- 2026-06-29 21:02 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/94797120.shtml)
-- 2026-06-29 21:01 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/31252958082.shtml)
-- 2026-06-29 21:21 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/795967065489.shtml)
-- 2026-06-29 21:07 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/273215622149.shtml)
-- 2026-06-29 21:14 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/918009.shtml)
-- 2026-06-29 21:05 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/179212470503.shtml)
-- 2026-06-29 21:06 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/62920561477.shtml)
-- 2026-06-29 21:22 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/161219744852.shtml)
-- 2026-06-29 21:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/5874986605.shtml)
-- 2026-06-29 21:17 - [福建海警位金门附近海域常态执法巡查](http://www.blog.kurohicncr.top/Article/details/529183596667.shtml)
-- 2026-06-29 21:24 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/275134454.shtml)
-- 2026-06-29 21:06 - [千与千寻](https://www.blog.minike.top/Article/details/221826477572.shtml)
+- 2026-06-29 21:33 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/2866603.shtml)
+- 2026-06-29 21:20 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/660189.shtml)
+- 2026-06-29 21:19 - [斛珠夫人](https://www.blog.minike.top/Article/details/594692.shtml)
+- 2026-06-29 21:19 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/4347315.shtml)
+- 2026-06-29 21:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/72031730225.shtml)
+- 2026-06-29 21:13 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/33029153878.shtml)
+- 2026-06-29 21:29 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/42917770.shtml)
+- 2026-06-29 21:29 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/97797.shtml)
+- 2026-06-29 21:21 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/6452699.shtml)
+- 2026-06-29 21:35 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/9103783.shtml)
+- 2026-06-29 21:15 - [2026全国田径冠军赛江苏队4金收官](https://www.share.kurohicncr.top/Article/details/4298500149.shtml)
+- 2026-06-29 21:06 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/337025154.shtml)
+- 2026-06-29 21:35 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/57393004501.shtml)
+- 2026-06-29 21:21 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/62339703.shtml)
+- 2026-06-29 21:19 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/5202381.shtml)

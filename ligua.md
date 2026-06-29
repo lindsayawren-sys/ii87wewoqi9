@@ -1,57 +1,46 @@
-# 从历史机遇到数字化复原 中国双线推动流散文物“回家”
+# 怡俊集团控股控股股东天赋国际集团完成配售3781万股公司股份
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中新网洛阳5月20日电 (阚力 王佳宁)“当前海外文物回归已面临更好的历史机遇。”20日，在河南洛阳持续举行的龙门石窟保护传承传播工作座谈会上，上海大学党委副书记段勇如是说。 据中国文物学会统计，1840年以来，从中国流出的文物约有1000万件。大批海外流散文物回归，一直备受关注。 当地时间5月9日，法国总统马克龙签署关于归还非法所获文物的法律，备受国际舆论广泛关注。 “这为流
+怡俊集团控股（02442）发布公告，公司董事会获本公司控股股东天赋国际集团有限公司（控股股东）告知，其持有的合共3781万股本公司现有股份（配售股份，占本公司现有已发行股本约9.27%）已获一名配售代理以每股配售股份19.61港元的配售价，成功配售予不少于六名独立投资者（承配人），其中3233万股配售股份已于2026年4月30日完成配售，而548万股配售股份则于2026年5月4
 
 ## 正文
 
-中新网洛阳5月20日电 (阚力 王佳宁)“当前海外文物回归已面临更好的历史机遇。
+怡俊集团控股（02442）发布公告，公司董事会获本公司控股股东天赋国际集团有限公司（控股股东）告知，其持有的合共3781万股本公司现有股份（配售股份，占本公司现有已发行股本约9.27%）已获一名配售代理以每股配售股份19.61港元的配售价，成功配售予不少于六名独立投资者（承配人），其中3233万股配售股份已于2026年4月30日完成配售，而548万股配售股份则于2026年5月4日完成配售（配售事项）。
 
-”20日，在河南洛阳持续举行的龙门石窟保护传承传播工作座谈会上，上海大学党委副书记段勇如是说。
+配售事项完成后，控股股东持有本公司2.68亿股股份，占本公司现有已发行股本约65.73%，并继续为本公司的控股股东。
 
-据中国文物学会统计，1840年以来，从中国流出的文物约有1000万件。
-
-大批海外流散文物回归，一直备受关注。
-
-当地时间5月9日，法国总统马克龙签署关于归还非法所获文物的法律，备受国际舆论广泛关注。
-
-“这为流失在法国的圆明园文物‘回家’打开了新窗口。
-
-”段勇向中新社表示，这也意味着文物归还程序更加便捷高效，是文物追索返还领域的一个重大进步，让部分海外流散的中国文物有了更快“回家”的希望。
-
-近年来，中国通过多种方式积极推动海外流散文物返还。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:12 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 21:25 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 21:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 21:27 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 21:06 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 21:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 21:02 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 21:03 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 21:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 21:07 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 21:03 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 21:22 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 21:08 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 21:28 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 21:35 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 21:12 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 21:17 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 21:15 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 21:34 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 21:18 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 21:06 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:10 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/980861229353.shtml)
-- 2026-06-29 21:04 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/563225434787.shtml)
-- 2026-06-29 21:23 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/227507.shtml)
-- 2026-06-29 21:00 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/595384739.shtml)
-- 2026-06-29 21:28 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/466872797863.shtml)
-- 2026-06-29 21:19 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/5888217.shtml)
-- 2026-06-29 21:19 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/73262541.shtml)
-- 2026-06-29 21:11 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/7136658.shtml)
-- 2026-06-29 21:24 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/490304.shtml)
-- 2026-06-29 21:05 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/2491363.shtml)
-- 2026-06-29 21:09 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/9464282984.shtml)
-- 2026-06-29 21:28 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/87910.shtml)
-- 2026-06-29 21:01 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/775358058.shtml)
-- 2026-06-29 21:00 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/0044310.shtml)
-- 2026-06-29 21:11 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/00565250.shtml)
+- 2026-06-29 21:25 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/45065254683.shtml)
+- 2026-06-29 21:32 - [一生一世](https://www.share.kurohicncr.top/Article/details/708381326617.shtml)
+- 2026-06-29 21:20 - [毒液2](http://www.share.kurohicncr.top/Article/details/59647020728.shtml)
+- 2026-06-29 21:25 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/3137643405.shtml)
+- 2026-06-29 21:15 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/241069.shtml)
+- 2026-06-29 21:14 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/27433630.shtml)
+- 2026-06-29 21:18 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/6600082781.shtml)
+- 2026-06-29 21:06 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/1432840.shtml)
+- 2026-06-29 21:12 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/0544413124.shtml)
+- 2026-06-29 21:13 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/939820433.shtml)
+- 2026-06-29 21:26 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/1687270.shtml)
+- 2026-06-29 21:12 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/7753142.shtml)
+- 2026-06-29 21:24 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/543414748.shtml)
+- 2026-06-29 21:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/480119945359.shtml)
+- 2026-06-29 21:27 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/729395.shtml)

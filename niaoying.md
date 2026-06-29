@@ -1,56 +1,58 @@
-# 罚单不断、业绩双降，江西银行怎么了？
+# 贵州台江举行苗族姊妹节万人盛装游演
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-原标题：罚单不断、业绩双降，这家上市银行怎么了？ 投资时间网、标点财经研究员 田文会 今年以来，江西银行总计被罚款已不低于256万元 江西银行股份有限公司（下称江西银行，1916.HK）近日因贷款违规领到多张罚单。该行近几年持续加大不良贷款处置力度，但贷款业务管理仍需加强。 据国家金融监督管理总局（下称金融监管总局）5月15日发布的监管信息，金融监管部门决定对江西银行和两家分支
+中新社贵州台江5月2日电 (瞿宏伦 曾琪男)“一进入县城就被热闹的氛围包围，亲眼见到长长的银饰队伍时，感到非常震撼，银饰碰撞发出的清脆声响不绝于耳。”老挝游客王云兰说，这趟旅程非常值得，一定会把这里的美好分享给老挝的亲友。 贵州·台江2026年苗族姊妹节主要活动——万人盛装游演2日在贵州省黔东南苗族侗族自治州台江县上演，吸引海内外游客一同体验，感受苗族文化魅力。 苗族姊妹节被誉
 
 ## 正文
 
-原标题：罚单不断、业绩双降，这家上市银行怎么了？
+中新社贵州台江5月2日电 (瞿宏伦 曾琪男)“一进入县城就被热闹的氛围包围，亲眼见到长长的银饰队伍时，感到非常震撼，银饰碰撞发出的清脆声响不绝于耳。
 
-投资时间网、标点财经研究员 田文会 今年以来，江西银行总计被罚款已不低于256万元 江西银行股份有限公司（下称江西银行，1916.HK）近日因贷款违规领到多张罚单。
+”老挝游客王云兰说，这趟旅程非常值得，一定会把这里的美好分享给老挝的亲友。
 
-该行近几年持续加大不良贷款处置力度，但贷款业务管理仍需加强。
+贵州·台江2026年苗族姊妹节主要活动——万人盛装游演2日在贵州省黔东南苗族侗族自治州台江县上演，吸引海内外游客一同体验，感受苗族文化魅力。
 
-据国家金融监督管理总局（下称金融监管总局）5月15日发布的监管信息，金融监管部门决定对江西银行和两家分支机构合计罚款115万元，主要因贷款管理不到位及以贷还贷掩盖不良。
+苗族姊妹节被誉为“藏在花蕊里的节日”，于2006年被列入第一批中国国家级非物质文化遗产代表性项目名录。
 
-今年以来，该行因贷款业务违规已被罚款累计不低于215万元，总计被罚款不低于256万元。
+它是以青年男女谈情说爱为主的传统节日，有对歌、跳芦笙舞、互赠信物等特色活动，成为苗族文化最具代表性的符号之一。
 
-江西银行不良贷款率2022年有明显上升，该行实施了资产质量攻坚三年行动方案，近几年不良贷款率持续缓慢下降。
+苗族姊妹节是台江苗族文化的鲜活载体，万人盛装游演更是节日最具代表性的核心环节。
 
-该行近三年贷款核销额也明显较以往加大，2023年—2025年核销额总计186.58亿元。
+本次游演共集结20多支特色队伍，涵盖台江方你、方纠、方白、方南等苗族各支系，全方位呈现“一服一史、一饰一韵”的奇观。
 
-2025年末，该行不良贷款率为2%，同比下降，但仍高于行业。
+姊妹花方队、高排芦笙方队等组成的游演队伍，伴随着悠扬的木鼓声和芦笙曲依次亮相。
 
 ## 相关推荐
 
-- 2026-06-29 21:26 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 21:22 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 21:17 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 21:10 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 21:15 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 21:13 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 21:15 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 21:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 21:14 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 21:23 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 21:24 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 21:25 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 21:24 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 21:21 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 21:28 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 21:31 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 21:08 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 21:20 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 21:30 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 21:06 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 21:20 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 21:10 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/5226737.shtml)
-- 2026-06-29 21:06 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/9420346263.shtml)
-- 2026-06-29 21:14 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/15766.shtml)
-- 2026-06-29 21:13 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/4413298.shtml)
-- 2026-06-29 21:17 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/49290.shtml)
-- 2026-06-29 21:11 - [天道](http://www.blog.minike.top/Article/details/238788.shtml)
-- 2026-06-29 21:15 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/2772888.shtml)
-- 2026-06-29 21:29 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/8204770.shtml)
-- 2026-06-29 21:08 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/33903351.shtml)
-- 2026-06-29 21:20 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/9895620196.shtml)
-- 2026-06-29 21:27 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/613295560.shtml)
-- 2026-06-29 21:29 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/07522266489.shtml)
-- 2026-06-29 21:19 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/918287704510.shtml)
-- 2026-06-29 21:09 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/2584381515.shtml)
-- 2026-06-29 21:01 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/02626872146.shtml)
+- 2026-06-29 21:20 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/09638272.shtml)
+- 2026-06-29 21:14 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/744250963025.shtml)
+- 2026-06-29 21:24 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/937315325327.shtml)
+- 2026-06-29 21:07 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/9094459934.shtml)
+- 2026-06-29 21:31 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/91618.shtml)
+- 2026-06-29 21:27 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/8658923760.shtml)
+- 2026-06-29 21:07 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/418172.shtml)
+- 2026-06-29 21:18 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/18198.shtml)
+- 2026-06-29 21:07 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/96222.shtml)
+- 2026-06-29 21:13 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/5093810.shtml)
+- 2026-06-29 21:33 - [教育部高校学生资助热线7月1日开通](http://www.share.kurohicncr.top/Article/details/044606.shtml)
+- 2026-06-29 21:21 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/300227850.shtml)
+- 2026-06-29 21:21 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/108091930197.shtml)
+- 2026-06-29 21:26 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/002674947.shtml)
+- 2026-06-29 21:08 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/5055791317.shtml)

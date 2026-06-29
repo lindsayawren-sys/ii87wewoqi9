@@ -1,49 +1,61 @@
-# 升辉清洁附属拟1575万元收购华立数字广东70%股权 进军人工智能系统开发
+# 外交部发言人就东京审判开庭80周年答记者问
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-升辉清洁（02521）发布公告，于2026年5月18日，华立数字郑州与买方（广州天佑升辉数字科技有限公司，本公司全资附属公司）订立股权转让协议，据此，买方同意购买而华立数字郑州同意出售华立数字广东的70%股权（即待售权益），代价为人民币1575万元。 董事认为，倘收购事项得以落实，将为本集团带来一个良机，进军人工智能系统开发及相关服务市场，并进一步加强华立数字广东在人工智能驱动
+外交部发言人就东京审判开庭80周年答记者问，具体内容如下。 问：今天是远东国际军事法庭（东京审判）开庭80周年纪念日。近期，中国、日本、国际社会都举行了一系列纪念活动，重温东京审判历史意义。请问中方对此有何评论？ 答：1946年5月3日，根据日本无条件投降安排和盟军最高统帅颁布的《远东国际军事法庭宪章》，远东国际军事法庭正式开庭。这场历史性审判汇聚11国司法力量，以海量铁证和严
 
 ## 正文
 
-升辉清洁（02521）发布公告，于2026年5月18日，华立数字郑州与买方（广州天佑升辉数字科技有限公司，本公司全资附属公司）订立股权转让协议，据此，买方同意购买而华立数字郑州同意出售华立数字广东的70%股权（即待售权益），代价为人民币1575万元。
+外交部发言人就东京审判开庭80周年答记者问，具体内容如下。
 
-董事认为，倘收购事项得以落实，将为本集团带来一个良机，进军人工智能系统开发及相关服务市场，并进一步加强华立数字广东在人工智能驱动服务方面的能力，从而扩阔本集团的收入来源，同时令华立数字广东的人工智能驱动服务组合进一步多元化。
+问：今天是远东国际军事法庭（东京审判）开庭80周年纪念日。
 
-责任编辑：卢昱君
+近期，中国、日本、国际社会都举行了一系列纪念活动，重温东京审判历史意义。
+
+请问中方对此有何评论？
+
+答：1946年5月3日，根据日本无条件投降安排和盟军最高统帅颁布的《远东国际军事法庭宪章》，远东国际军事法庭正式开庭。
+
+这场历史性审判汇聚11国司法力量，以海量铁证和严谨法理，判定日本军国主义发动侵略战争、严重违反国际法，揭露日本侵略者在亚洲多国犯下的累累罪行，判处东条英机等25名甲级战犯绞刑、徒刑，驳斥所谓“胜利者审判”“自卫战争”“事后立法”等谬论。
+
+东京审判是《开罗宣言》《波茨坦公告》规定的实施，反映战胜国与受害者集体意志，践行《联合国宪章》的宗旨与原则，捍卫了二战胜利成果。
+
+接受东京审判判决是战后日本回归国际社会的前提。
 
 ## 相关推荐
 
-- 2026-06-29 21:01 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 21:23 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 21:14 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 21:14 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 21:27 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 21:18 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 21:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 21:23 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 21:10 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 21:19 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 21:17 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 21:24 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 21:23 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 21:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 21:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 21:10 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 21:17 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 21:21 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 21:33 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 21:23 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 21:10 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 21:33 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 21:29 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 21:26 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 21:29 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 21:16 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 21:16 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 21:19 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:12 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/45552.shtml)
-- 2026-06-29 21:15 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/503672.shtml)
-- 2026-06-29 21:25 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/40684939143.shtml)
-- 2026-06-29 21:01 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/610044903.shtml)
-- 2026-06-29 21:25 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/4727664.shtml)
-- 2026-06-29 21:01 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/23168.shtml)
-- 2026-06-29 21:16 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/995480250062.shtml)
-- 2026-06-29 21:26 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/13711466739.shtml)
-- 2026-06-29 21:03 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/0290573.shtml)
-- 2026-06-29 21:15 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.kurohicncr.top/Article/details/89844871793.shtml)
-- 2026-06-29 21:24 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/78340607514.shtml)
-- 2026-06-29 21:06 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/483614001.shtml)
-- 2026-06-29 21:13 - [我和我的家乡](http://www.blog.minike.top/Article/details/7252621040.shtml)
-- 2026-06-29 21:18 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/590300.shtml)
-- 2026-06-29 21:08 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/206461850275.shtml)
+- 2026-06-29 21:32 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/720213.shtml)
+- 2026-06-29 21:30 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/93342448.shtml)
+- 2026-06-29 21:26 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/507845.shtml)
+- 2026-06-29 21:13 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/69207891347.shtml)
+- 2026-06-29 21:34 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/667801210911.shtml)
+- 2026-06-29 21:09 - [记者：预计热火将追求小哈达威和康利](https://www.blog.minike.top/Article/details/30524.shtml)
+- 2026-06-29 21:35 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/5231285.shtml)
+- 2026-06-29 21:32 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/0094804785.shtml)
+- 2026-06-29 21:23 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/2839551171.shtml)
+- 2026-06-29 21:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/52611.shtml)
+- 2026-06-29 21:30 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/198403533.shtml)
+- 2026-06-29 21:32 - [英法德葡存在什么隐患](https://www.share.minike.top/Article/details/30134.shtml)
+- 2026-06-29 21:11 - [韩国队主帅遭极端网友死亡威胁](https://www.share.minike.top/Article/details/63046111983.shtml)
+- 2026-06-29 21:22 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/600348065.shtml)
+- 2026-06-29 21:16 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/891254.shtml)

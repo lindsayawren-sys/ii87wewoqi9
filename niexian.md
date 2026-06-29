@@ -1,47 +1,51 @@
-# 经纬线·习主席的老朋友访华，共同擘画中俄关系新蓝图
+# 报道：美国计划从德国撤出约5000名士兵
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月20日 09:06 来源：人民日报客户端 责任编辑：【杨彦宇】
+哥伦比亚广播公司（CBS）援引高级国防官员报道，美国国防部正计划从德国撤出约5000名美军。 CBS称，此次撤军不会影响将受伤士兵送至德国兰施图尔区域医疗中心（Landstuhl Regional Medical Center）的安排。责任编辑：何云
 
 ## 正文
 
-发布时间：2026年05月20日 09:06 来源：人民日报客户端 责任编辑：【杨彦宇】
+哥伦比亚广播公司（CBS）援引高级国防官员报道，美国国防部正计划从德国撤出约5000名美军。
+
+CBS称，此次撤军不会影响将受伤士兵送至德国兰施图尔区域医疗中心（Landstuhl Regional Medical Center）的安排。
+
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 21:11 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 21:06 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 21:13 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 21:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 21:02 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 21:25 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 21:19 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 21:24 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 21:29 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 21:15 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 21:02 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 21:00 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 21:22 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 21:15 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 21:34 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 21:21 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 21:22 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 21:11 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 21:27 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 21:13 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 21:26 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 21:17 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 21:11 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 21:14 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 21:25 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 21:17 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 21:30 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 21:11 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 21:13 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:05 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/02132391.shtml)
-- 2026-06-29 21:02 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/697341447229.shtml)
-- 2026-06-29 21:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/25222.shtml)
-- 2026-06-29 21:08 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/7211384.shtml)
-- 2026-06-29 21:07 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/2717273.shtml)
-- 2026-06-29 21:12 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/7544673.shtml)
-- 2026-06-29 21:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/583223236.shtml)
-- 2026-06-29 21:25 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/34511007575.shtml)
-- 2026-06-29 21:27 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/993829754.shtml)
-- 2026-06-29 21:04 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/446607171.shtml)
-- 2026-06-29 21:14 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/9605657333.shtml)
-- 2026-06-29 21:12 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/66890331458.shtml)
-- 2026-06-29 21:20 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/4397589299.shtml)
-- 2026-06-29 21:12 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/6960121296.shtml)
-- 2026-06-29 21:20 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/375628367.shtml)
+- 2026-06-29 21:24 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/826542759.shtml)
+- 2026-06-29 21:24 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/1626915.shtml)
+- 2026-06-29 21:27 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/03177.shtml)
+- 2026-06-29 21:06 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/12085444.shtml)
+- 2026-06-29 21:25 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/68740591.shtml)
+- 2026-06-29 21:32 - [华工科技龙虎榜数据](http://www.blog.minike.top/Article/details/784841.shtml)
+- 2026-06-29 21:32 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/2948357.shtml)
+- 2026-06-29 21:32 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/62539.shtml)
+- 2026-06-29 21:10 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/87669056113.shtml)
+- 2026-06-29 21:07 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/918396808647.shtml)
+- 2026-06-29 21:22 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/4119061774.shtml)
+- 2026-06-29 21:09 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/743364.shtml)
+- 2026-06-29 21:25 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/897177569085.shtml)
+- 2026-06-29 21:13 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/8066570.shtml)
+- 2026-06-29 21:33 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/88234.shtml)

@@ -1,59 +1,56 @@
-# 重庆开展专项行动 规范劳动用工、整顿人力资源市场秩序
+# Meta据悉拟为德州埃尔帕索数据中心融资约130亿美元
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月19日电 (记者 钟旖)近日，重庆市就业促进和劳动保护工作领导小组办公室印发通知，决定开展2026年全市规范劳动用工暨清理整顿人力资源市场秩序专项行动(下称专项行动)，集中整治侵害劳动者公平就业权益、扰乱人力资源市场秩序的突出违法违规问题。专项行动将持续至7月底。其间，重庆还将开展企业劳动用工法治“体检”和行政指导，集中化解劳动关系风险隐患。 据介绍，专项行动将聚
+知情人士透露，Meta Platforms拟为德克萨斯州埃尔帕索的一座数据中心融资，规模可能达到约130亿美元，凸显大型科技公司越来越依赖债务融资助力人工智能算力基建。 知情人士称，摩根士丹利和摩根大通正在牵头推进这一融资。预计大部分融资将以债务形式完成，其余为股权融资。 Meta、摩根士丹利和摩根大通的代表均不予置评。知情人士称，讨论仍处于早期阶段，条款仍可能变动。 Meta
 
 ## 正文
 
-中新网重庆5月19日电 (记者 钟旖)近日，重庆市就业促进和劳动保护工作领导小组办公室印发通知，决定开展2026年全市规范劳动用工暨清理整顿人力资源市场秩序专项行动(下称专项行动)，集中整治侵害劳动者公平就业权益、扰乱人力资源市场秩序的突出违法违规问题。
+知情人士透露，Meta Platforms拟为德克萨斯州埃尔帕索的一座数据中心融资，规模可能达到约130亿美元，凸显大型科技公司越来越依赖债务融资助力人工智能算力基建。
 
-专项行动将持续至7月底。
+知情人士称，摩根士丹利和摩根大通正在牵头推进这一融资。
 
-其间，重庆还将开展企业劳动用工法治“体检”和行政指导，集中化解劳动关系风险隐患。
+预计大部分融资将以债务形式完成，其余为股权融资。
 
-据介绍，专项行动将聚焦七大重点领域精准发力。
+Meta、摩根士丹利和摩根大通的代表均不予置评。
 
-具体包括，严格规范网络招聘，压实互联网平台企业管理责任，严厉打击以招聘为名诱骗求职者参与电信诈骗、传销等违法犯罪活动；集中整治“招转培(贷)”欺诈，多部门协同开展全链条打击，坚决斩断违法产业链条；着力打击虚假招聘，严查“央国企内推”“保录直签”等虚假宣传及乱收费、滥用“试用期”等行为。
+知情人士称，讨论仍处于早期阶段，条款仍可能变动。
 
-此外，专项行动将依法规范劳务派遣，纠治无证经营、“假外包真派遣”、克扣拖欠工资等乱象；依法纠治就业歧视，严禁性别、年龄、户籍等不合理限制，加强劳动者个人信息保护；依法规范劳动用工，重点查处不签劳动合同、欠薪欠保、超时加班、非法裁员等问题；依法纠治违反劳动保护特别规定行为，严厉打击非法使用童工、侵害女职工和未成年工合法权益等行为。
+Meta去年为路易斯安那州一个数据中心项目完成近300亿美元融资，其中包括270亿美元的债务。
 
-专项行动期间，该市人社、网信、教育、公安、市场监管、税务等部门将加强普法宣传、信息共享、风险预警和执法协作，畅通举报投诉渠道，全量获取违法违规线索，联动查处重点个案线索；同时还将开展劳动保障监察书面审查和“双随机、一公开”现场检查，推广网络巡查和远程监管，尽量减少对市场主体不必要干扰。
-
-对查实的违法违规行为，各部门将坚决从严从实查处，依法作出行政处理处罚决定，涉嫌犯罪的移送公安机关，并向社会公布重大典型案例。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 21:12 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 21:20 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 21:06 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 21:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 21:17 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 21:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 21:23 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 21:10 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 21:12 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 21:04 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 21:05 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 21:07 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 21:23 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 21:19 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 21:31 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 21:11 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 21:34 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 21:33 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 21:08 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 21:12 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 21:25 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 21:19 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 21:22 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 21:15 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 21:28 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:10 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/23683172813.shtml)
-- 2026-06-29 21:19 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/196120.shtml)
-- 2026-06-29 21:20 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/4482918677.shtml)
-- 2026-06-29 21:04 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/3823309875.shtml)
-- 2026-06-29 21:20 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/4955549579.shtml)
-- 2026-06-29 21:20 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/690149.shtml)
-- 2026-06-29 21:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/722225409.shtml)
-- 2026-06-29 21:04 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/19013772.shtml)
-- 2026-06-29 21:10 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/57000022470.shtml)
-- 2026-06-29 21:28 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/1881623368.shtml)
-- 2026-06-29 21:21 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/564632.shtml)
-- 2026-06-29 21:25 - [沙丘](https://www.share.kurohicncr.top/Article/details/99842.shtml)
-- 2026-06-29 21:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/66012.shtml)
-- 2026-06-29 21:13 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/1087163.shtml)
-- 2026-06-29 21:18 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/0291986.shtml)
+- 2026-06-29 21:11 - [本届世界杯已有5人涉性侵风波](http://www.blog.minike.top/Article/details/552344905.shtml)
+- 2026-06-29 21:14 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/279835.shtml)
+- 2026-06-29 21:26 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/4061543119.shtml)
+- 2026-06-29 21:12 - [济南航空航天全面起势](https://www.share.kurohicncr.top/Article/details/52217754427.shtml)
+- 2026-06-29 21:07 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/7560722.shtml)
+- 2026-06-29 21:20 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/90723938.shtml)
+- 2026-06-29 21:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/7052293.shtml)
+- 2026-06-29 21:12 - [起风了](http://www.share.minike.top/Article/details/795659826.shtml)
+- 2026-06-29 21:12 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/15790.shtml)
+- 2026-06-29 21:35 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/8522984128.shtml)
+- 2026-06-29 21:21 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/5146962123.shtml)
+- 2026-06-29 21:28 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/9623832.shtml)
+- 2026-06-29 21:06 - [炽夏](http://www.blog.kurohicncr.top/Article/details/14025.shtml)
+- 2026-06-29 21:15 - [一汽大众黄金超混技术来袭](http://www.share.minike.top/Article/details/647615680.shtml)
+- 2026-06-29 21:30 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/00478.shtml)

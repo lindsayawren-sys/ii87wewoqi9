@@ -1,58 +1,61 @@
-# 中方：真诚希望所有非洲国家都能成为中非合作“全家福”中的一员
+# 603599控股股东、300663，被证监会立案
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中新网北京5月19日电 (记者 李京泽 张素)中国外交部发言人郭嘉昆19日主持例行记者会。 有记者问：据报道，今年以来中非合作取得积极进展，前4个月双边贸易同期首次突破8000亿元。非洲特色好物进入中国消费市场，中国优质产品也在赋能非洲发展建设。非洲多国人士将中非合作称为拉动非洲发展的“加速器”。也有媒体人士呼吁斯威士兰尽早与中国建交，不要一再错失发展机遇。请问发言人如何看待这
+登录新浪财经APP 搜索【信披】查看更多考评等级 4月30日晚，因涉嫌信息披露违法违规，广信股份（603599）控股股东广信集团、科蓝软件（300663），分别公告被证监会立案。 当天，科蓝软件发布公告称，公司于近日收到证监会《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司进行立案。立案调查期间，公司将配合证监会的相关工作，同时严格按照监管要求履行信息披露义务。 同一天
 
 ## 正文
 
-中新网北京5月19日电 (记者 李京泽 张素)中国外交部发言人郭嘉昆19日主持例行记者会。
+登录新浪财经APP 搜索【信披】查看更多考评等级 4月30日晚，因涉嫌信息披露违法违规，广信股份（603599）控股股东广信集团、科蓝软件（300663），分别公告被证监会立案。
 
-有记者问：据报道，今年以来中非合作取得积极进展，前4个月双边贸易同期首次突破8000亿元。
+当天，科蓝软件发布公告称，公司于近日收到证监会《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司进行立案。
 
-非洲特色好物进入中国消费市场，中国优质产品也在赋能非洲发展建设。
+立案调查期间，公司将配合证监会的相关工作，同时严格按照监管要求履行信息披露义务。
 
-非洲多国人士将中非合作称为拉动非洲发展的“加速器”。
+同一天，科蓝软件还披露，公司及相关责任人员于近日收到北京证监局出具的行政监管措施决定书。
 
-也有媒体人士呼吁斯威士兰尽早与中国建交，不要一再错失发展机遇。
+显示公司存在收入核算不规范、非经营性资金往来、其他会计核算不规范、公司治理及内部控制不规范等问题。
 
-请问发言人如何看待这一现象？
+具体包括：公司子公司大陆云盾电子认证服务有限公司在2020年多计部分项目收入1236.79万元，且在2021年、2022年未恰当核算相关项目应收账款，导致公司2020年、2021年、2022年年报信息披露不准确，分别多计利润总额1165.33万元、少计利润总额107.19万元、少计利润总额996.68万元。
 
-郭嘉昆：在中非合作论坛和共建“一带一路”框架下，中非全方位合作蓬勃发展，助力非洲各国工业化和农业现代化进程，也给非洲人民带来了实实在在的好处。
+同时，公司控股股东王安京于2024年通过公司对外预付账款的形式，占用公司资金446万元。
 
-今年5月1日起，中方对53个非洲建交国全面实施零关税，中国大市场向非洲敞开大门。
+王安京已于2025年12月向公司返还全部占用资金。
 
 ## 相关推荐
 
-- 2026-06-29 21:20 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 21:04 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 21:11 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 21:21 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 21:05 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 21:00 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 21:17 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 21:16 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 21:26 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 21:23 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 21:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 21:23 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 21:15 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 21:19 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 21:13 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 21:07 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 21:26 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 21:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 21:22 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 21:08 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 21:35 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 21:07 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 21:09 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 21:21 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 21:33 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 21:19 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 21:16 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:25 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/13953256931.shtml)
-- 2026-06-29 21:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/78696129822.shtml)
-- 2026-06-29 21:07 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/769907626203.shtml)
-- 2026-06-29 21:11 - [高质量发展看新疆](https://www.share.minike.top/Article/details/8262048590.shtml)
-- 2026-06-29 21:04 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.minike.top/Article/details/825316828.shtml)
-- 2026-06-29 21:00 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/9816075691.shtml)
-- 2026-06-29 21:01 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/075866.shtml)
-- 2026-06-29 21:15 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/957714583901.shtml)
-- 2026-06-29 21:26 - [媒体评恋与深空用“引狼入室”台词](https://www.share.minike.top/Article/details/465852716406.shtml)
-- 2026-06-29 21:23 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/887116176428.shtml)
-- 2026-06-29 21:16 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/91986.shtml)
-- 2026-06-29 21:17 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/32999019114.shtml)
-- 2026-06-29 21:01 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/3363195460.shtml)
-- 2026-06-29 21:10 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/412878580.shtml)
-- 2026-06-29 21:18 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/52220700966.shtml)
+- 2026-06-29 21:19 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/611333.shtml)
+- 2026-06-29 21:25 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/37415117965.shtml)
+- 2026-06-29 21:07 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/734516.shtml)
+- 2026-06-29 21:23 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/8501512.shtml)
+- 2026-06-29 21:18 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/54000321.shtml)
+- 2026-06-29 21:20 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.minike.top/Article/details/152592821205.shtml)
+- 2026-06-29 21:29 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/91774.shtml)
+- 2026-06-29 21:33 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/4253229427.shtml)
+- 2026-06-29 21:20 - [送你一朵小红花](http://www.blog.minike.top/Article/details/192561972478.shtml)
+- 2026-06-29 21:24 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/5539362.shtml)
+- 2026-06-29 21:23 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/08306735095.shtml)
+- 2026-06-29 21:31 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.kurohicncr.top/Article/details/2044471651.shtml)
+- 2026-06-29 21:07 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/79335910.shtml)
+- 2026-06-29 21:12 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/78280.shtml)
+- 2026-06-29 21:08 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/0509925353.shtml)

@@ -1,53 +1,59 @@
-# 外交部：上海一餐厅内发生精神障碍患者持刀伤人案，中方主管部门将依法处理
+# 特朗普称美国有可能重启对伊朗空袭
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中新网北京5月20日电(记者 邢翀)中国外交部发言人郭嘉昆20日主持例行记者会。郭嘉昆在会上应询表示，5月19日，上海一餐厅内发生一起精神障碍患者持刀伤人案，一名中国公民和两名日本公民受伤，伤员已及时送医救治，犯罪嫌疑人已被警方抓获，案件正在进一步侦办中。此案为治安个案，中方主管部门将依法处理。 郭嘉昆表示，中方有关部门已经发布了通报，这是一起治安个案，经核查，伤人者系精神障碍
+中新网5月3日电 据美国Axios新闻网、美国有线电视新闻网(CNN)等报道，当地时间2日，美国总统特朗普在佛罗里达州一座机场接受媒体采访时称，存在美国重启对伊朗空袭的可能性。 据报道，当被问及是否会下令发动新的打击时，特朗普说：“如果他们行为不端，如果他们做了坏事——但现在，我们拭目以待。这当然有可能发生。” 不过，特朗普也表示，他正在审查伊朗提出的新方案。特朗普称，“我正在
 
 ## 正文
 
-中新网北京5月20日电(记者 邢翀)中国外交部发言人郭嘉昆20日主持例行记者会。
+中新网5月3日电 据美国Axios新闻网、美国有线电视新闻网(CNN)等报道，当地时间2日，美国总统特朗普在佛罗里达州一座机场接受媒体采访时称，存在美国重启对伊朗空袭的可能性。
 
-郭嘉昆在会上应询表示，5月19日，上海一餐厅内发生一起精神障碍患者持刀伤人案，一名中国公民和两名日本公民受伤，伤员已及时送医救治，犯罪嫌疑人已被警方抓获，案件正在进一步侦办中。
+据报道，当被问及是否会下令发动新的打击时，特朗普说：“如果他们行为不端，如果他们做了坏事——但现在，我们拭目以待。
 
-此案为治安个案，中方主管部门将依法处理。
+这当然有可能发生。
 
-郭嘉昆表示，中方有关部门已经发布了通报，这是一起治安个案，经核查，伤人者系精神障碍患者，中方有关部门正在依法调查和处置。
+” 不过，特朗普也表示，他正在审查伊朗提出的新方案。
 
-“我还要强调的是，个别媒体和人士不应进行无端的炒作和关联。
+特朗普称，“我正在研究。
 
-”(完)
+稍后我会告诉你结果……他们跟我讲了协议的大致内容。
+
+” 伊朗媒体2日披露伊方日前经由斡旋方巴基斯坦向美国转交的最新谈判方案内容，总计14点提议，聚焦“结束战争”。
+
+报道称，伊朗正在等待美方正式回应。
 
 ## 相关推荐
 
-- 2026-06-29 21:01 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 21:15 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 21:27 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 21:22 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 21:15 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 21:14 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 21:22 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 21:03 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 21:25 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 21:29 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 21:18 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 21:25 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 21:12 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 21:20 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 21:20 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 21:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 21:27 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 21:27 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 21:30 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 21:09 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 21:28 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 21:33 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 21:26 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 21:24 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/870704494725.shtml)
-- 2026-06-29 21:22 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/7325123198.shtml)
-- 2026-06-29 21:09 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/82603.shtml)
-- 2026-06-29 21:24 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/23725878001.shtml)
-- 2026-06-29 21:21 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/434630808.shtml)
-- 2026-06-29 21:20 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/35374110.shtml)
-- 2026-06-29 21:29 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/074243440.shtml)
-- 2026-06-29 21:07 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/93810822589.shtml)
-- 2026-06-29 21:11 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/630351.shtml)
-- 2026-06-29 21:24 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/0333292.shtml)
-- 2026-06-29 21:05 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/038724956.shtml)
-- 2026-06-29 21:19 - [巴西10号球衣是天才传承史](https://www.blog.kurohicncr.top/Article/details/8628556.shtml)
-- 2026-06-29 21:01 - [林逸向方筱然求婚了](http://www.share.minike.top/Article/details/79184.shtml)
-- 2026-06-29 21:28 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/49863.shtml)
-- 2026-06-29 21:13 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/4521200600.shtml)
+- 2026-06-29 21:17 - [返利科技盘中上演“天地板”](http://www.share.kurohicncr.top/Article/details/975739560880.shtml)
+- 2026-06-29 21:21 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/808552349.shtml)
+- 2026-06-29 21:16 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/41324.shtml)
+- 2026-06-29 21:08 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/48705.shtml)
+- 2026-06-29 21:25 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/0216839.shtml)
+- 2026-06-29 21:20 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.minike.top/Article/details/333230055.shtml)
+- 2026-06-29 21:32 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/213402774604.shtml)
+- 2026-06-29 21:10 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/036604456177.shtml)
+- 2026-06-29 21:23 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/9570229.shtml)
+- 2026-06-29 21:16 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/715448935.shtml)
+- 2026-06-29 21:14 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/0064198624.shtml)
+- 2026-06-29 21:24 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.kurohicncr.top/Article/details/441845.shtml)
+- 2026-06-29 21:16 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/073282.shtml)
+- 2026-06-29 21:33 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/43006531656.shtml)
+- 2026-06-29 21:21 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/203610038714.shtml)

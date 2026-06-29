@@ -1,56 +1,54 @@
-# 坦克制造商KNDS乘Renk股价上涨东风，减持股份备战IPO
+# 韩国去年场外衍生品交易额超18万亿美元，创历史新高
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-欧洲坦克制造商KNDS正在利用其持股的传动系统专家Renk近期的股价上涨，减持部分股份，以在自身IPO前夕锁定收益。 减持套现 根据周二发布的公告，KNDS计划出售580万股Renk股票，约占后者股本的5.8%。此次出售将通过加速簿记建档方式面向机构投资者进行。交易完成后，KNDS在Renk的持股比例将从目前的约15.83%降至约10%。 KNDS选择此时减持时机微妙。受欧洲防
+韩国金融监督院周一公布的数据显示，受交易量增长以及远期外汇和利率互换交易量大幅增加的推动，去年韩国场外衍生品交易额创历史新高。 数据显示，去年包括股票期权在内的场外衍生品总成交额达到26779万亿韩元（约合18.13万亿美元），较上年增长318万亿韩元，增幅为1.2%。 按产品类型划分，货币相关产品——货币互换和远期外汇——成交额为18517万亿韩元，占总成交额的73.9%。
 
 ## 正文
 
-欧洲坦克制造商KNDS正在利用其持股的传动系统专家Renk近期的股价上涨，减持部分股份，以在自身IPO前夕锁定收益。
+韩国金融监督院周一公布的数据显示，受交易量增长以及远期外汇和利率互换交易量大幅增加的推动，去年韩国场外衍生品交易额创历史新高。
 
-减持套现 根据周二发布的公告，KNDS计划出售580万股Renk股票，约占后者股本的5.8%。
+数据显示，去年包括股票期权在内的场外衍生品总成交额达到26779万亿韩元（约合18.13万亿美元），较上年增长318万亿韩元，增幅为1.2%。
 
-此次出售将通过加速簿记建档方式面向机构投资者进行。
+按产品类型划分，货币相关产品——货币互换和远期外汇——成交额为18517万亿韩元，占总成交额的73.9%。
 
-交易完成后，KNDS在Renk的持股比例将从目前的约15.83%降至约10%。
+据该金融监管机构称，由于美元走强，对冲外汇波动的需求增加，导致远期外汇交易额同比增长6%，达到18517万亿韩元。
 
-KNDS选择此时减持时机微妙。
+数据显示，利率互换交易额下降6.8%，至5986万亿韩元。
 
-受欧洲防务支出增加预期推动，近期防务板块表现强劲，Renk股价在周二上涨约5%，成为DAX指数中的领涨股之一。
-
-多家银行在5月给予Renk“买入”评级，分析师给出的平均目标价为71.67欧元，较当前水平有近59%的上行空间。
-
-IPO稳步推进 此次减持被市场解读为KNDS为其自身IPO铺路。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 21:11 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 21:28 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 21:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 21:00 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 21:26 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 21:24 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 21:00 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 21:24 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 21:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 21:15 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 21:21 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 21:21 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 21:30 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 21:34 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 21:18 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 21:13 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 21:09 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 21:26 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 21:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 21:10 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 21:16 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 21:13 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:20 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/758609604.shtml)
-- 2026-06-29 21:27 - [郑钦文谈再战西尼亚科娃](http://www.share.kurohicncr.top/Article/details/679019466973.shtml)
-- 2026-06-29 21:26 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/5697290253.shtml)
-- 2026-06-29 21:02 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/8304990193.shtml)
-- 2026-06-29 21:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/656667.shtml)
-- 2026-06-29 21:18 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/468451873997.shtml)
-- 2026-06-29 21:21 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/51243366783.shtml)
-- 2026-06-29 21:05 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/456010.shtml)
-- 2026-06-29 21:07 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/956827200.shtml)
-- 2026-06-29 21:22 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/849320929.shtml)
-- 2026-06-29 21:17 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/3499386.shtml)
-- 2026-06-29 21:09 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/524078.shtml)
-- 2026-06-29 21:02 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/792763.shtml)
-- 2026-06-29 21:12 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/6659472.shtml)
-- 2026-06-29 21:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/201476.shtml)
+- 2026-06-29 21:14 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/3275374.shtml)
+- 2026-06-29 21:12 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/370071837569.shtml)
+- 2026-06-29 21:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/776207265346.shtml)
+- 2026-06-29 21:33 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/676762.shtml)
+- 2026-06-29 21:14 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/388296580.shtml)
+- 2026-06-29 21:30 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/9848648699.shtml)
+- 2026-06-29 21:16 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/99764657.shtml)
+- 2026-06-29 21:08 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/92776.shtml)
+- 2026-06-29 21:34 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/42702341772.shtml)
+- 2026-06-29 21:27 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/620227509640.shtml)
+- 2026-06-29 21:06 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/33048448208.shtml)
+- 2026-06-29 21:21 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/773563598.shtml)
+- 2026-06-29 21:21 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/114956892908.shtml)
+- 2026-06-29 21:16 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/43077379492.shtml)
+- 2026-06-29 21:30 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/1308561873.shtml)

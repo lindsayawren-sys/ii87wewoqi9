@@ -1,60 +1,51 @@
-# 中国重汽午后涨近3% 4月重卡延续高景气增长
+# 浙江杭州：月季花墙引打卡热 传递绿色理念
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中国重汽（03808）午后涨近3%，截至发稿，股价上涨2.91%，现报37.46港元，成交额1.59亿港元。 国泰海通研报指出，1-4月国产重卡累计销量43.5万台，同比增长23%。该行认为，年后货运及工程需求持续高景气，带动销量同比高增，车企前期积极产销也支撑了1-4月累计销量同比大幅上行。 美银证券发布研报称，中国重汽2026年第一季对非洲及东南亚出口强劲增长。管理层表示，
+发布时间：2026年05月02日 18:35 来源：中国新闻网 “五一”假期期间，杭州市余杭区的月季花墙吸引了大量游人前来打卡拍照。该月季花墙长达200余米，10幅主题画面把月季花与少女墙绘巧妙融合，并融入龙井茶、良渚文化等杭州文化元素，成为颇具浪漫气息的街头文化空间。 该月季花墙去年曾在社交媒体走红。今年，当地在内容设计、画面层次等方面一步提升，以此传递绿色环保理念。(王逸飞
 
 ## 正文
 
-中国重汽（03808）午后涨近3%，截至发稿，股价上涨2.91%，现报37.46港元，成交额1.59亿港元。
+发布时间：2026年05月02日 18:35 来源：中国新闻网 “五一”假期期间，杭州市余杭区的月季花墙吸引了大量游人前来打卡拍照。
 
-国泰海通研报指出，1-4月国产重卡累计销量43.5万台，同比增长23%。
+该月季花墙长达200余米，10幅主题画面把月季花与少女墙绘巧妙融合，并融入龙井茶、良渚文化等杭州文化元素，成为颇具浪漫气息的街头文化空间。
 
-该行认为，年后货运及工程需求持续高景气，带动销量同比高增，车企前期积极产销也支撑了1-4月累计销量同比大幅上行。
+该月季花墙去年曾在社交媒体走红。
 
-美银证券发布研报称，中国重汽2026年第一季对非洲及东南亚出口强劲增长。
+今年，当地在内容设计、画面层次等方面一步提升，以此传递绿色环保理念。
 
-管理层表示，受非洲及东南亚矿业与基础建设需求强劲带动，2026年第一季出口量年增50%。
-
-本季度，对非洲、东南亚、中东、独立国家联合体及拉丁美洲的出口量分别占总出口量的45%、30%、10%、10%。
-
-4月至5月期间，东南亚及北非地区的柴油短缺问题对出口势头造成轻微影响。
-
-管理层维持全年出口量增长超过15%的指引。
+(王逸飞 庄蕙语 制作 吴君毅） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 21:28 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 21:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 21:23 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 21:20 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 21:26 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 21:17 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 21:11 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 21:25 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 21:16 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 21:01 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 21:03 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 21:20 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 21:01 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 21:09 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 21:29 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 21:09 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 21:30 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 21:14 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 21:13 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 21:10 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 21:20 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 21:34 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 21:16 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 21:34 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 21:23 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:19 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/025974.shtml)
-- 2026-06-29 21:29 - [美人鱼](https://www.blog.minike.top/Article/details/0564755805.shtml)
-- 2026-06-29 21:29 - [扬名立万](http://www.share.kurohicncr.top/Article/details/25991586.shtml)
-- 2026-06-29 21:07 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/80170814.shtml)
-- 2026-06-29 21:16 - [记者：预计热火将追求小哈达威和康利](https://www.share.minike.top/Article/details/39155747.shtml)
-- 2026-06-29 21:05 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/5867593.shtml)
-- 2026-06-29 21:21 - [李思潼：不会介意大家夸我运气好](http://www.blog.kurohicncr.top/Article/details/30655643.shtml)
-- 2026-06-29 21:26 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/1220596297.shtml)
-- 2026-06-29 21:17 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/8409141379.shtml)
-- 2026-06-29 21:09 - [新官上任三把火](http://www.blog.minike.top/Article/details/597203064477.shtml)
-- 2026-06-29 21:08 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/90096089480.shtml)
-- 2026-06-29 21:11 - [天气热脾气都变差了](https://www.blog.minike.top/Article/details/934311623098.shtml)
-- 2026-06-29 21:09 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/09794818.shtml)
-- 2026-06-29 21:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/20189307334.shtml)
-- 2026-06-29 21:19 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/113420026.shtml)
+- 2026-06-29 21:22 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/165802248037.shtml)
+- 2026-06-29 21:31 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/5864820.shtml)
+- 2026-06-29 21:32 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/04552462588.shtml)
+- 2026-06-29 21:08 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/96891.shtml)
+- 2026-06-29 21:30 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/290528.shtml)
+- 2026-06-29 21:25 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/47214.shtml)
+- 2026-06-29 21:08 - [RAY评乘风2026总决赛](https://www.blog.minike.top/Article/details/272269742093.shtml)
+- 2026-06-29 21:16 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/91008575.shtml)
+- 2026-06-29 21:06 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/1281837.shtml)
+- 2026-06-29 21:35 - [乌克兰发广告全球征兵](http://www.share.minike.top/Article/details/7573244090.shtml)
+- 2026-06-29 21:31 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/9143985771.shtml)
+- 2026-06-29 21:24 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/05067152.shtml)
+- 2026-06-29 21:34 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/082001.shtml)
+- 2026-06-29 21:30 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/4913415745.shtml)
+- 2026-06-29 21:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/14380815.shtml)

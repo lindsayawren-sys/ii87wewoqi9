@@ -1,44 +1,58 @@
-# 《中俄睦邻友好合作条约》延期
+# 阿贝尔：巴菲特卸任CEO并不意味着伯克希尔将全力押注AI
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-新华社快讯：5月20日，中俄两国元首一致同意《中俄睦邻友好合作条约》继续延期。
+专题：巴菲特2026年股东大会重磅来袭 今年初接替传奇投资者成为伯克希尔·哈撒韦公司 CEO 的格雷格·阿贝尔，在周六于奥马哈举行的公司股东大会上表示，他对盲目跟风同样持谨慎态度。 与会者在巴菲特家乡的 CHI 健康中心记者席上目睹了这一幕：阿贝尔向在场观众表示，伯克希尔不会全面押注 人工智能 。 他与特斯拉的埃隆·马斯克、OpenAI 的山姆·奥特曼以及 Meta 的马克·扎
 
 ## 正文
 
-新华社快讯：5月20日，中俄两国元首一致同意《中俄睦邻友好合作条约》继续延期。
+专题：巴菲特2026年股东大会重磅来袭 今年初接替传奇投资者成为伯克希尔·哈撒韦公司 CEO 的格雷格·阿贝尔，在周六于奥马哈举行的公司股东大会上表示，他对盲目跟风同样持谨慎态度。
+
+与会者在巴菲特家乡的 CHI 健康中心记者席上目睹了这一幕：阿贝尔向在场观众表示，伯克希尔不会全面押注 人工智能 。
+
+他与特斯拉的埃隆·马斯克、OpenAI 的山姆·奥特曼以及 Meta 的马克·扎克伯格等科技高管形成了鲜明对比，这些高管已承诺投入 数千亿美元以赢得人工智能竞赛。
+
+“我们不会为了 AI 而 AI，”阿贝尔表示，并补充说这项技术必须“对我们的业务有增益作用。
+
+” 伯克希尔的新掌门人表示，这家集团旗下的子公司将在能创造真正价值的领域谨慎运用 AI。
+
+媒体周五采访了喜诗糖果、冰雪皇后、布鲁克斯跑步和 Jazwares 的首席执行官。
+
+他们表示，各自公司正以不同程度拥抱 AI，但普遍对 AI 节省时间、提升员工效率的作用持积极态度。
+
+投资界对 AI 引发的巨大热潮存在分歧。
 
 ## 相关推荐
 
-- 2026-06-29 21:01 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 21:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 21:18 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 21:19 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 21:02 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 21:25 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 21:25 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 21:25 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 21:16 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 21:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 21:19 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 21:26 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 21:23 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 21:25 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 21:21 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 21:18 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 21:31 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 21:30 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 21:25 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 21:09 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 21:22 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 21:14 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 21:28 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 21:06 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:25 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/6362404.shtml)
-- 2026-06-29 21:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/25506.shtml)
-- 2026-06-29 21:11 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/2968911808.shtml)
-- 2026-06-29 21:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/21760623792.shtml)
-- 2026-06-29 21:00 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/6636827930.shtml)
-- 2026-06-29 21:18 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/7275104.shtml)
-- 2026-06-29 21:27 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/616794164.shtml)
-- 2026-06-29 21:21 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/512713605.shtml)
-- 2026-06-29 21:26 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/867876073016.shtml)
-- 2026-06-29 21:14 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/758518.shtml)
-- 2026-06-29 21:00 - [恋与深空致歉](https://www.share.minike.top/Article/details/16423.shtml)
-- 2026-06-29 21:15 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/7637920064.shtml)
-- 2026-06-29 21:03 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/97452194.shtml)
-- 2026-06-29 21:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/60739669543.shtml)
-- 2026-06-29 21:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/60085007331.shtml)
+- 2026-06-29 21:07 - [速度与激情9](https://www.share.minike.top/Article/details/698348285.shtml)
+- 2026-06-29 21:13 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/81126.shtml)
+- 2026-06-29 21:25 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/4757189593.shtml)
+- 2026-06-29 21:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/26828387476.shtml)
+- 2026-06-29 21:33 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/1335978.shtml)
+- 2026-06-29 21:06 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/70215188967.shtml)
+- 2026-06-29 21:09 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/07898625.shtml)
+- 2026-06-29 21:23 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/75884172.shtml)
+- 2026-06-29 21:19 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/04763920.shtml)
+- 2026-06-29 21:26 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/7617550334.shtml)
+- 2026-06-29 21:18 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/2288349.shtml)
+- 2026-06-29 21:23 - [记者乘坐无人驾驶汽车去采访](https://www.blog.kurohicncr.top/Article/details/12298389.shtml)
+- 2026-06-29 21:31 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/207596686.shtml)
+- 2026-06-29 21:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/6187388825.shtml)
+- 2026-06-29 21:33 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/986873134.shtml)

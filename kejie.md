@@ -1,61 +1,61 @@
-# 万斯称美伊谈判取得很大进展 但美方也准备了“B方案”
+# 李强在广西调研时强调 加快推进水网建设 全面提升综合效益 为经济社会发展提供基础支撑和重要保障
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中新网5月20日电 综合路透社、英国《卫报》报道，美国副总统万斯当地时间5月19日表示，美国与伊朗在谈判中取得了很大进展，双方都不希望看到军事行动重启。 “我们认为已经取得了很大进展。我们认为伊朗方面希望达成协议。”万斯在白宫简报会上对记者表示。 万斯透露，特朗普强调美国的核心立场是伊朗绝不能拥有核武器。美国希望伊朗能与美方合作，建立一套行之有效的机制，从而确保伊朗无法重建其核
+新华社南宁5月1日电(记者邹伟)中共中央政治局常委、国务院总理李强4月29日至5月1日在广西调研。他强调，要深入贯彻落实习近平总书记关于水网建设的重要论述和重要指示精神，坚持经济效益、社会效益、生态效益、安全效益相统一，加快构建国家水网主骨架，统筹规划建设各级水网工程，强化水资源综合利用，为经济社会发展提供基础支撑和重要保障。 在南宁市，李强先后来到郁江老口水利枢纽、江北中堤水
 
 ## 正文
 
-中新网5月20日电 综合路透社、英国《卫报》报道，美国副总统万斯当地时间5月19日表示，美国与伊朗在谈判中取得了很大进展，双方都不希望看到军事行动重启。
+新华社南宁5月1日电(记者邹伟)中共中央政治局常委、国务院总理李强4月29日至5月1日在广西调研。
 
-“我们认为已经取得了很大进展。
+他强调，要深入贯彻落实习近平总书记关于水网建设的重要论述和重要指示精神，坚持经济效益、社会效益、生态效益、安全效益相统一，加快构建国家水网主骨架，统筹规划建设各级水网工程，强化水资源综合利用，为经济社会发展提供基础支撑和重要保障。
 
-我们认为伊朗方面希望达成协议。
+在南宁市，李强先后来到郁江老口水利枢纽、江北中堤水毁段应急抢险工程，考察广西防洪工程体系和水利枢纽建设运行，察看邕江两岸综合整治工作，听取广西水网规划建设情况汇报。
 
-”万斯在白宫简报会上对记者表示。
+李强指出，水网建设是提高防洪减灾能力、优化水资源配置、保障国家水安全的战略举措，同时具有交通运输、生态环保、旅游景观等多方面功能。
 
-万斯透露，特朗普强调美国的核心立场是伊朗绝不能拥有核武器。
+要锚定“系统完备、安全可靠，集约高效、绿色智能，循环通畅、调控有序”的目标，加快推进水网建设，统筹存量和增量，加强互联互通，推进水利基础设施更新和数智化改造，着力提升网络效益。
 
-美国希望伊朗能与美方合作，建立一套行之有效的机制，从而确保伊朗无法重建其核能力，这也是此次谈判力求达成的最终目标。
+广西水系发达，要认真落实国家水网规划，实施好各级水网工程，积极探索形成更多好经验好做法。
 
-万斯重申，美国正在“本着诚意”进行谈判，并且认为达成协议是有可能的，但美方也准备了重启军事行动的“B方案”，持续采取军事手段推进美国既定目标。
+在钦州市，李强来到平陆运河马道枢纽，听取运河建设情况介绍，察看施工现场。
 
-“这不是总统想要的，我也不认为这是伊朗人想要的。
+李强指出，平陆运河是西部陆海新通道的骨干工程，对实现江海连通、陆海联动具有重要作用。
 
 ## 相关推荐
 
-- 2026-06-29 21:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 21:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 21:26 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 21:13 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 21:09 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 21:10 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 21:21 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 21:02 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 21:00 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 21:04 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 21:05 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 21:16 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 21:10 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 21:08 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 21:04 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 21:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 21:15 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 21:23 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 21:32 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 21:09 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 21:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 21:35 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 21:34 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 21:29 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 21:20 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 21:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 21:06 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 21:13 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 21:09 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 21:17 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:12 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/938101.shtml)
-- 2026-06-29 21:02 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/387926588259.shtml)
-- 2026-06-29 21:28 - [金刚川](https://www.share.minike.top/Article/details/814539120174.shtml)
-- 2026-06-29 21:03 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.kurohicncr.top/Article/details/022986661323.shtml)
-- 2026-06-29 21:01 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/70682164.shtml)
-- 2026-06-29 21:16 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/68791476.shtml)
-- 2026-06-29 21:05 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/56179804.shtml)
-- 2026-06-29 21:29 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/4356735651.shtml)
-- 2026-06-29 21:25 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/895803991147.shtml)
-- 2026-06-29 21:24 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/221602807808.shtml)
-- 2026-06-29 21:00 - [《新闻联播》正在直播](https://www.share.minike.top/Article/details/34305745.shtml)
-- 2026-06-29 21:16 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/585214052339.shtml)
-- 2026-06-29 21:07 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/9214279282.shtml)
-- 2026-06-29 21:16 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/611289362.shtml)
-- 2026-06-29 21:27 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/318723.shtml)
+- 2026-06-29 21:19 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/486703.shtml)
+- 2026-06-29 21:14 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/26547399.shtml)
+- 2026-06-29 21:07 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/82153.shtml)
+- 2026-06-29 21:35 - [记者：预计热火将追求小哈达威和康利](http://www.blog.kurohicncr.top/Article/details/786093576.shtml)
+- 2026-06-29 21:22 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/254221855.shtml)
+- 2026-06-29 21:25 - [C罗10球7球对垫底队](http://www.blog.minike.top/Article/details/60557349.shtml)
+- 2026-06-29 21:18 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/057924.shtml)
+- 2026-06-29 21:14 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/80796283216.shtml)
+- 2026-06-29 21:17 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/97589743.shtml)
+- 2026-06-29 21:30 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/422700313.shtml)
+- 2026-06-29 21:08 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/40255266.shtml)
+- 2026-06-29 21:08 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/0648315758.shtml)
+- 2026-06-29 21:17 - [教育部高校学生资助热线7月1日开通](https://www.blog.kurohicncr.top/Article/details/43130481.shtml)
+- 2026-06-29 21:31 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/6635326311.shtml)
+- 2026-06-29 21:29 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/024529.shtml)

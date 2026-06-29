@@ -1,59 +1,60 @@
-# 国台办回应台电花巨资改标识
+# AI成旅游新“搭子” 数智型出游走俏“五一”
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中新网5月20日电 5月20日，国台办举行例行新闻发布会。有记者问：据报道，台湾电力公司近日耗资近百万元新台币更换企业标识，替换已使用70多年、由著名书法家于右任题写的旧版标识。岛内舆论纷纷批评其在连年亏损、岛内电价上涨的情况下，砸钱搞“去中国化”，一边为绿营输送利益，一边丢掉文化底蕴。请问对此有何评论？国台办发言人朱凤莲表示，民进党当局的所作所为暴露其不顾民生，为割裂两岸历史
+中新网杭州5月3日电(郭其钰)“不用自己做攻略，不用排队等讲解器，还能和机器狗击掌，这趟旅行我的‘搭子’是AI。”5月3日，正在浙江杭州旅游的“00后”游客刘耀凯接受中新网采访时说。 从出发前定制旅游攻略，到游玩中沉浸式互动体验，今年“五一”假期，AI正悄然嵌入旅游全链条，一种以“数智”为特征的新型出游方式持续走热。 在杭州，打开城市级文旅智能体“杭小忆”，游客只需输入旅游需求
 
 ## 正文
 
-中新网5月20日电 5月20日，国台办举行例行新闻发布会。
+中新网杭州5月3日电(郭其钰)“不用自己做攻略，不用排队等讲解器，还能和机器狗击掌，这趟旅行我的‘搭子’是AI。
 
-有记者问：据报道，台湾电力公司近日耗资近百万元新台币更换企业标识，替换已使用70多年、由著名书法家于右任题写的旧版标识。
+”5月3日，正在浙江杭州旅游的“00后”游客刘耀凯接受中新网采访时说。
 
-岛内舆论纷纷批评其在连年亏损、岛内电价上涨的情况下，砸钱搞“去中国化”，一边为绿营输送利益，一边丢掉文化底蕴。
+从出发前定制旅游攻略，到游玩中沉浸式互动体验，今年“五一”假期，AI正悄然嵌入旅游全链条，一种以“数智”为特征的新型出游方式持续走热。
 
-请问对此有何评论？
+在杭州，打开城市级文旅智能体“杭小忆”，游客只需输入旅游需求，系统便可自动完成信息筛选与路线规划，生成图文并茂的定制攻略。
 
-国台办发言人朱凤莲表示，民进党当局的所作所为暴露其不顾民生，为割裂两岸历史文化联结无所不用其极，相关伎俩既无耻又无能。
+“我对‘杭小忆’说，我要带父母玩三天，喜欢喝茶，想了解历史文化，不想太累。
 
-民进党当局的这些小动作枉费心机，台湾同胞的中华民族认同、中华文化认同，任何人都抹灭不掉。
+几秒钟后，一份包含龙井村喝茶、良渚古城大空间VR沉浸体验等避开人流的路线就发到了我手机上。
 
-(中新网“燕新台”工作室)
+”刘耀凯形容，就像有个本地朋友在帮忙规划。
+
+如果说行前的AI攻略是“看不见的助手”，走进景区后，AI就成了“看得见的伙伴”。
 
 ## 相关推荐
 
-- 2026-06-29 21:05 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 21:07 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 21:06 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 21:24 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 21:03 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 21:19 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 21:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 21:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 21:04 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 21:24 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 21:26 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 21:13 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 21:10 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 21:25 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 21:28 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 21:35 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 21:12 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 21:35 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 21:19 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 21:10 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 21:19 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 21:16 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 21:12 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 21:26 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 21:15 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 21:23 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 21:10 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 21:20 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 21:29 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:24 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/109266235.shtml)
-- 2026-06-29 21:16 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/528223002.shtml)
-- 2026-06-29 21:13 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/170759.shtml)
-- 2026-06-29 21:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/30838316.shtml)
-- 2026-06-29 21:10 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/7457923616.shtml)
-- 2026-06-29 21:11 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/32699339.shtml)
-- 2026-06-29 21:29 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/466959413.shtml)
-- 2026-06-29 21:27 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/093694366.shtml)
-- 2026-06-29 21:26 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/108926717.shtml)
-- 2026-06-29 21:29 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/99974378924.shtml)
-- 2026-06-29 21:01 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/643245.shtml)
-- 2026-06-29 21:03 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/33220336205.shtml)
-- 2026-06-29 21:11 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/87472.shtml)
-- 2026-06-29 21:22 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/3077972.shtml)
-- 2026-06-29 21:08 - [千与千寻](http://www.blog.minike.top/Article/details/14269.shtml)
+- 2026-06-29 21:33 - [宜宾地震已转移安置225人](https://www.share.minike.top/Article/details/8896926127.shtml)
+- 2026-06-29 21:24 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/6537013090.shtml)
+- 2026-06-29 21:33 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/6666343.shtml)
+- 2026-06-29 21:30 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/245683028.shtml)
+- 2026-06-29 21:30 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/14377817.shtml)
+- 2026-06-29 21:33 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/78755481.shtml)
+- 2026-06-29 21:08 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/806344.shtml)
+- 2026-06-29 21:26 - [恋与深空客服的回应](https://www.blog.minike.top/Article/details/0844393.shtml)
+- 2026-06-29 21:23 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/065486.shtml)
+- 2026-06-29 21:15 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/609328834447.shtml)
+- 2026-06-29 21:07 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/57396815606.shtml)
+- 2026-06-29 21:06 - [18岁高二体育生训练晕倒后离世](https://www.blog.kurohicncr.top/Article/details/1710576168.shtml)
+- 2026-06-29 21:27 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/62408636640.shtml)
+- 2026-06-29 21:35 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/98241550927.shtml)
+- 2026-06-29 21:15 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/8798330624.shtml)

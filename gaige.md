@@ -1,61 +1,50 @@
-# 纽约汇市：美元兑G-10货币走强 美国国债收益率继续大涨
+# 中泰证券：财富管理赛道持续发力 招商银行维持“增持”评级
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-美元指数升至六周高点，因交易员对通胀上升的担忧推动期限最长的美国国债收益率升至2007年以来最高。 美元指数上涨0.5%，触及4月8日以来最强盘中水平，随后涨幅收窄。 美国国债全线下跌；稍早，30年期美国国债收益率上涨7个基点，至5.19%，为2007年7月以来最高。 特朗普表示，在沙特阿拉伯和其他波斯湾盟友希望有更多时间寻求外交解决方案后，他取消了原定周二对伊朗发动的新一轮轰
+中泰证券发布研报称，招商银行（03968）在零售和财富管理赛道，逐渐积累起来“商业模式的护城河”；在于长期形成的内部市场化、外部客户导向的“企业文化”（在银行业内里是稀缺的）；在于一大批务实勤奋、专业和进取正派的中高层和业务骨干形成的“团队人员”。这些底层价值并未发生变化，仍是行业中稀缺优秀的银行，值得长期持有。公司2026E、2027E、2028E PB 0.82X/0.74
 
 ## 正文
 
-美元指数升至六周高点，因交易员对通胀上升的担忧推动期限最长的美国国债收益率升至2007年以来最高。
+中泰证券发布研报称，招商银行（03968）在零售和财富管理赛道，逐渐积累起来“商业模式的护城河”；在于长期形成的内部市场化、外部客户导向的“企业文化”（在银行业内里是稀缺的）；在于一大批务实勤奋、专业和进取正派的中高层和业务骨干形成的“团队人员”。
 
-美元指数上涨0.5%，触及4月8日以来最强盘中水平，随后涨幅收窄。
+这些底层价值并未发生变化，仍是行业中稀缺优秀的银行，值得长期持有。
 
-美国国债全线下跌；稍早，30年期美国国债收益率上涨7个基点，至5.19%，为2007年7月以来最高。
+公司2026E、2027E、2028E PB 0.82X/0.74X/0.68X；PE 6.25X/6.10X/5.95X。
 
-特朗普表示，在沙特阿拉伯和其他波斯湾盟友希望有更多时间寻求外交解决方案后，他取消了原定周二对伊朗发动的新一轮轰炸。
+维持“增持”评级。
 
-花旗集团称，随着通胀担忧影响市场，债券交易员正把5.5%视为30年期美国国债收益率新的“整数关口”。
-
-美元/日元上涨0.3%，至159.25，创4月30日以来最强，随后涨幅收窄。
-
-该货币对一度短暂下跌，因美国财政部长斯科特·贝森特在巴黎举行的七国集团财长会议上表示，日本汇率过度波动不可取。
-
-日元走弱和干预风险再度上升，正推动美元/日元期权对尾部风险敞口的需求，尽管隐含波动率接近周期低点。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:08 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 21:00 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 21:07 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 21:21 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 21:12 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 21:07 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 21:16 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 21:19 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 21:06 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 21:02 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 21:20 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 21:25 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 21:11 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 21:18 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 21:07 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 21:32 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 21:16 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 21:18 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 21:27 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 21:26 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 21:34 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 21:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 21:13 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 21:16 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 21:25 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:22 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/3156153.shtml)
-- 2026-06-29 21:25 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/7799718168.shtml)
-- 2026-06-29 21:06 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/4829104.shtml)
-- 2026-06-29 21:20 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/832725.shtml)
-- 2026-06-29 21:15 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/6217416.shtml)
-- 2026-06-29 21:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/975546.shtml)
-- 2026-06-29 21:02 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/6480369.shtml)
-- 2026-06-29 21:05 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/5024566.shtml)
-- 2026-06-29 21:14 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/911612700046.shtml)
-- 2026-06-29 21:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/870354495.shtml)
-- 2026-06-29 21:21 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/6257842877.shtml)
-- 2026-06-29 21:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/43119459571.shtml)
-- 2026-06-29 21:26 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/876306.shtml)
-- 2026-06-29 21:17 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/410380242.shtml)
-- 2026-06-29 21:01 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/11922.shtml)
+- 2026-06-29 21:35 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/066428256412.shtml)
+- 2026-06-29 21:28 - [毒液2](http://www.blog.kurohicncr.top/Article/details/8508601929.shtml)
+- 2026-06-29 21:17 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/439046788.shtml)
+- 2026-06-29 21:25 - [起风了](https://www.share.minike.top/Article/details/5530047.shtml)
+- 2026-06-29 21:09 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/8470979.shtml)
+- 2026-06-29 21:11 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/930875.shtml)
+- 2026-06-29 21:26 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/755058768.shtml)
+- 2026-06-29 21:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/442706.shtml)
+- 2026-06-29 21:28 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/9972730.shtml)
+- 2026-06-29 21:32 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/87465.shtml)
+- 2026-06-29 21:21 - [2026全国田径冠军赛江苏队4金收官](https://www.share.minike.top/Article/details/609626622.shtml)
+- 2026-06-29 21:35 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/782236810816.shtml)
+- 2026-06-29 21:18 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/83594.shtml)
+- 2026-06-29 21:12 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/43139726706.shtml)
+- 2026-06-29 21:11 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/1879014263.shtml)

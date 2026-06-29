@@ -1,58 +1,55 @@
-# 太疯狂！未成年开户，激增10倍！韩国股市，彻底引爆！
+# 阿贝尔：超大规模企业必须"承担其使用的全部能源成本"
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！全球“最牛股市”上演疯狂一幕。 在股市狂飙的背景下，韩国“全民炒股”热情彻底引爆。Toss Securities汇编的数据显示，2026年第一季度，韩国18岁以下人群的新开户数量较去年同期大幅增长近10倍。另据韩国金融投资协会数据，截至5月中旬，韩国股市保证金余额已达到创纪录的36.3万亿韩元。 值得注意的
+专题：巴菲特2026年股东大会重磅来袭 伯克希尔 CEO 格雷格·阿贝尔表示，将数据中心的能源使用成本与电网消费者分离，并确保这些成本由需要电力的企业承担，这一点至关重要。 “超大规模企业、数据中心和能源用户——他们必须承担全部成本，”他说道。 人工智能热潮中，数据中心对区域电网造成的压力已成为许多环保和消费者权益倡导团体关注的焦点。 政策研究机构环境与能源研究所2月的一份分析
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：巴菲特2026年股东大会重磅来袭 伯克希尔 CEO 格雷格·阿贝尔表示，将数据中心的能源使用成本与电网消费者分离，并确保这些成本由需要电力的企业承担，这一点至关重要。
 
-全球“最牛股市”上演疯狂一幕。
+“超大规模企业、数据中心和能源用户——他们必须承担全部成本，”他说道。
 
-在股市狂飙的背景下，韩国“全民炒股”热情彻底引爆。
+人工智能热潮中，数据中心对区域电网造成的压力已成为许多环保和消费者权益倡导团体关注的焦点。
 
-Toss Securities汇编的数据显示，2026年第一季度，韩国18岁以下人群的新开户数量较去年同期大幅增长近10倍。
+政策研究机构环境与能源研究所2月的一份分析报告指出：“随着数据中心在全国范围内扩张，公用事业公司收到了数百吉瓦的并网申请，这需要大规模的基础设施投资。
 
-另据韩国金融投资协会数据，截至5月中旬，韩国股市保证金余额已达到创纪录的36.3万亿韩元。
+许多家庭的电费账单飙升，加剧了可负担性危机。
 
-值得注意的是，韩国股市波动正在加剧，5月19日，韩国基准股指KOSPI指数一度大跌近5%，最终收跌3.25%，但年内累计涨幅仍超72%，领涨全球主要股指。
-
-其中，两大芯片巨头三星电子、SK海力士双双下挫，截至19日收盘，跌幅分别为1.96%、5.16%。
-
-韩国掀起“全民炒股”热潮 据彭博社最新报道，韩国民众正以前所未有的规模入市，Toss Securities汇编的数据显示，第一季度韩国18岁以下人群的新开户数量较去年同期大幅增长近10倍。
+”责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 21:10 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 21:06 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 21:09 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 21:15 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 21:16 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 21:20 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 21:28 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 21:14 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 21:29 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 21:09 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 21:12 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 21:06 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 21:22 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 21:15 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 21:28 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 21:16 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 21:15 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 21:17 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 21:06 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 21:09 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 21:20 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 21:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 21:28 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 21:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 21:22 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:11 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/61484.shtml)
-- 2026-06-29 21:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/573990004.shtml)
-- 2026-06-29 21:10 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/72969.shtml)
-- 2026-06-29 21:28 - [《新闻联播》正在直播](http://www.share.kurohicncr.top/Article/details/522131359.shtml)
-- 2026-06-29 21:19 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/51349005865.shtml)
-- 2026-06-29 21:06 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/35263678.shtml)
-- 2026-06-29 21:04 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/872587.shtml)
-- 2026-06-29 21:12 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.minike.top/Article/details/94391.shtml)
-- 2026-06-29 21:29 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.minike.top/Article/details/1651274.shtml)
-- 2026-06-29 21:03 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/27494948396.shtml)
-- 2026-06-29 21:06 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/515964280800.shtml)
-- 2026-06-29 21:21 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/0019217849.shtml)
-- 2026-06-29 21:11 - [网约车出事故平台拒赔称只是中介](https://www.blog.minike.top/Article/details/461559230575.shtml)
-- 2026-06-29 21:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/524810914579.shtml)
-- 2026-06-29 21:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/25253020.shtml)
+- 2026-06-29 21:31 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.minike.top/Article/details/96730503022.shtml)
+- 2026-06-29 21:16 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/51225706615.shtml)
+- 2026-06-29 21:26 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/8557507.shtml)
+- 2026-06-29 21:26 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/7505349560.shtml)
+- 2026-06-29 21:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/51858534.shtml)
+- 2026-06-29 21:15 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/374185057004.shtml)
+- 2026-06-29 21:32 - [欧洲缘何成为变暖最快的大洲](http://www.share.kurohicncr.top/Article/details/59335767.shtml)
+- 2026-06-29 21:29 - [记者暗访养老机构消防安全](http://www.blog.minike.top/Article/details/93143027237.shtml)
+- 2026-06-29 21:18 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/6553247245.shtml)
+- 2026-06-29 21:20 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/14955687733.shtml)
+- 2026-06-29 21:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/714849.shtml)
+- 2026-06-29 21:09 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/1349456270.shtml)
+- 2026-06-29 21:15 - [日防卫省正考虑引进美企人工智能系统](https://www.share.minike.top/Article/details/5352270.shtml)
+- 2026-06-29 21:23 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/4136445.shtml)
+- 2026-06-29 21:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/062356541536.shtml)

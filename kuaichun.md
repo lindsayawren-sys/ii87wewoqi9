@@ -1,57 +1,55 @@
-# 护腰靠垫是“神器”还是“智商税”？医生提醒
+# 德国财长：欧盟不希望与美国的关税争端升温
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-护腰靠垫是“神器”还是“智商税” 医生提醒：急性期能用，长期用反而让肌肉变“懒惰” 长时间坐在办公桌前，腰酸背痛成了许多人的“标配”。于是，从几十元到上千元不等的护腰靠垫悄然走红，号称能矫正坐姿、缓解腰痛。然而这些靠垫真的能“护腰”吗？还是仅仅是一种心理安慰？ 扬子晚报/紫牛新闻记者 吕彦霖记者探访 护腰靠垫种类繁多，甚至有的上千元 记者走访多家商超和线上平台发现，市面上的护腰
+德国财政部长拉斯·克林贝尔在布鲁塞尔表示，欧盟不希望围绕贸易问题与美国的紧张关系升温。 美国总统特朗普周五威胁要将从欧盟进口的汽车关税从15%提高到25%，称欧盟没有遵守其在2025年与美国达成的贸易协议。 克林贝尔表示，欧洲官员希望与美国走共同的道路，并且关税会损害双方的公司和就业。 但他表示，万一局势升温，欧盟也做好了准备。“欧洲正在信守其承诺，我也期待美方能做到同样的事情
 
 ## 正文
 
-护腰靠垫是“神器”还是“智商税” 医生提醒：急性期能用，长期用反而让肌肉变“懒惰” 长时间坐在办公桌前，腰酸背痛成了许多人的“标配”。
+德国财政部长拉斯·克林贝尔在布鲁塞尔表示，欧盟不希望围绕贸易问题与美国的紧张关系升温。
 
-于是，从几十元到上千元不等的护腰靠垫悄然走红，号称能矫正坐姿、缓解腰痛。
+美国总统特朗普周五威胁要将从欧盟进口的汽车关税从15%提高到25%，称欧盟没有遵守其在2025年与美国达成的贸易协议。
 
-然而这些靠垫真的能“护腰”吗？
+克林贝尔表示，欧洲官员希望与美国走共同的道路，并且关税会损害双方的公司和就业。
 
-还是仅仅是一种心理安慰？
+但他表示，万一局势升温，欧盟也做好了准备。
 
-扬子晚报/紫牛新闻记者 吕彦霖记者探访 护腰靠垫种类繁多，甚至有的上千元 记者走访多家商超和线上平台发现，市面上的护腰靠垫价格从三四十元到近两千元不等，材质从普通海绵到记忆棉、充气气囊、人体工学硬支撑板，五花八门。
+“欧洲正在信守其承诺，我也期待美方能做到同样的事情”。
 
-不少产品打出“人体工学设计”“骨科医生推荐”“久坐不累”等宣传语，有的还号称能“矫正脊柱弯曲”“改善腰椎间盘突出”。
-
-而坐着的感受则因人而异，有人觉得软硬适中很舒服，有人则抱怨“硌得慌”“越坐越累”。
-
-一些“护腰靠垫”还有不同型号。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 21:20 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 21:16 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 21:27 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 21:00 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 21:29 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 21:03 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 21:08 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 21:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 21:03 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 21:17 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 21:17 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 21:25 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 21:14 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 21:34 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 21:32 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 21:20 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 21:15 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 21:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 21:25 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 21:24 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 21:27 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 21:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 21:26 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 21:27 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:29 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/566627686131.shtml)
-- 2026-06-29 21:04 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/907377127262.shtml)
-- 2026-06-29 21:18 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/320971907.shtml)
-- 2026-06-29 21:03 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/83468.shtml)
-- 2026-06-29 21:26 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.minike.top/Article/details/245105.shtml)
-- 2026-06-29 21:05 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/564320823826.shtml)
-- 2026-06-29 21:01 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/2719099909.shtml)
-- 2026-06-29 21:01 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/876153649413.shtml)
-- 2026-06-29 21:05 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/0874247.shtml)
-- 2026-06-29 21:17 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/5422426.shtml)
-- 2026-06-29 21:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/24027741.shtml)
-- 2026-06-29 21:11 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/663886277.shtml)
-- 2026-06-29 21:14 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/64826149.shtml)
-- 2026-06-29 21:28 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/88538.shtml)
-- 2026-06-29 21:19 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/5606476.shtml)
+- 2026-06-29 21:28 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/08337919.shtml)
+- 2026-06-29 21:24 - [勇敢的心第二部](http://www.share.minike.top/Article/details/08350935.shtml)
+- 2026-06-29 21:34 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/2140101182.shtml)
+- 2026-06-29 21:36 - [TOP Prada](https://www.blog.minike.top/Article/details/909428.shtml)
+- 2026-06-29 21:11 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/318143182152.shtml)
+- 2026-06-29 21:07 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/465783775952.shtml)
+- 2026-06-29 21:06 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/065761082458.shtml)
+- 2026-06-29 21:06 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/89957324738.shtml)
+- 2026-06-29 21:28 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/07205711.shtml)
+- 2026-06-29 21:34 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/6661214910.shtml)
+- 2026-06-29 21:09 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/01203658.shtml)
+- 2026-06-29 21:22 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/030201301144.shtml)
+- 2026-06-29 21:08 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/56106439.shtml)
+- 2026-06-29 21:07 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/6639434.shtml)
+- 2026-06-29 21:13 - [网红小徐直播时突遇地震](http://www.blog.kurohicncr.top/Article/details/75555.shtml)

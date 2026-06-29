@@ -1,56 +1,59 @@
-# 苏姿丰谈AI：在科技行业工作超30年，没有比今天更“兴奋”的时刻了
+# 从“我看过”到“我学过” 知识型体验成假期出游“标配”
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新浪科技讯 5月19日下午消息，今日举办的AMD AI开发者日活动上，AMD董事长兼首席执行官苏姿丰在谈及人工智能的发展时指出，AI的进步令人难以置信，预计未来五年，将有50亿人每日使用AI，而支撑如此海量活跃AI用户出现的最大关键，是拥有合适的应用。 在苏姿丰看来，不存在某一种单一的应用、工作流，能够满足
+中新网济南5月2日电(记者 赵晓)当春假与“五一”假期相连，中国多地拼出8天“超长假”。年轻游客和亲子家庭作为出游主力，渐别“特种兵式”打卡观光，转而追求慢节奏、有内涵的“游有所学”“游有所获”。一种慢充式的知识型体验成为假期“标配”。 手持马克笔喷枪，在纸上层层叠叠喷绘“釉色”，模拟出瓷器窑变的韵致。这个假期，游客王曾带着8岁女儿在山东美术馆体验了一场趣味手工。“孩子放假后，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网济南5月2日电(记者 赵晓)当春假与“五一”假期相连，中国多地拼出8天“超长假”。
 
-新浪科技讯 5月19日下午消息，今日举办的AMD AI开发者日活动上，AMD董事长兼首席执行官苏姿丰在谈及人工智能的发展时指出，AI的进步令人难以置信，预计未来五年，将有50亿人每日使用AI，而支撑如此海量活跃AI用户出现的最大关键，是拥有合适的应用。
+年轻游客和亲子家庭作为出游主力，渐别“特种兵式”打卡观光，转而追求慢节奏、有内涵的“游有所学”“游有所获”。
 
-在苏姿丰看来，不存在某一种单一的应用、工作流，能够满足这种需求，我们需要各种各样的模型、工作流，以便于我们利用AI来彻底改变生活、商业中交互的方方面面。
+一种慢充式的知识型体验成为假期“标配”。
 
-“我在科技行业已经工作了超过30年，但从来没有比今天更令人兴奋的时刻了，正在发生的事情确实非常精彩。
+手持马克笔喷枪，在纸上层层叠叠喷绘“釉色”，模拟出瓷器窑变的韵致。
 
-”苏姿丰坦言。
+这个假期，游客王曾带着8岁女儿在山东美术馆体验了一场趣味手工。
 
-苏姿丰看来，就在最近几个月，AI得到了巨大加速，我们不仅看到大语言模型的发展，推理型AI的发展也变得更加普遍，企业们真正的在讨论如何利用AI。
+“孩子放假后，我喜欢带她泡在美术馆、博物馆，多看多学，潜移默化地培养她的审美能力。
 
-“我可以告诉你，每个国家的每一位CEO，无论是大型企业、中型企业还是小型企业，每个人都在谈论如何利用AI更有效地影响他们的业务。
+” 山东美术馆公共教育部主任孙靖东介绍，“五一”假期，该馆结合正在举办的第四届当代陶瓷艺术展览，推出10场手工坊活动，面向全年龄段人群开放。
 
-”苏姿丰直言。
+“以前这类课程仅限儿童参与，后来发现很多家长比孩子还爱学，我们便放宽门槛，让感兴趣的观众都能体验一把。
 
 ## 相关推荐
 
-- 2026-06-29 21:18 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 21:27 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 21:24 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 21:08 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 21:11 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 21:21 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 21:07 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 21:20 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 21:00 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 21:07 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 21:13 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 21:18 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 21:27 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 21:30 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 21:20 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 21:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 21:22 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 21:16 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 21:06 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 21:11 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 21:19 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 21:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 21:17 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:29 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/8246293.shtml)
-- 2026-06-29 21:19 - [金牌调解](https://www.blog.minike.top/Article/details/030832553794.shtml)
-- 2026-06-29 21:12 - [《贺子珍》](https://www.blog.minike.top/Article/details/1653351503.shtml)
-- 2026-06-29 21:03 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/7747584041.shtml)
-- 2026-06-29 21:00 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/156031114.shtml)
-- 2026-06-29 21:11 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/837454815.shtml)
-- 2026-06-29 21:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/456147693.shtml)
-- 2026-06-29 21:14 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/200283728.shtml)
-- 2026-06-29 21:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/193228511644.shtml)
-- 2026-06-29 21:16 - [流金岁月](https://www.blog.minike.top/Article/details/852181785108.shtml)
-- 2026-06-29 21:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/340275577.shtml)
-- 2026-06-29 21:19 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/37365282889.shtml)
-- 2026-06-29 21:11 - [青春环游记第三季](https://www.blog.minike.top/Article/details/863852288.shtml)
-- 2026-06-29 21:20 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/1718566.shtml)
-- 2026-06-29 21:12 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/00219.shtml)
+- 2026-06-29 21:10 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/99491346.shtml)
+- 2026-06-29 21:07 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/19018.shtml)
+- 2026-06-29 21:09 - [高质量发展看新疆](http://www.blog.kurohicncr.top/Article/details/60247834049.shtml)
+- 2026-06-29 21:09 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/9808309306.shtml)
+- 2026-06-29 21:22 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/12120474.shtml)
+- 2026-06-29 21:22 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/7564156.shtml)
+- 2026-06-29 21:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/64512.shtml)
+- 2026-06-29 21:24 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/5384382.shtml)
+- 2026-06-29 21:22 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/1820586429.shtml)
+- 2026-06-29 21:25 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/75543036.shtml)
+- 2026-06-29 21:11 - [法拉利车主已自行承担修理费近3万](http://www.share.minike.top/Article/details/285761412534.shtml)
+- 2026-06-29 21:19 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/994629218.shtml)
+- 2026-06-29 21:31 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/4327113363.shtml)
+- 2026-06-29 21:19 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/55273281.shtml)
+- 2026-06-29 21:34 - [宜宾地震已转移安置225人](http://www.blog.kurohicncr.top/Article/details/453183244.shtml)

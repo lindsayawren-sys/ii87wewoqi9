@@ -1,54 +1,56 @@
-# 文脉华章｜跟着总书记的文博足迹，打卡中华文明瑰宝
+# 每周债市看点|中冶置业去年亏损264.18亿元，阳光城已到期未支付债务本金合计659.25亿元
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-“中华民族历史悠久，中华文明源远流长，中华文化博大精深，一个博物馆就是一所大学校。”党的十八大以来，习近平总书记高度重视博物馆工作，在各地考察调研时多次走进博物馆，观看展陈文物、寻访中华文脉，对我国博物馆建设、文物保护修复、考古研究工作、文化遗产传承等提出一系列重要要求。 博物馆有很多宝贵文物甚至“国宝”，它们实证了我国百万年的人类史、一万年的文化史、五千多年的文明史。5月18
+中冶置业：2025年亏损264.18亿元，控股股东通过协议免除316亿元债务 中冶置业集团有限公司（以下简称“中冶置业”）公告，2025年公司合并报表净利润为-264.18亿元，净资产为-172.95亿元，主要因地产行业下行导致项目负毛利及减值计提。控股股东五矿地产集团有限公司于2026年3月31日通过协议免除发行人316亿元债务并转增资本公积，完成后发行人净资产转正至140.
 
 ## 正文
 
-“中华民族历史悠久，中华文明源远流长，中华文化博大精深，一个博物馆就是一所大学校。
+中冶置业：2025年亏损264.18亿元，控股股东通过协议免除316亿元债务 中冶置业集团有限公司（以下简称“中冶置业”）公告，2025年公司合并报表净利润为-264.18亿元，净资产为-172.95亿元，主要因地产行业下行导致项目负毛利及减值计提。
 
-”党的十八大以来，习近平总书记高度重视博物馆工作，在各地考察调研时多次走进博物馆，观看展陈文物、寻访中华文脉，对我国博物馆建设、文物保护修复、考古研究工作、文化遗产传承等提出一系列重要要求。
+控股股东五矿地产集团有限公司于2026年3月31日通过协议免除发行人316亿元债务并转增资本公积，完成后发行人净资产转正至140.44亿元，生产经营与偿债能力未受重大不利影响。
 
-博物馆有很多宝贵文物甚至“国宝”，它们实证了我国百万年的人类史、一万年的文化史、五千多年的文明史。
+据2026年4月29日公开数据显示，中冶置业集团有限公司2025年归属母公司净利润连续亏损，2025年度亏损259.96亿元，2024年度亏损45.29亿元。
 
-5月18日是国际博物馆日，让我们跟随总书记的文博足迹，打卡博物馆里的中华文明瑰宝。
+截至最新，中冶置业有2只存续债券，规模33.45亿元。
 
-统筹：李琳 杨格 策划：陈海敏 设计：陈伟红 校对：陈学德
+红塔国资：涉及4533.862万元重大诉讼并进入执行程序 玉溪市红塔区国有资产经营有限责任公司（以下简称“红塔国资”）发布公告称，因与福建省联标国际发展有限公司买卖合同纠纷案，公司及相关方被判退还货款及支付违约金等，涉及金额4533.862万元。
+
+案件已进入强制执行阶段，部分银行账户及资产被冻结、查封。
+
+公司2025年中报实现营业总收入0.63亿元，较上年同期下降39.28%；实现归母净利润0.03亿元，较上年同期下降60.79%；期末总资产138.06亿元，较上年同期下降8.41%；总负债101.79亿元，较上年同期增长0.18%，资产负债率达73.73%。
+
+阳光城集团：已到期未支付的债务本金合计金额659.25亿元 阳光城集团股份有限公司发布公告称，公司已到期未支付的债务本金合计金额659.25亿元，其中境外公开市场债券未按期支付本金累计22.44亿美元，境内公开市场债券未按期支付本金累计164.63亿元。
 
 ## 相关推荐
 
-- 2026-06-29 21:26 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 21:01 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 21:05 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 21:13 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 21:04 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 21:27 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 21:21 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 21:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 21:23 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 21:02 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 21:16 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 21:24 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 21:19 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 21:19 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 21:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 21:28 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 21:35 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 21:21 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 21:33 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 21:20 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 21:26 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 21:13 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 21:20 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 21:11 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:16 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/4329787.shtml)
-- 2026-06-29 21:18 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/1590292583.shtml)
-- 2026-06-29 21:18 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/98339950.shtml)
-- 2026-06-29 21:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/195665111.shtml)
-- 2026-06-29 21:29 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/69791744.shtml)
-- 2026-06-29 21:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/58219.shtml)
-- 2026-06-29 21:17 - [85花告别古偶](http://www.blog.minike.top/Article/details/579365487089.shtml)
-- 2026-06-29 21:03 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/5626622168.shtml)
-- 2026-06-29 21:05 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/13367750.shtml)
-- 2026-06-29 21:16 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/06319405018.shtml)
-- 2026-06-29 21:28 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/85516866941.shtml)
-- 2026-06-29 21:14 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/155490.shtml)
-- 2026-06-29 21:24 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/962931300.shtml)
-- 2026-06-29 21:02 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/509134567233.shtml)
-- 2026-06-29 21:12 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/456223.shtml)
+- 2026-06-29 21:27 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/1081142.shtml)
+- 2026-06-29 21:28 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/578222612245.shtml)
+- 2026-06-29 21:35 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/56845787.shtml)
+- 2026-06-29 21:11 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/7158922207.shtml)
+- 2026-06-29 21:27 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/967889930.shtml)
+- 2026-06-29 21:10 - [日美楼市危机复盘：见底顺序曝光](http://www.share.kurohicncr.top/Article/details/2308232502.shtml)
+- 2026-06-29 21:10 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/8676555.shtml)
+- 2026-06-29 21:21 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/04795.shtml)
+- 2026-06-29 21:07 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/0025307989.shtml)
+- 2026-06-29 21:06 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/97320661.shtml)
+- 2026-06-29 21:13 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/8478864.shtml)
+- 2026-06-29 21:30 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/139164.shtml)
+- 2026-06-29 21:25 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/079129.shtml)
+- 2026-06-29 21:06 - [记者：预计热火将追求小哈达威和康利](https://www.blog.kurohicncr.top/Article/details/797873.shtml)
+- 2026-06-29 21:13 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/412707189.shtml)

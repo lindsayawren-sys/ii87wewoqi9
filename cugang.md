@@ -1,60 +1,57 @@
-# 从3.3%到2.8%：英国通胀降了，但“真正的考验”还没来
+# 小鹏集团-W4月交付新车31011辆 环比增长13%
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——英国国家统计局周三（5月20日）公布的初步数据显示，英国4月通胀率降至2.8%。 经济学家此前预计通胀率将从3月的3.3%回落至3%，这主要得益于英国能源监管机构Ofgem于4月1日引入的能源价格上限。然而，随着伊朗战争对能源成本的推升效应逐步显现，消费者价格预计将继续上涨。 数据公布后，英镑兑美元短暂下跌，随后基本收复失地。核心通胀和服务业通胀的放缓幅度也
+小鹏集团-W（09868）发布公告，2026年4月，小鹏集团共交付新车31011辆，较上月增长13%。 此外，继第二代视觉语言动作模型（VLA 2.0）于2026年3月正式发布后，截至2026年4月底，小鹏集团门店的试驾满意度取得显著提升。消费者试驾后作出订购决定的平均用时亦按月缩短44.7%，进一步印证智能驾驶成为带动销售增长的核心动力。 2026年4月15日，本公司发布小鹏
 
 ## 正文
 
-汇通财经APP讯——英国国家统计局周三（5月20日）公布的初步数据显示，英国4月通胀率降至2.8%。
+小鹏集团-W（09868）发布公告，2026年4月，小鹏集团共交付新车31011辆，较上月增长13%。
 
-经济学家此前预计通胀率将从3月的3.3%回落至3%，这主要得益于英国能源监管机构Ofgem于4月1日引入的能源价格上限。
+此外，继第二代视觉语言动作模型（VLA 2.0）于2026年3月正式发布后，截至2026年4月底，小鹏集团门店的试驾满意度取得显著提升。
 
-然而，随着伊朗战争对能源成本的推升效应逐步显现，消费者价格预计将继续上涨。
+消费者试驾后作出订购决定的平均用时亦按月缩短44.7%，进一步印证智能驾驶成为带动销售增长的核心动力。
 
-数据公布后，英镑兑美元短暂下跌，随后基本收复失地。
+2026年4月15日，本公司发布小鹏GX，标志着搭载其最先进的跨域技术的首款全尺寸旗舰SUV正式登场。
 
-核心通胀和服务业通胀的放缓幅度也超出预期，但制造商面临的成本压力涨幅却高于媒体预测。
+2026年4月7日，小鹏集团与欧洲生产合作伙伴麦格纳，在位于奥地利格拉茨的麦格纳工厂见证首批本地生产P7+下线。
 
-与此同时，4月消费者汽车燃料价格大幅上涨。
+P7+是继G6与G9之后第三款在奥地利实现本地化生产的车型，标志着小鹏集团通过合作关系进一步夯实欧洲生产布局。
 
-通胀放缓原因：能源价格上限与部分费用涨幅收窄 英国国家统计局首席经济学家格兰特·菲茨纳评论称：“年度通胀率显著下降，主要得益于电力和天然气价格走低。
-
-这是由于政府能源账单支持计划降低了可变和固定电价，以及中东冲突前全球批发能源价格下跌共同推动了Ofgem价格上限的下调。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:06 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 21:19 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 21:04 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 21:13 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 21:14 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 21:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 21:04 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 21:18 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 21:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 21:18 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 21:07 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 21:25 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 21:05 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 21:08 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 21:22 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 21:25 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-29 21:26 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 21:24 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 21:27 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 21:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 21:22 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 21:14 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 21:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 21:24 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 21:12 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 21:22 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 21:28 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/128920985122.shtml)
-- 2026-06-29 21:14 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/902063.shtml)
-- 2026-06-29 21:02 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/659840586393.shtml)
-- 2026-06-29 21:23 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/0416330.shtml)
-- 2026-06-29 21:28 - [返利科技盘中上演“天地板”](http://www.blog.minike.top/Article/details/477527.shtml)
-- 2026-06-29 21:12 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/9768714.shtml)
-- 2026-06-29 21:13 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/937438230.shtml)
-- 2026-06-29 21:07 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/751381.shtml)
-- 2026-06-29 21:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/268320407.shtml)
-- 2026-06-29 21:16 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/256714739879.shtml)
-- 2026-06-29 21:29 - [千与千寻](https://www.blog.minike.top/Article/details/0442471.shtml)
-- 2026-06-29 21:14 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/12603.shtml)
-- 2026-06-29 21:18 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/7369734.shtml)
-- 2026-06-29 21:23 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/294920094.shtml)
-- 2026-06-29 21:26 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/14810.shtml)
+- 2026-06-29 21:08 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.kurohicncr.top/Article/details/814758129228.shtml)
+- 2026-06-29 21:32 - [一诺变着花样秀新驾照](https://www.share.minike.top/Article/details/231711473.shtml)
+- 2026-06-29 21:07 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/5358937.shtml)
+- 2026-06-29 21:17 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/421802.shtml)
+- 2026-06-29 21:15 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/81843.shtml)
+- 2026-06-29 21:34 - [千与千寻](http://www.share.minike.top/Article/details/042936451681.shtml)
+- 2026-06-29 21:36 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/250561694.shtml)
+- 2026-06-29 21:12 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/6099906.shtml)
+- 2026-06-29 21:12 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/258973.shtml)
+- 2026-06-29 21:24 - [日防卫省正考虑引进美企人工智能系统](https://www.share.kurohicncr.top/Article/details/271454604.shtml)
+- 2026-06-29 21:28 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/8374243930.shtml)
+- 2026-06-29 21:34 - [网约车出事故平台拒赔称只是中介](https://www.blog.kurohicncr.top/Article/details/769763887.shtml)
+- 2026-06-29 21:17 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/60133168601.shtml)
+- 2026-06-29 21:30 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/131219.shtml)
+- 2026-06-29 21:09 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/8694806149.shtml)

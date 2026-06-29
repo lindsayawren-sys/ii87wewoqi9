@@ -1,53 +1,59 @@
-# 国产存储巨头，IPO大消息！
+# 长沙市政府召开新闻发布会 通报浏阳市华盛烟花公司爆炸事故情况
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据证监会官网，中信证券、中信建投发布长江存储控股股份有限公司首次公开发行股票并上市辅导备案报告。 长江存储科技有限责任公司成立于2016年7月，总部位于“江城”武汉，是一家集芯片设计、生产制造、封装测试及系统解决方案产品于一体的存储器IDM企业。长江存储为全球合作伙伴提供3D NAND闪存晶圆及颗粒， 嵌入
+中新网湖南浏阳5月5日电 (记者 傅煜 唐小晴 杨华峰 徐志雄)5月5日下午，长沙市政府召开新闻发布会，对浏阳市华盛烟花公司爆炸事故相关情况进行通报，现场为遇难者默哀。 5月4日16时43分左右，浏阳市华盛烟花公司发生爆炸。截至当前，事故已导致26人死亡，61人受伤。 事故发生后，当地迅速启动应急响应，成立事故处置工作组，调动消防、应急、公安、卫健等部门1500余人，有序开展应
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网湖南浏阳5月5日电 (记者 傅煜 唐小晴 杨华峰 徐志雄)5月5日下午，长沙市政府召开新闻发布会，对浏阳市华盛烟花公司爆炸事故相关情况进行通报，现场为遇难者默哀。
 
-据证监会官网，中信证券、中信建投发布长江存储控股股份有限公司首次公开发行股票并上市辅导备案报告。
+5月4日16时43分左右，浏阳市华盛烟花公司发生爆炸。
 
-长江存储科技有限责任公司成立于2016年7月，总部位于“江城”武汉，是一家集芯片设计、生产制造、封装测试及系统解决方案产品于一体的存储器IDM企业。
+截至当前，事故已导致26人死亡，61人受伤。
 
-长江存储为全球合作伙伴提供3D NAND闪存晶圆及颗粒， 嵌入式存储芯片以及消费级、企业级固态硬盘等产品和解决方案，广泛应用于移动通信、消费数码、计算机、服务器及数据中心等领域。
+事故发生后，当地迅速启动应急响应，成立事故处置工作组，调动消防、应急、公安、卫健等部门1500余人，有序开展应急救援、现场处置、医疗救治、信息发布等相关工作。
 
-综合自：证监会官网、长江存储官方网站责任编辑：宋雅芳
+目前，已基本完成现场搜救等工作，救援出7名被困人员。
+
+送医救治的61人，其中55名轻症人员已完成清创消炎、对症治疗，生命体征平稳；6名重症人员实行“一患一策一团队”，开展抗休克、创面修复、脏器功能支持等专业诊疗。
+
+有关部门已依法对涉事企业负责人采取控制措施，并实时监测空气和水体，相关环境指标正常。
+
+下一步，长沙将集中省市医疗资源，对伤员逐一会诊评估，密切监测伤情变化，动态调整完善救治措施，精心做好伤员救治，并组建善后处置专项工作组，采取“一人(户)一专班”，依法依规善后处理。
 
 ## 相关推荐
 
-- 2026-06-29 21:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 21:22 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 21:05 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 21:24 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 21:02 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 21:05 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 21:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 21:01 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 21:10 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 21:16 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 21:03 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 21:14 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 21:12 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 21:21 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 21:21 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 21:32 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 21:32 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 21:26 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 21:31 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 21:10 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 21:25 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 21:07 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 21:06 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 21:16 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 21:06 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 21:07 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:29 - [无畏为自己的猫正名了](http://www.share.minike.top/Article/details/610192747273.shtml)
-- 2026-06-29 21:26 - [任泽平：AI浪潮刚刚开始](https://www.blog.minike.top/Article/details/22583310501.shtml)
-- 2026-06-29 21:10 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/848664489096.shtml)
-- 2026-06-29 21:04 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.kurohicncr.top/Article/details/80649.shtml)
-- 2026-06-29 21:29 - [毒液2](http://www.blog.kurohicncr.top/Article/details/4480212.shtml)
-- 2026-06-29 21:00 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/769999.shtml)
-- 2026-06-29 21:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/74927.shtml)
-- 2026-06-29 21:28 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/45013894.shtml)
-- 2026-06-29 21:27 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/189969062621.shtml)
-- 2026-06-29 21:26 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/0709995.shtml)
-- 2026-06-29 21:06 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/03288599747.shtml)
-- 2026-06-29 21:26 - [送你一朵小红花](http://www.blog.minike.top/Article/details/82106873.shtml)
-- 2026-06-29 21:09 - [韩国队主帅遭极端网友死亡威胁](http://www.share.kurohicncr.top/Article/details/32933106.shtml)
-- 2026-06-29 21:13 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/723559425.shtml)
-- 2026-06-29 21:04 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/6080441.shtml)
+- 2026-06-29 21:26 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/99999.shtml)
+- 2026-06-29 21:07 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/034443543.shtml)
+- 2026-06-29 21:15 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/739740674221.shtml)
+- 2026-06-29 21:22 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/96678.shtml)
+- 2026-06-29 21:29 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/74595.shtml)
+- 2026-06-29 21:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/082760.shtml)
+- 2026-06-29 21:20 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/376902.shtml)
+- 2026-06-29 21:11 - [男子40度高温下骑行严重晒伤](https://www.share.minike.top/Article/details/36992431.shtml)
+- 2026-06-29 21:20 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/12819647.shtml)
+- 2026-06-29 21:24 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/279855.shtml)
+- 2026-06-29 21:24 - [极限挑战第一季](http://www.share.minike.top/Article/details/48202.shtml)
+- 2026-06-29 21:21 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/1938427.shtml)
+- 2026-06-29 21:32 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/84192097.shtml)
+- 2026-06-29 21:08 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/99157000807.shtml)
+- 2026-06-29 21:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/0769373701.shtml)

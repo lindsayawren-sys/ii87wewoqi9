@@ -1,60 +1,57 @@
-# 美国财长贝森特敦促盟友 称执行伊朗制裁“没有任何借口”
+# 福建首个侨台档案融合展示馆在惠安开放迎客
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-美国财政部长斯科特·贝森特敦促盟友与美方一道，“强力”执行针对伊朗及其他恶意行为者的制裁。他表示，对于那些希望打击恐怖主义融资的人来说，“没有任何借口可言”。 在贝森特发表上述言论的前一天，美国刚刚发布了第三份豁免令，允许销售部分通过海运运输的俄罗斯石油。与此同时，伊朗冲突持续引发全球能源市场震荡，加剧了市场对通胀的恐慌，并引发了全球债券市场的抛售。 “要彻底粉碎恐怖主义威胁，
+中新网福建惠安5月1日电 (记者 孙虹)作为福建省首个将侨批档案与“迁台记忆”档案文献融合展示的专题展馆，泉州市侨台档案展示馆5月1日起面向海内外游客开放。 据悉，泉州市侨台档案展示馆所在的惠安县崇武古城下王厝，是一座建筑面积336平方米的闽南传统古厝。作为古城“以修代租”活化利用项目的典范，这座三间张结构的古建筑在保留传统风貌的基础上，被打造为集档案展示、文化体验、文创业态于
 
 ## 正文
 
-美国财政部长斯科特·贝森特敦促盟友与美方一道，“强力”执行针对伊朗及其他恶意行为者的制裁。
+中新网福建惠安5月1日电 (记者 孙虹)作为福建省首个将侨批档案与“迁台记忆”档案文献融合展示的专题展馆，泉州市侨台档案展示馆5月1日起面向海内外游客开放。
 
-他表示，对于那些希望打击恐怖主义融资的人来说，“没有任何借口可言”。
+据悉，泉州市侨台档案展示馆所在的惠安县崇武古城下王厝，是一座建筑面积336平方米的闽南传统古厝。
 
-在贝森特发表上述言论的前一天，美国刚刚发布了第三份豁免令，允许销售部分通过海运运输的俄罗斯石油。
+作为古城“以修代租”活化利用项目的典范，这座三间张结构的古建筑在保留传统风貌的基础上，被打造为集档案展示、文化体验、文创业态于一体的综合性空间。
 
-与此同时，伊朗冲突持续引发全球能源市场震荡，加剧了市场对通胀的恐慌，并引发了全球债券市场的抛售。
+步入展示馆，主题墙绘和民国时期代写家书艺术装置直观展现泉州与台湾同胞及海外侨胞的历史纽带；古厝右侧为侨批文化展区，通过“侨乡渊源”“侨批神韵”“侨心永恒”三部分，系统展示华侨过番谋生历史、侨批档案知识等；左侧为泉台记忆展区，以“根脉相承”“往来相通”“文化相融”“亲缘相连”为主线，呈现泉台同根同源，两地语言、饮食、习俗、民间信仰的共同文化和同名同宗村情况、姓氏谱牒文化等。
 
-“要彻底粉碎恐怖主义威胁，就要求各位挺身而出，与我们一同铲除维持其生存的资金来源，”贝森特在反恐怖融资会议开幕式上发表简短的主旨演讲时表示。
+此外，展示馆还设置了两岸文献查阅区、侨批与家书赏析区、专题展区与文创业态区等区域，游客可通过书写家书和体验惠安女传统服饰增强参与感。
 
-该会议是正在巴黎举行的G7会议的一部分。
+“走进这里，就像翻开一本立体的泉州侨台家书。
 
-上述言论进一步阐述了他此前在G-7财长会议开幕式上所发表的讲话内容。
+”泉州市档案馆相关负责人告诉中新网记者，泉州市侨台档案展示馆是档案部门推进“侨批+文旅”“迁台记忆+文旅”融合的重要实践，既填补了福建省侨批与迁台记忆融合展示的空白，又以档案文化赋能崇武古城活化升级，打造古城的全新文旅打卡点。
 
-贝森特还表示，财政部正对其所有的制裁措施进行全面审查，并称这些措施“不应持续过长时间，以免其预期效果产生意料之外的后果”。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:00 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 21:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 21:12 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 21:03 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 21:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 21:07 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 21:22 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 21:06 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 21:26 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 21:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 21:26 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 21:20 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 21:23 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 21:11 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 21:27 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 21:23 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 21:24 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 21:18 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 21:28 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 21:20 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 21:26 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 21:28 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 21:28 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 21:24 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 21:09 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:03 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/99392.shtml)
-- 2026-06-29 21:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/48811.shtml)
-- 2026-06-29 21:02 - [天气热脾气都变差了](https://www.blog.minike.top/Article/details/585067974273.shtml)
-- 2026-06-29 21:20 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/7593628.shtml)
-- 2026-06-29 21:14 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/512974.shtml)
-- 2026-06-29 21:15 - [炽夏](https://www.share.kurohicncr.top/Article/details/9100529.shtml)
-- 2026-06-29 21:20 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.minike.top/Article/details/44059242714.shtml)
-- 2026-06-29 21:17 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/315065527.shtml)
-- 2026-06-29 21:00 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/830319.shtml)
-- 2026-06-29 21:12 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/67297470.shtml)
-- 2026-06-29 21:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/652162102575.shtml)
-- 2026-06-29 21:03 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.kurohicncr.top/Article/details/82866.shtml)
-- 2026-06-29 21:08 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/807098.shtml)
-- 2026-06-29 21:26 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/104015508764.shtml)
-- 2026-06-29 21:28 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/2664683.shtml)
+- 2026-06-29 21:24 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/127849.shtml)
+- 2026-06-29 21:26 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/61125701370.shtml)
+- 2026-06-29 21:32 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/8797273.shtml)
+- 2026-06-29 21:11 - [委内瑞拉发生余震](http://www.blog.minike.top/Article/details/6187894.shtml)
+- 2026-06-29 21:11 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/032127092.shtml)
+- 2026-06-29 21:13 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.kurohicncr.top/Article/details/01281.shtml)
+- 2026-06-29 21:17 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/613308794158.shtml)
+- 2026-06-29 21:34 - [炽夏](https://www.blog.kurohicncr.top/Article/details/7997845021.shtml)
+- 2026-06-29 21:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/995488.shtml)
+- 2026-06-29 21:06 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/2871913512.shtml)
+- 2026-06-29 21:20 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/583820681.shtml)
+- 2026-06-29 21:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/22423053581.shtml)
+- 2026-06-29 21:10 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/7193158.shtml)
+- 2026-06-29 21:07 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/349911.shtml)
+- 2026-06-29 21:24 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/273607718332.shtml)

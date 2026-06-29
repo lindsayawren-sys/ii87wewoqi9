@@ -1,49 +1,61 @@
-# 山东省临沂市政协原副主席张艳丽被开除公职
+# 假期首店上新 杭州商圈“情绪消费”升温
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电 据山东省纪委监委消息：经山东省委批准，山东省监委对临沂市政协原副主席张艳丽严重职务违法问题进行了立案调查。 经查，张艳丽无视中央八项规定精神，违规收受礼品、礼金、消费卡，接受可能影响公正行使公权力的宴请；违反组织要求，隐瞒不报个人有关事项，在干部人事工作中违规为他人谋取利益；违反廉洁要求，利用职权为亲属经营活动谋取利益；违反工作要求，违规干预和插手市场经济活
+中新网杭州5月3日电(奚金燕)商圈经济是观察假期消费趋势的重要窗口。这个“五一”假期，在杭州武林商圈，新入场的恒隆广场成为新晋打卡地标，其中潮玩文创、宠物用品、香氛疗愈等“情绪消费”类首店人气颇高。 坐落于商场负一楼的荷兰国民香氛品牌“Rituals怡式”门店内，一款萃取荷兰郁金香与柚子香调的身体香氛颇受消费者青睐，两天便热销上百件。门店负责人梅洛迪表示，品牌依托中国情绪消费新
 
 ## 正文
 
-中新网5月19日电 据山东省纪委监委消息：经山东省委批准，山东省监委对临沂市政协原副主席张艳丽严重职务违法问题进行了立案调查。
+中新网杭州5月3日电(奚金燕)商圈经济是观察假期消费趋势的重要窗口。
 
-经查，张艳丽无视中央八项规定精神，违规收受礼品、礼金、消费卡，接受可能影响公正行使公权力的宴请；违反组织要求，隐瞒不报个人有关事项，在干部人事工作中违规为他人谋取利益；违反廉洁要求，利用职权为亲属经营活动谋取利益；违反工作要求，违规干预和插手市场经济活动；违反公职人员道德要求，不重视家风建设；利用职务便利为他人在药品销售、项目承揽等方面谋利，并非法收受巨额财物。
+这个“五一”假期，在杭州武林商圈，新入场的恒隆广场成为新晋打卡地标，其中潮玩文创、宠物用品、香氛疗愈等“情绪消费”类首店人气颇高。
 
-张艳丽行为已构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+坐落于商场负一楼的荷兰国民香氛品牌“Rituals怡式”门店内，一款萃取荷兰郁金香与柚子香调的身体香氛颇受消费者青睐，两天便热销上百件。
 
-依据《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，由山东省监委给予其开除公职处分；按规定撤销其荣誉称号；没收其违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+门店负责人梅洛迪表示，品牌依托中国情绪消费新风向，不断拓展线下门店布局，“这是我们品牌首次进驻浙江，市场反响远超预期。
+
+” 如今，情绪消费市场活力迸发，宠物经济、AI智能陪伴、沉浸式疗愈等赛道加速发展，成为拉动商圈经济的核心引擎。
+
+以今年“五一”前夕投入试运营的杭州恒隆广场为例，其中约三分之一为首店品牌，新开设的Jellycat中国首家设计焕新门店、中国首家智能眼镜验配一体概念店等，颇受年轻人欢迎。
+
+恒隆地产高级董事(内地业务)彭兆辉表示，杭州恒隆广场以引入各类首店品牌为抓手，打造一站式文商旅融合消费新体验，“杭州兼具强劲经济基底、高端消费力、世界级文旅资源与年轻创新氛围，我们有信心把这里打造成恒隆体系内的标杆项目。
+
+” 首店不仅是国际大牌的秀场、新兴潮流品牌的试验田，更是塑造消费风潮、激发城市消费活力的关键点。
 
 ## 相关推荐
 
-- 2026-06-29 21:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 21:29 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 21:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 21:20 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 21:26 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 21:20 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 21:21 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 21:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 21:11 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 21:11 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 21:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 21:32 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 21:21 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 21:26 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 21:24 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 21:11 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 21:23 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 21:27 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 21:19 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 21:32 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 21:18 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 21:14 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 21:08 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 21:35 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 21:16 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 21:15 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:23 - [铜价上涨 日本住宅水表失窃严重](https://www.share.kurohicncr.top/Article/details/13007.shtml)
-- 2026-06-29 21:01 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/9433215523.shtml)
-- 2026-06-29 21:12 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/303005764239.shtml)
-- 2026-06-29 21:14 - [明星大侦探第一季](https://www.share.minike.top/Article/details/57079299.shtml)
-- 2026-06-29 21:18 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/7306249.shtml)
-- 2026-06-29 21:09 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/588241535256.shtml)
-- 2026-06-29 21:24 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/883689247.shtml)
-- 2026-06-29 21:08 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/9616092.shtml)
-- 2026-06-29 21:24 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/70418450303.shtml)
-- 2026-06-29 21:19 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/844432487.shtml)
-- 2026-06-29 21:18 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/45362002.shtml)
-- 2026-06-29 21:17 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/15979.shtml)
-- 2026-06-29 21:29 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/314662932058.shtml)
-- 2026-06-29 21:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/530732.shtml)
-- 2026-06-29 21:26 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.kurohicncr.top/Article/details/56470448.shtml)
+- 2026-06-29 21:19 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/6349220631.shtml)
+- 2026-06-29 21:32 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.minike.top/Article/details/4142108.shtml)
+- 2026-06-29 21:22 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/4546325.shtml)
+- 2026-06-29 21:07 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/323591.shtml)
+- 2026-06-29 21:07 - [金刚川](https://www.share.minike.top/Article/details/8194625623.shtml)
+- 2026-06-29 21:32 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/766979.shtml)
+- 2026-06-29 21:32 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/5027773.shtml)
+- 2026-06-29 21:35 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/65655627098.shtml)
+- 2026-06-29 21:11 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/35627.shtml)
+- 2026-06-29 21:13 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/4616714.shtml)
+- 2026-06-29 21:27 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/679836239797.shtml)
+- 2026-06-29 21:07 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/929383421.shtml)
+- 2026-06-29 21:23 - [宜宾地震已转移安置225人](http://www.share.minike.top/Article/details/4710010488.shtml)
+- 2026-06-29 21:12 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/04837800.shtml)
+- 2026-06-29 21:06 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/519075242512.shtml)

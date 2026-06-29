@@ -1,53 +1,60 @@
-# 杭州银行：王立雄首席合规官的任职资格获核准
+# 榴莲价格打下来了
 
-> 更新时间：2026-06-29 21:30:02 UTC+8
+> 更新时间：2026-06-29 21:36:02 UTC+8
 
 ## 摘要
 
-5月19日金融一线消息，杭州银行公告，公司收到《国家金融监督管理总局浙江监管局关于王立雄杭州银行首席合规官任职资格的批复》（浙金复〔2026〕124号），国家金融监督管理总局浙江监管局已核准王立雄首席合规官的任职资格。 简历显示，王立雄，1972 年 11 月出生，项目管理硕士，高级经济师。现任杭州银行副行长。曾任杭州银行保俶支行行长助理、副行长，公司业务部副总经理、信贷管理部
+“降啦！降啦！现在海运的金枕榴莲，每斤只要二十多元。”北京新发地批发市场内，一位水果批发商讲述着榴莲价格的变化。 榴莲价格明显下降，最直接的原因是进口量上来了。 4月中旬以来，泰国、马来西亚等东南亚国家榴莲迎来集中上市期，中国榴莲进口量也同比大增。 1月1日至4月26日，中老铁路已累计运输进口东南亚榴莲5.03万吨，同比增长94.2%。 上述批发商预测，随着到港货量持续增加，下
 
 ## 正文
 
-5月19日金融一线消息，杭州银行公告，公司收到《国家金融监督管理总局浙江监管局关于王立雄杭州银行首席合规官任职资格的批复》（浙金复〔2026〕124号），国家金融监督管理总局浙江监管局已核准王立雄首席合规官的任职资格。
+“降啦！
 
-简历显示，王立雄，1972 年 11 月出生，项目管理硕士，高级经济师。
+降啦！
 
-现任杭州银行副行长。
+现在海运的金枕榴莲，每斤只要二十多元。
 
-曾任杭州银行保俶支行行长助理、副行长，公司业务部副总经理、信贷管理部副总经理、授信审批部副总经理（主持工作），萧山支行行长，公司业务总部总经理、国际业务部总经理，上海分行党委书记、行长，杭州银行第八届监事会监事长。
+”北京新发地批发市场内，一位水果批发商讲述着榴莲价格的变化。
 
-责任编辑：李琳琳
+榴莲价格明显下降，最直接的原因是进口量上来了。
+
+4月中旬以来，泰国、马来西亚等东南亚国家榴莲迎来集中上市期，中国榴莲进口量也同比大增。
+
+1月1日至4月26日，中老铁路已累计运输进口东南亚榴莲5.03万吨，同比增长94.2%。
+
+上述批发商预测，随着到港货量持续增加，下个月榴莲价格有望进一步走低。
 
 ## 相关推荐
 
-- 2026-06-29 21:20 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 21:26 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 21:23 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 21:15 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 21:01 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 21:25 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 21:25 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 21:12 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 21:24 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 21:08 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 21:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 21:05 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 21:23 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 21:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 21:12 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 21:23 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 21:35 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 21:17 - [恋与深空致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 21:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 21:20 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 21:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 21:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 21:28 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 21:33 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 21:14 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 21:25 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 21:19 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:25 - [《贺子珍》](http://www.share.minike.top/Article/details/3610375.shtml)
-- 2026-06-29 21:10 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/5483474658.shtml)
-- 2026-06-29 21:02 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/747108823.shtml)
-- 2026-06-29 21:19 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/41970429948.shtml)
-- 2026-06-29 21:18 - [欧洲缘何成为变暖最快的大洲](http://www.blog.kurohicncr.top/Article/details/615369.shtml)
-- 2026-06-29 21:16 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/51572319584.shtml)
-- 2026-06-29 21:18 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/440495.shtml)
-- 2026-06-29 21:28 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.kurohicncr.top/Article/details/885466519.shtml)
-- 2026-06-29 21:23 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/87604454.shtml)
-- 2026-06-29 21:27 - [C罗10球7球对垫底队](http://www.blog.kurohicncr.top/Article/details/42228.shtml)
-- 2026-06-29 21:29 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/5483960.shtml)
-- 2026-06-29 21:19 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/8566478634.shtml)
-- 2026-06-29 21:19 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/367057747.shtml)
-- 2026-06-29 21:26 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/898128776940.shtml)
-- 2026-06-29 21:24 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/598878215.shtml)
+- 2026-06-29 21:33 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/022943009.shtml)
+- 2026-06-29 21:23 - [C罗10球7球对垫底队](http://www.blog.minike.top/Article/details/37888513.shtml)
+- 2026-06-29 21:27 - [恋与深空致歉](http://www.blog.minike.top/Article/details/2400041.shtml)
+- 2026-06-29 21:30 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/8256156.shtml)
+- 2026-06-29 21:21 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/361991942.shtml)
+- 2026-06-29 21:14 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/357298164.shtml)
+- 2026-06-29 21:32 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/957615420012.shtml)
+- 2026-06-29 21:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/54134736640.shtml)
+- 2026-06-29 21:32 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/4098228330.shtml)
+- 2026-06-29 21:11 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/74673809345.shtml)
+- 2026-06-29 21:31 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/68296107211.shtml)
+- 2026-06-29 21:19 - [极限挑战第一季](http://www.share.minike.top/Article/details/4087585477.shtml)
+- 2026-06-29 21:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/75089529211.shtml)
+- 2026-06-29 21:32 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/424282.shtml)
+- 2026-06-29 21:28 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/802912710111.shtml)
