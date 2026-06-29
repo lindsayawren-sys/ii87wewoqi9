@@ -1,59 +1,57 @@
-# 有毒的“养生烟”：电商宣称养生润肺，神秘厂家难寻
+# 肯尼亚首批享受“零关税”出口中国货物抵达大连港
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-影子调查｜有毒的“养生烟”：电商热销宣称“养生润肺”，神秘厂家难寻 到底是卷烟？还是保健品？ 宣称不含尼古丁，内含艾草及人参、虫草、藏红花等多种中草药，具有养生保健、祛湿排寒、润肺、清除血管垃圾等多重功效，可作为“香烟平替”的“李时珍1518蕲艾香灸”火了起来，被网友称其为“养生届的新晋黑马”。该产品包装精美，在淘宝、抖音等平台均有销售，且销量不低。 然而，根据其包装信息，由湖
+中新网大连5月9日电 (记者 杨毅)9日，随着装载13个40尺集装箱船缓缓靠泊大连港，来自肯尼亚的320吨牛油果毛油顺利抵达大连，这是中国自2026年5月1日起对非洲建交国全面实施单方面零关税政策后，肯尼亚输华的首批享受该政策的农产品，货值达1700万元。 今年3月，“首批对中国零关税货物发车仪式”在肯尼亚内罗毕举行，此次抵达大连港的货物，正是当日发出的首单货物。 辽宁晟麦实业
 
 ## 正文
 
-影子调查｜有毒的“养生烟”：电商热销宣称“养生润肺”，神秘厂家难寻 到底是卷烟？
+中新网大连5月9日电 (记者 杨毅)9日，随着装载13个40尺集装箱船缓缓靠泊大连港，来自肯尼亚的320吨牛油果毛油顺利抵达大连，这是中国自2026年5月1日起对非洲建交国全面实施单方面零关税政策后，肯尼亚输华的首批享受该政策的农产品，货值达1700万元。
 
-还是保健品？
+今年3月，“首批对中国零关税货物发车仪式”在肯尼亚内罗毕举行，此次抵达大连港的货物，正是当日发出的首单货物。
 
-宣称不含尼古丁，内含艾草及人参、虫草、藏红花等多种中草药，具有养生保健、祛湿排寒、润肺、清除血管垃圾等多重功效，可作为“香烟平替”的“李时珍1518蕲艾香灸”火了起来，被网友称其为“养生届的新晋黑马”。
+辽宁晟麦实业股份有限公司董事长屈铭说，按2026年计划，该公司在肯尼亚的加工工厂将向中国出口2000吨肯尼亚牛油果油，货值约1000万美元。
 
-该产品包装精美，在淘宝、抖音等平台均有销售，且销量不低。
+零关税政策预计为该企业直接减免关税成本1400万元人民币，使肯尼亚牛油果油相较墨西哥、法国、西班牙等传统供应国的同类产品拥有约20%的成本优势。
 
-然而，根据其包装信息，由湖北中艾农业集团有限公司(下称：中艾公司)出品。
+据统计，今年1-3月，辽宁与非洲国家贸易进出口108.8亿元，同比增长81.5%。
 
-生产地址位于湖北省黄冈市蕲春县漕河镇李时珍医药港。
+“我们将以零关税举措落地实施为契机，指导企业准确适用原产货物判定标准和海关便利措施等，依托大数据跟踪开展关区享惠分析，支持更多企业依托该举措降低成本、打通市场、链接产能。
 
-湖北中艾仙草科技有限公司相关负责人则否认生产该产品。
+”大连海关关税处副处长刘伟说。
 
-襄阳市襄城区市场监督管理局和烟草专卖局接到投诉后介入，“两个月仍没找到生产方”。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 00:16 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 00:31 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 00:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 00:28 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 00:22 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 00:23 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 00:07 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 00:21 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 00:25 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 00:27 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 00:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 00:34 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 00:26 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-30 00:16 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 00:24 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 00:23 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 00:25 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 00:19 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 00:22 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 00:22 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 00:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 00:19 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 00:26 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:11 - [金刚川](http://www.share.kurohicncr.top/Article/details/66808381.shtml)
-- 2026-06-30 00:24 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/81149745570.shtml)
-- 2026-06-30 00:09 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/835592774.shtml)
-- 2026-06-30 00:36 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/83948658.shtml)
-- 2026-06-30 00:15 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/4130435364.shtml)
-- 2026-06-30 00:07 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/1691976.shtml)
-- 2026-06-30 00:08 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/86058.shtml)
-- 2026-06-30 00:35 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/641697843679.shtml)
-- 2026-06-30 00:15 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/59650575147.shtml)
-- 2026-06-30 00:07 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/535507561858.shtml)
-- 2026-06-30 00:23 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/991069486.shtml)
-- 2026-06-30 00:27 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/002730537640.shtml)
-- 2026-06-30 00:33 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/6884047.shtml)
-- 2026-06-30 00:24 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/78340.shtml)
-- 2026-06-30 00:19 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/64668255.shtml)
+- 2026-06-30 00:31 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/019106.shtml)
+- 2026-06-30 00:23 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/52056588.shtml)
+- 2026-06-30 00:33 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/0463192.shtml)
+- 2026-06-30 00:32 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/711489.shtml)
+- 2026-06-30 00:22 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/24494732.shtml)
+- 2026-06-30 00:16 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/38096299138.shtml)
+- 2026-06-30 00:33 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/6611108269.shtml)
+- 2026-06-30 00:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/500139.shtml)
+- 2026-06-30 00:28 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/403790923787.shtml)
+- 2026-06-30 00:35 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/03707.shtml)
+- 2026-06-30 00:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/19900.shtml)
+- 2026-06-30 00:17 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/8394118.shtml)
+- 2026-06-30 00:15 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/487884.shtml)
+- 2026-06-30 00:27 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/680174991.shtml)
+- 2026-06-30 00:40 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/180640.shtml)

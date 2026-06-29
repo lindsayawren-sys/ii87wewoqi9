@@ -1,59 +1,57 @@
-# 东西问丨郝鲁怡：以发展权赋能气候正义 深化中欧绿色伙伴关系
+# 话剧《国士》在渝巡演 渝沪民建共悟先贤伟力
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新社北京6月14日电 题：以发展权赋能气候正义深化中欧绿色伙伴关系 作者 郝鲁怡 中国社会科学院国际法研究所研究员 2026年是联合国《发展权利宣言》通过40周年。《宣言》的达成，将发展权正式确立为一项人权。《宣言》亦强调，发展应当秉持“以人为本”的理念，要求全体人民和所有个人确保有意义地参与发展，公平分配发展成果，并为此采取持久的行动。在当前全球气候危机加剧的背景下，发展权
+中新网重庆5月8日电 (毕奇闻 刘相琳)记者8日从民建重庆市委会获悉，为庆祝民建重庆、上海地方组织成立八十周年，民建重庆市委员会携手民建上海市委员会，在重庆大学虎溪校区大剧场连续举办大型原创话剧《国士》重庆专场观演活动。在渝3场展演累计吸引近3000名民建会员和社会人士观看。 据介绍，话剧《国士》由上海戏剧学院、民建上海市委员会共同出品，民建重庆市委员会、重庆大学联合出品，以“
 
 ## 正文
 
-中新社北京6月14日电 题：以发展权赋能气候正义深化中欧绿色伙伴关系 作者 郝鲁怡 中国社会科学院国际法研究所研究员 2026年是联合国《发展权利宣言》通过40周年。
+中新网重庆5月8日电 (毕奇闻 刘相琳)记者8日从民建重庆市委会获悉，为庆祝民建重庆、上海地方组织成立八十周年，民建重庆市委员会携手民建上海市委员会，在重庆大学虎溪校区大剧场连续举办大型原创话剧《国士》重庆专场观演活动。
 
-《宣言》的达成，将发展权正式确立为一项人权。
+在渝3场展演累计吸引近3000名民建会员和社会人士观看。
 
-《宣言》亦强调，发展应当秉持“以人为本”的理念，要求全体人民和所有个人确保有意义地参与发展，公平分配发展成果，并为此采取持久的行动。
+据介绍，话剧《国士》由上海戏剧学院、民建上海市委员会共同出品，民建重庆市委员会、重庆大学联合出品，以“黄炎培三别上海”为主线，展现了黄炎培先生跨越半个世纪的奋斗历程，清晰勾勒出他兴职教、赴延安、创民建的人生轨迹，用一生回答了“为何而立、为谁而行”，最终找到了“跟共产党走，走社会主义道路”的光明之路。
 
-在当前全球气候危机加剧的背景下，发展权所蕴含的以人为中心、公平发展、可持续性、自决原则和国际合作等内涵，为推动公平有序的全球气候治理行动提供重要依据。
+民建中央副主席、上海市委员会主委解冬在开演仪式上表示，“窑洞对”的历史之问至今烛照当下，与党同心、爱国为民、精诚合作、敬业奉献的多党合作优良传统，是先贤留给后人的宝贵精神财富。
 
-气候变化是人类当前面临的最严峻挑战之一。
+希望广大民建会员在回望波澜壮阔的岁月中凝聚团结奋进的力量，以“国士”为榜样，在新征程中奋力谱写民建事业发展新篇章。
 
-联合国人权理事会曾指出，气候变化不仅对一些国家构成生存威胁，而且已经对充分实现各项人权产生了不利影响。
+民建重庆市委员会专职副主委刘伟表示，重庆民建会员将从《国士》中汲取黄炎培先生“一分精神全为国，一寸光阴全为民”的赤子情怀，把对先贤的怀念与敬仰，转化为履职尽责、服务发展的实际行动。
 
-据联合国难民署2025年的统计，过去十年间约有2.5亿人因气候相关因素被迫迁移，最不发达国家承受着与自身历史排放责任极不相称的气候代价，妇女、儿童等脆弱群体的基本权利受到严重冲击。
+两地民建将以此次活动为纽带，持续深化渝沪两地民建组织的沟通交流，携手推动民建事业薪火相传、再谱新篇。
 
-在此背景下，“气候正义”概念正从边缘走向全球核心议程。
+演出现场，舞台光影流转、场景移步换景，瞬间将观众拉回风云激荡的峥嵘岁月。
 
 ## 相关推荐
 
-- 2026-06-30 00:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 00:09 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 00:09 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 00:11 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 00:12 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 00:29 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 00:27 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 00:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 00:32 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 00:11 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-30 00:22 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 00:21 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 00:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 00:23 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 00:32 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 00:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 00:27 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 00:34 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 00:24 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 00:17 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 00:34 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 00:14 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 00:23 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 00:16 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:06 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/1277133833.shtml)
-- 2026-06-30 00:07 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/81623620.shtml)
-- 2026-06-30 00:32 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/88239766978.shtml)
-- 2026-06-30 00:30 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/7356598710.shtml)
-- 2026-06-30 00:23 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/755334003.shtml)
-- 2026-06-30 00:32 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/850713.shtml)
-- 2026-06-30 00:24 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/5674711.shtml)
-- 2026-06-30 00:21 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/15061.shtml)
-- 2026-06-30 00:08 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/37920750.shtml)
-- 2026-06-30 00:17 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/783105.shtml)
-- 2026-06-30 00:34 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/163745834127.shtml)
-- 2026-06-30 00:31 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/99501814453.shtml)
-- 2026-06-30 00:11 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/035686668380.shtml)
-- 2026-06-30 00:33 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/38328236.shtml)
-- 2026-06-30 00:32 - [炽夏](https://www.blog.kurohicncr.top/Article/details/11550.shtml)
+- 2026-06-30 00:14 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/643697556229.shtml)
+- 2026-06-30 00:22 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/28519102.shtml)
+- 2026-06-30 00:13 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/706791952464.shtml)
+- 2026-06-30 00:30 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/883421891.shtml)
+- 2026-06-30 00:33 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/5211219650.shtml)
+- 2026-06-30 00:32 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/896900772398.shtml)
+- 2026-06-30 00:22 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/351630911460.shtml)
+- 2026-06-30 00:27 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/293200379.shtml)
+- 2026-06-30 00:15 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/761516840.shtml)
+- 2026-06-30 00:13 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/937437.shtml)
+- 2026-06-30 00:40 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/667767.shtml)
+- 2026-06-30 00:30 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/4083015.shtml)
+- 2026-06-30 00:15 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/96269954932.shtml)
+- 2026-06-30 00:22 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/918062.shtml)
+- 2026-06-30 00:35 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/4147810578.shtml)

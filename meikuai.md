@@ -1,61 +1,61 @@
-# 阿维塔王辉：出海不只是卖车，要留下能力、就业和信任成为“当地的自己人”
+# 新质生产力企业组团入琼 加速布局海南自贸港
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，阿维塔科技董事长王辉出席并演讲。 王辉表示，在存量竞争的环境中，即便坚持做技术、做价值，也难免被市场裹挟。破局的关键是什么？他认为，全球化是中国品牌打破发展瓶颈、走向下一个十年的最佳选择。 结合阿维塔的出海实践，他分享了三点观察。 第一，坚持原创，打造中国汽车品牌文化。 王辉
+中新网海口5月9日电 (记者 符宇群)“我们希望将公司海洋具身智能技术，与海南得天独厚的海域资源进行深度场景融合，共同赋能滨海经济高质量发展。”9日，陕西欧卡电子智能科技有限公司 CEO朱健楠在海口受访时表示，目前企业正谋划落地陵水休闲渔业项目，携手蜈支洲岛打造“文旅+海洋科技”融合示范区，助力传统渔业转型升级。当日，由中国电子信息行业联合会牵头组织，一批新质生产力领域企业家及
 
 ## 正文
 
-专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，阿维塔科技董事长王辉出席并演讲。
+中新网海口5月9日电 (记者 符宇群)“我们希望将公司海洋具身智能技术，与海南得天独厚的海域资源进行深度场景融合，共同赋能滨海经济高质量发展。
 
-王辉表示，在存量竞争的环境中，即便坚持做技术、做价值，也难免被市场裹挟。
+”9日，陕西欧卡电子智能科技有限公司 CEO朱健楠在海口受访时表示，目前企业正谋划落地陵水休闲渔业项目，携手蜈支洲岛打造“文旅+海洋科技”融合示范区，助力传统渔业转型升级。
 
-破局的关键是什么？
+当日，由中国电子信息行业联合会牵头组织，一批新质生产力领域企业家及投资机构组团到访海南，开展实地考察与产业对接。
 
-他认为，全球化是中国品牌打破发展瓶颈、走向下一个十年的最佳选择。
+此次到访企业涵盖海洋具身智能、太空能源开发、深海作业机器人研发制造、端侧 AI芯片供应、高端赛车智造等赛道，多家为国家级专精特新重点“小巨人”企业。
 
-结合阿维塔的出海实践，他分享了三点观察。
+截至目前，考察团中已有多家企业在琼落地合作项目、开展实质性产业布局，并明确表达持续增资深耕、拓展业务版图的意愿。
 
-第一，坚持原创，打造中国汽车品牌文化。
+北京观宇芯算科技有限公司联合创始人史圣卿认为，人工智能与商业航天产业蓬勃发展，太空算力已成为前沿战略赛道。
 
-王辉提到，前不久法拉利发布了首款量产纯电动车，其前主席评论说“这是一辆中国人都不会借鉴的车”，这反映了燃油车时代的刻板印象。
+海南凭借独特区位优势、商业航天产业基础、自贸港政策红利及国际科技合作平台，具备发展太空算力的绝佳条件。
 
-进入智能电动汽车时代，中国品牌在设计领域已经取得了领先优势。
+他透露，企业计划从三方面深化与海南合作：借力文昌商业航天发射优势，开展太空算力系统、星载 AI芯片的技术攻关与应用示范；依托海南自贸港开放政策，拓展全球算力服务与国际技术合作；探索利用资本市场工具，为太空算力项目建设运营及国际合作提供投融资支撑。
 
 ## 相关推荐
 
-- 2026-06-30 00:11 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 00:20 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 00:15 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 00:12 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 00:33 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 00:31 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 00:16 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 00:07 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 00:18 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 00:17 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 00:10 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 00:16 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 00:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 00:16 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 00:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 00:40 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 00:25 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 00:24 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 00:35 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 00:31 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 00:25 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 00:25 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 00:33 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 00:22 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 00:28 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 00:12 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 00:41 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 00:21 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 00:20 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-30 00:15 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:08 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/7642770647.shtml)
-- 2026-06-30 00:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/86193189.shtml)
-- 2026-06-30 00:28 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/865368519568.shtml)
-- 2026-06-30 00:21 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/295799406.shtml)
-- 2026-06-30 00:32 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/917950326011.shtml)
-- 2026-06-30 00:10 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/9971125961.shtml)
-- 2026-06-30 00:25 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/547499.shtml)
-- 2026-06-30 00:31 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/96335861.shtml)
-- 2026-06-30 00:24 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/84273300.shtml)
-- 2026-06-30 00:19 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/1339265887.shtml)
-- 2026-06-30 00:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/390810346230.shtml)
-- 2026-06-30 00:21 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/51859205051.shtml)
-- 2026-06-30 00:07 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/9128335188.shtml)
-- 2026-06-30 00:14 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/69653328.shtml)
-- 2026-06-30 00:30 - [一见倾心](http://www.share.kurohicncr.top/Article/details/38599975.shtml)
+- 2026-06-30 00:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/9766261484.shtml)
+- 2026-06-30 00:35 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/42556.shtml)
+- 2026-06-30 00:29 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/342151641.shtml)
+- 2026-06-30 00:40 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/319124063.shtml)
+- 2026-06-30 00:14 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/67936457302.shtml)
+- 2026-06-30 00:36 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/54466202.shtml)
+- 2026-06-30 00:32 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/959010840.shtml)
+- 2026-06-30 00:21 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/24796887.shtml)
+- 2026-06-30 00:35 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/08212424892.shtml)
+- 2026-06-30 00:12 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/13248302877.shtml)
+- 2026-06-30 00:14 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/8651483209.shtml)
+- 2026-06-30 00:41 - [勇敢的心第二部](http://www.share.minike.top/Article/details/11192.shtml)
+- 2026-06-30 00:23 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/668369.shtml)
+- 2026-06-30 00:35 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/381516.shtml)
+- 2026-06-30 00:25 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/1535083.shtml)

@@ -1,52 +1,57 @@
-# 美国还在说“不”，中国风电已经领跑
+# 湖北远安警方侦破26年前绑架杀人案
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 11:17 来源：三里河 眼下，全球有一个鲜明的对比，美国在叫停风电开发，但中国却正御风前行、默默领跑全球风电赛道。2025年，中国风电新增装机容量1.2亿千瓦，是世界其他地区总和的三倍，风机出口量大幅攀升。《纽约时报》刊文直言，中国大力投资风电正在获得回报。西方政客习惯将中国新能源定义为“威胁”，但全球南方正在说另一种语言：中国供应的风电已占
+中新网宜昌5月9日电 (董晓斌 董翌文 张骁臣)记者9日从湖北省远安县公安局获悉，该局近日在陕西西安成功抓获潜逃26年的绑架杀人案主犯陈某某。至此，这起发生于2000年的恶性案件终于画上句号。 2000年10月，陈某某伙同两人流窜至远安，合谋实施绑架勒索并致人死亡。案发后，远安县公安局迅速抓获两名同案犯，但陈某某闻风而逃，从此销声匿迹。 26年间，办案民警多次轮换，但追逃工作从
 
 ## 正文
 
-发布时间：2026年06月15日 11:17 来源：三里河 眼下，全球有一个鲜明的对比，美国在叫停风电开发，但中国却正御风前行、默默领跑全球风电赛道。
+中新网宜昌5月9日电 (董晓斌 董翌文 张骁臣)记者9日从湖北省远安县公安局获悉，该局近日在陕西西安成功抓获潜逃26年的绑架杀人案主犯陈某某。
 
-2025年，中国风电新增装机容量1.2亿千瓦，是世界其他地区总和的三倍，风机出口量大幅攀升。
+至此，这起发生于2000年的恶性案件终于画上句号。
 
-《纽约时报》刊文直言，中国大力投资风电正在获得回报。
+2000年10月，陈某某伙同两人流窜至远安，合谋实施绑架勒索并致人死亡。
 
-西方政客习惯将中国新能源定义为“威胁”，但全球南方正在说另一种语言：中国供应的风电已占全球市场60%以上，它们正在让清洁电力变得触手可及。
+案发后，远安县公安局迅速抓获两名同案犯，但陈某某闻风而逃，从此销声匿迹。
 
-责任编辑：【张舰元】
+26年间，办案民警多次轮换，但追逃工作从未中断。
+
+2026年，远安县公安局启动新一轮命案积案攻坚行动，成立专班重新梳理线索。
+
+专案组在陈某某户籍地公安机关找到一张其早年照片，并据此锁定化名“陈某”、藏匿于西安的犯罪嫌疑人。
+
+4月28日下午，远安警方经过30多个小时蹲守，在陕西西安一栋老旧居民楼内将正在沙发上打盹的陈某某抓获。
 
 ## 相关推荐
 
-- 2026-06-30 00:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 00:26 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 00:08 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 00:08 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 00:14 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 00:09 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 00:17 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-30 00:26 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 00:30 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 00:17 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 00:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 00:26 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 00:39 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 00:30 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 00:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 00:13 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 00:21 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 00:29 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 00:34 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 00:19 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 00:24 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 00:19 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 00:17 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:25 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/427259941.shtml)
-- 2026-06-30 00:06 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/664522672.shtml)
-- 2026-06-30 00:14 - [张凌赫 客串](http://www.blog.minike.top/Article/details/92118.shtml)
-- 2026-06-30 00:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/79249553582.shtml)
-- 2026-06-30 00:20 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/8725150.shtml)
-- 2026-06-30 00:24 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/21799.shtml)
-- 2026-06-30 00:20 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/988717070323.shtml)
-- 2026-06-30 00:08 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/2025265320.shtml)
-- 2026-06-30 00:26 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/185946753569.shtml)
-- 2026-06-30 00:09 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/37349.shtml)
-- 2026-06-30 00:17 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/6453663.shtml)
-- 2026-06-30 00:33 - [东方风云榜直播](http://www.share.minike.top/Article/details/776953.shtml)
-- 2026-06-30 00:33 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/72806347879.shtml)
-- 2026-06-30 00:24 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/473623729302.shtml)
-- 2026-06-30 00:35 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/9327953671.shtml)
+- 2026-06-30 00:42 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/49233093.shtml)
+- 2026-06-30 00:18 - [毒液2](https://www.share.minike.top/Article/details/20566.shtml)
+- 2026-06-30 00:28 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/118282229996.shtml)
+- 2026-06-30 00:13 - [新官上任三把火](https://www.share.minike.top/Article/details/36015827967.shtml)
+- 2026-06-30 00:16 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/523846967.shtml)
+- 2026-06-30 00:38 - [男子称在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/11501737.shtml)
+- 2026-06-30 00:35 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/65755.shtml)
+- 2026-06-30 00:39 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/974882293703.shtml)
+- 2026-06-30 00:34 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/0689605496.shtml)
+- 2026-06-30 00:35 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/129227.shtml)
+- 2026-06-30 00:23 - [第一炉香](http://www.share.minike.top/Article/details/527233177761.shtml)
+- 2026-06-30 00:13 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/9010484513.shtml)
+- 2026-06-30 00:25 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/053950679.shtml)
+- 2026-06-30 00:40 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/678767144519.shtml)
+- 2026-06-30 00:39 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/0198902.shtml)

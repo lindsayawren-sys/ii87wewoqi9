@@ -1,57 +1,61 @@
-# 中国经济圆桌会丨新通道将显著提升三峡枢纽通行能力和运行效率
+# 25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-新华社北京6月12日电(记者叶昊鸣)交通运输部水运局副局长王辉在新华社12日推出的“中国经济圆桌会”大型全媒体访谈节目中表示，三峡水运新通道建成后，将显著提升三峡枢纽通行能力和运行效率。 长江黄金水道是横贯中国东中西部的内河航运大动脉，货运量居世界内河首位。随着长江经济带发展等国家重大战略深入实施，长江上游地区大宗物资、进出口货物等运输需求将进一步增加。满足远期长江上游货运需求
+来源：财通社 5月8日，据消息人士向《科创板日报》透露，国产大模型公司阶跃星辰即将完成近25亿美元融资，并已拆除红筹架构。 该媒体报道称，在阶跃星辰的最新融资中，产业链资本集中入场，包括华勤、龙旗、豪威、中兴等，覆盖从整机制造到上游核心器件多个环节。 随着AI能力加速向手机、汽车、PC等硬件迁移，大模型厂商与硬件产业链之间的绑定也越来越紧密。 对于产业链资本而言，这笔投资押注的
 
 ## 正文
 
-新华社北京6月12日电(记者叶昊鸣)交通运输部水运局副局长王辉在新华社12日推出的“中国经济圆桌会”大型全媒体访谈节目中表示，三峡水运新通道建成后，将显著提升三峡枢纽通行能力和运行效率。
+来源：财通社 5月8日，据消息人士向《科创板日报》透露，国产大模型公司阶跃星辰即将完成近25亿美元融资，并已拆除红筹架构。
 
-长江黄金水道是横贯中国东中西部的内河航运大动脉，货运量居世界内河首位。
+该媒体报道称，在阶跃星辰的最新融资中，产业链资本集中入场，包括华勤、龙旗、豪威、中兴等，覆盖从整机制造到上游核心器件多个环节。
 
-随着长江经济带发展等国家重大战略深入实施，长江上游地区大宗物资、进出口货物等运输需求将进一步增加。
+随着AI能力加速向手机、汽车、PC等硬件迁移，大模型厂商与硬件产业链之间的绑定也越来越紧密。
 
-满足远期长江上游货运需求，建设三峡水运新通道是必要之举。
+对于产业链资本而言，这笔投资押注的不只是一个模型公司，更是下一代智能终端入口。
 
-“新通道建成后，船舶平均待闸时间将大幅缩短，同时也将有效降低全社会物流成本。
+公开信息显示，阶跃星辰已于4月初完成股改，企业类型由有限责任公司变更为股份有限公司。
 
-”王辉表示，交通运输部门将采取工程、技术、管理等措施，通过推进过闸船舶船型标准化、优化两坝枢纽通航建筑物运行方式、加强设备设施维护管理、强化通航配套设施建设等，保障三峡枢纽通航建筑物安全、稳定、高效运行。
+知情人士称，阶跃星辰目前已完成红筹架构拆除工作。
 
-智能化、智慧化是三峡水运新通道建设时重点考虑的内容。
+而股改与拆除红筹架构，当下被视为国内企业推进赴港IPO的重要前置动作。
 
-王辉表示，交通运输部将从三个方面构建三峡枢纽新一代智慧通航运行体系——在智慧调度方面，新通道将深度融合专属智能调度算法与三峡通航成熟调度体系，协同新旧通航设施，系统性提升船闸枢纽整体过闸效率与航道资源利用率； 在智慧航道方面，新通道将整合高精度航道地理信息系统(GIS)地图、全要素三维数字模型等，筑牢船舶过闸精准化、安全化航行的数据支撑； 在智慧船闸方面，新通道将以数字孪生、北斗定位、物联网感知技术为支撑，在船闸结构、启闭机械、电气控制系统全域布设感知终端，实现船闸运维智能化、过闸流程无纸化。
+与此同时，被称为“港版淡马锡”的香港投资管理有限公司（简称“港投公司”）也已出现在公司股东名单中。
 
 ## 相关推荐
 
-- 2026-06-30 00:21 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-30 00:09 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 00:14 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 00:19 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 00:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 00:09 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 00:25 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 00:28 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 00:27 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 00:26 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 00:29 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 00:38 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 00:25 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 00:39 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-30 00:19 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-30 00:33 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 00:36 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 00:17 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 00:29 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 00:27 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 00:36 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 00:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 00:39 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 00:25 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 00:16 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 00:41 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:30 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/5070236110.shtml)
-- 2026-06-30 00:20 - [女心理师](http://www.blog.minike.top/Article/details/50941.shtml)
-- 2026-06-30 00:34 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/150162.shtml)
-- 2026-06-30 00:32 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/73357.shtml)
-- 2026-06-30 00:20 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/56488068.shtml)
-- 2026-06-30 00:35 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/70888.shtml)
-- 2026-06-30 00:17 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/2289709.shtml)
-- 2026-06-30 00:10 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/04153.shtml)
-- 2026-06-30 00:08 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/21783.shtml)
-- 2026-06-30 00:35 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/3589095.shtml)
-- 2026-06-30 00:32 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/023547.shtml)
-- 2026-06-30 00:09 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/78073222117.shtml)
-- 2026-06-30 00:26 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/82645289540.shtml)
-- 2026-06-30 00:26 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/4065008.shtml)
-- 2026-06-30 00:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/52266219.shtml)
+- 2026-06-30 00:24 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/42938.shtml)
+- 2026-06-30 00:15 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/66401004.shtml)
+- 2026-06-30 00:35 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/1554123.shtml)
+- 2026-06-30 00:34 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/3492400.shtml)
+- 2026-06-30 00:14 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/4134216251.shtml)
+- 2026-06-30 00:36 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/471602.shtml)
+- 2026-06-30 00:17 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/395011394.shtml)
+- 2026-06-30 00:20 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/384304078.shtml)
+- 2026-06-30 00:37 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/362057.shtml)
+- 2026-06-30 00:31 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/69235381180.shtml)
+- 2026-06-30 00:22 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/76601508.shtml)
+- 2026-06-30 00:16 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/062452600.shtml)
+- 2026-06-30 00:16 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/31778024.shtml)
+- 2026-06-30 00:38 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/606975903.shtml)
+- 2026-06-30 00:28 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/81358669.shtml)

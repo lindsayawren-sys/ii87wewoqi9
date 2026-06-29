@@ -1,58 +1,51 @@
-# 艺术8奖得主雅诗·依玛用画布定格一个巴黎人眼中的京剧
+# 证监会老虎：中国证监会党委巡视工作领导小组办公室原专职副主任杨春蕾受贿一审被判有期徒刑7年！罚金40万
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网北京6月15日电 (记者 应妮)上妆、换装，一个现代京剧演员即将登台，走进四百多年前的故事当中……这样一个奇妙的“穿越”时刻，被法国艺术家雅诗·依玛(Esther Imard)用画笔定格在画布上。 作为2025艺术8法国青年艺术家奖得主之一，雅诗·依玛于今年四月来到北京艺术8驻地创作。住在胡同里，学中文、逛公园、看京剧，这个巴黎人过上了“老北京”的日子。 热爱舞台艺术的雅
+来源：国际投行研究报告 杨春蕾受贿案一审宣判要点解读 一、核心判决信息 ：中国证监会党委巡视工作领导小组办公室原专职副主任杨春蕾 ：北京市第二中级人民法院 ：以受贿罪判处有期徒刑七年，并处罚金人民币四十万元；追缴在案的受贿所得财物依法没收，上缴国库。 二、案件背景与关键信息 杨春蕾身为证监会系统党员领导干部，丧失理想信念，单独或伙同他人利用职务便利为他人谋利，非法收受财物，数额
 
 ## 正文
 
-中新网北京6月15日电 (记者 应妮)上妆、换装，一个现代京剧演员即将登台，走进四百多年前的故事当中……这样一个奇妙的“穿越”时刻，被法国艺术家雅诗·依玛(Esther Imard)用画笔定格在画布上。
+来源：国际投行研究报告 杨春蕾受贿案一审宣判要点解读 一、核心判决信息 ：中国证监会党委巡视工作领导小组办公室原专职副主任杨春蕾 ：北京市第二中级人民法院 ：以受贿罪判处有期徒刑七年，并处罚金人民币四十万元；追缴在案的受贿所得财物依法没收，上缴国库。
 
-作为2025艺术8法国青年艺术家奖得主之一，雅诗·依玛于今年四月来到北京艺术8驻地创作。
+二、案件背景与关键信息 杨春蕾身为证监会系统党员领导干部，丧失理想信念，单独或伙同他人利用职务便利为他人谋利，非法收受财物，数额巨大，已构成严重职务违法并涉嫌受贿犯罪，性质严重、影响恶劣中央纪委国家监委。
 
-住在胡同里，学中文、逛公园、看京剧，这个巴黎人过上了“老北京”的日子。
+2023 年 11 月：被开除党籍、开除公职（双开），案件移送司法机关央视网新闻频道。
 
-热爱舞台艺术的雅诗·依玛第一次接触京剧是看电影《霸王别姬》，还在巴黎吉美国立亚洲艺术博物馆观看了京剧《赵氏孤儿》的现场演出。
+2026 年 5 月 8 日：一审公开宣判，获刑七年并处罚金。
 
-“那是个感人的故事，还有演员动人的唱腔、美丽的服装和精致的妆容——我被舞台上的一切深深打动了！
-
-”去年十月她获得艺术8·法国奖，终于有机会来北京驻地。
-
-五月初，国家京剧院在梅兰芳大剧院上演经典剧目《大保国·探皇陵·二进宫》，她不仅观看了现场演出，更走进后台与演员交流、看他们上妆，感受京剧幕后的工作状态。
-
-“氛围很熟悉，但又很不同，这种似曾相识特别奇妙。
+责任编辑：尉旖涵
 
 ## 相关推荐
 
-- 2026-06-30 00:25 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 00:06 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 00:21 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 00:24 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 00:24 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 00:34 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 00:21 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 00:17 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 00:23 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 00:26 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 00:29 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 00:14 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 00:18 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 00:17 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 00:20 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 00:23 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 00:41 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 00:39 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 00:22 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 00:32 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 00:26 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 00:39 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 00:27 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:13 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/48404.shtml)
-- 2026-06-30 00:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/8462125.shtml)
-- 2026-06-30 00:27 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/75686673.shtml)
-- 2026-06-30 00:23 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/5483600.shtml)
-- 2026-06-30 00:19 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/679725.shtml)
-- 2026-06-30 00:21 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/02462896138.shtml)
-- 2026-06-30 00:26 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/53320885505.shtml)
-- 2026-06-30 00:28 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/17891273.shtml)
-- 2026-06-30 00:25 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/3521918.shtml)
-- 2026-06-30 00:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/1836218.shtml)
-- 2026-06-30 00:33 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/75178073.shtml)
-- 2026-06-30 00:12 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/947010627.shtml)
-- 2026-06-30 00:12 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/54715.shtml)
-- 2026-06-30 00:28 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/437329518242.shtml)
-- 2026-06-30 00:23 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/7973180.shtml)
+- 2026-06-30 00:41 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/170526674.shtml)
+- 2026-06-30 00:16 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/78796.shtml)
+- 2026-06-30 00:20 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/545443.shtml)
+- 2026-06-30 00:27 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/818262829.shtml)
+- 2026-06-30 00:14 - [送你一朵小红花](https://www.blog.minike.top/Article/details/51158.shtml)
+- 2026-06-30 00:14 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/46189984.shtml)
+- 2026-06-30 00:31 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/191524772027.shtml)
+- 2026-06-30 00:24 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/839132.shtml)
+- 2026-06-30 00:22 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/09088168856.shtml)
+- 2026-06-30 00:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/60479099683.shtml)
+- 2026-06-30 00:24 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/723328.shtml)
+- 2026-06-30 00:34 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/863017964.shtml)
+- 2026-06-30 00:36 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/11263746.shtml)
+- 2026-06-30 00:18 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/06846551.shtml)
+- 2026-06-30 00:31 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/276983324.shtml)

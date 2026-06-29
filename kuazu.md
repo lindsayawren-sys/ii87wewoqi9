@@ -1,58 +1,61 @@
-# 华泰期货：地缘通胀博弈 铜市震荡运行
+# 迟福林：RCEP成为推进全球自由贸易的重要力量
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 师橙 市场要闻与重要数据 现货情况： 据SMM讯，2026-06-13当周，SMM1#电解铜平均价格运行于103260元/吨至104720元/吨，周中呈现探底回升的态势。SMM升贴水报价运行于-10元/吨至40元/吨。库存方面，2026-06-13当周，LME库存变动-1.27万吨至36.41万吨，上期所库存变化1.87万吨至18.82万吨。国内社会库存
+中新网海口5月9日电 (记者 张茜翼)2026RCEP区域发展媒体智库论坛9日在海口市举行。中国(海南)改革发展研究院院长、海南自由贸易港研究院院长迟福林在论坛中表示，RCEP不仅是区域自由贸易协定，更是东亚地区应对变局的重要力量；不仅是区域经济一体化的重要抓手，更是维护全球自由贸易的“稳定器”。 迟福林认为，RCEP将亚太15国深深嵌合在全球最具活力的产业链与供应链版图之中，
 
 ## 正文
 
-来源：华泰期货 作者： 师橙 市场要闻与重要数据 现货情况： 据SMM讯，2026-06-13当周，SMM1#电解铜平均价格运行于103260元/吨至104720元/吨，周中呈现探底回升的态势。
+中新网海口5月9日电 (记者 张茜翼)2026RCEP区域发展媒体智库论坛9日在海口市举行。
 
-SMM升贴水报价运行于-10元/吨至40元/吨。
+中国(海南)改革发展研究院院长、海南自由贸易港研究院院长迟福林在论坛中表示，RCEP不仅是区域自由贸易协定，更是东亚地区应对变局的重要力量；不仅是区域经济一体化的重要抓手，更是维护全球自由贸易的“稳定器”。
 
-库存方面，2026-06-13当周，LME库存变动-1.27万吨至36.41万吨，上期所库存变化1.87万吨至18.82万吨。
+迟福林认为，RCEP将亚太15国深深嵌合在全球最具活力的产业链与供应链版图之中，已成为推动区域经济一体化与新的经济全球化的重要力量。
 
-国内社会库存（不含保税区）变化-1.52万吨至21.78万吨，保税区库存变动0.78万吨至5.61万吨。
+“当前世界地缘格局新变化对RCEP带来严重冲击。
 
-Comex库存上涨0.59万吨至65.04万短吨。
+”迟福林举例道，RCEP大部分经济体对中东能源高度依赖。
 
-观点： 宏观方面，2026-06-13当周，市场主要受地缘政治与美国通胀数据双重影响，两大主线相互博弈牵动全球风险资产与大宗商品情绪。
+2025年，RCEP区域超80%原油进口需经霍尔木兹海峡运输。
 
-美伊和谈取得实质性进展，双方有望快速签署和平协议，伊朗主动释放善意并放行油轮通行，霍尔木兹海峡紧张局势大幅缓解，原油地缘溢价显著回落，整体市场避险情绪降温，风险偏好有所回升。
+更加不确定的外部环境倒逼区域内强化合作，以提升区域经济增长的稳定性。
 
-与此同时，美国 5 月 CPI 数据大幅超预期，同比涨幅突破 4%，为三年来新高，叠加 PPI 同步走高，通胀粘性再度凸显。
+RCEP协定指出，协议的目的在于“扩大并深化本地区经济一体化，增强经济增长和公平的经济发展，推进经济合作”。
 
 ## 相关推荐
 
-- 2026-06-30 00:32 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 00:22 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 00:33 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 00:33 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-30 00:28 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 00:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 00:10 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 00:25 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 00:27 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 00:22 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 00:09 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 00:07 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 00:36 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 00:19 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 00:25 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 00:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 00:20 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 00:17 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 00:20 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 00:24 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 00:19 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 00:28 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 00:27 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 00:38 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 00:41 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 00:40 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 00:21 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/65657361.shtml)
-- 2026-06-30 00:33 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/42448787.shtml)
-- 2026-06-30 00:27 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/247612.shtml)
-- 2026-06-30 00:33 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/3525368.shtml)
-- 2026-06-30 00:15 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/99817360453.shtml)
-- 2026-06-30 00:07 - [女心理师](http://www.share.minike.top/Article/details/257611.shtml)
-- 2026-06-30 00:32 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/923313135726.shtml)
-- 2026-06-30 00:16 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/479392000.shtml)
-- 2026-06-30 00:09 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/74193.shtml)
-- 2026-06-30 00:29 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/869180.shtml)
-- 2026-06-30 00:33 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/59479320449.shtml)
-- 2026-06-30 00:13 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/74125.shtml)
-- 2026-06-30 00:31 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/3732091.shtml)
-- 2026-06-30 00:09 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/20009.shtml)
-- 2026-06-30 00:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/11176467.shtml)
+- 2026-06-30 00:33 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/5312007272.shtml)
+- 2026-06-30 00:36 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/50807.shtml)
+- 2026-06-30 00:13 - [85花告别古偶](https://www.blog.minike.top/Article/details/200311981830.shtml)
+- 2026-06-30 00:28 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/604393591.shtml)
+- 2026-06-30 00:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/17647.shtml)
+- 2026-06-30 00:19 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/550767.shtml)
+- 2026-06-30 00:15 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/42651.shtml)
+- 2026-06-30 00:32 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/30531542530.shtml)
+- 2026-06-30 00:25 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/914012304.shtml)
+- 2026-06-30 00:22 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/94727554.shtml)
+- 2026-06-30 00:13 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/29009.shtml)
+- 2026-06-30 00:21 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/5000946744.shtml)
+- 2026-06-30 00:23 - [流金岁月](https://www.share.kurohicncr.top/Article/details/479757926.shtml)
+- 2026-06-30 00:33 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/262697488.shtml)
+- 2026-06-30 00:32 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/4968317295.shtml)

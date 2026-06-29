@@ -1,59 +1,61 @@
-# 云南普洱“十五五”锚定国际生态旅游胜地
+# Planet Fitness财报再度令人失望，分析师决定下调评级
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月12日电 (陆希成 汪成)云南省“开局起步‘十五五’”主题系列新闻发布会·普洱专场12日在昆明举行。中共普洱市委副书记、普洱市人民政府市长王刚表示，“十五五”时期，普洱将全力建设绿色经济示范区、兴边富民示范区、国际生态旅游胜地，力争地区生产总值年均增长5%左右，接待游客突破3.5亿人次、旅游总花费突破3000亿元(人民币，下同)。 普洱市地处云南省西南部，与越南、
+Planet Fitness周四股价暴跌逾30%，创下2020年4月以来新低。尽管一季度营收和利润双双超出华尔街预期，但公司大幅下调全年指引、暂停涨价计划，并撤回此前公布的三年增长算法。威廉·布莱尔已将该股评级从跑赢大盘下调至市场表现。 一季度财报显示，营收同比增长21.9%至3.372亿美元，调整后每股收益0.74美元，均高于市场预期。同店销售额增长3.5%，会员总数达215
 
 ## 正文
 
-中新网昆明6月12日电 (陆希成 汪成)云南省“开局起步‘十五五’”主题系列新闻发布会·普洱专场12日在昆明举行。
+Planet Fitness周四股价暴跌逾30%，创下2020年4月以来新低。
 
-中共普洱市委副书记、普洱市人民政府市长王刚表示，“十五五”时期，普洱将全力建设绿色经济示范区、兴边富民示范区、国际生态旅游胜地，力争地区生产总值年均增长5%左右，接待游客突破3.5亿人次、旅游总花费突破3000亿元(人民币，下同)。
+尽管一季度营收和利润双双超出华尔街预期，但公司大幅下调全年指引、暂停涨价计划，并撤回此前公布的三年增长算法。
 
-普洱市地处云南省西南部，与越南、老挝、缅甸接壤，素有“一市连三国、一江通五邻”之称。
+威廉·布莱尔已将该股评级从跑赢大盘下调至市场表现。
 
-当地森林覆盖率超70%，林地面积、森林蓄积量均居云南省首位，被誉为“世界茶源·中国咖啡之都”。
+一季度财报显示，营收同比增长21.9%至3.372亿美元，调整后每股收益0.74美元，均高于市场预期。
 
-依托茶文化和生态资源，普洱旅游业近年来持续升温。
+同店销售额增长3.5%，会员总数达2150万的历史新高。
 
-景迈山古茶林文化景观申遗成功后，当地游客量增长近50%，旅居人数突破43.7万，今年春节旅游多项指标增速跻身全国前十。
+然而，令市场不安的是新会员增长显著放缓。
 
-普洱市人民政府副市长胡剑荣介绍，“十五五”期间，普洱将加快景迈山国家5A级旅游景区创建，培育茶旅、咖旅、研学旅居、生态康养等新业态。
+一季度净增会员超70万，但较去年同期下降约36%。
 
-今年3月，中国首部茶马古道专项法规《普洱市茶马古道文化遗产保护条例》施行，当地将以法治护航茶马古道文化活态传承，让普洱从古道的起点变为文明交流的支点。
+首席执行官Colleen Keating表示，2026年开局净会员增长慢于预期，公司在高峰注册期面临内外阻力。
 
 ## 相关推荐
 
-- 2026-06-30 00:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 00:35 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 00:17 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 00:21 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-30 00:22 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 00:33 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 00:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 00:08 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 00:13 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 00:08 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 00:16 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 00:15 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 00:13 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 00:30 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 00:27 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 00:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 00:32 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 00:31 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 00:37 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 00:36 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 00:17 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 00:22 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 00:14 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 00:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 00:37 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 00:28 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 00:40 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 00:25 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:11 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/3510329.shtml)
-- 2026-06-30 00:22 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/031772310667.shtml)
-- 2026-06-30 00:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/5628862437.shtml)
-- 2026-06-30 00:35 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/6831639723.shtml)
-- 2026-06-30 00:27 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/93187.shtml)
-- 2026-06-30 00:25 - [张凌赫 客串](http://www.share.minike.top/Article/details/544670594.shtml)
-- 2026-06-30 00:18 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/1859160792.shtml)
-- 2026-06-30 00:13 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/8435927659.shtml)
-- 2026-06-30 00:28 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/47934286.shtml)
-- 2026-06-30 00:20 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/9202147779.shtml)
-- 2026-06-30 00:13 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/363380.shtml)
-- 2026-06-30 00:30 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/1334798.shtml)
-- 2026-06-30 00:23 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/082153919.shtml)
-- 2026-06-30 00:29 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/10162.shtml)
-- 2026-06-30 00:20 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/029975212.shtml)
+- 2026-06-30 00:25 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/52170608.shtml)
+- 2026-06-30 00:23 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/69097568454.shtml)
+- 2026-06-30 00:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/4650731622.shtml)
+- 2026-06-30 00:28 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/496981491.shtml)
+- 2026-06-30 00:37 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/58316.shtml)
+- 2026-06-30 00:40 - [扬名立万](https://www.share.minike.top/Article/details/2871629.shtml)
+- 2026-06-30 00:38 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/6333538783.shtml)
+- 2026-06-30 00:39 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/1457412.shtml)
+- 2026-06-30 00:29 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/69830.shtml)
+- 2026-06-30 00:27 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/2208220197.shtml)
+- 2026-06-30 00:30 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/996892168461.shtml)
+- 2026-06-30 00:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/87509505916.shtml)
+- 2026-06-30 00:41 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/85246419243.shtml)
+- 2026-06-30 00:39 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/68112489.shtml)
+- 2026-06-30 00:22 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/53260.shtml)

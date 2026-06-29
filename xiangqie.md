@@ -1,60 +1,56 @@
-# 长城基金尤国梁：商业航天板块下半年景气可期，有望迎来多重产业催化
+# OpenAI与博通1800亿美元芯片豪赌：首期耗资180亿 但微软采购承诺仍未落地
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今年以来，A股结构性行情特点较为鲜明。相较于一路走强的光模块、芯片等AI硬科技赛道，同为高成长科技方向的商业航天板块走势相对分化。板块在前期冲高过后，近期持续震荡休整。商业航天板块还有投资机会吗？产业中长期成长逻辑是否扎实？放眼整条产业链，哪些细分领域更具投资价值？围绕广大投资者关心的问题，近日，长城久嘉创
+当OpenAI和芯片设计公司博通去年秋天宣布将共同制造定制人工智能芯片时，他们将此定位为一笔已成定局的交易。 两家公司表示，该交易将在2030年前让足够多的芯片上线，消耗10吉瓦的电力，相当于五个胡佛水坝的发电量，旨在减少OpenAI对英伟达硬件的昂贵依赖。 他们没有说的是，他们还没弄清楚OpenAI将如何为该项目买单。 数月后，根据一份内部备忘录和两位参与谈判的人士的说法，两
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+当OpenAI和芯片设计公司博通去年秋天宣布将共同制造定制人工智能芯片时，他们将此定位为一笔已成定局的交易。
 
-今年以来，A股结构性行情特点较为鲜明。
+两家公司表示，该交易将在2030年前让足够多的芯片上线，消耗10吉瓦的电力，相当于五个胡佛水坝的发电量，旨在减少OpenAI对英伟达硬件的昂贵依赖。
 
-相较于一路走强的光模块、芯片等AI硬科技赛道，同为高成长科技方向的商业航天板块走势相对分化。
+他们没有说的是，他们还没弄清楚OpenAI将如何为该项目买单。
 
-板块在前期冲高过后，近期持续震荡休整。
+数月后，根据一份内部备忘录和两位参与谈判的人士的说法，两家公司正在谈判一项协议，由博通为芯片生产的第一阶段提供资金，该阶段将消耗1.3吉瓦的数据中心容量，耗资约180亿美元。
 
-商业航天板块还有投资机会吗？
+按此计算，整个10吉瓦的项目（代号Nexus）仅芯片生产一项就可能耗资1800亿美元，这还不包括数据中心建设和其他成本。
 
-产业中长期成长逻辑是否扎实？
+确保融资对OpenAI至关重要，因为这家ChatGPT制造商预计，到2029年，其运营将烧掉超过2000亿美元。
 
-放眼整条产业链，哪些细分领域更具投资价值？
+使用自己的芯片是OpenAI降低服务器成本和提高毛利润率目标的核心。
 
-围绕广大投资者关心的问题，近日，长城久嘉创新成长混合基金经理尤国梁做客中国证券报直播间，就这些问题进行了专业而详尽的解读。
+但谈判遇到了一个潜在问题。
 
 ## 相关推荐
 
-- 2026-06-30 00:12 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 00:28 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 00:19 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 00:17 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 00:31 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 00:18 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 00:10 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 00:21 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 00:28 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 00:21 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 00:12 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 00:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 00:20 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 00:07 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 00:20 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 00:30 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 00:29 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 00:34 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 00:27 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 00:35 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 00:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 00:20 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 00:39 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 00:21 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:34 - [新官上任三把火](https://www.share.minike.top/Article/details/213521256.shtml)
-- 2026-06-30 00:28 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/1017162144.shtml)
-- 2026-06-30 00:33 - [金牌调解](http://www.share.minike.top/Article/details/10589684.shtml)
-- 2026-06-30 00:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/55364.shtml)
-- 2026-06-30 00:25 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/3891073631.shtml)
-- 2026-06-30 00:11 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/429747598255.shtml)
-- 2026-06-30 00:31 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/22039.shtml)
-- 2026-06-30 00:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/78559175446.shtml)
-- 2026-06-30 00:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/15049.shtml)
-- 2026-06-30 00:17 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/644024439641.shtml)
-- 2026-06-30 00:14 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/98226223.shtml)
-- 2026-06-30 00:27 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/8288472.shtml)
-- 2026-06-30 00:12 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/34329253.shtml)
-- 2026-06-30 00:14 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/00868316298.shtml)
-- 2026-06-30 00:19 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/109587942.shtml)
+- 2026-06-30 00:23 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/4914122.shtml)
+- 2026-06-30 00:12 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/06200221.shtml)
+- 2026-06-30 00:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/26769495.shtml)
+- 2026-06-30 00:38 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/663768.shtml)
+- 2026-06-30 00:16 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/7805865877.shtml)
+- 2026-06-30 00:32 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/9870930857.shtml)
+- 2026-06-30 00:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/3321404550.shtml)
+- 2026-06-30 00:18 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/413754.shtml)
+- 2026-06-30 00:28 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/91699870.shtml)
+- 2026-06-30 00:36 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/4940131749.shtml)
+- 2026-06-30 00:16 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/81316523.shtml)
+- 2026-06-30 00:27 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/31487156601.shtml)
+- 2026-06-30 00:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/35956175665.shtml)
+- 2026-06-30 00:39 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/423777983.shtml)
+- 2026-06-30 00:13 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/967156.shtml)

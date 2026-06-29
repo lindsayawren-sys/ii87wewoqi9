@@ -1,58 +1,57 @@
-# 完善广告监管制度体系 市场监管总局出台《广告引证内容执法指南》
+# 为什么有些人更容易上当？揭开伪科学“易感体质”的心理密码
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网6月12日电 据“市说新语”微信公众号消息，近日，市场监管总局聚焦商业广告引证内容，出台《广告引证内容执法指南》(以下简称《指南》)，旨在进一步完善广告监管制度体系，规范市场监管部门广告引证内容监管工作，帮助广告活动主体提升广告引证内容合规能力。明确适用范围。《指南》明确“广告引证内容”“引证广告”等概念及其应当遵守的一般性原则，强调广告主依法应当对引证内容等广告内容的真
+我们身边似乎总有这样的人：在不同伪科学、保健品骗局中反复横跳消费。亲朋好友苦口婆心的劝说，敌不过推销员和“托儿”的花言巧语；科学的辟谣文章，打不破他们“万一有用”的幻想。 这背后，有一套作用于人性的心理机制，它与学历高低聪明与否无关，哪怕是高知人群，也会轻易掉入这样的陷阱。 今天，我们就来破译这份“易感体质”的心理密码。让我们先做个快速自测： 快速自测1.你是不是一看复杂解释就
 
 ## 正文
 
-中新网6月12日电 据“市说新语”微信公众号消息，近日，市场监管总局聚焦商业广告引证内容，出台《广告引证内容执法指南》(以下简称《指南》)，旨在进一步完善广告监管制度体系，规范市场监管部门广告引证内容监管工作，帮助广告活动主体提升广告引证内容合规能力。
+我们身边似乎总有这样的人：在不同伪科学、保健品骗局中反复横跳消费。
 
-明确适用范围。
+亲朋好友苦口婆心的劝说，敌不过推销员和“托儿”的花言巧语；科学的辟谣文章，打不破他们“万一有用”的幻想。
 
-《指南》明确“广告引证内容”“引证广告”等概念及其应当遵守的一般性原则，强调广告主依法应当对引证内容等广告内容的真实性、准确性、合法性负责，并依法承担举证责任。
+这背后，有一套作用于人性的心理机制，它与学历高低聪明与否无关，哪怕是高知人群，也会轻易掉入这样的陷阱。
 
-规范引证内容。
+今天，我们就来破译这份“易感体质”的心理密码。
 
-《指南》针对实验测量、统计调查、文献资料等不同情形，细化不同类型引证内容的规范性要求，并对广告引证内容构成虚假广告的情形等作出分类说明，回应社会关切。
+让我们先做个快速自测： 快速自测1.你是不是一看复杂解释就头大，总想有人直接告诉你该信啥？
 
-细化监管规则。
+2.家人、朋友说好用的东西，你是不是会不自觉地跟着买？
 
-对“大字吸睛，小字免责”的广告，从正反两个方面对广告内容作出具体明确的要求，并对借绝对化用语等导致消费者对其市场地位、竞争优势产生错误认知的违法情形作细化列举，以进一步健全广告监管制度体系。
+3.你是不是觉得那些花小钱办大事的好运，特别容易落到自己头上？
 
-下一步，市场监管总局将指导地方市场监管部门，结合当前正在开展的广告提示性用语乱象清理整治工作，进一步遏制“大字吸睛、小字免责”“先射箭后画靶”等违法广告，缓解广告主“营销焦虑”，引导其主动摈弃“文字游戏”式广告，切实防范通过制造所谓“萝卜坑赛道冠军”等手段加剧“内卷式”竞争。
+如果你的答案中有“是”，那么这篇文章正是为你准备的“思想疫苗”。
 
 ## 相关推荐
 
-- 2026-06-30 00:33 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 00:15 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 00:16 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 00:21 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 00:13 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 00:06 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 00:27 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 00:10 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 00:18 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 00:32 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 00:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 00:14 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 00:19 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 00:31 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 00:34 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 00:36 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 00:30 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 00:14 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 00:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 00:20 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 00:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 00:37 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 00:27 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:17 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/6820747885.shtml)
-- 2026-06-30 00:32 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/60439.shtml)
-- 2026-06-30 00:30 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/73122351620.shtml)
-- 2026-06-30 00:10 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/658787087072.shtml)
-- 2026-06-30 00:18 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/418452033594.shtml)
-- 2026-06-30 00:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/5772103.shtml)
-- 2026-06-30 00:08 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/0730461.shtml)
-- 2026-06-30 00:06 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/690093.shtml)
-- 2026-06-30 00:29 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/898699.shtml)
-- 2026-06-30 00:11 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/747390853.shtml)
-- 2026-06-30 00:25 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/526169414704.shtml)
-- 2026-06-30 00:09 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/142382.shtml)
-- 2026-06-30 00:12 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/00564.shtml)
-- 2026-06-30 00:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/95279.shtml)
-- 2026-06-30 00:14 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/139178739.shtml)
+- 2026-06-30 00:24 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/3923441.shtml)
+- 2026-06-30 00:19 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/6980499.shtml)
+- 2026-06-30 00:31 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/62000.shtml)
+- 2026-06-30 00:28 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/8228535.shtml)
+- 2026-06-30 00:37 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/241372.shtml)
+- 2026-06-30 00:18 - [扫黑风暴](https://www.blog.minike.top/Article/details/460963157.shtml)
+- 2026-06-30 00:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/116963889648.shtml)
+- 2026-06-30 00:38 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/2966842282.shtml)
+- 2026-06-30 00:14 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/8868928053.shtml)
+- 2026-06-30 00:24 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/68162.shtml)
+- 2026-06-30 00:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/770287065572.shtml)
+- 2026-06-30 00:27 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/95241131359.shtml)
+- 2026-06-30 00:33 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/0662151.shtml)
+- 2026-06-30 00:38 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/9194266066.shtml)
+- 2026-06-30 00:18 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/192652.shtml)

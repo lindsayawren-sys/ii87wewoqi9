@@ -1,58 +1,53 @@
-# 美伊临时协议缓解通胀压力，黄金大涨逾2%，市场重新评估美联储政策前景
+# 探访武夷山国家公园：走进“络腮胡”藏酋猴的天然乐园
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 随着美国与伊朗达成临时协议，持续数月的地区军事冲突出现缓和迹象，市场对于霍尔木兹海峡运输中断的担忧明显下降。作为全球重要的能源运输通道，霍尔木兹海峡承担全球约20%的海运原油运输，其恢复正常通航意味着全球原油供应紧张风险有所缓解，推动国际油价明显回落。 能源价格下跌改善了市场对于未来通胀走势的预期。此前，中东局势升级一度推动油价快速上涨，令投资者担心能源成本
+发布时间：2026年05月09日 19:50 来源：中国新闻网 近日，中新社记者走进武夷山国家公园腹地桐木村，近距离探访中国特有灵长类动物藏酋猴的栖息地。成群的藏酋猴在林间嬉戏、觅食，有的蹲着梳理毛发，有的抱着幼崽在桥栏上休息，成年雄性标志性的白色“络腮胡”格外醒目，憨态可掬。 藏酋猴是国家二级保护动物，被世界自然保护联盟列为近危物种，也是亚洲体型最大的猕猴。武夷山国家公园拥有
 
 ## 正文
 
-文章来源：汇通财经 随着美国与伊朗达成临时协议，持续数月的地区军事冲突出现缓和迹象，市场对于霍尔木兹海峡运输中断的担忧明显下降。
+发布时间：2026年05月09日 19:50 来源：中国新闻网 近日，中新社记者走进武夷山国家公园腹地桐木村，近距离探访中国特有灵长类动物藏酋猴的栖息地。
 
-作为全球重要的能源运输通道，霍尔木兹海峡承担全球约20%的海运原油运输，其恢复正常通航意味着全球原油供应紧张风险有所缓解，推动国际油价明显回落。
+成群的藏酋猴在林间嬉戏、觅食，有的蹲着梳理毛发，有的抱着幼崽在桥栏上休息，成年雄性标志性的白色“络腮胡”格外醒目，憨态可掬。
 
-能源价格下跌改善了市场对于未来通胀走势的预期。
+藏酋猴是国家二级保护动物，被世界自然保护联盟列为近危物种，也是亚洲体型最大的猕猴。
 
-此前，中东局势升级一度推动油价快速上涨，令投资者担心能源成本上升会引发更广泛的价格压力，并促使全球主要央行维持更长时间的紧缩政策。
+武夷山国家公园拥有世界同纬度最完整、最典型的中亚热带森林生态系统，为藏酋猴提供了理想的生存环境。
 
-随着和平协议出现，市场重新调整对于通胀和利率路径的判断。
+近年来，得益于武夷山国家公园实施的生态保护措施，园区内野生藏酋猴种群数稳定增长，核心区域桐木村附近山林成为藏酋猴繁衍生息的天然乐园。
 
-市场机构分析认为，油价下跌削弱了通胀上行风险，使主要央行进一步收紧政策的必要性下降。
-
-XTB分析师凯瑟琳·布鲁克斯指出，和平协议对油价形成明显压力，进而缓解了市场的通胀担忧，而这一消息出现在全球主要央行会议密集召开前夕，使市场对于未来货币政策的预期发生变化。
-
-受此影响，黄金市场迎来明显反弹，现货黄金及黄金期货价格均上涨超过2%。
+(记者 王东明 李思源） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 00:14 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 00:18 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 00:29 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 00:25 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 00:29 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 00:19 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 00:25 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 00:28 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 00:10 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 00:27 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 00:31 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 00:13 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 00:30 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 00:27 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 00:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 00:36 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 00:37 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 00:26 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 00:19 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 00:29 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 00:17 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 00:33 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 00:16 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:28 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/92404.shtml)
-- 2026-06-30 00:23 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/3317480913.shtml)
-- 2026-06-30 00:31 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/9537005.shtml)
-- 2026-06-30 00:11 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/0164249.shtml)
-- 2026-06-30 00:12 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/41410604.shtml)
-- 2026-06-30 00:23 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/36182.shtml)
-- 2026-06-30 00:19 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/87565598.shtml)
-- 2026-06-30 00:16 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/72206130.shtml)
-- 2026-06-30 00:28 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/4827343.shtml)
-- 2026-06-30 00:25 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/62020.shtml)
-- 2026-06-30 00:21 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/5627687715.shtml)
-- 2026-06-30 00:24 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/74004241521.shtml)
-- 2026-06-30 00:15 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/15180971.shtml)
-- 2026-06-30 00:27 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/109291983.shtml)
-- 2026-06-30 00:13 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/121946.shtml)
+- 2026-06-30 00:13 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/431772542876.shtml)
+- 2026-06-30 00:16 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/991834481321.shtml)
+- 2026-06-30 00:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/7638105856.shtml)
+- 2026-06-30 00:16 - [斛珠夫人](http://www.share.minike.top/Article/details/388705.shtml)
+- 2026-06-30 00:30 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/2661879.shtml)
+- 2026-06-30 00:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/694315.shtml)
+- 2026-06-30 00:39 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/444738.shtml)
+- 2026-06-30 00:20 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/117181.shtml)
+- 2026-06-30 00:35 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/056417657.shtml)
+- 2026-06-30 00:12 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/5401574.shtml)
+- 2026-06-30 00:36 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/008054.shtml)
+- 2026-06-30 00:22 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/182671597185.shtml)
+- 2026-06-30 00:24 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/84054.shtml)
+- 2026-06-30 00:41 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/34120059.shtml)
+- 2026-06-30 00:23 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/84212704216.shtml)

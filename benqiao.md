@@ -1,58 +1,60 @@
-# 雄安新区2026年“文化和自然遗产日”非遗宣传展示活动举办
+# 互联网保险消费者呈现“三化”特点
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！“世界杯魔咒”失灵了？一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？新能源
+2026年5月7日，元保联合清华大学五道口金融学院中国保险与养老金融研究中心共同发布的《2025年中国互联网保险消费者洞察报告》显示，2025年的互联网保险消费者呈现出明显的线上化、智能化、理性化等特点。 从总量上看，在2025年，互联网保险消费者在保的保险产品前三分别为重疾险、汽车商业险、意外险；在保的互联网保险产品前三为意外险、重疾险、汽车商业险。上述报告还发现，在2025
 
 ## 正文
 
-美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！
+2026年5月7日，元保联合清华大学五道口金融学院中国保险与养老金融研究中心共同发布的《2025年中国互联网保险消费者洞察报告》显示，2025年的互联网保险消费者呈现出明显的线上化、智能化、理性化等特点。
 
-“世界杯魔咒”失灵了？
+从总量上看，在2025年，互联网保险消费者在保的保险产品前三分别为重疾险、汽车商业险、意外险；在保的互联网保险产品前三为意外险、重疾险、汽车商业险。
 
-一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？
+上述报告还发现，在2025年消费者新购买的互联网保险产品中，意外险位列第一。
 
-为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？
+宠物险是互联网保险赛道里全新的增长引擎：2025年宠物险在养宠群体中的渗透率两年间增长30%，全年龄段用户的渗透率均实现上涨。
 
-新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！
+其中，18—30岁的养宠人群中，52%都购置了宠物险。
 
-世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？
+元保相关负责人表示，消费者对意外险的重视，回应了当下的生活消费趋势。
 
-鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，人们在意的从不只是一只腿湖南同日打落多名官员，此前烟花爆炸事故致37人死亡掷纸飞机、彩虹跑！
+每个假期，特种兵旅行的打工人挤满旅游景点；曾经小众的运动风靡，从桨板、飞盘到攀岩，徒步、网球；运动户外品牌爆发，成为新的时尚潮流——意外险的消费场景呈现碎片化、场景化特征，正对应着旅行、运动意外、宠物抓伤、儿童校园意外等细分场景。
 
-长沙高考毕业生花式庆祝毕业重庆冷冻浓缩果汁首次自营出口欧盟再见了按钮！
+而新能源汽车销量的增长带动了商业车险的增加。
 
 ## 相关推荐
 
-- 2026-06-30 00:11 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 00:11 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 00:23 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 00:34 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 00:15 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-30 00:14 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 00:21 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 00:28 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 00:31 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 00:15 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 00:32 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 00:06 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 00:19 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 00:17 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 00:24 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 00:23 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 00:34 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 00:19 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 00:27 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 00:36 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 00:27 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 00:27 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 00:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 00:19 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 00:30 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 00:13 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:20 - [恋与深空致歉](https://www.blog.minike.top/Article/details/727639004.shtml)
-- 2026-06-30 00:13 - [恋与深空致歉](http://www.share.minike.top/Article/details/84391.shtml)
-- 2026-06-30 00:21 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/5764346485.shtml)
-- 2026-06-30 00:25 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/27314585341.shtml)
-- 2026-06-30 00:11 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/4948667987.shtml)
-- 2026-06-30 00:22 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/1545538.shtml)
-- 2026-06-30 00:07 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/226780.shtml)
-- 2026-06-30 00:34 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/1062126194.shtml)
-- 2026-06-30 00:13 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/28006883021.shtml)
-- 2026-06-30 00:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/00062992.shtml)
-- 2026-06-30 00:35 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/2615457.shtml)
-- 2026-06-30 00:12 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/76825.shtml)
-- 2026-06-30 00:32 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/093681919.shtml)
-- 2026-06-30 00:32 - [沙丘](https://www.blog.kurohicncr.top/Article/details/0189359104.shtml)
-- 2026-06-30 00:28 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/7317766.shtml)
+- 2026-06-30 00:14 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/174088863782.shtml)
+- 2026-06-30 00:33 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/8386413.shtml)
+- 2026-06-30 00:38 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/74544125.shtml)
+- 2026-06-30 00:22 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/968734642567.shtml)
+- 2026-06-30 00:23 - [第一炉香](https://www.blog.minike.top/Article/details/24823.shtml)
+- 2026-06-30 00:19 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/04920572.shtml)
+- 2026-06-30 00:40 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/065222995835.shtml)
+- 2026-06-30 00:25 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/174374876730.shtml)
+- 2026-06-30 00:27 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/2827713082.shtml)
+- 2026-06-30 00:27 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/56173.shtml)
+- 2026-06-30 00:27 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/027749972.shtml)
+- 2026-06-30 00:23 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/0160715838.shtml)
+- 2026-06-30 00:32 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/087388167697.shtml)
+- 2026-06-30 00:27 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/47049589.shtml)
+- 2026-06-30 00:26 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/620762675.shtml)

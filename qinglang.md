@@ -1,61 +1,55 @@
-# 第三届“红旗杯”法兰克福国际龙舟节举办
+# 奋力谱写中国式现代化甘肃篇章 推动吉林全面振兴取得新突破
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网柏林6月14日电 法兰克福消息：第三届“红旗杯”法兰克福国际龙舟节12日在法兰克福开幕。当地民众、华侨华人和国际友人齐聚美因河畔，共同见证这一文化盛会。 中国驻法兰克福总领事黄昳扬表示，今年是法兰克福国际龙舟节连续第三年举办。三年来，大家因龙舟相聚，因文化相知，因友谊相连。从龙舟竞渡到文化展演，从美食市集到城市推介，从中德交流到亚洲多元文化互动，龙舟节正逐步形成自己的特色
+【“十五五”开好局起好步】奋力谱写中国式现代化甘肃篇章 推动吉林全面振兴取得新突破 央视网消息(新闻联播)：近日，甘肃、吉林分别举行“开局起步‘十五五’”专题新闻发布会，围绕当地“十五五”规划纲要，深入解读发展目标、重点任务和实施路径。 奋力谱写中国式现代化甘肃篇章 “十五五”时期，甘肃将围绕构建现代化产业体系、加快科教强省建设、推动能源强省建设等16个方面部署重大任务、重大举
 
 ## 正文
 
-中新网柏林6月14日电 法兰克福消息：第三届“红旗杯”法兰克福国际龙舟节12日在法兰克福开幕。
+【“十五五”开好局起好步】奋力谱写中国式现代化甘肃篇章 推动吉林全面振兴取得新突破 央视网消息(新闻联播)：近日，甘肃、吉林分别举行“开局起步‘十五五’”专题新闻发布会，围绕当地“十五五”规划纲要，深入解读发展目标、重点任务和实施路径。
 
-当地民众、华侨华人和国际友人齐聚美因河畔，共同见证这一文化盛会。
+奋力谱写中国式现代化甘肃篇章 “十五五”时期，甘肃将围绕构建现代化产业体系、加快科教强省建设、推动能源强省建设等16个方面部署重大任务、重大举措、重大平台，深入实施强科技、强工业、强县域、强省会、强基础行动，推动经济实现质的有效提升和量的合理增长。
 
-中国驻法兰克福总领事黄昳扬表示，今年是法兰克福国际龙舟节连续第三年举办。
+未来五年，甘肃将打造4个国家先进制造业集群、6个千亿级产业集群；大力发展现代寒旱特色农业，力争到2030年实现牛、羊、菜、果等八大产业集群产值达到8000亿元以上；实施“新能源+”十大行动，建设“陇电入鄂”“陇电入赣”两条新能源外送通道；加快黄河流域生态保护与治理，在河西走廊加快建成1686公里防风固沙林草带，坚决筑牢国家西部生态安全屏障。
 
-三年来，大家因龙舟相聚，因文化相知，因友谊相连。
+推动吉林全面振兴取得新突破 “十五五”时期，吉林围绕经济发展、创新驱动、民生福祉等5个方面设置23项重点指标，因地制宜发展新质生产力，推动汽车产业向智能网联新能源转型，打造世界级碳纤维产业化基地，培育壮大具身智能、氢能和现代储能、空天信息、生物制造等未来产业，推动产业结构由“一业独大”向“多业支撑”转型。
 
-从龙舟竞渡到文化展演，从美食市集到城市推介，从中德交流到亚洲多元文化互动，龙舟节正逐步形成自己的特色和品牌，成为法兰克福市民和各国朋友共同期待的夏日文化盛会。
-
-龙舟比赛最动人的地方，不只在于速度与力量，更在于同一条船上的人同心协力、步调一致。
-
-唯有心往一处想、劲往一处使，才能劈波斩浪、奋勇向前。
-
-龙舟文化所蕴含的这种团结协作、同舟共济精神跨越国界，使今天的美因河畔不仅洋溢着中国传统端午节的热烈气氛，也展现出亚洲与欧洲多元文化交相辉映的独特魅力。
+未来五年，吉林将谋划布局33项重大工程、370个重大项目，坚持发展现代化大农业，推动粮食产量迈上千亿斤台阶；构建新型能源体系，打造国家绿色能源产业高地；推动长春现代化都市圈建设，努力将规划纲要转化为群众可感可及的“幸福图景”。
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 00:30 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 00:21 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 00:33 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 00:21 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 00:23 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 00:33 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 00:29 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 00:11 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 00:25 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 00:17 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 00:25 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 00:25 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 00:24 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 00:16 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 00:23 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 00:23 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 00:22 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 00:13 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 00:34 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 00:31 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 00:38 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 00:21 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 00:37 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 00:21 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 00:24 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 00:15 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 00:23 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 00:36 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 00:36 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:20 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/096433.shtml)
-- 2026-06-30 00:20 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/995817792.shtml)
-- 2026-06-30 00:09 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/4825820401.shtml)
-- 2026-06-30 00:32 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/34673.shtml)
-- 2026-06-30 00:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/284680675573.shtml)
-- 2026-06-30 00:20 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/18933.shtml)
-- 2026-06-30 00:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/337430108711.shtml)
-- 2026-06-30 00:06 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/08562.shtml)
-- 2026-06-30 00:30 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/033514.shtml)
-- 2026-06-30 00:26 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/9653718.shtml)
-- 2026-06-30 00:11 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/34920.shtml)
-- 2026-06-30 00:20 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/330231.shtml)
-- 2026-06-30 00:19 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/97311623643.shtml)
-- 2026-06-30 00:09 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/873496.shtml)
-- 2026-06-30 00:31 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/3701584920.shtml)
+- 2026-06-30 00:15 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/72661561068.shtml)
+- 2026-06-30 00:34 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/40733.shtml)
+- 2026-06-30 00:29 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/890811146721.shtml)
+- 2026-06-30 00:12 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/034323242402.shtml)
+- 2026-06-30 00:12 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/950868177918.shtml)
+- 2026-06-30 00:12 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/127736005788.shtml)
+- 2026-06-30 00:23 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/9209351.shtml)
+- 2026-06-30 00:30 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/0903589.shtml)
+- 2026-06-30 00:14 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/34708191.shtml)
+- 2026-06-30 00:18 - [东方风云榜直播](https://www.share.minike.top/Article/details/2851644.shtml)
+- 2026-06-30 00:28 - [千与千寻](http://www.blog.minike.top/Article/details/00352645.shtml)
+- 2026-06-30 00:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/56884872.shtml)
+- 2026-06-30 00:29 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/5388168647.shtml)
+- 2026-06-30 00:40 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/357777028955.shtml)
+- 2026-06-30 00:21 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/78569.shtml)

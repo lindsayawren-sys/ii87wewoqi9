@@ -1,60 +1,57 @@
-# 2026中国·彭水阿依河第十四届国际漂流大赛收官 中外选手逐浪青山绿水间
+# 人民之心｜从实际出发、按规律办事
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月14日电(记者 肖江川)14日，2026中国·彭水阿依河第十四届国际漂流大赛暨第十届青龙谷户外运动挑战赛在风光旖旎的重庆彭水阿依河景区举行。本届赛事以“牵手娇阿依·趣漂阿依河”为主题，成功打造国内首个沉浸式苗族文化主题漂流赛事。 阿依河地处彭水苗族土家族自治县，苗家人把善良、美丽、聪慧的女子称为“娇阿依”，阿依河因此得名。阿依河漂流享有“西南第一漂”的美誉，全长1
+编者按：政绩观，是世界观、人生观、价值观在为政实践中的集中体现。在全党开展树立和践行正确政绩观学习教育之际，央视网《习语品读》特别推出系列报道，围绕习近平总书记关于树立和践行正确政绩观的重要论述，与您一起学习正确政绩观的丰富内涵与实践要求。 治国理政之道，贵在实事求是。 党员干部只有从实际出发，深入基层、深入群众、深入一线，才能真正摸清情况、找准问题、制定对策，在真抓实干中创造
 
 ## 正文
 
-中新网重庆6月14日电(记者 肖江川)14日，2026中国·彭水阿依河第十四届国际漂流大赛暨第十届青龙谷户外运动挑战赛在风光旖旎的重庆彭水阿依河景区举行。
+编者按：政绩观，是世界观、人生观、价值观在为政实践中的集中体现。
 
-本届赛事以“牵手娇阿依·趣漂阿依河”为主题，成功打造国内首个沉浸式苗族文化主题漂流赛事。
+在全党开展树立和践行正确政绩观学习教育之际，央视网《习语品读》特别推出系列报道，围绕习近平总书记关于树立和践行正确政绩观的重要论述，与您一起学习正确政绩观的丰富内涵与实践要求。
 
-阿依河地处彭水苗族土家族自治县，苗家人把善良、美丽、聪慧的女子称为“娇阿依”，阿依河因此得名。
+治国理政之道，贵在实事求是。
 
-阿依河漂流享有“西南第一漂”的美誉，全长13公里的天然赛道让选手们在尽情享受比赛的同时，还能欣赏到阿依河原生态美景。
+党员干部只有从实际出发，深入基层、深入群众、深入一线，才能真正摸清情况、找准问题、制定对策，在真抓实干中创造实实在在的政绩。
 
-本届赛事吸引了中国、德国、俄罗斯、巴基斯坦等中外500余名选手参赛。
+1988年，习近平调任福建宁德地委书记。
 
-赛事设置男子个人组、女子个人组、大众组(含亲子)三大组别，采用“越野跑+漂流”水陆两栖综合赛制。
+宁德作为“闽东老九”，当时的经济总量排在全省最末，是我国十八个集中连片贫困地区之一。
 
-选手们依次挑战青龙谷越野竞速、峡谷漂流、牛角寨至千步梯山地越野三大赛段。
+面对一些干部想带大家快速脱贫致富的急切心态，刚上任的习近平并没有立刻烧起“三把火”，而是深入基层扎扎实实搞起了调研，足迹遍布闽东九县。
 
-赛道沿途设置多处计时打卡点和能量补给站，阿依河景区以完善的配套设施和贴心的服务保障，为每一位选手带来良好的参赛体验。
+经过深入调研，掌握了当地实情的习近平认为，宁德的发展“要立足实际，不要有超过现实的思想，更不能心急”“不能寄希望于一下子抱个‘金娃娃’”。
 
 ## 相关推荐
 
-- 2026-06-30 00:14 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 00:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 00:35 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 00:15 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 00:09 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 00:09 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 00:12 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 00:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 00:25 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 00:13 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 00:09 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 00:06 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 00:20 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 00:20 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 00:13 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 00:20 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 00:12 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 00:41 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 00:28 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 00:27 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 00:33 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 00:24 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 00:34 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 00:25 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 00:26 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:14 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/39027.shtml)
-- 2026-06-30 00:22 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/52068449008.shtml)
-- 2026-06-30 00:23 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/622690.shtml)
-- 2026-06-30 00:06 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/4428118850.shtml)
-- 2026-06-30 00:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/0667212.shtml)
-- 2026-06-30 00:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/339693.shtml)
-- 2026-06-30 00:11 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/5705864241.shtml)
-- 2026-06-30 00:22 - [毒液2](https://www.share.minike.top/Article/details/6408170.shtml)
-- 2026-06-30 00:19 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/41026.shtml)
-- 2026-06-30 00:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/49189144.shtml)
-- 2026-06-30 00:16 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/08815172.shtml)
-- 2026-06-30 00:35 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/205837635505.shtml)
-- 2026-06-30 00:15 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/1876599015.shtml)
-- 2026-06-30 00:29 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/71027438416.shtml)
-- 2026-06-30 00:32 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/630446.shtml)
+- 2026-06-30 00:32 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/6751993186.shtml)
+- 2026-06-30 00:15 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/270525543740.shtml)
+- 2026-06-30 00:40 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/58735.shtml)
+- 2026-06-30 00:13 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/02385895498.shtml)
+- 2026-06-30 00:21 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/01983.shtml)
+- 2026-06-30 00:35 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/8106491.shtml)
+- 2026-06-30 00:32 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/480992176472.shtml)
+- 2026-06-30 00:38 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/23591033.shtml)
+- 2026-06-30 00:22 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/15330535552.shtml)
+- 2026-06-30 00:31 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/40734961.shtml)
+- 2026-06-30 00:25 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/937935169.shtml)
+- 2026-06-30 00:24 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/54267.shtml)
+- 2026-06-30 00:22 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/200557.shtml)
+- 2026-06-30 00:41 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/22644999.shtml)
+- 2026-06-30 00:14 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/9728556.shtml)

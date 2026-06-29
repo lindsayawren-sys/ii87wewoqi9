@@ -1,58 +1,59 @@
-# 6位科学家获第二届Wiley新锐科学家奖 中国学者破解蝗虫聚群成灾百年难题
+# 5月9日热门中概股涨跌不一 奇景光电涨10.98%，新东方跌4.94%
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网北京6月12日电 近日，威立(Wiley)第二届Wiley Star Scientist Award(Wiley新锐科学家奖)颁奖典礼在北京举行，6位青年科学家获得奖项。 颁奖典礼上，Wiley全球副总裁兼中国区总裁张莫依回顾了本届奖项的评选历程，并对各位获奖人和入围奖获得者致以诚挚的祝贺。中国科学院文献情报中心计量与评价部主任杨立英就本次奖项的遴选维度与评价体系进行了系
+5月9日热门中概股涨跌不一，纳斯达克中国金龙指数（HXC）收跌0.47%。 上涨个股（按市值从高到低）：日月光半导体涨2.65%，百度涨0.84%，联电涨1.72%，中华电信涨0.88%，贝壳涨2.47%，理想汽车涨2.27%，小鹏汽车涨0.45%，哔哩哔哩涨0.36%，万国数据涨1.44%，慧荣科技涨4.48%，名创优品涨0.79%，奇景光电涨10.98%。 下跌个股（按市值
 
 ## 正文
 
-中新网北京6月12日电 近日，威立(Wiley)第二届Wiley Star Scientist Award(Wiley新锐科学家奖)颁奖典礼在北京举行，6位青年科学家获得奖项。
+5月9日热门中概股涨跌不一，纳斯达克中国金龙指数（HXC）收跌0.47%。
 
-颁奖典礼上，Wiley全球副总裁兼中国区总裁张莫依回顾了本届奖项的评选历程，并对各位获奖人和入围奖获得者致以诚挚的祝贺。
+上涨个股（按市值从高到低）：日月光半导体涨2.65%，百度涨0.84%，联电涨1.72%，中华电信涨0.88%，贝壳涨2.47%，理想汽车涨2.27%，小鹏汽车涨0.45%，哔哩哔哩涨0.36%，万国数据涨1.44%，慧荣科技涨4.48%，名创优品涨0.79%，奇景光电涨10.98%。
 
-中国科学院文献情报中心计量与评价部主任杨立英就本次奖项的遴选维度与评价体系进行了系统介绍，北京大学心血管研究所所长董尔丹作为奖项评审专家委员会代表发言，详细阐释了奖项的评审机制与标准。
+下跌个股（按市值从高到低）：台积电跌0.63%，阿里巴巴跌0.67%，拼多多跌2.69%，网易跌1.02%，京东跌0.26%，携程跌1.29%，富途控股跌0.21%，中通跌1.07%，华住酒店集团跌1.51%，腾讯音乐跌0.22%，中国新城农村跌4.07%，满帮跌1.29%，新东方跌4.94%，唯品会跌0.42%，BOSS直聘跌1.54%，WSP控股跌1.43%，亚朵集团跌0.37%，金山云跌0.81%，小马智行跌3.53%，微牛跌2.50%，禾赛科技跌1.19%，欢聚跌0.20%。
 
-中国科学院动物研究所、研究员郭晓娇是本届奖项获奖者之一，她的研究方向是蝗虫群聚成灾机理与防控。
+美股周五收高，科技股领涨，标普500指数和纳斯达克综合指数再创历史新高。
 
-飞蝗过境，寸草不生，作为农业大国，蝗虫对农田的惊扰和侵害不容忽视。
+三大指数本周均录得涨幅，标普与纳指均为连续第六周上涨。
 
-这些生物为什么能迅速“集结”？
+美国4月非农就业数据好于预期。
 
-能否开辟化学农药之外的治蝗“新路径”？
+美伊在霍尔木兹海峡交火后，美国总统特朗普称停火协议仍然有效。
 
-郭晓娇的研究给出了答案。
+道指涨12.19点，涨幅为0.02%，报49609.16点；纳指涨440.88点，涨幅为1.71%，报26247.08点；标普500指数涨61.82点，涨幅为0.84%，报7398.93点。
 
 ## 相关推荐
 
-- 2026-06-30 00:29 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 00:12 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 00:24 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 00:17 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 00:17 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 00:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 00:19 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 00:16 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 00:11 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 00:28 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 00:31 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 00:07 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 00:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 00:34 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 00:32 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 00:32 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 00:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 00:36 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 00:15 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 00:30 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 00:23 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 00:14 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 00:23 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 00:38 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 00:24 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:34 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/36502792817.shtml)
-- 2026-06-30 00:14 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/7664297827.shtml)
-- 2026-06-30 00:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/592049916.shtml)
-- 2026-06-30 00:13 - [急先锋](https://www.blog.kurohicncr.top/Article/details/443139.shtml)
-- 2026-06-30 00:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/91661315343.shtml)
-- 2026-06-30 00:34 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/983289.shtml)
-- 2026-06-30 00:35 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/26654932947.shtml)
-- 2026-06-30 00:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/95795512.shtml)
-- 2026-06-30 00:32 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/099240481058.shtml)
-- 2026-06-30 00:07 - [山东发布山洪灾害气象预警](http://www.share.minike.top/Article/details/913865789057.shtml)
-- 2026-06-30 00:25 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/0576351626.shtml)
-- 2026-06-30 00:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/9963319798.shtml)
-- 2026-06-30 00:12 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/95811724.shtml)
-- 2026-06-30 00:24 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/308226.shtml)
-- 2026-06-30 00:23 - [金刚川](http://www.blog.kurohicncr.top/Article/details/44595074.shtml)
+- 2026-06-30 00:22 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/62816804.shtml)
+- 2026-06-30 00:38 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/5102252.shtml)
+- 2026-06-30 00:17 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/817181733.shtml)
+- 2026-06-30 00:15 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/0484916054.shtml)
+- 2026-06-30 00:35 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/53218.shtml)
+- 2026-06-30 00:33 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/92036910366.shtml)
+- 2026-06-30 00:22 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/75864.shtml)
+- 2026-06-30 00:14 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/28454556.shtml)
+- 2026-06-30 00:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/9707023396.shtml)
+- 2026-06-30 00:16 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/116285395.shtml)
+- 2026-06-30 00:22 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/939122556.shtml)
+- 2026-06-30 00:28 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/31092.shtml)
+- 2026-06-30 00:28 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/897862.shtml)
+- 2026-06-30 00:38 - [金刚川](https://www.blog.minike.top/Article/details/41567951.shtml)
+- 2026-06-30 00:30 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/822376.shtml)

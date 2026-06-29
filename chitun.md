@@ -1,56 +1,58 @@
-# 临夏有约：手抓羊肉摆上赛道 跑者感叹有“食”尚
+# 一只帝王蟹，如何“带火”一座边境小城？
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网兰州6月14日电 (马斌)本是冲着刷新个人最好成绩参赛，不少跑者却在赛道上被手抓羊肉等特色美食“绊住了脚”。14日，2026年“避暑天堂康养临夏”马拉松(以下简称：“临马”)在甘肃临夏州临夏市鸣枪开赛，与多数赛事的常规补给不同，当地把地道河州风味直接搬上了赛道，让一场竞速赛事多了“食”尚味。 不同于常见的能量胶、香蕉、矿泉水“老三样”，本届临马单独设有美食能量站，手抓羊肉
+你知道吗？中国人每吃掉5只俄罗斯帝王蟹，就有4只，是从一个不靠海的东北小城吉林珲春发出的。这听上去有点反常识。 凌晨，白令海峡的捕捞船刚刚收网；十几个小时后，这些在深海里横行的“大块头”，已经跨过国境线，在珲春的暂养池里吐着泡泡。再过一天，它们就会出现在北京、上海，甚至更远的餐桌上。 而这条高速运转的“鲜活通道”的中枢，不是港口城市，而是一座常住人口只有二十多万的边境小城。 跑
 
 ## 正文
 
-中新网兰州6月14日电 (马斌)本是冲着刷新个人最好成绩参赛，不少跑者却在赛道上被手抓羊肉等特色美食“绊住了脚”。
+你知道吗？
 
-14日，2026年“避暑天堂康养临夏”马拉松(以下简称：“临马”)在甘肃临夏州临夏市鸣枪开赛，与多数赛事的常规补给不同，当地把地道河州风味直接搬上了赛道，让一场竞速赛事多了“食”尚味。
+中国人每吃掉5只俄罗斯帝王蟹，就有4只，是从一个不靠海的东北小城吉林珲春发出的。
 
-不同于常见的能量胶、香蕉、矿泉水“老三样”，本届临马单独设有美食能量站，手抓羊肉、杏皮茶、酿皮子、甜醅子、暖锅、烩菜、各式糕点等美食分布赛道。
+这听上去有点反常识。
 
-不少跑者的脚步不自觉慢了下来，有人一手端酿皮、一手拿手抓，边跑边享用，笑着感叹“这条赛道有‘食’尚”。
+凌晨，白令海峡的捕捞船刚刚收网；十几个小时后，这些在深海里横行的“大块头”，已经跨过国境线，在珲春的暂养池里吐着泡泡。
 
-此外，以河州包子、河州暖锅、三炮台盖碗茶、八宝米饭为原型，设计出的人偶，在赛道旁，持同款手办玩偶、端着餐盘向跑者“投喂”美食，引得不少跑者驻足合影。
+再过一天，它们就会出现在北京、上海，甚至更远的餐桌上。
 
-这些萌态十足的人偶既是“气氛组”，也让临夏特色美食以更鲜活亲近的方式，留在了跑者的镜头与记忆里。
+而这条高速运转的“鲜活通道”的中枢，不是港口城市，而是一座常住人口只有二十多万的边境小城。
 
-赛道沿线的助威队伍里也藏着美食主题的惊喜。
+跑出来的优势：一小时到口岸，几分钟通关 珲春为什么能“接住”帝王蟹？
 
-临夏州东乡族自治县文体广电和旅游局局长马宏伟变身“领嗨员”，现场唱响《东乡手抓》等带有地方特色的美食歌曲，用接地气的旋律和乡音为跑者加油鼓劲。
+答案其实很直接——够近，也够快。
 
 ## 相关推荐
 
-- 2026-06-30 00:25 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 00:17 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 00:24 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 00:27 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 00:11 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 00:15 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 00:10 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 00:19 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 00:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 00:14 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 00:38 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 00:33 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 00:25 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-30 00:36 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-30 00:19 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 00:38 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 00:22 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 00:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 00:38 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 00:31 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 00:19 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 00:12 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:25 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/25954344451.shtml)
-- 2026-06-30 00:16 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/388718619137.shtml)
-- 2026-06-30 00:07 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/313732.shtml)
-- 2026-06-30 00:13 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/928631952.shtml)
-- 2026-06-30 00:24 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/1746391931.shtml)
-- 2026-06-30 00:12 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/1899342.shtml)
-- 2026-06-30 00:06 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/853214.shtml)
-- 2026-06-30 00:25 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/1349155.shtml)
-- 2026-06-30 00:30 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/639954343.shtml)
-- 2026-06-30 00:33 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/4924681514.shtml)
-- 2026-06-30 00:33 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/49399797044.shtml)
-- 2026-06-30 00:27 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/144134962804.shtml)
-- 2026-06-30 00:13 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/59523.shtml)
-- 2026-06-30 00:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/370032304172.shtml)
-- 2026-06-30 00:08 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/4676031.shtml)
+- 2026-06-30 00:21 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/7473141.shtml)
+- 2026-06-30 00:14 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/4361326.shtml)
+- 2026-06-30 00:29 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/151564.shtml)
+- 2026-06-30 00:34 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/596834828.shtml)
+- 2026-06-30 00:39 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/7305502388.shtml)
+- 2026-06-30 00:26 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/467032.shtml)
+- 2026-06-30 00:17 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/823292160657.shtml)
+- 2026-06-30 00:41 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/67114373953.shtml)
+- 2026-06-30 00:19 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/995623263578.shtml)
+- 2026-06-30 00:34 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/88215935.shtml)
+- 2026-06-30 00:29 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/70916432313.shtml)
+- 2026-06-30 00:16 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/80343.shtml)
+- 2026-06-30 00:33 - [金刚川](https://www.blog.minike.top/Article/details/923975.shtml)
+- 2026-06-30 00:18 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/4662823578.shtml)
+- 2026-06-30 00:24 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/776965829.shtml)

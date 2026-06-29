@@ -1,60 +1,58 @@
-# （乡村行·看振兴）广西德保小紫薯撑起共富路 驻村干部深耕振兴田
+# DeepSeek拟融资500亿！SpaceX冲刺上市
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网广西百色6月12日电 (葛婧)夏日清晨，薄雾萦绕广西百色市德保县燕峒乡保堂村白皮紫薯育苗基地，驻村第一书记王伟霖俯身查看薯苗根系与长势，田间村民除草、施肥、分株，一派繁忙劳作景象。依托特色紫薯产业，当地村民实现家门口就业增收，乡村发展活力十足。 “在家务工每日收入超过200元，还能兼顾家庭。”村民农大姐说。保堂村紫薯产业稳步壮大，得益于广西壮族自治区人大常委会机关两届驻村
+21世纪经济报道新质生产力研究院 综合报道 早上好，新的一天又开始了。在过去的24小时内，科技行业发生了哪些有意思的事情？来跟21tech一起看看吧。 【巨头风向标】 梁文锋出资200亿！DeepSeek首轮创纪录融资500亿 据报道，DeepSeek拟募资最高500亿元，如果最终落地，这将成为中国人工智能公司有史以来最大的一轮融资。梁文锋个人出资最高达200亿元人民币，占本轮
 
 ## 正文
 
-中新网广西百色6月12日电 (葛婧)夏日清晨，薄雾萦绕广西百色市德保县燕峒乡保堂村白皮紫薯育苗基地，驻村第一书记王伟霖俯身查看薯苗根系与长势，田间村民除草、施肥、分株，一派繁忙劳作景象。
+21世纪经济报道新质生产力研究院 综合报道 早上好，新的一天又开始了。
 
-依托特色紫薯产业，当地村民实现家门口就业增收，乡村发展活力十足。
+在过去的24小时内，科技行业发生了哪些有意思的事情？
 
-“在家务工每日收入超过200元，还能兼顾家庭。
+来跟21tech一起看看吧。
 
-”村民农大姐说。
+【巨头风向标】 梁文锋出资200亿！
 
-保堂村紫薯产业稳步壮大，得益于广西壮族自治区人大常委会机关两届驻村工作队的接续帮扶。
+DeepSeek首轮创纪录融资500亿 据报道，DeepSeek拟募资最高500亿元，如果最终落地，这将成为中国人工智能公司有史以来最大的一轮融资。
 
-工作队完成品种选育、品牌注册与绿色食品认证，搭建起种植、加工、销售一体化产业链，为产业发展筑牢根基。
+梁文锋个人出资最高达200亿元人民币，占本轮计划融资总额的40%。
 
-2025年5月，王伟霖接过乡村振兴“接力棒”，扎根田间地头，全身心投入紫薯产业发展。
+SpaceX冲刺上市，资本开支飙升数百亿美元 随着埃隆・马斯克执掌的太空探索技术公司筹备大规模首次公开募股，其资本开支规模正以数十亿美元的幅度持续攀升。
 
-为拓宽销路、打响品牌，他带着紫薯产品亮相广西文旅发展大会、广西国际农业博览会等展会，现场签下22家企业合作意向，顺利打开区内外市场。
+据得州当地政府一份项目公告，SpaceX计划与特斯拉联合打造的太拉晶圆芯片产业园，预估资本投入至少需要550亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 00:14 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 00:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 00:14 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 00:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 00:24 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 00:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 00:06 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-30 00:11 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 00:10 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 00:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 00:34 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 00:28 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 00:31 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 00:18 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 00:41 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 00:20 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 00:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 00:23 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 00:16 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 00:38 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 00:20 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 00:40 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 00:38 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 00:35 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 00:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 00:14 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/75965763.shtml)
-- 2026-06-30 00:33 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/61757.shtml)
-- 2026-06-30 00:21 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/113301.shtml)
-- 2026-06-30 00:23 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/88658838.shtml)
-- 2026-06-30 00:32 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/5126168.shtml)
-- 2026-06-30 00:21 - [月亮](http://www.share.minike.top/Article/details/21821673.shtml)
-- 2026-06-30 00:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/7925751844.shtml)
-- 2026-06-30 00:17 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/082188845.shtml)
-- 2026-06-30 00:10 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/3851844.shtml)
-- 2026-06-30 00:09 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/302724606582.shtml)
-- 2026-06-30 00:25 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/52968591.shtml)
-- 2026-06-30 00:27 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/20726642.shtml)
-- 2026-06-30 00:17 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/567362603.shtml)
-- 2026-06-30 00:13 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/2009168.shtml)
-- 2026-06-30 00:19 - [刘念回应](http://www.share.kurohicncr.top/Article/details/4455503.shtml)
+- 2026-06-30 00:24 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/013954.shtml)
+- 2026-06-30 00:28 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/6253819026.shtml)
+- 2026-06-30 00:13 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/3613063182.shtml)
+- 2026-06-30 00:32 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/26954.shtml)
+- 2026-06-30 00:29 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/9648096884.shtml)
+- 2026-06-30 00:20 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/525915408.shtml)
+- 2026-06-30 00:40 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/9125809389.shtml)
+- 2026-06-30 00:20 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/33780055138.shtml)
+- 2026-06-30 00:22 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/3867457.shtml)
+- 2026-06-30 00:39 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/218515443.shtml)
+- 2026-06-30 00:38 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/023400.shtml)
+- 2026-06-30 00:25 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/207226098.shtml)
+- 2026-06-30 00:16 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/6769289065.shtml)
+- 2026-06-30 00:30 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/9419069.shtml)
+- 2026-06-30 00:16 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/46222580030.shtml)

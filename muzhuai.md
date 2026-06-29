@@ -1,57 +1,56 @@
-# AI硬件再度疯狂，港股硬科技霸气领涨！规模最大港股通信息技术ETF华宝（159131）大涨逾6% ，全市场涨幅第一
+# 营收腰斩、巨亏近9亿元后，富煌钢构再曝超3亿元债务危机！知情人士：无争议的款项基本都收回了
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-6月15日午后，港股硬科技持续领涨全市场。智谱涨超35%，建滔积层板、建滔集团、壁仞科技、英诺赛科、华虹宏力等多股涨超10%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格持续走高，现涨6.47%，涨幅高居全市场ETF第一，实时成交额超14亿元。 消息面上，北京时间6月9日，Anthropic发布迄今最强模型Claude Fable 5与Mytho
+每经记者|张宝莲 每经编辑|黄胜 继2025年业绩大幅滑坡后，主营钢结构业务的富煌钢构（维权）（002743.SZ，股价5.47元，市值23.81亿元）财务困境进一步加剧。5月7日晚间，该公司发布公告，披露了合计高达3.29亿元的债务逾期情况，其中未兑付的商业承兑汇票金额近3亿元，为公司紧张的资金链再添一层阴影。 同时，为公司出具2025年年报的审计机构天健会计师事务所（特殊普
 
 ## 正文
 
-6月15日午后，港股硬科技持续领涨全市场。
+每经记者|张宝莲 每经编辑|黄胜 继2025年业绩大幅滑坡后，主营钢结构业务的富煌钢构（维权）（002743.SZ，股价5.47元，市值23.81亿元）财务困境进一步加剧。
 
-智谱涨超35%，建滔积层板、建滔集团、壁仞科技、英诺赛科、华虹宏力等多股涨超10%。
+5月7日晚间，该公司发布公告，披露了合计高达3.29亿元的债务逾期情况，其中未兑付的商业承兑汇票金额近3亿元，为公司紧张的资金链再添一层阴影。
 
-同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格持续走高，现涨6.47%，涨幅高居全市场ETF第一，实时成交额超14亿元。
+同时，为公司出具2025年年报的审计机构天健会计师事务所（特殊普通合伙）在审计报告中明确加入了“与持续经营相关的重大不确定性”段落，直指公司有息负债高，资金流动性困难，存在可能导致对公司持续经营能力产生重大疑虑的重大不确定性。
 
-消息面上，北京时间6月9日，Anthropic发布迄今最强模型Claude Fable 5与Mythos 5，在软件工程、知识工作、视觉、科学研究等几乎所有基准测试中全面领先。
+5月8日，《每日经济新闻》记者拨打公司董秘办电话，但是语音提示电话已欠费。
 
-仅三天后（6月12日），美国政府以国家安全为由下达出口管制指令，要求暂停所有外籍人士对这两款模型的访问权限。
+记者向公司董秘办邮箱发送采访函，截至发稿，未收到回复。
 
-Anthropic因无法按国籍精准区分用户，最终选择全球全量下线。
+另据一位富煌钢构方面人士称，回款项目方面，无争议的款项基本都收回了，有争议的项目正在诉讼中。
 
-仅隔一天（6月13日），智谱AI宣布旗下最强开源模型GLM-5.2全量开放，开放时间“17：21”精准对应美方禁令发出的美东时间，形成了一次精心策划的战略性回应。
+目前公司因资金短缺没有开展什么新项目，仅有很少的项目处于扫尾阶段。
 
-广发证券 明确指出，本次事件的核心影响不在于两款模型的短期下线，而在于海外前沿模型服务的不确定性进一步上升。
+据公司5月7日公告，由于回款不及预期导致暂时性流动资金紧张，公司及子公司出现部分债务逾期和商业承兑汇票未能按期兑付的情形。
 
 ## 相关推荐
 
-- 2026-06-30 00:35 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 00:24 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 00:08 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 00:32 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 00:28 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 00:15 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 00:14 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 00:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 00:32 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 00:30 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 00:22 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 00:40 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 00:13 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 00:37 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 00:12 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 00:27 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 00:34 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 00:39 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 00:12 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 00:12 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 00:32 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:25 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/39804081076.shtml)
-- 2026-06-30 00:27 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/2029558.shtml)
-- 2026-06-30 00:24 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/204628083.shtml)
-- 2026-06-30 00:25 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/143102.shtml)
-- 2026-06-30 00:11 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/7988297661.shtml)
-- 2026-06-30 00:23 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/387846.shtml)
-- 2026-06-30 00:25 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/86274466.shtml)
-- 2026-06-30 00:18 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/768640.shtml)
-- 2026-06-30 00:18 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/53173550700.shtml)
-- 2026-06-30 00:14 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/0411202757.shtml)
-- 2026-06-30 00:30 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/9600381.shtml)
-- 2026-06-30 00:28 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/7976896.shtml)
-- 2026-06-30 00:14 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/57266.shtml)
-- 2026-06-30 00:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/3026697.shtml)
-- 2026-06-30 00:09 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/388287162.shtml)
+- 2026-06-30 00:34 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/09406007.shtml)
+- 2026-06-30 00:29 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/185157382764.shtml)
+- 2026-06-30 00:24 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/221859956.shtml)
+- 2026-06-30 00:38 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/13306387.shtml)
+- 2026-06-30 00:31 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/5877928830.shtml)
+- 2026-06-30 00:39 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/465659.shtml)
+- 2026-06-30 00:31 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/81665289.shtml)
+- 2026-06-30 00:40 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/1927144023.shtml)
+- 2026-06-30 00:25 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/74207306799.shtml)
+- 2026-06-30 00:20 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/242346.shtml)
+- 2026-06-30 00:29 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/34978.shtml)
+- 2026-06-30 00:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/756474978.shtml)
+- 2026-06-30 00:14 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/95341.shtml)
+- 2026-06-30 00:40 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/7912056191.shtml)
+- 2026-06-30 00:16 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/403583539.shtml)

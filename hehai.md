@@ -1,61 +1,58 @@
-# 华商新动力混合A近1年涨幅超122% 刘力坚持长期主义 深耕产业升级方向
+# “全国销冠”被刑拘，泰康人寿紧急回应
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-当前市场风格频繁轮动，在市场风格快速轮动的环境中保持定力、锚定产业趋势的基金经理，其价值正在凸显。华商基金刘力紧跟时代步伐，深耕产业升级方向投资机会。他管理的华商新动力混合基金截至2026年5月31日近1、3、5年业绩均大幅超越同期业绩比较基准，提升了持有人的投资获得感。 据基金评价机构数据显示，截至2026年5月31日，华商新动力混合基金（A类：001723；C类：01792
+近日，“泰康人寿‘全国销冠’任晓敏被刑拘”的消息，引发关注。5月8日，泰康人寿对中国证券报·中证金牛座记者表示，近日，公司个人代理人任某某被青岛市公安机关立案侦查。对此，公司高度重视，第一时间组织专项工作组派驻青岛，全力配合公安机关的工作，并同步启动对该事件的内部自查和客户排查，绝不姑息任何违法犯罪行为。 该公司强调，始终将客户权益置于首位，坚定维护客户的合法权益，对任何损害客
 
 ## 正文
 
-当前市场风格频繁轮动，在市场风格快速轮动的环境中保持定力、锚定产业趋势的基金经理，其价值正在凸显。
+近日，“泰康人寿‘全国销冠’任晓敏被刑拘”的消息，引发关注。
 
-华商基金刘力紧跟时代步伐，深耕产业升级方向投资机会。
+5月8日，泰康人寿对中国证券报·中证金牛座记者表示，近日，公司个人代理人任某某被青岛市公安机关立案侦查。
 
-他管理的华商新动力混合基金截至2026年5月31日近1、3、5年业绩均大幅超越同期业绩比较基准，提升了持有人的投资获得感。
+对此，公司高度重视，第一时间组织专项工作组派驻青岛，全力配合公安机关的工作，并同步启动对该事件的内部自查和客户排查，绝不姑息任何违法犯罪行为。
 
-据基金评价机构数据显示，截至2026年5月31日，华商新动力混合基金（A类：001723；C类：017927）近1年、3年、5年分别位居同类排名前10%、前7%及前12%（详见下表）。
+该公司强调，始终将客户权益置于首位，坚定维护客户的合法权益，对任何损害客户权益的行为零容忍。
 
-华商新动力混合基金同类排名 截至2026年5月31日，华商新动力混合A近1年净值增长率达122.81%；近3年净值增长率为123.75%，超越同期业绩比较基准59个百分点；拉长至近5年，华商新动力混合A净值增长率为81.56%，领先了业绩比较基准65个百分点，展现出在复杂市场环境下较强的结构性机会把握能力（详见下表）。
+目前，公司已主动联系可能受影响的客户及相关人士，并承诺对于依法应由其承担的责任绝不推卸。
 
-华商新动力混合基金业绩表现 刘力 华商新动力混合基金经理 华商科创创业精选混合等基金经理 刘力为北京大学微电子学与固体电子学硕士，自2016年7月加入华商基金，是华商基金自主培养的一名成长投资中生代基金经理，现任华商新动力混合、华商科创创业精选混合基金等基金经理。
+此前，有媒体报道，青岛市公安机关以涉嫌诈骗罪对泰康人寿青岛分公司个人代理人任晓敏立案侦查，涉案本金规模约3亿至4亿元。
 
-他始终以“投资长坡厚雪的赛道中符合产业趋势的优秀企业，立志于在长周期获得可持续回报”为核心投资理念，方法论上淡化择时，注重行业比较与个股筛选。
+记者了解到，任晓敏曾是多项荣誉加身、泰康人寿力捧的标杆代理人。
 
-刘力在华商新动力混合基金定期报告中表示，一月份（市场）单边上涨，二月份整体呈现震荡且波动放大的态势，三月份超预期的地缘冲突引发指数连续下跌。
+公开宣传资料显示，2020-2022年任晓敏累计签下“幸福有约”保单超百件，服务高净值客户近百人，2022年度她实现标保业绩1761万元，拿下幸福有约41单，成为当年新业务系列全国第一；2025年，任晓敏仅“开门红”期间的个人标保业绩就突破2900万元。
 
 ## 相关推荐
 
-- 2026-06-30 00:16 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 00:20 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 00:19 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 00:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 00:14 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 00:22 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 00:36 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 00:12 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 00:20 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 00:26 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 00:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 00:09 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 00:28 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 00:28 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 00:23 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 00:24 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 00:28 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 00:40 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 00:33 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 00:19 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 00:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 00:17 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 00:33 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 00:37 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 00:34 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 00:21 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 00:36 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:16 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/416645901.shtml)
-- 2026-06-30 00:19 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/46490806622.shtml)
-- 2026-06-30 00:23 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/011409260464.shtml)
-- 2026-06-30 00:35 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/48272589.shtml)
-- 2026-06-30 00:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/89358599859.shtml)
-- 2026-06-30 00:06 - [周生如故](https://www.blog.kurohicncr.top/Article/details/14273259558.shtml)
-- 2026-06-30 00:10 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/42161239.shtml)
-- 2026-06-30 00:09 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/39501231702.shtml)
-- 2026-06-30 00:24 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/7518110672.shtml)
-- 2026-06-30 00:29 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/15219.shtml)
-- 2026-06-30 00:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/112341.shtml)
-- 2026-06-30 00:15 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/5304362981.shtml)
-- 2026-06-30 00:06 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/109550898.shtml)
-- 2026-06-30 00:10 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/76163.shtml)
-- 2026-06-30 00:30 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/506997.shtml)
+- 2026-06-30 00:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/645149.shtml)
+- 2026-06-30 00:37 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/23525751.shtml)
+- 2026-06-30 00:15 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/137154.shtml)
+- 2026-06-30 00:23 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/89548.shtml)
+- 2026-06-30 00:14 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/87095.shtml)
+- 2026-06-30 00:14 - [斛珠夫人](https://www.blog.minike.top/Article/details/853775494.shtml)
+- 2026-06-30 00:38 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/186415164409.shtml)
+- 2026-06-30 00:13 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/37931533045.shtml)
+- 2026-06-30 00:29 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/8283038.shtml)
+- 2026-06-30 00:14 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/771522317751.shtml)
+- 2026-06-30 00:23 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/4731444.shtml)
+- 2026-06-30 00:15 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/44097904.shtml)
+- 2026-06-30 00:13 - [新官上任三把火](https://www.blog.minike.top/Article/details/111041.shtml)
+- 2026-06-30 00:14 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/20214.shtml)
+- 2026-06-30 00:41 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/1406419918.shtml)

@@ -1,51 +1,51 @@
-# 全国20条中小河流发生超警以上洪水
+# 2026年北京香山论坛先导会在京开幕
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-记者从水利部了解到，受降雨影响，昨天到今天，广西郁江支流猪儿河、贺江支流东安江，广东西江支流谷圩河、东江支流古竹水、韩江支流松源河，福建汀江上游及支流永定河、九龙江支流雁石溪、闽江上游沙溪支流长潭河，吉林二道松花江支流大沙河等20条中小河流发生超警以上洪水，最大超警幅度1.76米。目前，大部河流已退至警戒水位以下。 (总台央视记者 梁丽娟 李洁)
+新华社北京5月8日电(刘言明、邢扬)2026年北京香山论坛先导会8日在北京开幕。 本次先导会由中国军事科学学会和中国国际战略学会共同主办，以“全球安全治理：挑战与出路”为主题，邀请了40余个国家和国际组织的120余名官方代表、专家学者参会。 会议期间，与会代表将围绕“国际秩序与国际法治”“亚太安全新挑战”“维护国际共同安全的责任”及“新兴技术军事应用的风险管控”等重要议题展开研
 
 ## 正文
 
-记者从水利部了解到，受降雨影响，昨天到今天，广西郁江支流猪儿河、贺江支流东安江，广东西江支流谷圩河、东江支流古竹水、韩江支流松源河，福建汀江上游及支流永定河、九龙江支流雁石溪、闽江上游沙溪支流长潭河，吉林二道松花江支流大沙河等20条中小河流发生超警以上洪水，最大超警幅度1.76米。
+新华社北京5月8日电(刘言明、邢扬)2026年北京香山论坛先导会8日在北京开幕。
 
-目前，大部河流已退至警戒水位以下。
+本次先导会由中国军事科学学会和中国国际战略学会共同主办，以“全球安全治理：挑战与出路”为主题，邀请了40余个国家和国际组织的120余名官方代表、专家学者参会。
 
-(总台央视记者 梁丽娟 李洁)
+会议期间，与会代表将围绕“国际秩序与国际法治”“亚太安全新挑战”“维护国际共同安全的责任”及“新兴技术军事应用的风险管控”等重要议题展开研讨。
+
+今年正值北京香山论坛创立20周年，本次先导会还将举办“国际论坛在全球安全治理中的作用——北京香山论坛20周年纪念特别专题交流”活动，邀请全球知名防务与安全智库代表，共同回顾北京香山论坛二十载历程，探讨国际安全论坛在平等对话、凝聚共识、化解分歧等方面的独特价值。
 
 ## 相关推荐
 
-- 2026-06-30 00:10 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 00:11 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 00:28 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 00:22 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 00:08 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 00:27 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 00:25 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 00:11 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 00:18 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 00:08 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-30 00:25 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 00:15 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 00:28 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 00:32 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 00:06 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 00:39 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 00:18 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 00:18 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 00:38 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 00:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 00:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 00:14 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 00:25 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 00:27 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 00:22 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 00:33 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 00:25 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 00:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:17 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/706190.shtml)
-- 2026-06-30 00:17 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/46362.shtml)
-- 2026-06-30 00:25 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/06550530.shtml)
-- 2026-06-30 00:24 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/221715488.shtml)
-- 2026-06-30 00:09 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/88482440.shtml)
-- 2026-06-30 00:13 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/961794060289.shtml)
-- 2026-06-30 00:22 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/36194879995.shtml)
-- 2026-06-30 00:21 - [一生一世](http://www.share.kurohicncr.top/Article/details/62392.shtml)
-- 2026-06-30 00:21 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/131471.shtml)
-- 2026-06-30 00:13 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/00484.shtml)
-- 2026-06-30 00:23 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/34880938.shtml)
-- 2026-06-30 00:10 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/88589112504.shtml)
-- 2026-06-30 00:31 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/58182589.shtml)
-- 2026-06-30 00:28 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/213689.shtml)
-- 2026-06-30 00:11 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/1472805300.shtml)
+- 2026-06-30 00:36 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/807909140509.shtml)
+- 2026-06-30 00:30 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/719612639592.shtml)
+- 2026-06-30 00:38 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/391477.shtml)
+- 2026-06-30 00:29 - [千香](http://www.blog.minike.top/Article/details/64492337.shtml)
+- 2026-06-30 00:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/61600801972.shtml)
+- 2026-06-30 00:32 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/810301571323.shtml)
+- 2026-06-30 00:17 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/355349278.shtml)
+- 2026-06-30 00:38 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/58120609.shtml)
+- 2026-06-30 00:13 - [货车司机恶意闯卡逃费被行拘](http://www.share.minike.top/Article/details/4601728.shtml)
+- 2026-06-30 00:33 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/116643.shtml)
+- 2026-06-30 00:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/27807726762.shtml)
+- 2026-06-30 00:19 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/8975591.shtml)
+- 2026-06-30 00:15 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/848477285095.shtml)
+- 2026-06-30 00:25 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/34409746.shtml)
+- 2026-06-30 00:12 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/321356399.shtml)

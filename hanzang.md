@@ -1,47 +1,48 @@
-# 伊美谅解备忘录14个条款部分内容披露：美将豁免对伊朗石油制裁
+# 森美控股：经修订呈请的进一步程序目前正在进行中
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-伊朗迈赫尔通讯社当地时间今天（6月15日）凌晨披露了伊美谅解备忘录14个条款的部分内容，包括：谅解备忘录要求在30天内完全解除美国的海上封锁；要求在所有战线（包括黎巴嫩）实现立即、永久的停火；要求在30天内根据伊朗的安排重新开放霍尔木兹海峡；暂停对伊朗石油和石化产品的销售制裁；谅解备忘录指出，美国及其盟友必须提交总额至少3000亿美元的伊朗重建计划；谅解备忘录规定，在最终谈判开
+森美控股（00756）发布公告，根据法院于2026年5月4日所作出的命令，剩余贷款人已针对本公司提交经修订呈请，以接手呈请程序。经修订呈请的进一步程序目前正在进行中，而经修订呈请的聆讯日期将于稍后确认。本公司将在经修订呈请出现任何重大发展时另行刊发公告。责任编辑：卢昱君
 
 ## 正文
 
-伊朗迈赫尔通讯社当地时间今天（6月15日）凌晨披露了伊美谅解备忘录14个条款的部分内容，包括：谅解备忘录要求在30天内完全解除美国的海上封锁；要求在所有战线（包括黎巴嫩）实现立即、永久的停火；要求在30天内根据伊朗的安排重新开放霍尔木兹海峡；暂停对伊朗石油和石化产品的销售制裁；谅解备忘录指出，美国及其盟友必须提交总额至少3000亿美元的伊朗重建计划；谅解备忘录规定，在最终谈判开始前，必须解冻伊朗被冻结的240亿美元资金中的一半——而解冻资金、在豁免对伊朗石油制裁以及解除海上封锁之前，不会启动最终协议谈判；最终协议的60天谈判期内将就核问题进行谈判，伊朗导弹计划、伊朗对地区抵抗阵线的支持将被排除在最终协议谈判之外；最终协议将获得联合国安理会决议的背书。
+森美控股（00756）发布公告，根据法院于2026年5月4日所作出的命令，剩余贷款人已针对本公司提交经修订呈请，以接手呈请程序。
 
-（CCTV国际时讯）责任编辑：郭建
+经修订呈请的进一步程序目前正在进行中，而经修订呈请的聆讯日期将于稍后确认。
+
+本公司将在经修订呈请出现任何重大发展时另行刊发公告。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:35 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 00:10 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 00:21 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 00:19 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 00:34 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 00:30 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 00:19 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 00:28 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 00:30 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 00:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 00:32 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 00:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 00:06 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 00:20 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 00:41 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 00:38 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 00:20 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 00:18 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 00:18 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 00:28 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 00:29 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 00:16 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 00:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/133601.shtml)
-- 2026-06-30 00:28 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/1945183687.shtml)
-- 2026-06-30 00:14 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/25445.shtml)
-- 2026-06-30 00:16 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/712328085467.shtml)
-- 2026-06-30 00:18 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/158116.shtml)
-- 2026-06-30 00:34 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/348921951.shtml)
-- 2026-06-30 00:27 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/53319.shtml)
-- 2026-06-30 00:27 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/82284944129.shtml)
-- 2026-06-30 00:18 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/74534807973.shtml)
-- 2026-06-30 00:27 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/956639.shtml)
-- 2026-06-30 00:17 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/34397.shtml)
-- 2026-06-30 00:09 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/1895226.shtml)
-- 2026-06-30 00:27 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/629123.shtml)
-- 2026-06-30 00:17 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/6715070283.shtml)
-- 2026-06-30 00:26 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/12922777346.shtml)
+- 2026-06-30 00:35 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/31015642.shtml)
+- 2026-06-30 00:32 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/59998637649.shtml)
+- 2026-06-30 00:38 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/632226.shtml)
+- 2026-06-30 00:29 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/4303298772.shtml)
+- 2026-06-30 00:36 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/9976954971.shtml)
+- 2026-06-30 00:20 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/42436.shtml)
+- 2026-06-30 00:24 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/189855.shtml)
+- 2026-06-30 00:20 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/00667965069.shtml)
+- 2026-06-30 00:15 - [一见倾心](https://www.share.minike.top/Article/details/462886.shtml)
+- 2026-06-30 00:15 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/63798272045.shtml)
+- 2026-06-30 00:17 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/1544264470.shtml)
+- 2026-06-30 00:36 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/059317989144.shtml)
+- 2026-06-30 00:34 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/83114.shtml)
+- 2026-06-30 00:12 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/833475.shtml)
+- 2026-06-30 00:24 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/99179390055.shtml)

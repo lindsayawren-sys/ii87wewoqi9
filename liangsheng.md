@@ -1,46 +1,59 @@
-# 跟着总书记，看见时间里的中国
+# AI抢饭碗终成现实，美国多家科技公司宣布裁员
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月14日 11:50 来源：新华社 责任编辑：【李骏】
+随著人工智能（AI）深入美国企业界，一个话题引发了激烈辩论：AI究竟会像悲观主义者担心的那样大规模摧毁就业岗位，还是会如乐观派所愿，让员工得以解放出来去从事更有意义的工作？ 一些早期迹象表明，末日论者或许并非杞人忧天。仅在周四下午，就有至少三家上市公司透露了大规模裁员计划，以应对职场生态的变革。 零工经济平台Upwork宣布将裁减约四分之一的员工，该公司首席执行官海登．布朗（H
 
 ## 正文
 
-发布时间：2026年06月14日 11:50 来源：新华社 责任编辑：【李骏】
+随著人工智能（AI）深入美国企业界，一个话题引发了激烈辩论：AI究竟会像悲观主义者担心的那样大规模摧毁就业岗位，还是会如乐观派所愿，让员工得以解放出来去从事更有意义的工作？
+
+一些早期迹象表明，末日论者或许并非杞人忧天。
+
+仅在周四下午，就有至少三家上市公司透露了大规模裁员计划，以应对职场生态的变革。
+
+零工经济平台Upwork宣布将裁减约四分之一的员工，该公司首席执行官海登．布朗（Hayden Brown）在致员工的公开信中表示：“AI意味著产品和工程团队能以更小的规模、不同的资源配置，爆发出前所未有的影响力。
+
+” 布朗还补充道，“‘两个披萨’团队已经成为历史”，这似乎是在暗指亚马逊（Amazon.com）的理念，即团队规模应控制在两个披萨就能喂饱的程度。
+
+但在Upwork看来，这样的规模依然显得臃肿：该公司目前正在“整合冗余工作并压缩工作流程，以减少交接环节”。
+
+网络安全公司Cloudflare周四披露，将裁员逾1，100人，根据其上一份年度文件公布的员工总数，此次裁员比例高达约20%。
+
+“仅在过去三个月里，Cloudflare的AI使用量就激增了600%以上”，联合创始人马修．普林斯（Matthew Prince）和米歇尔．扎特林（Michelle Zatlyn）在一封公开的致员工信中写道。
 
 ## 相关推荐
 
-- 2026-06-30 00:19 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 00:30 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 00:29 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 00:18 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 00:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 00:34 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 00:14 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 00:35 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-30 00:08 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 00:13 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-30 00:07 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 00:19 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 00:35 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 00:10 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 00:33 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 00:29 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 00:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 00:13 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 00:35 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 00:19 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 00:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 00:21 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 00:12 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 00:32 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 00:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 00:19 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 00:22 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:20 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/49514114897.shtml)
-- 2026-06-30 00:22 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/8106445585.shtml)
-- 2026-06-30 00:30 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/82976825716.shtml)
-- 2026-06-30 00:35 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/058786566360.shtml)
-- 2026-06-30 00:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/881092205202.shtml)
-- 2026-06-30 00:24 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/71917236.shtml)
-- 2026-06-30 00:11 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/616250.shtml)
-- 2026-06-30 00:09 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/181080.shtml)
-- 2026-06-30 00:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/6033590.shtml)
-- 2026-06-30 00:08 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/644363021587.shtml)
-- 2026-06-30 00:13 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/3398869.shtml)
-- 2026-06-30 00:24 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/695387364583.shtml)
-- 2026-06-30 00:12 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/15734.shtml)
-- 2026-06-30 00:11 - [女心理师](http://www.share.kurohicncr.top/Article/details/86992724.shtml)
-- 2026-06-30 00:29 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/6633963.shtml)
+- 2026-06-30 00:34 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/4630097.shtml)
+- 2026-06-30 00:12 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/80651.shtml)
+- 2026-06-30 00:12 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/003931612.shtml)
+- 2026-06-30 00:19 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/5257035507.shtml)
+- 2026-06-30 00:20 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/294834099.shtml)
+- 2026-06-30 00:13 - [世界杯](http://www.share.kurohicncr.top/Article/details/2801242301.shtml)
+- 2026-06-30 00:25 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/6983945048.shtml)
+- 2026-06-30 00:29 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/918629.shtml)
+- 2026-06-30 00:38 - [恋与深空 日服](https://www.share.minike.top/Article/details/25742830.shtml)
+- 2026-06-30 00:41 - [毒液2](https://www.blog.kurohicncr.top/Article/details/1153959213.shtml)
+- 2026-06-30 00:29 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/6862124136.shtml)
+- 2026-06-30 00:38 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/521892640.shtml)
+- 2026-06-30 00:25 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/579523.shtml)
+- 2026-06-30 00:13 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/01133247121.shtml)
+- 2026-06-30 00:38 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/0305916982.shtml)

@@ -1,59 +1,58 @@
-# 规范金融信息服务数据处理活动，《金融信息服务数据分类分级指南》印发
+# 如何为高层楼宇外卖配送“最后100米”搭梯？
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新经纬6月13日电 据国家网信办网站消息，近日，国家互联网信息办公室、中国人民银行、国家金融监督管理总局、中国证券监督管理委员会、国家统计局、国家外汇管理局联合印发《金融信息服务数据分类分级指南》(以下简称《指南》)。国家互联网信息办公室有关负责同志就《指南》回答了记者提问。问1：请介绍一下《指南》的出台背景？ 答：当前，金融信息服务有序发展，金融信息服务领域数据规模扩大、流
+骑手送餐难，顾客等餐急，物业两头劝 如何为高层楼宇外卖配送“最后100米”搭梯？ 阅读提示 一直以来，人流密集的高层写字楼都是送外卖的“老大难”区域。由于大门难进、电梯难等、位置难找，外卖员配送效率和消费者体验感都大打折扣。对此，外卖平台、物业和街道社区等方面做出诸多有益尝试。“排队上电梯！大家都着急。”近日，一则“骑手因订单超时欲插队被拦”的视频引发热议。视频中，上班高峰期，
 
 ## 正文
 
-中新经纬6月13日电 据国家网信办网站消息，近日，国家互联网信息办公室、中国人民银行、国家金融监督管理总局、中国证券监督管理委员会、国家统计局、国家外汇管理局联合印发《金融信息服务数据分类分级指南》(以下简称《指南》)。
+骑手送餐难，顾客等餐急，物业两头劝 如何为高层楼宇外卖配送“最后100米”搭梯？
 
-国家互联网信息办公室有关负责同志就《指南》回答了记者提问。
+阅读提示 一直以来，人流密集的高层写字楼都是送外卖的“老大难”区域。
 
-问1：请介绍一下《指南》的出台背景？
+由于大门难进、电梯难等、位置难找，外卖员配送效率和消费者体验感都大打折扣。
 
-答：当前，金融信息服务有序发展，金融信息服务领域数据规模扩大、流动频繁，亟需分类分级规范管理。
+对此，外卖平台、物业和街道社区等方面做出诸多有益尝试。
 
-《中华人民共和国数据安全法》明确，国家建立数据分类分级保护制度，对数据实行分类分级保护。
+“排队上电梯！
 
-《网络数据安全管理条例》明确，各地区、各部门应当按照数据分类分级保护制度，确定重要数据具体目录并重点保护。
+大家都着急。
 
-为落实法律法规要求，国家互联网信息办公室、中国人民银行等六部门制定印发《指南》，旨在为金融信息服务机构开展数据分类分级工作提供系统性、针对性、可操作性的指引，规范金融信息服务数据处理活动，提升数据安全水平，促进数据依法合理有效利用。
+”近日，一则“骑手因订单超时欲插队被拦”的视频引发热议。
 
-问2：《指南》的适用范围？
+视频中，上班高峰期，某写字楼的电梯外排起了长队，外卖骑手试图挤上电梯，却遭到管理人员阻拦。
 
 ## 相关推荐
 
-- 2026-06-30 00:29 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 00:06 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-30 00:09 - [东方风云榜直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 00:12 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 00:14 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 00:34 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 00:15 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 00:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 00:21 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 00:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 00:34 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 00:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 00:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 00:23 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 00:39 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 00:26 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 00:32 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 00:27 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 00:41 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 00:40 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 00:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 00:22 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 00:15 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 00:35 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 00:28 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/80663187.shtml)
-- 2026-06-30 00:12 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/499051.shtml)
-- 2026-06-30 00:15 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/138580848268.shtml)
-- 2026-06-30 00:14 - [绘画区你赢了](https://www.share.minike.top/Article/details/8514330886.shtml)
-- 2026-06-30 00:10 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/96274381.shtml)
-- 2026-06-30 00:29 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/4277918091.shtml)
-- 2026-06-30 00:18 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/0374488980.shtml)
-- 2026-06-30 00:30 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/493403433.shtml)
-- 2026-06-30 00:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/40687089990.shtml)
-- 2026-06-30 00:25 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/661647231.shtml)
-- 2026-06-30 00:12 - [扫黑风暴](http://www.share.minike.top/Article/details/5752450600.shtml)
-- 2026-06-30 00:08 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/903071.shtml)
-- 2026-06-30 00:23 - [锐评T1零封KC](http://www.share.minike.top/Article/details/55248.shtml)
-- 2026-06-30 00:12 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/771938.shtml)
-- 2026-06-30 00:18 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/48135784.shtml)
+- 2026-06-30 00:19 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/53065455532.shtml)
+- 2026-06-30 00:33 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/01677.shtml)
+- 2026-06-30 00:39 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/93698.shtml)
+- 2026-06-30 00:32 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/6122797.shtml)
+- 2026-06-30 00:12 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/112027293.shtml)
+- 2026-06-30 00:14 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/0216781132.shtml)
+- 2026-06-30 00:29 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/368200718.shtml)
+- 2026-06-30 00:17 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/37790.shtml)
+- 2026-06-30 00:36 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/697049209102.shtml)
+- 2026-06-30 00:35 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/08537780015.shtml)
+- 2026-06-30 00:18 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/052136.shtml)
+- 2026-06-30 00:29 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/39526474.shtml)
+- 2026-06-30 00:28 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/96572367057.shtml)
+- 2026-06-30 00:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/3865361039.shtml)
+- 2026-06-30 00:21 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/98965364.shtml)

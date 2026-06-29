@@ -1,56 +1,61 @@
-# 学习·知行丨从孔院书香，读懂总书记的文化牵挂
+# 乌总统下令避免袭击俄红场阅兵 美总统称支持大幅延长俄乌停火时限
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-视频：学习·知行丨从孔院书香，读懂总书记的文化牵挂来源：人民网-中国共产党新闻网 古木参天，庙堂巍峨。孔庙、孔府、孔林统称曲阜“三孔”，儒风千载、文脉相传。 “一个国家、一个民族的强盛，总是以文化兴盛为支撑的，中华民族伟大复兴需要以中华文化发展繁荣为条件。”2013年11月26日，习近平总书记来到山东曲阜孔府和孔子研究院参观考察，为传承发展中华优秀传统文化指明方向。 从沉淀历史
+中新社北京5月9日电 综合消息：据乌克兰国家通讯社报道，乌总统泽连斯基已下令，避免袭击俄罗斯莫斯科红场9日举行的阅兵活动。美国总统特朗普8日傍晚就“俄乌停火能否继续延长”表示，支持大幅延长停火时限。乌总统网站8日夜间公布泽连斯基签署的总统令。该总统令称，考虑到多方要求，出于8日与美方会谈时阐明的人道主义宗旨，乌方决定，5月9日俄首都莫斯科红场举行阅兵期间，将红场所在区域排除在乌
 
 ## 正文
 
-视频：学习·知行丨从孔院书香，读懂总书记的文化牵挂来源：人民网-中国共产党新闻网 古木参天，庙堂巍峨。
+中新社北京5月9日电 综合消息：据乌克兰国家通讯社报道，乌总统泽连斯基已下令，避免袭击俄罗斯莫斯科红场9日举行的阅兵活动。
 
-孔庙、孔府、孔林统称曲阜“三孔”，儒风千载、文脉相传。
+美国总统特朗普8日傍晚就“俄乌停火能否继续延长”表示，支持大幅延长停火时限。
 
-“一个国家、一个民族的强盛，总是以文化兴盛为支撑的，中华民族伟大复兴需要以中华文化发展繁荣为条件。
+乌总统网站8日夜间公布泽连斯基签署的总统令。
 
-”2013年11月26日，习近平总书记来到山东曲阜孔府和孔子研究院参观考察，为传承发展中华优秀传统文化指明方向。
+该总统令称，考虑到多方要求，出于8日与美方会谈时阐明的人道主义宗旨，乌方决定，5月9日俄首都莫斯科红场举行阅兵期间，将红场所在区域排除在乌方攻击目标之外。
 
-从沉淀历史的“老三孔”到洋溢活力的“新三孔”，古韵与新声交响，传统与现代对话。
+该文件中标注了莫斯科红场的详细地理坐标。
 
-这场源于实践的文化传承，正将跨越千年的儒家智慧转化为人民群众可感、可知、可享的生活实践，为坚定文化自信筑牢根基，汇聚起奋进新时代的磅礴力量。
+特朗普8日傍晚在白宫表示，对于俄乌同意实施停火，“所有人都感到满意”。
 
-文案、制作：乔姝、彭晓玲 采访支持：翟纪新、曹大鹏 鸣谢：济宁市委网信办、曲阜市委宣传部 部分素材来源：人民日报、新华社、央视新闻等
+他支持接下来“大幅延长停火时限”，愿意派美方谈判代表前往莫斯科，协助解决乌克兰冲突。
+
+当天早些时候，特朗普在社交媒体发文称，在他提议下，俄乌将在9日至11日停火3天，在此期间相互交换1000名战俘。
 
 ## 相关推荐
 
-- 2026-06-30 00:18 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 00:32 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 00:12 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 00:19 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 00:23 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-30 00:12 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 00:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 00:20 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 00:24 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 00:30 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 00:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 00:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 00:21 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 00:41 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 00:29 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 00:23 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 00:20 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-30 00:27 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 00:30 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 00:22 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 00:25 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 00:32 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 00:29 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 00:16 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 00:35 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 00:16 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 00:14 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:11 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/359595159396.shtml)
-- 2026-06-30 00:34 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/28652485.shtml)
-- 2026-06-30 00:07 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/15952321073.shtml)
-- 2026-06-30 00:22 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/08061510983.shtml)
-- 2026-06-30 00:14 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/9160758993.shtml)
-- 2026-06-30 00:26 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/52076.shtml)
-- 2026-06-30 00:09 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/79174563.shtml)
-- 2026-06-30 00:24 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/256420.shtml)
-- 2026-06-30 00:20 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/13483048.shtml)
-- 2026-06-30 00:08 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/18691259438.shtml)
-- 2026-06-30 00:24 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/35478.shtml)
-- 2026-06-30 00:19 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/84194486.shtml)
-- 2026-06-30 00:21 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/66969406786.shtml)
-- 2026-06-30 00:06 - [扬名立万](https://www.blog.minike.top/Article/details/171545.shtml)
-- 2026-06-30 00:17 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/943666667246.shtml)
+- 2026-06-30 00:25 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/252328.shtml)
+- 2026-06-30 00:17 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/1628340.shtml)
+- 2026-06-30 00:13 - [毒液2](http://www.blog.kurohicncr.top/Article/details/64145275863.shtml)
+- 2026-06-30 00:24 - [逃狱兄弟](https://www.blog.minike.top/Article/details/77106606389.shtml)
+- 2026-06-30 00:19 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/10359357.shtml)
+- 2026-06-30 00:26 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/25756.shtml)
+- 2026-06-30 00:32 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/07088819.shtml)
+- 2026-06-30 00:33 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/183562457067.shtml)
+- 2026-06-30 00:39 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/809415224000.shtml)
+- 2026-06-30 00:36 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/77120436.shtml)
+- 2026-06-30 00:39 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/136026609252.shtml)
+- 2026-06-30 00:41 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/8714617.shtml)
+- 2026-06-30 00:28 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/949545.shtml)
+- 2026-06-30 00:38 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/499315572.shtml)
+- 2026-06-30 00:29 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/2971674828.shtml)

@@ -1,53 +1,55 @@
-# 法尔斯通讯社：伊朗对美伊协议的最终决定仍在进行审查
+# 民生银行：首席合规官黄红日的任职资格获核准
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-据半官方的法尔斯通讯社援引一位接近伊朗谈判团队的知情人士报道，伊朗尚未宣布其与美国可能签署谅解备忘录的最终决定。 这位不愿透露姓名的消息人士称，目前正在对拟议协议的政治、法律和技术层面进行审查。 当局正在对该协议进行详细评估。责任编辑：陈钰嘉
+5月8日金融一线消息，民生银行发布公告称，该行于2026年5月7日收到《国家金融监督管理总局关于黄红日民生银行首席合规官任职资格的批复》（金复〔2026〕237号），核准黄红日担任该行首席合规官的任职资格。根据相关规定，黄红日自任职资格核准之日起就任民生银行首席合规官。 简历显示，黄红日，1972年出生，现任民生银行副行长，兼任民生金融租赁股份有限公司董事长。黄红日曾任民生银行
 
 ## 正文
 
-据半官方的法尔斯通讯社援引一位接近伊朗谈判团队的知情人士报道，伊朗尚未宣布其与美国可能签署谅解备忘录的最终决定。
+5月8日金融一线消息，民生银行发布公告称，该行于2026年5月7日收到《国家金融监督管理总局关于黄红日民生银行首席合规官任职资格的批复》（金复〔2026〕237号），核准黄红日担任该行首席合规官的任职资格。
 
-这位不愿透露姓名的消息人士称，目前正在对拟议协议的政治、法律和技术层面进行审查。
+根据相关规定，黄红日自任职资格核准之日起就任民生银行首席合规官。
 
-当局正在对该协议进行详细评估。
+简历显示，黄红日，1972年出生，现任民生银行副行长，兼任民生金融租赁股份有限公司董事长。
 
-责任编辑：陈钰嘉
+黄红日曾任民生银行公司银行部信息与规划中心处长、能源金融事业部市场总监、南宁分行行长、公司银行部总经理、公司与投资银行事业部公司业务战略规划部总经理、广州分行行长、信贷管理部总经理、授信审批部总经理。
+
+黄红日获得湖南大学国际金融专业硕士学位，现为经济师。
+
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 00:30 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 00:35 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 00:07 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-30 00:08 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 00:14 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 00:19 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 00:08 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 00:23 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 00:15 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 00:28 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 00:10 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 00:28 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 00:22 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-30 00:07 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 00:29 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 00:16 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 00:22 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 00:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 00:36 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 00:31 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 00:20 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 00:33 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 00:15 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 00:39 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 00:13 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 00:23 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 00:31 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 00:13 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:28 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/2584406541.shtml)
-- 2026-06-30 00:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/59652207572.shtml)
-- 2026-06-30 00:25 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/34747421.shtml)
-- 2026-06-30 00:34 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/8770058580.shtml)
-- 2026-06-30 00:08 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/8020297995.shtml)
-- 2026-06-30 00:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/255832242.shtml)
-- 2026-06-30 00:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/49356883599.shtml)
-- 2026-06-30 00:06 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/094750573544.shtml)
-- 2026-06-30 00:11 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/957602.shtml)
-- 2026-06-30 00:07 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/288540.shtml)
-- 2026-06-30 00:34 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/72320.shtml)
-- 2026-06-30 00:28 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/104951.shtml)
-- 2026-06-30 00:28 - [一生一世](http://www.blog.minike.top/Article/details/45433207.shtml)
-- 2026-06-30 00:13 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/21364925597.shtml)
-- 2026-06-30 00:34 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/414509902.shtml)
+- 2026-06-30 00:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/7254559496.shtml)
+- 2026-06-30 00:23 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/30603.shtml)
+- 2026-06-30 00:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/323813.shtml)
+- 2026-06-30 00:35 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/0949845.shtml)
+- 2026-06-30 00:27 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/209601248384.shtml)
+- 2026-06-30 00:15 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/75812607.shtml)
+- 2026-06-30 00:15 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/6215916.shtml)
+- 2026-06-30 00:30 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/719937242.shtml)
+- 2026-06-30 00:31 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/806838.shtml)
+- 2026-06-30 00:17 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/3888101158.shtml)
+- 2026-06-30 00:13 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/6191545849.shtml)
+- 2026-06-30 00:22 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/71796263354.shtml)
+- 2026-06-30 00:28 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/333558993.shtml)
+- 2026-06-30 00:15 - [法拉利车主已自行承担修理费近3万](http://www.share.minike.top/Article/details/939696271.shtml)
+- 2026-06-30 00:19 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/395906.shtml)

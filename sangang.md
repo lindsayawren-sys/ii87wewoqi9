@@ -1,61 +1,58 @@
-# 特朗普：伊核协议将于明日签署
+# 横琴口岸“联合一站式”车道智能通关正式启动
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-特朗普在社交平台发文称：“奥巴马时期与伊朗达成的《联合全面行动计划》，实则是让伊朗轻松顺利研发核武器的捷径。按照那份协议，伊朗六年前就能拥有核武器，并且早就会付诸使用。我和伊朗达成的协议则截然相反，它会彻底阻断伊朗获取核武器的可能。” 他说，事实上，伊朗如今不再谋求核武器，也永远无法通过自研、采购或其他任何途径得到核武。这份协议定于明日签署，协议生效后，霍尔木兹海峡将即刻全面开
+7日，横琴口岸“联合一站式”车道智能通关正式启动。符合资格的驾驶者在车道上的“人员信息采集一体机”前短暂停驻，系统通过指纹与面相双重生物特征识别，粤澳两地边检查验便可“瞬间比对”“一次放行”。 据介绍，此次推行的智能通关适用于已完成跨境驾驶员备案并同时符合相关条件的澳门居民、香港永久性居民、内地居民及台湾地区居民。完成备案流程后，驾驶者抵达口岸无需再出示实体证件。经测算，这种“
 
 ## 正文
 
-特朗普在社交平台发文称：“奥巴马时期与伊朗达成的《联合全面行动计划》，实则是让伊朗轻松顺利研发核武器的捷径。
+7日，横琴口岸“联合一站式”车道智能通关正式启动。
 
-按照那份协议，伊朗六年前就能拥有核武器，并且早就会付诸使用。
+符合资格的驾驶者在车道上的“人员信息采集一体机”前短暂停驻，系统通过指纹与面相双重生物特征识别，粤澳两地边检查验便可“瞬间比对”“一次放行”。
 
-我和伊朗达成的协议则截然相反，它会彻底阻断伊朗获取核武器的可能。
+据介绍，此次推行的智能通关适用于已完成跨境驾驶员备案并同时符合相关条件的澳门居民、香港永久性居民、内地居民及台湾地区居民。
 
-” 他说，事实上，伊朗如今不再谋求核武器，也永远无法通过自研、采购或其他任何途径得到核武。
+完成备案流程后，驾驶者抵达口岸无需再出示实体证件。
 
-这份协议定于明日签署，协议生效后，霍尔木兹海峡将即刻全面开放。
+经测算，这种“智能通关”模式可让单车查验效率提高约10%。
 
-本届政府与伊朗的关系，相较此前数届政府有了极大改善。
+自去年11月起，横琴口岸旅检通道率先应用“智能通关”，经过为期6个月的运行，系统性能稳定可靠、通关操作便捷高效，累计已有超过28万符合资格人员登记，逾460万人次“刷脸”通关，约占整体合作查验自助通道通关人数的35%。
 
-奥巴马政府曾向伊朗输送数千亿美元资金，其中还包括17亿美元现金，而本次协议不会产生任何资金往来。
+时隔半年，这项便民红利顺利延伸至“联合一站式”车道。
 
-特朗普表示：“待局势完全平稳后，我们会出动先进的B-2轰炸机及优秀飞行员，深入伊朗境内，清理深埋在坚固花岗岩山体下的核相关物料。
+记者：宋晨、郭雨祺、王浩明报道员：梁建华 来源：新华社
 
 ## 相关推荐
 
-- 2026-06-30 00:27 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 00:30 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 00:21 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 00:08 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 00:10 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 00:13 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-30 00:18 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 00:30 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-30 00:10 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 00:15 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 00:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 00:11 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 00:06 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 00:14 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 00:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 00:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 00:32 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 00:20 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 00:26 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 00:41 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 00:20 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 00:21 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 00:20 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 00:12 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 00:28 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 00:18 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-30 00:26 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:23 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/178031347374.shtml)
-- 2026-06-30 00:30 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/30818.shtml)
-- 2026-06-30 00:18 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/773668193401.shtml)
-- 2026-06-30 00:25 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/761143508945.shtml)
-- 2026-06-30 00:32 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/857407323188.shtml)
-- 2026-06-30 00:19 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/182389103.shtml)
-- 2026-06-30 00:28 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/91753449.shtml)
-- 2026-06-30 00:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/927872.shtml)
-- 2026-06-30 00:08 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/73010504595.shtml)
-- 2026-06-30 00:21 - [刘念回应](https://www.share.minike.top/Article/details/19450.shtml)
-- 2026-06-30 00:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/2407069.shtml)
-- 2026-06-30 00:14 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/63373794395.shtml)
-- 2026-06-30 00:11 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/8196281.shtml)
-- 2026-06-30 00:14 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/332786.shtml)
-- 2026-06-30 00:31 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/08968353575.shtml)
+- 2026-06-30 00:37 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/267494408124.shtml)
+- 2026-06-30 00:38 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/6060112529.shtml)
+- 2026-06-30 00:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/82139.shtml)
+- 2026-06-30 00:32 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/882920.shtml)
+- 2026-06-30 00:18 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/6269221229.shtml)
+- 2026-06-30 00:39 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/59300474669.shtml)
+- 2026-06-30 00:24 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/342233001.shtml)
+- 2026-06-30 00:28 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/09310.shtml)
+- 2026-06-30 00:12 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/9964735377.shtml)
+- 2026-06-30 00:18 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/2744328834.shtml)
+- 2026-06-30 00:17 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/0857533.shtml)
+- 2026-06-30 00:16 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/0672523.shtml)
+- 2026-06-30 00:25 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/269913.shtml)
+- 2026-06-30 00:14 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/82430171398.shtml)
+- 2026-06-30 00:21 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/5444634265.shtml)

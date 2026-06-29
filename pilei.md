@@ -1,61 +1,55 @@
-# 小克重金条卖爆，黄金消费股大涨，芝商所将开启黄金7×24小时交易
+# 6条公交+城际加密 京冀跨省通勤惠及河北大厂民众
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-记者丨叶麦穗 编辑丨周炎炎 肖嘉 近期，黄金价格暴跌之后，不少抄底的投资人积极入场。 6月11日，21世纪经济报道记者在素有“北京黄金消费风向标”之称的菜百首饰总店探访时，销售人员表示，当日5克、10克的小规格投资金条已售罄。现场成交节奏极快，不少人“秒买秒付”。 值得注意的是，黄金价跌量升。6月12日，黄金消费概念股的股价大涨，其中A股上市公司潮宏基涨停，菜百股份上涨5.6%
+发布时间：2026年05月08日 20:56 来源：中国新闻网 5月8日早上6点20分，在北京市朝阳区第三医院工作的张媛媛走出位于河北廊坊的小区大门，不到5分钟就登上大厂专1线。自从有了这条公交线路，她的通勤从容了许多。 张媛媛的通勤路，是京冀两地民众跨省出行实现无缝衔接、就近直达的一个缩影。京津冀协同发展战略实施12年来，河北大厂跨区域交通网络互联互通步伐持续加快，首都环线高
 
 ## 正文
 
-记者丨叶麦穗 编辑丨周炎炎 肖嘉 近期，黄金价格暴跌之后，不少抄底的投资人积极入场。
+发布时间：2026年05月08日 20:56 来源：中国新闻网 5月8日早上6点20分，在北京市朝阳区第三医院工作的张媛媛走出位于河北廊坊的小区大门，不到5分钟就登上大厂专1线。
 
-6月11日，21世纪经济报道记者在素有“北京黄金消费风向标”之称的菜百首饰总店探访时，销售人员表示，当日5克、10克的小规格投资金条已售罄。
+自从有了这条公交线路，她的通勤从容了许多。
 
-现场成交节奏极快，不少人“秒买秒付”。
+张媛媛的通勤路，是京冀两地民众跨省出行实现无缝衔接、就近直达的一个缩影。
 
-值得注意的是，黄金价跌量升。
+京津冀协同发展战略实施12年来，河北大厂跨区域交通网络互联互通步伐持续加快，首都环线高速大厂段、京唐城际铁路大厂段、厂通路潮白河大桥先后建成通车，区域路网通达性显著提升。
 
-6月12日，黄金消费概念股的股价大涨，其中A股上市公司潮宏基涨停，菜百股份上涨5.6%；港股市场上，周大福大涨15.2%，灵宝黄金上涨12.43%，珠峰黄金上涨8.86%，老铺黄金上涨6%。
+截至目前，大厂已有往返北京的公交线路6条，京唐城际铁路大厂站日均开行列车增加到20班次。
 
-截至记者发稿，伦敦金回调至4200美元/盎司，国内金价同步回升至900元/克以上。
-
-黄金零售股大涨 近期，国际金价一路下探。
-
-6月11日，菜百的投资金条也跟着跌破了900元/克的关键价位。
+(马祥涛 李月 制作 艾广德） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 00:20 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 00:13 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 00:17 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-30 00:16 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 00:31 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 00:25 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-30 00:35 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 00:12 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 00:26 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 00:35 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 00:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 00:27 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 00:35 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 00:28 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 00:18 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 00:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 00:24 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 00:41 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 00:27 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 00:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 00:38 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 00:16 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-30 00:22 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 00:32 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 00:34 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 00:18 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 00:23 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 00:37 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/128830087.shtml)
-- 2026-06-30 00:21 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/8690742827.shtml)
-- 2026-06-30 00:33 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/10266.shtml)
-- 2026-06-30 00:32 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/36834985.shtml)
-- 2026-06-30 00:12 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/7353621672.shtml)
-- 2026-06-30 00:26 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/225821606153.shtml)
-- 2026-06-30 00:19 - [85花告别古偶](http://www.blog.minike.top/Article/details/88724963805.shtml)
-- 2026-06-30 00:08 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/048785.shtml)
-- 2026-06-30 00:26 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/2304044753.shtml)
-- 2026-06-30 00:32 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/36807039543.shtml)
-- 2026-06-30 00:09 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/4015375587.shtml)
-- 2026-06-30 00:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/93071.shtml)
-- 2026-06-30 00:27 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/009947205.shtml)
-- 2026-06-30 00:27 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/70534432.shtml)
-- 2026-06-30 00:21 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/6221930.shtml)
+- 2026-06-30 00:38 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/7076109129.shtml)
+- 2026-06-30 00:29 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/113592699.shtml)
+- 2026-06-30 00:27 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/282229272100.shtml)
+- 2026-06-30 00:16 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/667102603.shtml)
+- 2026-06-30 00:12 - [《贺子珍》](https://www.blog.minike.top/Article/details/25853163.shtml)
+- 2026-06-30 00:27 - [一生一世](http://www.share.minike.top/Article/details/618505.shtml)
+- 2026-06-30 00:13 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/934278.shtml)
+- 2026-06-30 00:12 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/8042901257.shtml)
+- 2026-06-30 00:30 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/1968196744.shtml)
+- 2026-06-30 00:34 - [沙丘](https://www.share.minike.top/Article/details/7073605.shtml)
+- 2026-06-30 00:18 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/677646395.shtml)
+- 2026-06-30 00:28 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/80839456.shtml)
+- 2026-06-30 00:27 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/205534.shtml)
+- 2026-06-30 00:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/211546.shtml)
+- 2026-06-30 00:26 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/68055865459.shtml)

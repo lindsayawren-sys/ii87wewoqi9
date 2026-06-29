@@ -1,61 +1,60 @@
-# 招行开户上门核验找顺丰执行 快递小哥也能接银行外包业务？
+# 中金：百济神州维持跑赢行业评级 目标价250港元
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-原标题：快递小哥，接了银行外包业务 作者：徐潇潇 顺丰小哥还能帮银行跑腿“尽调”？ 近日，一则“银行开户上门核验交由顺丰快递员执行”的消息在社交网络上传播，引发不少讨论，主要是原本由银行人员上门完成的场地查看、地址核实等对公业务的“尽职调查”环节，却委托给快递员代劳。上海证券报记者从银行和快递人士处了解到，这一业务名为“上门核验”或者“上门核实”，的确有不少银行外包给了顺丰速运
+中金发布研报称，综合考虑百济神州（06160）费用控制，维持2026年收入预测不变，上调盈利预测7.1%至6.5亿美元，并维持2027年盈利预测不变。该行维持跑赢行业评级，基于DCF模型，该行维持A/H/US股目标价320元/250港币/420美元（29.6%/37.4%/34.1%上行空间）。 中金主要观点如下： 1Q26业绩超该行预期 公司公布1Q26业绩：收入15.13亿
 
 ## 正文
 
-原标题：快递小哥，接了银行外包业务 作者：徐潇潇 顺丰小哥还能帮银行跑腿“尽调”？
+中金发布研报称，综合考虑百济神州（06160）费用控制，维持2026年收入预测不变，上调盈利预测7.1%至6.5亿美元，并维持2027年盈利预测不变。
 
-近日，一则“银行开户上门核验交由顺丰快递员执行”的消息在社交网络上传播，引发不少讨论，主要是原本由银行人员上门完成的场地查看、地址核实等对公业务的“尽职调查”环节，却委托给快递员代劳。
+该行维持跑赢行业评级，基于DCF模型，该行维持A/H/US股目标价320元/250港币/420美元（29.6%/37.4%/34.1%上行空间）。
 
-上海证券报记者从银行和快递人士处了解到，这一业务名为“上门核验”或者“上门核实”，的确有不少银行外包给了顺丰速运代核。
+中金主要观点如下： 1Q26业绩超该行预期 公司公布1Q26业绩：收入15.13亿美元，同比增长35%，其中产品收入14.87亿美元，同比增长34%，GAAP净利润2.27亿美元，同比增加2.26亿美元，销售收入符合该行预期，净利润超该行预期，主因费用控制较好。
 
-在经营压力之下，银行在成本端“精打细算”，将一些业务外包无可厚非，不过这一做法也引发讨论：上门核验作为风控的重要环节，银行将其外包到底是否合规？
+泽布替尼拉动产品收入稳步增长 1Q26泽布替尼全球销售10.95亿美元，YoY +38%，其中美国销售7.61亿美元，YoY +35%，主要得益于泽布替尼的强劲需求增长以及净定价带来的收益，继续保持在CLL新患中的主导地位；欧洲销售1.82亿美元，YoY +57%；中国销售0.94亿美元，YoY +16%。
 
-对此，业内人士看法不一，但焦点始终落在同一个问题上——外包之后，银行还能否有效履行客户身份识别的主体责任。
+1Q26替雷利珠单抗全球销售额2.06亿美元，YoY +20%。
 
-快递员替银行跑腿“尽调” 企业在银行开立账户，需由银行客户经理或柜员双人上门执行，这历来是反洗钱、客户身份识别等监管要求的必要环节。
+GAAP净利润达到2.27亿美元，单季度盈利首次超过2亿美元，超过该行预期。
 
-这一原本属于银行的实地尽调工作，如今被委托给穿梭于大街小巷的快递员。
+公司上调26年全年收入和利润指引 公司上调全年收入由62-64亿美元至63-65亿美元；上调全年GAAP经营利润由7-8亿美元至7.5-8.5亿美元；毛利率、经营费用指引维持不变。
 
-记者多方了解到，招商银行就将这一环节委托给顺丰速运执行。
+公司在2026年将有多个重磅催化剂 公司预计：1）索托克拉R/R MCL有望于2Q26在美国获批，并于2H26启动R/R MM的III期临床；2）基于II期临床，BTK CDAC或将于2H26递交R/R CLL适应症的潜在加速批准 ；3）CDK4用于1L乳腺癌的III期临床将于1H26启动；4）PD-1/VEGF-A/CTLA-4三抗将于6M26完成首例患者入组；；5）GPC3/4-1BB双抗将于2H26启动关键注册临床。
 
 ## 相关推荐
 
-- 2026-06-30 00:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 00:14 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 00:22 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 00:21 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 00:15 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 00:28 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 00:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 00:16 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 00:28 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 00:09 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 00:35 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 00:10 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 00:30 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 00:25 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 00:12 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 00:35 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 00:14 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 00:20 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 00:13 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 00:38 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 00:30 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 00:23 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 00:28 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 00:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 00:18 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 00:36 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 00:26 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 00:12 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 00:41 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:22 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/6164496831.shtml)
-- 2026-06-30 00:10 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/76127819783.shtml)
-- 2026-06-30 00:20 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/66448786.shtml)
-- 2026-06-30 00:32 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/1316323025.shtml)
-- 2026-06-30 00:26 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/687904.shtml)
-- 2026-06-30 00:11 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/676439078.shtml)
-- 2026-06-30 00:26 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/270458.shtml)
-- 2026-06-30 00:06 - [时光音乐会](https://www.blog.minike.top/Article/details/5395763.shtml)
-- 2026-06-30 00:22 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/530248163.shtml)
-- 2026-06-30 00:14 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/25384.shtml)
-- 2026-06-30 00:13 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/3769584945.shtml)
-- 2026-06-30 00:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/93327973704.shtml)
-- 2026-06-30 00:23 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/593892584962.shtml)
-- 2026-06-30 00:31 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/97967412886.shtml)
-- 2026-06-30 00:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/11157.shtml)
+- 2026-06-30 00:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/514204555.shtml)
+- 2026-06-30 00:40 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/59686.shtml)
+- 2026-06-30 00:24 - [急先锋](https://www.share.kurohicncr.top/Article/details/23730.shtml)
+- 2026-06-30 00:15 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/9791584.shtml)
+- 2026-06-30 00:25 - [日防卫省正考虑引进美企人工智能系统](https://www.share.kurohicncr.top/Article/details/0829893931.shtml)
+- 2026-06-30 00:28 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/4296490.shtml)
+- 2026-06-30 00:31 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/755456317930.shtml)
+- 2026-06-30 00:15 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/764948.shtml)
+- 2026-06-30 00:38 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/050350165041.shtml)
+- 2026-06-30 00:21 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/51252.shtml)
+- 2026-06-30 00:28 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/295362584498.shtml)
+- 2026-06-30 00:20 - [巴黎区长紧急采购50台中国空调](https://www.share.kurohicncr.top/Article/details/174232.shtml)
+- 2026-06-30 00:27 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/52771832.shtml)
+- 2026-06-30 00:38 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/416199.shtml)
+- 2026-06-30 00:35 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/23011668.shtml)

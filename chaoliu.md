@@ -1,56 +1,54 @@
-# （聚焦海峡论坛）苏恒：台湾民众向往和平发展繁荣的意愿无人可挡
+# 国恩科技午前涨超7% 公司塑料板块销量增长出海长期成长确定性高
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新社厦门6月13日电 (彭莉芳)台湾中华海峡经贸交流协会理事长苏恒13日在福建厦门表示，台湾民众想要和平、想要发展、想要繁荣，这一份“想要”没有人可以阻挡。 第十八届海峡论坛大会当日在厦门举行。苏恒在大会上发言时说，尽管受到台湾当局诸多限制，本届论坛仍吸引大量台湾民众参加。“农民来找销路，渔民来谈合作，青年来看机会。他们图的不是政治，而是日子，更是未来。” 苏恒表示，她注意到
+国恩科技（02768）午前涨超7%，截至发稿，股价上涨7.60%，现报50.70港元，成交额3977.04万港元。 近日，国恩股份披露26年首季度业绩，申万宏源指出，26Q1公司实现营业收入为53.77亿元（yoy+22%，QoQ-7%），归母净利润为2.57亿元（yoy+131%，QoQ+13%），扣非后归母净利润为2.55亿元（yoy+149%，QoQ+13%），业绩超预期
 
 ## 正文
 
-中新社厦门6月13日电 (彭莉芳)台湾中华海峡经贸交流协会理事长苏恒13日在福建厦门表示，台湾民众想要和平、想要发展、想要繁荣，这一份“想要”没有人可以阻挡。
+国恩科技（02768）午前涨超7%，截至发稿，股价上涨7.60%，现报50.70港元，成交额3977.04万港元。
 
-第十八届海峡论坛大会当日在厦门举行。
+近日，国恩股份披露26年首季度业绩，申万宏源指出，26Q1公司实现营业收入为53.77亿元（yoy+22%，QoQ-7%），归母净利润为2.57亿元（yoy+131%，QoQ+13%），扣非后归母净利润为2.55亿元（yoy+149%，QoQ+13%），业绩超预期。
 
-苏恒在大会上发言时说，尽管受到台湾当局诸多限制，本届论坛仍吸引大量台湾民众参加。
+该行预计公司业绩同比高增主要系产品涨价，塑料板块销量增长，及国恩一塑持续放量所致。
 
-“农民来找销路，渔民来谈合作，青年来看机会。
+申万宏源续指，公司成功实现H股上市，募集资金将用于泰国基地建设，以及香港石化技改。
 
-他们图的不是政治，而是日子，更是未来。
+海外改性塑料市场空间大，盈利能力强，公司将跟随下游企业出海建立先发优势，长期成长确定性高。
 
-” 苏恒表示，她注意到，尽管目前两岸航线尚未全面恢复，但台湾飞往大陆的航班几乎班班满座。
+此外，公司正积极推进香港石化及国恩东明的产能恢复工作，根据公司年报，部分核心项目进度已超过85%，后续增量值得期待。
 
-在台湾，越来越多从未到访大陆的台湾民众主动启程，积极参与两岸民间交流，推动融合发展持续深化。
-
-苏恒表示，两岸同胞的“走亲走近”早已融入日常生活。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:27 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 00:27 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 00:16 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 00:27 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 00:23 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 00:08 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 00:09 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 00:20 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 00:32 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 00:07 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 00:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 00:22 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 00:30 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 00:16 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 00:40 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 00:26 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 00:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 00:35 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 00:32 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 00:31 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:33 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/5187493.shtml)
-- 2026-06-30 00:22 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/945281.shtml)
-- 2026-06-30 00:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/05730.shtml)
-- 2026-06-30 00:12 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/76472.shtml)
-- 2026-06-30 00:08 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/6825207.shtml)
-- 2026-06-30 00:19 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/8772439.shtml)
-- 2026-06-30 00:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/3162014902.shtml)
-- 2026-06-30 00:14 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/15087.shtml)
-- 2026-06-30 00:17 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.minike.top/Article/details/37342409242.shtml)
-- 2026-06-30 00:27 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/7484571.shtml)
-- 2026-06-30 00:07 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/669413489.shtml)
-- 2026-06-30 00:34 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/6288952.shtml)
-- 2026-06-30 00:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/266174.shtml)
-- 2026-06-30 00:07 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/06534332689.shtml)
-- 2026-06-30 00:30 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/142011.shtml)
+- 2026-06-30 00:18 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/2415528.shtml)
+- 2026-06-30 00:37 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/12780120214.shtml)
+- 2026-06-30 00:40 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/96972287.shtml)
+- 2026-06-30 00:27 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/22125696.shtml)
+- 2026-06-30 00:29 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/06577.shtml)
+- 2026-06-30 00:17 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/64919880.shtml)
+- 2026-06-30 00:25 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/75483412.shtml)
+- 2026-06-30 00:24 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/96387255.shtml)
+- 2026-06-30 00:18 - [请回答王牌2019](http://www.share.minike.top/Article/details/0312152827.shtml)
+- 2026-06-30 00:37 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/003692.shtml)
+- 2026-06-30 00:25 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/989810013.shtml)
+- 2026-06-30 00:33 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/7761439730.shtml)
+- 2026-06-30 00:14 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/6725880.shtml)
+- 2026-06-30 00:33 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/17405959485.shtml)
+- 2026-06-30 00:19 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/131592675280.shtml)

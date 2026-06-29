@@ -1,55 +1,58 @@
-# 成为一名“学院派”烧烤师有多香？学员：从课堂香到职场
+# 国内成品油价今晚上调，油价重返“9元时代”
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月14日 14:43 来源：中国新闻网 火爆全网的湖南岳阳烧烤学院，又双叒叕开课啦！本次报名的学员中，不乏来自全国各地有着多年从业经验的老烧烤师傅，慕名前来“回炉重造”。成为一名“学院派”烧烤师有多香？今天，新潮工作室来到这里一探究竟！(徐志雄张雪盈) 责任编辑：【周驰】
+界面新闻记者 | 田鹤琪 国内成品油价今晚迎来上调。 5月8日，国家发改委发布消息称，自24时起，国内汽油价格和柴油价格分别上调320元/吨、310元/吨。折合升价，92号汽油、95号汽油和0号柴油分别上调0.25元、0.27元、0.26元。 公众自驾通勤和出行消费支出将大幅增加。例如，油箱容量为50升的小型私家车加满一箱油，将比之前多花12.5元左右；物流行业，以月跑1万公里
 
 ## 正文
 
-发布时间：2026年06月14日 14:43 来源：中国新闻网 火爆全网的湖南岳阳烧烤学院，又双叒叕开课啦！
+界面新闻记者 | 田鹤琪 国内成品油价今晚迎来上调。
 
-本次报名的学员中，不乏来自全国各地有着多年从业经验的老烧烤师傅，慕名前来“回炉重造”。
+5月8日，国家发改委发布消息称，自24时起，国内汽油价格和柴油价格分别上调320元/吨、310元/吨。
 
-成为一名“学院派”烧烤师有多香？
+折合升价，92号汽油、95号汽油和0号柴油分别上调0.25元、0.27元、0.26元。
 
-今天，新潮工作室来到这里一探究竟！
+公众自驾通勤和出行消费支出将大幅增加。
 
-(徐志雄张雪盈) 责任编辑：【周驰】
+例如，油箱容量为50升的小型私家车加满一箱油，将比之前多花12.5元左右；物流行业，以月跑1万公里，百公里油耗在38L的重型卡车为例，单辆车的燃油成本将增加428元左右。
+
+本轮调价后，全国大多数地区车柴价格8.4-8.6元/升，92#汽油零售限价在8.5-8.6元/升，95号汽油价格将全面涨至“9元时代”。
+
+调价周期内，国内参考的原油变化率处于正值内先扩大后收窄。
+
+卓创资讯成品油分析师戴田东对界面新闻分析指出，前期由于霍尔木兹海峡危机结果悬而未决，且美伊谈判可能长期停滞，国际油价整体呈现震荡上涨，后期市场对美伊冲突可能结束的乐观情绪升温，国际油价连续三日下跌。
 
 ## 相关推荐
 
-- 2026-06-30 00:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 00:12 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 00:16 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 00:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 00:23 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 00:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 00:34 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 00:08 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 00:28 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 00:20 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 00:27 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 00:13 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 00:29 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 00:09 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 00:15 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 00:20 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 00:14 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 00:14 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 00:24 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 00:36 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 00:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 00:34 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 00:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 00:40 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 00:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 00:17 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 00:39 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:11 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/076717071214.shtml)
-- 2026-06-30 00:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/584603148027.shtml)
-- 2026-06-30 00:19 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/322361.shtml)
-- 2026-06-30 00:15 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/15437.shtml)
-- 2026-06-30 00:10 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/5391564.shtml)
-- 2026-06-30 00:21 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/8967797505.shtml)
-- 2026-06-30 00:12 - [急先锋](http://www.share.minike.top/Article/details/70946951931.shtml)
-- 2026-06-30 00:22 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/90109.shtml)
-- 2026-06-30 00:21 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/378277018197.shtml)
-- 2026-06-30 00:18 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/810248.shtml)
-- 2026-06-30 00:25 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/3235465.shtml)
-- 2026-06-30 00:18 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/20020336.shtml)
-- 2026-06-30 00:18 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/57198979.shtml)
-- 2026-06-30 00:10 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/3970004.shtml)
-- 2026-06-30 00:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/529334.shtml)
+- 2026-06-30 00:30 - [逃狱兄弟](http://www.blog.minike.top/Article/details/07648795632.shtml)
+- 2026-06-30 00:30 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/12510.shtml)
+- 2026-06-30 00:20 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/264278370241.shtml)
+- 2026-06-30 00:33 - [恋与深空 日服](http://www.share.minike.top/Article/details/279439849.shtml)
+- 2026-06-30 00:34 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/558200.shtml)
+- 2026-06-30 00:35 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/256161053586.shtml)
+- 2026-06-30 00:36 - [炽夏](https://www.share.kurohicncr.top/Article/details/71894705351.shtml)
+- 2026-06-30 00:27 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/79121178.shtml)
+- 2026-06-30 00:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/911977818264.shtml)
+- 2026-06-30 00:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/8314160.shtml)
+- 2026-06-30 00:20 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/979874493.shtml)
+- 2026-06-30 00:14 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/10368820.shtml)
+- 2026-06-30 00:24 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/4425207553.shtml)
+- 2026-06-30 00:20 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/912166968557.shtml)
+- 2026-06-30 00:16 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/11427.shtml)

@@ -1,58 +1,58 @@
-# 诺贝尔经济学奖得主：马斯克本质上是真人版庞氏骗局
+# 美官员称美国务院正在审查所有墨西哥驻美领事馆
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-当地时间6月12日，诺贝尔经济学奖得主保罗·克鲁格曼发文“Elon Musk， Human Ponzi Scheme”，称世界首富埃隆·马斯克是庞氏骗局。 原文编译如下： 昨天我进行了一次短途旅行。首先，我乘坐了当地的超级高铁，它穿行于无聊公司（Boring Company）挖掘的隧道之中。随后，我通过脑机接口召唤了一辆完全自动驾驶的特斯拉机器人出租车。途中，我还阅读了来自火星
+据美国方面7日消息，一名美国官员说，美国国务院正在对全部53个墨西哥驻美领事馆进行审查。在美墨关系紧张的背景下，此举可能导致一些外交机构关闭。 据悉，美国国务院负责全球公共事务的助理国务卿迪伦·约翰逊表示，“国务院正在不断审查美国外交关系的各个方面，以确保它们符合总统的‘美国优先’外交政策议程”。 此次审查正值美墨两国因安全合作和打击贩毒集团问题而关系日益紧张之际。美国司法部4
 
 ## 正文
 
-当地时间6月12日，诺贝尔经济学奖得主保罗·克鲁格曼发文“Elon Musk， Human Ponzi Scheme”，称世界首富埃隆·马斯克是庞氏骗局。
+据美国方面7日消息，一名美国官员说，美国国务院正在对全部53个墨西哥驻美领事馆进行审查。
 
-原文编译如下： 昨天我进行了一次短途旅行。
+在美墨关系紧张的背景下，此举可能导致一些外交机构关闭。
 
-首先，我乘坐了当地的超级高铁，它穿行于无聊公司（Boring Company）挖掘的隧道之中。
+据悉，美国国务院负责全球公共事务的助理国务卿迪伦·约翰逊表示，“国务院正在不断审查美国外交关系的各个方面，以确保它们符合总统的‘美国优先’外交政策议程”。
 
-随后，我通过脑机接口召唤了一辆完全自动驾驶的特斯拉机器人出租车。
+此次审查正值美墨两国因安全合作和打击贩毒集团问题而关系日益紧张之际。
 
-途中，我还阅读了来自火星殖民地的最新消息。
+美国司法部4月29日对包括时任锡那罗亚州州长鲁本·罗查·莫亚在内的10名墨西哥现任和前任官员提起公诉，指控其与锡那罗亚贩毒集团勾结，协助毒品流入美国，并涉及武器犯罪和绑架等。
 
-好吧，以上一切都并未发生，因为那些产品根本不存在。
+此前，美国方面称，两名美国中央情报局特工4月在墨西哥北部的一次缉毒行动中遭遇车祸丧生。
 
-目前没有任何可投入运营的超级高铁；Boring Company也未挖掘任何一条商业隧道；特斯拉仅在奥斯汀部署了少数几辆自动驾驶（而非完全自动驾驶）出租车，其他地方则一概没有。
+墨西哥政府表示，这两人并未获得在墨行动的授权。
 
-（谷歌旗下的Waymo无人驾驶出租车已在多个主要交通枢纽投入运营。
+墨西哥总统辛鲍姆公开要求美国政府对这起事件做出解释。
 
 ## 相关推荐
 
-- 2026-06-30 00:10 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 00:31 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 00:07 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 00:28 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 00:21 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 00:12 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 00:26 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 00:28 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 00:21 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 00:22 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 00:22 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 00:30 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 00:28 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 00:31 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 00:37 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 00:40 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 00:19 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 00:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 00:31 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 00:41 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 00:16 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 00:35 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 00:16 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 00:23 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/5774081300.shtml)
-- 2026-06-30 00:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/931740.shtml)
-- 2026-06-30 00:13 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/4813365.shtml)
-- 2026-06-30 00:26 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/67970.shtml)
-- 2026-06-30 00:28 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/541330.shtml)
-- 2026-06-30 00:26 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/101228.shtml)
-- 2026-06-30 00:22 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/5737236813.shtml)
-- 2026-06-30 00:08 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/0549693029.shtml)
-- 2026-06-30 00:09 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/3321987655.shtml)
-- 2026-06-30 00:21 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/532866003948.shtml)
-- 2026-06-30 00:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/1985056.shtml)
-- 2026-06-30 00:11 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/868212.shtml)
-- 2026-06-30 00:18 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/435944788814.shtml)
-- 2026-06-30 00:16 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/487145474.shtml)
-- 2026-06-30 00:34 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/45823892979.shtml)
+- 2026-06-30 00:26 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/95797397743.shtml)
+- 2026-06-30 00:26 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/713328592611.shtml)
+- 2026-06-30 00:30 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/492378040.shtml)
+- 2026-06-30 00:12 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/63336667.shtml)
+- 2026-06-30 00:23 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/9371142.shtml)
+- 2026-06-30 00:34 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/308334.shtml)
+- 2026-06-30 00:13 - [请回答王牌2019](https://www.blog.minike.top/Article/details/337583118.shtml)
+- 2026-06-30 00:26 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/8911174.shtml)
+- 2026-06-30 00:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/8091272444.shtml)
+- 2026-06-30 00:23 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/394998578.shtml)
+- 2026-06-30 00:34 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/87492358231.shtml)
+- 2026-06-30 00:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/896997979.shtml)
+- 2026-06-30 00:14 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/639259405.shtml)
+- 2026-06-30 00:22 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/484007423.shtml)
+- 2026-06-30 00:20 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/969799668489.shtml)

@@ -1,56 +1,58 @@
-# （聚焦海峡论坛）“海峡金融论坛”厦门举行 大陆银行业首个对台金融服务团体标准发布
+# A股机器人相关板块周五走强
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网厦门6月12日电 (林永传)12日下午，大陆银行业首个对台金融服务团体标准——《银行业金融机构对台金融服务规范》在厦门发布，两岸财富管理暨资产管理跨业联盟同时揭牌成立。 当天，作为第十八届海峡论坛重要配套活动的“海峡金融论坛·台企发展论坛”在厦门举办。论坛聚焦两岸融合发展示范区建设三周年及“十五五”规划开局关键时点，围绕深化两岸金融合作、提升台企融资服务、促进产业转型升级
+中新社北京5月8日电 (记者 陈康亮)中国A股主要股指8日(周五)悉数下跌，但板块方面不乏亮点，机器人相关板块当天走强，表现亮眼。 根据金融数据服务商东方财富的统计，机器人执行器、机器人等板块当天涨幅居前。其中，机器人执行器板块当天上涨5.31%，领涨A股所有概念板块；个股方面，五洲新春、富春染织、雷赛智能、日发精机股价收获涨停板(涨幅约10%)。 消息面上，据媒体报道，今年一
 
 ## 正文
 
-中新网厦门6月12日电 (林永传)12日下午，大陆银行业首个对台金融服务团体标准——《银行业金融机构对台金融服务规范》在厦门发布，两岸财富管理暨资产管理跨业联盟同时揭牌成立。
+中新社北京5月8日电 (记者 陈康亮)中国A股主要股指8日(周五)悉数下跌，但板块方面不乏亮点，机器人相关板块当天走强，表现亮眼。
 
-当天，作为第十八届海峡论坛重要配套活动的“海峡金融论坛·台企发展论坛”在厦门举办。
+根据金融数据服务商东方财富的统计，机器人执行器、机器人等板块当天涨幅居前。
 
-论坛聚焦两岸融合发展示范区建设三周年及“十五五”规划开局关键时点，围绕深化两岸金融合作、提升台企融资服务、促进产业转型升级等，通过主题演讲、圆桌沙龙、会客室连线、项目签约、产品发布等多元形式，促成了一系列深化两岸融合发展重要成果。
+其中，机器人执行器板块当天上涨5.31%，领涨A股所有概念板块；个股方面，五洲新春、富春染织、雷赛智能、日发精机股价收获涨停板(涨幅约10%)。
 
-在论坛上发布的《银行业金融机构对台金融服务规范》由厦门银行牵头联合福建海峡银行、厦门国际银行、富邦华一银行等多家单位共同编制，厦门经济特区金融学会发布，是大陆银行业首个对台金融服务团体标准。
+消息面上，据媒体报道，今年一季度，中国机器人产业海外市场拓展步伐加快。
 
-该标准系统涵盖服务对象、产品体系、服务渠道、宣传推广及权益保障五大维度，致力于推动对台金融服务从“经验化”迈向“标准化”的全新阶段。
+各类单独列名的“机器人”合计出口额达113.2亿元(人民币，下同)，产品远销至全球148个国家和地区。
 
-同时揭牌成立的两岸财富管理暨资产管理跨业联盟由金圆集团旗下金融机构发起倡议，厦门国际信托、金圆统一证券、圆信永丰基金、富邦华一银行、君龙人寿、厦门长庚医院等机构共同发起，以服务两岸同胞财富管理与资产管理需求为核心，是涵盖大陆台胞台企资产配置、家族信托与财富传承、养老金融与健康保障等场景的一站式服务平台。
+数据显示，中国具身智能产业的市场规模预计在2030年达到4000亿元。
 
-论坛上还推介了白鹭分台胞金融服务平台。
+兴业证券分析师张启尧表示，当前，机器人等产业已实现关键突破，进入技术迭代和商业化落地的关键阶段。
 
-该平台目前已汇集厦门辖区内29家机构的71个金融产品，为台胞提供全方位、一站式线上金融服务。
+机器人等领域拥有较大规模的市场空间，并开始对经济社会产生广泛渗透，其二级市场的投资逻辑已从主题投资转向业绩兑现。
 
 ## 相关推荐
 
-- 2026-06-30 00:31 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 00:21 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 00:11 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 00:31 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-30 00:30 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 00:08 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 00:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 00:26 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 00:22 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 00:14 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 00:33 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 00:25 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 00:25 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 00:21 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 00:32 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 00:38 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 00:25 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 00:12 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 00:16 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 00:27 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 00:27 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 00:15 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:31 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/32658.shtml)
-- 2026-06-30 00:30 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/111719144729.shtml)
-- 2026-06-30 00:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/44846.shtml)
-- 2026-06-30 00:13 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/5691170764.shtml)
-- 2026-06-30 00:17 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/143479969.shtml)
-- 2026-06-30 00:14 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/184869.shtml)
-- 2026-06-30 00:31 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/82255.shtml)
-- 2026-06-30 00:23 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/42309236274.shtml)
-- 2026-06-30 00:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/377523.shtml)
-- 2026-06-30 00:19 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/0945549667.shtml)
-- 2026-06-30 00:26 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/275998657455.shtml)
-- 2026-06-30 00:30 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/959219933395.shtml)
-- 2026-06-30 00:35 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/665109217.shtml)
-- 2026-06-30 00:33 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/4214032078.shtml)
-- 2026-06-30 00:10 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/05395851361.shtml)
+- 2026-06-30 00:19 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/5218821.shtml)
+- 2026-06-30 00:34 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/58785.shtml)
+- 2026-06-30 00:21 - [月亮](https://www.blog.kurohicncr.top/Article/details/40754136.shtml)
+- 2026-06-30 00:26 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/77416861.shtml)
+- 2026-06-30 00:28 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/3095423069.shtml)
+- 2026-06-30 00:34 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/7830953.shtml)
+- 2026-06-30 00:37 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/78551163.shtml)
+- 2026-06-30 00:34 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/7048809732.shtml)
+- 2026-06-30 00:30 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/5935553930.shtml)
+- 2026-06-30 00:41 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/62679135.shtml)
+- 2026-06-30 00:34 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/51192925201.shtml)
+- 2026-06-30 00:21 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/659912.shtml)
+- 2026-06-30 00:30 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/7449540.shtml)
+- 2026-06-30 00:34 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/71297.shtml)
+- 2026-06-30 00:26 - [世界杯](http://www.share.kurohicncr.top/Article/details/2226825229.shtml)

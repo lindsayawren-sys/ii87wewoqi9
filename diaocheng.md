@@ -1,58 +1,57 @@
-# 央行：前五个月社会融资规模增量累计为17.48万亿元
+# 一季度成都航空口岸进出口总值创历史同期新高
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-2026年5月金融统计数据报告 一、社会融资规模存量同比增长7.7% 初步统计，2026年5月末社会融资规模存量为458.81万亿元，同比增长7.7%。其中，对实体经济发放的人民币贷款余额277.4万亿元，同比增长5.5%；对实体经济发放的外币贷款折合人民币余额1.14万亿元，同比下降4.3%；委托贷款余额11.22万亿元，同比持平；信托贷款余额4.67万亿元，同比增长7.1%
+中新网成都5月8日电 (记者 张浪)成都海关8日消息，今年一季度，成都航空口岸进出口总值达1847.9亿元，同比增长9.6%，规模创历史同期新高。 近年来，成都航空口岸的全球通达性持续增强。成都海关会同政府、航空公司建立国际航线备案及风险评估机制，一季度支持新开成都至西哈努克、布鲁塞尔等国际航线2条，加密成都至阿姆斯特丹等3条全货机航线至每日一班。目前，成都航空口岸在飞国际航线
 
 ## 正文
 
-2026年5月金融统计数据报告 一、社会融资规模存量同比增长7.7% 初步统计，2026年5月末社会融资规模存量为458.81万亿元，同比增长7.7%。
+中新网成都5月8日电 (记者 张浪)成都海关8日消息，今年一季度，成都航空口岸进出口总值达1847.9亿元，同比增长9.6%，规模创历史同期新高。
 
-其中，对实体经济发放的人民币贷款余额277.4万亿元，同比增长5.5%；对实体经济发放的外币贷款折合人民币余额1.14万亿元，同比下降4.3%；委托贷款余额11.22万亿元，同比持平；信托贷款余额4.67万亿元，同比增长7.1%；未贴现的银行承兑汇票余额2.13万亿元，同比下降6.2%；企业债券余额35.69万亿元，同比增长8.4%；政府债券余额100.6万亿元，同比增长15.1%；非金融企业境内股票余额12.43万亿元，同比增长4.7%。
+近年来，成都航空口岸的全球通达性持续增强。
 
-从结构看，5月末对实体经济发放的人民币贷款余额占同期社会融资规模存量的60.5%，同比低1.2个百分点；对实体经济发放的外币贷款折合人民币余额占比0.2%，同比低0.1个百分点；委托贷款余额占比2.4%，同比低0.2个百分点；信托贷款余额占比1%，同比持平；未贴现的银行承兑汇票余额占比0.5%，同比持平；企业债券余额占比7.8%，同比高0.1个百分点；政府债券余额占比21.9%，同比高1.4个百分点；非金融企业境内股票余额占比2.7%，同比低0.1个百分点。
+成都海关会同政府、航空公司建立国际航线备案及风险评估机制，一季度支持新开成都至西哈努克、布鲁塞尔等国际航线2条，加密成都至阿姆斯特丹等3条全货机航线至每日一班。
 
-二、前五个月社会融资规模增量累计为17.48万亿元 初步统计，2026年前五个月社会融资规模增量累计为17.48万亿元，比上年同期少1.16万亿元。
+目前，成都航空口岸在飞国际航线已达85条，全面覆盖五大洲核心城市。
 
-其中，对实体经济发放的人民币贷款增加9万亿元，同比少增1.38万亿元；对实体经济发放的外币贷款折合人民币增加1153亿元，同比多增2116亿元；委托贷款减少1031亿元，同比多减918亿元；信托贷款增加57亿元，同比少增570亿元；未贴现的银行承兑汇票减少172亿元，同比多减1514亿元；企业债券净融资1.67万亿元，同比多7577亿元；政府债券净融资5.67万亿元，同比少6340亿元；非金融企业境内股票融资2305亿元，同比多799亿元。
+得益于高效监管与密集航线网络，成都航空口岸“双场一体”的枢纽能级持续增强，带动入境消费升温。
 
-三、广义货币增长8.6% 5月末，广义货币（M2）余额353.67万亿元，同比增长8.6%。
+一季度，成都海关验核离境退税申请单金额同比增长55.6%，箱包、电子产品及川派文创等入境消费活力显著增强。
 
-狭义货币（M1）余额114.89万亿元，同比增长5.5%。
+针对生鲜货物“时效决定生命”的核心需求，成都海关深化“智慧审单”应用，将“附条件提离”便利举措扩大至26家核心企业，探索进口冰鲜水产品“白名单”管理，助力生鲜产品货架期延长24小时以上。
 
-流通中货币（M0）余额14.69万亿元，同比增长11.9%。
+同时，落实“一企一策”“一品一策”，精准指导企业申领RCEP原产地证书，助力鲟鱼子酱、羊肚菌、松露等四川特色农产品拓展海外市场。
 
 ## 相关推荐
 
-- 2026-06-30 00:17 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 00:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 00:30 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 00:06 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 00:12 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 00:07 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 00:35 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 00:06 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 00:25 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 00:21 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 00:19 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 00:32 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 00:16 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 00:33 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 00:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 00:36 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 00:22 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 00:30 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 00:23 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 00:15 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 00:16 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 00:30 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 00:33 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:12 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/99626473683.shtml)
-- 2026-06-30 00:07 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/68653625.shtml)
-- 2026-06-30 00:17 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/16310242577.shtml)
-- 2026-06-30 00:11 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/856500614.shtml)
-- 2026-06-30 00:06 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/2146792026.shtml)
-- 2026-06-30 00:35 - [沙丘](http://www.blog.kurohicncr.top/Article/details/1441984988.shtml)
-- 2026-06-30 00:28 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/939637459378.shtml)
-- 2026-06-30 00:29 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/6383396875.shtml)
-- 2026-06-30 00:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/48649241.shtml)
-- 2026-06-30 00:27 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/820504997558.shtml)
-- 2026-06-30 00:20 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/751558220.shtml)
-- 2026-06-30 00:17 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/6182849.shtml)
-- 2026-06-30 00:21 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/39833006.shtml)
-- 2026-06-30 00:33 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/50041022.shtml)
-- 2026-06-30 00:30 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/932142.shtml)
+- 2026-06-30 00:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/889600907.shtml)
+- 2026-06-30 00:21 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/206833.shtml)
+- 2026-06-30 00:35 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/87359.shtml)
+- 2026-06-30 00:37 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/321134.shtml)
+- 2026-06-30 00:30 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/83645031620.shtml)
+- 2026-06-30 00:13 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/870570.shtml)
+- 2026-06-30 00:36 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/772320140.shtml)
+- 2026-06-30 00:22 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/89719834711.shtml)
+- 2026-06-30 00:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/905503095.shtml)
+- 2026-06-30 00:19 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/658236046706.shtml)
+- 2026-06-30 00:35 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/69169980602.shtml)
+- 2026-06-30 00:23 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/3780594.shtml)
+- 2026-06-30 00:14 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/151569219110.shtml)
+- 2026-06-30 00:30 - [小娘惹](https://www.blog.minike.top/Article/details/82671893.shtml)
+- 2026-06-30 00:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/7575475.shtml)

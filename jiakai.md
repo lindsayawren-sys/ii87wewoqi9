@@ -1,57 +1,56 @@
-# “新三样”领跑全球 中国外贸向新而行
+# 东博会秘书处携中国味道“出海”进东盟（印尼）专题展启幕
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-6月11日，商务部新闻发言人何亚东在例行新闻发布会上表示，1-5月，我国货物贸易进出口总值20.68万亿元人民币，同比增长15.3%。今年以来，面对复杂严峻的国际政治经济形势，中国外贸顶住压力，延续稳中有进的良好态势。中国外贸以“向上”的姿态破浪前行，用规模之“厚”与结构之“优”交出了一份彰显韧性的答卷。这不仅是一次数据的刷新，更是中国制造向中国智造跃迁的生动缩影。 结构持续优
+中新网南宁5月9日电 (黄令妍 陈芳)中国—东盟博览会(下称东博会)秘书处9日介绍，2026年印尼国际食品和饮料贸易展近日在雅加达开幕。在广西农业农村厅、商务厅及工业与信息化厅的支持下，东博会秘书处组织了15家企业参展，设立专题展区集中展示优质的展品、完备的上下游产供链，吸引众多专业买家洽谈采购。中印尼两国嘉宾巡馆参观，与参展企业交流，共拓合作商机。 据悉，专题展区汇聚佛山市海
 
 ## 正文
 
-6月11日，商务部新闻发言人何亚东在例行新闻发布会上表示，1-5月，我国货物贸易进出口总值20.68万亿元人民币，同比增长15.3%。
+中新网南宁5月9日电 (黄令妍 陈芳)中国—东盟博览会(下称东博会)秘书处9日介绍，2026年印尼国际食品和饮料贸易展近日在雅加达开幕。
 
-今年以来，面对复杂严峻的国际政治经济形势，中国外贸顶住压力，延续稳中有进的良好态势。
+在广西农业农村厅、商务厅及工业与信息化厅的支持下，东博会秘书处组织了15家企业参展，设立专题展区集中展示优质的展品、完备的上下游产供链，吸引众多专业买家洽谈采购。
 
-中国外贸以“向上”的姿态破浪前行，用规模之“厚”与结构之“优”交出了一份彰显韧性的答卷。
+中印尼两国嘉宾巡馆参观，与参展企业交流，共拓合作商机。
 
-这不仅是一次数据的刷新，更是中国制造向中国智造跃迁的生动缩影。
+据悉，专题展区汇聚佛山市海天(南宁)调味食品有限公司、广西螺霸王食品科技有限公司、广西金海盈食品有限公司等中华老字号、“桂字号”农业品牌，以及香料、淀粉、果蔬、饮料、生物科技等领域广西名特优产品企业。
 
-结构持续优化 “新三样”领跑全球 从结构看，进口规模创历史同期新高，出口结构持续优化。
+展品种类丰富，匹配印尼地区庞大消费市场与采购需求，助力中国企业稳步开拓印尼市场，持续放大东博会品牌影响力与辐射带动作用。
 
-得益于完备高效的产供链体系，中国商品供给稳定、质量可靠、技术先进，全球认可度不断跃升。
+东博会秘书处设置特装展位，通过视频、图文等形式开展2026年第23届东博会宣传推介。
 
-1—5月，机电产品出口同比增长18.4%，集成电路出口表现强劲，电动汽车、锂电池、光伏等“新三样”产品持续领跑全球。
+本届东博会将于9月17日至21日举办，打造“市场开放”“商机先享”“数字赋能”“服务优化”四大亮点。
 
-多元市场纵深推进。
+本次专题展展期为5月7日至10日，为期4天，为采购商与参展企业搭建供需互通、精准对接的专业平台，推动展会对接成效转化为实实在在的经贸合作成果，为助推中国—东盟自贸区3.0版落地见效贡献东博会力量。
 
 ## 相关推荐
 
-- 2026-06-30 00:19 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 00:14 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 00:07 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 00:12 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 00:34 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 00:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 00:35 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 00:09 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 00:07 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-30 00:18 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 00:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 00:17 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 00:31 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 00:36 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 00:23 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 00:38 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 00:37 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 00:30 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 00:38 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 00:27 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 00:13 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:14 - [明星大侦探第一季](http://www.share.minike.top/Article/details/6999324340.shtml)
-- 2026-06-30 00:27 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/036826.shtml)
-- 2026-06-30 00:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/87118581953.shtml)
-- 2026-06-30 00:15 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/503782.shtml)
-- 2026-06-30 00:28 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/2079032985.shtml)
-- 2026-06-30 00:32 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/8354425424.shtml)
-- 2026-06-30 00:16 - [肝不好身体这几处会“说话”](http://www.share.kurohicncr.top/Article/details/8463630832.shtml)
-- 2026-06-30 00:12 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/077176837379.shtml)
-- 2026-06-30 00:10 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/7107777944.shtml)
-- 2026-06-30 00:25 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/21530133.shtml)
-- 2026-06-30 00:33 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/106826.shtml)
-- 2026-06-30 00:13 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/67732.shtml)
-- 2026-06-30 00:35 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/162192693.shtml)
-- 2026-06-30 00:29 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/4949994.shtml)
-- 2026-06-30 00:15 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/126416.shtml)
+- 2026-06-30 00:39 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/27354.shtml)
+- 2026-06-30 00:35 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/0017096520.shtml)
+- 2026-06-30 00:36 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/071237969083.shtml)
+- 2026-06-30 00:40 - [极限挑战第一季](http://www.blog.minike.top/Article/details/9519975.shtml)
+- 2026-06-30 00:23 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/2386441706.shtml)
+- 2026-06-30 00:31 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/11808.shtml)
+- 2026-06-30 00:30 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/5167170514.shtml)
+- 2026-06-30 00:21 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/3142352435.shtml)
+- 2026-06-30 00:18 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/609235140441.shtml)
+- 2026-06-30 00:41 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/37257758.shtml)
+- 2026-06-30 00:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/326303.shtml)
+- 2026-06-30 00:36 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/36172187.shtml)
+- 2026-06-30 00:40 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/03854051619.shtml)
+- 2026-06-30 00:25 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/98287.shtml)
+- 2026-06-30 00:15 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/7429498248.shtml)

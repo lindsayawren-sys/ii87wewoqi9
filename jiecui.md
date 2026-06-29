@@ -1,59 +1,52 @@
-# 第十七届海峡两岸少儿美术大展厦门展开幕
+# 美媒爆料：伊朗空袭已致至少228处美军设施受损或被毁
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周
+中新网5月8日电 据美国《华盛顿邮报》6日报道，根据该媒体对卫星图像的分析，自2月28日美以伊冲突爆发以来，伊朗空袭已导致中东地区美军军事设施中至少228处建筑或装备受损或被毁，其中包括机库、营房、燃料库、军机，以及关键的雷达、通信和防空装备。这一破坏规模远远超过美国政府此前公开承认或媒体此前报道的程度。 报道称，空袭威胁使该地区部分美军基地危险程度过高，无法维持正常驻军规模。
 
 ## 正文
 
-年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！
+中新网5月8日电 据美国《华盛顿邮报》6日报道，根据该媒体对卫星图像的分析，自2月28日美以伊冲突爆发以来，伊朗空袭已导致中东地区美军军事设施中至少228处建筑或装备受损或被毁，其中包括机库、营房、燃料库、军机，以及关键的雷达、通信和防空装备。
 
-“世界杯魔咒”失灵了？
+这一破坏规模远远超过美国政府此前公开承认或媒体此前报道的程度。
 
-一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？
+报道称，空袭威胁使该地区部分美军基地危险程度过高，无法维持正常驻军规模。
 
-为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？
-
-新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单掷纸飞机、彩虹跑！
-
-长沙高考毕业生花式庆祝毕业重庆冷冻浓缩果汁首次自营出口欧盟再见了按钮！
-
-再见了屏幕！
-
-未来AI实验室长这样这可能是海拔4600米最美的工作服 致敬青藏铁路的守护者世界杯揭幕夜：呜呜祖拉在南非响起共享设计赋能产业升级 白沟箱包智启新程做原创在田里支起手机 广西“村播”抱团闯出兴农路高三毕业生用“束脩之礼”答谢老师南博会上挑战“见手青拿铁” 喝完会不会看见“小人人”河北农业大学毕业典礼上 学生轮番整活把校长“忙坏了”津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁航拍丹霞地貌神似“羊肉卷”没有“黑眼圈” 全球唯一野生白色大熊猫长大了2026年世界杯美国赛区揭幕战在洛杉矶举行 “太阳神鸟金饰”亮相中国国家博物馆 上影节开幕 梁朝伟领衔金爵奖评委团 北京：圆明园旁扇面湖荷花盛开 “洋景漂”父女的三宝村“陶”源生活 杭州：这里的花期已排满，四时各有专属“
+官员们表示，在战争开始时，指挥官已将这些基地的大部分人员撤离至伊朗火力射程之外。
 
 ## 相关推荐
 
-- 2026-06-30 00:14 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 00:32 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 00:11 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 00:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 00:35 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 00:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 00:22 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 00:35 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 00:06 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 00:35 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 00:10 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 00:15 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 00:32 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 00:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 00:16 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 00:38 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 00:14 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 00:23 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 00:35 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 00:26 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 00:25 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 00:35 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 00:17 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 00:29 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-30 00:14 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 00:39 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 00:28 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:30 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/5126158.shtml)
-- 2026-06-30 00:08 - [巴西vs日本](https://www.blog.minike.top/Article/details/556181218.shtml)
-- 2026-06-30 00:21 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/214085925.shtml)
-- 2026-06-30 00:13 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/83798931819.shtml)
-- 2026-06-30 00:08 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/559931838627.shtml)
-- 2026-06-30 00:06 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/47143560.shtml)
-- 2026-06-30 00:23 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/160598.shtml)
-- 2026-06-30 00:31 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/65277957235.shtml)
-- 2026-06-30 00:23 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/90753250421.shtml)
-- 2026-06-30 00:25 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/0297257.shtml)
-- 2026-06-30 00:25 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/821910950.shtml)
-- 2026-06-30 00:07 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/935553939922.shtml)
-- 2026-06-30 00:24 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/88725281.shtml)
-- 2026-06-30 00:33 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/3536481.shtml)
-- 2026-06-30 00:24 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/091505829836.shtml)
+- 2026-06-30 00:41 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/97944285746.shtml)
+- 2026-06-30 00:33 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/764858653.shtml)
+- 2026-06-30 00:24 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/3981040115.shtml)
+- 2026-06-30 00:25 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/77007.shtml)
+- 2026-06-30 00:34 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/935661206581.shtml)
+- 2026-06-30 00:36 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/555462917.shtml)
+- 2026-06-30 00:22 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/8357933320.shtml)
+- 2026-06-30 00:35 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/0530996.shtml)
+- 2026-06-30 00:31 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/8498735064.shtml)
+- 2026-06-30 00:31 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/6961994473.shtml)
+- 2026-06-30 00:16 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/139297934188.shtml)
+- 2026-06-30 00:27 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/499498801297.shtml)
+- 2026-06-30 00:15 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/97050.shtml)
+- 2026-06-30 00:26 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/8152882267.shtml)
+- 2026-06-30 00:16 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/348871121.shtml)

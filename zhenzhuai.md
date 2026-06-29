@@ -1,60 +1,58 @@
-# 三明学院—上外匈牙利研究中心揭牌成立 中外专家共探区域国别研究与中匈合作新局
+# （乡村行·看振兴）塞北山村闯出致富“羊”光道
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网三明6月14日电 (雷朝良)“期待研究中心成为中匈两国文化互鉴、学术互通的重要窗口，持续增进两国人民的相互了解与友谊。”匈牙利驻广州总领事馆代总领事霍雷13日在福建三明出席三明学院—上海外国语大学匈牙利研究中心揭牌活动时表示。6月13日，三明学院—上海外国语大学匈牙利研究中心2026年国际学术年会在福建三明开幕。大会汇聚了来自中国社会科学院、北京大学、对外经济贸易大学、复
+中新网乌兰察布5月9日电 题：塞北山村闯出致富“羊”光道 中新网记者 张林虎 初夏的四子王旗库伦图镇马安桥村，三座灰白色的标准化棚舍整齐排列，旁边第四栋棚舍主体已经完工。今年七八月，这里将迎来新一批杜蒙肉羊。 “过去是领着干，如今是追着跑。”村党支部书记张栓站在养殖小区前，看着眼前正在扩建的工地，语气里带着几分感慨。 去年，这个村首批杜蒙肉羊整村推进模式让农户户均增收2300元
 
 ## 正文
 
-中新网三明6月14日电 (雷朝良)“期待研究中心成为中匈两国文化互鉴、学术互通的重要窗口，持续增进两国人民的相互了解与友谊。
+中新网乌兰察布5月9日电 题：塞北山村闯出致富“羊”光道 中新网记者 张林虎 初夏的四子王旗库伦图镇马安桥村，三座灰白色的标准化棚舍整齐排列，旁边第四栋棚舍主体已经完工。
 
-”匈牙利驻广州总领事馆代总领事霍雷13日在福建三明出席三明学院—上海外国语大学匈牙利研究中心揭牌活动时表示。
+今年七八月，这里将迎来新一批杜蒙肉羊。
 
-6月13日，三明学院—上海外国语大学匈牙利研究中心2026年国际学术年会在福建三明开幕。
+“过去是领着干，如今是追着跑。
 
-大会汇聚了来自中国社会科学院、北京大学、对外经济贸易大学、复旦大学、同济大学、上海外国语大学及匈牙利罗兰大学、米什科尔茨大学、约翰·冯·诺依曼大学等机构的专家学者，共论区域国别研究的全球视野与本土实践。
+”村党支部书记张栓站在养殖小区前，看着眼前正在扩建的工地，语气里带着几分感慨。
 
-会议设五个平行论坛，涵盖东欧语言文化、匈牙利语言文学、中匈经贸与法律、国际传播、人文教育等领域，并围绕“2026年匈牙利大选与中欧关系”开展专题研讨。
+去年，这个村首批杜蒙肉羊整村推进模式让农户户均增收2300元。
 
-作为本次学术年会开幕式的重要环节，三明学院—上海外国语大学匈牙利研究中心于当天正式揭牌成立。
+尝到甜头后，村民们不满足于此，明确提出“扩规模、强链条、壮集体”的目标，开启了一场肉羊产业的“二次创业”。
 
-该中心是上海与三明对口合作框架下高校协同创新的重要成果，既是我国区域国别学学科建设向地方延伸的全新探索，也是深化中匈人文交流、助力共建“一带一路”与中国—中东欧国家合作的具体实践。
+“老把式”算起新账 四子王旗位于我国正北方，隶属于内蒙古自治区乌兰察布市，北与蒙古国接壤，总面积2.55万平方公里，是内蒙古19个边境旗县之一。
 
-上海外国语大学校长孟钟捷表示，两校共建研究中心是整合优质资源、协同推进区域国别学建设的有益探索，未来将以中心为纽带深化科研协同与人才联合培养，助力构建中国自主的区域国别学知识体系。
+65岁的武记红在马安桥村养了大半辈子羊。
 
 ## 相关推荐
 
-- 2026-06-30 00:35 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 00:12 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 00:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 00:33 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 00:33 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 00:24 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 00:26 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 00:26 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 00:17 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 00:29 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 00:18 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 00:28 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 00:12 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 00:10 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 00:30 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 00:35 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 00:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 00:17 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-30 00:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 00:23 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 00:31 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 00:39 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 00:36 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 00:27 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 00:38 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 00:36 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:34 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/1402354935.shtml)
-- 2026-06-30 00:12 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/007196533395.shtml)
-- 2026-06-30 00:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/326454963739.shtml)
-- 2026-06-30 00:31 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/626160.shtml)
-- 2026-06-30 00:09 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/87664100676.shtml)
-- 2026-06-30 00:22 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/06198.shtml)
-- 2026-06-30 00:27 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/9940287.shtml)
-- 2026-06-30 00:34 - [美人鱼](https://www.share.kurohicncr.top/Article/details/938635748.shtml)
-- 2026-06-30 00:06 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/57851918184.shtml)
-- 2026-06-30 00:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/374051521.shtml)
-- 2026-06-30 00:21 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/02329060914.shtml)
-- 2026-06-30 00:31 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/667933.shtml)
-- 2026-06-30 00:15 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/763321801789.shtml)
-- 2026-06-30 00:18 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/13194894.shtml)
-- 2026-06-30 00:25 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/90841.shtml)
+- 2026-06-30 00:30 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/680216541.shtml)
+- 2026-06-30 00:15 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/52023755877.shtml)
+- 2026-06-30 00:36 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/8835392932.shtml)
+- 2026-06-30 00:41 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/1341606.shtml)
+- 2026-06-30 00:19 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/1777312.shtml)
+- 2026-06-30 00:17 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/664334.shtml)
+- 2026-06-30 00:12 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/48111.shtml)
+- 2026-06-30 00:40 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/057488074.shtml)
+- 2026-06-30 00:19 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/52633948.shtml)
+- 2026-06-30 00:13 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/79733085495.shtml)
+- 2026-06-30 00:38 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/6947493037.shtml)
+- 2026-06-30 00:41 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/90638.shtml)
+- 2026-06-30 00:25 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/030697.shtml)
+- 2026-06-30 00:15 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/20981.shtml)
+- 2026-06-30 00:41 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/044478479019.shtml)

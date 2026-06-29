@@ -1,59 +1,61 @@
-# 2026年“汉语桥”世界大、中、小学生中文比赛韩国赛区决赛举办
+# 第23届东博会全球推介路演走进印尼
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月14日 18:11 来源：中国新闻网 当地时间6月13日，2026年“汉语桥”世界大、中、小学生中文比赛韩国赛区决赛在首尔举办。经过预赛选拔，来自韩国各地的72名学生选手齐聚决赛现场。在中文演讲、中国文化技能、中国文化知识等多个项目中，参赛选手通过演讲、才艺表演，展示长期学习中文取得的成果与风采。 来自韩国外国语大学的都汉率演唱了中文歌曲《第一天》，赢
+中新网南宁5月8日电(黄令妍 陈芳)中国—东盟博览会(下称东博会)秘书处8日介绍，第23届东博会全球推介路演(印尼站)近日在雅加达举办。印尼政府机构和知名企业代表参加推介会。 印尼贸易部国家出口发展总司司长法贾尔表示，近年来，中国与印尼的经济联系日益密切，两国间的贸易呈现出积极增长趋势。多年来，东博会已成为印尼和中国之间探索新的合作路径、推动互利伙伴关系的核心平台。希望在中国—
 
 ## 正文
 
-发布时间：2026年06月14日 18:11 来源：中国新闻网 当地时间6月13日，2026年“汉语桥”世界大、中、小学生中文比赛韩国赛区决赛在首尔举办。
+中新网南宁5月8日电(黄令妍 陈芳)中国—东盟博览会(下称东博会)秘书处8日介绍，第23届东博会全球推介路演(印尼站)近日在雅加达举办。
 
-经过预赛选拔，来自韩国各地的72名学生选手齐聚决赛现场。
+印尼政府机构和知名企业代表参加推介会。
 
-在中文演讲、中国文化技能、中国文化知识等多个项目中，参赛选手通过演讲、才艺表演，展示长期学习中文取得的成果与风采。
+印尼贸易部国家出口发展总司司长法贾尔表示，近年来，中国与印尼的经济联系日益密切，两国间的贸易呈现出积极增长趋势。
 
-来自韩国外国语大学的都汉率演唱了中文歌曲《第一天》，赢得现场阵阵掌声。
+多年来，东博会已成为印尼和中国之间探索新的合作路径、推动互利伙伴关系的核心平台。
 
-“这次比赛经历让我受益匪浅，未来会继续参加相关比赛，不断提升中文水平。
+希望在中国—东盟建立全面战略伙伴关系5周年、中国—东盟自贸区3.0版升级议定书签署的大背景下，印尼工商界能积极参与第23届东博会。
 
-”她称，自己对中华文化很感兴趣，想要感受春节等中国传统节日的氛围和习俗。
+东博会秘书处副秘书长梁艺光介绍，东博会是中国—东盟自贸区建设的推进器、地区合作的公共产品和永不落幕的合作平台，拥有独具特色的“南宁渠道”。
 
-(记者 金旭 制作 乐小敏) 责任编辑：【周驰】
+印尼咖啡、家具、手工艺品等传统特色商品在东博会广受欢迎，去年首次亮相的数字通讯、绿色农业加工技术等新产品也获得了市场关注；每年东博会都推动中印尼重大合作项目洽谈和推介；雅加达、万隆、南加里曼丹等十多个地区担任东博会“魅力之城”，中国与印尼地方层面的经贸合作日益紧密。
+
+梁艺光表示，第23届东博会紧扣中国—东盟自贸区3.0版、以数贸赋能为特色，特设数字经济、绿色低碳展区，还将现场展示平陆运河沙盘和智慧系统；做到“购在中国、出口中国、投资中国”一站式对接；以企业为主体、经贸实效为导向，升级便利化与智能化服务。
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 00:29 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 00:21 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 00:31 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 00:16 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 00:21 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 00:12 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 00:12 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 00:08 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-30 00:24 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 00:16 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 00:11 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 00:07 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 00:23 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 00:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 00:27 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 00:39 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 00:20 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 00:29 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 00:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 00:13 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 00:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 00:17 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 00:21 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 00:30 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 00:25 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 00:17 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 00:20 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 00:16 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 00:21 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:21 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/967548757.shtml)
-- 2026-06-30 00:13 - [毒液2](https://www.share.minike.top/Article/details/32923.shtml)
-- 2026-06-30 00:12 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/389765125.shtml)
-- 2026-06-30 00:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/83715.shtml)
-- 2026-06-30 00:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/48436670.shtml)
-- 2026-06-30 00:33 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/071641.shtml)
-- 2026-06-30 00:33 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/426931086.shtml)
-- 2026-06-30 00:22 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/37898681604.shtml)
-- 2026-06-30 00:09 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/767820235875.shtml)
-- 2026-06-30 00:31 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/79598.shtml)
-- 2026-06-30 00:22 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/6012169.shtml)
-- 2026-06-30 00:24 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/10961434383.shtml)
-- 2026-06-30 00:12 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/877555.shtml)
-- 2026-06-30 00:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/50241.shtml)
-- 2026-06-30 00:19 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/478598.shtml)
+- 2026-06-30 00:26 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/14681.shtml)
+- 2026-06-30 00:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/56788358651.shtml)
+- 2026-06-30 00:31 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/90522.shtml)
+- 2026-06-30 00:29 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/476082.shtml)
+- 2026-06-30 00:16 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/06428.shtml)
+- 2026-06-30 00:34 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/8539980337.shtml)
+- 2026-06-30 00:40 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/1081037.shtml)
+- 2026-06-30 00:37 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/47408.shtml)
+- 2026-06-30 00:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/62790622.shtml)
+- 2026-06-30 00:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/971724499706.shtml)
+- 2026-06-30 00:17 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.minike.top/Article/details/973487566391.shtml)
+- 2026-06-30 00:28 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/92308443440.shtml)
+- 2026-06-30 00:24 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/7197941257.shtml)
+- 2026-06-30 00:41 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/377340761397.shtml)
+- 2026-06-30 00:31 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/742036925106.shtml)

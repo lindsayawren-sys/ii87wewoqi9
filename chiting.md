@@ -1,52 +1,58 @@
-# 翼菲科技午后涨超13% 近三个交易日股价累计涨幅已逾80%
+# 科技创新，年轻一代实干争先（总书记的关切·落地的回响）
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-翼菲科技（06871）盘中涨超17%，近三个交易日股价累计涨幅已逾80%。截至发稿，股价上涨13.13%，现报33.94港元，成交额1.21亿港元。 2026国际物流装备展近日在广州举行。翼菲科技作为西门子Xcelerator核心生态伙伴，登陆西门子20.1馆D37展位，重磅展出新一代全开模轮式人形平台——双模四驱・全向智能底盘，产品可兼容西门子S7-1200G2控制器，依托成
+“要把培养国家战略人才力量的政策重心放在青年科技人才上，给予青年人才更多的信任、更好的帮助、更有力的支持，支持青年人才挑大梁、当主角。” ——2021年9月27日，习近平总书记在中央人才工作会议上强调 5月的上海，暖风轻拂，梧桐缀绿。在黄浦江西岸约6万平方米的“模速空间”里，创意与灵感持续碰撞，一个属于人工智能的未来正在悄然生长。 “人工智能是年轻的事业，也是年轻人的事业。我们
 
 ## 正文
 
-翼菲科技（06871）盘中涨超17%，近三个交易日股价累计涨幅已逾80%。
+“要把培养国家战略人才力量的政策重心放在青年科技人才上，给予青年人才更多的信任、更好的帮助、更有力的支持，支持青年人才挑大梁、当主角。
 
-截至发稿，股价上涨13.13%，现报33.94港元，成交额1.21亿港元。
+” ——2021年9月27日，习近平总书记在中央人才工作会议上强调 5月的上海，暖风轻拂，梧桐缀绿。
 
-2026国际物流装备展近日在广州举行。
+在黄浦江西岸约6万平方米的“模速空间”里，创意与灵感持续碰撞，一个属于人工智能的未来正在悄然生长。
 
-翼菲科技作为西门子Xcelerator核心生态伙伴，登陆西门子20.1馆D37展位，重磅展出新一代全开模轮式人形平台——双模四驱・全向智能底盘，产品可兼容西门子S7-1200G2控制器，依托成熟工控生态与自研底盘技术深度结合，现场诠释数实融合下仓储搬运、具身智能落地新方案。
+“人工智能是年轻的事业，也是年轻人的事业。
 
-公开资料显示，翼菲科技专注轻工业全品类工业机器人及智能制造解决方案，构建了并联、SCARA、晶圆、六轴及移动机器人矩阵，配套自研控制与视觉系统，覆盖消费电子、汽车零部件、新能源、医疗健康等场景，为国内少数具备全品类机器人覆盖能力的企业之一。
+我们正在全面推进强国建设、民族复兴伟业，正是年轻一代展示才华、大显身手的好时候。
 
-责任编辑：卢昱君
+实现中华民族的伟大梦想，寄希望于年轻人。
+
+”2025年4月，习近平总书记来到上海“模速空间”大模型创新生态社区，同现场青年创新人才亲切交流。
+
+今年4月30日，习近平总书记在加强基础研究座谈会上强调：“源源不断培养基础研究后备力量”“坚持任务牵引、以老带新，大力扶持青年人才”。
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 00:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 00:29 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 00:28 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 00:23 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 00:25 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 00:10 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 00:06 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 00:19 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 00:27 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 00:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 00:21 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 00:22 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 00:34 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 00:41 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 00:31 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 00:27 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 00:36 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 00:39 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 00:20 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 00:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 00:19 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:33 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/2915508426.shtml)
-- 2026-06-30 00:23 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/612953529.shtml)
-- 2026-06-30 00:34 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/55405823791.shtml)
-- 2026-06-30 00:17 - [起风了](http://www.blog.kurohicncr.top/Article/details/180063.shtml)
-- 2026-06-30 00:32 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/73947318.shtml)
-- 2026-06-30 00:14 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/077806861.shtml)
-- 2026-06-30 00:28 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/4688642.shtml)
-- 2026-06-30 00:14 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/9646358.shtml)
-- 2026-06-30 00:31 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/39561489302.shtml)
-- 2026-06-30 00:27 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/0926301.shtml)
-- 2026-06-30 00:23 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/0175034284.shtml)
-- 2026-06-30 00:31 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/246289436345.shtml)
-- 2026-06-30 00:16 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/62714.shtml)
-- 2026-06-30 00:07 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/22789831686.shtml)
-- 2026-06-30 00:33 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/1336132160.shtml)
+- 2026-06-30 00:24 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/890114312.shtml)
+- 2026-06-30 00:24 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/4690181769.shtml)
+- 2026-06-30 00:27 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/55722.shtml)
+- 2026-06-30 00:21 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/99886471171.shtml)
+- 2026-06-30 00:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/5110456644.shtml)
+- 2026-06-30 00:31 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/021675.shtml)
+- 2026-06-30 00:31 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/7425140357.shtml)
+- 2026-06-30 00:38 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/4387158.shtml)
+- 2026-06-30 00:36 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/722443853700.shtml)
+- 2026-06-30 00:40 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/392105.shtml)
+- 2026-06-30 00:39 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/698742786.shtml)
+- 2026-06-30 00:24 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/83711.shtml)
+- 2026-06-30 00:41 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/5319890493.shtml)
+- 2026-06-30 00:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/2826913.shtml)
+- 2026-06-30 00:39 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/7905474.shtml)

@@ -1,61 +1,59 @@
-# 公共场所控烟 如何更有效？
+# 17家全国性行业协会商会联合发布《国内贸易交易指引（试行）》
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-近期，公共场所吸烟话题持续引发关注。近年来，中国不断加大控烟力度，《健康中国行动(2019—2030年)》明确将控烟列为15项专项行动之一。然而，一些公共场所虽设有禁烟标识，实际未能真正约束吸烟行为，相关规定执行效果有待提升。面对难题，各地正从立法完善、执法创新、技术赋能、柔性治理等多方面探索破局之道。只有疏堵结合、多方参与，才能减少吸烟与不吸烟人群的冲突，让公共空间真正回归清
+新华社北京5月8日电(记者何晓)为构建统一开放、竞争有序的市场体系，纵深推进全国统一大市场建设，5月8日，中国物流与采购联合会、中国商业联合会、中国纺织工业联合会、中国轻工业联合会、中国网络社会组织联合会等17家全国性行业协会商会在京共同发布《国内贸易交易指引(试行)》。我国内贸市场规模体量大、企业主体多、就业领域广，是强大国内市场的重要支撑。2025年，我国社会消费品零售总额
 
 ## 正文
 
-近期，公共场所吸烟话题持续引发关注。
+新华社北京5月8日电(记者何晓)为构建统一开放、竞争有序的市场体系，纵深推进全国统一大市场建设，5月8日，中国物流与采购联合会、中国商业联合会、中国纺织工业联合会、中国轻工业联合会、中国网络社会组织联合会等17家全国性行业协会商会在京共同发布《国内贸易交易指引(试行)》。
 
-近年来，中国不断加大控烟力度，《健康中国行动(2019—2030年)》明确将控烟列为15项专项行动之一。
+我国内贸市场规模体量大、企业主体多、就业领域广，是强大国内市场的重要支撑。
 
-然而，一些公共场所虽设有禁烟标识，实际未能真正约束吸烟行为，相关规定执行效果有待提升。
+2025年，我国社会消费品零售总额超50万亿元，消费市场规模稳居全球第二。
 
-面对难题，各地正从立法完善、执法创新、技术赋能、柔性治理等多方面探索破局之道。
+但总体上来看，国内贸易仍存在交易不规范、账期长、回款难等问题，企业对建立全国统一、权责清晰的高标准交易规则呼声强烈。
 
-只有疏堵结合、多方参与，才能减少吸烟与不吸烟人群的冲突，让公共空间真正回归清新。
+据了解，指引共设七章三十八条，以依法合规、平等自愿、诚实守信、公平竞争为原则，立足行业发展实际、聚焦堵点卡点问题、贯穿交易全流程，对订立交易合同、货物交付验收、账期及支付、争议解决、规范商业行为等各环节进行了明确和规定，为参与国内贸易的企业提供了可操作、易落地的行为规范。
 
-二手烟危害不容忽视 前不久，深圳一公交站台，一女子劝阻男子吸烟引发争执；上海迪士尼乐园，一名游客因制止他人吸烟，双方发生肢体冲突……诸如此类因二手烟引发的冲突，在各地公共场所时有发生。
+“下一步，各行业协会商会将通过标准建设、信用评价、案例推广等举措，凝聚行业共识、强化自律规范，提升国内贸易标准化、规范化、国际化水平，纵深推进全国统一大市场建设。
 
-不少受访者表示，自己曾在电梯、饭店、办公楼楼道等室内公共场所被二手烟困扰，一些呼吸道敏感人群更是深感不便。
-
-“我有哮喘，闻到烟味就喘不上气。
+”中国物流与采购联合会副会长胡大剑说。
 
 ## 相关推荐
 
-- 2026-06-30 00:12 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 00:11 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 00:19 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 00:35 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 00:11 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 00:25 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 00:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 00:16 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 00:33 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 00:18 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 00:07 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 00:21 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 00:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 00:14 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 00:35 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 00:12 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 00:32 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 00:34 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 00:15 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 00:38 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 00:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 00:16 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 00:18 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 00:22 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 00:34 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 00:22 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 00:32 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 00:22 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 00:29 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 00:40 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:13 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/623864934757.shtml)
-- 2026-06-30 00:25 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/9401167221.shtml)
-- 2026-06-30 00:10 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/5437014.shtml)
-- 2026-06-30 00:08 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/556885821.shtml)
-- 2026-06-30 00:11 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/07018772053.shtml)
-- 2026-06-30 00:08 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/594901.shtml)
-- 2026-06-30 00:23 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/7096621.shtml)
-- 2026-06-30 00:26 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/583921.shtml)
-- 2026-06-30 00:33 - [青春环游记第三季](https://www.share.minike.top/Article/details/6963535.shtml)
-- 2026-06-30 00:32 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/69645860195.shtml)
-- 2026-06-30 00:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/4827926940.shtml)
-- 2026-06-30 00:25 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/95129850.shtml)
-- 2026-06-30 00:35 - [日防卫省正考虑引进美企人工智能系统](http://www.share.minike.top/Article/details/183911.shtml)
-- 2026-06-30 00:16 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/9436161.shtml)
-- 2026-06-30 00:10 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/90675548.shtml)
+- 2026-06-30 00:35 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/500667304.shtml)
+- 2026-06-30 00:26 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/52704.shtml)
+- 2026-06-30 00:31 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/59876883.shtml)
+- 2026-06-30 00:33 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/681810845474.shtml)
+- 2026-06-30 00:40 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/72844.shtml)
+- 2026-06-30 00:20 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/148603009784.shtml)
+- 2026-06-30 00:20 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/0492837.shtml)
+- 2026-06-30 00:20 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/60357.shtml)
+- 2026-06-30 00:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/2175170423.shtml)
+- 2026-06-30 00:23 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/81294071906.shtml)
+- 2026-06-30 00:39 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/958171756.shtml)
+- 2026-06-30 00:26 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/5886055.shtml)
+- 2026-06-30 00:38 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/426146.shtml)
+- 2026-06-30 00:36 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/9991784893.shtml)
+- 2026-06-30 00:29 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/49474214055.shtml)

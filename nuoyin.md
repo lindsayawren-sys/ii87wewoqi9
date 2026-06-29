@@ -1,58 +1,56 @@
-# （投资中国）派安盈全球高级副总裁：中国市场是全球产品创新的重要战略支点
+# 宁夏举办世界红十字日主题活动 爱心企业捐赠3000余万元款物
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新社上海6月15日电 (高志苗)Payoneer派安盈全球高级副总裁、大中华区总裁承丹丹近日线上接受中新社采访时表示，中国市场不仅是公司全球营收的重要贡献者，更是全球产品创新与服务升级的重要战略支点。 作为总部位于美国的全球金融科技平台，派安盈2013年正式进入中国市场，并于2025年完成对中国持牌支付机构的收购。最新披露的财务报告显示，派安盈大中华区2026年第一季度营收规
+中新网银川5月8日电 (记者 杨迪)2026年5月8日是第79个世界红十字日。当天，宁夏红十字会在银川科技学院举办“守望人道协力前行——2026年世界红十字日”主题宣传活动，爱心企业现场捐赠3048.76万元款物。 活动以《生命的距离》公益视频展播拉开帷幕，青春舞动和健康操传递了保护生命、尊重生命、珍爱生命的新健康观。造血干细胞捐献志愿者张凯洋现场分享捐献心路历程，用真实故事诠
 
 ## 正文
 
-中新社上海6月15日电 (高志苗)Payoneer派安盈全球高级副总裁、大中华区总裁承丹丹近日线上接受中新社采访时表示，中国市场不仅是公司全球营收的重要贡献者，更是全球产品创新与服务升级的重要战略支点。
+中新网银川5月8日电 (记者 杨迪)2026年5月8日是第79个世界红十字日。
 
-作为总部位于美国的全球金融科技平台，派安盈2013年正式进入中国市场，并于2025年完成对中国持牌支付机构的收购。
+当天，宁夏红十字会在银川科技学院举办“守望人道协力前行——2026年世界红十字日”主题宣传活动，爱心企业现场捐赠3048.76万元款物。
 
-最新披露的财务报告显示，派安盈大中华区2026年第一季度营收规模继续领先全球各区域市场，达8700万美元，同比增长2%。
+活动以《生命的距离》公益视频展播拉开帷幕，青春舞动和健康操传递了保护生命、尊重生命、珍爱生命的新健康观。
 
-承丹丹表示，中国市场的重要性不仅体现在营收规模上，更在于其服务数百万全球跨境中小微企业，帮助它们发掘全球市场机遇。
+造血干细胞捐献志愿者张凯洋现场分享捐献心路历程，用真实故事诠释生命接力的意义；深情诗朗诵致敬器官捐献志愿者，让现场观众深刻感受志愿者跨越生死、舍己利他的大爱精神。
 
-“当前中国企业出海正从‘规模扩张’转向‘价值深耕’，从‘走出去’迈向‘走进去’直至‘扎下根’。
+活动还现场发布倡议，号召广大青年积极投身“多彩假期社区志愿服务”，以实际行动践行青年担当。
 
-”她认为，这些企业对跨境支付的要求已发生深刻变化，推动着跨境金融不断向前发展。
+活动同步设置室外宣传专区，围绕无偿献血、造血干细胞捐献、人体器官捐献开展科普宣讲与志愿服务，吸引众多师生驻足咨询、主动参与。
 
-承丹丹说，中国中小企业在跨境支付方面呈现三大特点：一是对资金效率要求高，关注资金能否快速、安全流转；二是多币种和全球资金管理需求复杂，需要用一个账户统一管理全球收付款；三是对本地化支付与合规能力要求提升，需满足不同国家监管、支付及税务要求，让资金“安全合规地使用和落地”。
+本次活动由宁夏红十字会主办，银川科技学院、银川市红十字会、宁夏血液中心承办，宁夏职业技术大学、宁夏警官学院、宁夏理工学院协办。
 
-近年来中国持续优化外资营商环境，尤其是在金融开放、数字经济以及跨境贸易等领域，释放出更加稳定、透明和开放的政策信号。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 00:12 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 00:22 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 00:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 00:25 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 00:25 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 00:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 00:09 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 00:30 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 00:09 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 00:26 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 00:19 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 00:22 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 00:31 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 00:25 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 00:31 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 00:35 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 00:15 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 00:18 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 00:27 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 00:28 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 00:27 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 00:27 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:08 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/57494756876.shtml)
-- 2026-06-30 00:21 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/7290571.shtml)
-- 2026-06-30 00:16 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/167247.shtml)
-- 2026-06-30 00:24 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/8980966.shtml)
-- 2026-06-30 00:24 - [爱很美味](http://www.share.minike.top/Article/details/175478302.shtml)
-- 2026-06-30 00:14 - [沙丘](http://www.blog.minike.top/Article/details/0950499070.shtml)
-- 2026-06-30 00:21 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/511107.shtml)
-- 2026-06-30 00:15 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/36440909138.shtml)
-- 2026-06-30 00:27 - [我们的少年时代2](https://www.share.minike.top/Article/details/64951395.shtml)
-- 2026-06-30 00:26 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/503770.shtml)
-- 2026-06-30 00:25 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/28799.shtml)
-- 2026-06-30 00:18 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/121470035.shtml)
-- 2026-06-30 00:06 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/8439762.shtml)
-- 2026-06-30 00:19 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/50754.shtml)
-- 2026-06-30 00:33 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/903551057627.shtml)
+- 2026-06-30 00:18 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/266205288.shtml)
+- 2026-06-30 00:40 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/88885579.shtml)
+- 2026-06-30 00:34 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/97175449.shtml)
+- 2026-06-30 00:40 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/8170288435.shtml)
+- 2026-06-30 00:14 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/877343585227.shtml)
+- 2026-06-30 00:15 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/52152661.shtml)
+- 2026-06-30 00:35 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/629653.shtml)
+- 2026-06-30 00:21 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/583616398909.shtml)
+- 2026-06-30 00:40 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/4777989.shtml)
+- 2026-06-30 00:40 - [千与千寻](http://www.share.kurohicncr.top/Article/details/44223288.shtml)
+- 2026-06-30 00:25 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/007385.shtml)
+- 2026-06-30 00:18 - [巴西vs日本](http://www.share.minike.top/Article/details/57230946042.shtml)
+- 2026-06-30 00:27 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/2566557280.shtml)
+- 2026-06-30 00:17 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/648670167.shtml)
+- 2026-06-30 00:16 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/506144.shtml)

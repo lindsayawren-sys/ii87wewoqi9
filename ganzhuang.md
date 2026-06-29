@@ -1,56 +1,58 @@
-# 青春华章 丝路逐光丨丝路巧手裁红韵 高台非遗传承人陈志的 “金剪刀” 逐光梦
+# 美伊冲突以来 沙特与阿联酋仍冒险经霍尔木兹海峡运输原油
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-一把剪刀，一方红纸，剪出了一条“红色+非遗+研学+助残”的特色之路。6月11日，“青春华章·丝路逐光”网络主题活动采访团走进高台县红色文化非遗融合教育研学实践基地，聆听陈志的故事。 走进基地，采访团依次参观了三个房间，麦秆画的温润、装裱间的匠心、剪纸室的灵动，处处都离不开高台县非物质文化遗产代表性传承人陈志的付出。 辗转求学 从200元到40平方米小店 陈志，41岁，高台宣化寨
+根据知情人士透露，自伊朗事实上关闭霍尔木兹海峡以来，沙特阿美和阿布扎比国家石油公司等企业仍在通过该水道运输原油。 尽管整体运输量仅为德黑兰近10周前关闭这一石油通道前的一小部分，但这两家公司的活动仍表明，部分供应仍能设法流入全球市场。在整个冲突期间，伊朗一直对霍尔木兹海峡航运构成威胁，并在周五遭到美国攻击后扣押了一艘船只，尽管该船似乎是一艘运载伊朗本国石油的受制裁船只。 沙特阿
 
 ## 正文
 
-一把剪刀，一方红纸，剪出了一条“红色+非遗+研学+助残”的特色之路。
+根据知情人士透露，自伊朗事实上关闭霍尔木兹海峡以来，沙特阿美和阿布扎比国家石油公司等企业仍在通过该水道运输原油。
 
-6月11日，“青春华章·丝路逐光”网络主题活动采访团走进高台县红色文化非遗融合教育研学实践基地，聆听陈志的故事。
+尽管整体运输量仅为德黑兰近10周前关闭这一石油通道前的一小部分，但这两家公司的活动仍表明，部分供应仍能设法流入全球市场。
 
-走进基地，采访团依次参观了三个房间，麦秆画的温润、装裱间的匠心、剪纸室的灵动，处处都离不开高台县非物质文化遗产代表性传承人陈志的付出。
+在整个冲突期间，伊朗一直对霍尔木兹海峡航运构成威胁，并在周五遭到美国攻击后扣押了一艘船只，尽管该船似乎是一艘运载伊朗本国石油的受制裁船只。
 
-辗转求学 从200元到40平方米小店 陈志，41岁，高台宣化寨子人。
+沙特阿美拒绝置评，而阿布扎比国家石油公司未回应置评请求。
 
-她的创业故事要从18岁那年说起。
+自3月初霍尔木兹海峡关闭以来，全球供应危机日益加剧。
 
-“当年我背着行囊，拿着父母给的200元钱，从一名裁缝铺的小学徒干起。
+企业为将货物运出正承担更高风险并支付更高成本。
 
-”陈志告诉记者，她白天帮师傅做针线活，晚上点灯熬油学技艺，一干就是两年。
+为了避免被发现，大多数船只通行时都关闭了应答器。
 
-2000年，她在县城开了家裁缝铺，因年纪小、人脉少，小店开业不到2年便难以为继。
+根据知情人士透露，在那些生产和供应受阻于波斯湾的企业中，阿布扎比国家石油公司是最早一批通过霍尔木兹海峡运输原油、燃料和天然气的公司之一。
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 00:18 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 00:10 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 00:29 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 00:23 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 00:21 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 00:32 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 00:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 00:09 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 00:26 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 00:12 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 00:15 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 00:29 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 00:23 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 00:15 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 00:29 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 00:15 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 00:25 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 00:23 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 00:36 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 00:31 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 00:34 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/90272.shtml)
-- 2026-06-30 00:14 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/18029.shtml)
-- 2026-06-30 00:24 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/18884.shtml)
-- 2026-06-30 00:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/3661013.shtml)
-- 2026-06-30 00:21 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/2194520936.shtml)
-- 2026-06-30 00:11 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/68885205793.shtml)
-- 2026-06-30 00:30 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/52166078.shtml)
-- 2026-06-30 00:32 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/83753724.shtml)
-- 2026-06-30 00:35 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/435193.shtml)
-- 2026-06-30 00:13 - [恋与深空回应争议](http://www.share.minike.top/Article/details/285783.shtml)
-- 2026-06-30 00:28 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/61341318589.shtml)
-- 2026-06-30 00:15 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/96367.shtml)
-- 2026-06-30 00:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/784310431324.shtml)
-- 2026-06-30 00:17 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/2424578.shtml)
-- 2026-06-30 00:34 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/58461.shtml)
+- 2026-06-30 00:13 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/33190345.shtml)
+- 2026-06-30 00:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/473072341587.shtml)
+- 2026-06-30 00:17 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/83993330664.shtml)
+- 2026-06-30 00:27 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/96820924767.shtml)
+- 2026-06-30 00:16 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/9702046399.shtml)
+- 2026-06-30 00:35 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/54887854047.shtml)
+- 2026-06-30 00:21 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/524799792.shtml)
+- 2026-06-30 00:28 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/7395441.shtml)
+- 2026-06-30 00:28 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/04990.shtml)
+- 2026-06-30 00:30 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/61145430916.shtml)
+- 2026-06-30 00:32 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/85211999523.shtml)
+- 2026-06-30 00:19 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/268694232.shtml)
+- 2026-06-30 00:30 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/718795.shtml)
+- 2026-06-30 00:13 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/6136727302.shtml)
+- 2026-06-30 00:35 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/723528534.shtml)

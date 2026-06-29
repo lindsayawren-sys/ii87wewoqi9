@@ -1,58 +1,61 @@
-# （聚焦海峡论坛）第十七届海峡两岸少儿美术大展厦门展开幕
+# 大湾区锂电池海运出口“一箱制”落地 助力“新三样”高效出海
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新社厦门6月14日电 (郑江洛)以“信”为主题的第十七届海峡两岸少儿美术大展厦门展14日在厦门市美术馆开幕。 展览集中展示了海峡两岸、港澳及马来西亚华人地区的600余件少儿作品。孩子们以“信”为媒，对话亲友、他者与未来。 来自台湾新北的5岁小朋友许耿睿的作品《我写给大自然的信》参加了本次展览，其画作中孩童与青蛙嬉戏、亲近自然，画面温馨动人。许耿睿说，希望能和小青蛙成为好朋友，
+记者从广东海事局了解到，5月7日，装载东莞制造锂电池产品的集装箱货车从东莞启运，约90分钟后抵达深圳盐田港，被直接吊装上货轮发往海外市场，这标志着莞深锂电池海运出口“一箱制”新模式完成首单运输，正式进入常态化运行，为粤港澳大湾区跨境贸易便利化再添一项重要制度创新成果。今后，符合条件的东莞锂电池产品在装箱阶段完成查验后，即可直接从盐田港装船出海，将服务东莞约400多家锂电池生产企
 
 ## 正文
 
-中新社厦门6月14日电 (郑江洛)以“信”为主题的第十七届海峡两岸少儿美术大展厦门展14日在厦门市美术馆开幕。
+记者从广东海事局了解到，5月7日，装载东莞制造锂电池产品的集装箱货车从东莞启运，约90分钟后抵达深圳盐田港，被直接吊装上货轮发往海外市场，这标志着莞深锂电池海运出口“一箱制”新模式完成首单运输，正式进入常态化运行，为粤港澳大湾区跨境贸易便利化再添一项重要制度创新成果。
 
-展览集中展示了海峡两岸、港澳及马来西亚华人地区的600余件少儿作品。
+今后，符合条件的东莞锂电池产品在装箱阶段完成查验后，即可直接从盐田港装船出海，将服务东莞约400多家锂电池生产企业高效出海。
 
-孩子们以“信”为媒，对话亲友、他者与未来。
+锂电池作为我国外贸出口“新三样”之一，东莞是重要的锂电池生产基地。
 
-来自台湾新北的5岁小朋友许耿睿的作品《我写给大自然的信》参加了本次展览，其画作中孩童与青蛙嬉戏、亲近自然，画面温馨动人。
+过去，东莞生产的锂电池在装箱后，到达盐田港会由深圳海事部门进行抽查，一旦遇上查验高峰，往往需要滞港等待，产生吊装、堆存、人工等额外费用。
 
-许耿睿说，希望能和小青蛙成为好朋友，这是他写给大自然的“信”。
+在抽查过程中一旦发现问题，企业货物将无法出海并折返。
 
-本届展览特别邀请台湾艺术家林永发携其子、青年艺术家林冠廷参与。
+不仅增加了企业出口物流成本，也影响了出口效率。
 
-其中《我们都是一家人》表达两岸同根同源、血脉相连的深厚情谊。
+现在，通过“一箱制”的新模式，东莞企业在工厂装箱阶段，即可申请海事部门上门查验，产品查验合格后，就可以直达深圳盐田港出海。
 
-“孩子们的作品风格各异，却都传递着真善美，实现孩童之间的心灵对话。
+深圳海事部门一般不再重复开箱查验，实现“一次查验、一箱到底”。
 
 ## 相关推荐
 
-- 2026-06-30 00:21 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 00:19 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 00:15 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 00:16 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 00:25 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 00:06 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-30 00:10 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 00:17 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 00:29 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-30 00:17 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 00:16 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 00:35 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 00:39 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-30 00:35 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 00:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 00:36 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 00:31 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 00:26 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 00:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 00:12 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 00:32 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 00:16 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 00:31 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 00:27 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 00:16 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 00:32 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 00:29 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:29 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/77060.shtml)
-- 2026-06-30 00:25 - [千与千寻](https://www.share.minike.top/Article/details/959573379350.shtml)
-- 2026-06-30 00:08 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/793351.shtml)
-- 2026-06-30 00:22 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/472818624.shtml)
-- 2026-06-30 00:20 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/170337651235.shtml)
-- 2026-06-30 00:19 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/68127810.shtml)
-- 2026-06-30 00:31 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/91811196930.shtml)
-- 2026-06-30 00:12 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/42241155.shtml)
-- 2026-06-30 00:30 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/2736787819.shtml)
-- 2026-06-30 00:27 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/594174302.shtml)
-- 2026-06-30 00:20 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/38460795490.shtml)
-- 2026-06-30 00:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/3729907.shtml)
-- 2026-06-30 00:23 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/2896466461.shtml)
-- 2026-06-30 00:34 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/30006729.shtml)
-- 2026-06-30 00:11 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/3419185.shtml)
+- 2026-06-30 00:39 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/96862.shtml)
+- 2026-06-30 00:38 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/69273386.shtml)
+- 2026-06-30 00:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/82378.shtml)
+- 2026-06-30 00:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/119623939046.shtml)
+- 2026-06-30 00:21 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/59528494367.shtml)
+- 2026-06-30 00:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/01456.shtml)
+- 2026-06-30 00:27 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/4538021.shtml)
+- 2026-06-30 00:41 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/40304.shtml)
+- 2026-06-30 00:25 - [田曦薇没招了](https://www.share.minike.top/Article/details/505259220.shtml)
+- 2026-06-30 00:15 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/200921760473.shtml)
+- 2026-06-30 00:16 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/92781403.shtml)
+- 2026-06-30 00:36 - [炽夏](https://www.share.kurohicncr.top/Article/details/100410505318.shtml)
+- 2026-06-30 00:27 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/70090191963.shtml)
+- 2026-06-30 00:36 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/0844494.shtml)
+- 2026-06-30 00:19 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/0048194.shtml)

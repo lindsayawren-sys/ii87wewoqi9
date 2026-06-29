@@ -1,58 +1,58 @@
-# 华能国际电力股份发行15亿元公司债券
+# 面向全球征集 空天信息领域十大前沿问题正式发布
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-华能国际电力股份（00902）发布公告，公司已于近日完成了华能国际电力股份有限公司2026年面向专业投资者公开发行科技创新可续期公司债券（第三期）（“本期债券”）的发行。本期债券拟发行不超过人民币15亿元（含15亿元），分为两个品种：品种一基础期限为3年，以每3个计息年度为1个重新定价周期；品种二基础期限为5年，以每5个计息年度为1个重新定价周期。在约定的基础期限末及每个续期的
+中新网北京5月9日电 (记者 孙自法)记者5月9日从中国科学院空天信息创新研究院(空天院)获悉，该院联合美国科学促进会《科学》(Science)杂志共同发起的空天信息领域十大前沿问题征集活动，当天在浙江桐乡开幕的第二届空天信息技术大会上揭晓并正式发布，“让机器像人一样感知与导航”等问题入选。 空天信息技术是航空航天、电子信息、空间科学、计算机技术等多领域深度交叉融合的前沿技术领
 
 ## 正文
 
-华能国际电力股份（00902）发布公告，公司已于近日完成了华能国际电力股份有限公司2026年面向专业投资者公开发行科技创新可续期公司债券（第三期）（“本期债券”）的发行。
+中新网北京5月9日电 (记者 孙自法)记者5月9日从中国科学院空天信息创新研究院(空天院)获悉，该院联合美国科学促进会《科学》(Science)杂志共同发起的空天信息领域十大前沿问题征集活动，当天在浙江桐乡开幕的第二届空天信息技术大会上揭晓并正式发布，“让机器像人一样感知与导航”等问题入选。
 
-本期债券拟发行不超过人民币15亿元（含15亿元），分为两个品种：品种一基础期限为3年，以每3个计息年度为1个重新定价周期；品种二基础期限为5年，以每5个计息年度为1个重新定价周期。
+空天信息技术是航空航天、电子信息、空间科学、计算机技术等多领域深度交叉融合的前沿技术领域，对科技进步和产业升级意义重大。
 
-在约定的基础期限末及每个续期的周期末，公司有权行使续期选择权，按约定的基础期限延长1个周期，或选择在该周期末到期全额兑付本期债券。
+这次遴选发布的空天信息领域十大前沿问题具体包括： ——高性能太空原生芯片设计。
 
-本期债券品种一实际发行额为人民币15亿元，发行利率为1.77%。
+——极端环境下的柔性传感。
 
-本期债券品种二取消发行。
+——空天地融合网络无线通信安全认证。
 
-本期债券募集资金扣除发行费用后，拟将用于生产性支出，包括偿还有息债务、补充流动资金、项目投资及运营等符合法律法规要求的用途。
+——低/零发射功率下的雷达探测。
 
-责任编辑：卢昱君
+——让机器像人一样感知与导航。
+
+——卫星导航失效下的多源融合可信导航。
 
 ## 相关推荐
 
-- 2026-06-30 00:11 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 00:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 00:09 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 00:07 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 00:09 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 00:10 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 00:09 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 00:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 00:22 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 00:29 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 00:24 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 00:13 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 00:08 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 00:18 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 00:41 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 00:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 00:38 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 00:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 00:37 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 00:18 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 00:28 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 00:17 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 00:35 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 00:31 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 00:26 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 00:21 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:30 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/8401900589.shtml)
-- 2026-06-30 00:08 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/93862263.shtml)
-- 2026-06-30 00:11 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/731369548.shtml)
-- 2026-06-30 00:12 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/373946198845.shtml)
-- 2026-06-30 00:10 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/8898324.shtml)
-- 2026-06-30 00:16 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/76162.shtml)
-- 2026-06-30 00:09 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/666718233.shtml)
-- 2026-06-30 00:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/9839922.shtml)
-- 2026-06-30 00:21 - [极限挑战第一季](http://www.blog.minike.top/Article/details/1831560842.shtml)
-- 2026-06-30 00:16 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/9219618085.shtml)
-- 2026-06-30 00:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/99344115.shtml)
-- 2026-06-30 00:14 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/9461392282.shtml)
-- 2026-06-30 00:19 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/26506.shtml)
-- 2026-06-30 00:16 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/93641604.shtml)
-- 2026-06-30 00:08 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/192541.shtml)
+- 2026-06-30 00:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/738333511347.shtml)
+- 2026-06-30 00:26 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/74307.shtml)
+- 2026-06-30 00:29 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/69799.shtml)
+- 2026-06-30 00:36 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/47836527550.shtml)
+- 2026-06-30 00:25 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/990653.shtml)
+- 2026-06-30 00:31 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/8744582.shtml)
+- 2026-06-30 00:14 - [月亮](https://www.share.minike.top/Article/details/015655443.shtml)
+- 2026-06-30 00:39 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/218717740.shtml)
+- 2026-06-30 00:20 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/83339985.shtml)
+- 2026-06-30 00:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/328420.shtml)
+- 2026-06-30 00:14 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/38508.shtml)
+- 2026-06-30 00:12 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/325882.shtml)
+- 2026-06-30 00:27 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/951246434.shtml)
+- 2026-06-30 00:24 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/40782458767.shtml)
+- 2026-06-30 00:41 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/2406456222.shtml)

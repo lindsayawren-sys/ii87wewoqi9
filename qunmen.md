@@ -1,52 +1,44 @@
-# 【活力中国调研行】临床用上手术机器人，安全如何守护？
+# 伦敦世乒赛中国女队挺进决赛
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月13日 23:04 来源：中国新闻网 随着医疗机器人逐步走进临床诊疗各环节，其应用安全性备受关注。6月13日，记者跟随2026年“活力中国调研行”北京主题采访活动走进中关村(海淀)具身智能创新产业园。某科技企业相关负责人朱罡表示，手术机器人核心是赋能给医生，医生是整个医疗过程中的决策者，同时机器人配备有急停系统，在整个治疗过程中，医生可以任何时候去喊停
+新华社伦敦5月9日电 在9日进行的伦敦世乒赛团体赛女团半决赛中，中国队一局未失，大比分3:0完胜罗马尼亚队，晋级决赛。
 
 ## 正文
 
-发布时间：2026年06月13日 23:04 来源：中国新闻网 随着医疗机器人逐步走进临床诊疗各环节，其应用安全性备受关注。
-
-6月13日，记者跟随2026年“活力中国调研行”北京主题采访活动走进中关村(海淀)具身智能创新产业园。
-
-某科技企业相关负责人朱罡表示，手术机器人核心是赋能给医生，医生是整个医疗过程中的决策者，同时机器人配备有急停系统，在整个治疗过程中，医生可以任何时候去喊停，机器人也会实时监测，通过前期建立的力学模型，能够评估出对患者相对安全的力。
-
-(记者 刘世炯 陈杭 制作 刘鹏) 责任编辑：【张令旗】
+新华社伦敦5月9日电 在9日进行的伦敦世乒赛团体赛女团半决赛中，中国队一局未失，大比分3:0完胜罗马尼亚队，晋级决赛。
 
 ## 相关推荐
 
-- 2026-06-30 00:06 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 00:18 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 00:27 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 00:34 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 00:06 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 00:35 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 00:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 00:10 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 00:20 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 00:20 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 00:30 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 00:14 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 00:31 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 00:19 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 00:26 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 00:17 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 00:21 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 00:23 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 00:28 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 00:31 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 00:25 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 00:22 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 00:34 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 00:16 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 00:32 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 00:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:10 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/6139580.shtml)
-- 2026-06-30 00:29 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/2857044.shtml)
-- 2026-06-30 00:11 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/679226841.shtml)
-- 2026-06-30 00:20 - [小娘惹](http://www.share.minike.top/Article/details/40974.shtml)
-- 2026-06-30 00:21 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/9358924331.shtml)
-- 2026-06-30 00:12 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/2872541.shtml)
-- 2026-06-30 00:26 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/25627.shtml)
-- 2026-06-30 00:22 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/418376317608.shtml)
-- 2026-06-30 00:13 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/49648110.shtml)
-- 2026-06-30 00:34 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/391598.shtml)
-- 2026-06-30 00:24 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/0014649.shtml)
-- 2026-06-30 00:19 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/203387398.shtml)
-- 2026-06-30 00:34 - [请回答王牌2019](https://www.share.minike.top/Article/details/19934901687.shtml)
-- 2026-06-30 00:30 - [月亮](http://www.share.kurohicncr.top/Article/details/4340268.shtml)
-- 2026-06-30 00:13 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/09417666.shtml)
+- 2026-06-30 00:41 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/053268477928.shtml)
+- 2026-06-30 00:18 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/4565092123.shtml)
+- 2026-06-30 00:16 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/910230977.shtml)
+- 2026-06-30 00:15 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/73311085.shtml)
+- 2026-06-30 00:28 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/738535139.shtml)
+- 2026-06-30 00:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/639749744.shtml)
+- 2026-06-30 00:23 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/88566242.shtml)
+- 2026-06-30 00:29 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/007850360.shtml)
+- 2026-06-30 00:41 - [AI接过张雪峰志愿填报衣钵](https://www.blog.minike.top/Article/details/337402.shtml)
+- 2026-06-30 00:31 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/439203565651.shtml)
+- 2026-06-30 00:38 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/3901038.shtml)
+- 2026-06-30 00:26 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/7031872.shtml)
+- 2026-06-30 00:39 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/50487746.shtml)
+- 2026-06-30 00:39 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/52261.shtml)
+- 2026-06-30 00:37 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/47786613.shtml)

@@ -1,58 +1,60 @@
-# 3个涨停后股价跌停，韩建河山斥资10.7亿元收购兴福新材
+# 元道通信财务造假强制退市，律师提示索赔刻不容缓
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-来源：@华夏时报微博本报记者 李凯旋 北京报道传统的建材行业再度迎来一场向新材料转型的大戏。6月6日，北京韩建河山管业股份有限公司（603616.SH，下称“韩建河山”）发布公告表示，拟通过发行股份及支付现金的方式购买25名股东持有的辽宁兴福新材料股份有限公司（下称“兴福新材”）99.9978%股份，并向不超过35名特定投资者发行股份募集配套资金。此次交易构成重大资产重组和关联
+5月8日，证监会对元道通信（维权）下达了《行政处罚事先告知书》。因涉嫌系统性财务造假及欺诈发行，被中国证监会处以2.3884亿元的巨额罚款。 这家主营通信维护的企业，被证监会查明在2019年至2022年期间持续虚增收入。这意味着，在其2022年上市之前，财报就已经存在问题。 调查显示，公司在2019-2022年连续4年造假。由于触及了重大违法强制退市情形，深交所已正式启动对元道
 
 ## 正文
 
-来源：@华夏时报微博本报记者 李凯旋 北京报道传统的建材行业再度迎来一场向新材料转型的大戏。
+5月8日，证监会对元道通信（维权）下达了《行政处罚事先告知书》。
 
-6月6日，北京韩建河山管业股份有限公司（603616.SH，下称“韩建河山”）发布公告表示，拟通过发行股份及支付现金的方式购买25名股东持有的辽宁兴福新材料股份有限公司（下称“兴福新材”）99.9978%股份，并向不超过35名特定投资者发行股份募集配套资金。
+因涉嫌系统性财务造假及欺诈发行，被中国证监会处以2.3884亿元的巨额罚款。
 
-此次交易构成重大资产重组和关联交易，不构成重组上市。
+这家主营通信维护的企业，被证监会查明在2019年至2022年期间持续虚增收入。
 
-受此消息影响，6月8日、6月9日，韩建河山股价涨停。
+这意味着，在其2022年上市之前，财报就已经存在问题。
 
-6月10日，股价盘中涨停。
+调查显示，公司在2019-2022年连续4年造假。
 
-值得关注的是，6月11日，韩建河山股价急速跌停，报收6.56元/股。
+由于触及了重大违法强制退市情形，深交所已正式启动对元道通信的强制退市程序。
 
-韩建河山方面对《华夏时报》记者表示：“公司正处于股价敏感期，不方便接受采访，具体情况以公告为准。
+上海沪紫律师事务所刘鹏律师表示即便退市，投资者索赔事宜不受影响。
 
-”重组迎来进展韩建河山的传统主营业务为预应力钢筒混凝土管、钢筋混凝土排水管的研发、生产和销售，主导产品则主要用于跨流域引水、输配水重点工程及市政给排水等水务工程。
+目前符合于2022年7月8号-2025年7月11日（含当日）期间买入，并在2025年7月12日之后卖出或仍持有而亏损的即可登记维权。
 
 ## 相关推荐
 
-- 2026-06-30 00:17 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 00:21 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 00:25 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 00:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 00:24 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 00:23 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 00:33 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 00:34 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 00:25 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 00:11 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 00:16 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 00:33 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 00:38 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 00:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 00:39 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 00:32 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 00:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 00:29 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 00:32 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 00:33 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 00:39 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 00:23 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 00:12 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 00:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 00:28 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 00:15 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:15 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/338574742098.shtml)
-- 2026-06-30 00:23 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/484913.shtml)
-- 2026-06-30 00:12 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/96673384.shtml)
-- 2026-06-30 00:28 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/3784654099.shtml)
-- 2026-06-30 00:10 - [天道](http://www.share.kurohicncr.top/Article/details/854187372113.shtml)
-- 2026-06-30 00:06 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/544060.shtml)
-- 2026-06-30 00:22 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/6066171.shtml)
-- 2026-06-30 00:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/8275273.shtml)
-- 2026-06-30 00:10 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/4702579969.shtml)
-- 2026-06-30 00:13 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/58817825354.shtml)
-- 2026-06-30 00:28 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/28297.shtml)
-- 2026-06-30 00:31 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/9012002.shtml)
-- 2026-06-30 00:27 - [毒液2](https://www.share.kurohicncr.top/Article/details/58754.shtml)
-- 2026-06-30 00:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/414178.shtml)
-- 2026-06-30 00:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/9640493934.shtml)
+- 2026-06-30 00:17 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/900688.shtml)
+- 2026-06-30 00:29 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/779312009785.shtml)
+- 2026-06-30 00:34 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/66796782066.shtml)
+- 2026-06-30 00:14 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/02633503.shtml)
+- 2026-06-30 00:35 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/89099506931.shtml)
+- 2026-06-30 00:21 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/808151577.shtml)
+- 2026-06-30 00:20 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/5521206329.shtml)
+- 2026-06-30 00:13 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/8773355.shtml)
+- 2026-06-30 00:41 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/554370039742.shtml)
+- 2026-06-30 00:16 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/2610252134.shtml)
+- 2026-06-30 00:17 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/042755305.shtml)
+- 2026-06-30 00:21 - [扬名立万](https://www.share.kurohicncr.top/Article/details/57019925.shtml)
+- 2026-06-30 00:32 - [月亮](https://www.share.minike.top/Article/details/6210599.shtml)
+- 2026-06-30 00:21 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/120211.shtml)
+- 2026-06-30 00:38 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/61233603.shtml)

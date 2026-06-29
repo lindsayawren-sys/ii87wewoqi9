@@ -1,59 +1,47 @@
-# 美伊协议引爆市场！风险资产、美债齐涨，分析师预警风险仍存
+# 塔吉克斯坦总统拉赫蒙将对华进行国事访问
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-美国和伊朗达成和平协议引发市场狂欢，国际油价周一暴跌，风险资产、美债价格上涨。 能源市场反应最为强烈。7月交割的WTI原油期货价格下跌5.04%，至每桶80.60美元；8月交割的布伦特原油价格下跌4.23%，至每桶83.64美元。 亚洲股市大幅上涨。韩国KOSPI指数、日经225指数上涨超5%，澳大利亚S&P/ASX200指数上涨1.3%。 欧美股指期货齐涨，其中，道指期货涨0
+外交部发言人宣布： 应国家主席习近平邀请，塔吉克斯坦总统埃莫马利·拉赫蒙将于5月11日至14日对中国进行国事访问。 责任编辑：刘万里 SF014
 
 ## 正文
 
-美国和伊朗达成和平协议引发市场狂欢，国际油价周一暴跌，风险资产、美债价格上涨。
+外交部发言人宣布： 应国家主席习近平邀请，塔吉克斯坦总统埃莫马利·拉赫蒙将于5月11日至14日对中国进行国事访问。
 
-能源市场反应最为强烈。
-
-7月交割的WTI原油期货价格下跌5.04%，至每桶80.60美元；8月交割的布伦特原油价格下跌4.23%，至每桶83.64美元。
-
-亚洲股市大幅上涨。
-
-韩国KOSPI指数、日经225指数上涨超5%，澳大利亚S&P/ASX200指数上涨1.3%。
-
-欧美股指期货齐涨，其中，道指期货涨0.82%，标普500指数期货涨1.07%，纳指期货涨1.80%。
-
-欧洲斯托克50期货上涨1.6%。
-
-eToro亚太区首席分析师Josh Gilbert表示：“市场已经等待这一消息数月之久，缓解作用已经开始显现，油价下跌，风险资产走强……此前，特朗普总统确认霍尔木兹海峡将重新开放，美国海军封锁也将解除。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 00:29 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 00:13 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 00:22 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 00:34 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 00:30 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 00:24 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 00:22 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 00:16 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 00:13 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 00:33 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 00:31 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 00:22 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 00:26 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 00:25 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 00:37 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 00:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 00:24 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-30 00:31 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 00:26 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 00:13 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 00:41 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 00:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 00:22 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 00:12 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 00:35 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 00:12 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/7230937707.shtml)
-- 2026-06-30 00:19 - [扬名立万](http://www.share.minike.top/Article/details/0112247812.shtml)
-- 2026-06-30 00:28 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/85355.shtml)
-- 2026-06-30 00:31 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/40700763279.shtml)
-- 2026-06-30 00:09 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/26274724266.shtml)
-- 2026-06-30 00:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/526372164925.shtml)
-- 2026-06-30 00:14 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/73639663.shtml)
-- 2026-06-30 00:14 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/47624956.shtml)
-- 2026-06-30 00:11 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/4085557583.shtml)
-- 2026-06-30 00:13 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/5278910.shtml)
-- 2026-06-30 00:11 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/685445375.shtml)
-- 2026-06-30 00:06 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/186162.shtml)
-- 2026-06-30 00:07 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/82287262.shtml)
-- 2026-06-30 00:31 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/597450297.shtml)
-- 2026-06-30 00:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/5060089.shtml)
+- 2026-06-30 00:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/110357498.shtml)
+- 2026-06-30 00:35 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/4378496.shtml)
+- 2026-06-30 00:15 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/13586639008.shtml)
+- 2026-06-30 00:32 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/63505468191.shtml)
+- 2026-06-30 00:26 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/0432252.shtml)
+- 2026-06-30 00:34 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/724324744941.shtml)
+- 2026-06-30 00:15 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/9452315.shtml)
+- 2026-06-30 00:20 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/4276957.shtml)
+- 2026-06-30 00:23 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/700118.shtml)
+- 2026-06-30 00:32 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/803246318744.shtml)
+- 2026-06-30 00:33 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/0944139.shtml)
+- 2026-06-30 00:34 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/053876441847.shtml)
+- 2026-06-30 00:33 - [小娘惹](http://www.share.kurohicncr.top/Article/details/154729.shtml)
+- 2026-06-30 00:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/47332.shtml)
+- 2026-06-30 00:17 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/9274566.shtml)

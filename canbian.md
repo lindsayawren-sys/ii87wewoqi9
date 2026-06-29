@@ -1,54 +1,61 @@
-# 龙源电力完成发行25亿元超短期融资券
+# 奋斗华章丨平凡亦有光 奋斗即力量
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-龙源电力（00916）公布，公司已于2026年6月10日完成公司超短期融资券发行。本超短期融资券发行总额为人民币25亿元，期限为218天，单位面值为人民币100元，票面利率为1.36%。利息自2026年6月11日起开始计算。 本超短期融资券由北京银行股份有限公司作为主承销商及兴业银行股份有限公司作为联席主承销商公开发售。本超短期融资券所募集资金将用于补充日常流动资金及偿还发行人
+五月的风，裹挟着劳动的滚烫与青春的赤诚，吹遍华夏大地。 当五一劳动节的实干荣光，邂逅朝气蓬勃的青春力量，“奋斗”二字便有了最生动的注脚：它藏在各行各业的坚守里，藏在无数人逐梦的征程上，更藏在每一位平凡劳动者、青年追光者的步履之下，是千千万万奋斗者共同的精神底色。 奋斗从无边界，纵跨山海，亦能破难前行。 来自大连团队研发的中国深海绞车，从南海的碧波奔赴北极的冰原，直面极寒考验，在
 
 ## 正文
 
-龙源电力（00916）公布，公司已于2026年6月10日完成公司超短期融资券发行。
+五月的风，裹挟着劳动的滚烫与青春的赤诚，吹遍华夏大地。
 
-本超短期融资券发行总额为人民币25亿元，期限为218天，单位面值为人民币100元，票面利率为1.36%。
+当五一劳动节的实干荣光，邂逅朝气蓬勃的青春力量，“奋斗”二字便有了最生动的注脚：它藏在各行各业的坚守里，藏在无数人逐梦的征程上，更藏在每一位平凡劳动者、青年追光者的步履之下，是千千万万奋斗者共同的精神底色。
 
-利息自2026年6月11日起开始计算。
+奋斗从无边界，纵跨山海，亦能破难前行。
 
-本超短期融资券由北京银行股份有限公司作为主承销商及兴业银行股份有限公司作为联席主承销商公开发售。
+来自大连团队研发的中国深海绞车，从南海的碧波奔赴北极的冰原，直面极寒考验，在千里冰封中坚守使命，用硬核科技丈量深海与极地的距离，这是中国智造的奋斗底色。
 
-本超短期融资券所募集资金将用于补充日常流动资金及偿还发行人及其子公司有息债务。
+在宁波舟山港――世界第一大港，“急诊医生”与团队24小时待命，指尖磨泡仍坚守岗位，抢修航船、保障全球供应链畅通稳定，用坚守诠释“劳动创造价值”的真谛，让巨轮鸣笛远航，成为奋斗最动人的旋律。
 
-责任编辑：卢昱君
+奋斗从不设限，无关年龄，皆可奔赴热爱。
+
+在上海的科技前沿，一群平均不到35岁的青年科研者，扎根核电基地，啃下第四代核能“世界难题”，以青春热血攻克一个又一个技术壁垒，让全球首座第四代核电站落地生根，彰显青年一代的硬核担当。
+
+重庆32岁教授郭子文深耕“智造重庆”一线，以青年学者的锐气，织就空天地海一体化数字网络，用智慧为城市发展注入新动能，让青春在科技创新中绽放光彩。
 
 ## 相关推荐
 
-- 2026-06-30 00:29 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 00:28 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 00:31 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 00:14 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 00:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 00:35 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 00:22 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 00:16 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 00:22 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 00:16 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 00:34 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 00:27 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 00:16 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 00:37 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 00:33 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 00:22 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 00:39 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 00:39 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 00:36 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 00:15 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 00:22 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 00:33 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 00:40 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 00:34 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 00:37 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 00:37 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 00:33 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:17 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/19919607284.shtml)
-- 2026-06-30 00:18 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/3555922038.shtml)
-- 2026-06-30 00:25 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/68847933799.shtml)
-- 2026-06-30 00:17 - [明星大侦探第四季](http://www.share.minike.top/Article/details/702013316.shtml)
-- 2026-06-30 00:13 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/462653955.shtml)
-- 2026-06-30 00:16 - [千香](https://www.blog.kurohicncr.top/Article/details/0736283425.shtml)
-- 2026-06-30 00:08 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/311215495619.shtml)
-- 2026-06-30 00:22 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/653010.shtml)
-- 2026-06-30 00:33 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/1763491713.shtml)
-- 2026-06-30 00:29 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/95854.shtml)
-- 2026-06-30 00:13 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/334806.shtml)
-- 2026-06-30 00:30 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/29698.shtml)
-- 2026-06-30 00:21 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/65399127.shtml)
-- 2026-06-30 00:22 - [沙丘](https://www.share.minike.top/Article/details/60816612373.shtml)
-- 2026-06-30 00:07 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/14608.shtml)
+- 2026-06-30 00:28 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/169750.shtml)
+- 2026-06-30 00:18 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/48438336953.shtml)
+- 2026-06-30 00:30 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/180631615.shtml)
+- 2026-06-30 00:31 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/07199393635.shtml)
+- 2026-06-30 00:18 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/0932227707.shtml)
+- 2026-06-30 00:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/273471064916.shtml)
+- 2026-06-30 00:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/559072134.shtml)
+- 2026-06-30 00:30 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/18666.shtml)
+- 2026-06-30 00:32 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/99489632984.shtml)
+- 2026-06-30 00:41 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/48778718.shtml)
+- 2026-06-30 00:35 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/67554993.shtml)
+- 2026-06-30 00:32 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/1278680019.shtml)
+- 2026-06-30 00:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/8386606828.shtml)
+- 2026-06-30 00:14 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/17226.shtml)
+- 2026-06-30 00:25 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/9257707.shtml)

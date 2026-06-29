@@ -1,46 +1,61 @@
-# 伊朗消息人士说美伊将举行视频会议并签署协议
+# 中欧班列开行突破13万列 发送货值超5200亿美元
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-新华社伊斯兰堡6月14日电(记者杨恺)伊朗方面消息人士14日告诉新华社记者，巴基斯坦将主持召开视频会议，伊朗和美国双方代表将出席会议并签署协议。
+记者从中国国家铁路集团有限公司(下称国铁集团)获悉，今天(9日)10时，随着开往德国汉堡的X8037次中欧班列从中国郑州圃田站发车，中欧班列历年累计开行突破13万列，发送货值超5200亿美元。中欧班列国际物流品牌价值得到全球认可，市场竞争力持续提升。国铁集团货运部负责人介绍，国铁集团坚持共商共建共享原则，深化国内国际协调合作，持续推动中欧班列朝着更高质量、更好效益、更加安全方向
 
 ## 正文
 
-新华社伊斯兰堡6月14日电(记者杨恺)伊朗方面消息人士14日告诉新华社记者，巴基斯坦将主持召开视频会议，伊朗和美国双方代表将出席会议并签署协议。
+记者从中国国家铁路集团有限公司(下称国铁集团)获悉，今天(9日)10时，随着开往德国汉堡的X8037次中欧班列从中国郑州圃田站发车，中欧班列历年累计开行突破13万列，发送货值超5200亿美元。
+
+中欧班列国际物流品牌价值得到全球认可，市场竞争力持续提升。
+
+国铁集团货运部负责人介绍，国铁集团坚持共商共建共享原则，深化国内国际协调合作，持续推动中欧班列朝着更高质量、更好效益、更加安全方向发展。
+
+一是中欧班列通道网络持续拓展。
+
+围绕境内西、中、东三大通道，动态优化中欧班列运行线路，铺画时速120公里中欧班列图定线路93条。
+
+目前，中国境内已有129个城市开通了中欧班列，通达欧洲26个国家235个城市以及11个亚洲国家超过100个城市，服务范围基本覆盖亚欧全境。
+
+二是中欧班列运输效率不断提高。
+
+充分利用境内外班列运输能力，将中欧班列最大编组辆数和牵引质量分别提高至55辆、3000吨，在霍尔果斯、同江等具备条件口岸开展集并运输，更好满足广大客户外贸运输需求。
 
 ## 相关推荐
 
-- 2026-06-30 00:16 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 00:35 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 00:26 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 00:19 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 00:17 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 00:14 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 00:18 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 00:31 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 00:14 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 00:20 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 00:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 00:23 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 00:09 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 00:08 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 00:20 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 00:27 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 00:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 00:19 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 00:28 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 00:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 00:39 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 00:28 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 00:18 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 00:19 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-30 00:24 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 00:13 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 00:13 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 00:20 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 00:14 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:26 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/331564065105.shtml)
-- 2026-06-30 00:35 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/3265696731.shtml)
-- 2026-06-30 00:28 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/87824.shtml)
-- 2026-06-30 00:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/1361648.shtml)
-- 2026-06-30 00:13 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/79830.shtml)
-- 2026-06-30 00:29 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/99962841894.shtml)
-- 2026-06-30 00:08 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/187652828.shtml)
-- 2026-06-30 00:11 - [一生一世](https://www.share.kurohicncr.top/Article/details/07172907.shtml)
-- 2026-06-30 00:18 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/071294.shtml)
-- 2026-06-30 00:07 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/64622973.shtml)
-- 2026-06-30 00:16 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/824343662281.shtml)
-- 2026-06-30 00:29 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/3340411.shtml)
-- 2026-06-30 00:31 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/4453789743.shtml)
-- 2026-06-30 00:16 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/2836288.shtml)
-- 2026-06-30 00:06 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/371002257832.shtml)
+- 2026-06-30 00:35 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/2141442752.shtml)
+- 2026-06-30 00:29 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/96700.shtml)
+- 2026-06-30 00:29 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/00640630085.shtml)
+- 2026-06-30 00:24 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/47134504581.shtml)
+- 2026-06-30 00:37 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/044236.shtml)
+- 2026-06-30 00:17 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/14221374.shtml)
+- 2026-06-30 00:14 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/3276685664.shtml)
+- 2026-06-30 00:17 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/941445.shtml)
+- 2026-06-30 00:18 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/7873268859.shtml)
+- 2026-06-30 00:27 - [巴西vs日本](http://www.share.minike.top/Article/details/6799561948.shtml)
+- 2026-06-30 00:38 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/23189630719.shtml)
+- 2026-06-30 00:33 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/393365822.shtml)
+- 2026-06-30 00:39 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/11226484114.shtml)
+- 2026-06-30 00:38 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/74383467.shtml)
+- 2026-06-30 00:32 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/359694966.shtml)

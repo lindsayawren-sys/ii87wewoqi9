@@ -1,57 +1,57 @@
-# 2026上海基础教育论坛发布共识 倡导以学习进化重塑未来竞争力
+# 单周飙升38%！美光市值突破8400亿美元，内存芯片热潮进入“抛物线”式上涨
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网上海6月13日电 (记者 陈静)2026上海基础教育论坛13日在沪举行。论坛正式发布《2026上海共识：以学习的进化重塑未来竞争力》(简称：共识)。 共识向全社会倡议：重新定义AI时代的学习；明确学习进化能力是未来竞争力的核心；推动学习方式从知识获取走向认知共创；在学习进化中坚守教育的本质；聚焦未来竞争力，推动基础教育深刻转型。 共识希望各界携手共建AI时代的“学习共同体
+受全球内存芯片短缺影响，美光科技股价本周狂飙，整个半导体板块的乐观情绪推动该股持续走高。 周五，美光股价大涨超过15%，收于746.81美元。本周累计上涨近38%，过去一个月累计上涨近84%。 这是美光自2008年12月（当时股价在大萧条后低于5美元）以来表现最好的一周。根据LSEG数据，公司目前市值超过8400亿美元。 美光并非唯一表现出色的芯片股。AMD本周上涨26%，周五
 
 ## 正文
 
-中新网上海6月13日电 (记者 陈静)2026上海基础教育论坛13日在沪举行。
+受全球内存芯片短缺影响，美光科技股价本周狂飙，整个半导体板块的乐观情绪推动该股持续走高。
 
-论坛正式发布《2026上海共识：以学习的进化重塑未来竞争力》(简称：共识)。
+周五，美光股价大涨超过15%，收于746.81美元。
 
-共识向全社会倡议：重新定义AI时代的学习；明确学习进化能力是未来竞争力的核心；推动学习方式从知识获取走向认知共创；在学习进化中坚守教育的本质；聚焦未来竞争力，推动基础教育深刻转型。
+本周累计上涨近38%，过去一个月累计上涨近84%。
 
-共识希望各界携手共建AI时代的“学习共同体”，在人机协同的浪潮中，守住教育的初心与温度，以学习的进化塑造人才成长的新优势、构筑国家发展的新动能、定义人类文明的新高度。
+这是美光自2008年12月（当时股价在大萧条后低于5美元）以来表现最好的一周。
 
-当下，“人工智能+”的时代浪潮，正在重塑教育的形态与未来。
+根据LSEG数据，公司目前市值超过8400亿美元。
 
-本次活动以“‘人工智能+’：学习的进化”为主题。
+美光并非唯一表现出色的芯片股。
 
-沪苏浙皖三省一市教育部门相关负责人，云南省、新疆喀什、青海果洛、福建三明、安徽六安等上海对口支援地区的教育同行，教育、科技领域相关专家，全国各地和上海市中小学书记、校长、教师代表参加了论坛。
+AMD本周上涨26%，周五触及52周新高，市值超过7400亿美元。
 
-(完)
+英特尔本周上涨25%，过去一个月涨幅超过一倍，这家CPU制造商被广泛认为正在强势回归。
 
 ## 相关推荐
 
-- 2026-06-30 00:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 00:19 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 00:29 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 00:07 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 00:33 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 00:07 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 00:17 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 00:15 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 00:16 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 00:27 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 00:17 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 00:21 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 00:42 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 00:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 00:22 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-30 00:13 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 00:29 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 00:23 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 00:32 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 00:18 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 00:14 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 00:36 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:06 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/56960814.shtml)
-- 2026-06-30 00:14 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/219856.shtml)
-- 2026-06-30 00:28 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/1933881.shtml)
-- 2026-06-30 00:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/350284.shtml)
-- 2026-06-30 00:20 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/37334791306.shtml)
-- 2026-06-30 00:17 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/95599985.shtml)
-- 2026-06-30 00:29 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/89057339.shtml)
-- 2026-06-30 00:32 - [金刚川](http://www.share.kurohicncr.top/Article/details/564681289.shtml)
-- 2026-06-30 00:13 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/77120.shtml)
-- 2026-06-30 00:32 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/21442.shtml)
-- 2026-06-30 00:27 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/685137.shtml)
-- 2026-06-30 00:26 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/45547549.shtml)
-- 2026-06-30 00:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/470213.shtml)
-- 2026-06-30 00:16 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/2095860826.shtml)
-- 2026-06-30 00:27 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/608990.shtml)
+- 2026-06-30 00:35 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/727096.shtml)
+- 2026-06-30 00:14 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/152994823066.shtml)
+- 2026-06-30 00:37 - [刘念回应](https://www.share.kurohicncr.top/Article/details/451022960.shtml)
+- 2026-06-30 00:17 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/9915715729.shtml)
+- 2026-06-30 00:23 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/54911140038.shtml)
+- 2026-06-30 00:31 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/8264155.shtml)
+- 2026-06-30 00:15 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/9145628.shtml)
+- 2026-06-30 00:23 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/87785.shtml)
+- 2026-06-30 00:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/653219.shtml)
+- 2026-06-30 00:41 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/040865.shtml)
+- 2026-06-30 00:22 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/817531865.shtml)
+- 2026-06-30 00:19 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/3735465006.shtml)
+- 2026-06-30 00:16 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/412234.shtml)
+- 2026-06-30 00:27 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/75267576141.shtml)
+- 2026-06-30 00:31 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/51370376831.shtml)

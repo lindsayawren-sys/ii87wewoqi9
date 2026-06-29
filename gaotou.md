@@ -1,58 +1,61 @@
-# 2026年江西省羽毛球超级联赛在南昌收官
+# Microchip财报超预期并给出乐观指引，周五盘前股价上涨3%
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网南昌6月14日电 (记者 吴鹏泉)“百羽争锋·赣出精彩”2026年江西省羽毛球超级联赛(简称“赣羽超”)13日在南昌收官，南昌市青云谱区代表队斩获联赛总冠军。 13日晚，2026年“赣羽超”总决赛在南昌市国际体育中心举行。南昌市青云谱区代表队与经开区代表队在总决赛上演“南昌德比”，最终南昌市青云谱区代表队斩获联赛总冠军，南昌经开区代表队摘得亚军。 2026年“赣羽超”是全
+Microchip Technology周五盘前股价上涨约3%，此前这家芯片制造商公布的第四财季盈利和营收双双超出华尔街预期，并对当前季度给出了强于预期的业绩指引。 财报显示，截至3月31日的第四财季，Microchip营收为15.4亿美元，同比下降约22%，但高于FactSet调查分析师预期的14亿美元。调整后每股收益为0.48美元，同样高于市场预期的0.30美元。 公司表示
 
 ## 正文
 
-中新网南昌6月14日电 (记者 吴鹏泉)“百羽争锋·赣出精彩”2026年江西省羽毛球超级联赛(简称“赣羽超”)13日在南昌收官，南昌市青云谱区代表队斩获联赛总冠军。
+Microchip Technology周五盘前股价上涨约3%，此前这家芯片制造商公布的第四财季盈利和营收双双超出华尔街预期，并对当前季度给出了强于预期的业绩指引。
 
-13日晚，2026年“赣羽超”总决赛在南昌市国际体育中心举行。
+财报显示，截至3月31日的第四财季，Microchip营收为15.4亿美元，同比下降约22%，但高于FactSet调查分析师预期的14亿美元。
 
-南昌市青云谱区代表队与经开区代表队在总决赛上演“南昌德比”，最终南昌市青云谱区代表队斩获联赛总冠军，南昌经开区代表队摘得亚军。
+调整后每股收益为0.48美元，同样高于市场预期的0.30美元。
 
-2026年“赣羽超”是全国首个覆盖全省县(市)区的全民健身羽毛球赛事，历时近三个月，吸引全省104支队伍、超2000名羽毛球爱好者参与。
+公司表示，尽管终端市场需求仍存在不确定性，但客户库存调整已进入尾声，订单趋势正在改善。
 
-经过层层选拔比拼，16支县(市)区代表队“会师”南昌，向联赛总冠军发起冲击。
+更令市场鼓舞的是，公司预计第一财季营收在14.4亿至14.7亿美元之间，中位值为14.55亿美元，远超FactSet分析师预期的13.4亿美元。
 
-12日决出了赛事八强队伍。
+Microchip的强劲财报和乐观指引与经济疲弱信号形成鲜明对比。
 
-13日上午，八进四及半决赛阶段打响。
+分析人士指出，Microchip约60%的收入来自工业和汽车领域，其业绩回暖可能预示着更广泛的芯片行业正在触底反弹。
 
-在半决赛中，南昌市青云谱区代表队与经开区代表队均以3:1的成绩分别力克景德镇市珠山区代表队和九江市瑞昌市代表队，晋级决赛。
+该股在过去12个月中累计下跌约38%，落后于费城半导体指数的表现。
 
 ## 相关推荐
 
-- 2026-06-30 00:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 00:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 00:27 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 00:08 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 00:07 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 00:24 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 00:18 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 00:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 00:33 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 00:35 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 00:35 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 00:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 00:21 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 00:23 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 00:30 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 00:24 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 00:26 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 00:31 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 00:13 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 00:21 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 00:37 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 00:41 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 00:20 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 00:18 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 00:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 00:15 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 00:13 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:09 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/47365205077.shtml)
-- 2026-06-30 00:10 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/71658828.shtml)
-- 2026-06-30 00:10 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/3152032940.shtml)
-- 2026-06-30 00:35 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/59155.shtml)
-- 2026-06-30 00:34 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/629974858.shtml)
-- 2026-06-30 00:20 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/88577561532.shtml)
-- 2026-06-30 00:13 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/0138609.shtml)
-- 2026-06-30 00:06 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/17315951916.shtml)
-- 2026-06-30 00:29 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/317613.shtml)
-- 2026-06-30 00:25 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/326868268.shtml)
-- 2026-06-30 00:08 - [美股](https://www.blog.minike.top/Article/details/91389684.shtml)
-- 2026-06-30 00:33 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/9312211.shtml)
-- 2026-06-30 00:28 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/793176.shtml)
-- 2026-06-30 00:24 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/645820055186.shtml)
-- 2026-06-30 00:07 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/750350253.shtml)
+- 2026-06-30 00:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/85871396620.shtml)
+- 2026-06-30 00:36 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/4199433177.shtml)
+- 2026-06-30 00:37 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/3386363.shtml)
+- 2026-06-30 00:22 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/0698828.shtml)
+- 2026-06-30 00:31 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/596842506.shtml)
+- 2026-06-30 00:36 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/89111415.shtml)
+- 2026-06-30 00:15 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/41862002471.shtml)
+- 2026-06-30 00:29 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/645870334.shtml)
+- 2026-06-30 00:39 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/9124575.shtml)
+- 2026-06-30 00:25 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/150579547813.shtml)
+- 2026-06-30 00:34 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/1823232546.shtml)
+- 2026-06-30 00:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/5421470.shtml)
+- 2026-06-30 00:25 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/64814.shtml)
+- 2026-06-30 00:14 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/992966733.shtml)
+- 2026-06-30 00:21 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/14800826744.shtml)

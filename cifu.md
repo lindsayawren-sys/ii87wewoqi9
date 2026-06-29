@@ -1,57 +1,60 @@
-# 抗衰“神药”，还有多远？
+# Coinbase在长达7小时中断后恢复交易，艰难一周再添波折
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中国新闻周刊记者：孙厚铭 发于2026.6.15总第1239期《中国新闻周刊》杂志 接受药物干预的老年小鼠，比同龄小鼠活得更久。这样的结果，总会点燃人们对抗衰“神药”的想象。 今年4月，医学期刊《药物设计、开发与治疗》发表的一项研究显示，一种名为SRN-901的候选药物，可使老年小鼠剩余寿命的中位数延长约三分之一，肿瘤发生率降低约30%。2025年2月，一款名为LOY-002的
+Coinbase Global已恢复交易服务。此前一次重大中断导致客户在周五近七个小时内无法在其平台进行交易，这给这家加密货币交易所本就艰难的一周再添运营难题。这家总部位于纽约的公司表示，此次中断是由亚马逊网络服务位于北弗吉尼亚州的一个数据中心过热引起的，该故障影响了Coinbase所使用的系统，并导致所有交易暂停了一段时间。Coinbase于周五新加坡时间上午9点左右首次报告
 
 ## 正文
 
-中国新闻周刊记者：孙厚铭 发于2026.6.15总第1239期《中国新闻周刊》杂志 接受药物干预的老年小鼠，比同龄小鼠活得更久。
+Coinbase Global已恢复交易服务。
 
-这样的结果，总会点燃人们对抗衰“神药”的想象。
+此前一次重大中断导致客户在周五近七个小时内无法在其平台进行交易，这给这家加密货币交易所本就艰难的一周再添运营难题。
 
-今年4月，医学期刊《药物设计、开发与治疗》发表的一项研究显示，一种名为SRN-901的候选药物，可使老年小鼠剩余寿命的中位数延长约三分之一，肿瘤发生率降低约30%。
+这家总部位于纽约的公司表示，此次中断是由亚马逊网络服务位于北弗吉尼亚州的一个数据中心过热引起的，该故障影响了Coinbase所使用的系统，并导致所有交易暂停了一段时间。
 
-2025年2月，一款名为LOY-002的候选药物获得美国食品药品监督管理局(FDA)兽医中心确认，对延长老年犬寿命“具有合理、有效性预期”。
+Coinbase于周五新加坡时间上午9点左右首次报告了该问题，随后活动在下午4点左右恢复。
 
-针对人类，一批被认为具有潜力的抗衰老药物靶点与候选分子也正逐渐显现。
+此次中断发生在公司的一个敏感时刻，影响了核心交易功能。
 
-“但截至目前，还没有任何一种药物有确凿证据，能延缓人类衰老。
+根据社交媒体上用户的报告，一些客户无法交易、转移资产或访问正常的交易服务。
 
-”中南大学衰老与老年疾病研究所所长刘幼硕对《中国新闻周刊》介绍，很多人希望通过吃药替代健康生活方式，但从动物实验到人体有效，还有相当长的距离。
+Coinbase的一位发言人表示，面向零售客户的应用程序也出现了性能下降。
 
-“打捆”干预 随着年龄增长，越来越多与衰老相关的疾病会陆续出现。
+对投资者而言，此次时点可能会加剧对Coinbase依赖第三方云基础设施的关注，尤其是此次AWS中断之前，这家亚马逊旗下的服务提供商在10月份曾发生过一次重大中断，影响了全球数千家网站。
 
 ## 相关推荐
 
-- 2026-06-30 00:13 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 00:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-30 00:24 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 00:06 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 00:19 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 00:31 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 00:31 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-30 00:13 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 00:15 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 00:09 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 00:21 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-30 00:38 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 00:15 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 00:13 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 00:35 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 00:28 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 00:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 00:19 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 00:22 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 00:37 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-30 00:13 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 00:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 00:22 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 00:19 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-30 00:19 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:15 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/53020344495.shtml)
-- 2026-06-30 00:15 - [爱很美味](http://www.blog.minike.top/Article/details/6641230870.shtml)
-- 2026-06-30 00:19 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/987020962817.shtml)
-- 2026-06-30 00:06 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/02193361.shtml)
-- 2026-06-30 00:10 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/170676160510.shtml)
-- 2026-06-30 00:23 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/912560670.shtml)
-- 2026-06-30 00:23 - [毒液2](https://www.share.minike.top/Article/details/192088589980.shtml)
-- 2026-06-30 00:20 - [东方风云榜](https://www.share.minike.top/Article/details/285572.shtml)
-- 2026-06-30 00:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/86033218295.shtml)
-- 2026-06-30 00:25 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/120010.shtml)
-- 2026-06-30 00:36 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/692401.shtml)
-- 2026-06-30 00:17 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/5996545839.shtml)
-- 2026-06-30 00:17 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/533939275107.shtml)
-- 2026-06-30 00:21 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/32968.shtml)
-- 2026-06-30 00:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/69583.shtml)
+- 2026-06-30 00:28 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/4985686707.shtml)
+- 2026-06-30 00:30 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/59714523.shtml)
+- 2026-06-30 00:19 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/93953.shtml)
+- 2026-06-30 00:31 - [啊啊啊](https://www.share.minike.top/Article/details/21918731.shtml)
+- 2026-06-30 00:17 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/88216.shtml)
+- 2026-06-30 00:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/45816388.shtml)
+- 2026-06-30 00:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/68792121230.shtml)
+- 2026-06-30 00:21 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/6160846801.shtml)
+- 2026-06-30 00:13 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/75507635914.shtml)
+- 2026-06-30 00:41 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/236338.shtml)
+- 2026-06-30 00:35 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/465291.shtml)
+- 2026-06-30 00:23 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/6699151800.shtml)
+- 2026-06-30 00:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/658848.shtml)
+- 2026-06-30 00:35 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/58197677268.shtml)
+- 2026-06-30 00:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/585524.shtml)

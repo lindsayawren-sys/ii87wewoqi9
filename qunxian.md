@@ -1,51 +1,60 @@
-# 检察机关依法对海南省委原常委倪强涉嫌受贿案提起公诉
+# 绿意“缝合”伤疤，若尔盖的“人、草、畜”新故事
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网6月15日电 据最高检微信公众号消息，海南省委原常委、秘书长倪强涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。最高人民检察院依法以涉嫌受贿罪对倪强作出逮捕决定，并指定由广西壮族自治区柳州市人民检察院审查起诉。近日，柳州市人民检察院已向柳州市中级人民法院提起公诉。 检察机关在审查起诉阶段，依法告知了被告人倪强享有的诉讼权利，并讯问了被告人，听取了辩护人的意见
+黑颈鹤、藏狐、土拨鼠在草原上悠然栖息，牧民赶着牦牛从远处缓缓走过，他们在这片湿地里共同奏响人与自然和谐共生的乐章。 4月份的若尔盖草原，积雪融化，湿地如镜。黑颈鹤悠然觅食，藏狐偶尔闪现，一派生机。 四川是长江上游重要水源涵养地，也是全球生物多样性保护重点地区。位于川西北的若尔盖湿地，被誉为中国“最美高寒湿地”，其生态状况关系长江流域水安全。然而，在气候变化和人为活动影响下，这里
 
 ## 正文
 
-中新网6月15日电 据最高检微信公众号消息，海南省委原常委、秘书长倪强涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。
+黑颈鹤、藏狐、土拨鼠在草原上悠然栖息，牧民赶着牦牛从远处缓缓走过，他们在这片湿地里共同奏响人与自然和谐共生的乐章。
 
-最高人民检察院依法以涉嫌受贿罪对倪强作出逮捕决定，并指定由广西壮族自治区柳州市人民检察院审查起诉。
+4月份的若尔盖草原，积雪融化，湿地如镜。
 
-近日，柳州市人民检察院已向柳州市中级人民法院提起公诉。
+黑颈鹤悠然觅食，藏狐偶尔闪现，一派生机。
 
-检察机关在审查起诉阶段，依法告知了被告人倪强享有的诉讼权利，并讯问了被告人，听取了辩护人的意见。
+四川是长江上游重要水源涵养地，也是全球生物多样性保护重点地区。
 
-检察机关起诉指控：被告人倪强利用担任海南省洋浦经济开发区工委副书记、管委会主任兼海南省洋浦开发建设控股有限公司董事长，海口市委副书记、副市长，海口市委副书记、市长，海南省政府党组成员、秘书长，海南省政府党组成员、副省长，海南省委常委、秘书长等职务上的便利，为他人谋取利益，非法收受他人财物，数额特别巨大，依法应当以受贿罪追究其刑事责任。
+位于川西北的若尔盖湿地，被誉为中国“最美高寒湿地”，其生态状况关系长江流域水安全。
+
+然而，在气候变化和人为活动影响下，这里一度出现草原沙化、湿地萎缩等问题。
+
+中央第二轮环保督察指出，保护区内部分区域存在牲畜超载问题。
+
+随后，当地迅速推进综合治理，实施“山水林田湖草沙冰”一体化修复，严格草畜平衡制度。
 
 ## 相关推荐
 
-- 2026-06-30 00:27 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 00:30 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 00:32 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 00:14 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 00:32 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 00:14 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 00:26 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 00:30 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 00:24 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 00:25 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 00:31 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 00:21 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 00:29 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 00:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 00:13 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 00:18 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 00:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-30 00:14 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 00:24 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 00:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 00:36 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 00:36 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 00:19 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 00:40 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 00:17 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:09 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/5760217.shtml)
-- 2026-06-30 00:28 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/95910824.shtml)
-- 2026-06-30 00:24 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/586765925873.shtml)
-- 2026-06-30 00:06 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/2189124365.shtml)
-- 2026-06-30 00:11 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/24356.shtml)
-- 2026-06-30 00:33 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/596717657477.shtml)
-- 2026-06-30 00:34 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/8649404283.shtml)
-- 2026-06-30 00:13 - [恋与深空 日服](http://www.share.minike.top/Article/details/6780391.shtml)
-- 2026-06-30 00:18 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/030695410957.shtml)
-- 2026-06-30 00:22 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/748725748.shtml)
-- 2026-06-30 00:10 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/39226511862.shtml)
-- 2026-06-30 00:24 - [速度与激情9](https://www.share.minike.top/Article/details/95530.shtml)
-- 2026-06-30 00:22 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/71904.shtml)
-- 2026-06-30 00:21 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/67500.shtml)
-- 2026-06-30 00:28 - [周生如故](http://www.share.minike.top/Article/details/9503780.shtml)
+- 2026-06-30 00:23 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/65659321.shtml)
+- 2026-06-30 00:20 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/5113851.shtml)
+- 2026-06-30 00:25 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/41727306.shtml)
+- 2026-06-30 00:38 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/5628387008.shtml)
+- 2026-06-30 00:24 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/1264633856.shtml)
+- 2026-06-30 00:27 - [绘画区你赢了](http://www.blog.minike.top/Article/details/74492350.shtml)
+- 2026-06-30 00:31 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/4532310534.shtml)
+- 2026-06-30 00:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/524362964.shtml)
+- 2026-06-30 00:36 - [美股](https://www.blog.minike.top/Article/details/6324485.shtml)
+- 2026-06-30 00:28 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/6716562997.shtml)
+- 2026-06-30 00:15 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/037355.shtml)
+- 2026-06-30 00:28 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/68839073.shtml)
+- 2026-06-30 00:15 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/10150790260.shtml)
+- 2026-06-30 00:20 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/7669003680.shtml)
+- 2026-06-30 00:20 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/459952.shtml)

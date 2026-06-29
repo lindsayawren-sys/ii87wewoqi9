@@ -1,47 +1,59 @@
-# 岳文杰获批出任山西金租董事、副董事长、总经理
+# 王凤英获165万股股票！打工长城30年，不及小鹏2个月
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-6月15日金融一线消息，国家金融监督管理总局山西监管局发布关于岳文杰山西金融租赁有限公司董事、副董事长、总经理任职资格的批复，核准岳文杰山西金融租赁有限公司董事、副董事长、总经理的任职资格。 责任编辑：王馨茹
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：优财一号 那个车圈最厉害的女人，在长城汽车憋屈多年后，终于扬眉吐气了。 小鹏汽车最新披露的监管及年报信息显示，公司总裁王凤英已正式进入股东名册，获得165万股激励。 2023年1月，王凤英辞任长城汽车总经理约半年后，出任小鹏汽车总裁。诚意满满的何小鹏，在王凤英入职小鹏汽车两个月就给她送出了这笔165万
 
 ## 正文
 
-6月15日金融一线消息，国家金融监督管理总局山西监管局发布关于岳文杰山西金融租赁有限公司董事、副董事长、总经理任职资格的批复，核准岳文杰山西金融租赁有限公司董事、副董事长、总经理的任职资格。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-责任编辑：王馨茹
+来源：优财一号 那个车圈最厉害的女人，在长城汽车憋屈多年后，终于扬眉吐气了。
+
+小鹏汽车最新披露的监管及年报信息显示，公司总裁王凤英已正式进入股东名册，获得165万股激励。
+
+2023年1月，王凤英辞任长城汽车总经理约半年后，出任小鹏汽车总裁。
+
+诚意满满的何小鹏，在王凤英入职小鹏汽车两个月就给她送出了这笔165万股的大礼包。
+
+这其中，包含105万股A类普通股和120万股限制性股票，合计165万股，占小鹏总股本约0.1%。
+
+按照小鹏汽车截至今天的港股收盘价61.30港元/股计算，王凤英获得的这165万股股权，价值已经过亿，折算成人民币价值高达8787万。
+
+1970年出生的王凤英，在1991年刚21岁时就以实习生的身份加入长城汽车，此后职场一路开挂，一手建立了长城汽车的销售体系，2001年6月开始担任长城汽车执行董事。
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 00:26 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 00:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 00:32 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-30 00:23 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 00:06 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 00:10 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 00:19 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 00:26 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 00:11 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 00:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 00:12 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 00:31 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 00:40 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 00:38 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 00:30 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 00:40 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 00:16 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 00:13 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 00:33 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 00:27 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 00:19 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 00:14 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 00:40 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 00:25 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 00:12 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:15 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/5105773.shtml)
-- 2026-06-30 00:31 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/1605085.shtml)
-- 2026-06-30 00:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/404210530.shtml)
-- 2026-06-30 00:24 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/881907314328.shtml)
-- 2026-06-30 00:10 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/8358665.shtml)
-- 2026-06-30 00:27 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/25188.shtml)
-- 2026-06-30 00:30 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/006751.shtml)
-- 2026-06-30 00:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/218935.shtml)
-- 2026-06-30 00:16 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/80347043964.shtml)
-- 2026-06-30 00:27 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/203197.shtml)
-- 2026-06-30 00:23 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/03963717307.shtml)
-- 2026-06-30 00:26 - [东方风云榜](http://www.share.minike.top/Article/details/06020889.shtml)
-- 2026-06-30 00:33 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/94257082660.shtml)
-- 2026-06-30 00:31 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/261921.shtml)
-- 2026-06-30 00:07 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/4123275783.shtml)
+- 2026-06-30 00:28 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/7019689.shtml)
+- 2026-06-30 00:19 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/8621146.shtml)
+- 2026-06-30 00:31 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/476739879.shtml)
+- 2026-06-30 00:24 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/1357167.shtml)
+- 2026-06-30 00:39 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/13221757615.shtml)
+- 2026-06-30 00:35 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/687687.shtml)
+- 2026-06-30 00:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/741387632052.shtml)
+- 2026-06-30 00:35 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/8256090.shtml)
+- 2026-06-30 00:30 - [逃狱兄弟](https://www.blog.minike.top/Article/details/792079177712.shtml)
+- 2026-06-30 00:34 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/827930994.shtml)
+- 2026-06-30 00:31 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/60198.shtml)
+- 2026-06-30 00:20 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/2915507860.shtml)
+- 2026-06-30 00:25 - [炽夏](http://www.blog.minike.top/Article/details/7746880401.shtml)
+- 2026-06-30 00:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/55505098350.shtml)
+- 2026-06-30 00:23 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/582805.shtml)

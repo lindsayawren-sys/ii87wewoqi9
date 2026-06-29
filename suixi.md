@@ -1,55 +1,56 @@
-# 伊朗议员对伊美之间拟定的谅解备忘录内容提出批评
+# 一个昔日国家级贫困县的脱贫经验为何赢得多国官员点赞？
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-伊朗议会国家安全委员会强硬派议员马哈茂德·纳巴维安对伊美之间拟定的谅解备忘录内容提出批评。 他表示，解除制裁、美军撤离以及取消封锁等事宜，均被推迟至最终协议阶段再敲定。他补充称，根据这份拟议文件，伊朗铀浓缩活动将维持现有水平，而在他看来这等同于“零浓缩”。 纳巴维安还表示，该文件要求伊朗为重新开放霍尔木兹海峡创造条件，允许所有商船无障碍通行。他同时抨击协议中的另一项条款，称美国
+中新社石家庄5月9日电 (记者 郭超凯)“此次我们亲眼看到，今日的行唐在推动高质量发展过程中，既展现现代化建设成果，也保留和融入当地文化特色。”老挝外交部党委委员、监察司司长西苏潘·乔班达翁8日在参观完河北省石家庄市行唐县后，由衷为这里的脱贫经验点赞。“人民至上——政党的使命和担当”中外政党专题对话8日在行唐县举行，来自20多个国家的政党、议会、政府代表等约180人与会。与会人
 
 ## 正文
 
-伊朗议会国家安全委员会强硬派议员马哈茂德·纳巴维安对伊美之间拟定的谅解备忘录内容提出批评。
+中新社石家庄5月9日电 (记者 郭超凯)“此次我们亲眼看到，今日的行唐在推动高质量发展过程中，既展现现代化建设成果，也保留和融入当地文化特色。
 
-他表示，解除制裁、美军撤离以及取消封锁等事宜，均被推迟至最终协议阶段再敲定。
+”老挝外交部党委委员、监察司司长西苏潘·乔班达翁8日在参观完河北省石家庄市行唐县后，由衷为这里的脱贫经验点赞。
 
-他补充称，根据这份拟议文件，伊朗铀浓缩活动将维持现有水平，而在他看来这等同于“零浓缩”。
+“人民至上——政党的使命和担当”中外政党专题对话8日在行唐县举行，来自20多个国家的政党、议会、政府代表等约180人与会。
 
-纳巴维安还表示，该文件要求伊朗为重新开放霍尔木兹海峡创造条件，允许所有商船无障碍通行。
+与会人士在会前参观多家行唐企业，实地了解当地脱贫经验。
 
-他同时抨击协议中的另一项条款，称美国四十七年以来一直干涉伊朗内政，而伊朗始终坚持互不干涉内政的原则。
+一个曾经的国家级贫困县，为何能赢得多国官员点赞？
 
-责任编辑：李桐
+答案藏在行唐这些年的蜕变之中。
+
+行唐县素有“五山二坡三分田”之称，2011年贫困发生率达24.5%。
+
+行唐县于2019年正式脱贫摘帽，2020年实现贫困村和贫困人口“双清零”目标。
 
 ## 相关推荐
 
-- 2026-06-30 00:06 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 00:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 00:08 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 00:30 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 00:17 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 00:28 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 00:15 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 00:26 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 00:30 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 00:28 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 00:17 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 00:23 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 00:15 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 00:26 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 00:24 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 00:20 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 00:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 00:13 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 00:16 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 00:33 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 00:19 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 00:26 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 00:28 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:09 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/37283086184.shtml)
-- 2026-06-30 00:13 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/54887645019.shtml)
-- 2026-06-30 00:13 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/50509908.shtml)
-- 2026-06-30 00:23 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/244107793391.shtml)
-- 2026-06-30 00:13 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/844083686.shtml)
-- 2026-06-30 00:16 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/15044495885.shtml)
-- 2026-06-30 00:26 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/0602607727.shtml)
-- 2026-06-30 00:13 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/37778558.shtml)
-- 2026-06-30 00:26 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/36100252476.shtml)
-- 2026-06-30 00:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/640236.shtml)
-- 2026-06-30 00:34 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/91054.shtml)
-- 2026-06-30 00:16 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/631381360843.shtml)
-- 2026-06-30 00:17 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/454403.shtml)
-- 2026-06-30 00:26 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/504760660.shtml)
-- 2026-06-30 00:28 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/536623679095.shtml)
+- 2026-06-30 00:20 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/158515.shtml)
+- 2026-06-30 00:15 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/843154866876.shtml)
+- 2026-06-30 00:29 - [TOP Prada](https://www.blog.minike.top/Article/details/4788975.shtml)
+- 2026-06-30 00:27 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/620900.shtml)
+- 2026-06-30 00:25 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/519520699893.shtml)
+- 2026-06-30 00:29 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/48601991977.shtml)
+- 2026-06-30 00:15 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/3971310.shtml)
+- 2026-06-30 00:33 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/306525088.shtml)
+- 2026-06-30 00:19 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/386994141.shtml)
+- 2026-06-30 00:40 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/2837163655.shtml)
+- 2026-06-30 00:12 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/62712233656.shtml)
+- 2026-06-30 00:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/66449490.shtml)
+- 2026-06-30 00:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/252386380309.shtml)
+- 2026-06-30 00:34 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/86994369539.shtml)
+- 2026-06-30 00:26 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/48850167576.shtml)

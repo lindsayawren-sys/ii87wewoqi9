@@ -1,56 +1,55 @@
-# 台湾博主在沈阳吃饭被少收56元，老板：你别管，这就是两岸一家亲！
+# 驻印尼使馆：全面实行办理领事证件“只跑一次”和“一次性告知”
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月13日 12:33 来源：中国新闻网 6月12日，第二十四届海峡青年论坛在福建厦门开幕。活动现场，台湾美食博主曲献平和与会嘉宾分享了在旅途中，他感受到大陆同胞对台湾同胞的热情。他印象最深的是一次在沈阳吃饭，结账时发现少收了56元(人民币)，老板的“减法”象征着全国56个民族和团结，让自己恍然大悟，直呼“格局太大了”，既开心又感动。“我觉得非常动人，也是
+中新网5月8日电 据中国驻印尼大使馆网站消息，驻印尼使馆现已全面实行中国公民申请护照、旅行证、公证、领事证明“只跑一次”和“一次性告知”。已通过线上审核的申请，如果到馆递交资料时材料不齐，使馆将“一次性告知”申请人需要补充的材料，实行先受理申请、后补交材料的做法，接受申请人以邮寄、电邮、取件时补交、他人代交等方式补交所缺材料(必须由本人到现场签字的材料、须查验的证件原件除外)，
 
 ## 正文
 
-发布时间：2026年06月13日 12:33 来源：中国新闻网 6月12日，第二十四届海峡青年论坛在福建厦门开幕。
+中新网5月8日电 据中国驻印尼大使馆网站消息，驻印尼使馆现已全面实行中国公民申请护照、旅行证、公证、领事证明“只跑一次”和“一次性告知”。
 
-活动现场，台湾美食博主曲献平和与会嘉宾分享了在旅途中，他感受到大陆同胞对台湾同胞的热情。
+已通过线上审核的申请，如果到馆递交资料时材料不齐，使馆将“一次性告知”申请人需要补充的材料，实行先受理申请、后补交材料的做法，接受申请人以邮寄、电邮、取件时补交、他人代交等方式补交所缺材料(必须由本人到现场签字的材料、须查验的证件原件除外)，取件时可委托他人代取、邮寄取件，做到让申请人“只跑一次”。
 
-他印象最深的是一次在沈阳吃饭，结账时发现少收了56元(人民币)，老板的“减法”象征着全国56个民族和团结，让自己恍然大悟，直呼“格局太大了”，既开心又感动。
+为避免材料不齐或不符合受理条件，请提前浏览使馆网站或“中国驻印尼大使馆”微信公众号中的办证须知。
 
-“我觉得非常动人，也是我拍视频的动力。
+如有任何疑问，请提前致电驻印尼使馆领侨处或发送电邮咨询，使馆将给予积极协助。
 
-”曲献平说。
-
-(记者 郎佳慧 制作 乐小敏） 责任编辑：【吉翔】
+领事证件咨询电话：021-5761036(适用于在印尼境内拨号)，0062-21-5761036(适用于在印尼境外拨号) 证件咨询电话服务时间：上午9:30-11:30，下午14:30-16:30，周末及节假日除外 领事证件咨询邮箱：jakarta@csm.mfa.gov.cn
 
 ## 相关推荐
 
-- 2026-06-30 00:13 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 00:18 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 00:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 00:09 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 00:34 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 00:11 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 00:13 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 00:28 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 00:15 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 00:25 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 00:35 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 00:20 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 00:20 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 00:07 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 00:36 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 00:12 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 00:31 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 00:33 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 00:30 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 00:21 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 00:24 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 00:26 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 00:36 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 00:35 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 00:15 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 00:34 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 00:32 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 00:16 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 00:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:28 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/68167873.shtml)
-- 2026-06-30 00:18 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/959878907.shtml)
-- 2026-06-30 00:12 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/06914212.shtml)
-- 2026-06-30 00:31 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/891387.shtml)
-- 2026-06-30 00:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/0943767.shtml)
-- 2026-06-30 00:08 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/1615327.shtml)
-- 2026-06-30 00:22 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/8145492.shtml)
-- 2026-06-30 00:35 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/2716373627.shtml)
-- 2026-06-30 00:08 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/5648713.shtml)
-- 2026-06-30 00:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/4136707.shtml)
-- 2026-06-30 00:20 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/7522336.shtml)
-- 2026-06-30 00:06 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/1140131.shtml)
-- 2026-06-30 00:18 - [一生一世](http://www.blog.minike.top/Article/details/53158833.shtml)
-- 2026-06-30 00:16 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/956491.shtml)
-- 2026-06-30 00:14 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/1355796145.shtml)
+- 2026-06-30 00:20 - [一生一世](http://www.share.minike.top/Article/details/51251.shtml)
+- 2026-06-30 00:31 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/02798.shtml)
+- 2026-06-30 00:29 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/1728945824.shtml)
+- 2026-06-30 00:13 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/57479433.shtml)
+- 2026-06-30 00:30 - [千与千寻](http://www.share.kurohicncr.top/Article/details/684634970424.shtml)
+- 2026-06-30 00:13 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/2531284.shtml)
+- 2026-06-30 00:26 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/8499420.shtml)
+- 2026-06-30 00:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/86218540046.shtml)
+- 2026-06-30 00:38 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/68605929.shtml)
+- 2026-06-30 00:19 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/722333838647.shtml)
+- 2026-06-30 00:29 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/123125658998.shtml)
+- 2026-06-30 00:38 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/72443162960.shtml)
+- 2026-06-30 00:16 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/4172065882.shtml)
+- 2026-06-30 00:16 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/95609247.shtml)
+- 2026-06-30 00:27 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/3856838.shtml)

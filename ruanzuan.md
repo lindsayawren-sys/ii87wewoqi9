@@ -1,60 +1,61 @@
-# 255家机构，“盯”上杰瑞股份
+# 盘前：纳指期货涨0.6% 市场等待月度就业报告
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-截至6月13日发稿，本周以来（6月8日—13日），杰瑞股份获255家机构调研，接受机构调研家数最多。 本周，硬件设备、基础化工、电子、电力设备等方向关注度较高。其中，硬件设备行业机构调研次数位居第一，电力设备行业调研机构家数位居第一。 杰瑞股份接受机构调研家数最多 本周，239家上市公司披露机构投资者调研记录。其中，杰瑞股份获255家机构调研，接受机构调研家数最多。 本周调研机
+周五科技股上涨带动美国股指期货走高，投资者正在等待月度就业报告。油价震荡，与此同时，特朗普政府推动与伊朗达成和平协议。 标普500指数和纳斯达克100指数有望测试新高，相关期货分别上涨0.5%和0.6%。在其他地区股市承压之际，美股表现突出；中东冲突有可能破坏确保战争永久结束的努力。 欧洲和亚洲股市基准指数下跌。欧洲股市走低。泛欧STOXX 600指数下跌0.9%，法兰克福和巴
 
 ## 正文
 
-截至6月13日发稿，本周以来（6月8日—13日），杰瑞股份获255家机构调研，接受机构调研家数最多。
+周五科技股上涨带动美国股指期货走高，投资者正在等待月度就业报告。
 
-本周，硬件设备、基础化工、电子、电力设备等方向关注度较高。
+油价震荡，与此同时，特朗普政府推动与伊朗达成和平协议。
 
-其中，硬件设备行业机构调研次数位居第一，电力设备行业调研机构家数位居第一。
+标普500指数和纳斯达克100指数有望测试新高，相关期货分别上涨0.5%和0.6%。
 
-杰瑞股份接受机构调研家数最多 本周，239家上市公司披露机构投资者调研记录。
+在其他地区股市承压之际，美股表现突出；中东冲突有可能破坏确保战争永久结束的努力。
 
-其中，杰瑞股份获255家机构调研，接受机构调研家数最多。
+欧洲和亚洲股市基准指数下跌。
 
-本周调研机构家数前十A股上市公司情况 从调研记录来看，杰瑞股份北美燃气轮机发电业务情况及公司产能布局等情况备受关注。
+欧洲股市走低。
 
-杰瑞股份在回应上述问题时表示，目前，全球燃气轮机发电行业正处于高景气阶段，行业面临上游关键部件供应持续紧张、燃气轮机发电机组交付周期长，而下游受数据中心建设快速增长驱动，电力需求高速增长，电力缺口难以短时间内补充。
+泛欧STOXX 600指数下跌0.9%，法兰克福和巴黎主要股指跌幅也大致相当。
 
-公司燃气轮机发电机组的销售定价遵循市场化原则，综合考虑北美市场需求动态、成本、技术附加值及行业竞争格局等多重因素。
+稍早，亚洲股市从纪录高位小幅回落。
 
 ## 相关推荐
 
-- 2026-06-30 00:16 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 00:20 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-30 00:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 00:20 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 00:34 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 00:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 00:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 00:08 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 00:33 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 00:28 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 00:21 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 00:08 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 00:08 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 00:15 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 00:39 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 00:18 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 00:32 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 00:17 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 00:28 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 00:17 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 00:32 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 00:15 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 00:36 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 00:25 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 00:27 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 00:25 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 00:41 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 00:27 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 00:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:17 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/240658.shtml)
-- 2026-06-30 00:08 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/424770713.shtml)
-- 2026-06-30 00:27 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/8213248.shtml)
-- 2026-06-30 00:32 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/136928592.shtml)
-- 2026-06-30 00:20 - [勇敢的心第二部](http://www.share.minike.top/Article/details/7586443436.shtml)
-- 2026-06-30 00:15 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/5616367.shtml)
-- 2026-06-30 00:14 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/64883.shtml)
-- 2026-06-30 00:07 - [啊啊啊](https://www.blog.minike.top/Article/details/66281454.shtml)
-- 2026-06-30 00:29 - [恋与深空 日服](https://www.blog.minike.top/Article/details/774996743.shtml)
-- 2026-06-30 00:06 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/052165707672.shtml)
-- 2026-06-30 00:06 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/1790293645.shtml)
-- 2026-06-30 00:09 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/3672279150.shtml)
-- 2026-06-30 00:26 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/51631888237.shtml)
-- 2026-06-30 00:31 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/2763195.shtml)
-- 2026-06-30 00:21 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/9800371.shtml)
+- 2026-06-30 00:28 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/321388533599.shtml)
+- 2026-06-30 00:15 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/5855738765.shtml)
+- 2026-06-30 00:30 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/610276877.shtml)
+- 2026-06-30 00:18 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/01280468.shtml)
+- 2026-06-30 00:17 - [新官上任三把火](https://www.share.minike.top/Article/details/36338917540.shtml)
+- 2026-06-30 00:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/289630515900.shtml)
+- 2026-06-30 00:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/13895766331.shtml)
+- 2026-06-30 00:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/751072.shtml)
+- 2026-06-30 00:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/3794718.shtml)
+- 2026-06-30 00:39 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/47351231.shtml)
+- 2026-06-30 00:25 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/60757606946.shtml)
+- 2026-06-30 00:37 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/276576317.shtml)
+- 2026-06-30 00:15 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/17020888.shtml)
+- 2026-06-30 00:36 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/490706.shtml)
+- 2026-06-30 00:17 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/29646169836.shtml)

@@ -1,58 +1,57 @@
-# 冬奥冠军韩晓鹏：每一次跌倒都是为了更好地起跳
+# 美科技巨头集体投身AI军备竞赛
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网北京6月13日电 “中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动近日走进北京市西城区三里河第三小学。自由式滑雪空中技巧冬奥冠军韩晓鹏带着他的追梦故事来到校园，用自身经历诠释“每一次跌倒都是为了更好地起跳”，鼓励同学们去追逐属于自己的“飞翔时刻”。 “我的家乡在江苏徐州沛县，冬天留不住积雪，从没想过有一天会与滑雪结缘。”中华体育精神大讲堂上，韩晓鹏坦言，
+“能否确认，在使用人工智能(AI)进行致命打击决策时，是否始终会有人类参与决策过程？” 美国国会听证会上，参议员杰基·罗森把这个问题抛给国防部长赫格塞思。他不置可否。 答案并不难猜。 美国国防部日前宣布与7家AI公司达成协议。五角大楼直言，要“将美军打造为一支‘人工智能主导’的作战力量”。 主导，而非辅助。在国家信息中心研究员朱幼平看来，这背后是美国军事决策逻辑的革命性转变。
 
 ## 正文
 
-中新网北京6月13日电 “中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动近日走进北京市西城区三里河第三小学。
+“能否确认，在使用人工智能(AI)进行致命打击决策时，是否始终会有人类参与决策过程？
 
-自由式滑雪空中技巧冬奥冠军韩晓鹏带着他的追梦故事来到校园，用自身经历诠释“每一次跌倒都是为了更好地起跳”，鼓励同学们去追逐属于自己的“飞翔时刻”。
+” 美国国会听证会上，参议员杰基·罗森把这个问题抛给国防部长赫格塞思。
 
-“我的家乡在江苏徐州沛县，冬天留不住积雪，从没想过有一天会与滑雪结缘。
+他不置可否。
 
-”中华体育精神大讲堂上，韩晓鹏坦言，刚开始练滑雪时，面对的是从未接触过的项目。
+答案并不难猜。
 
-“最难的是空中翻转，要在几秒内完成助滑、起跳、翻转、落地等一系列动作，稍有不慎就会重重摔在雪地上。
+美国国防部日前宣布与7家AI公司达成协议。
 
-在日复一日的训练中，慢慢摸到了滑雪的门道。
+五角大楼直言，要“将美军打造为一支‘人工智能主导’的作战力量”。
 
-”韩晓鹏说。
+主导，而非辅助。
 
-韩晓鹏讲述了2006年都灵冬奥会夺冠的高光时刻。
+在国家信息中心研究员朱幼平看来，这背后是美国军事决策逻辑的革命性转变。
 
 ## 相关推荐
 
-- 2026-06-30 00:34 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 00:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-30 00:06 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 00:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 00:34 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 00:24 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 00:33 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 00:08 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 00:12 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 00:24 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 00:10 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 00:34 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 00:30 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 00:25 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 00:32 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 00:20 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 00:29 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 00:31 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 00:35 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 00:22 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 00:22 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 00:16 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 00:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:20 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/9618813685.shtml)
-- 2026-06-30 00:23 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/71444140.shtml)
-- 2026-06-30 00:26 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/46067767.shtml)
-- 2026-06-30 00:34 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/925641414.shtml)
-- 2026-06-30 00:10 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/333312397.shtml)
-- 2026-06-30 00:35 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/21880.shtml)
-- 2026-06-30 00:30 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/26762476177.shtml)
-- 2026-06-30 00:18 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/25715.shtml)
-- 2026-06-30 00:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/305959655.shtml)
-- 2026-06-30 00:19 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/81289.shtml)
-- 2026-06-30 00:35 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/59657.shtml)
-- 2026-06-30 00:26 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/68209719.shtml)
-- 2026-06-30 00:20 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/31336.shtml)
-- 2026-06-30 00:29 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/405075598.shtml)
-- 2026-06-30 00:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/2088848896.shtml)
+- 2026-06-30 00:12 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/7595325363.shtml)
+- 2026-06-30 00:31 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/13624316.shtml)
+- 2026-06-30 00:27 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/7554421775.shtml)
+- 2026-06-30 00:36 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/94919.shtml)
+- 2026-06-30 00:15 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/85326438.shtml)
+- 2026-06-30 00:31 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/113841812.shtml)
+- 2026-06-30 00:20 - [周生如故](http://www.share.minike.top/Article/details/349112991597.shtml)
+- 2026-06-30 00:29 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/30377.shtml)
+- 2026-06-30 00:32 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/73773585.shtml)
+- 2026-06-30 00:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/74637.shtml)
+- 2026-06-30 00:26 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/679237262335.shtml)
+- 2026-06-30 00:24 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/204946.shtml)
+- 2026-06-30 00:21 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/92606547.shtml)
+- 2026-06-30 00:32 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/1828004763.shtml)
+- 2026-06-30 00:23 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/191364.shtml)

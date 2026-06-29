@@ -1,61 +1,61 @@
-# 光大期货：6月15日农产品日报
+# 黄金周线有望录得上涨，或将突破箱体压力？
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-油脂油料：多重压力下 油粕弱势运行 （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 本周油脂油料弱势运行，价格纷纷创阶段性新低。供需报告利空、终端需求低迷、美联储加息预期升温、原油破位下跌等均施压价格。 宏观仍是下周最关注因素。19日美联储沃什首秀，市场关注，预计6月利率维持不变，市场关注点在点阵图上。中东局面，市场本乐观预期“14日美国和伊朗签署协
+文章来源：汇通财经 据报道，受通胀压力及美联储加息预期缓解的推动，国际金价周五继续走高，本周累计涨幅有望转为正值。尽管中东地区再次出现有限交火事件，但投资者对美国与伊朗达成和平协议的前景仍保持较高乐观度，这为黄金市场提供了重要支撑。 当前，现货黄金价格徘徊在4720美元/盎司附近，较本周初低点显著回升，本周累计涨幅已超过2%。这一走势主要得益于美元指数走软以及能源价格回落，后者
 
 ## 正文
 
-油脂油料：多重压力下 油粕弱势运行 （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 本周油脂油料弱势运行，价格纷纷创阶段性新低。
+文章来源：汇通财经 据报道，受通胀压力及美联储加息预期缓解的推动，国际金价周五继续走高，本周累计涨幅有望转为正值。
 
-供需报告利空、终端需求低迷、美联储加息预期升温、原油破位下跌等均施压价格。
+尽管中东地区再次出现有限交火事件，但投资者对美国与伊朗达成和平协议的前景仍保持较高乐观度，这为黄金市场提供了重要支撑。
 
-宏观仍是下周最关注因素。
+当前，现货黄金价格徘徊在4720美元/盎司附近，较本周初低点显著回升，本周累计涨幅已超过2%。
 
-19日美联储沃什首秀，市场关注，预计6月利率维持不变，市场关注点在点阵图上。
+这一走势主要得益于美元指数走软以及能源价格回落，后者缓解了全球通胀担忧，从而削弱了美联储进一步紧缩货币政策的预期。
 
-中东局面，市场本乐观预期“14日美国和伊朗签署协议并恢复霍尔木兹海峡通运”，但14日伊朗再次表示霍尔木兹海峡关闭，和平预期再次受阻，下周市场将集中交易。
+Kyle Rodda高级金融市场分析师，在近期评论中指出：“特朗普政府今早的表态显示停火仍在维持，市场对美伊之间能达成协议仍持乐观态度，这目前对金价构成了支撑。
 
-基本面上，USDA 6月报告中性偏空，报告上调阿根廷大豆产量200万吨，全球大豆和油籽库存攀升，宽松基调施压市场。
+现在只能等待进一步消息，看看双方是否接近达成协议。
 
-此次报告亮点不多对市场有限。
+在接下来到本周收盘前的时间里，金价可能会出现一些震荡走势。
 
-市场关注7月供需报告调整，重点在新作面积和单产预估上。
+”这一观点与当前市场情绪高度吻合。
 
 ## 相关推荐
 
-- 2026-06-30 00:11 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 00:23 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 00:33 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 00:32 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-30 00:25 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 00:31 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 00:12 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 00:31 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 00:28 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 00:22 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 00:26 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 00:13 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 00:32 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 00:21 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 00:15 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 00:27 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 00:25 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 00:23 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 00:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 00:23 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 00:39 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 00:32 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 00:22 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 00:33 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 00:33 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 00:21 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 00:39 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 00:39 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 00:37 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 00:13 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:23 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/159868062.shtml)
-- 2026-06-30 00:35 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/5633614041.shtml)
-- 2026-06-30 00:31 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/862725573.shtml)
-- 2026-06-30 00:19 - [一见倾心](https://www.share.kurohicncr.top/Article/details/76495110523.shtml)
-- 2026-06-30 00:34 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/36365886.shtml)
-- 2026-06-30 00:32 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/5400883.shtml)
-- 2026-06-30 00:09 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/45260806.shtml)
-- 2026-06-30 00:33 - [刘念回应](http://www.blog.minike.top/Article/details/30808477.shtml)
-- 2026-06-30 00:33 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/62071394.shtml)
-- 2026-06-30 00:33 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/1714714712.shtml)
-- 2026-06-30 00:24 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/68159.shtml)
-- 2026-06-30 00:25 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/9133763519.shtml)
-- 2026-06-30 00:08 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/42976522324.shtml)
-- 2026-06-30 00:25 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/490261880700.shtml)
-- 2026-06-30 00:20 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/49123.shtml)
+- 2026-06-30 00:24 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/0843603592.shtml)
+- 2026-06-30 00:37 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/9060215.shtml)
+- 2026-06-30 00:12 - [急先锋](http://www.blog.minike.top/Article/details/52910.shtml)
+- 2026-06-30 00:36 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/958954.shtml)
+- 2026-06-30 00:41 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/3513276095.shtml)
+- 2026-06-30 00:33 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/949685715866.shtml)
+- 2026-06-30 00:37 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/37093.shtml)
+- 2026-06-30 00:15 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/950764673.shtml)
+- 2026-06-30 00:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/661878518.shtml)
+- 2026-06-30 00:40 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/65780814794.shtml)
+- 2026-06-30 00:22 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/5776321.shtml)
+- 2026-06-30 00:35 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/379232.shtml)
+- 2026-06-30 00:17 - [请回答王牌2019](http://www.share.minike.top/Article/details/830528.shtml)
+- 2026-06-30 00:26 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/9551159.shtml)
+- 2026-06-30 00:12 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/291214896.shtml)

@@ -1,59 +1,57 @@
-# 青春华章 丝路逐光｜祁连山下育出国产“蘑菇芯”
+# 西北地区苜蓿生产技术交流会在新疆和田县举办
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-一颗蘑菇，能有多大能量？在河西学院甘肃省食用菌遗传育种重点实验室，梁倩倩教授用七年时间给出了答案：它足以打破一个产业面临的“卡脖子”困局。 近日，由中央网信办网络传播局指导，甘肃省委网信办、省教育厅、团甘肃省委联合主办的“青春华章·丝路逐光”网络主题活动采访团走进河西学院，追寻科技兴农的青年科研工作者足迹。 “这是甘肃首个自主选育的双孢菇品种，也是甘肃食用菌产业第一次有了自己的
+中新网新疆和田5月8日电 (胡嘉琛 阿卜力克木·依卜拉依木)西北地区苜蓿生产技术暨头茬收获与产销交流会7日在新疆和田县召开。百余名企业、科研机构和种植户代表参加会议，围绕苜蓿生产技术、机械化收割和产销对接等共话产业发展。 会议由新疆优质饲草产业技术体系主办。在主题报告环节，9位专家学者围绕盐碱地改良、苜蓿高效种植、病虫害绿色防控、全程机械化和金融支持等议题进行技术分享，并针对新
 
 ## 正文
 
-一颗蘑菇，能有多大能量？
+中新网新疆和田5月8日电 (胡嘉琛 阿卜力克木·依卜拉依木)西北地区苜蓿生产技术暨头茬收获与产销交流会7日在新疆和田县召开。
 
-在河西学院甘肃省食用菌遗传育种重点实验室，梁倩倩教授用七年时间给出了答案：它足以打破一个产业面临的“卡脖子”困局。
+百余名企业、科研机构和种植户代表参加会议，围绕苜蓿生产技术、机械化收割和产销对接等共话产业发展。
 
-近日，由中央网信办网络传播局指导，甘肃省委网信办、省教育厅、团甘肃省委联合主办的“青春华章·丝路逐光”网络主题活动采访团走进河西学院，追寻科技兴农的青年科研工作者足迹。
+会议由新疆优质饲草产业技术体系主办。
 
-“这是甘肃首个自主选育的双孢菇品种，也是甘肃食用菌产业第一次有了自己的‘种子芯片’”。
+在主题报告环节，9位专家学者围绕盐碱地改良、苜蓿高效种植、病虫害绿色防控、全程机械化和金融支持等议题进行技术分享，并针对新疆和田地区盐碱地提出适配方案。
 
-在实验室的培养皿前，梁倩倩拿起一颗浅棕色的双孢菇——“陇菇1号”。
+和田地区土地广阔、光热资源充足、降雨少、灌溉技术日趋成熟，具有发展苜蓿产业的自然条件和技术基础。
 
-2019年，国内双孢菇工厂化栽培的主流菌种80%依赖进口，甘肃本土选育品种长期空白。
+与会专家建议继续推广示范技术，强化上下游协作，推动标准化基地建设和市场对接，促进苜蓿产业向规模化、可持续方向发展，为畜牧业发展提供稳定保障。
 
-“要让甘肃人种上自己的蘑菇。
+新疆农业农村厅饲料饲草处副处长佟光来称，随着畜牧业规模化、标准化推进，市场对优质苜蓿需求持续增长。
 
-”梁倩倩将目光投向了祁连山。
+要加快提升产能、完善产销衔接，通过良种推广、节水灌溉、绿色防控和机械化装备，提高供给能力和产品质量。
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 00:25 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 00:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 00:12 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 00:12 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 00:34 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 00:27 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 00:24 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 00:31 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 00:28 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 00:25 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 00:29 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-30 00:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 00:28 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 00:24 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 00:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 00:30 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 00:39 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 00:17 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 00:37 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 00:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 00:13 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 00:31 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 00:17 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:26 - [张凌赫 客串](https://www.share.minike.top/Article/details/137482.shtml)
-- 2026-06-30 00:08 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/3575497836.shtml)
-- 2026-06-30 00:34 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/938028746.shtml)
-- 2026-06-30 00:24 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/735388.shtml)
-- 2026-06-30 00:12 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/6176194242.shtml)
-- 2026-06-30 00:12 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/720639792969.shtml)
-- 2026-06-30 00:32 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/14854049354.shtml)
-- 2026-06-30 00:34 - [女心理师](https://www.share.minike.top/Article/details/84848365517.shtml)
-- 2026-06-30 00:35 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/807330.shtml)
-- 2026-06-30 00:13 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/8379738.shtml)
-- 2026-06-30 00:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/5247544180.shtml)
-- 2026-06-30 00:28 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/73221292201.shtml)
-- 2026-06-30 00:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/378304.shtml)
-- 2026-06-30 00:33 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/00916905382.shtml)
-- 2026-06-30 00:14 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/41549229.shtml)
+- 2026-06-30 00:40 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/5331402730.shtml)
+- 2026-06-30 00:17 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/08290.shtml)
+- 2026-06-30 00:33 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/756581896527.shtml)
+- 2026-06-30 00:25 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/7963344553.shtml)
+- 2026-06-30 00:37 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/5216672.shtml)
+- 2026-06-30 00:36 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/27331.shtml)
+- 2026-06-30 00:36 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/8844176.shtml)
+- 2026-06-30 00:24 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/928304.shtml)
+- 2026-06-30 00:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/247948.shtml)
+- 2026-06-30 00:19 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/3707493916.shtml)
+- 2026-06-30 00:26 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/84071139727.shtml)
+- 2026-06-30 00:27 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/16097.shtml)
+- 2026-06-30 00:14 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/664867588.shtml)
+- 2026-06-30 00:37 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/7660375715.shtml)
+- 2026-06-30 00:35 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/346553496699.shtml)

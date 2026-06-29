@@ -1,56 +1,60 @@
-# （聚焦海峡论坛）2026海峡两岸科技社团高端对话活动在厦门举办
+# 中国黄金协会：一季度我国黄金产量同比下降 消费量保持增长
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网厦门6月14日电 (吴冠标)6月14日，2026海峡两岸科技社团高端对话暨海峡两岸数字经济融合发展交流活动在厦门举办。 该活动为2026海峡科技专家论坛的专题分论坛，以“数智创新，融合发展”为主题，聚焦AI大模型研发应用、数字经济转型升级、两岸产业协同联动、科技社团赋能发展等议题，旨在搭建两岸深度交流、产业对接、项目合作、资源互通的平台，探索两岸数字科技融合发展新路径、新
+据中国黄金协会最新统计数据显示：2026年一季度，国内原料产金81.065吨，同比减少6.178吨，同比下降7.08%；进口原料产金55.165吨，同比增加1.578吨，同比增长2.94%。国内原料和进口原料共计生产黄金136.230吨，同比减少4.600吨，同比下降3.27%。 2026年一季度，黄金行业矿山与冶炼厂集中开展安全检查，对各类生产设施进行隐患排查，部分企业依规停
 
 ## 正文
 
-中新网厦门6月14日电 (吴冠标)6月14日，2026海峡两岸科技社团高端对话暨海峡两岸数字经济融合发展交流活动在厦门举办。
+据中国黄金协会最新统计数据显示：2026年一季度，国内原料产金81.065吨，同比减少6.178吨，同比下降7.08%；进口原料产金55.165吨，同比增加1.578吨，同比增长2.94%。
 
-该活动为2026海峡科技专家论坛的专题分论坛，以“数智创新，融合发展”为主题，聚焦AI大模型研发应用、数字经济转型升级、两岸产业协同联动、科技社团赋能发展等议题，旨在搭建两岸深度交流、产业对接、项目合作、资源互通的平台，探索两岸数字科技融合发展新路径、新模式。
+国内原料和进口原料共计生产黄金136.230吨，同比减少4.600吨，同比下降3.27%。
 
-本次活动共促成五个合作项目落地，涵盖两岸科创平台共建、行业标准服务、前沿技术孵化等领域，畅通两岸技术、人才、项目、资源双向流通渠道，加速两岸优质科技成果产业化落地。
+2026年一季度，黄金行业矿山与冶炼厂集中开展安全检查，对各类生产设施进行隐患排查，部分企业依规停产检修。
 
-高端对话环节，两岸专家学者围绕两岸AI+产业协同创新、科技社团平台赋能价值、新形势下两岸融合发展新路径三大核心议题展开研讨，凝聚深化两岸科创合作的共识。
+系列管控举措在一定程度上影响了一季度国内黄金产量。
 
-多位嘉宾在活动中指出，两岸数字科技产业互补性强、合作空间广阔、发展潜力巨大；未来可重点聚焦行业大模型研发、绿色算力建设、智能制造升级、智慧医疗应用等优质赛道，持续深化全方位、多层次务实合作。
+同时，行业资源整合持续推进，紫金矿业公告拟收购赤峰黄金股权，进一步集中优质资源。
 
-该活动在中国信息协会支持指导下，由福建省科学技术协会主办，海峡两岸数字科技学会联合体、福建省科协闽台科技交流中心、厦门市信息协会承办。
+大型黄金集团境外产能释放强劲，一季度实现矿产金产量24.173吨，同比增长30.77%。
 
-(完)
+2026年一季度，我国黄金消费量303.292吨，同比增长4.41%。
+
+其中：黄金首饰84.620吨，同比下降37.10%；金条及金币202.062吨，同比增长46.40%；工业及其他用金16.610吨，同比下降7.43%。
 
 ## 相关推荐
 
-- 2026-06-30 00:21 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 00:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 00:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 00:33 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 00:25 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 00:21 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 00:17 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 00:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 00:12 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 00:20 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 00:11 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 00:28 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 00:28 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 00:30 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 00:21 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 00:37 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 00:30 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 00:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 00:25 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 00:41 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 00:19 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 00:29 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 00:26 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 00:38 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 00:17 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 00:36 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/97735986.shtml)
-- 2026-06-30 00:10 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/631504994.shtml)
-- 2026-06-30 00:34 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/3471915318.shtml)
-- 2026-06-30 00:32 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/74549717408.shtml)
-- 2026-06-30 00:20 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/143956.shtml)
-- 2026-06-30 00:12 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/38392899.shtml)
-- 2026-06-30 00:18 - [炽夏](http://www.share.kurohicncr.top/Article/details/56480.shtml)
-- 2026-06-30 00:30 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/91128395559.shtml)
-- 2026-06-30 00:26 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/360415170690.shtml)
-- 2026-06-30 00:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/911056431804.shtml)
-- 2026-06-30 00:13 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/244741.shtml)
-- 2026-06-30 00:24 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/836504900022.shtml)
-- 2026-06-30 00:33 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/3065399510.shtml)
-- 2026-06-30 00:10 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/808044569933.shtml)
-- 2026-06-30 00:08 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/278945492476.shtml)
+- 2026-06-30 00:32 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/49158337.shtml)
+- 2026-06-30 00:29 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/57700687.shtml)
+- 2026-06-30 00:21 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/191077337456.shtml)
+- 2026-06-30 00:18 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/59634.shtml)
+- 2026-06-30 00:40 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/9950468676.shtml)
+- 2026-06-30 00:24 - [勇敢的心第二部](http://www.share.minike.top/Article/details/2182781.shtml)
+- 2026-06-30 00:26 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/72431513.shtml)
+- 2026-06-30 00:34 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/363603304191.shtml)
+- 2026-06-30 00:38 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/037302.shtml)
+- 2026-06-30 00:40 - [流金岁月](https://www.share.kurohicncr.top/Article/details/17380749674.shtml)
+- 2026-06-30 00:26 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/91633.shtml)
+- 2026-06-30 00:19 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/09405494317.shtml)
+- 2026-06-30 00:38 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/02688732.shtml)
+- 2026-06-30 00:31 - [沙丘](http://www.share.minike.top/Article/details/39986.shtml)
+- 2026-06-30 00:27 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/59006568.shtml)

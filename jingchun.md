@@ -1,54 +1,46 @@
-# 美加墨世界杯开赛迄今，亚洲区球队仍无败绩
+# 中国外运将于6月29日派发末期股息每股0.1754港元
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新网6月14日电 北京时间14日，美加墨世界杯共进行了四场小组赛争夺。焦点之战中，巴西队与摩洛哥队以1比1收场。苏格兰队1比0战胜海地队，超越巴西、摩洛哥暂列小组第一。 澳大利亚队2比0击败土耳其队。卡塔尔队补时进球1比1逼平瑞士队，收获世界杯首个积分。开赛迄今，亚洲区球队保持不败。(完)
+中国外运（00598）发布公告，将于2026年6月29日派发截至2025年12月31日止年度末期股息每股0.1754港元。责任编辑：卢昱君
 
 ## 正文
 
-中新网6月14日电 北京时间14日，美加墨世界杯共进行了四场小组赛争夺。
+中国外运（00598）发布公告，将于2026年6月29日派发截至2025年12月31日止年度末期股息每股0.1754港元。
 
-焦点之战中，巴西队与摩洛哥队以1比1收场。
-
-苏格兰队1比0战胜海地队，超越巴西、摩洛哥暂列小组第一。
-
-澳大利亚队2比0击败土耳其队。
-
-卡塔尔队补时进球1比1逼平瑞士队，收获世界杯首个积分。
-
-开赛迄今，亚洲区球队保持不败。
-
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:33 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 00:30 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 00:17 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 00:22 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 00:13 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 00:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 00:12 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 00:07 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-30 00:17 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 00:31 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 00:18 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 00:27 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 00:12 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 00:37 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 00:34 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 00:18 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 00:25 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 00:33 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 00:24 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 00:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 00:26 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 00:25 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:34 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/107492417207.shtml)
-- 2026-06-30 00:32 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/655605508.shtml)
-- 2026-06-30 00:25 - [TOP Prada](http://www.blog.minike.top/Article/details/57452679.shtml)
-- 2026-06-30 00:14 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/125887852.shtml)
-- 2026-06-30 00:26 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/598035359183.shtml)
-- 2026-06-30 00:07 - [扬名立万](http://www.share.kurohicncr.top/Article/details/571606.shtml)
-- 2026-06-30 00:22 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/7608672737.shtml)
-- 2026-06-30 00:13 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/33017887135.shtml)
-- 2026-06-30 00:23 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/391058660.shtml)
-- 2026-06-30 00:06 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/5198327.shtml)
-- 2026-06-30 00:22 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/13599.shtml)
-- 2026-06-30 00:08 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/1367538200.shtml)
-- 2026-06-30 00:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/73052955257.shtml)
-- 2026-06-30 00:28 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/358901.shtml)
-- 2026-06-30 00:32 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/1381591.shtml)
+- 2026-06-30 00:39 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/43418469.shtml)
+- 2026-06-30 00:21 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/358579.shtml)
+- 2026-06-30 00:26 - [谁在推动“成都造”影视持续出圈](http://www.share.kurohicncr.top/Article/details/810146833248.shtml)
+- 2026-06-30 00:31 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/37938524849.shtml)
+- 2026-06-30 00:35 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/90474092.shtml)
+- 2026-06-30 00:33 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/29903569457.shtml)
+- 2026-06-30 00:16 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/22077751.shtml)
+- 2026-06-30 00:28 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/46973.shtml)
+- 2026-06-30 00:33 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/39279227.shtml)
+- 2026-06-30 00:40 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/23173.shtml)
+- 2026-06-30 00:27 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/679848.shtml)
+- 2026-06-30 00:18 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/04364126.shtml)
+- 2026-06-30 00:19 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/232854679983.shtml)
+- 2026-06-30 00:39 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/28512095.shtml)
+- 2026-06-30 00:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/36592003080.shtml)

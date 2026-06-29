@@ -1,60 +1,61 @@
-# 深江铁路全部斜拉桥主塔完成封顶
+# 19名中国田径顶尖选手将出战长三角国际田径钻石赛
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新社广东江门6月12日电 (郭军 吴明耀)随着最后一方混凝土浇筑完成，由厦深铁路广东有限公司建设、中铁二十五局承建的深江铁路重难点工程——广中江特大桥跨虎跳门水道斜拉桥双主塔12日完成封顶。至此，深江铁路全线5座斜拉桥全部完成主塔封顶，项目建设取得突破性进展。 深江铁路正线全长116公里，桥隧占比达98%。由中铁二十五局承建的深江铁路12标段，主要包括13.41公里正线、江门
+中新网绍兴5月9日电(张煜欢)9日，2026长三角国际田径钻石赛(上海/绍兴柯桥)主办方宣布，包括9位亚洲冠军在内的19名中国田径顶尖选手将出战此次比赛。5月16日，他们将登上中国轻纺城体育中心体育场的舞台，为观众献上一场巅峰对决。 在最受关注的男子100米赛场，柯桥籍名将谢震业将再度归来，第九次站上长三角国际田径钻石赛(含前身钻石联赛-上海站)的起跑线。谢震业的100米最好成
 
 ## 正文
 
-中新社广东江门6月12日电 (郭军 吴明耀)随着最后一方混凝土浇筑完成，由厦深铁路广东有限公司建设、中铁二十五局承建的深江铁路重难点工程——广中江特大桥跨虎跳门水道斜拉桥双主塔12日完成封顶。
+中新网绍兴5月9日电(张煜欢)9日，2026长三角国际田径钻石赛(上海/绍兴柯桥)主办方宣布，包括9位亚洲冠军在内的19名中国田径顶尖选手将出战此次比赛。
 
-至此，深江铁路全线5座斜拉桥全部完成主塔封顶，项目建设取得突破性进展。
+5月16日，他们将登上中国轻纺城体育中心体育场的舞台，为观众献上一场巅峰对决。
 
-深江铁路正线全长116公里，桥隧占比达98%。
+在最受关注的男子100米赛场，柯桥籍名将谢震业将再度归来，第九次站上长三角国际田径钻石赛(含前身钻石联赛-上海站)的起跑线。
 
-由中铁二十五局承建的深江铁路12标段，主要包括13.41公里正线、江门疏解线、江门动走线及存车场站前工程、546孔箱梁架梁任务以及全线铺轨等施工任务。
+谢震业的100米最好成绩是9.97秒，创造于2018年并打破了当时的黄种人纪录。
 
-作为全线重难点工程，此次封顶的广中江特大桥跨虎跳门水道斜拉桥主桥全长约590米、主跨达300米。
+作为今年“中国军团”中年纪最大的老将，出生于1993年的谢震业积攒了超高的人气，他的亮相有望将现场气氛推向高潮。
 
-据中铁二十五局深江铁路项目副总工程师冯海强介绍：“广中江特大桥跨虎跳门水道斜拉桥17号、18号两座主塔均采用‘H’型设计，高度达140米，相当于约46层楼房高，双主塔混凝土浇筑总量达18000立方米。
+在世界田联接力赛上跑出不错成绩的浙江本土小将陈妤颉将出战女子200米的比赛。
 
-桥梁施工区域处于一级航道，日均往来船只近300艘，且与既有中阳高速公路最小距离仅30米，施工安全风险大，技术要求高。
+这位年仅17岁的宁波姑娘在2025年可谓大放异彩，先后摘得亚锦赛女子200米、4x100米接力，以及全运会100米和200米的冠军。
 
-” 针对项目施工特点、技术难点情况，项目团队大力开展技术攻关，先后攻克了中国首例深水裸岩大跨度桥梁基础非爆破开挖、双壁钢围堰下水等施工难题。
+这种年龄与实力的巨大反差感也让她收获了“小孩姐”“小飞人”等诸多昵称。
 
 ## 相关推荐
 
-- 2026-06-30 00:26 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 00:28 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 00:34 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 00:31 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 00:11 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 00:30 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 00:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 00:22 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 00:32 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 00:25 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 00:26 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 00:32 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 00:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 00:12 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 00:33 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 00:38 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 00:40 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 00:26 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 00:16 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 00:24 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 00:23 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 00:17 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 00:22 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 00:40 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 00:24 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 00:28 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 00:15 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 00:21 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 00:16 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:18 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/2521515849.shtml)
-- 2026-06-30 00:30 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/1203330.shtml)
-- 2026-06-30 00:10 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/532932793.shtml)
-- 2026-06-30 00:14 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/876201982753.shtml)
-- 2026-06-30 00:34 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/95068.shtml)
-- 2026-06-30 00:07 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/1242392.shtml)
-- 2026-06-30 00:25 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/56682750372.shtml)
-- 2026-06-30 00:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/620968320.shtml)
-- 2026-06-30 00:13 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/90326113758.shtml)
-- 2026-06-30 00:07 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/67015816.shtml)
-- 2026-06-30 00:33 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/358244.shtml)
-- 2026-06-30 00:15 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/33648.shtml)
-- 2026-06-30 00:33 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/372381.shtml)
-- 2026-06-30 00:32 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/98374203.shtml)
-- 2026-06-30 00:09 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/8268286.shtml)
+- 2026-06-30 00:26 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/79902.shtml)
+- 2026-06-30 00:25 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/110186.shtml)
+- 2026-06-30 00:33 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/51254.shtml)
+- 2026-06-30 00:34 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/627027.shtml)
+- 2026-06-30 00:13 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/179638656.shtml)
+- 2026-06-30 00:15 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/0957628.shtml)
+- 2026-06-30 00:35 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/797238927447.shtml)
+- 2026-06-30 00:21 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/40006916.shtml)
+- 2026-06-30 00:22 - [电影后室值得看吗](https://www.share.minike.top/Article/details/957394490.shtml)
+- 2026-06-30 00:25 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/50315610.shtml)
+- 2026-06-30 00:14 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/83024815375.shtml)
+- 2026-06-30 00:16 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/996280431524.shtml)
+- 2026-06-30 00:29 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/838592928.shtml)
+- 2026-06-30 00:31 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/778925950.shtml)
+- 2026-06-30 00:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/42668.shtml)

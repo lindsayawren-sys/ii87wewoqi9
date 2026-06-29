@@ -1,61 +1,61 @@
-# 报告预计2026年中国风光新增装机约3亿千瓦
+# 同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述
 
-> 更新时间：2026-06-30 00:36:02 UTC+8
+> 更新时间：2026-06-30 00:42:02 UTC+8
 
 ## 摘要
 
-中新社北京6月12日电 (记者 王梦瑶)水电水利规划设计总院12日发布的《中国可再生能源发展报告2025年度》预计，2026年中国风电、光伏新增装机约3亿千瓦，风电新增并网装机容量约1亿千瓦，太阳能发电新增并网装机容量约2亿千瓦，可再生能源将继续成为中国能源绿色低碳转型的主力。报告显示，2025年中国可再生能源装机规模实现跨越式增长。全国可再生能源年新增装机再创新高，达到4.5
+光明日报记者 李丹阳 江水浩荡，昼夜不息。长江一路东流，见证着一场持续推进的绿色转型。 2021年起，受中共中央委托，民革中央对口湖北省开展为期五年的长江生态环境保护民主监督。 5年来，民革中央以习近平新时代中国特色社会主义思想为指导，深入贯彻落实习近平生态文明思想和习近平总书记关于坚持好、发展好、完善好中国新型政党制度的重要论述，在中央统战部和国务院有关部委统筹谋划和指导协调
 
 ## 正文
 
-中新社北京6月12日电 (记者 王梦瑶)水电水利规划设计总院12日发布的《中国可再生能源发展报告2025年度》预计，2026年中国风电、光伏新增装机约3亿千瓦，风电新增并网装机容量约1亿千瓦，太阳能发电新增并网装机容量约2亿千瓦，可再生能源将继续成为中国能源绿色低碳转型的主力。
+光明日报记者 李丹阳 江水浩荡，昼夜不息。
 
-报告显示，2025年中国可再生能源装机规模实现跨越式增长。
+长江一路东流，见证着一场持续推进的绿色转型。
 
-全国可再生能源年新增装机再创新高，达到4.52亿千瓦。
+2021年起，受中共中央委托，民革中央对口湖北省开展为期五年的长江生态环境保护民主监督。
 
-全国可再生能源发电装机达23.37亿千瓦，占总装机比重60.1%，进一步巩固了装机主体地位。
+5年来，民革中央以习近平新时代中国特色社会主义思想为指导，深入贯彻落实习近平生态文明思想和习近平总书记关于坚持好、发展好、完善好中国新型政党制度的重要论述，在中央统战部和国务院有关部委统筹谋划和指导协调下，与湖北省密切配合，高质量完成长江生态环境保护民主监督各项任务，工作取得良好成效。
 
-风光发电总装机历史性超过火电，达到18.42亿千瓦。
+把脚步踏到江岸线上 长江保护，首先要看见真实的长江。
 
-与此同时，可再生能源供给能力大幅增强。
+2023年5月，武汉余家头江滩。
 
-报告称，2025年中国可再生能源年发电量达到3.99万亿千瓦时，在各类电源总发电量中占比接近四成。
+民革中央调研组走进水厂，围着取水口反复询问水质变化、处理能力等细节问题，一边看、一边问，甚至凑近水面观察水体状态。
 
-全国可再生能源新增发电量已完全覆盖全社会用电增量，经济增长的新增能耗首次全部由绿电支撑。
+这样的场景，在5年的调研中并不鲜见。
 
 ## 相关推荐
 
-- 2026-06-30 00:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 00:18 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 00:06 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 00:21 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 00:35 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 00:20 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 00:14 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 00:16 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 00:29 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 00:28 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 00:14 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-30 00:35 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 00:14 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 00:24 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 00:08 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 00:13 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 00:38 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 00:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 00:15 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 00:33 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 00:26 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 00:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 00:40 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 00:16 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 00:15 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 00:40 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 00:27 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 00:18 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 00:40 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 00:32 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:34 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/5153861.shtml)
-- 2026-06-30 00:15 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/723478338.shtml)
-- 2026-06-30 00:23 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/470029014.shtml)
-- 2026-06-30 00:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/9192670.shtml)
-- 2026-06-30 00:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/933905439.shtml)
-- 2026-06-30 00:34 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/23342997820.shtml)
-- 2026-06-30 00:10 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/255871.shtml)
-- 2026-06-30 00:19 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/49544285768.shtml)
-- 2026-06-30 00:35 - [啊啊啊](http://www.share.minike.top/Article/details/633612.shtml)
-- 2026-06-30 00:19 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/974402550904.shtml)
-- 2026-06-30 00:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/8312510.shtml)
-- 2026-06-30 00:06 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/9019532935.shtml)
-- 2026-06-30 00:29 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/7376424.shtml)
-- 2026-06-30 00:30 - [世界杯](https://www.blog.minike.top/Article/details/652229.shtml)
-- 2026-06-30 00:24 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/0859281272.shtml)
+- 2026-06-30 00:15 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/2691524.shtml)
+- 2026-06-30 00:32 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/0143969608.shtml)
+- 2026-06-30 00:18 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/8491894251.shtml)
+- 2026-06-30 00:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/4868442.shtml)
+- 2026-06-30 00:17 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/540403234.shtml)
+- 2026-06-30 00:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/444483.shtml)
+- 2026-06-30 00:29 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/3628387.shtml)
+- 2026-06-30 00:20 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/46570047852.shtml)
+- 2026-06-30 00:30 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/56689244.shtml)
+- 2026-06-30 00:38 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/667395.shtml)
+- 2026-06-30 00:37 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/5931460.shtml)
+- 2026-06-30 00:28 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/31195.shtml)
+- 2026-06-30 00:29 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/210621070.shtml)
+- 2026-06-30 00:20 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/884169.shtml)
+- 2026-06-30 00:32 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/741017902848.shtml)
