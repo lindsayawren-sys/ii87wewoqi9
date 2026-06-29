@@ -1,56 +1,60 @@
-# 力量发展午前涨近4% 机构指公司南非煤矿盈利较为可靠
+# Nebius携手英伟达再扩英国AI版图，豪掷17亿英镑新建三处算力设施
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-力量发展（01277）早盘涨近4%，截至发稿，股价上涨3.87%，现报2.15港元，成交额997.73万港元。 国投证券指出，全球煤炭市场供需区域性割裂与结构性错配导致价格波动加剧，印尼减产、澳洲产能受限、俄罗斯运力饱和共同削弱海运煤供给弹性。中国进口套利空间锁定煤价上限，中东冲突推高气转煤需求，迎峰度夏备煤或引发新一轮竞价上涨。 长江证券指出，参考公司在南非的可比公司Exxa
+人工智能云公司Nebius正加速其在英国的战略布局。公司于6月8日宣布，将投资约17亿英镑在英国新建三处英伟达基础设施部署站点，并持续扩大其伦敦商业及AI研发中心规模。受此消息提振，Nebius股价在当日盘初交易中上涨约1%。 此次扩张是Nebius自2024年从俄罗斯互联网巨头Yandex拆分独立上市后，在欧洲市场做出的最大单笔承诺。三处新站点均将部署英伟达最新一代的全栈AI
 
 ## 正文
 
-力量发展（01277）早盘涨近4%，截至发稿，股价上涨3.87%，现报2.15港元，成交额997.73万港元。
+人工智能云公司Nebius正加速其在英国的战略布局。
 
-国投证券指出，全球煤炭市场供需区域性割裂与结构性错配导致价格波动加剧，印尼减产、澳洲产能受限、俄罗斯运力饱和共同削弱海运煤供给弹性。
+公司于6月8日宣布，将投资约17亿英镑在英国新建三处英伟达基础设施部署站点，并持续扩大其伦敦商业及AI研发中心规模。
 
-中国进口套利空间锁定煤价上限，中东冲突推高气转煤需求，迎峰度夏备煤或引发新一轮竞价上涨。
+受此消息提振，Nebius股价在当日盘初交易中上涨约1%。
 
-长江证券指出，参考公司在南非的可比公司Exxaro、Thungela公司，可发现2024年南非煤炭公司吨利润差不多在200-300元/吨，利润率约在15-20%。
+此次扩张是Nebius自2024年从俄罗斯互联网巨头Yandex拆分独立上市后，在欧洲市场做出的最大单笔承诺。
 
-此外，马卡多煤矿附近的Grootegeluk煤矿（隶属Exxaro）目前也具备收入。
+三处新站点均将部署英伟达最新一代的全栈AI工厂平台技术，合计装机容量预计于2027年全面达产后达到65兆瓦。
 
-由此可见公司南非煤矿盈利较为可靠。
+此前，Nebius已于2025年11月完成了在英国的首个英伟达Blackwell Ultra基础设施部署。
 
-责任编辑：卢昱君
+Nebius的此次扩产紧随英伟达CEO黄仁勋的公开赞誉之后。
+
+黄仁勋在近期的台北国际电脑展上，将Nebius称为“世界一流的AI云”之一，并指出其拥有“令人难以置信的客户”，包括AI编码平台Cursor、数字银行Revolut及电商巨头Shopify。
 
 ## 相关推荐
 
-- 2026-06-30 04:52 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 05:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 04:59 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 05:01 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 04:36 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 04:51 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 04:58 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 05:02 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 04:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-30 04:50 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 04:57 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 05:03 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 04:54 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 04:55 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 04:59 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 04:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 04:46 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 04:49 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 05:08 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 05:02 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 05:11 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 04:48 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 05:04 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 04:49 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 05:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 05:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:45 - [流金岁月](http://www.blog.minike.top/Article/details/6761611700.shtml)
-- 2026-06-30 05:02 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/5170938359.shtml)
-- 2026-06-30 04:37 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/72928624.shtml)
-- 2026-06-30 04:59 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/27203.shtml)
-- 2026-06-30 04:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/99293.shtml)
-- 2026-06-30 05:04 - [巴西绝杀日本](http://www.share.minike.top/Article/details/3708857.shtml)
-- 2026-06-30 04:55 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/70846594075.shtml)
-- 2026-06-30 04:37 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/6514392594.shtml)
-- 2026-06-30 05:01 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/619605327.shtml)
-- 2026-06-30 04:48 - [这一刀 会很帅](http://www.share.minike.top/Article/details/8855017498.shtml)
-- 2026-06-30 04:47 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/8696287772.shtml)
-- 2026-06-30 05:00 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/999841201058.shtml)
-- 2026-06-30 04:44 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/86428465.shtml)
-- 2026-06-30 04:43 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/828803287049.shtml)
-- 2026-06-30 05:04 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/703167.shtml)
+- 2026-06-30 04:59 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/58882245289.shtml)
+- 2026-06-30 04:56 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/544601121109.shtml)
+- 2026-06-30 04:45 - [我们的少年时代2](http://www.blog.minike.top/Article/details/762868555571.shtml)
+- 2026-06-30 04:53 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/509583795765.shtml)
+- 2026-06-30 05:09 - [起风了](http://www.blog.minike.top/Article/details/9624568.shtml)
+- 2026-06-30 04:55 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/15320941741.shtml)
+- 2026-06-30 04:48 - [《共患难》](https://www.share.kurohicncr.top/Article/details/8567670.shtml)
+- 2026-06-30 04:47 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/652327.shtml)
+- 2026-06-30 04:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/87819203.shtml)
+- 2026-06-30 05:07 - [《共患难》](http://www.share.minike.top/Article/details/8469900607.shtml)
+- 2026-06-30 04:45 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/98556186198.shtml)
+- 2026-06-30 05:09 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/548966280.shtml)
+- 2026-06-30 05:11 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/8748550934.shtml)
+- 2026-06-30 04:57 - [日本进球](http://www.blog.minike.top/Article/details/95782086614.shtml)
+- 2026-06-30 05:10 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/5177271613.shtml)

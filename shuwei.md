@@ -1,57 +1,46 @@
-# 东方园林（东方新能，002310）索赔倒计时两个月，园城黄金（600766）索赔案已有胜诉
+# 菲律宾南部强震已造成32人死亡
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-上海久诚律师事务所股票索赔律师许峰提示，东方园林（002310）虚假陈述引发的投资者索赔案已经进入最后两个月倒计时，提醒投资者注意，“过期作废”。（许峰律师专栏） 许峰律师代理的东方园林投资者索赔案已向北京金融法院多次提交立案，公告信息显示，该案已有投资者和解获赔，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2024年1月31日晚，东方园林公告收
+菲律宾减灾部门8日通报称，当天早上菲南部发生的7.8级地震已造成32人死亡。
 
 ## 正文
 
-上海久诚律师事务所股票索赔律师许峰提示，东方园林（002310）虚假陈述引发的投资者索赔案已经进入最后两个月倒计时，提醒投资者注意，“过期作废”。
-
-（许峰律师专栏） 许峰律师代理的东方园林投资者索赔案已向北京金融法院多次提交立案，公告信息显示，该案已有投资者和解获赔，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
-
-2024年1月31日晚，东方园林公告收到证监会北京监管局出具的《行政处罚决定书》，经查明，东方园林违法事实如下： 2018年6月，东方园林及其子公司组成联合体，中标广西贵港市覃塘区全域旅游PPP项目。
-
-2019年12月，东方园林根据与供应商成本扣减结算情况，调减广西贵港项目相关成本2，232.19万元，但未在2019年相应调减营业收入3，541.84万元，直到2022年才进行调整。
-
-该情况导致公司2019年度虚增收入、利润及资产各3，541.84万元，2020年度、2021年度虛增资产各3，541.84万元，2022年度虚减收入、利润各3，541.84万元。
-
-“20东林G1”公司债券募集说明书使用了2019年年度报告相关财务数据。
-
-上述事项导致东方园林2019年至2022年年度报告及“20东林G1”公司债券募集说明书存在错报。
-
-许峰律师认为，在2020年4月30日到2023年7月13日之间买入东方园林股票，并且在2023年7月13日后卖出或继续持有股票的投资者，在最后两个月诉讼时效内还可发起索赔。
+菲律宾减灾部门8日通报称，当天早上菲南部发生的7.8级地震已造成32人死亡。
 
 ## 相关推荐
 
-- 2026-06-30 05:02 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 04:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 04:56 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 04:50 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 04:44 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 04:57 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 04:54 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 04:49 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 04:58 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 04:53 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 04:50 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 05:08 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 04:48 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 05:02 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 04:50 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 05:04 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 04:46 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 05:07 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 04:47 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 04:45 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 04:59 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 05:06 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 05:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 04:43 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 05:03 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:05 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/1292835849.shtml)
-- 2026-06-30 04:54 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/67483656.shtml)
-- 2026-06-30 04:36 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/295904223.shtml)
-- 2026-06-30 04:49 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/7575552781.shtml)
-- 2026-06-30 04:47 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/917616968.shtml)
-- 2026-06-30 05:05 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/67970.shtml)
-- 2026-06-30 04:54 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/1614526.shtml)
-- 2026-06-30 04:45 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/5948456.shtml)
-- 2026-06-30 04:53 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/845326917946.shtml)
-- 2026-06-30 04:37 - [孙兴慜道歉](http://www.share.minike.top/Article/details/402370318435.shtml)
-- 2026-06-30 04:50 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/5222881.shtml)
-- 2026-06-30 05:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/93621750.shtml)
-- 2026-06-30 04:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/87130.shtml)
-- 2026-06-30 04:51 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/9474630451.shtml)
-- 2026-06-30 05:03 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/399355.shtml)
+- 2026-06-30 05:04 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/454405.shtml)
+- 2026-06-30 05:11 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/20870733.shtml)
+- 2026-06-30 04:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/4884802.shtml)
+- 2026-06-30 04:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/9076972.shtml)
+- 2026-06-30 04:50 - [我们的少年时代2](https://www.share.minike.top/Article/details/00477020.shtml)
+- 2026-06-30 05:07 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/126429143.shtml)
+- 2026-06-30 04:44 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/27254772162.shtml)
+- 2026-06-30 04:55 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/1896865497.shtml)
+- 2026-06-30 04:43 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/12116.shtml)
+- 2026-06-30 05:02 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/78960935271.shtml)
+- 2026-06-30 04:59 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/60799345.shtml)
+- 2026-06-30 05:08 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/0759594.shtml)
+- 2026-06-30 04:55 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/291373.shtml)
+- 2026-06-30 05:07 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/860283866360.shtml)
+- 2026-06-30 05:06 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/5861021537.shtml)

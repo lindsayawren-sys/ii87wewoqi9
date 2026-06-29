@@ -1,56 +1,54 @@
-# ETF日报：国内招标持续放量、海外缺电仍在演绎，关注电网设备ETF
+# 海外刷屏的国风上海豫园妆造，实测到底有多惊艳？
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-今日A股震荡盘整，沪指跌0.25%，深证成指跌0.47%，创业板指跌涨0.15%。沪深两市成交额约3.27万亿元，较上日有所缩量。个股跌多涨少，全市场超4000只个股下跌。行业层面，半导体设备、水泥制造、特高压等板块涨幅居前；稀土、工业气体、猪产业等方向则有所回调。 （资料来源：财联社） 昨晚，美股光通信板块全面爆发，Lumentum、Coherent、AAOI等多只标的实现大
+发布时间：2026年06月09日 20:20 来源：中国新闻网 跨越山海，奔赴一场东方美学之约。如今，中国国风造型风靡海外，无数外国游客来到上海豫园，为的就是专程打卡中式妆造。 描黛眉、挽发髻、着华裳，沉浸式感受千年国风的独特魅力。古香古色的上海豫园，碰撞鲜活新潮的妆造旅拍体验，古今交融的上海，又诞生了全新的玩法，东方古韵惊艳外国人的同时，也向世界讲述着当今中国文旅之美。(完)
 
 ## 正文
 
-今日A股震荡盘整，沪指跌0.25%，深证成指跌0.47%，创业板指跌涨0.15%。
+发布时间：2026年06月09日 20:20 来源：中国新闻网 跨越山海，奔赴一场东方美学之约。
 
-沪深两市成交额约3.27万亿元，较上日有所缩量。
+如今，中国国风造型风靡海外，无数外国游客来到上海豫园，为的就是专程打卡中式妆造。
 
-个股跌多涨少，全市场超4000只个股下跌。
+描黛眉、挽发髻、着华裳，沉浸式感受千年国风的独特魅力。
 
-行业层面，半导体设备、水泥制造、特高压等板块涨幅居前；稀土、工业气体、猪产业等方向则有所回调。
+古香古色的上海豫园，碰撞鲜活新潮的妆造旅拍体验，古今交融的上海，又诞生了全新的玩法，东方古韵惊艳外国人的同时，也向世界讲述着当今中国文旅之美。
 
-（资料来源：财联社） 昨晚，美股光通信板块全面爆发，Lumentum、Coherent、AAOI等多只标的实现大涨，同时芯片半导体领域也在延续上涨态势。
-
-受到美股映射影响，今日A股半导体设备和通信板块表现也相对较好。
-
-今日小作文颇多，主要还是围绕“券商杠杆要求”有一定的讨论，因此市场情绪有所扰动。
-
-不过一般短期放量大涨之后，市场波动性也会有所增加。
+(完) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 04:41 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 04:38 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 04:37 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 04:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 05:01 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 05:04 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 04:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 04:49 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 04:52 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 04:56 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 05:05 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 04:52 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 04:55 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 04:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 05:03 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 04:55 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 05:11 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 04:56 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 04:45 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 05:10 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 04:49 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 04:52 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 04:50 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:38 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/4068103206.shtml)
-- 2026-06-30 04:50 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/1810335394.shtml)
-- 2026-06-30 04:38 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/387434057.shtml)
-- 2026-06-30 05:03 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/41426761567.shtml)
-- 2026-06-30 04:52 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/91570.shtml)
-- 2026-06-30 05:06 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/879030.shtml)
-- 2026-06-30 04:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/588713528.shtml)
-- 2026-06-30 05:03 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/06698396605.shtml)
-- 2026-06-30 04:50 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/85283.shtml)
-- 2026-06-30 04:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/73905669014.shtml)
-- 2026-06-30 04:57 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/097761368591.shtml)
-- 2026-06-30 04:57 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/688959049732.shtml)
-- 2026-06-30 04:48 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/15579.shtml)
-- 2026-06-30 05:03 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/70783.shtml)
-- 2026-06-30 04:56 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/0953128119.shtml)
+- 2026-06-30 04:54 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/50575.shtml)
+- 2026-06-30 04:57 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/14757432254.shtml)
+- 2026-06-30 05:03 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/796474093710.shtml)
+- 2026-06-30 05:06 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/0090735073.shtml)
+- 2026-06-30 04:54 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/19200.shtml)
+- 2026-06-30 04:42 - [极限挑战第一季](http://www.blog.minike.top/Article/details/389787.shtml)
+- 2026-06-30 04:47 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/562547613877.shtml)
+- 2026-06-30 04:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/723500.shtml)
+- 2026-06-30 04:54 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/536130.shtml)
+- 2026-06-30 04:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/313706.shtml)
+- 2026-06-30 04:52 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/19163745736.shtml)
+- 2026-06-30 04:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/63259004.shtml)
+- 2026-06-30 05:11 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/69208259159.shtml)
+- 2026-06-30 05:11 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/163130606.shtml)
+- 2026-06-30 04:42 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/896652570.shtml)

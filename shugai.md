@@ -1,59 +1,59 @@
-# 第三届海峡两岸中华文化峰会两岸视听交流合作论坛在北京举行
+# 长三角青少年角逐AI赛场 展现“科技+文化”活力
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新网北京5月12日电 (记者 刘大炜)以“携手赓续中华文明根脉 深化两岸视听融合发展”为主题的第三届海峡两岸中华文化峰会两岸视听交流合作论坛12日在北京举行。来自海峡两岸视听业社会组织、视听媒体头部企事业单位、高校与科研院所的近150位代表参与活动。 中华广播影视交流协会常务副理事长、国家广电总局港澳台办副主任杨勇在致辞中指出，近期，中央台办受权发布了十项促进两岸交流合作的政
+中新网上海6月9日电 (记者 陈静)以“让世界充满AI”为主题的第六届长三角青少年人工智能奥林匹克挑战赛9日正在上海火热进行中。长三角青少年在赛场上发挥智慧，将科技探索与国家发展、文化传承、社会民生紧密相连。截至目前，部分赛道已完成比赛。 当日，记者在采访中了解到，“AI算法争霸”赛道中学组决赛率先收官。本赛道创新设置“探源墨彩，智识光阴”主题，将AI与物质科学、人文科学深度融
 
 ## 正文
 
-中新网北京5月12日电 (记者 刘大炜)以“携手赓续中华文明根脉 深化两岸视听融合发展”为主题的第三届海峡两岸中华文化峰会两岸视听交流合作论坛12日在北京举行。
+中新网上海6月9日电 (记者 陈静)以“让世界充满AI”为主题的第六届长三角青少年人工智能奥林匹克挑战赛9日正在上海火热进行中。
 
-来自海峡两岸视听业社会组织、视听媒体头部企事业单位、高校与科研院所的近150位代表参与活动。
+长三角青少年在赛场上发挥智慧，将科技探索与国家发展、文化传承、社会民生紧密相连。
 
-中华广播影视交流协会常务副理事长、国家广电总局港澳台办副主任杨勇在致辞中指出，近期，中央台办受权发布了十项促进两岸交流合作的政策措施，国家广电总局正在积极研究落实，加大扶持引导力度，让台湾业者共享融合发展红利。
+截至目前，部分赛道已完成比赛。
 
-今年是大陆“十五五”开局之年，新时代新征程上，中华广播影视交流协会将坚守初心，携手两岸视听业界同仁，共同建设两岸视听融合发展美好未来。
+当日，记者在采访中了解到，“AI算法争霸”赛道中学组决赛率先收官。
 
-台湾中华广播电视节目制作商业同业公会创会理事长汪威江致辞提到，人工智能(AI)的浪潮已经到来，两岸影视交流也正迎来新的契机，两岸视听同行应善用AI，深化合作，携手共进、迎接璀璨的明天。
+本赛道创新设置“探源墨彩，智识光阴”主题，将AI与物质科学、人文科学深度融合，引导青少年用前沿算法守护国家文明记忆。
 
-交流环节，两岸视听业界15位嘉宾，围绕“AI赋能视听业浪潮下两岸同行如何深化融合发展”的主题发言。
+据悉，该赛道赛事吸引了来自109所中学的284支队伍、852名选手参与，覆盖上海全部16个区。
 
-其中，国家广电总局广播影视发展研究中心战略研究所所长、中国广播电视社会组织联合会纪录片委员会会长赵捷以优秀视听作品为例，剖析两岸视听发展新趋势。
+针对古书画紫外老化试验周期漫长、成本高昂的行业痛点，选手们对依托短期实测数据预判文物长期色彩变化的轻量化数字方案开展研究。
 
-福建省广播电视局党组成员、副局长张明生介绍了福建省落实促进两岸交流合作的政策措施的情况。
+在刚刚结束的“数智创变者”赛道的“AI创想家”项目终评展示中，“青浦古桥·AI守护小狮子”项目立足古桥保护痛点，利用多模态交互与图像识别，既能智能讲解古桥风貌，又可实时预警刻画攀爬等损毁行为。
 
 ## 相关推荐
 
-- 2026-06-30 04:53 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 04:51 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 04:59 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 04:50 - [刘念回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 05:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 04:38 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 04:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 04:55 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 04:47 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 04:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-30 04:50 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 05:01 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 04:50 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 04:59 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 05:02 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 05:08 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 04:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 05:11 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 04:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 04:53 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 04:44 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 04:55 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 05:06 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 05:05 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 04:54 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 04:49 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:39 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/949848.shtml)
-- 2026-06-30 04:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/85880791.shtml)
-- 2026-06-30 04:47 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/514837573573.shtml)
-- 2026-06-30 04:50 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/27323.shtml)
-- 2026-06-30 04:40 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/356295846.shtml)
-- 2026-06-30 04:57 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/559770.shtml)
-- 2026-06-30 04:54 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/2042794758.shtml)
-- 2026-06-30 04:47 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/72015.shtml)
-- 2026-06-30 04:55 - [巴西2比1日本](http://www.blog.minike.top/Article/details/9082747.shtml)
-- 2026-06-30 04:44 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/1005139.shtml)
-- 2026-06-30 04:49 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/53558.shtml)
-- 2026-06-30 05:00 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/979195464879.shtml)
-- 2026-06-30 04:54 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/6162659.shtml)
-- 2026-06-30 04:41 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/86852374.shtml)
-- 2026-06-30 04:47 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/471785.shtml)
+- 2026-06-30 04:47 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/31713773255.shtml)
+- 2026-06-30 04:54 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/8155669.shtml)
+- 2026-06-30 04:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/45633631880.shtml)
+- 2026-06-30 04:59 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/15752152.shtml)
+- 2026-06-30 04:49 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/5974872618.shtml)
+- 2026-06-30 04:49 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/3819910.shtml)
+- 2026-06-30 04:47 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/2746011587.shtml)
+- 2026-06-30 04:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/175260070.shtml)
+- 2026-06-30 04:45 - [千与千寻](http://www.blog.minike.top/Article/details/853323136739.shtml)
+- 2026-06-30 04:59 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/651477296807.shtml)
+- 2026-06-30 04:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/4329235731.shtml)
+- 2026-06-30 04:59 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/22815366809.shtml)
+- 2026-06-30 05:09 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/1767882.shtml)
+- 2026-06-30 04:53 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/972091.shtml)
+- 2026-06-30 04:44 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/24006718.shtml)

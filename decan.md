@@ -1,57 +1,57 @@
-# 张果彤:黄金大概率将继续震荡
+# CPO“一哥”，融资客加仓断层第一
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-5月11日，上周一美指正如预期反弹到了98.40附近后，承压受阻回落，周图收小阳柱。从图形来看，美指仍然偏弱，但震幅越来越小，本周要么继续向下创新低，要么反转向上反弹，密切关注周一区间破位情况。周一关注97.70至98.30区间，看如何破位。若向上破位，继续向上反弹概率加大，上方关注98.50和98.70和99.40；若向下破位，则向下测试97.50和97.30的概率将加大。这
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！上周，A股市场震荡分化，上证指数、深证成指、创业板指分别累计下跌1.00%、1.67%、1.98%。在市场调整的情况下，Wind数据显示，截至6月5日，A股市场融资余额报28857.15亿元，融券余额报209.73亿元，上周融资余额环比减少52.58亿元。上周通信行业融资余额增加超90亿元，A股市场融资净买
 
 ## 正文
 
-5月11日，上周一美指正如预期反弹到了98.40附近后，承压受阻回落，周图收小阳柱。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-从图形来看，美指仍然偏弱，但震幅越来越小，本周要么继续向下创新低，要么反转向上反弹，密切关注周一区间破位情况。
+上周，A股市场震荡分化，上证指数、深证成指、创业板指分别累计下跌1.00%、1.67%、1.98%。
 
-周一关注97.70至98.30区间，看如何破位。
+在市场调整的情况下，Wind数据显示，截至6月5日，A股市场融资余额报28857.15亿元，融券余额报209.73亿元，上周融资余额环比减少52.58亿元。
 
-若向上破位，继续向上反弹概率加大，上方关注98.50和98.70和99.40；若向下破位，则向下测试97.50和97.30的概率将加大。
+上周通信行业融资余额增加超90亿元，A股市场融资净买入金额最大的股票为中际旭创，净卖出金额最大的股票为澜起科技。
 
-这个区域若下跌空间较小；若向上反弹空间较大。
+融资客加仓通信行业超90亿元 Wind数据显示，截至6月5日，A股两融余额报29066.88亿元，融资余额报28857.15亿元，上周A股市场融资余额环比减少52.58亿元，在连续8周增加后首次出现减少。
 
-今日激进者可做多，保守者观望。
+具体来看，6月1日A股融资余额减少75.74亿元，6月2日增加13.15亿元，6月3日增加85.04亿元，6月4日增加64.86亿元，6月5日减少139.88亿元。
 
-激进者操作建议：98.00附近短线做多，止损97.70，目标看向98.50和98.70，再看向99.00和99.40．控制仓量，严格止损。
+从行业情况来看，上周31个申万一级行业中有11个行业融资余额增加，通信、煤炭、国防军工行业融资净买入金额居前，分别为98.03亿元、11.60亿元、7.45亿元。
 
-上周一欧元正如预期下跌到1.1680，后得以支撑向上反弹，上周就是一个区间震荡格局，周图收小阳柱。
+在出现融资净卖出的20个行业中，电力设备、电子、医药生物行业融资净卖出金额居前，分别为37.33亿元、32.77亿元、22.49亿元。
 
 ## 相关推荐
 
-- 2026-06-30 04:36 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 04:55 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 04:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 04:42 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 04:45 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 04:45 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 04:52 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 04:36 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-30 04:49 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 04:49 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 04:41 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 05:08 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 04:50 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 04:47 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 04:51 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 04:52 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 04:42 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 04:44 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 04:56 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 04:53 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 05:01 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 04:52 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:54 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/506145.shtml)
-- 2026-06-30 04:38 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/7309439175.shtml)
-- 2026-06-30 04:58 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/64446354.shtml)
-- 2026-06-30 05:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/3531465.shtml)
-- 2026-06-30 04:40 - [啊啊啊](http://www.blog.minike.top/Article/details/9807735.shtml)
-- 2026-06-30 04:39 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/86749478626.shtml)
-- 2026-06-30 04:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/4152233.shtml)
-- 2026-06-30 05:01 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/28614113.shtml)
-- 2026-06-30 04:59 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/480031.shtml)
-- 2026-06-30 04:46 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/42196.shtml)
-- 2026-06-30 04:56 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/0840865996.shtml)
-- 2026-06-30 04:38 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/06325532.shtml)
-- 2026-06-30 04:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/06945.shtml)
-- 2026-06-30 04:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/783363856.shtml)
-- 2026-06-30 04:38 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/544712.shtml)
+- 2026-06-30 04:42 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/8263881526.shtml)
+- 2026-06-30 05:02 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/406901.shtml)
+- 2026-06-30 05:05 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/35564.shtml)
+- 2026-06-30 05:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/498786.shtml)
+- 2026-06-30 04:58 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/9207189.shtml)
+- 2026-06-30 04:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/79201152776.shtml)
+- 2026-06-30 05:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/403837.shtml)
+- 2026-06-30 04:58 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/81160.shtml)
+- 2026-06-30 04:42 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/0342523739.shtml)
+- 2026-06-30 04:47 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/789280088414.shtml)
+- 2026-06-30 04:50 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/458682236558.shtml)
+- 2026-06-30 04:52 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/983235815801.shtml)
+- 2026-06-30 05:05 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/555814901.shtml)
+- 2026-06-30 04:43 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/8279631830.shtml)
+- 2026-06-30 04:49 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/8068098509.shtml)

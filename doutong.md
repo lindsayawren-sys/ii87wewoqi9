@@ -1,56 +1,56 @@
-# 香港富豪孙女遭绑架，被囚山洞4天，绑匪拿到2800万后逃跑，警方最新透露：她记得吃过什么、喝过什么，成为破案关键
+# 日本有识之士：日政府应正视历史 警惕军国主义野心
 
-> 更新时间：2026-06-30 05:06:03 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-近日，香港特区政府警务处出版《香港重案解密》，聚焦近年香港发生的七宗重大案件，走访当年侦办案件的刑侦人员，通过他们的现身说法，辅以心理学家专业分析，将案件调查中鲜为人知的细节，呈现在读者眼前。这其中就包括发生于2015年、震惊全香港的“飞鹅山绑架案”，被绑架者是香港“针织大王”、服装品牌堡狮龙(Bossini)创办人罗定邦的孙女罗君儿。 书中披露，2014年3月，一伙9人的贵州
+近年来，日本始终未能深刻反省历史，反而不断突破和平体制、加速扩军并图谋修宪等。日本“继承和发展村山谈话会”理事长藤田高景近日参观了南京大屠杀遇难同胞纪念馆，他表示，当今的日本社会首先应当正视侵略历史，深刻反省给中国人民造成的巨大灾难和伤害。日本“继承和发展村山谈话会”理事长 藤田高景：最近我前往南京大屠杀遇难同胞纪念馆参观，我再次深刻认识到日本帝国主义在侵华战争期间究竟做了什么
 
 ## 正文
 
-近日，香港特区政府警务处出版《香港重案解密》，聚焦近年香港发生的七宗重大案件，走访当年侦办案件的刑侦人员，通过他们的现身说法，辅以心理学家专业分析，将案件调查中鲜为人知的细节，呈现在读者眼前。
+近年来，日本始终未能深刻反省历史，反而不断突破和平体制、加速扩军并图谋修宪等。
 
-这其中就包括发生于2015年、震惊全香港的“飞鹅山绑架案”，被绑架者是香港“针织大王”、服装品牌堡狮龙(Bossini)创办人罗定邦的孙女罗君儿。
+日本“继承和发展村山谈话会”理事长藤田高景近日参观了南京大屠杀遇难同胞纪念馆，他表示，当今的日本社会首先应当正视侵略历史，深刻反省给中国人民造成的巨大灾难和伤害。
 
-书中披露，2014年3月，一伙9人的贵州犯罪团体计划前往香港作案。
+日本“继承和发展村山谈话会”理事长 藤田高景：最近我前往南京大屠杀遇难同胞纪念馆参观，我再次深刻认识到日本帝国主义在侵华战争期间究竟做了什么，实施了怎样惨无人道的大屠杀，给中国人民造成了多么巨大而深重的苦难。
 
-唯一拥有港澳通行证的男子郑某旺先通过罗湖口岸抵达香港，其余8人随后偷渡至香港，藏匿于飞鹅山一带熟悉地形。
+这些历史重新浮现在我的脑海中。
 
-2015年4月25日凌晨，9名歹徒闯入罗君儿位于飞鹅山的住宅，挟持罗君儿及其男性友人，劫走价值约300万港元的珠宝首饰和现金，并将罗君儿囚禁在附近山洞中，向罗家勒索5800万港元赎金。
+承认日本对中国发动侵略的历史事实，进行道歉、谢罪和赔偿，这是日本人应该做的最重要的一步。
 
-经与绑匪议价后，罗君儿的父亲于4月28日驾车至飞鹅山，交付2800万港元赎金。
+藤田高景表示，日本政府试图推动日本一步步踏上“新型军国主义”歧途。
 
-绑匪收到赎金后释放罗君儿，旋即再次回到山洞中藏匿。
+这不仅偏离和平宪法精神，也加剧地区国家的安全担忧。
 
-香港警方赶到人质释放地点时，只找到空空如也的行李箱，却在包装钞票的胶袋上，找到了歹徒的指纹，成为日后定罪的重要证据。
+日本“继承和发展村山谈话会”理事长 藤田高景：日本作为拥有和平宪法的国家，明确规定禁止向其他国家出口枪支、机枪、火箭弹、导弹和军舰等杀伤性武器。
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 05:00 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 04:46 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 04:56 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 04:47 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 04:47 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 05:03 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 04:47 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 04:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 04:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 04:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 05:10 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 04:44 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 05:02 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 05:01 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 04:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 04:54 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 04:50 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 04:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 04:53 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/725508985.shtml)
-- 2026-06-30 04:40 - [美股](https://www.blog.minike.top/Article/details/5457315794.shtml)
-- 2026-06-30 04:36 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/12299.shtml)
-- 2026-06-30 04:56 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/41909566.shtml)
-- 2026-06-30 05:05 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/0317903941.shtml)
-- 2026-06-30 04:50 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/1776704.shtml)
-- 2026-06-30 04:47 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/2400117036.shtml)
-- 2026-06-30 05:02 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/926355210.shtml)
-- 2026-06-30 04:42 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/34487.shtml)
-- 2026-06-30 04:41 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/48157101142.shtml)
-- 2026-06-30 04:54 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/364830.shtml)
-- 2026-06-30 04:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/789576079012.shtml)
-- 2026-06-30 04:39 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/325151489161.shtml)
-- 2026-06-30 05:00 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/02476017.shtml)
-- 2026-06-30 05:04 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/831407.shtml)
+- 2026-06-30 04:58 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/163637.shtml)
+- 2026-06-30 04:58 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/7650330865.shtml)
+- 2026-06-30 04:57 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/3976407.shtml)
+- 2026-06-30 05:02 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/609777.shtml)
+- 2026-06-30 04:43 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/792072.shtml)
+- 2026-06-30 04:55 - [月亮](https://www.share.kurohicncr.top/Article/details/587105090591.shtml)
+- 2026-06-30 05:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/0224170.shtml)
+- 2026-06-30 04:52 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/911389489500.shtml)
+- 2026-06-30 04:57 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/80457181.shtml)
+- 2026-06-30 04:46 - [巴西绝杀日本](http://www.share.minike.top/Article/details/132774889.shtml)
+- 2026-06-30 04:42 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/187245258.shtml)
+- 2026-06-30 04:47 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/105465.shtml)
+- 2026-06-30 05:08 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/56337843.shtml)
+- 2026-06-30 04:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/44359026.shtml)
+- 2026-06-30 04:53 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/360411952.shtml)

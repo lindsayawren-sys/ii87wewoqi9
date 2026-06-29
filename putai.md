@@ -1,61 +1,56 @@
-# 无法忽视“最后一根稻草” 高盛和美银料美联储比预期更晚降息
+# 高盛、摩根大通探索新举措，管控人工智能信贷业务风险
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-高盛与美银成为最新两家将美联储预期降息时间推后的华尔街银行，他们认为就业与通胀数据都支持联储至少今年年底前维持利率不变。 随着伊朗战争冲击油市并推高通胀，交易员加大对美联储今年按兵不动，2027年初加息的预估。这一转变也得到越来越多美联储官员的呼应，包括上次会议上对利率决议提出反对的两名官员在内，他们不排除下一次利率向上调整的可能性。 4月非农就业报告显示，美国雇主连续第二个月
+据知情人士透露，高盛与摩根大通正研究围绕算力成本开展交易的相关方案，其中包括交易显卡期货合约。图形处理器是人工智能热潮下最为紧缺的资源之一，多家交易所计划在今年内正式上线该类期货品种。 这一系列动向表明，海量资金涌入数据中心与芯片领域，正在重塑金融市场格局。对于为人工智能产业建设提供融资服务的银行而言，这类期货产品既能帮助其应对未来算力过剩的风险，也可协助客户对冲算力采购成本波
 
 ## 正文
 
-高盛与美银成为最新两家将美联储预期降息时间推后的华尔街银行，他们认为就业与通胀数据都支持联储至少今年年底前维持利率不变。
+据知情人士透露，高盛与摩根大通正研究围绕算力成本开展交易的相关方案，其中包括交易显卡期货合约。
 
-随着伊朗战争冲击油市并推高通胀，交易员加大对美联储今年按兵不动，2027年初加息的预估。
+图形处理器是人工智能热潮下最为紧缺的资源之一，多家交易所计划在今年内正式上线该类期货品种。
 
-这一转变也得到越来越多美联储官员的呼应，包括上次会议上对利率决议提出反对的两名官员在内，他们不排除下一次利率向上调整的可能性。
+这一系列动向表明，海量资金涌入数据中心与芯片领域，正在重塑金融市场格局。
 
-4月非农就业报告显示，美国雇主连续第二个月新增就业超出预期，凸显在中东冲突持续的背景下劳动力市场的韧性。
+对于为人工智能产业建设提供融资服务的银行而言，这类期货产品既能帮助其应对未来算力过剩的风险，也可协助客户对冲算力采购成本波动。
 
-周二和周三美国将公布消费者价格指数（CPI0和生产者价格指数（PPI）。
+两家投行目前仍处于初步探索阶段，短期内未必会正式落地相关业务。
 
-美银的美国经济学家部门负责人Aditya Bhave在5月8日的报告中写道：“数据并不支持今年降息。
+算力交易市场尚处萌芽期，还可能面临监管层面的问询。
 
-4月强劲的就业报告成为最后一根稻草，尤其是在美联储官员发表偏鹰派言论的情况下。
+不过对大型银行而言，这类构想并不陌生，它们早已开展电力以及其他人工智能基础设施相关大宗商品交易。
 
-”他与同事们预计，美联储要到2027年7月才会再次降息，而此前预测为今年9月。
+部分市场人士表示，布局算力交易可谓顺理成章的下一步。
 
 ## 相关推荐
 
-- 2026-06-30 04:41 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-30 04:36 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 04:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 04:59 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 04:56 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 05:03 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 04:59 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-30 05:05 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 04:38 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 04:54 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 05:06 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 04:44 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 04:39 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 04:44 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 04:39 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 04:42 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 05:00 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 05:03 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-30 04:51 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 04:56 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 04:53 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 04:50 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 04:53 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 04:42 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 05:07 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:41 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/90998.shtml)
-- 2026-06-30 04:39 - [女心理师](https://www.blog.minike.top/Article/details/341569265.shtml)
-- 2026-06-30 04:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/215576483652.shtml)
-- 2026-06-30 05:04 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/9279685512.shtml)
-- 2026-06-30 04:59 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/1501790759.shtml)
-- 2026-06-30 04:53 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/98221558918.shtml)
-- 2026-06-30 04:39 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/397041490.shtml)
-- 2026-06-30 05:05 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/51497135.shtml)
-- 2026-06-30 04:57 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/43631.shtml)
-- 2026-06-30 04:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/4531434.shtml)
-- 2026-06-30 05:02 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/89763912935.shtml)
-- 2026-06-30 04:45 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/75830082.shtml)
-- 2026-06-30 04:56 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/15358711.shtml)
-- 2026-06-30 05:03 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/941349525416.shtml)
-- 2026-06-30 04:48 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/14340391135.shtml)
+- 2026-06-30 04:52 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/0496279083.shtml)
+- 2026-06-30 04:58 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/319779779.shtml)
+- 2026-06-30 05:06 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/72977121160.shtml)
+- 2026-06-30 05:11 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/06119.shtml)
+- 2026-06-30 05:06 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/78864.shtml)
+- 2026-06-30 04:52 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/315492826163.shtml)
+- 2026-06-30 05:02 - [张凌赫 客串](http://www.blog.minike.top/Article/details/640449251134.shtml)
+- 2026-06-30 05:03 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/85564.shtml)
+- 2026-06-30 04:44 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/420513203.shtml)
+- 2026-06-30 04:57 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/326785.shtml)
+- 2026-06-30 05:10 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/41519.shtml)
+- 2026-06-30 05:07 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/0440832747.shtml)
+- 2026-06-30 04:54 - [斗破苍穹](https://www.blog.minike.top/Article/details/70820913.shtml)
+- 2026-06-30 05:10 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/940759.shtml)
+- 2026-06-30 05:02 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/86603016.shtml)

@@ -1,58 +1,44 @@
-# 千元股阵营洗牌，A股市场有何变化？
+# 华宝基金红利风向标：中小盘红利展现抗震韧性
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：经济日报新闻客户端（作者李华林，策划/万政、段云鹏） 近段时间，A股市场走势向好，截至5月12日收盘，有5只个股股价位列千元梯队，其中4只来自科技赛道。曾经，传统消费股常年稳居高价股前排，如今，科技股强势突围。高价股格局的演变，折射出投资风格、定价逻辑与增长动能的积极转变。 首先，资金偏好在变。过去市
+责任编辑：石秀珍 SF183
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-来源：经济日报新闻客户端（作者李华林，策划/万政、段云鹏） 近段时间，A股市场走势向好，截至5月12日收盘，有5只个股股价位列千元梯队，其中4只来自科技赛道。
-
-曾经，传统消费股常年稳居高价股前排，如今，科技股强势突围。
-
-高价股格局的演变，折射出投资风格、定价逻辑与增长动能的积极转变。
-
-首先，资金偏好在变。
-
-过去市场青睐成熟赛道的稳定收益，如今更愿为技术领先性支付溢价，耐心资本涌向人工智能、半导体等硬科技领域，资本与科创产业双向奔赴。
-
-其次，定价逻辑在变。
-
-从刚披露的2025年年报来看，去年上市公司研发投入1.94万亿元，约占全社会研发经费投入的一半，已然成为我国科技创新投入的主力军。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-30 04:40 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 05:03 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 04:47 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 04:58 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 04:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 04:42 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 05:03 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 04:38 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 05:00 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 04:38 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 04:59 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-30 04:40 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 04:58 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 04:51 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 04:59 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 04:53 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 05:05 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 04:52 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 04:46 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 04:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 04:59 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 04:52 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 04:50 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 05:07 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:46 - [《贺子珍》](https://www.share.minike.top/Article/details/0536373527.shtml)
-- 2026-06-30 04:47 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/203091255155.shtml)
-- 2026-06-30 04:40 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/7878182464.shtml)
-- 2026-06-30 04:46 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/7572673.shtml)
-- 2026-06-30 04:58 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/510163155909.shtml)
-- 2026-06-30 04:44 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/4029607.shtml)
-- 2026-06-30 04:54 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/544258.shtml)
-- 2026-06-30 04:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/905024.shtml)
-- 2026-06-30 04:46 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/092107246.shtml)
-- 2026-06-30 05:04 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/3228453894.shtml)
-- 2026-06-30 04:44 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/197577620.shtml)
-- 2026-06-30 04:38 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/5966124890.shtml)
-- 2026-06-30 04:44 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/51982288910.shtml)
-- 2026-06-30 04:39 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/953615366939.shtml)
-- 2026-06-30 05:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/207046626.shtml)
+- 2026-06-30 04:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/9347642.shtml)
+- 2026-06-30 05:11 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/49956733.shtml)
+- 2026-06-30 05:01 - [刘念回应](http://www.blog.minike.top/Article/details/66582.shtml)
+- 2026-06-30 05:06 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/72599.shtml)
+- 2026-06-30 04:58 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/48209025221.shtml)
+- 2026-06-30 04:59 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/7267375.shtml)
+- 2026-06-30 05:01 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/05418620137.shtml)
+- 2026-06-30 05:02 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/493162.shtml)
+- 2026-06-30 04:54 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/810436.shtml)
+- 2026-06-30 05:05 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/995632143817.shtml)
+- 2026-06-30 05:02 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/625126308826.shtml)
+- 2026-06-30 05:06 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/25143520.shtml)
+- 2026-06-30 05:07 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/304079531.shtml)
+- 2026-06-30 05:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/1587963589.shtml)
+- 2026-06-30 04:45 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/815436418193.shtml)

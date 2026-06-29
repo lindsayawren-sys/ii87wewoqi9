@@ -1,59 +1,54 @@
-# 营收高增长却连续跌停：ST豆神陷内控与盈利双重困局
+# 意大利埃尼公司与马来西亚国家石油公司成立合资企业
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 五一假期刚结束，ST豆神（维权）的股东就遭遇当头一棒。5月6日和7日，公司股票连续约20%的跌停，两天市值跌去三分之一。5月12日，公司股价跌3.32%，总市值从假期前的超百亿跌剩66.13亿元。 值得注意的是，就在连续跌停前，ST豆神还交出一份营收高增长的
+意大利国家碳氢化合物公司（埃尼集团）与马来西亚国家石油公司（Petronas）8日发表联合声明，宣布双方已按50：50的股权比例成立名为Searah的合资企业，旨在全面整合两家公司在印度尼西亚和马来西亚的核心能源业务。 该举措是埃尼集团实施“卫星策略”的重要组成部分，即通过分拆特定资产，并引入合作伙伴进行独立开发。 联合声明显示，新成立的Searah公司初始油气产量将超过每日3
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+意大利国家碳氢化合物公司（埃尼集团）与马来西亚国家石油公司（Petronas）8日发表联合声明，宣布双方已按50：50的股权比例成立名为Searah的合资企业，旨在全面整合两家公司在印度尼西亚和马来西亚的核心能源业务。
 
-来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 五一假期刚结束，ST豆神（维权）的股东就遭遇当头一棒。
+该举措是埃尼集团实施“卫星策略”的重要组成部分，即通过分拆特定资产，并引入合作伙伴进行独立开发。
 
-5月6日和7日，公司股票连续约20%的跌停，两天市值跌去三分之一。
+联合声明显示，新成立的Searah公司初始油气产量将超过每日30万桶油当量。
 
-5月12日，公司股价跌3.32%，总市值从假期前的超百亿跌剩66.13亿元。
+公司的目标是在未来三年内，将可持续产量提升至每日50万桶油当量以上。
 
-值得注意的是，就在连续跌停前，ST豆神还交出一份营收高增长的财报。
+在资产组合方面，新公司将统一管理19个天然气生产与开发项目，其中包括14个印尼项目以及5个马来西亚项目。
 
-4月29日，公司发布2025年报，年营收10.06亿元，同比增长32.96%，规模创下近三年新高。
+埃尼集团首席执行官克劳迪奥·德斯卡尔齐（Claudio Descalzi）表示，Searah作为东南亚地区成立的强有力新实体，将融合埃尼与马来西亚国家石油公司的专业技术优势，共同推进印尼与马来西亚的能源资源开发，并致力于履行环境保护与推动当地经济增长的承诺。
 
-然而，营收高增长并未转化为真实盈利：2025年公司扣除非经常性损益后的净利润亏损1.59亿元，经营性现金流净额为-1.88亿元，主营业务的“造血”能力明显承压。
-
-也正是这份营收高增长财报，成为公司股价连续跌停的导火索。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-30 04:58 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 04:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 04:44 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 04:42 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 04:37 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 04:46 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 04:50 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 05:00 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-30 05:03 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-30 04:46 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 04:40 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 05:02 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 05:02 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 04:47 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 04:59 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 05:04 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 04:45 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 05:06 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 04:57 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 05:10 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 04:59 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 05:10 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 05:01 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/45998.shtml)
-- 2026-06-30 04:59 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/232196.shtml)
-- 2026-06-30 04:48 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/00978.shtml)
-- 2026-06-30 04:49 - [日本16强魔咒](https://www.share.minike.top/Article/details/169352.shtml)
-- 2026-06-30 04:42 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/93429193831.shtml)
-- 2026-06-30 04:49 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/73224414347.shtml)
-- 2026-06-30 04:47 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/778958815.shtml)
-- 2026-06-30 05:05 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/210029467685.shtml)
-- 2026-06-30 04:37 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/23199801.shtml)
-- 2026-06-30 04:36 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/180682.shtml)
-- 2026-06-30 04:52 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/652461072.shtml)
-- 2026-06-30 04:39 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/73861039659.shtml)
-- 2026-06-30 04:54 - [明星大侦探第一季](http://www.share.minike.top/Article/details/082898845.shtml)
-- 2026-06-30 04:56 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/9655706.shtml)
-- 2026-06-30 04:36 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/9082018.shtml)
+- 2026-06-30 04:59 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/935500.shtml)
+- 2026-06-30 04:50 - [明星大侦探第一季](https://www.share.minike.top/Article/details/2802856044.shtml)
+- 2026-06-30 05:02 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/119377686797.shtml)
+- 2026-06-30 04:52 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/18606711.shtml)
+- 2026-06-30 05:06 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/785162957921.shtml)
+- 2026-06-30 04:45 - [日本进球](https://www.blog.kurohicncr.top/Article/details/054208.shtml)
+- 2026-06-30 05:04 - [日本进球](http://www.blog.kurohicncr.top/Article/details/47917004.shtml)
+- 2026-06-30 04:54 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/8660328.shtml)
+- 2026-06-30 05:08 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/703125137.shtml)
+- 2026-06-30 05:02 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/469888861.shtml)
+- 2026-06-30 04:55 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/1040666323.shtml)
+- 2026-06-30 04:59 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/3287859.shtml)
+- 2026-06-30 05:08 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/5790223.shtml)
+- 2026-06-30 04:57 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/37712031.shtml)
+- 2026-06-30 05:03 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/02424322927.shtml)

@@ -1,58 +1,53 @@
-# 中国官方：截至2025年底全国注册护士总量超606万
+# 苹果 iOS 27照片App升级“空间构图”技术，支持先拍照再调整视角
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新社北京5月11日电 中国国家卫生健康委员会网站11日公布了全国护理工作发展情况。据其介绍，截至2025年底，全国注册护士总量达到606.2万，较2020年增加约135万。 国家卫健委表示，护理工作是卫生健康事业的重要组成部分，护士队伍是卫生健康战线上一支重要力量，在维护人民健康、推进健康中国建设中发挥着重要作用。 关于中国护理工作发展取得的成效，国家卫健委表示，护士队伍不断
+专题：WWDC26苹果开发者大会 新浪科技讯 6月9日凌晨，苹果召开 WWDC26 全球开发者大会。据介绍，在macOS 27、iOS 27 系统中，苹果宣布为照片App引入“空间构图”技术，能够帮助用户先拍照再构图。具体来看，苹果利用设备端空间模型和基于专用云计算的空间模型，让照片变身为“3D 空间场景”，用户可以通过编辑后期自由放大、移动照片视角位置，支持所有照片，包括相机
 
 ## 正文
 
-中新社北京5月11日电 中国国家卫生健康委员会网站11日公布了全国护理工作发展情况。
+专题：WWDC26苹果开发者大会 新浪科技讯 6月9日凌晨，苹果召开 WWDC26 全球开发者大会。
 
-据其介绍，截至2025年底，全国注册护士总量达到606.2万，较2020年增加约135万。
+据介绍，在macOS 27、iOS 27 系统中，苹果宣布为照片App引入“空间构图”技术，能够帮助用户先拍照再构图。
 
-国家卫健委表示，护理工作是卫生健康事业的重要组成部分，护士队伍是卫生健康战线上一支重要力量，在维护人民健康、推进健康中国建设中发挥着重要作用。
+具体来看，苹果利用设备端空间模型和基于专用云计算的空间模型，让照片变身为“3D 空间场景”，用户可以通过编辑后期自由放大、移动照片视角位置，支持所有照片，包括相机拍摄的照片。
 
-关于中国护理工作发展取得的成效，国家卫健委表示，护士队伍不断发展壮大，截至2025年底，全国注册护士总量达到606.2万，较2020年增加约135万，增幅约29%，每千人口注册护士数从2020年的3.34人提升至2025年的4.32人。
-
-护士队伍专业素质能力不断提升，具有大专以上学历护士占比超过80%，康复、老年、儿科、重症监护、传染病等紧缺薄弱护理专业护士参加培训比例超过90%。
-
-护理服务持续优化，实施改善护理服务行动计划，全国二级及以上公立医院中，约94%开展优质护理服务，二级及以上医院提供延续性护理服务的病区占比超85%，解决患者出院后的常规护理、专病护理问题。
-
-一些医疗机构积极探索开展免陪照护服务试点，解决“一人住院、全家受累”的难题。
-
-护理内涵领域丰富拓展，加快落实老年护理发展举措，实施老年护理提升行动，扩大“互联网+护理服务”覆盖面、推动发展老年居家护理服务。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 05:01 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 04:58 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 04:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 04:50 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 04:39 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 04:59 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 04:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 04:47 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 04:38 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 04:45 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 04:43 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-30 04:45 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 05:10 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 05:05 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 04:46 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 05:05 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 04:54 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 04:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 05:11 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 04:46 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 05:09 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 04:52 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 04:50 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 05:10 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 04:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 04:43 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:51 - [绘画区你赢了](https://www.share.minike.top/Article/details/459994801308.shtml)
-- 2026-06-30 05:05 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/50037836.shtml)
-- 2026-06-30 04:45 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/1174453269.shtml)
-- 2026-06-30 05:02 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/34642632.shtml)
-- 2026-06-30 04:52 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/0237812.shtml)
-- 2026-06-30 04:40 - [女心理师](http://www.share.minike.top/Article/details/7015750.shtml)
-- 2026-06-30 05:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/757865.shtml)
-- 2026-06-30 04:39 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/990864834.shtml)
-- 2026-06-30 04:45 - [金牌调解](http://www.share.minike.top/Article/details/39003930.shtml)
-- 2026-06-30 05:05 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/98784930866.shtml)
-- 2026-06-30 04:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/13002.shtml)
-- 2026-06-30 04:54 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/281389.shtml)
-- 2026-06-30 04:47 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/858181935373.shtml)
-- 2026-06-30 04:56 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/291533570.shtml)
-- 2026-06-30 04:54 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/3050230337.shtml)
+- 2026-06-30 05:04 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/1112114.shtml)
+- 2026-06-30 05:07 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/46626395.shtml)
+- 2026-06-30 04:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/16479.shtml)
+- 2026-06-30 05:01 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/32673.shtml)
+- 2026-06-30 05:01 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/60165.shtml)
+- 2026-06-30 04:50 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/82127790938.shtml)
+- 2026-06-30 04:58 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/24427.shtml)
+- 2026-06-30 04:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/0217628729.shtml)
+- 2026-06-30 04:42 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/96962631.shtml)
+- 2026-06-30 04:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/13610370117.shtml)
+- 2026-06-30 04:49 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/221684431776.shtml)
+- 2026-06-30 04:43 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/4697081514.shtml)
+- 2026-06-30 05:07 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/706549622431.shtml)
+- 2026-06-30 05:00 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/5333278246.shtml)
+- 2026-06-30 05:00 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/48186179.shtml)

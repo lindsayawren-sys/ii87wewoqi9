@@ -1,60 +1,57 @@
-# 从一个人到一群人：海南自贸港的“人才引力”
+# Kimi估值飙升至300亿美元，已开启新一轮融资
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新网海口5月11日电 题：从一个人到一群人：海南自贸港的“人才引力” 中新网记者 张茜翼 一粒种子，只有扎根沃土，才能长成参天大树；一个人才，只有融入时代洪流，方能实现人生价值。 5月11日，在首届“聚四方之才·海南自贸港人才周”启动仪式上，七位人才代表分享他们在海南的奋斗故事。他们中，有归国学者、本土技能大师、国际院士，也有一线成长起来的青年才干。他们的经历，共同描绘出一幅
+6月8日，据每日经济新闻报道，大模型独角兽Kimi（月之暗面）已开启新一轮融资，投前估值达300亿美元，较上月大幅跃升。 Kimi是国内AGI企业月之暗面旗下AI助手。2025年末，月之暗面完成5亿美元C轮融资；今年2月中旬传出新一轮超7亿美元的融资即将完成交割的消息。另据科创板日报3月报道，月之暗面3月估值上升至180亿美元，在3个月内翻了4倍，并正在进行一轮10亿美元融资。
 
 ## 正文
 
-中新网海口5月11日电 题：从一个人到一群人：海南自贸港的“人才引力” 中新网记者 张茜翼 一粒种子，只有扎根沃土，才能长成参天大树；一个人才，只有融入时代洪流，方能实现人生价值。
+6月8日，据每日经济新闻报道，大模型独角兽Kimi（月之暗面）已开启新一轮融资，投前估值达300亿美元，较上月大幅跃升。
 
-5月11日，在首届“聚四方之才·海南自贸港人才周”启动仪式上，七位人才代表分享他们在海南的奋斗故事。
+Kimi是国内AGI企业月之暗面旗下AI助手。
 
-他们中，有归国学者、本土技能大师、国际院士，也有一线成长起来的青年才干。
+2025年末，月之暗面完成5亿美元C轮融资；今年2月中旬传出新一轮超7亿美元的融资即将完成交割的消息。
 
-他们的经历，共同描绘出一幅海南自贸港与人才相互成就的图景。
+另据科创板日报3月报道，月之暗面3月估值上升至180亿美元，在3个月内翻了4倍，并正在进行一轮10亿美元融资。
 
-科研舞台：从实验室到深海 “选择海南，就是选择未来。
+天眼查App显示，月之暗面C轮融资资方阵容包括IDG资本、阿里巴巴、腾讯等多家头部产业方与投资机构。
 
-”海南大学副校长陈骏在发言中说。
+2026年2月完成的超7亿美元融资，投资方包括阿里巴巴、五源资本、高榕创投、九安医疗、腾讯等。
 
-这位国家杰青、原北京科技大学的教授，于2022年南下海南。
+5月初，又有媒体报道称，Kimi即将完成新一轮20亿美元融资，投后估值突破200亿美元。
 
-其团队深耕固体化学与新材料前沿领域，聚焦深海、航天等方向开展科研攻关、服务产业发展，成功将热膨胀调控新技术首次应用于中国首颗可重复使用的返回式技术试验卫星——实践十九号卫星，有力支撑海南省50公斤级空间育种试验。
+当时的报道显示，本轮融资将由美团龙珠领投，中国移动、CPE（中信产业基金）等参投，其中龙珠出手超2亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 05:01 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 04:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 04:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 04:46 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 04:44 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 04:43 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 04:53 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 04:46 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-30 04:59 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 04:41 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 04:48 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 04:49 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 04:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 04:56 - [《共患难》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 05:02 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 04:55 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 05:05 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 05:03 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 04:57 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 04:59 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 04:57 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 04:52 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 05:12 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 05:09 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:50 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/341651396.shtml)
-- 2026-06-30 04:53 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/79981.shtml)
-- 2026-06-30 04:48 - [安切洛蒂 换人](https://www.blog.kurohicncr.top/Article/details/2872886.shtml)
-- 2026-06-30 04:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/9245200.shtml)
-- 2026-06-30 04:48 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/766575.shtml)
-- 2026-06-30 04:54 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/868364.shtml)
-- 2026-06-30 04:55 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/452301559.shtml)
-- 2026-06-30 04:55 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/8939349.shtml)
-- 2026-06-30 04:50 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/865578032138.shtml)
-- 2026-06-30 04:58 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/060718603733.shtml)
-- 2026-06-30 04:43 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/643130.shtml)
-- 2026-06-30 05:00 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/1428334.shtml)
-- 2026-06-30 04:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/53400.shtml)
-- 2026-06-30 04:38 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/1992550361.shtml)
-- 2026-06-30 04:53 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/749668445415.shtml)
+- 2026-06-30 04:53 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/65339.shtml)
+- 2026-06-30 04:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/0732295.shtml)
+- 2026-06-30 05:00 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/03914.shtml)
+- 2026-06-30 04:49 - [极限挑战第一季](https://www.share.minike.top/Article/details/1100036.shtml)
+- 2026-06-30 04:56 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/8533434794.shtml)
+- 2026-06-30 05:04 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/964448.shtml)
+- 2026-06-30 04:58 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/5478039.shtml)
+- 2026-06-30 04:53 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/2075166.shtml)
+- 2026-06-30 04:58 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/833174.shtml)
+- 2026-06-30 04:44 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/1524440228.shtml)
+- 2026-06-30 04:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/4088067.shtml)
+- 2026-06-30 04:43 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/1851224925.shtml)
+- 2026-06-30 05:09 - [毒液2](https://www.share.kurohicncr.top/Article/details/812739368963.shtml)
+- 2026-06-30 04:45 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/07381078.shtml)
+- 2026-06-30 05:04 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/3435828551.shtml)

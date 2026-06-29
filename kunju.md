@@ -1,57 +1,55 @@
-# 贤丰控股已有案件立案，曾因财务造假被罚
+# 中港石油早盘高开14% 拟折让约16.0%配股净筹约1735万港元
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2025年6月，贤丰控股（维权）因财务造假收到广东证监局下发的《行政处罚决定书》。上海沪紫律师事务所刘鹏律师团队代理的数百位投资者维权案件已陆续递交立案，目前维权还可报名加入。 依据相关法律法规符合于2023年4月28日-2024年4月25日（含当日）之前买入，并在2024年4月26日之后卖出或仍持有而亏损的可加入索赔。（贤丰控
+中港石油（00632）早盘高开14%，截至发稿，股价上涨14%，报0.285港元，成交额11.06万港元。 中港石油发布公告，于2026年6月5日（交易时段后），本公司与配售代理订立配售协议，据此，配售代理有条件同意作为本公司代理按尽力基准促使不少于六名承配人（彼等及彼等的最终实益拥有人须为独立第三方）认购不超过8700万股配售股份，配售价为每股配售股份0.21港元。配售股份将
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2025年6月，贤丰控股（维权）因财务造假收到广东证监局下发的《行政处罚决定书》。
+中港石油（00632）早盘高开14%，截至发稿，股价上涨14%，报0.285港元，成交额11.06万港元。
 
-上海沪紫律师事务所刘鹏律师团队代理的数百位投资者维权案件已陆续递交立案，目前维权还可报名加入。
+中港石油发布公告，于2026年6月5日（交易时段后），本公司与配售代理订立配售协议，据此，配售代理有条件同意作为本公司代理按尽力基准促使不少于六名承配人（彼等及彼等的最终实益拥有人须为独立第三方）认购不超过8700万股配售股份，配售价为每股配售股份0.21港元。
 
-依据相关法律法规符合于2023年4月28日-2024年4月25日（含当日）之前买入，并在2024年4月26日之后卖出或仍持有而亏损的可加入索赔。
+配售股份将根据本公司于2025年6月27日举行的股东周年大会上授予董事的一般授权配发及发行。
 
-（贤丰控股维权入口） 经查明，其涉嫌的信息披露违法违规的事实为公司披露的2023年一季度报告、半年度报告存在虚假记载以及2023年三季度报告存在虚假记载。
+配售股份相当于于本公布日期全部现有已发行股份约10.01%；及经配发及发行配售股份扩大的全部已发行股份约9.10%（假设自本公布日期至完成日期期间，除发行配售股份之外，已发行股份总数概无变动）。
 
-直到2024年4月，公司发布《关于前期会计差错更正的公告》，对相关财务报表进行了更正调整。
+每股配售股份的配售价为0.21港元，较于配售协议日期在联交所所报收市价每股0.25港元折让约16.0%。
 
-具体来看，2023年3月至9月，公司控股子公司成都史纪通过虚构订单、发货凭证，将部分猪疫苗预收账款提前确认为收入，后再予冲回，导致2023年一季度报告、半年度报告造假。
-
-2023年下半年，成都史纪通过开展猪疫苗虚假销售业务虚增收入，并虚构业务回款和管理费用等，导致2023年三季度报告存在造假。
-
-符合索赔条件的投资者应尽快行动起来，切勿错过维权时机。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 04:56 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 04:56 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 04:46 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 04:43 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 04:45 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 04:53 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 04:51 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 04:58 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 04:43 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 04:38 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 04:45 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 05:02 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 04:58 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 04:50 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 04:49 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 04:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 05:03 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 04:42 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 05:04 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 04:46 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 05:03 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 05:10 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 05:01 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:44 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/19112717.shtml)
-- 2026-06-30 04:54 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/061308.shtml)
-- 2026-06-30 05:01 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/11276351.shtml)
-- 2026-06-30 04:41 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/0807975.shtml)
-- 2026-06-30 04:55 - [世界杯](http://www.share.kurohicncr.top/Article/details/57099.shtml)
-- 2026-06-30 04:58 - [点菜也要教吗](http://www.blog.minike.top/Article/details/8752411727.shtml)
-- 2026-06-30 04:54 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/212340449.shtml)
-- 2026-06-30 04:40 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/20374035.shtml)
-- 2026-06-30 05:00 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/628421545567.shtml)
-- 2026-06-30 04:50 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/326865.shtml)
-- 2026-06-30 04:54 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/78548.shtml)
-- 2026-06-30 04:40 - [周生如故](http://www.blog.kurohicncr.top/Article/details/1475027288.shtml)
-- 2026-06-30 05:05 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/4773706.shtml)
-- 2026-06-30 04:52 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/4850372208.shtml)
-- 2026-06-30 04:53 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/42533.shtml)
+- 2026-06-30 05:04 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/571269215.shtml)
+- 2026-06-30 04:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/0962008.shtml)
+- 2026-06-30 05:06 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/2840642103.shtml)
+- 2026-06-30 04:47 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/593076.shtml)
+- 2026-06-30 05:02 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/83024625981.shtml)
+- 2026-06-30 04:50 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/24251.shtml)
+- 2026-06-30 04:49 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/15311547610.shtml)
+- 2026-06-30 05:05 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/5515966435.shtml)
+- 2026-06-30 05:04 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/168495941.shtml)
+- 2026-06-30 05:11 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/95257.shtml)
+- 2026-06-30 04:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/561329.shtml)
+- 2026-06-30 05:07 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/2798509.shtml)
+- 2026-06-30 05:08 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/7182623918.shtml)
+- 2026-06-30 05:04 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/65814938.shtml)
+- 2026-06-30 05:03 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/35713.shtml)

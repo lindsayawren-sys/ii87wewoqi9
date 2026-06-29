@@ -1,59 +1,60 @@
-# 九号公司业绩深陷颓势、新国标下非法改装钻漏洞问题犹存 实控人去年高点“精准减持”落袋近8亿
+# 向日葵（300111）股民索赔再提交立案，上海易连（600836）索赔案再获得法院立案
 
-> 更新时间：2026-06-30 05:06:03 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：cici 2025年，国内电动两轮车市场在以旧换新政策与新国标切换的双重驱动下，整体呈现增长态势，奥维云网数据显示，全年市场生产规模达6316万台，同比增长14.8%。在此行业背景下，雅迪控股、爱玛科技、九号公司、绿源集团、新日股份、小牛电动6家主流上市公司业绩呈现分化态
+2026年6月3日，上海久诚律师事务所股票索赔律师许峰代理的向日葵（维权）（300111）虚假陈述投资者索赔案再向绍兴市中级人民法院提交一次立案。（许峰律师专栏） 此前许峰律师代理的向日葵投资者索赔案已获得绍兴市中级人民法院立案，目前正在等待法院的下一步安排。律师团队目前还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2026年4月8日晚，向日葵公告收到浙江
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+2026年6月3日，上海久诚律师事务所股票索赔律师许峰代理的向日葵（维权）（300111）虚假陈述投资者索赔案再向绍兴市中级人民法院提交一次立案。
 
-出品：新浪财经上市公司研究院 作者：cici 2025年，国内电动两轮车市场在以旧换新政策与新国标切换的双重驱动下，整体呈现增长态势，奥维云网数据显示，全年市场生产规模达6316万台，同比增长14.8%。
+（许峰律师专栏） 此前许峰律师代理的向日葵投资者索赔案已获得绍兴市中级人民法院立案，目前正在等待法院的下一步安排。
 
-在此行业背景下，雅迪控股、爱玛科技、九号公司、绿源集团、新日股份、小牛电动6家主流上市公司业绩呈现分化态势，多数企业实现营收利润双增长，但这一增长态势并未延续到2026年。
+律师团队目前还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-2026年一季度，国内电动自行车行业受新国标落地、原材料价格高位、市场需求观望及监管趋严等多重因素影响，整体呈现“销量下滑、盈利收缩”的态势，6家上市公司仅有3家已披露2026年第一季度业绩。
+2026年4月8日晚，向日葵公告收到浙江证监局出具的《行政处罚决定书》，经查明，当事人存在以下违法事实： 2025年9月22日，向日葵披露《发行股份及支付现金购买资产并募集配套资金暨关联交易预案》，称公司拟通过发行股份及支付现金的方式购买漳州兮璞材料科技有限公司（以下简称兮璞材料）100%股权、浙江贝得药业有限公司40%股权，并募集配套资金，交易预计构成重大资产重组。
 
-其中，九号公司是唯一实现营收同比正增长的企业，但利润大幅腰斩。
+《预案》披露兮璞材料的主要盈利模式为“定制化代工+自主生产”相结合。
 
-2026年Q1，九号公司共实现营业总收入58.70亿元，同比增长14.82%；归母净利润2.03亿元，同比下降55.42%；扣非归母净利润1.74亿元，同比下降60.14%，盈利水平显著回落。
+截至披露日，兮璞材料自有工厂仍在建、尚不具备自主生产能力，且主要产品系标准化产品，前述主要盈利模式存在误导性陈述。
 
-2025年Q4亏损业绩转颓、2026年Q1归母净利润跌超55% 若仅从全年业绩表现来看，九号公司2025年业绩不可谓不耀眼。
+《预案》披露后，向日葵股价连续3个交易日涨停、成交量显著放大。
 
-电动两轮车业务全年销量达409万台，实现营收118.6亿元，同比增长64.5%。
+2025年12月26日，深圳证券交易所针对前述《预案》事项向公司下发《关注函》。
 
 ## 相关推荐
 
-- 2026-06-30 05:03 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 04:58 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 04:45 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 04:37 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 04:51 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 04:58 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 04:48 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 04:54 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 04:45 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 05:01 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 04:44 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-30 04:46 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 04:55 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 04:52 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 05:10 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 05:10 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 05:06 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 05:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 04:59 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 05:10 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 05:08 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 05:08 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 04:50 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 04:47 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 05:08 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 05:00 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 04:54 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/27830623.shtml)
-- 2026-06-30 04:47 - [毒液2](http://www.blog.minike.top/Article/details/18273614757.shtml)
-- 2026-06-30 04:50 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/4404184.shtml)
-- 2026-06-30 04:36 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/32921.shtml)
-- 2026-06-30 04:48 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/247974.shtml)
-- 2026-06-30 04:46 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/8874565.shtml)
-- 2026-06-30 04:36 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/20428680.shtml)
-- 2026-06-30 04:59 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/6178205.shtml)
-- 2026-06-30 04:37 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/6475788.shtml)
-- 2026-06-30 04:40 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/35184178365.shtml)
-- 2026-06-30 05:05 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/19257553.shtml)
-- 2026-06-30 04:58 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/4094518449.shtml)
-- 2026-06-30 05:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/92857717.shtml)
-- 2026-06-30 04:48 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/92813.shtml)
-- 2026-06-30 04:46 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/939739093739.shtml)
+- 2026-06-30 04:57 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/45511.shtml)
+- 2026-06-30 04:52 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/767795539955.shtml)
+- 2026-06-30 05:05 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/75153174.shtml)
+- 2026-06-30 04:50 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/28880993.shtml)
+- 2026-06-30 04:57 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/97242.shtml)
+- 2026-06-30 04:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/2836048289.shtml)
+- 2026-06-30 05:06 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/180006801646.shtml)
+- 2026-06-30 05:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/18957625558.shtml)
+- 2026-06-30 04:44 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/2118702908.shtml)
+- 2026-06-30 04:48 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/7426633697.shtml)
+- 2026-06-30 04:45 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/93693.shtml)
+- 2026-06-30 04:49 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/310439434000.shtml)
+- 2026-06-30 05:11 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/181497948171.shtml)
+- 2026-06-30 04:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/936376.shtml)
+- 2026-06-30 04:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/139271208.shtml)

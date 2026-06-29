@@ -1,56 +1,55 @@
-# 赵乐际会见塔吉克斯坦总统拉赫蒙
+# 菲律宾棉兰老岛近海发生7.8级地震 菲总统宣布受灾地区学校停课
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-新华社北京5月12日电 全国人大常委会委员长赵乐际5月12日在北京会见塔吉克斯坦总统拉赫蒙。 赵乐际表示，在习近平主席和总统先生的战略引领下，中塔关系实现跨越式发展。中方愿同塔方一道，以两国元首重要共识为根本遵循，深化战略互信，扩大务实合作，推动中国－中亚合作高质量发展，构建世代友好、休戚与共、互利共赢的中塔命运共同体。中国全国人大愿同塔吉克斯坦议会加强交流合作，为中塔关系长期
+中新网马尼拉6月8日电 (记者 张兴龙)菲律宾南部棉兰老岛附近海域8日发生7.8级地震。菲律宾总统马科斯当天发表声明宣布，受灾地区各级学校停课，直至另行通知。 马科斯说，他已指示国家减灾管理委员会、社会福利与发展部以及公共工程和公路部等部门立即开展救灾工作。 此次强震还引发海啸预警。马科斯敦促处于海啸预警区域的居民立即转移至高地，并遵守地方政府发布的安全指令。(完)
 
 ## 正文
 
-新华社北京5月12日电 全国人大常委会委员长赵乐际5月12日在北京会见塔吉克斯坦总统拉赫蒙。
+中新网马尼拉6月8日电 (记者 张兴龙)菲律宾南部棉兰老岛附近海域8日发生7.8级地震。
 
-赵乐际表示，在习近平主席和总统先生的战略引领下，中塔关系实现跨越式发展。
+菲律宾总统马科斯当天发表声明宣布，受灾地区各级学校停课，直至另行通知。
 
-中方愿同塔方一道，以两国元首重要共识为根本遵循，深化战略互信，扩大务实合作，推动中国－中亚合作高质量发展，构建世代友好、休戚与共、互利共赢的中塔命运共同体。
+马科斯说，他已指示国家减灾管理委员会、社会福利与发展部以及公共工程和公路部等部门立即开展救灾工作。
 
-中国全国人大愿同塔吉克斯坦议会加强交流合作，为中塔关系长期健康稳定发展提供法治保障。
+此次强震还引发海啸预警。
 
-拉赫蒙表示，塔方坚定恪守一个中国原则，完全支持习近平主席提出的四大全球倡议。
+马科斯敦促处于海啸预警区域的居民立即转移至高地，并遵守地方政府发布的安全指令。
 
-塔方为中国在现代化建设中取得的伟大成就感到高兴，愿加强政治、经济、文化等各领域务实合作，深化立法机构交流，不断增进两国人民友好感情。
-
-铁凝参加会见。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:05 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 05:02 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 04:58 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 05:03 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 05:05 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 05:02 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 04:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 04:44 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 04:55 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 04:51 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 04:56 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 04:36 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 05:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 04:54 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 05:03 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 04:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 04:48 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 05:10 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 04:49 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 04:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 04:58 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-30 05:09 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 04:57 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 05:02 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 05:00 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/59334.shtml)
-- 2026-06-30 04:52 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/37605958969.shtml)
-- 2026-06-30 04:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/937332.shtml)
-- 2026-06-30 04:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/096337.shtml)
-- 2026-06-30 04:56 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/776975764126.shtml)
-- 2026-06-30 04:38 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/88749443685.shtml)
-- 2026-06-30 04:52 - [扬名立万](https://www.share.kurohicncr.top/Article/details/7520698.shtml)
-- 2026-06-30 04:38 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/561521236330.shtml)
-- 2026-06-30 04:51 - [《贺子珍》](http://www.share.minike.top/Article/details/584857931.shtml)
-- 2026-06-30 04:39 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/300207640.shtml)
-- 2026-06-30 04:47 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/8768275.shtml)
-- 2026-06-30 04:58 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/81571908793.shtml)
-- 2026-06-30 05:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/7720574897.shtml)
-- 2026-06-30 04:50 - [《共患难》](http://www.share.kurohicncr.top/Article/details/533337065.shtml)
-- 2026-06-30 05:00 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/61443151573.shtml)
+- 2026-06-30 04:48 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/13372027.shtml)
+- 2026-06-30 04:51 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/13814161702.shtml)
+- 2026-06-30 04:57 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/645274.shtml)
+- 2026-06-30 05:02 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/1804534.shtml)
+- 2026-06-30 05:01 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/195373380.shtml)
+- 2026-06-30 04:48 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/93506985.shtml)
+- 2026-06-30 05:03 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/55357.shtml)
+- 2026-06-30 04:47 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/8268441329.shtml)
+- 2026-06-30 05:06 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/858137844.shtml)
+- 2026-06-30 04:46 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/760995.shtml)
+- 2026-06-30 04:54 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/006927.shtml)
+- 2026-06-30 05:08 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/576517.shtml)
+- 2026-06-30 04:45 - [沙丘](https://www.blog.kurohicncr.top/Article/details/6823581449.shtml)
+- 2026-06-30 04:42 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/60472702892.shtml)
+- 2026-06-30 05:00 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/29547019973.shtml)

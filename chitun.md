@@ -1,45 +1,61 @@
-# 黄金股早盘普遍上扬 中国黄金国际涨超3%紫金矿业涨超2%
+# 刚刚，又熔断了！全线暴跌，“黑色星期一”？
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-黄金股早盘普遍上扬，截至发稿，中国黄金国际（02099）上涨3.29%，报178.80港元；紫金矿业（02899）上涨2.33%，报38.66港元；紫金黄金国际（02259）上涨1.22%，报166港元；赤峰黄金（06693）上涨1.84%，报42.04港元。责任编辑：卢昱君
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！黑色星期一。 6月8日，亚太股市全线重挫。韩国KOSDAQ指数午后暴跌8%，触发熔断机制，交易暂停20分钟，恢复交易后，跌幅继续扩大。当天上午，韩国KOSPI指数盘初跌超8%，韩国交易所因KOSPI指数大跌触发熔断机制，交易暂停20分钟。 日经225指数亦大幅下挫，截至发稿，跌超4%。此外，MSCI越南指数
 
 ## 正文
 
-黄金股早盘普遍上扬，截至发稿，中国黄金国际（02099）上涨3.29%，报178.80港元；紫金矿业（02899）上涨2.33%，报38.66港元；紫金黄金国际（02259）上涨1.22%，报166港元；赤峰黄金（06693）上涨1.84%，报42.04港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-责任编辑：卢昱君
+黑色星期一。
+
+6月8日，亚太股市全线重挫。
+
+韩国KOSDAQ指数午后暴跌8%，触发熔断机制，交易暂停20分钟，恢复交易后，跌幅继续扩大。
+
+当天上午，韩国KOSPI指数盘初跌超8%，韩国交易所因KOSPI指数大跌触发熔断机制，交易暂停20分钟。
+
+日经225指数亦大幅下挫，截至发稿，跌超4%。
+
+此外，MSCI越南指数下跌超2%，印尼综指下跌超2%，MSCI亚洲新兴市场指数下跌4%。
+
+A股、港股亦大幅走低，午后加速下跌。
 
 ## 相关推荐
 
-- 2026-06-30 05:01 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 04:41 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 05:04 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 04:58 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 05:04 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 04:40 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 04:40 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 04:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 04:48 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 04:57 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 04:41 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 05:10 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 04:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 04:42 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 05:00 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 04:53 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 04:45 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 04:49 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 04:43 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 05:09 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 04:46 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 04:50 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 04:46 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 04:57 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 05:07 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 05:06 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:51 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/3060246152.shtml)
-- 2026-06-30 04:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/15586065.shtml)
-- 2026-06-30 04:55 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/3656072.shtml)
-- 2026-06-30 05:04 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/128490.shtml)
-- 2026-06-30 04:42 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/2549090654.shtml)
-- 2026-06-30 04:46 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/1359721.shtml)
-- 2026-06-30 05:01 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/828435.shtml)
-- 2026-06-30 04:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/555811.shtml)
-- 2026-06-30 05:02 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/19577179009.shtml)
-- 2026-06-30 04:46 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/801878.shtml)
-- 2026-06-30 04:58 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/48424955721.shtml)
-- 2026-06-30 04:53 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/69182656.shtml)
-- 2026-06-30 05:02 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/83996170.shtml)
-- 2026-06-30 04:45 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/67186356.shtml)
-- 2026-06-30 04:53 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/60398.shtml)
+- 2026-06-30 04:50 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/49036.shtml)
+- 2026-06-30 04:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/13029190.shtml)
+- 2026-06-30 05:10 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/02536909.shtml)
+- 2026-06-30 04:59 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/025090.shtml)
+- 2026-06-30 05:10 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/05126.shtml)
+- 2026-06-30 05:09 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/18467970.shtml)
+- 2026-06-30 04:49 - [巴西绝杀日本](https://www.share.minike.top/Article/details/599848626671.shtml)
+- 2026-06-30 05:04 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/835372520.shtml)
+- 2026-06-30 05:04 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/541880122.shtml)
+- 2026-06-30 05:08 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/11563655530.shtml)
+- 2026-06-30 04:49 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/886623594.shtml)
+- 2026-06-30 04:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/021122922137.shtml)
+- 2026-06-30 05:09 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/6532056.shtml)
+- 2026-06-30 04:59 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/55712394.shtml)
+- 2026-06-30 04:46 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/844700843278.shtml)

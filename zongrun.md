@@ -1,57 +1,59 @@
-# 云评论 | 让子弹飞一会——秘鲁能源危机安全法
+# Bending Spoons递交赴美上市申请
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-紫金天风期货研究所 引言 秘鲁政府于2026年5月11日签署并在官方日报公布《第003-2026号能源危机紧急法令》。该法令旨在应对国内能源供应紧张，优先保障民生用电，矿山等工业用电面临限电风险，通过国家财政担保（最高25亿美元）和金融创新工具（特殊目的载体+信托），确保国有石油公司Petroperu能够持续运营，维护国家能源安全。该法案公布后，市场预期将冲击全球银、铜供应预期
+该意大利集团接连收购多家美国老牌互联网企业，计划继续大举并购 意大利综合企业 Bending Spoons 已向美国递交上市招股书，计划赴美 IPO 募资，用于持续开展收购。此前该公司已接连收购多家美国老牌互联网公司，包括美国在线（AOL）、活动票务平台 Eventbrite、笔记软件印象笔记（Evernote）以及视频平台 Vimeo。 招股文件显示，受密集收购动作推动，Be
 
 ## 正文
 
-紫金天风期货研究所 引言 秘鲁政府于2026年5月11日签署并在官方日报公布《第003-2026号能源危机紧急法令》。
+该意大利集团接连收购多家美国老牌互联网企业，计划继续大举并购 意大利综合企业 Bending Spoons 已向美国递交上市招股书，计划赴美 IPO 募资，用于持续开展收购。
 
-该法令旨在应对国内能源供应紧张，优先保障民生用电，矿山等工业用电面临限电风险，通过国家财政担保（最高25亿美元）和金融创新工具（特殊目的载体+信托），确保国有石油公司Petroperu能够持续运营，维护国家能源安全。
+此前该公司已接连收购多家美国老牌互联网公司，包括美国在线（AOL）、活动票务平台 Eventbrite、笔记软件印象笔记（Evernote）以及视频平台 Vimeo。
 
-该法案公布后，市场预期将冲击全球银、铜供应预期，直接导致了昨晚开始的有色、贵金属期货行情。
+招股文件显示，受密集收购动作推动，Bending Spoons 2025 年营收同比翻倍，达到 13 亿美元；2026 年第一季度营收再度同比翻番，录得 6.01 亿美元。
 
-秘鲁禁令的原文到底是什么？
+自去年以来，公司斥资 33 亿美元收购 AOL、Eventbrite 与 Vimeo，收购资金主要来源于借贷。
 
-从国内各大媒体及分析报告来看，昨晚第一时间给到的法案中文内容基本仅提及发布禁令及其目的。
+2026 年一季度，Bending Spoons 实现营业利润 1.2 亿美元，而去年同期为营业亏损 460 万美元。
 
-从秘鲁本身来看，该国和新品种奉献主要为钼（15%）、白银（13.85%）、铜（11.74%）、锌（11.54%）及锡（11.38%）。
+招股书披露，AOL 在被收购时盈利状况稳健：2025 年 AOL 营收 6.33 亿美元，营业利润达 3.336 亿美元，Bending Spoons 为这笔收购支付了 14.54 亿美元。
 
-从西班牙语的原文来看，全文并未提及与有色金属或贵金属市场的相关论点。
-
-但由于其在有色、贵金属等占比居多，市场资金先行入市，造就了本次价格的上涨。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 05:01 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 04:50 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 04:39 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 04:49 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 04:51 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 04:59 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 04:48 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 05:04 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 04:45 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 04:38 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 04:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 04:54 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 04:46 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 05:06 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 04:48 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 05:00 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 04:47 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 04:48 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 04:42 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 05:02 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 04:58 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 04:49 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 04:55 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 05:03 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 04:45 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 04:52 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:43 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/93004.shtml)
-- 2026-06-30 04:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/3551299.shtml)
-- 2026-06-30 04:57 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/42437003.shtml)
-- 2026-06-30 04:43 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/3737119509.shtml)
-- 2026-06-30 04:39 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/176165499962.shtml)
-- 2026-06-30 05:05 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/3898553235.shtml)
-- 2026-06-30 04:40 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/470024243.shtml)
-- 2026-06-30 05:05 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/6238754393.shtml)
-- 2026-06-30 04:44 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/750420193041.shtml)
-- 2026-06-30 04:57 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/5086626278.shtml)
-- 2026-06-30 04:55 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/471841.shtml)
-- 2026-06-30 04:45 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/83979.shtml)
-- 2026-06-30 05:01 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/608932759.shtml)
-- 2026-06-30 04:47 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/70474686.shtml)
-- 2026-06-30 05:05 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/885533700262.shtml)
+- 2026-06-30 04:53 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/220697921.shtml)
+- 2026-06-30 05:07 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/2106614630.shtml)
+- 2026-06-30 04:49 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/304374.shtml)
+- 2026-06-30 04:57 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/14229.shtml)
+- 2026-06-30 04:59 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/43337.shtml)
+- 2026-06-30 04:45 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/588710487761.shtml)
+- 2026-06-30 04:56 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/555273330.shtml)
+- 2026-06-30 05:06 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/799629607933.shtml)
+- 2026-06-30 04:57 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/84831.shtml)
+- 2026-06-30 04:52 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/4805060175.shtml)
+- 2026-06-30 05:11 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/309086002.shtml)
+- 2026-06-30 05:04 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/58582150.shtml)
+- 2026-06-30 04:57 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/753276.shtml)
+- 2026-06-30 04:51 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/319645812.shtml)
+- 2026-06-30 04:55 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/386996.shtml)

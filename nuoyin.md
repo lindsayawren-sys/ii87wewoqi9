@@ -1,59 +1,58 @@
-# 滇藏公路通车50周年：缅怀筑路先烈
+# 国际航空运输协会：燃油成本暴涨千亿美元，今年全球航司利润或将腰斩
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新网迪庆5月12日电 (记者 缪超 刘冉阳 杜潇潇)今年是滇藏公路通车50周年。12日，云南迪庆公路局组织青年职工，走进位于迪庆藏族自治州香格里拉市的公路陵园，缅怀为修筑这条公路而牺牲的先烈。 滇藏公路的修建始于1950年，旨在支援解放军进藏，巩固国防、开发边疆。经过26年艰苦卓绝的建设，1976年，全长700多公里的滇藏现代公路正式通车。公路起于云南大理，在西藏芒康与川藏公
+核心要点 国际航空运输协会发出预警：航煤油价持续走高挤压行业盈利空间，2026 年全球航空公司利润或将直接减半。 国际航协即将卸任总干事威利・沃尔什表示，2 月 28 日美伊冲突爆发后，原油与航煤油价大幅飙升；过去数年航空业本就接连遭遇新冠疫情、乌克兰战争多重打击，如今又新增一大难题。 沃尔什在周日发布的《全球航空运输业现状报告》中称：“预计今年航油均价同比大涨 70%，全行业
 
 ## 正文
 
-中新网迪庆5月12日电 (记者 缪超 刘冉阳 杜潇潇)今年是滇藏公路通车50周年。
+核心要点 国际航空运输协会发出预警：航煤油价持续走高挤压行业盈利空间，2026 年全球航空公司利润或将直接减半。
 
-12日，云南迪庆公路局组织青年职工，走进位于迪庆藏族自治州香格里拉市的公路陵园，缅怀为修筑这条公路而牺牲的先烈。
+国际航协即将卸任总干事威利・沃尔什表示，2 月 28 日美伊冲突爆发后，原油与航煤油价大幅飙升；过去数年航空业本就接连遭遇新冠疫情、乌克兰战争多重打击，如今又新增一大难题。
 
-滇藏公路的修建始于1950年，旨在支援解放军进藏，巩固国防、开发边疆。
+沃尔什在周日发布的《全球航空运输业现状报告》中称：“预计今年航油均价同比大涨 70%，全行业全年燃油账单将因此多支出 1000 亿美元。
 
-经过26年艰苦卓绝的建设，1976年，全长700多公里的滇藏现代公路正式通车。
+” 他表示，出行需求依旧坚挺，航司正在上调机票价格转嫁成本，但行业增长速度必然放缓。
 
-公路起于云南大理，在西藏芒康与川藏公路相接。
+“综合所有因素判断，今年行业利润将较 2025 年腰斩。
 
-通车后，这条公路将沿线汉族、白族、彝族、纳西族、藏族、傈僳族等多民族聚居的城镇与村庄串联在一起。
+2026 年行业净利润将从 450 亿美元跌至 230 亿美元，净利润率从 4.2% 下滑至 2.0%。
 
-各民族依路而生、因路相连，在不同海拔的流转中和谐发展、亲如兄弟。
+” 沃尔什补充道。
 
-曾经物资匮乏、教育落后的沿线地区，如今文旅产业兴起、学子顺利求学、货运畅通增收。
+沃尔什指出，两类航司受冲击最为严重：一是资产负债表尚未从疫情中恢复的企业，二是海湾地区航司。
 
 ## 相关推荐
 
-- 2026-06-30 04:43 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 04:37 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 04:53 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 04:43 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 04:56 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 05:02 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 05:04 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 04:43 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 04:49 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 04:37 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 04:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 04:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 04:39 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 04:50 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 05:05 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 04:47 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 04:44 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 04:52 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 05:03 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 05:08 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 05:12 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 04:50 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 05:08 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 04:47 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 05:11 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/7020879770.shtml)
-- 2026-06-30 04:42 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/3162323.shtml)
-- 2026-06-30 04:40 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/19629.shtml)
-- 2026-06-30 04:59 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/857666625.shtml)
-- 2026-06-30 05:00 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/67327290041.shtml)
-- 2026-06-30 05:02 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/3393514.shtml)
-- 2026-06-30 05:04 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/000019543466.shtml)
-- 2026-06-30 05:01 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/5403507458.shtml)
-- 2026-06-30 05:05 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/40045.shtml)
-- 2026-06-30 04:44 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/9590394836.shtml)
-- 2026-06-30 05:00 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/816862311.shtml)
-- 2026-06-30 04:37 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/2570291284.shtml)
-- 2026-06-30 04:42 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/27602.shtml)
-- 2026-06-30 04:51 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/795521792993.shtml)
-- 2026-06-30 04:45 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/007362403245.shtml)
+- 2026-06-30 04:52 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/764836.shtml)
+- 2026-06-30 05:10 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/823494.shtml)
+- 2026-06-30 04:59 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/877485.shtml)
+- 2026-06-30 04:53 - [我和我的家乡](https://www.share.minike.top/Article/details/8175080.shtml)
+- 2026-06-30 04:43 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/156278506.shtml)
+- 2026-06-30 04:51 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/09839880291.shtml)
+- 2026-06-30 04:44 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/442423110.shtml)
+- 2026-06-30 04:59 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/20706.shtml)
+- 2026-06-30 05:06 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/0614020249.shtml)
+- 2026-06-30 05:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/35429.shtml)
+- 2026-06-30 04:54 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/208203267.shtml)
+- 2026-06-30 04:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/498608354660.shtml)
+- 2026-06-30 04:48 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/781911266.shtml)
+- 2026-06-30 04:49 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/06607.shtml)
+- 2026-06-30 04:53 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/654037930003.shtml)

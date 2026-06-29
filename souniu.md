@@ -1,61 +1,60 @@
-# “魔豆妈妈”公益项目20周年 已帮助近3万名女性实现就业创业
+# 友谊关海关关于2026年防疫物资采购（GXGL2026M-X274-Z）的竞争性协商公告
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新网北京5月11日电 (记者 张素)今年是“魔豆妈妈”项目实施20周年。记者采访获悉，截至目前，项目通过“资金支持+技能培训+岗位供给”的一站式模式，累计帮助近3万名女性实现就业创业。 今年5月10日是母亲节，“魔豆妈妈”公益项目20周年系列主题活动首场深度对话在北京举行。 据介绍，“魔豆妈妈”公益项目由中国红十字会总会联合阿里巴巴于2006年发起，中国红十字基金会淘宝公益基
+友谊关海关委托广西国力招标有限公司，对友谊关海关2026年防疫物资采购项目(GXGL2026M-X274-Z)进行竞争性协商采购，欢迎符合条件的供应商前来参加协商活动，现将有关事项公告如下： 一、项目基本情况 1.项目编号：GXGL2026M-X274-Z 2.项目名称：友谊关海关2026年防疫物资采购3.采购方式：竞争性协商 4.预算金额：人民币26.2007万元 5.最高限
 
 ## 正文
 
-中新网北京5月11日电 (记者 张素)今年是“魔豆妈妈”项目实施20周年。
+友谊关海关委托广西国力招标有限公司，对友谊关海关2026年防疫物资采购项目(GXGL2026M-X274-Z)进行竞争性协商采购，欢迎符合条件的供应商前来参加协商活动，现将有关事项公告如下： 一、项目基本情况 1.项目编号：GXGL2026M-X274-Z 2.项目名称：友谊关海关2026年防疫物资采购3.采购方式：竞争性协商 4.预算金额：人民币26.2007万元 5.最高限价：人民币26.2007万元 6.项目类型：非政府采购项目 7.采购需求：医学排查负压室防护套件1批、样品采集1批、快检业务1批，消毒用品1批。
 
-记者采访获悉，截至目前，项目通过“资金支持+技能培训+岗位供给”的一站式模式，累计帮助近3万名女性实现就业创业。
+如需进一步了解详细内容，详见竞争性协商文件。
 
-今年5月10日是母亲节，“魔豆妈妈”公益项目20周年系列主题活动首场深度对话在北京举行。
+8.本项目不接受联合体协商。
 
-据介绍，“魔豆妈妈”公益项目由中国红十字会总会联合阿里巴巴于2006年发起，中国红十字基金会淘宝公益基金资助，旨在为困境女性、残疾女性提供电商技能培训、手工艺赋能与就业支持。
+二、供应商的资格条件： 1.满足《中华人民共和国政府采购法》第二十二条规定； 2.本项目的特定资格要求：《医疗器械监督管理条例》(国务院令第739号)医疗器械分类管理要求具备有效的医疗器械经营备案凭证或者经营许可证，且经营范围必须包含采购标的\[符合《医疗器械监督管理条例》第四十一条第二款规定的除外\]；或者投标人具有《医疗器械监督管理条例》第四十三条规定的注册人凭证。
 
-此次主题活动举办地是唐占鑫团队带领残疾姐妹开展手工艺赋能的重要阵地。
+3.单位负责人为同一人或者存在直接控股、管理关系的不同供应商，不得参加同一合同项下的采购活动。
 
-据知，去年以来“魔豆妈妈”项目支持北京新起点“美丽工坊”，已培训百余名残疾女性学习并掌握手工艺技能，帮助她们实现就业增收。
+为本项目提供过整体设计、规范编制或者项目管理、监理、检测等服务的供应商，不得再参加本项目上述服务以外的其他采购活动。
 
-全国自强模范、“魔豆妈妈”带头人唐占鑫，2004年因车祸导致胸椎脊髓损伤，从此与轮椅为伴。
+4.对在“信用中国”网站(www.creditchina.gov.cn) 、中国政府采购网(www.ccgp.gov.cn)被列入失信被执行人、重大税收违法失信主体、政府采购严重违法失信行为记录名单及其他不符合《中华人民共和国政府采购法》第二十二条规定条件的供应商，不得参与采购活动。
 
-“最难熬的不是身体不能动，而是觉得自己成了别人的负担。
+三、获取竞争性协商文件 1.获取时间：2026年6月9日至2026年6月16日，每天上午8时30分至12时00分，下午3时00分至6时00分(北京时间，法定节假日除外。
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 05:01 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 04:44 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 04:48 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 04:41 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 04:58 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 05:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 05:05 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 04:49 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-30 04:40 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 05:01 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 04:40 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 05:03 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 04:46 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 04:45 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 05:10 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 05:09 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 04:48 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 04:51 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 04:55 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 04:56 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 05:06 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 05:04 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 04:59 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 04:56 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 04:50 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-30 05:07 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 04:42 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 04:42 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:05 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/78338.shtml)
-- 2026-06-30 04:50 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/272444100519.shtml)
-- 2026-06-30 04:40 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/27161704476.shtml)
-- 2026-06-30 04:57 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/664889094.shtml)
-- 2026-06-30 04:50 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/1173649.shtml)
-- 2026-06-30 05:04 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/859549538720.shtml)
-- 2026-06-30 04:51 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/6668756210.shtml)
-- 2026-06-30 04:51 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/57117369452.shtml)
-- 2026-06-30 04:46 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/91383053.shtml)
-- 2026-06-30 04:49 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/093549.shtml)
-- 2026-06-30 04:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/404424815.shtml)
-- 2026-06-30 05:01 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/441415292241.shtml)
-- 2026-06-30 04:41 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/404778.shtml)
-- 2026-06-30 05:03 - [内马尔替补](https://www.share.minike.top/Article/details/1629393327.shtml)
-- 2026-06-30 04:58 - [美股](https://www.share.minike.top/Article/details/3979586691.shtml)
+- 2026-06-30 04:55 - [毒液2](http://www.share.kurohicncr.top/Article/details/8893108.shtml)
+- 2026-06-30 05:06 - [女心理师](https://www.blog.kurohicncr.top/Article/details/441019346.shtml)
+- 2026-06-30 04:42 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/991445395.shtml)
+- 2026-06-30 04:45 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/55832579.shtml)
+- 2026-06-30 05:06 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/777009649.shtml)
+- 2026-06-30 04:50 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/82894.shtml)
+- 2026-06-30 05:06 - [田曦薇没招了](https://www.share.minike.top/Article/details/92389.shtml)
+- 2026-06-30 04:50 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/55851.shtml)
+- 2026-06-30 04:48 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/6600301618.shtml)
+- 2026-06-30 04:48 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/6378833236.shtml)
+- 2026-06-30 05:01 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/188587.shtml)
+- 2026-06-30 04:58 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/51560.shtml)
+- 2026-06-30 05:08 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/64232669.shtml)
+- 2026-06-30 05:00 - [巴西绝杀日本](http://www.share.minike.top/Article/details/2129869943.shtml)
+- 2026-06-30 04:58 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/0671160352.shtml)

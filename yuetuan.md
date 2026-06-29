@@ -1,51 +1,58 @@
-# 手回集团建议采纳2026年限制性股份单位计划及授出合共66.84万份限制性股份单位
+# WWDC26：库克以首席执行官身份出席的最后一届苹果全球开发者大会
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-手回集团（02621）发布公告，为进一步加强薪酬委员会的独立性及提升公司的企业管治常规，董事会决议于有条件授出前对薪酬委员会的组成作出以下变更，自相关决议案于2026年5月11日获通过后即时生效：执行董事李鉴庭先生获委任为薪酬委员会成员，而光耀先生将不再担任薪酬委员会成员。 于2026年5月11日，董事会决议建议，待股东批准后，采纳一项限制性股份单位计划（2026年限制性股份单
+这场苹果软件生态发布会提前揭晓iOS、macOS等系统的全新功能。据传Siri将迎来重大升级，同时这也是库克以首席执行官身份出席的最后一届苹果全球开发者大会。 苹果年度中期软件盛会——2026苹果全球开发者大会（WWDC）将于6月8日明日上午10点（太平洋时间）在苹果园区开启主旨演讲，对应东部时间下午1点、英国夏令时傍晚6点。我们将近距离了解这家科技巨头今年晚些时候为全球数亿台
 
 ## 正文
 
-手回集团（02621）发布公告，为进一步加强薪酬委员会的独立性及提升公司的企业管治常规，董事会决议于有条件授出前对薪酬委员会的组成作出以下变更，自相关决议案于2026年5月11日获通过后即时生效：执行董事李鉴庭先生获委任为薪酬委员会成员，而光耀先生将不再担任薪酬委员会成员。
+这场苹果软件生态发布会提前揭晓iOS、macOS等系统的全新功能。
 
-于2026年5月11日，董事会决议建议，待股东批准后，采纳一项限制性股份单位计划（2026年限制性股份单位计划）。
+据传Siri将迎来重大升级，同时这也是库克以首席执行官身份出席的最后一届苹果全球开发者大会。
 
-2026年限制性股份单位计划将透过以下方式提供资金：（i）公司转让予受托人的库存股份，（ii）受托人根据董事会的指示从二级市场购买的现有股份及╱或（iii）公司配发及发行的新股份，因此将构成上市规则第17章项下由新股份出资的股份计划。
+苹果年度中期软件盛会——2026苹果全球开发者大会（WWDC）将于6月8日明日上午10点（太平洋时间）在苹果园区开启主旨演讲，对应东部时间下午1点、英国夏令时傍晚6点。
 
-于2026年5月11日，待股东于股东周年大会上批准采纳2026年限制性股份单位计划后，董事会决议有条件地向94名合资格参与者授出合共66.84万份限制性股份单位，其中包括（i）向两名执行董事授出2.8万份限制性股份单位；（ii）向公司一名高级管理人员授出17.05万份限制性股份单位（须待承授人接纳后方可作实），约占于本公告日期已发行股份总数（不包括库存股份）的0.30%。
+我们将近距离了解这家科技巨头今年晚些时候为全球数亿台iPhone、Mac以及AppleWatch准备的系统更新内容。
 
-责任编辑：卢昱君
+更值得关注的是，本届大会发布的信息也有望透露苹果下半年的硬件新品动向，包括iPhone18以及传闻已久的折叠屏iPhone。
+
+我们基本可以确定本次大会的发布内容：今年晚些时候将推出新版iOS、iPadOS、macOS以及watchOS，发布会结束后开发者大概率就能下载对应的测试版。
+
+按照以往惯例，苹果会在7月向公众开放新版系统测试版。
+
+外界预计苹果还会公布其他项目进展，包括将谷歌Gemini人工智能模型接入Siri，以及对苹果智能体系进行更多优化升级。
 
 ## 相关推荐
 
-- 2026-06-30 04:51 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 04:54 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 05:02 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 04:51 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 04:57 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 04:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 04:54 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 04:59 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 04:57 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 04:54 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 04:40 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 05:08 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 04:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 05:09 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 05:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 04:55 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 05:02 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 05:09 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 04:58 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 05:08 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 04:54 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 04:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-30 04:50 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:58 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/55229.shtml)
-- 2026-06-30 04:54 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/396403541980.shtml)
-- 2026-06-30 04:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/9687352.shtml)
-- 2026-06-30 04:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/81120997186.shtml)
-- 2026-06-30 04:39 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/205504.shtml)
-- 2026-06-30 04:37 - [斗破苍穹](https://www.share.minike.top/Article/details/5848068108.shtml)
-- 2026-06-30 04:44 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/30029.shtml)
-- 2026-06-30 04:39 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/46796497.shtml)
-- 2026-06-30 04:52 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/6424451257.shtml)
-- 2026-06-30 04:44 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/761541546.shtml)
-- 2026-06-30 04:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/56728.shtml)
-- 2026-06-30 04:59 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/3443578177.shtml)
-- 2026-06-30 04:36 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/69183834.shtml)
-- 2026-06-30 04:54 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/09927228062.shtml)
-- 2026-06-30 05:00 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/512168.shtml)
+- 2026-06-30 04:50 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/31574.shtml)
+- 2026-06-30 05:00 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/362625265352.shtml)
+- 2026-06-30 04:45 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/5649819.shtml)
+- 2026-06-30 04:51 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/787285341628.shtml)
+- 2026-06-30 04:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/7470097317.shtml)
+- 2026-06-30 05:02 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/39980.shtml)
+- 2026-06-30 04:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/3300123.shtml)
+- 2026-06-30 04:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/193938869219.shtml)
+- 2026-06-30 04:57 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/05122.shtml)
+- 2026-06-30 04:48 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/88250.shtml)
+- 2026-06-30 04:59 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/3998659667.shtml)
+- 2026-06-30 04:54 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/927869241.shtml)
+- 2026-06-30 05:06 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/00654.shtml)
+- 2026-06-30 04:42 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/18091289713.shtml)
+- 2026-06-30 05:05 - [二次元提前预演明日巴西对日本](http://www.blog.kurohicncr.top/Article/details/637299581905.shtml)

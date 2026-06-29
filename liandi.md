@@ -1,43 +1,57 @@
-# 4月新能源汽车产销量及出口量均稳定增长
+# 探访杭州湾南岸“超级工场”：轨道板背后的匠心密码
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 09:02 来源：央视新闻 责任编辑：【王祎】
+中新网宁波6月8日电(蓝伊旎 许旺)近日，在浙江宁波杭州湾南岸，一座占地110亩的轨道板预制场正有序运转。没有飞驰的列车，也没有刺耳的呼啸，只见一块块灰色混凝土板在流水线上缓缓移动，整齐排列。这座预制场是浙江交通集团通苏嘉甬高铁项目的慈溪轨道板场，由中铁北京工程局集团负责施工。未来，近3万块轨道板将从这里运出，铺设在钢轨之下，为高铁时速350公里的运行提供基础支撑。 轨道板是高
 
 ## 正文
 
-发布时间：2026年05月12日 09:02 来源：央视新闻 责任编辑：【王祎】
+中新网宁波6月8日电(蓝伊旎 许旺)近日，在浙江宁波杭州湾南岸，一座占地110亩的轨道板预制场正有序运转。
+
+没有飞驰的列车，也没有刺耳的呼啸，只见一块块灰色混凝土板在流水线上缓缓移动，整齐排列。
+
+这座预制场是浙江交通集团通苏嘉甬高铁项目的慈溪轨道板场，由中铁北京工程局集团负责施工。
+
+未来，近3万块轨道板将从这里运出，铺设在钢轨之下，为高铁时速350公里的运行提供基础支撑。
+
+轨道板是高铁线路的“隐形地基”。
+
+列车以350公里时速运行时，钢轨下方一毫米的起伏，可能被放大为车身的抖动。
+
+因此，每块轨道板需要达到毫米级精度。
+
+通苏嘉甬高铁项目采用的CRTSⅢ型轨道板，是中国自主研制、在高速铁路广泛应用的新一代无砟轨道核心构件。
 
 ## 相关推荐
 
-- 2026-06-30 05:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 04:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 05:03 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 04:51 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 04:47 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 04:52 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 04:46 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 05:04 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 04:45 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 05:02 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 05:05 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 04:48 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 04:44 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 05:05 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 05:09 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 05:11 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 05:08 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 04:44 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 05:00 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 04:44 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 04:55 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 04:47 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:38 - [金刚川](https://www.share.minike.top/Article/details/02311.shtml)
-- 2026-06-30 04:36 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/983712379.shtml)
-- 2026-06-30 04:36 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/182888075298.shtml)
-- 2026-06-30 04:38 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/644232432.shtml)
-- 2026-06-30 04:55 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/448000878.shtml)
-- 2026-06-30 04:43 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/36690904298.shtml)
-- 2026-06-30 04:36 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/30696409085.shtml)
-- 2026-06-30 04:48 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/8998691238.shtml)
-- 2026-06-30 04:58 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/451430826.shtml)
-- 2026-06-30 05:05 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/643781.shtml)
-- 2026-06-30 04:39 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/163176.shtml)
-- 2026-06-30 05:05 - [月亮](https://www.share.kurohicncr.top/Article/details/81751334081.shtml)
-- 2026-06-30 04:52 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/6542567720.shtml)
-- 2026-06-30 04:59 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/9112375329.shtml)
-- 2026-06-30 04:44 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/407793.shtml)
+- 2026-06-30 05:04 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/379902.shtml)
+- 2026-06-30 04:49 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/4633197.shtml)
+- 2026-06-30 04:48 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/9987581.shtml)
+- 2026-06-30 04:58 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/219187028947.shtml)
+- 2026-06-30 05:03 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/670020.shtml)
+- 2026-06-30 05:08 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/615715326478.shtml)
+- 2026-06-30 04:56 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/753409.shtml)
+- 2026-06-30 04:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/410319.shtml)
+- 2026-06-30 04:56 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/806283340188.shtml)
+- 2026-06-30 04:51 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/17062.shtml)
+- 2026-06-30 04:59 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/146573.shtml)
+- 2026-06-30 05:03 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/014976.shtml)
+- 2026-06-30 05:08 - [天道](http://www.blog.kurohicncr.top/Article/details/6060948.shtml)
+- 2026-06-30 05:02 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/64455786732.shtml)
+- 2026-06-30 05:04 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/622409007268.shtml)

@@ -1,58 +1,55 @@
-# 把生姜当水果吃，1天1斤坚持多年？专家提醒
+# 日本北海道医疗机构数据被泄露 波及数十万人
 
-> 更新时间：2026-06-30 05:06:03 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-原标题：把生姜当水果吃，1天1斤坚持多年 专家提醒：每日摄入量不宜超过10克，几片就够了 俗话说“冬吃萝卜夏吃姜，不找医生开药方”。可如果有人一天吃掉一两斤生姜，这药方还灵不灵？最近有媒体报道，一名女子在网上分享了自己的“特殊癖好”——把生姜当水果吃，按盆吃，已经坚持了多年。她直言自己特别喜欢生姜的味道，自从养成这个习惯后就很少感冒，不过也承认“吃多了容易上火”。消息一出，引发
+中新社东京6月9日电 (记者 朱晨曦)据日本《朝日新闻》9日报道，日本北海道一家废弃物处理公司因对废弃硬盘处理不当，导致当地两家医疗机构的患者和工作人员信息遭到泄露，最多可能波及51万人。 据报道，去年6月，有买家反映其在网络平台购买的硬盘中存有大量医疗信息。经调查，这些硬盘来自位于北海道札幌市的北海道医疗中心和北海道癌症中心，内含电子病历等数据。两家机构曾委托当地一家废弃物处
 
 ## 正文
 
-原标题：把生姜当水果吃，1天1斤坚持多年 专家提醒：每日摄入量不宜超过10克，几片就够了 俗话说“冬吃萝卜夏吃姜，不找医生开药方”。
+中新社东京6月9日电 (记者 朱晨曦)据日本《朝日新闻》9日报道，日本北海道一家废弃物处理公司因对废弃硬盘处理不当，导致当地两家医疗机构的患者和工作人员信息遭到泄露，最多可能波及51万人。
 
-可如果有人一天吃掉一两斤生姜，这药方还灵不灵？
+据报道，去年6月，有买家反映其在网络平台购买的硬盘中存有大量医疗信息。
 
-最近有媒体报道，一名女子在网上分享了自己的“特殊癖好”——把生姜当水果吃，按盆吃，已经坚持了多年。
+经调查，这些硬盘来自位于北海道札幌市的北海道医疗中心和北海道癌症中心，内含电子病历等数据。
 
-她直言自己特别喜欢生姜的味道，自从养成这个习惯后就很少感冒，不过也承认“吃多了容易上火”。
+两家机构曾委托当地一家废弃物处理公司对相关设备进行销毁处理，但该公司未妥善处置，导致部分未被销毁的硬盘流入二手市场。
 
-消息一出，引发不少网友热议：有人觉得不可思议，也有人跃跃欲试。
+报道说，目前已确认有33块来自上述两家医疗机构的硬盘流入二手市场，已有约18.7万名患者及工作人员的个人信息遭泄露，而面临信息泄露风险的可能有51万人。
 
-生姜论斤吃，真的是养生吗？
+相关医疗机构已向警方报案，要求追究废弃物处理公司的刑事责任。
 
-“这肯定是过度了。
-
-”泰康仙林鼓楼医院中医科副主任中医师赵春江告诉记者，生姜是一味药食同源的食材，适量吃确实有好处，但“按斤吃”完全超出了合理范围。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:55 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 04:46 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-30 04:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 04:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 04:48 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 04:43 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 04:41 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 04:38 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 04:53 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 05:04 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 05:00 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 04:57 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 04:50 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 04:45 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 04:44 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 05:10 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 05:06 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 04:46 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 04:54 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 04:54 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 04:52 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 04:57 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 04:43 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/788305786473.shtml)
-- 2026-06-30 04:41 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/65107.shtml)
-- 2026-06-30 04:49 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/5582418361.shtml)
-- 2026-06-30 04:59 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/88739.shtml)
-- 2026-06-30 04:39 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/056807454569.shtml)
-- 2026-06-30 04:38 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/87852.shtml)
-- 2026-06-30 04:38 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/07788761.shtml)
-- 2026-06-30 04:37 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/75733770536.shtml)
-- 2026-06-30 04:36 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/653096029.shtml)
-- 2026-06-30 04:59 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/8216692.shtml)
-- 2026-06-30 04:56 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/90202207.shtml)
-- 2026-06-30 04:59 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/64064.shtml)
-- 2026-06-30 05:01 - [爱很美味](http://www.blog.minike.top/Article/details/0398985502.shtml)
-- 2026-06-30 04:42 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/9697749.shtml)
-- 2026-06-30 04:40 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/132991896.shtml)
+- 2026-06-30 04:43 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/38054861.shtml)
+- 2026-06-30 04:54 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/03148084354.shtml)
+- 2026-06-30 04:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/904411129636.shtml)
+- 2026-06-30 04:58 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/282546525097.shtml)
+- 2026-06-30 05:08 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/136246043.shtml)
+- 2026-06-30 04:56 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/8057130277.shtml)
+- 2026-06-30 05:10 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/870186532145.shtml)
+- 2026-06-30 05:11 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/6989966433.shtml)
+- 2026-06-30 04:46 - [日本领先巴西](http://www.share.minike.top/Article/details/6876491928.shtml)
+- 2026-06-30 04:52 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/9193770770.shtml)
+- 2026-06-30 04:52 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/251401965.shtml)
+- 2026-06-30 04:54 - [美人鱼](http://www.blog.minike.top/Article/details/27825557784.shtml)
+- 2026-06-30 04:45 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/7918719.shtml)
+- 2026-06-30 05:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/6721903.shtml)
+- 2026-06-30 05:05 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/270808198.shtml)

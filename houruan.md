@@ -1,50 +1,58 @@
-# 我国成功发射千帆极轨09组卫星
+# 告别泡泡玛特、老铺黄金，广发基金吴远怡在管广发价值核心混合“风格漂移”
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-北京时间2026年5月12日19时59分，我国在太原卫星发射中心使用长征六号改运载火箭，成功将千帆极轨09组卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 此次任务是长征系列运载火箭的第642次飞行。 (总台央视记者 杨弘杨 刘鑫蕊 郝明鑫 李宸)
+来源：财报星球 原标题：告别泡泡玛特、老铺黄金，广发基金吴远怡在管基金“风格漂移” 卸任百亿规模基金产品，广发基金吴远怡在管基金仍面临合规考验。 6月3日，广发基金发布了一则人事公告，号称“爆款捕手”的吴远怡在同日卸任了广发成长领航一年持有、广发创新升级以及广发小盘成长3只产品的基金经理职务。 这位曾经的百亿主动权益基金经理，因为提前押中泡泡玛特、老铺黄金等爆款标的而声名鹊起。
 
 ## 正文
 
-北京时间2026年5月12日19时59分，我国在太原卫星发射中心使用长征六号改运载火箭，成功将千帆极轨09组卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
+来源：财报星球 原标题：告别泡泡玛特、老铺黄金，广发基金吴远怡在管基金“风格漂移” 卸任百亿规模基金产品，广发基金吴远怡在管基金仍面临合规考验。
 
-此次任务是长征系列运载火箭的第642次飞行。
+6月3日，广发基金发布了一则人事公告，号称“爆款捕手”的吴远怡在同日卸任了广发成长领航一年持有、广发创新升级以及广发小盘成长3只产品的基金经理职务。
 
-(总台央视记者 杨弘杨 刘鑫蕊 郝明鑫 李宸)
+这位曾经的百亿主动权益基金经理，因为提前押中泡泡玛特、老铺黄金等爆款标的而声名鹊起。
+
+如今，收缩战线的吴远怡如何再出发？
+
+卸任押中“爆款”的基金产品 在公募江湖，吴远怡的崛起路径极具辨识度。
+
+这位拥有理学硕士学位的基金经理，曾任职于申银万国证券研究所、惠理基金（香港）及中国人寿资产，2020年加入广发基金。
+
+其真正的“封神之作”无疑是广发成长领航一年持有。
+
+截至2026年6月初，吴远怡在该产品的任职回报高达181.69%，同类平均为31.02%，在同期6700余只同类产品中排名第122位。
 
 ## 相关推荐
 
-- 2026-06-30 04:51 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 04:59 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 04:39 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 05:01 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 04:47 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 04:56 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 05:03 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 04:45 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-30 04:40 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 04:37 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 04:48 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 04:42 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 05:03 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 04:38 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 04:55 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 05:08 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 04:57 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 05:01 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 04:45 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 04:56 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 04:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 04:53 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 05:03 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 05:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 05:11 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 04:59 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:40 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/3068425.shtml)
-- 2026-06-30 04:56 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/246171289.shtml)
-- 2026-06-30 04:47 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/343386454.shtml)
-- 2026-06-30 04:59 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/63749515.shtml)
-- 2026-06-30 05:05 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/817933861458.shtml)
-- 2026-06-30 04:46 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/362665462.shtml)
-- 2026-06-30 04:43 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/93238176684.shtml)
-- 2026-06-30 04:45 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/57975824504.shtml)
-- 2026-06-30 04:46 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/380352082084.shtml)
-- 2026-06-30 04:55 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/4386269.shtml)
-- 2026-06-30 04:48 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/5569571744.shtml)
-- 2026-06-30 05:04 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/5588572.shtml)
-- 2026-06-30 05:05 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/3097091.shtml)
-- 2026-06-30 04:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/1271897.shtml)
-- 2026-06-30 04:46 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/19730971.shtml)
+- 2026-06-30 04:54 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/88864737352.shtml)
+- 2026-06-30 05:09 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/643758.shtml)
+- 2026-06-30 04:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/1971447.shtml)
+- 2026-06-30 04:58 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/614202439170.shtml)
+- 2026-06-30 04:59 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/61411712.shtml)
+- 2026-06-30 05:11 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/8766891.shtml)
+- 2026-06-30 05:05 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/44387481.shtml)
+- 2026-06-30 05:01 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/42632401057.shtml)
+- 2026-06-30 04:56 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/58425803652.shtml)
+- 2026-06-30 05:11 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/65747107.shtml)
+- 2026-06-30 04:58 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/4773533.shtml)
+- 2026-06-30 04:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/689192248.shtml)
+- 2026-06-30 04:51 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/6839267.shtml)
+- 2026-06-30 05:02 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/50307.shtml)
+- 2026-06-30 05:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/836351569118.shtml)

@@ -1,59 +1,58 @@
-# 浦发银行突破10万亿之后，张为忠去了一趟海南
+# 第三届伯明翰国际青年学者论坛在英举行
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-文/瑞财经 许淑敏 五一假期过后，张为忠飞了一趟海南。 作为浦发银行董事长，现年59岁的张为忠，在海南的行程很密集。 先是5月8日，他见证了海口市政府与浦发银行签署战略合作协议；紧接着5月9日，他又拜会海南省长刘小明，双方围绕深耕海南市场等话题进行交流探讨。 指向也很明确——浦发银行，要进一步扩大在海南的投资布局了。 其实从2025年海南自贸港封关运作开始，浦发银行便十分重视海
+中新网伦敦6月8日电 (记者 欧阳开宇)第三届伯明翰国际青年学者论坛日前在英国伯明翰大学举行。本届论坛汇聚了全英30余所高校及科研院所的近200名青年学者和专家教授，旨在为海外青年科研人才搭建跨学科交流平台，弘扬科学精神，激发报国情怀。论坛特邀嘉宾、李四光先生外孙女邹宗平女士首先致辞。她勉励海外青年科研工作者追求真理，继承和发扬李四光等老一辈科学家留学报国的光荣传统，矢志报国，
 
 ## 正文
 
-文/瑞财经 许淑敏 五一假期过后，张为忠飞了一趟海南。
+中新网伦敦6月8日电 (记者 欧阳开宇)第三届伯明翰国际青年学者论坛日前在英国伯明翰大学举行。
 
-作为浦发银行董事长，现年59岁的张为忠，在海南的行程很密集。
+本届论坛汇聚了全英30余所高校及科研院所的近200名青年学者和专家教授，旨在为海外青年科研人才搭建跨学科交流平台，弘扬科学精神，激发报国情怀。
 
-先是5月8日，他见证了海口市政府与浦发银行签署战略合作协议；紧接着5月9日，他又拜会海南省长刘小明，双方围绕深耕海南市场等话题进行交流探讨。
+论坛特邀嘉宾、李四光先生外孙女邹宗平女士首先致辞。
 
-指向也很明确——浦发银行，要进一步扩大在海南的投资布局了。
+她勉励海外青年科研工作者追求真理，继承和发扬李四光等老一辈科学家留学报国的光荣传统，矢志报国，将个人理想融入国家发展伟业。
 
-其实从2025年海南自贸港封关运作开始，浦发银行便十分重视海南市场。
+随后，大会主席、伯明翰大学工程学院徐宏明教授随后致辞。
 
-为了抢抓发展机遇，浦发银行已经落地首单海南自贸港跨境资管试点业务，而浦银金租也在海南设立金融租赁行业国内首家管理型项目公司，进一步助力航空等产业。
+他表示，青年兴则国家兴，希望寄予青年、未来属于青年，鼓励在场青年学者勇于创新、担当使命，为科技进步与国家繁荣贡献青春力量。
 
-而浦发银行海口分行作为一级分行，承担着发展重任，如今正向着向功能性分行转型。
+在主旨报告环节，张玉峰教授，英国皇家工程院院士、伯明翰大学材料与冶金学院教授董洪标，英国皇家医学院院士、伯明翰大学医学教授高昉先后围绕AI赋能价值创造、学者职业生涯发展与社会责任、现代医生培养体系等话题，结合个人经历分享了独到的见解和研究成果。
 
-这家分行成立于2013年，至今已有十余年时间。
+接着，论坛联合主办单位天津大学代表、人事处处长马德刚教授，围绕天津大学事业发展与人才引进政策，介绍天津大学发展历程，畅谈新时代国内大学教育兴国与人才培养使命担当，诚邀海外英才加盟天大，为服务国家战略贡献来自海外青年学者的力量与智慧。
 
 ## 相关推荐
 
-- 2026-06-30 04:49 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-30 04:51 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 04:39 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 04:47 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 04:49 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-30 04:57 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 04:57 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 04:58 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 04:36 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 04:45 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 04:54 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 04:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 04:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 04:56 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 05:11 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 04:50 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 04:45 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 04:56 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 04:49 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 04:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 05:10 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 04:48 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 04:44 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 04:58 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 05:03 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/9637991377.shtml)
-- 2026-06-30 05:05 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/1148282019.shtml)
-- 2026-06-30 04:42 - [安切洛蒂 换人](https://www.blog.kurohicncr.top/Article/details/5109180312.shtml)
-- 2026-06-30 04:47 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/817330906360.shtml)
-- 2026-06-30 04:44 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/515808081735.shtml)
-- 2026-06-30 04:37 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/82707.shtml)
-- 2026-06-30 04:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/205796.shtml)
-- 2026-06-30 04:39 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/983133834249.shtml)
-- 2026-06-30 04:54 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/181127170.shtml)
-- 2026-06-30 05:06 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/19387.shtml)
-- 2026-06-30 04:41 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/412548.shtml)
-- 2026-06-30 04:50 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/11229205339.shtml)
-- 2026-06-30 05:02 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/43384.shtml)
-- 2026-06-30 04:38 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/653478.shtml)
-- 2026-06-30 04:49 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/5402316848.shtml)
+- 2026-06-30 05:05 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/80176.shtml)
+- 2026-06-30 05:06 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/0361311693.shtml)
+- 2026-06-30 04:42 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/6681212820.shtml)
+- 2026-06-30 05:05 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/413023.shtml)
+- 2026-06-30 05:06 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/96136.shtml)
+- 2026-06-30 05:06 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/18827177889.shtml)
+- 2026-06-30 05:06 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/385487741.shtml)
+- 2026-06-30 05:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/86182.shtml)
+- 2026-06-30 04:47 - [急先锋](http://www.share.minike.top/Article/details/01165.shtml)
+- 2026-06-30 04:56 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/26958.shtml)
+- 2026-06-30 04:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/0512785931.shtml)
+- 2026-06-30 05:11 - [斗破苍穹](https://www.share.minike.top/Article/details/25670591.shtml)
+- 2026-06-30 05:04 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/514934524.shtml)
+- 2026-06-30 05:12 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/6527880315.shtml)
+- 2026-06-30 05:11 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/45533233.shtml)

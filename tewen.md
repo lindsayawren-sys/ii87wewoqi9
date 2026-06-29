@@ -1,58 +1,56 @@
-# 与伊朗相关的液化石油气船经霍尔木兹海峡通行 宣称有印度背景
+# 呵护海洋生灵 守卫蔚蓝之境
 
-> 更新时间：2026-06-30 05:06:03 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-船舶追踪数据显示，一艘此前曾运输伊朗货物的液化石油气（LPG）运输船，正穿越霍尔木兹海峡，并对外声明其船员及船东均为印度背景。 数据显示，“Tara Gas”号周一上午自迪拜外海向东北方向航行。目前该船正经过伊朗拉拉克岛附近水域，这通常被视为沿着德黑兰方面许可的航线通行。吃水深度显示，该船处于满载状态，装载的是主要用于烹饪燃料的LPG，但追踪平台未能识别其货源地。 周一该船被观
+【编者按】 约占地球表面积71%的海洋，孕育了生命，也承载着人类无尽的想象。如今，现代科学为我们勾勒出海洋的地理轮廓与演化图景，让我们意识到，保护海洋生态环境，关乎人类文明的永续发展。 6月8日是第18个世界海洋日，也是我国第19个全国海洋宣传日。“守护蔚蓝，向海图强”，让我们跟随守护海洋生物一线的科技工作者，逐浪寻海兽、登岛护海鸟、恢复红树林…… 追随那一抹粉白讲述人：中山大
 
 ## 正文
 
-船舶追踪数据显示，一艘此前曾运输伊朗货物的液化石油气（LPG）运输船，正穿越霍尔木兹海峡，并对外声明其船员及船东均为印度背景。
+【编者按】 约占地球表面积71%的海洋，孕育了生命，也承载着人类无尽的想象。
 
-数据显示，“Tara Gas”号周一上午自迪拜外海向东北方向航行。
+如今，现代科学为我们勾勒出海洋的地理轮廓与演化图景，让我们意识到，保护海洋生态环境，关乎人类文明的永续发展。
 
-目前该船正经过伊朗拉拉克岛附近水域，这通常被视为沿着德黑兰方面许可的航线通行。
+6月8日是第18个世界海洋日，也是我国第19个全国海洋宣传日。
 
-吃水深度显示，该船处于满载状态，装载的是主要用于烹饪燃料的LPG，但追踪平台未能识别其货源地。
+“守护蔚蓝，向海图强”，让我们跟随守护海洋生物一线的科技工作者，逐浪寻海兽、登岛护海鸟、恢复红树林…… 追随那一抹粉白讲述人：中山大学海洋科学学院副教授 张西阳 船行海上，烈日暴晒是常态；一旦遭遇风浪，甲板颠簸摇晃，晕眩感便不时袭来。
 
-周一该船被观测到正在通过霍尔木兹海峡，同时释出印度背景信号。
+但只要中华白海豚跃出水面，所有焦躁顿时一扫而空，大家的目光追随着那抹粉白，像遇见久别的老友。
 
-滞留在波斯湾的船只正采取多种策略以确保安全离开。
+这就是我们的日常工作——中华白海豚种群监测。
 
-包括印度、泰国与马来西亚在内的多个国家政府已与伊朗方面进行沟通，以确保能源货物能够顺利放行；部分船只也选择通过广播自身国别归属来降低风险。
+中华白海豚是近岸海洋生态系统健康的重要指示物种，也是粤港澳大湾区海洋生物多样性保护的特殊名片。
 
-对于曾运输伊朗货物的船舶而言，穿越第一道封锁只是开始。
+我所在的团队，在中山大学海洋科学学院教授吴玉萍带领下，已与这群海豚打了20多年交道。
 
 ## 相关推荐
 
-- 2026-06-30 04:48 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 04:57 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 04:40 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 04:47 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 04:48 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 04:49 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 04:50 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 04:42 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 05:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 04:47 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 04:47 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 04:59 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 04:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 05:07 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 05:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 05:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 04:45 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 05:03 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 05:05 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 05:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 04:55 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 04:50 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:49 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/634120640.shtml)
-- 2026-06-30 05:00 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/157744.shtml)
-- 2026-06-30 04:55 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/72510073.shtml)
-- 2026-06-30 04:57 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/4967920.shtml)
-- 2026-06-30 04:54 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/801165247268.shtml)
-- 2026-06-30 05:00 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/619249658.shtml)
-- 2026-06-30 04:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/072270667952.shtml)
-- 2026-06-30 05:03 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/241375085.shtml)
-- 2026-06-30 05:05 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/434593.shtml)
-- 2026-06-30 04:43 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/73762.shtml)
-- 2026-06-30 04:58 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/197259160.shtml)
-- 2026-06-30 05:04 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/031758.shtml)
-- 2026-06-30 04:37 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/80149.shtml)
-- 2026-06-30 04:37 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/044108.shtml)
-- 2026-06-30 04:59 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/692440529087.shtml)
+- 2026-06-30 04:51 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/565510.shtml)
+- 2026-06-30 04:58 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/77122.shtml)
+- 2026-06-30 04:56 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/913580063140.shtml)
+- 2026-06-30 05:08 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/327724.shtml)
+- 2026-06-30 04:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/91307408.shtml)
+- 2026-06-30 05:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/78580.shtml)
+- 2026-06-30 04:47 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/261925408670.shtml)
+- 2026-06-30 04:49 - [请回答王牌2019](http://www.share.minike.top/Article/details/00572496.shtml)
+- 2026-06-30 05:03 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/1927024717.shtml)
+- 2026-06-30 05:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/7776070.shtml)
+- 2026-06-30 04:48 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/868116664360.shtml)
+- 2026-06-30 04:45 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/745247723.shtml)
+- 2026-06-30 04:55 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/49750.shtml)
+- 2026-06-30 05:07 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/5081874.shtml)
+- 2026-06-30 04:52 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/95715.shtml)

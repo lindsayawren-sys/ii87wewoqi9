@@ -1,56 +1,56 @@
-# 多重利好共振，港股创新药迎布局窗口 富国港股通医药今日发行
+# 纽约联储调查：家庭对财务状况的担忧程度升至2022年7月以来最高水平
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-5月以来，港股创新药板块持续升温，资金回流迹象明显。Wind数据显示，多只港股创新药ETF近期获连续净申购。与此同时，ASCO（美国临床肿瘤学会）年会临近、药品价格新政落地、板块盈利拐点显现，多重因素叠加，港股创新药板块的配置价值凸显。在此背景下，富国港股通医药优选混合型证券投资基金（A类：027041，C类：027042）于5月11日正式发行。该基金聚焦港股通医药赛道，由具备
+要点 5月份，美国家庭对其财务状况的担忧加剧，认为自身状况比一年前“糟糕得多”的家庭比例触及近四年高点。 纽约联储的月度调查显示，通胀预期基本持平，但对经济状况的总体看法出现恶化。 根据纽约联邦储备银行的一项调查，美国家庭对其财务状况的担忧加剧，认为自身状况比一年前“糟糕得多”的家庭比例触及近四年高点。 尽管周一发布的央行月度《消费者预期调查》显示通胀预期基本持平，但受访者对经
 
 ## 正文
 
-5月以来，港股创新药板块持续升温，资金回流迹象明显。
+要点 5月份，美国家庭对其财务状况的担忧加剧，认为自身状况比一年前“糟糕得多”的家庭比例触及近四年高点。
 
-Wind数据显示，多只港股创新药ETF近期获连续净申购。
+纽约联储的月度调查显示，通胀预期基本持平，但对经济状况的总体看法出现恶化。
 
-与此同时，ASCO（美国临床肿瘤学会）年会临近、药品价格新政落地、板块盈利拐点显现，多重因素叠加，港股创新药板块的配置价值凸显。
+根据纽约联邦储备银行的一项调查，美国家庭对其财务状况的担忧加剧，认为自身状况比一年前“糟糕得多”的家庭比例触及近四年高点。
 
-在此背景下，富国港股通医药优选混合型证券投资基金（A类：027041，C类：027042）于5月11日正式发行。
+尽管周一发布的央行月度《消费者预期调查》显示通胀预期基本持平，但受访者对经济状况的总体看法出现恶化。
 
-该基金聚焦港股通医药赛道，由具备医药研发与金融投资复合背景的基金经理赵伟管理，旨在把握港股创新药的估值修复与业绩增长机遇。
+认为当前状况比一年前“糟糕得多”的比例跃升至13.3%，较4月份上升约2.7个百分点，为2022年7月以来最高水平。
 
-港股创新药价值凸显 多重利好形成共振 当前，港股创新药正迎来估值、盈利、政策与事件催化的多重共振，中长期布局窗口逐步打开。
+认为状况比一年前“糟糕得多”或“ somewhat 更糟”的总比例达到43.7%，纽约联储称这是自2023年1月以来的最高水平。
 
-从估值维度看，港股创新药板块自2025年9月高点调整已超6个月，估值回落至合理区间，Wind数据显示，截至2026年5月8日，恒生港股通创新药指数近五年估值分位已由98%回落至55%；从盈利维度看，行业正从研发投入期迈向盈利兑现期，2025年港股18A公司（依据香港交易所《上市规则》第18A章上市的未盈利生物科技公司）整体营收超965亿元，叠加龙头企业营收首次突破千亿，15家药企实现扭亏为盈；从政策层面看，催化因素同样密集，2026年政府工作报告将生物医药列为新兴支柱产业，4月出台的药品价格新政为高水平创新药提供了明确的价格保护；与此同时，ASCO年会召开在即，中国药企入选研究数量创历史新高，前沿临床数据的集中披露，有望为港股创新药板块带来阶段性行情催化，并推动市场对相关企业研发管线价值的重估。
+与此同时，对未来一年的预期也未见好转。
 
-在此背景下，专注港股医药赛道的主动管理型产品更具配置优势。
+预期未来一年状况将“糟糕得多”或“ somewhat 更糟”的比例总计为36%，而预期状况将改善的比例仅为22.9%。
 
 ## 相关推荐
 
-- 2026-06-30 04:58 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 04:45 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-30 05:03 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 04:45 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 05:02 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 04:42 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 04:47 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 04:40 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 04:56 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 04:49 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 05:06 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 05:01 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 04:56 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 05:10 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 05:05 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 05:03 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 05:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 04:49 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 04:50 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 04:48 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:38 - [急先锋](https://www.share.kurohicncr.top/Article/details/010269682034.shtml)
-- 2026-06-30 05:02 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/7228218820.shtml)
-- 2026-06-30 04:43 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/59044350.shtml)
-- 2026-06-30 04:57 - [速度与激情9](http://www.share.minike.top/Article/details/96070127457.shtml)
-- 2026-06-30 04:46 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/055534976346.shtml)
-- 2026-06-30 04:38 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/2829139.shtml)
-- 2026-06-30 04:50 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/306119146972.shtml)
-- 2026-06-30 05:04 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/97044.shtml)
-- 2026-06-30 04:55 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/401112.shtml)
-- 2026-06-30 04:54 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/3704266676.shtml)
-- 2026-06-30 04:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/19801.shtml)
-- 2026-06-30 04:53 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/4372117140.shtml)
-- 2026-06-30 04:38 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/4312851243.shtml)
-- 2026-06-30 05:03 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/0896281.shtml)
-- 2026-06-30 04:49 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/603239511.shtml)
+- 2026-06-30 05:05 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/84670772.shtml)
+- 2026-06-30 05:03 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/290503244.shtml)
+- 2026-06-30 04:49 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/31569.shtml)
+- 2026-06-30 05:02 - [恋与深空 日服](http://www.blog.minike.top/Article/details/7860590657.shtml)
+- 2026-06-30 05:11 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/433648254105.shtml)
+- 2026-06-30 04:49 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/25055.shtml)
+- 2026-06-30 04:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/7483026984.shtml)
+- 2026-06-30 04:42 - [美股](https://www.blog.kurohicncr.top/Article/details/911235010050.shtml)
+- 2026-06-30 05:00 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/1279648046.shtml)
+- 2026-06-30 05:04 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/106458518.shtml)
+- 2026-06-30 05:00 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/54183796776.shtml)
+- 2026-06-30 05:11 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/3232818.shtml)
+- 2026-06-30 05:06 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/800938.shtml)
+- 2026-06-30 05:04 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/06542468445.shtml)
+- 2026-06-30 04:46 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/593531228183.shtml)

@@ -1,59 +1,56 @@
-# 直击广西龙胜火灾现场：明火已扑灭 5栋民房受损
+# 源达：股东户数因子在中小市值区间表现最优
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新网广西桂林5月11日电(杨宗盛)5月11日11时许，广西桂林龙胜各族自治县龙脊镇小寨村满田一组突发民房火灾。据了解，明火已于当日12时30分左右被扑灭，消防救援人员正对起火区域进行排查。目前，受灾民众情绪稳定，各项善后工作正有序推进。 据龙脊镇镇长俸华蔚介绍，接到报案后，龙胜各族自治县县委、县政府立即启动应急预案，该县应急管理局、消防大队、卫健局以及龙脊镇人民政府等相关部门
+来源：源达 投资要点 股东户数因子的定义 股东户数是指持有一家上市公司股票的全体股东账户总数。该数据随季报、中报及年报定期披露。按照不同指数样本进行统计，市值规模与股东户数之间的呈现出正向关联，即市值较大的上市公司通常拥有更多的股东户数。为消除市值影响，本文中我们选用“股东户数变动比例”做为因子搭建策略，计算公式如下：股东户数变动比例=（最新报告期的股东户数-上一个报告期的股东
 
 ## 正文
 
-中新网广西桂林5月11日电(杨宗盛)5月11日11时许，广西桂林龙胜各族自治县龙脊镇小寨村满田一组突发民房火灾。
+来源：源达 投资要点 股东户数因子的定义 股东户数是指持有一家上市公司股票的全体股东账户总数。
 
-据了解，明火已于当日12时30分左右被扑灭，消防救援人员正对起火区域进行排查。
+该数据随季报、中报及年报定期披露。
 
-目前，受灾民众情绪稳定，各项善后工作正有序推进。
+按照不同指数样本进行统计，市值规模与股东户数之间的呈现出正向关联，即市值较大的上市公司通常拥有更多的股东户数。
 
-据龙脊镇镇长俸华蔚介绍，接到报案后，龙胜各族自治县县委、县政府立即启动应急预案，该县应急管理局、消防大队、卫健局以及龙脊镇人民政府等相关部门迅速赶赴现场处置。
+为消除市值影响，本文中我们选用“股东户数变动比例”做为因子搭建策略，计算公式如下：股东户数变动比例=（最新报告期的股东户数-上一个报告期的股东户数）/ 上一个报告期的股东户数 *100%。
 
-经初步核实，火灾共造成5栋民房、7户人家受灾，财产损失主要为大米、农具、家电等物品。
+股东户数因子的特点 ①股东户数因子在中小盘风格占优的市场中负向选股最为有效。
 
-因过完春节，当地农户家中牲畜较少，未造成重大养殖损失。
+如2019年至2023年连续五年Rank IC均显著为负，其中2021年负向效果最强（Rank IC = -0.1247） ②股东户数因子在中小市值区间表现最优。
 
-俸华蔚表示，目前善后工作已全面展开，龙脊镇成立工作专班，对受灾民众进行“一户一专班”对接，由县委、县政府领导成员带队，逐户落实住房、医疗、防疫及生活物资保障。
+在市值中位数约62亿至113亿元区间，Rank IC负值绝对值达0.062以上，且正比例低至16%，负向预测强度与稳定性俱佳。
 
-应急救灾工棚及油、米等生活必需品已全部到位，能够及时满足民众基本需求。
+③股东户数因子在医药生物、传媒、化工、计算机等行业表现最强。
 
 ## 相关推荐
 
-- 2026-06-30 05:00 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-30 04:59 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 04:52 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 04:47 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 05:00 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 05:02 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 05:05 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 05:05 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 04:36 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 04:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 04:36 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 04:45 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 04:59 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 04:42 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 04:47 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 04:59 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 05:06 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 04:51 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 04:43 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 04:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 05:02 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 04:44 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 05:02 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:41 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/207728972924.shtml)
-- 2026-06-30 04:44 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/158206.shtml)
-- 2026-06-30 04:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/3475121570.shtml)
-- 2026-06-30 04:54 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/799086178.shtml)
-- 2026-06-30 04:54 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/2776121.shtml)
-- 2026-06-30 05:04 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/6480611.shtml)
-- 2026-06-30 04:59 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/4142850.shtml)
-- 2026-06-30 05:03 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/280996043.shtml)
-- 2026-06-30 05:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/36755.shtml)
-- 2026-06-30 04:40 - [沙丘](http://www.blog.kurohicncr.top/Article/details/43019973.shtml)
-- 2026-06-30 04:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/22057.shtml)
-- 2026-06-30 04:46 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/498837.shtml)
-- 2026-06-30 05:04 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/286655.shtml)
-- 2026-06-30 04:52 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/230673.shtml)
-- 2026-06-30 04:42 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/32692.shtml)
+- 2026-06-30 04:54 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/29746.shtml)
+- 2026-06-30 05:03 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/170092.shtml)
+- 2026-06-30 04:50 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/88373082204.shtml)
+- 2026-06-30 05:09 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/5580140.shtml)
+- 2026-06-30 04:49 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/281438.shtml)
+- 2026-06-30 05:03 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/63074944195.shtml)
+- 2026-06-30 04:52 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/16212.shtml)
+- 2026-06-30 05:09 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/345529210288.shtml)
+- 2026-06-30 04:46 - [逃狱兄弟](http://www.blog.minike.top/Article/details/9579181082.shtml)
+- 2026-06-30 05:03 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/12816958.shtml)
+- 2026-06-30 04:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/83807162713.shtml)
+- 2026-06-30 04:46 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/49972400949.shtml)
+- 2026-06-30 05:06 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/846584004.shtml)
+- 2026-06-30 04:50 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/049153.shtml)
+- 2026-06-30 04:57 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/87877483.shtml)

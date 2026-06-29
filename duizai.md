@@ -1,58 +1,60 @@
-# （近观中国）将中美友好的火炬传给年轻一代
+# 燃油成本飙升千亿美元，IATA预测2026年航空业净利润减半
 
-> 更新时间：2026-06-30 05:06:03 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新社北京5月12日电 题：将中美友好的火炬传给年轻一代 ——访美国艾奥瓦州友人卢卡·贝隆 中新社记者 曾玥 “也许我们相隔万里，但望向同一轮月亮。” 于美国艾奥瓦州友人卢卡·贝隆而言，这是对深厚情谊的诗意表达，也是对美中关系的朴素认知——“我们看向同一个目标，我们向往同一轮月亮。” 这份体悟，源自一段跨越时空的中美“老友记”。近日在北京接受中新社专访时，贝隆向记者展示了一封特
+国际航空运输协会(IATA)6月7日发布最新全球航空业财务展望，受中东航线中断和航空燃油价格飙升的双重冲击，2026年全球航空公司净利润预计将从上年的450亿美元骤降至230亿美元，同比减半。净利润率亦将从4.2%压缩至2.0%，乘客人均净利润从9.10美元降至4.50美元。 燃油成本是此次盈利暴跌的首要推手。国际航协预计，2026年全球航空业燃油总成本将从2520亿美元跃升至
 
 ## 正文
 
-中新社北京5月12日电 题：将中美友好的火炬传给年轻一代 ——访美国艾奥瓦州友人卢卡·贝隆 中新社记者 曾玥 “也许我们相隔万里，但望向同一轮月亮。
+国际航空运输协会(IATA)6月7日发布最新全球航空业财务展望，受中东航线中断和航空燃油价格飙升的双重冲击，2026年全球航空公司净利润预计将从上年的450亿美元骤降至230亿美元，同比减半。
 
-” 于美国艾奥瓦州友人卢卡·贝隆而言，这是对深厚情谊的诗意表达，也是对美中关系的朴素认知——“我们看向同一个目标，我们向往同一轮月亮。
+净利润率亦将从4.2%压缩至2.0%，乘客人均净利润从9.10美元降至4.50美元。
 
-” 这份体悟，源自一段跨越时空的中美“老友记”。
+燃油成本是此次盈利暴跌的首要推手。
 
-近日在北京接受中新社专访时，贝隆向记者展示了一封特殊的信件和贺卡。
+国际航协预计，2026年全球航空业燃油总成本将从2520亿美元跃升至3500亿美元，额外增加近1000亿美元，占运营成本比重超过31%。
 
-2月16日，中国国家主席习近平复信美国艾奥瓦州友人并回赠新春贺卡，致以节日祝福。
+这一预测基于布伦特原油全年均价每桶95美元，较上年上涨37%；航空燃油均价预计达每桶152美元，较上年90美元飙升近70%，裂解价差创下每桶57美元的历史新高。
 
-他在信中重温了41年前访问艾奥瓦州的美好回忆，并写道：“无论形势如何变化，中美两国人民交流合作的愿望不会改变，两国青少年相知相亲的情谊不会改变。
+国际航协理事长威利·沃尔什表示，中东战争导致的航线运营中断和燃油成本上升使航空业前景显著转差，航空燃油价格快速激增70%正在冲击所有航空公司的盈利底线。
 
-” 对两国人文交往的寄语漂洋过海，抵达致信人贝隆手中。
+尽管全球航空客运总量预计仍将增长2.4%至51亿人次，载客率达84%的历史新高，且票价已有所上调，但仍不足以完全抵消成本冲击。
 
-昔日存放日程单、老照片和旧报纸的收藏夹里，又添一份新的珍藏。
+分地区来看，中东航空公司成为唯一预计集体亏损的区域。
 
 ## 相关推荐
 
-- 2026-06-30 04:45 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 04:59 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 05:04 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 04:38 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 04:56 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 05:04 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 04:43 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 04:52 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 04:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 04:36 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 04:41 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 04:57 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 04:57 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 04:44 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 04:47 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 04:49 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 05:06 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 05:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 04:59 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 05:11 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 05:11 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 05:09 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 04:48 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 05:11 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 04:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 05:02 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/76144.shtml)
-- 2026-06-30 04:40 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/26142881921.shtml)
-- 2026-06-30 04:52 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/25414.shtml)
-- 2026-06-30 04:53 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/242715638553.shtml)
-- 2026-06-30 04:54 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/065029.shtml)
-- 2026-06-30 04:56 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/60315169.shtml)
-- 2026-06-30 04:56 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/59491868.shtml)
-- 2026-06-30 04:49 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/027681.shtml)
-- 2026-06-30 04:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/068035239.shtml)
-- 2026-06-30 04:57 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/1884441488.shtml)
-- 2026-06-30 04:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/357023131.shtml)
-- 2026-06-30 04:43 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/04421709879.shtml)
-- 2026-06-30 05:02 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/48577860.shtml)
-- 2026-06-30 04:54 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/781163.shtml)
-- 2026-06-30 05:02 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/124427155.shtml)
+- 2026-06-30 05:06 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/7531947411.shtml)
+- 2026-06-30 05:04 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/504816074.shtml)
+- 2026-06-30 04:47 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/21012.shtml)
+- 2026-06-30 05:06 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/188780.shtml)
+- 2026-06-30 04:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/99429.shtml)
+- 2026-06-30 04:50 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/777375026036.shtml)
+- 2026-06-30 04:59 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/921432486.shtml)
+- 2026-06-30 05:10 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/288695634.shtml)
+- 2026-06-30 04:54 - [毒液2](http://www.blog.kurohicncr.top/Article/details/5265204383.shtml)
+- 2026-06-30 05:01 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/835363619453.shtml)
+- 2026-06-30 04:53 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/4260955.shtml)
+- 2026-06-30 05:04 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/74369628967.shtml)
+- 2026-06-30 05:11 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/60737164810.shtml)
+- 2026-06-30 04:54 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/2675908.shtml)
+- 2026-06-30 04:57 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/2708427.shtml)

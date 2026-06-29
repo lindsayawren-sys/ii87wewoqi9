@@ -1,58 +1,57 @@
-# 日本财长：日美“非常良好地协调”汇率政策，贝森特被指默许干预
+# 香港金管局总裁：国际投资者为香港投下“信任票”
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-片山皋月在与贝森特会谈后宣布，日美在近期汇率走势上“非常良好地协调”，强调干预是可用选项。这被市场解读为贝森特对日本疑似逾500亿美元干预行动的默许。但发布会后日元走弱，显示交易员期待更多。 日本财务大臣片山皋月证实，她的团队正在与美国财政部长斯科特·贝森特（Scott Bessent）就汇率政策进行密切协调，这表明美国默许了日本近期涉嫌实施的市场干预行动。 片山皋月周二在东京
+中新社北京6月9日电 (张晓曦 姜姿屹)香港金融管理局总裁余伟文近日在北京受访时表示，香港“既是国家的一部分，又是国际金融体系的一部分”，这一独特优势让国际投资者持续为香港投下“信任票”。 余伟文近期率团来到北京，并与内地媒体记者会面。他表示，尽管外部环境复杂多变，香港金融体系仍保持稳健，“以稳求进”。 他介绍，目前香港银行体系稳健，资本充足比率超过20%，主要银行平均流动性覆
 
 ## 正文
 
-片山皋月在与贝森特会谈后宣布，日美在近期汇率走势上“非常良好地协调”，强调干预是可用选项。
+中新社北京6月9日电 (张晓曦 姜姿屹)香港金融管理局总裁余伟文近日在北京受访时表示，香港“既是国家的一部分，又是国际金融体系的一部分”，这一独特优势让国际投资者持续为香港投下“信任票”。
 
-这被市场解读为贝森特对日本疑似逾500亿美元干预行动的默许。
+余伟文近期率团来到北京，并与内地媒体记者会面。
 
-但发布会后日元走弱，显示交易员期待更多。
+他表示，尽管外部环境复杂多变，香港金融体系仍保持稳健，“以稳求进”。
 
-日本财务大臣片山皋月证实，她的团队正在与美国财政部长斯科特·贝森特（Scott Bessent）就汇率政策进行密切协调，这表明美国默许了日本近期涉嫌实施的市场干预行动。
+他介绍，目前香港银行体系稳健，资本充足比率超过20%，主要银行平均流动性覆盖率超过160%。
 
-片山皋月周二在东京与贝森特会谈后对记者表示： “关于近期的汇率走势，我们确认日美两国一直在非常良好地协调，并保持着密切沟通。
+截至2026年4月底，香港银行总存款额约19.9万亿港元，较2025年底增长2.4%。
 
-我们还重申，将根据去年9月发布的联合声明，继续在外汇问题上密切合作。
+香港外汇储备规模超过4400亿美元，相当于香港货币基础的约1.6倍，是支持联系汇率制度和金融系统稳定的坚实基础。
 
-” 她指出该协议明确声明，在应对外汇市场过度波动时，汇率干预属于可用选项之一。
+资本市场方面，余伟文提及，香港2025年首次公开招股(IPO)集资额达2858亿港元，同比增长逾两倍，全球排名首位，吸引了不少来自西方及中东的投资者。
 
-“我相信我们在这一点上得到了充分的理解，”片山皋月表示。
+债券市场同样表现活跃，香港已确立其作为亚洲领先的国际债券发行枢纽的地位，占亚洲国际债券发行总额近三成。
 
 ## 相关推荐
 
-- 2026-06-30 04:37 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 04:39 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 05:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 04:44 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 04:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 04:39 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 04:53 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-30 04:47 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 04:51 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 04:58 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 05:02 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 04:41 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 04:45 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 05:06 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 04:53 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 04:44 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 04:57 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 04:50 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 04:52 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 05:05 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 04:46 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 05:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 05:08 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:48 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/127471991835.shtml)
-- 2026-06-30 05:04 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/65609974190.shtml)
-- 2026-06-30 04:43 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/81603514.shtml)
-- 2026-06-30 05:02 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/98759356.shtml)
-- 2026-06-30 04:41 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/420181.shtml)
-- 2026-06-30 04:48 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/494650791.shtml)
-- 2026-06-30 04:51 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/4914434073.shtml)
-- 2026-06-30 05:02 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/5723566.shtml)
-- 2026-06-30 04:40 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/018833497275.shtml)
-- 2026-06-30 04:36 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/024595.shtml)
-- 2026-06-30 04:40 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/4249642684.shtml)
-- 2026-06-30 04:56 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/40261129.shtml)
-- 2026-06-30 04:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/30016072712.shtml)
-- 2026-06-30 04:44 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/62855373.shtml)
-- 2026-06-30 04:57 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/4202426582.shtml)
+- 2026-06-30 04:49 - [沙丘](https://www.blog.kurohicncr.top/Article/details/013307094.shtml)
+- 2026-06-30 04:51 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/9216034.shtml)
+- 2026-06-30 05:07 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/148903410914.shtml)
+- 2026-06-30 04:50 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/2332816718.shtml)
+- 2026-06-30 04:53 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/627683.shtml)
+- 2026-06-30 05:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/48396060.shtml)
+- 2026-06-30 04:45 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/963843210.shtml)
+- 2026-06-30 04:50 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/61385017.shtml)
+- 2026-06-30 05:01 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/18926703861.shtml)
+- 2026-06-30 04:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/134624111932.shtml)
+- 2026-06-30 05:09 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/8105141471.shtml)
+- 2026-06-30 05:05 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/601356321055.shtml)
+- 2026-06-30 04:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/9118399.shtml)
+- 2026-06-30 04:55 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/20639758493.shtml)
+- 2026-06-30 05:11 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/75393604421.shtml)

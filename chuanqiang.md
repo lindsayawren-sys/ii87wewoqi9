@@ -1,57 +1,53 @@
-# 英国议员纷纷倒戈反对首相斯塔默 分析师如今认为其年内大概率下台
+# 乌克兰称其袭击了与Sheskharis相关俄罗斯石油设施
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-核心要点 英国首相基尔・斯塔默如今执政地位命悬一线，越来越多本党议员公开呼吁这位工党党首辞职。 执政党工党在上周地方选举中惨败，选票被左右两翼政党分流，随后党内倒戈声浪四起。 CNBC 为您梳理英国政坛现状及后续演变可能性。 事件始末 本周，大批工党议员公开哗变，要求斯塔默立即辞职，或明确下台时间表，首相宝座岌岌可危。 截至周一晚间，已有 77 名工党议员呼吁斯塔默卸任，内政大
+乌克兰武装部队总参谋部在社交媒体上表示，乌军夜间袭击了俄罗斯Krasnodar地区Grushovaya Balka附近的一座石油转运油库。 袭击导致该设施起火。 这座油库属于相关基础设施的一部分，用于向俄罗斯位于黑海的Sheskharis终端输送石油 乌军还袭击了俄罗斯Volgograd地区的Krasny Yar燃料分输站。 乌方表示，这座分输站属于向Volgograd炼油厂和
 
 ## 正文
 
-核心要点 英国首相基尔・斯塔默如今执政地位命悬一线，越来越多本党议员公开呼吁这位工党党首辞职。
+乌克兰武装部队总参谋部在社交媒体上表示，乌军夜间袭击了俄罗斯Krasnodar地区Grushovaya Balka附近的一座石油转运油库。
 
-执政党工党在上周地方选举中惨败，选票被左右两翼政党分流，随后党内倒戈声浪四起。
+袭击导致该设施起火。
 
-CNBC 为您梳理英国政坛现状及后续演变可能性。
+这座油库属于相关基础设施的一部分，用于向俄罗斯位于黑海的Sheskharis终端输送石油 乌军还袭击了俄罗斯Volgograd地区的Krasny Yar燃料分输站。
 
-事件始末 本周，大批工党议员公开哗变，要求斯塔默立即辞职，或明确下台时间表，首相宝座岌岌可危。
+乌方表示，这座分输站属于向Volgograd炼油厂和Sheskharis终端供应石油的基础设施的一部分。
 
-截至周一晚间，已有 77 名工党议员呼吁斯塔默卸任，内政大臣沙巴娜・马哈穆德是表态要求其下台的最高级别官员。
-
-周二出现首位大臣级辞职：住房与社区部初级部长米亚塔・法恩布勒宣布离职，并呼吁斯塔默 “为国家和工党做出正确抉择，设定有序权力交接时间表”。
-
-她在社交平台 X 上发文称：“民众已不相信你能引领变革，我也同样不信。
-
-” 周一，斯塔默发表讲话试图争取党内同僚支持，主动为工党上周地方议会选举的灾难性结果担责。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 04:54 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-30 04:44 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-30 04:38 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 04:42 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 04:44 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 04:40 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 04:53 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 04:53 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 04:47 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 05:00 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 04:38 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 05:01 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 05:07 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 04:45 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 05:00 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 04:57 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-30 05:04 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 05:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 04:54 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 05:08 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 05:02 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 05:01 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 05:10 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 04:45 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:03 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/19662.shtml)
-- 2026-06-30 04:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/10752568.shtml)
-- 2026-06-30 04:49 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/03818992352.shtml)
-- 2026-06-30 04:43 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/742232609.shtml)
-- 2026-06-30 04:46 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/939548582.shtml)
-- 2026-06-30 05:04 - [美人鱼](https://www.blog.minike.top/Article/details/4416727.shtml)
-- 2026-06-30 04:41 - [天道](http://www.blog.minike.top/Article/details/4128547814.shtml)
-- 2026-06-30 04:46 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/2274440.shtml)
-- 2026-06-30 04:41 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/733665073.shtml)
-- 2026-06-30 05:04 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/71322866.shtml)
-- 2026-06-30 04:55 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/04411456352.shtml)
-- 2026-06-30 04:53 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/71993.shtml)
-- 2026-06-30 04:59 - [日本淘汰](http://www.share.minike.top/Article/details/98341905302.shtml)
-- 2026-06-30 04:42 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/0064737950.shtml)
-- 2026-06-30 05:01 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/14377.shtml)
+- 2026-06-30 04:50 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/9666283926.shtml)
+- 2026-06-30 04:58 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/18139593.shtml)
+- 2026-06-30 04:54 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/37761.shtml)
+- 2026-06-30 05:03 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/8898730.shtml)
+- 2026-06-30 04:46 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/86431.shtml)
+- 2026-06-30 04:44 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/8668905098.shtml)
+- 2026-06-30 04:50 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/952675.shtml)
+- 2026-06-30 05:09 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/987120.shtml)
+- 2026-06-30 05:02 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/80424442.shtml)
+- 2026-06-30 04:58 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/311991.shtml)
+- 2026-06-30 04:49 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/63232456.shtml)
+- 2026-06-30 05:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/59329977026.shtml)
+- 2026-06-30 04:50 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/55930111030.shtml)
+- 2026-06-30 05:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/371899037.shtml)
+- 2026-06-30 05:11 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/12538492303.shtml)

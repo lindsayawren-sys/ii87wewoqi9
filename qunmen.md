@@ -1,59 +1,47 @@
-# 兰州残障青年解锁就业新赛道： AI训练师端数字饭碗
+# 尼日利亚军方成功解救360名被绑架人员
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新网兰州5月12日电 (杨娜)“现在上班可以和同事们聊天交流，这是比挣钱更让我开心的事。”因为腿脚不便，34岁的张荣在成为一名AI训练师做数据标注工作之前，打过螺丝，当过销售，随着年龄渐长，腿脚不便加之没有一技之长，张荣对自己的职业生涯充满迷茫。 在家人的介绍下，张荣来到兰州市七里河区残疾人日间照料省级示范中心，进行AI训练师数据标注技能培训，通过考试之后正式上岗，成为一名数
+发布时间：2026年06月08日 10:21 来源：央视新闻 责任编辑：【李太源】
 
 ## 正文
 
-中新网兰州5月12日电 (杨娜)“现在上班可以和同事们聊天交流，这是比挣钱更让我开心的事。
-
-”因为腿脚不便，34岁的张荣在成为一名AI训练师做数据标注工作之前，打过螺丝，当过销售，随着年龄渐长，腿脚不便加之没有一技之长，张荣对自己的职业生涯充满迷茫。
-
-在家人的介绍下，张荣来到兰州市七里河区残疾人日间照料省级示范中心，进行AI训练师数据标注技能培训，通过考试之后正式上岗，成为一名数据标注员。
-
-5月上旬，指导老师刘红超对张荣和另外二十余名数据标注员进行新一轮的授课培训，帮助他们尽快适应新项目的工作要求。
-
-刘红超介绍说，数据标注的工作，是按照要求和规则在海量数据中把符合要求的内容标记出来。
-
-内容涵盖图像标注、文本标注、语音标注等。
-
-比如自动驾驶需要识别的道路画面、行人、车辆等信息，数据标注员需要在图片上一一画框标注。
-
-这些被标注好的数据，将交给人工智能模型去“学习”，通过多次“喂”数据，让其逐渐学会自动识别。
+发布时间：2026年06月08日 10:21 来源：央视新闻 责任编辑：【李太源】
 
 ## 相关推荐
 
-- 2026-06-30 04:51 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 05:04 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-30 04:50 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 04:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 04:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 04:57 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 04:53 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 05:02 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 05:05 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 05:05 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 04:49 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 05:01 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 05:01 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 04:46 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 04:50 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 04:45 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 04:56 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 04:45 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 04:50 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 04:55 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 04:59 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 05:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 05:00 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 05:11 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 04:45 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 04:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 05:04 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 05:09 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:59 - [啊啊啊](https://www.share.minike.top/Article/details/668832559.shtml)
-- 2026-06-30 04:39 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/8806924566.shtml)
-- 2026-06-30 04:55 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/183252977.shtml)
-- 2026-06-30 04:43 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/22248.shtml)
-- 2026-06-30 04:40 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/76158421.shtml)
-- 2026-06-30 04:37 - [月亮](http://www.share.kurohicncr.top/Article/details/341221.shtml)
-- 2026-06-30 04:42 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/004450781.shtml)
-- 2026-06-30 04:52 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/285014980230.shtml)
-- 2026-06-30 05:03 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/652617414.shtml)
-- 2026-06-30 04:46 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/67066.shtml)
-- 2026-06-30 04:57 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/8460534.shtml)
-- 2026-06-30 04:57 - [月亮](http://www.blog.minike.top/Article/details/781333544520.shtml)
-- 2026-06-30 04:48 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/19001605.shtml)
-- 2026-06-30 05:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/75763513.shtml)
-- 2026-06-30 05:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/135307670718.shtml)
+- 2026-06-30 04:42 - [请回答王牌2019](https://www.blog.minike.top/Article/details/775871502372.shtml)
+- 2026-06-30 04:58 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/781482605298.shtml)
+- 2026-06-30 05:10 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/0191133.shtml)
+- 2026-06-30 04:46 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/74064.shtml)
+- 2026-06-30 04:55 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/5121806.shtml)
+- 2026-06-30 04:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/5446572.shtml)
+- 2026-06-30 05:06 - [月亮](http://www.share.kurohicncr.top/Article/details/60167760.shtml)
+- 2026-06-30 04:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/392109483.shtml)
+- 2026-06-30 04:49 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/9340963.shtml)
+- 2026-06-30 05:01 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/45455280.shtml)
+- 2026-06-30 04:54 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/04779702919.shtml)
+- 2026-06-30 04:57 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/24589.shtml)
+- 2026-06-30 05:09 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/436448663592.shtml)
+- 2026-06-30 04:52 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/3485572945.shtml)
+- 2026-06-30 05:07 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/3275172.shtml)

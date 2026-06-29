@@ -1,55 +1,60 @@
-# 埃隆·马斯克的Terafab计划或助推英特尔及芯片设备公司
+# 梁宝龙盯上企业家群体，沧州银行转让1862笔个贷不良
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-埃隆·马斯克的庞大Terafab项目可能成为英特尔及多家芯片设备公司的重大利好，但华尔街认为目前仍有充分理由保持谨慎。 据Wedbush称，SpaceX正计划向得克萨斯州拟议的半导体制造项目投入550亿美元，如果后续扩建阶段推进，总成本可能高达1190亿美元。仅其规模就已引起投资者关注，因为这将是美国多年来最雄心勃勃的芯片制造项目之一。 对英特尔而言，该故事尤其引人注目之处在于
+文/瑞财经 许淑敏 上个月，沧州银行董事长梁宝龙出席了一个重要活动。 那就是，2026年沧州“企业家日”活动。 沧州银行作为河北省沧州市本土核心法人金融机构，在会上正式发布了“企业家尊享卡”，梁宝龙介绍称，这张卡片，承载了金融、医疗、出行、教育等专属服务。 沧州银行“企业家尊享卡”早于2024年便已发行。 当时提及，该卡以沧州银行信用卡为载体，计划面向沧州地区内五类百强企业、专
 
 ## 正文
 
-埃隆·马斯克的庞大Terafab项目可能成为英特尔及多家芯片设备公司的重大利好，但华尔街认为目前仍有充分理由保持谨慎。
+文/瑞财经 许淑敏 上个月，沧州银行董事长梁宝龙出席了一个重要活动。
 
-据Wedbush称，SpaceX正计划向得克萨斯州拟议的半导体制造项目投入550亿美元，如果后续扩建阶段推进，总成本可能高达1190亿美元。
+那就是，2026年沧州“企业家日”活动。
 
-仅其规模就已引起投资者关注，因为这将是美国多年来最雄心勃勃的芯片制造项目之一。
+沧州银行作为河北省沧州市本土核心法人金融机构，在会上正式发布了“企业家尊享卡”，梁宝龙介绍称，这张卡片，承载了金融、医疗、出行、教育等专属服务。
 
-对英特尔而言，该故事尤其引人注目之处在于，据报道该项目计划使用英特尔未来的14A制造工艺。
+沧州银行“企业家尊享卡”早于2024年便已发行。
 
-Wedbush认为，如果这种合作关系最终得以实现，在英特尔正努力证明其能在先进芯片制造领域再次参与竞争之际，这可能代表着对其代工业务雄心的重要认可。
+当时提及，该卡以沧州银行信用卡为载体，计划面向沧州地区内五类百强企业、专精特新“小巨人”企业家及其高管发行。
 
-责任编辑：张俊 SF065
+沧州银行越发重视企业家群体，可见对于提升个人贷款业务的急切性。
+
+要知道，沧州银行已经迈入3000亿元规模，需要培育新的业绩增长点。
+
+截至2025年末，该行全行资产总额达到3258.51亿元，增速12.41%，各项贷款1947.11亿元，同比新增210.24亿元。
 
 ## 相关推荐
 
-- 2026-06-30 04:43 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 04:52 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 05:01 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 05:02 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 05:04 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 04:44 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 04:42 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 04:44 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 04:49 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 04:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 05:03 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 04:41 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 04:38 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 04:42 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 05:03 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 05:04 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 04:54 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 05:07 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 04:55 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 05:02 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 04:59 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 04:47 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 04:58 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 05:10 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 04:48 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-30 05:10 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 05:10 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:01 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/2336261012.shtml)
-- 2026-06-30 04:47 - [明星大侦探第一季](http://www.share.minike.top/Article/details/518676.shtml)
-- 2026-06-30 04:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/908914.shtml)
-- 2026-06-30 04:49 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/45558.shtml)
-- 2026-06-30 04:49 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/83716.shtml)
-- 2026-06-30 04:54 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/99713407566.shtml)
-- 2026-06-30 05:01 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/31830593461.shtml)
-- 2026-06-30 05:00 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/4753890.shtml)
-- 2026-06-30 04:54 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/1821034095.shtml)
-- 2026-06-30 04:47 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/09625.shtml)
-- 2026-06-30 04:48 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/983360416.shtml)
-- 2026-06-30 04:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/1544948593.shtml)
-- 2026-06-30 04:51 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/5268200302.shtml)
-- 2026-06-30 05:02 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/9262058223.shtml)
-- 2026-06-30 04:47 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/00380.shtml)
+- 2026-06-30 05:01 - [85花告别古偶](http://www.share.minike.top/Article/details/176686458780.shtml)
+- 2026-06-30 05:00 - [日本淘汰](http://www.share.minike.top/Article/details/941454280.shtml)
+- 2026-06-30 04:55 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/02774059.shtml)
+- 2026-06-30 04:58 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/742215.shtml)
+- 2026-06-30 04:59 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/94475.shtml)
+- 2026-06-30 04:52 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/13991.shtml)
+- 2026-06-30 05:02 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/00710.shtml)
+- 2026-06-30 04:46 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/4739958213.shtml)
+- 2026-06-30 04:50 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/97700722.shtml)
+- 2026-06-30 04:52 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/38647069468.shtml)
+- 2026-06-30 05:07 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/10261.shtml)
+- 2026-06-30 04:55 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/3253829379.shtml)
+- 2026-06-30 04:53 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/142983599.shtml)
+- 2026-06-30 04:53 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/424344317.shtml)
+- 2026-06-30 05:03 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/013767959.shtml)

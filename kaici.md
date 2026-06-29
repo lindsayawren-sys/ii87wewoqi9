@@ -1,61 +1,61 @@
-# 中国和塔吉克斯坦关于深化新时代全面战略合作伙伴关系的联合声明
+# 云知声正式发布新一代自研通用大语言模型-U2
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中华人民共和国和塔吉克斯坦共和国关于深化新时代全面战略合作伙伴关系的联合声明icon_voice_onicon_voice 新华社北京5月12日电中华人民共和国和塔吉克斯坦共和国关于深化新时代全面战略合作伙伴关系的联合声明 应中华人民共和国主席习近平邀请，塔吉克斯坦共和国总统埃莫马利·拉赫蒙于2026年5月11日至14日对中华人民共和国进行国事访问。 两国元首在亲切友好的气氛中
+云知声（09678）发布公告，2026年6月8日，本公司正式发布新一代自研通用大语言模型 — U2。 U2大模型采用行业前沿的基于快慢思考融合的MoE混合专家范式架构搭建，依托高精度数据提纯与高密度语义表征能力，以2660亿参数规模实现了顶级水准的大模型性能。模型以“智能密度×Token价值”为核心底层逻辑聚焦提升单位 Token有效知识的承载量与业务产出价值，打造高价值、高效
 
 ## 正文
 
-中华人民共和国和塔吉克斯坦共和国关于深化新时代全面战略合作伙伴关系的联合声明icon_voice_onicon_voice 新华社北京5月12日电中华人民共和国和塔吉克斯坦共和国关于深化新时代全面战略合作伙伴关系的联合声明 应中华人民共和国主席习近平邀请，塔吉克斯坦共和国总统埃莫马利·拉赫蒙于2026年5月11日至14日对中华人民共和国进行国事访问。
+云知声（09678）发布公告，2026年6月8日，本公司正式发布新一代自研通用大语言模型 — U2。
 
-两国元首在亲切友好的气氛中举行会谈，就中华人民共和国和塔吉克斯坦共和国（以下称“双方”）关系、深化全方位平等合作以及共同关心的国际和地区问题深入交换意见，达成广泛共识。
+U2大模型采用行业前沿的基于快慢思考融合的MoE混合专家范式架构搭建，依托高精度数据提纯与高密度语义表征能力，以2660亿参数规模实现了顶级水准的大模型性能。
 
-双方高度评价2024年7月《中华人民共和国和塔吉克斯坦共和国关于发展新时代全面战略合作伙伴关系的联合声明》签署以来双边关系进展，一致同意秉持世代友好、休戚与共、互利共赢的精神，进一步深化中塔新时代全面战略合作伙伴关系，推动构建双边命运共同体。
+模型以“智能密度×Token价值”为核心底层逻辑聚焦提升单位 Token有效知识的承载量与业务产出价值，打造高价值、高效率的大模型基座。
 
-一、双方强调，高层交往对中塔关系发展具有重要意义，愿落实两国元首达成的重要共识。
+U2为原生Agent驱动大模型，实现全栈开发、智能编排与深度推理一体化交付。
 
-进一步密切中央和地方政府、立法机构、政党等领域交往合作，深化治国理政经验交流。
+依托首创的原生推理路径蒸馏技术，可自主完成任务拆解、执行、校验与优化，形成全链路闭环，是新一代AI Agent的理想原生基座。
 
-双方强调建立两国外长战略对话机制具有重要意义，愿发挥该机制作用推动两国合作。
+同时，模型创新搭载混合思考模式，并采用模型Harness同步训练机制，大幅降低单任务Token消耗，显著提升Token整体使用效率，形成突出的推理成本优势，可广泛适配多领域、多场景商业化应用。
 
-二、中方高度评价在埃莫马利·拉赫蒙总统的领导下，塔吉克斯坦共和国为巩固国家主权、安全和领土完整，推进对外开放取得的成就。
+在权威专业评测中，U2大模型综合表现优异：在指令遵循、长上下文、科学推理、软件工程智能体、特定工具链适配（Claw评测）等硬核赛道上，性能可对标全球顶尖模型。
 
-中方一如既往坚定支持塔方自主选择的发展道路，尊重塔方实行开放、务实、和平外交政策，认为塔方政策不仅提升自身国际声望，并成为中亚地区的主要稳定因素。
+本次U2大模型的正式发布，标志着本公司AI商业化路径迎来全新升级。
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 04:36 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 04:43 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 05:00 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 04:58 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 04:47 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 05:03 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 04:59 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 05:06 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 04:46 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 04:59 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 04:57 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-30 04:47 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 04:51 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 04:53 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 04:43 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-30 04:54 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 05:01 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 05:04 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 05:03 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 05:08 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 04:45 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 04:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 05:11 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 04:44 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 05:03 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 04:47 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 04:55 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 05:02 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 04:56 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/68960715.shtml)
-- 2026-06-30 04:55 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/854796698594.shtml)
-- 2026-06-30 04:49 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/95629.shtml)
-- 2026-06-30 05:01 - [刘念回应](https://www.share.kurohicncr.top/Article/details/07109581.shtml)
-- 2026-06-30 04:54 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/8489673208.shtml)
-- 2026-06-30 05:04 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/96297001134.shtml)
-- 2026-06-30 04:48 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/2322057645.shtml)
-- 2026-06-30 05:05 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/8342231.shtml)
-- 2026-06-30 05:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/716556751755.shtml)
-- 2026-06-30 04:52 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/87592059.shtml)
-- 2026-06-30 04:40 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/45548044477.shtml)
-- 2026-06-30 04:51 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/09424601863.shtml)
-- 2026-06-30 05:04 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/095387439630.shtml)
-- 2026-06-30 04:37 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/1259803.shtml)
-- 2026-06-30 05:00 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/601506547.shtml)
+- 2026-06-30 04:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/917454724638.shtml)
+- 2026-06-30 05:05 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/325651056295.shtml)
+- 2026-06-30 05:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/07412077920.shtml)
+- 2026-06-30 04:57 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/24298145007.shtml)
+- 2026-06-30 04:51 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/57803353422.shtml)
+- 2026-06-30 04:43 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/84309.shtml)
+- 2026-06-30 04:42 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/654194.shtml)
+- 2026-06-30 04:43 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/50476176.shtml)
+- 2026-06-30 04:42 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/5900539119.shtml)
+- 2026-06-30 04:47 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/272810977287.shtml)
+- 2026-06-30 04:57 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/84210420427.shtml)
+- 2026-06-30 05:07 - [金刚川](http://www.share.minike.top/Article/details/582906652.shtml)
+- 2026-06-30 04:58 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/699966.shtml)
+- 2026-06-30 05:05 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/633199503213.shtml)
+- 2026-06-30 04:46 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/867098822395.shtml)

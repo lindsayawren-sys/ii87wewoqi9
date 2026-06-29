@@ -1,59 +1,57 @@
-# Kinder Morgan势将结束六连跌，油价反弹提振能源板块
+# 亚马逊与康宁达成数据中心光纤供应协议
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-Kinder Morgan股价周一跳涨约3%，势将结束此前连续六个交易日的下跌走势，受益于原油价格反弹及地缘政治紧张局势再度升温。 此前，该股自5月1日起持续走低，截至5月8日累计跌幅超过3%。周一盘中，Kinder Morgan股价上涨约2.3%至32.13美元，将年内涨幅扩大至约16%，远超标普500指数同期近8%的涨幅。 涨势主要受能源板块整体走强带动。美国总统特朗普当日
+在竞相建设足够算力以推动人工智能发展的热潮中，康宁的光纤光缆业务势头正劲 亚马逊公司表示，已与康宁达成一项数十亿美元的协议，采购光纤、光缆及连接解决方案，以支持其不断扩张的数据中心布局。 两家公司周一披露，这项投资将使康宁能够扩大生产，并在其位于北卡罗来纳州的制造工厂新增1000个就业岗位。 康宁股价周一早盘上涨5.7%，至187.70美元。该股今年已累计上涨逾一倍。 康宁以生
 
 ## 正文
 
-Kinder Morgan股价周一跳涨约3%，势将结束此前连续六个交易日的下跌走势，受益于原油价格反弹及地缘政治紧张局势再度升温。
+在竞相建设足够算力以推动人工智能发展的热潮中，康宁的光纤光缆业务势头正劲 亚马逊公司表示，已与康宁达成一项数十亿美元的协议，采购光纤、光缆及连接解决方案，以支持其不断扩张的数据中心布局。
 
-此前，该股自5月1日起持续走低，截至5月8日累计跌幅超过3%。
+两家公司周一披露，这项投资将使康宁能够扩大生产，并在其位于北卡罗来纳州的制造工厂新增1000个就业岗位。
 
-周一盘中，Kinder Morgan股价上涨约2.3%至32.13美元，将年内涨幅扩大至约16%，远超标普500指数同期近8%的涨幅。
+康宁股价周一早盘上涨5.7%，至187.70美元。
 
-涨势主要受能源板块整体走强带动。
+该股今年已累计上涨逾一倍。
 
-美国总统特朗普当日公开拒绝了伊朗的和平提议，称停火协议“命悬一线”。
+康宁以生产特种玻璃、陶瓷和光纤产品而闻名。
 
-受此影响，埃克森美孚、雪佛龙、康菲石油等能源股普遍上涨约2%至3%。
+在竞相建设足够算力以推动人工智能发展的热潮中，该公司近期势头强劲。
 
-Kinder Morgan近期基本面亦传出利好。
+这家曾为托马斯·爱迪生制造灯泡的企业，其光纤光缆产品——作为人工智能基础设施的关键连接载体——已吸引了众多超大规模数据中心运营商的强劲需求。
 
-公司一季度财报显示，调整后每股收益达0.48美元，远超市场预期的0.40美元；营收48.3亿美元，同样超出预期。
+上个月，康宁获得了英伟达5亿美元的投资，作为双方扩大光纤制造合作的组成部分。
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 05:04 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 05:02 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 04:58 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 04:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 05:00 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 04:38 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 04:46 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 04:57 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 05:04 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 05:00 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 04:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 05:02 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 05:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 04:51 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 05:08 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 04:59 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 04:53 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 04:47 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 04:46 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 04:53 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 04:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 04:46 - [巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 05:01 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:56 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/915041645682.shtml)
-- 2026-06-30 05:05 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/730590496.shtml)
-- 2026-06-30 04:36 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/662278361139.shtml)
-- 2026-06-30 05:04 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/6836994847.shtml)
-- 2026-06-30 04:42 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/9569708.shtml)
-- 2026-06-30 04:49 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/646295.shtml)
-- 2026-06-30 04:53 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/2385669.shtml)
-- 2026-06-30 05:03 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/339537001.shtml)
-- 2026-06-30 04:37 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/520515.shtml)
-- 2026-06-30 04:36 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/42210.shtml)
-- 2026-06-30 04:37 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/663281183.shtml)
-- 2026-06-30 04:53 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/9680991644.shtml)
-- 2026-06-30 04:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/52460161.shtml)
-- 2026-06-30 05:03 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/8347686.shtml)
-- 2026-06-30 04:53 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/849375.shtml)
+- 2026-06-30 04:42 - [刘念回应](http://www.share.minike.top/Article/details/517081769825.shtml)
+- 2026-06-30 04:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/0488866919.shtml)
+- 2026-06-30 05:07 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/32745.shtml)
+- 2026-06-30 05:09 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/97669724391.shtml)
+- 2026-06-30 04:53 - [巴西vs日本](https://www.blog.minike.top/Article/details/58303.shtml)
+- 2026-06-30 04:46 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/11091.shtml)
+- 2026-06-30 04:57 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/200719871855.shtml)
+- 2026-06-30 05:07 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/9642390818.shtml)
+- 2026-06-30 04:53 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/0001411594.shtml)
+- 2026-06-30 05:08 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/569102.shtml)
+- 2026-06-30 04:42 - [流金岁月](https://www.share.minike.top/Article/details/03049043203.shtml)
+- 2026-06-30 04:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/73109.shtml)
+- 2026-06-30 05:03 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/196979.shtml)
+- 2026-06-30 05:06 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/908286911.shtml)
+- 2026-06-30 05:04 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/4899956620.shtml)

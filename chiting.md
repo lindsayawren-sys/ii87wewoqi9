@@ -1,59 +1,52 @@
-# 人工智能概念股涨势消退，中东停火协议“命悬一线”
+# 菲律宾棉兰老岛海域发生7.9级地震 或引发区域海啸
 
-> 更新时间：2026-06-30 05:06:03 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-周二，油价小幅上涨、美元走强，市场对霍尔木兹海峡航运通航协议的希望破灭；与此同时，芯片股的火热涨势降温，交易员静待美国通胀数据出炉。 美国总统唐纳德・特朗普表示，与伊朗为期一个月的停火协议已 “命悬一线”。此前，伊朗方面对美国提出的结束战争方案作出回应，明确显示双方分歧巨大。 布伦特原油期货上涨 2%，至每桶约 106.4 美元。 欧洲方面，斯托克 600 指数（STOXX 6
+中新社北京6月8日电 (记者 阮煜琳)据中国地震台网正式测定，2026年6月8日7时37分(北京时间)，菲律宾棉兰老岛海域(北纬5.55度，东经125.1度)发生7.9级地震，震源深度为40千米。中国自然资源部海啸预警中心根据初步地震参数判断，地震可能会在震源周围数百公里范围内引发区域海啸，但不会对中国沿岸造成灾害性影响。 中国自然资源部海啸预警中心表示，将继续跟踪分析地震和海
 
 ## 正文
 
-周二，油价小幅上涨、美元走强，市场对霍尔木兹海峡航运通航协议的希望破灭；与此同时，芯片股的火热涨势降温，交易员静待美国通胀数据出炉。
+中新社北京6月8日电 (记者 阮煜琳)据中国地震台网正式测定，2026年6月8日7时37分(北京时间)，菲律宾棉兰老岛海域(北纬5.55度，东经125.1度)发生7.9级地震，震源深度为40千米。
 
-美国总统唐纳德・特朗普表示，与伊朗为期一个月的停火协议已 “命悬一线”。
+中国自然资源部海啸预警中心根据初步地震参数判断，地震可能会在震源周围数百公里范围内引发区域海啸，但不会对中国沿岸造成灾害性影响。
 
-此前，伊朗方面对美国提出的结束战争方案作出回应，明确显示双方分歧巨大。
+中国自然资源部海啸预警中心表示，将继续跟踪分析地震和海啸监测数据，并及时发布信息。
 
-布伦特原油期货上涨 2%，至每桶约 106.4 美元。
-
-欧洲方面，斯托克 600 指数（STOXX 600）较 2 月底创下的历史高点仅低 4%，早盘下跌 1.2%；美国标普 500 指数和纳斯达克指数期货分别下跌 0.4% 和 0.7%。
-
-摩根士丹利资本国际（MSCI）除日本外亚洲股指下跌 0.6%。
-
-就连首尔近乎势不可挡的韩国综合股价指数（KOSPI）也涨势遇阻，在逼近 8000 点时回落，下跌约 3.5%，拖累区域其他市场走低。
-
-德意志银行策略师吉姆・里德表示，美伊双方谈判僵局未见缓解，布伦特原油价格延续前一日涨势。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:48 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 04:45 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 04:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 05:05 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-30 05:01 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 04:52 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 04:37 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 04:51 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 04:52 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 04:56 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 04:59 - [人类...完蛋了...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 04:56 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 05:02 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 05:10 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 05:00 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 04:57 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 04:55 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 04:56 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-30 04:54 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 05:03 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 04:42 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 04:52 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 05:05 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 04:54 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 04:42 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 05:10 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 04:54 - [刘念回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:50 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/533199467.shtml)
-- 2026-06-30 04:44 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/163550076.shtml)
-- 2026-06-30 04:49 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/162802999.shtml)
-- 2026-06-30 05:01 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/6604357085.shtml)
-- 2026-06-30 05:01 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/03966813687.shtml)
-- 2026-06-30 05:04 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/012503475807.shtml)
-- 2026-06-30 04:47 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/1325563.shtml)
-- 2026-06-30 04:39 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/009416103.shtml)
-- 2026-06-30 04:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/994766150.shtml)
-- 2026-06-30 05:00 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/05114945.shtml)
-- 2026-06-30 05:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/711088686416.shtml)
-- 2026-06-30 04:55 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/6807327.shtml)
-- 2026-06-30 04:54 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/28056594.shtml)
-- 2026-06-30 05:02 - [这一刀 会很帅](https://www.share.minike.top/Article/details/66122.shtml)
-- 2026-06-30 04:44 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/8919719.shtml)
+- 2026-06-30 05:00 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/03983563.shtml)
+- 2026-06-30 05:06 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/28140397066.shtml)
+- 2026-06-30 04:51 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/385945357395.shtml)
+- 2026-06-30 05:03 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/173771774479.shtml)
+- 2026-06-30 04:49 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/37792264522.shtml)
+- 2026-06-30 04:56 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/96082.shtml)
+- 2026-06-30 04:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/22836080.shtml)
+- 2026-06-30 04:54 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/462501.shtml)
+- 2026-06-30 05:05 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/2964103.shtml)
+- 2026-06-30 05:02 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/0437865.shtml)
+- 2026-06-30 04:57 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/333947.shtml)
+- 2026-06-30 05:09 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/46325022220.shtml)
+- 2026-06-30 04:49 - [流金岁月](http://www.share.minike.top/Article/details/236844.shtml)
+- 2026-06-30 04:44 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/3396469.shtml)
+- 2026-06-30 04:56 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/5872219.shtml)

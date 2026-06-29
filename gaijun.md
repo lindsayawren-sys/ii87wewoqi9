@@ -1,58 +1,59 @@
-# 谷歌母公司Alphabet拟发行日元债券，为AI基建筹措资金
+# 重庆海关备份软件购置采购项目比选公告
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-科技巨头Alphabet计划首次进军日本债券市场，拟面向日本合格机构投资者发行多批次日元计价票据，以进一步拓宽融资渠道，为其大规模人工智能基础设施建设提供资金支持。该公司已聘请美银证券、瑞穗证券和摩根士丹利负责此次发行，具体规模预计达数千亿日元，条款将于本月内敲定。 此次发债正值Alphabet大幅加码AI投资之际。公司已将2026年全年资本支出指引上调至1800亿至1900亿
+中华人民共和国重庆海关对重庆海关备份软件购置采购项目进行比选采购，现邀请符合资格条件的投标人参加本项目比选。本项目采购活动将严格落实节约能源、保护环境、扶持不发达地区和少数民族地区、促进中小企业发展等政府采购政策。 一、项目基本情况(详见第5章采购需求。) 二、供应商资格要求 满足《中华人民共和国政府采购法》第二十二条规定； 特定资格要求： 无 三、行业类型：软件和信息技术服务
 
 ## 正文
 
-科技巨头Alphabet计划首次进军日本债券市场，拟面向日本合格机构投资者发行多批次日元计价票据，以进一步拓宽融资渠道，为其大规模人工智能基础设施建设提供资金支持。
+中华人民共和国重庆海关对重庆海关备份软件购置采购项目进行比选采购，现邀请符合资格条件的投标人参加本项目比选。
 
-该公司已聘请美银证券、瑞穗证券和摩根士丹利负责此次发行，具体规模预计达数千亿日元，条款将于本月内敲定。
+本项目采购活动将严格落实节约能源、保护环境、扶持不发达地区和少数民族地区、促进中小企业发展等政府采购政策。
 
-此次发债正值Alphabet大幅加码AI投资之际。
+一、项目基本情况(详见第5章采购需求。
 
-公司已将2026年全年资本支出指引上调至1800亿至1900亿美元，主要用于数据中心、服务器及网络设备等AI基础设施。
+) 二、供应商资格要求 满足《中华人民共和国政府采购法》第二十二条规定； 特定资格要求： 无 三、行业类型：软件和信息技术服务业 四、比选文件的获取 获取时间：2026年6月9日起至提交响应文件截止时间前。
 
-今年第一季度，Alphabet单季资本支出已达357亿美元。
+获取方式：在重庆海关官方网站 (http://chongqing.customs.gov.cn)自行下载本项目的比选文件、答疑、补遗等与本项目有关的所有资料，并随时关注本项目相关修改或补充内容。
 
-密集发债旨在为庞大的资本开支提供低成本资金。
+无论供应商下载与否，采购人都视为供应商已收到以上资料并全部知晓有关比选采购过程和事宜，由此产生的一切后果由供应商自负。
 
-就在一周前，Alphabet刚刚完成了公司史上规模最大的欧元债券发行，并首次发行加元债券，合计募资近170亿美元。
+售价：无。
 
-此前数月，该公司还首次发行了英镑和瑞士法郎计价债券。
+五、响应文件的递交 凡有意参加的供应商，请于2026年6月15日12:00(北京时间)前，采取邮寄方式，将响应文件送达采购人(送达时间以采购人签收时间为准)，文件一正一副，并在封面右上角注明。
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 05:02 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 04:58 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 04:39 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-30 04:39 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 04:49 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 05:05 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 05:03 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 05:02 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 04:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 04:49 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 04:41 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 04:50 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 04:45 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 05:02 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 04:42 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 04:43 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 04:53 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 05:08 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 05:07 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 04:57 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 04:53 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 04:48 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 04:43 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 04:57 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/94369974.shtml)
-- 2026-06-30 04:41 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/0162330.shtml)
-- 2026-06-30 04:50 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/5808339270.shtml)
-- 2026-06-30 04:56 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/378751976711.shtml)
-- 2026-06-30 04:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/72530215.shtml)
-- 2026-06-30 04:57 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.minike.top/Article/details/75617050004.shtml)
-- 2026-06-30 04:45 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/637441.shtml)
-- 2026-06-30 04:47 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/074188.shtml)
-- 2026-06-30 04:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/8641598158.shtml)
-- 2026-06-30 04:46 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/44678969.shtml)
-- 2026-06-30 04:55 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/9419343582.shtml)
-- 2026-06-30 04:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/94910.shtml)
-- 2026-06-30 04:39 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/327055965.shtml)
-- 2026-06-30 04:50 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/396445866186.shtml)
-- 2026-06-30 04:38 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/145622591.shtml)
+- 2026-06-30 05:05 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/48720.shtml)
+- 2026-06-30 04:56 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/1142267439.shtml)
+- 2026-06-30 05:04 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/94472858.shtml)
+- 2026-06-30 05:11 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/09263.shtml)
+- 2026-06-30 05:00 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/1656500.shtml)
+- 2026-06-30 05:08 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/50034231.shtml)
+- 2026-06-30 04:55 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/0829565050.shtml)
+- 2026-06-30 04:47 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/19012203009.shtml)
+- 2026-06-30 04:45 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/88005406986.shtml)
+- 2026-06-30 04:43 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/30077128103.shtml)
+- 2026-06-30 04:45 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/7205005965.shtml)
+- 2026-06-30 05:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/687470491.shtml)
+- 2026-06-30 05:06 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/23166684157.shtml)
+- 2026-06-30 04:58 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/10954874718.shtml)
+- 2026-06-30 05:01 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/112090568477.shtml)

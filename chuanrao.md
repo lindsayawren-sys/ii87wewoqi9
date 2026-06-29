@@ -1,60 +1,61 @@
-# 古稀老人守护《太平年》里的福州印记：“纳土归宋、保境安民” 的千年佳话
+# （经济观察）三峡水运新通道开工 中国扩容长江黄金水道
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 19:28 来源：中国新闻网 历史题材电视剧《太平年》热播，将吴越钱氏 “纳土归宋、保境安民” 的千年佳话推向大众视野，也让藏于福州的钱王纪念堂逐渐走进大众视野。如今这里既是不少市民游客寻古打卡的人文去处，也是福州钱氏宗亲溯源寻根、传承家风的重要载体。 唐末宋初，北方纷争割据、社会动荡，面对北宋统一大势，吴越国君主钱弘俶主动献出治下十三州归宋，
+中新社北京6月8日电 题：三峡水运新通道开工 中国扩容长江黄金水道 中新社记者 王恩博 随着一项总投资约772亿元人民币的重大工程开工，中国的长江黄金水道即将迎来扩容。 三峡水运新通道工程开工仪式8日在湖北宜昌举行。这是三峡工程之后长江干线上集水利、航运、生态等功能于一体的最大综合性工程，也是“十五五”时期开工建设的首个国家重大标志性工程。 “黄金水道”长江，不仅是一条水道，更
 
 ## 正文
 
-发布时间：2026年05月11日 19:28 来源：中国新闻网 历史题材电视剧《太平年》热播，将吴越钱氏 “纳土归宋、保境安民” 的千年佳话推向大众视野，也让藏于福州的钱王纪念堂逐渐走进大众视野。
+中新社北京6月8日电 题：三峡水运新通道开工 中国扩容长江黄金水道 中新社记者 王恩博 随着一项总投资约772亿元人民币的重大工程开工，中国的长江黄金水道即将迎来扩容。
 
-如今这里既是不少市民游客寻古打卡的人文去处，也是福州钱氏宗亲溯源寻根、传承家风的重要载体。
+三峡水运新通道工程开工仪式8日在湖北宜昌举行。
 
-唐末宋初，北方纷争割据、社会动荡，面对北宋统一大势，吴越国君主钱弘俶主动献出治下十三州归宋，使包含福建在内的百姓免于战火。
+这是三峡工程之后长江干线上集水利、航运、生态等功能于一体的最大综合性工程，也是“十五五”时期开工建设的首个国家重大标志性工程。
 
-《太平年》以此为背景，将“纳土归宋”的历史故事带回大众视野，福州正是这段历史的重要见证地。
+“黄金水道”长江，不仅是一条水道，更是一条经济走廊。
 
-钱王纪念堂坐落于福州市晋安区郭前村真珠谷，于1997年由海内外3万闽籍钱氏后裔筹资兴建。
+长江经济带覆盖11省市，其人口和生产总值均超过中国的40%，全国500强企业有近200家分布在沿江地带。
 
-一楼正厅内，3.5米高的吴越国创建者钱镠铜像威严端坐，身后十六幅青花瓷版画以《钱王故事》为蓝本，讲述其射潮治水、保境安民的一生。
+支撑这一经济带高效运转的重要基础，正是长江航运，其货运量长期稳居全球内河第一，沿江85%铁矿石、83%电煤和85%外贸货物运输依靠长江航运实现。
 
-左壁镌刻的《钱氏家训》尤为瞩目，2021年，《钱氏家训》被列入国家级非物质文化遗产代表性项目名录，成为首个国家级家训类非遗代表性项目。
+2003年三峡库区蓄水后，长江航道条件显著改善，航运能力持续释放。
 
-短短数百字，涵盖个人、家庭、社会、国家四篇，其中“利在一身勿谋也，利在天下者必谋之”“心术不可得罪于天地，言行皆当无愧于圣贤”等名言广为流传，激励着后人不断进取。
+2011年，三峡枢纽通过货运量突破1亿吨，提前19年达到规划运量。
 
 ## 相关推荐
 
-- 2026-06-30 04:47 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 05:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 04:49 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 05:04 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 04:54 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 05:02 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 04:43 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 04:40 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 04:47 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 04:43 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 04:45 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 04:51 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 04:40 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 04:55 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 04:53 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 04:55 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 05:08 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 04:52 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 04:44 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 04:47 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 04:47 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 04:51 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 05:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 05:00 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 04:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 04:52 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 05:10 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 04:48 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 05:09 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:56 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/17773.shtml)
-- 2026-06-30 05:00 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/387218032.shtml)
-- 2026-06-30 04:40 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/1236231.shtml)
-- 2026-06-30 04:49 - [王欣瑜2-1击败科恰雷托](http://www.share.kurohicncr.top/Article/details/535385739.shtml)
-- 2026-06-30 04:48 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/33096.shtml)
-- 2026-06-30 04:44 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/82365.shtml)
-- 2026-06-30 04:41 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/9392524.shtml)
-- 2026-06-30 04:54 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/535539850.shtml)
-- 2026-06-30 04:57 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/55227857.shtml)
-- 2026-06-30 05:01 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/804578.shtml)
-- 2026-06-30 05:03 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/802228070.shtml)
-- 2026-06-30 04:43 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/376631260.shtml)
-- 2026-06-30 04:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/6393938.shtml)
-- 2026-06-30 04:46 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/90319366945.shtml)
-- 2026-06-30 04:40 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/70389793982.shtml)
+- 2026-06-30 04:51 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/28257934357.shtml)
+- 2026-06-30 04:59 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/976187263.shtml)
+- 2026-06-30 05:01 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/6907670.shtml)
+- 2026-06-30 04:59 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/17391.shtml)
+- 2026-06-30 04:49 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/8686497.shtml)
+- 2026-06-30 04:56 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/109914850.shtml)
+- 2026-06-30 05:07 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/7553682.shtml)
+- 2026-06-30 04:58 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/384998574028.shtml)
+- 2026-06-30 04:57 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/9199573.shtml)
+- 2026-06-30 04:59 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/601167731.shtml)
+- 2026-06-30 04:49 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/1673123664.shtml)
+- 2026-06-30 05:11 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/47326837944.shtml)
+- 2026-06-30 05:09 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/322356606673.shtml)
+- 2026-06-30 05:03 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/273795481.shtml)
+- 2026-06-30 04:49 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/5525931.shtml)

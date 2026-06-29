@@ -1,57 +1,60 @@
-# 对冲基金押注生物燃料，以期从伊朗战争引发的油价冲击中获利
+# 金价大跌！有人越跌越买，“狂买48根金条”；有人变现94万离场
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-随着伊朗战争导致能源市场大幅飙升，并加剧了市场对霍尔木兹海峡燃料供应长期中断的担忧，对冲基金正大举买入用于生产生物燃料的农产品。 根据美国商品期货交易委员会的数据，自中东冲突爆发以来，对冲基金对用于生产生物柴油的豆油的净看涨押注几乎增加了两倍。在用于生产乙醇的玉米方面，对冲基金已从押注价格下跌转为今年以来最高水平的看涨押注。 对冲基金经理和交易员表示，自冲突爆发以来，油价已经飙
+中新经纬6月8日电 (李自曼)“昨天人挺多的，今天人也不少。现在10克的投资金条缺货(无花样纹饰)，昨天有个人买了48根10克的投资金条，下次到货大约1周，也可能有变动。”8日，北京菜百首饰投资金条柜台的一位销售人员说。 8日，现货黄金一度失守4300美元/盎司，上海黄金交易所Au99.99收盘价为941.01元/克，最低价为932.0元/克。中新经纬以投资者的身份走访北京地区
 
 ## 正文
 
-随着伊朗战争导致能源市场大幅飙升，并加剧了市场对霍尔木兹海峡燃料供应长期中断的担忧，对冲基金正大举买入用于生产生物燃料的农产品。
+中新经纬6月8日电 (李自曼)“昨天人挺多的，今天人也不少。
 
-根据美国商品期货交易委员会的数据，自中东冲突爆发以来，对冲基金对用于生产生物柴油的豆油的净看涨押注几乎增加了两倍。
+现在10克的投资金条缺货(无花样纹饰)，昨天有个人买了48根10克的投资金条，下次到货大约1周，也可能有变动。
 
-在用于生产乙醇的玉米方面，对冲基金已从押注价格下跌转为今年以来最高水平的看涨押注。
+”8日，北京菜百首饰投资金条柜台的一位销售人员说。
 
-对冲基金经理和交易员表示，自冲突爆发以来，油价已经飙升，许多基金认为农产品价格将成为下一个起飞的市场。
+8日，现货黄金一度失守4300美元/盎司，上海黄金交易所Au99.99收盘价为941.01元/克，最低价为932.0元/克。
 
-“我认为这不仅仅是稳步的转向，”RCMA Capital负责人在谈及对冲基金在这些软性大宗商品上的头寸迅速变化时表示，“我认为这是一场闪电战。
+中新经纬以投资者的身份走访北京地区最热门的首饰店铺——菜百首饰，了解金饰和投资金条的消费情况。
 
-” 负责人所在的公司管理着The Merchant Commodity Fund。
+30克金手镯比年初便宜近万元 在菜百首饰一楼黄金首饰柜台前，有时几位销售人员并排站立，比来挑选的顾客还多。
 
-他补充说，对冲基金已经“蜂拥进入”豆油领域，被飙升的加工利润以及各国政府为应对能源冲击将加速国内生物燃料生产的预期所吸引。
+这与此前排长队的火爆场面形成了鲜明反差。
 
-随着美国-以色列对伊朗的战争将油价从每桶72美元推高至100美元以上，各国政府寻求通过扩大国内生物燃料生产来减少对进口碳氢化合物的依赖，从而推动了对玉米、糖和植物油的需求。
+黄金首饰柜台 中新经纬李自曼 摄 菜百首饰销售人员表示，金价下跌以来，虽然客流较年初高点明显减少，但周末人流量好于工作日。
 
 ## 相关推荐
 
-- 2026-06-30 04:56 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 05:00 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 04:41 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 04:40 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 04:46 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 04:58 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 04:43 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 05:05 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 05:02 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 05:05 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 04:48 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 04:48 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 04:56 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 04:56 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 04:57 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 04:56 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 05:07 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 05:10 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 04:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 05:09 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 04:56 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 05:02 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 04:56 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 05:08 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 04:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:01 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/25733554.shtml)
-- 2026-06-30 04:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/24468902.shtml)
-- 2026-06-30 04:53 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/985901365.shtml)
-- 2026-06-30 04:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/125086368.shtml)
-- 2026-06-30 04:38 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/7324667093.shtml)
-- 2026-06-30 05:03 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/26780524702.shtml)
-- 2026-06-30 04:56 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/135471190107.shtml)
-- 2026-06-30 04:46 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/89173524388.shtml)
-- 2026-06-30 04:50 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/84374.shtml)
-- 2026-06-30 04:48 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/64089242754.shtml)
-- 2026-06-30 04:58 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/987712.shtml)
-- 2026-06-30 04:57 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/8324905960.shtml)
-- 2026-06-30 04:55 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/8837140909.shtml)
-- 2026-06-30 04:40 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/671692.shtml)
-- 2026-06-30 04:42 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/85909107815.shtml)
+- 2026-06-30 05:06 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/05974458.shtml)
+- 2026-06-30 04:44 - [千与千寻](https://www.blog.minike.top/Article/details/9385156.shtml)
+- 2026-06-30 04:58 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/25043.shtml)
+- 2026-06-30 04:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/5963012521.shtml)
+- 2026-06-30 04:42 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/123621404.shtml)
+- 2026-06-30 04:48 - [巴西2比1日本](https://www.blog.minike.top/Article/details/492680994.shtml)
+- 2026-06-30 04:49 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/2771120124.shtml)
+- 2026-06-30 05:04 - [美人鱼](http://www.share.kurohicncr.top/Article/details/557522224.shtml)
+- 2026-06-30 04:55 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/6388534.shtml)
+- 2026-06-30 04:48 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/674721851001.shtml)
+- 2026-06-30 05:00 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/733215530.shtml)
+- 2026-06-30 05:02 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/615414343.shtml)
+- 2026-06-30 05:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/67501554.shtml)
+- 2026-06-30 04:54 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/437980.shtml)
+- 2026-06-30 05:00 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/31632968.shtml)

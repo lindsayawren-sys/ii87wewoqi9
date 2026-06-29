@@ -1,56 +1,60 @@
-# 沪指重返4200点，放量大涨能否持续？
+# 十竹斋艺术文献作品展在杭开幕 呈现木刻彩色套印艺术
 
-> 更新时间：2026-06-30 05:06:03 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！周一半导体与算力产业链再度全面爆发，A股放量大涨，沪指重返4200点。 截至收盘，上证综指涨1.08%，报4225.02点；深证成指涨2.16%，创业板指涨3.5%。 盘面上，半导体、算力硬件产业链再度爆发，存储器、GPU、CPO方向领涨。ETF市场同样火爆，60只ETF基金涨超5%。 其中，华泰柏瑞中韩半
+中新网杭州6月9日电(曹丹)6月9日，“十竹斋艺术文献作品展”在浙江杭州开幕，展览以“十竹斋木版水印技艺”为核心，集中呈现《湖山胜概》《十竹斋书画谱》《十竹斋笺谱》等珍贵复刻作品及历代文人手札等160余幅(件)作品，全面展示中国木刻彩色套印艺术四百余年的发展脉络。 木版水印技艺是集绘画、雕刻和印刷为一体，以木材为版、水溶性材料为颜料，根据水墨渗透原理显示笔触墨韵的中国特有的字画
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网杭州6月9日电(曹丹)6月9日，“十竹斋艺术文献作品展”在浙江杭州开幕，展览以“十竹斋木版水印技艺”为核心，集中呈现《湖山胜概》《十竹斋书画谱》《十竹斋笺谱》等珍贵复刻作品及历代文人手札等160余幅(件)作品，全面展示中国木刻彩色套印艺术四百余年的发展脉络。
 
-周一半导体与算力产业链再度全面爆发，A股放量大涨，沪指重返4200点。
+木版水印技艺是集绘画、雕刻和印刷为一体，以木材为版、水溶性材料为颜料，根据水墨渗透原理显示笔触墨韵的中国特有的字画复制工艺。
 
-截至收盘，上证综指涨1.08%，报4225.02点；深证成指涨2.16%，创业板指涨3.5%。
+杭州十竹斋木版水印，正是这一技艺的杰出代表。
 
-盘面上，半导体、算力硬件产业链再度爆发，存储器、GPU、CPO方向领涨。
+此次展览中最引人驻足的，是复刻版《湖山胜概》。
 
-ETF市场同样火爆，60只ETF基金涨超5%。
+这部明代万历年间杭州人陈昌锡以吴山十景为题、六色套印的佳作，原书孤本现藏于法国国家图书馆。
 
-其中，华泰柏瑞中韩半导体ETF复牌后尾盘涨停，溢价率高达20.41%；景顺长城全球芯片LOF溢价率更是攀升至42.04%。
+国家级非物质文化遗产代表性项目木版水印技艺代表性传承人魏立中带领学徒魏锦添，历时四年，雕刻木版120余块，将这部典籍重新“带回”家乡。
 
-万家半导体设备ETF、国泰科创芯片设计ETF、鹏华科创芯片设计ETF、天弘科创芯片设计ETF、华夏半导体设备ETF则均涨超7%。
+“我自1990年进入浙江美术学院，至今初心未改。
 
-权益市场已明显脱敏地缘局势 对于周一的强势表现，永赢基金分析指出，市场层面，地缘局势虽未彻底平息但权益市场已明显脱敏，海外科技股创新高与国内流动性偏松格局形成合力，配合A股相较海外滞后反应的补涨动力，推动情绪全面修复。
+”魏立中说，“今年恰逢《十竹斋书画谱》诞生四百周年，直到今天，AI和数码打印也无法超越那套技艺。
 
 ## 相关推荐
 
-- 2026-06-30 04:58 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 04:53 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 04:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 04:43 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 04:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 05:04 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 04:54 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 04:44 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 04:48 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 04:43 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 04:48 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 04:52 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 05:04 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 05:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 05:06 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 04:46 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 05:07 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 04:44 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 04:42 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 05:01 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 05:06 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 05:10 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 04:49 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-30 04:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/354897025.shtml)
-- 2026-06-30 04:49 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/2283120789.shtml)
-- 2026-06-30 04:45 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/1375813.shtml)
-- 2026-06-30 04:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/573771734953.shtml)
-- 2026-06-30 04:58 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/6780170.shtml)
-- 2026-06-30 05:01 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/688160055639.shtml)
-- 2026-06-30 05:05 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/2855698239.shtml)
-- 2026-06-30 04:37 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/15386.shtml)
-- 2026-06-30 04:52 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/3599884.shtml)
-- 2026-06-30 04:51 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/4964068208.shtml)
-- 2026-06-30 04:50 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/76315206416.shtml)
-- 2026-06-30 04:46 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/74963069.shtml)
-- 2026-06-30 04:48 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/4143227.shtml)
-- 2026-06-30 04:44 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.kurohicncr.top/Article/details/60306197681.shtml)
-- 2026-06-30 04:42 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/010919.shtml)
+- 2026-06-30 04:46 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/999322.shtml)
+- 2026-06-30 04:56 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/49531.shtml)
+- 2026-06-30 04:48 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/773247413.shtml)
+- 2026-06-30 04:53 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/472467.shtml)
+- 2026-06-30 04:51 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/911167774236.shtml)
+- 2026-06-30 04:59 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/897420.shtml)
+- 2026-06-30 05:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/5552163.shtml)
+- 2026-06-30 04:59 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/343137404636.shtml)
+- 2026-06-30 04:47 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/09166158.shtml)
+- 2026-06-30 04:44 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/52005.shtml)
+- 2026-06-30 04:45 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/039362597893.shtml)
+- 2026-06-30 04:46 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/670297176.shtml)
+- 2026-06-30 04:57 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/8072514459.shtml)
+- 2026-06-30 05:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/8235671.shtml)
+- 2026-06-30 05:04 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/57553712986.shtml)

@@ -1,48 +1,56 @@
-# 原来穿校服跳“裁判舞”这么帅！学生在操场组团展示“裁判舞” 朝气蓬勃 又美又飒
+# 中金公司王曙光：推动形成市场活跃、收益良好、投资者持续进入的良性生态
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 15:39 来源：中国新闻网 原来穿校服跳“裁判舞”这么帅！学生在操场组团展示“裁判舞” 朝气蓬勃 又美又飒 责任编辑：【李光伟】
+专题：基金业“棋至中盘”：吴清定调“四个坚持”，多位公私募高管共议下一程 6月6日上午，中国证券投资基金业协会第四届会员代表大会在京举行。证监会主席吴清在会上表示，力争“十五五”时期建设一流投资机构取得突破性进展。为此，他强调全行业要做到“四个坚持”：坚持规范为先，不断夯实合规风控内在基础；坚持客户为本，始终注重投资者利益优先；坚持功能为要，更好发挥培育新质生产力作用；坚持创新
 
 ## 正文
 
-发布时间：2026年05月12日 15:39 来源：中国新闻网 原来穿校服跳“裁判舞”这么帅！
+专题：基金业“棋至中盘”：吴清定调“四个坚持”，多位公私募高管共议下一程 6月6日上午，中国证券投资基金业协会第四届会员代表大会在京举行。
 
-学生在操场组团展示“裁判舞” 朝气蓬勃 又美又飒 责任编辑：【李光伟】
+证监会主席吴清在会上表示，力争“十五五”时期建设一流投资机构取得突破性进展。
+
+为此，他强调全行业要做到“四个坚持”：坚持规范为先，不断夯实合规风控内在基础；坚持客户为本，始终注重投资者利益优先；坚持功能为要，更好发挥培育新质生产力作用；坚持创新为基，持续增强行业高质量发展内生动力。
+
+当日，多家公私募机构负责人密集发声，围绕打造“一流投资机构、一流行业协会”及“十五五”发展目标作出回应。
+
+中金公司总裁王曙光表示，展望“十五五”，我国基金行业有望进一步迎来大发展。
+
+围绕服务建设金融强国，需要行业机构加快打造一流投资机构，这对行业提出了新的更高要求。
+
+一方面，需要围绕科技自立自强等国家重大战略，不断提升投资能力，持续引导更多长期资本、耐心资本，加大对战略新兴产业、未来产业的支持力度，做深做实金融“五篇大文章”。
+
+另一方面，作为服务数亿投资者的行业，要在维护资本市场稳定、提振投资者信心上发挥更大的作用。
 
 ## 相关推荐
 
-- 2026-06-30 05:04 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 04:50 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 04:47 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 05:02 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 04:44 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 04:54 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 04:39 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 04:43 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 05:05 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 04:43 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 04:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 04:50 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 04:41 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 04:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 05:11 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 04:55 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 05:01 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 04:50 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 05:09 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 05:03 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 05:01 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 05:10 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 04:52 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 05:01 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/6957517593.shtml)
-- 2026-06-30 04:49 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/907748650324.shtml)
-- 2026-06-30 04:59 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/374354.shtml)
-- 2026-06-30 05:02 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/565881804075.shtml)
-- 2026-06-30 05:02 - [周生如故](https://www.blog.kurohicncr.top/Article/details/48921315.shtml)
-- 2026-06-30 04:57 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/47992.shtml)
-- 2026-06-30 04:58 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/257985620954.shtml)
-- 2026-06-30 04:41 - [斛珠夫人](https://www.share.minike.top/Article/details/76317.shtml)
-- 2026-06-30 04:38 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/387369326.shtml)
-- 2026-06-30 04:39 - [千香](http://www.share.kurohicncr.top/Article/details/945205372.shtml)
-- 2026-06-30 04:59 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/21320300549.shtml)
-- 2026-06-30 04:50 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/851504.shtml)
-- 2026-06-30 04:38 - [急先锋](https://www.blog.kurohicncr.top/Article/details/553057950.shtml)
-- 2026-06-30 04:57 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/05027.shtml)
-- 2026-06-30 04:37 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/23075413092.shtml)
+- 2026-06-30 04:42 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/7138057374.shtml)
+- 2026-06-30 04:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/717578.shtml)
+- 2026-06-30 04:42 - [沉睡花园](http://www.share.minike.top/Article/details/420184389.shtml)
+- 2026-06-30 05:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/856884.shtml)
+- 2026-06-30 05:05 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/6472611.shtml)
+- 2026-06-30 04:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/35061850.shtml)
+- 2026-06-30 05:07 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/86574768485.shtml)
+- 2026-06-30 04:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/544267705.shtml)
+- 2026-06-30 04:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/2898860144.shtml)
+- 2026-06-30 05:01 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/092048552594.shtml)
+- 2026-06-30 04:45 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/477854479.shtml)
+- 2026-06-30 04:54 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/577807739.shtml)
+- 2026-06-30 04:47 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/8943649115.shtml)
+- 2026-06-30 05:07 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/21281635.shtml)
+- 2026-06-30 05:02 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/7717461652.shtml)

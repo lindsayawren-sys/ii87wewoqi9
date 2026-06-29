@@ -1,56 +1,53 @@
-# 【点石成金】白银点评：最后一舞？
+# 英矽智能获纳入富时全球股票指数系列
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-国投期货研究院 行情简述： 白银期货五一假期后呈现出强势反弹的特征，节后两周从节前的1.8万元快速上推至2.1万元，最大涨幅超过16.7%，市场情绪表现较为乐观，持仓快速从节前的低水平45.8万手抬升至50万手，成交量也迅速扩张，市场分歧有所加大。 反弹原因： 白银节后企稳原因是地缘缓和和风偏抬升，昨夜秘鲁消息给以火上浇油。乌克兰5月6日零时起单方面停火，俄罗斯计划5月8日至9
+英矽智能（03696）发布公告，根据富时罗素（FTSE Russell）关于富时全球股票指数系列的季度检讨结果，英矽智能将被纳入（纳入）富时全球股票指数系列，包括富时全球小盘股指数（FTSE Global Small Cap Index）、富时全球全盘指数 （FTSE Global All Cap Index）、富时全球总盘指数（FTSE Global Total Cap In
 
 ## 正文
 
-国投期货研究院 行情简述： 白银期货五一假期后呈现出强势反弹的特征，节后两周从节前的1.8万元快速上推至2.1万元，最大涨幅超过16.7%，市场情绪表现较为乐观，持仓快速从节前的低水平45.8万手抬升至50万手，成交量也迅速扩张，市场分歧有所加大。
+英矽智能（03696）发布公告，根据富时罗素（FTSE Russell）关于富时全球股票指数系列的季度检讨结果，英矽智能将被纳入（纳入）富时全球股票指数系列，包括富时全球小盘股指数（FTSE Global Small Cap Index）、富时全球全盘指数 （FTSE Global All Cap Index）、富时全球总盘指数（FTSE Global Total Cap Index）。
 
-反弹原因： 白银节后企稳原因是地缘缓和和风偏抬升，昨夜秘鲁消息给以火上浇油。
+此次纳入将于2026年6月22日（星期一）生效。
 
-乌克兰5月6日零时起单方面停火，俄罗斯计划5月8日至9日停火，纪念卫国战争胜利81周年。
+富时全球股票指数系列提供了稳健的全球股票指数框架，该系列横跨全球49个发达和新兴市场，涵盖19，000多只大、中、小盘和微盘股票。
 
-另6日消息美国与伊朗正接近达成一份旨在结束战争的一页纸备忘录。
+董事会认为，此次本公司获纳入三项富时指数，反映了国际资本市场对其稳健基本面、创新能力及增长潜力的广泛认可。
 
-节前金银下跌主因是美伊冲突带来的通胀压力限制美联储降息，停战有助于缓解这种担忧。
+此次纳入预计将提升本公司在全球机构投资者与分析师中的知名度，吸引追踪相关指数的基金资金流入，进一步推动股东结构多元化，提升公司股份的市场流动性。
 
-此外特朗普访华带来市场普遍性的高昂情绪，金银比一直以来与权益市场的情绪强相关，目前全球主要权益市场处于连创新高的炙热状态，这种状态下风险偏好极其高亢，导致白银与黄金的价格表现出现显著背离，白银表现持续强于黄金。
-
-5月11日夜间消息，秘鲁政府签署《第003号能源危机紧急法令》，宣布全国进入紧急能源状态，动因是多重风险叠加——全球油价高企冲击、秘鲁国家石油公司（Petroperú）资金链断裂风险，以及3月天然气管道爆炸暴露的能源系统脆弱性。
-
-消息发布后白银和铜的价格出现大幅上涨，秘鲁白银储量居全球第一，占世界总储量的22%；白银产量约占全球的12%，是世界第三大白银生产国。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 04:52 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 04:51 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 05:02 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 04:57 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 04:50 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-30 04:42 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 04:50 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 04:59 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 04:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 04:54 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 04:53 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 04:57 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 05:07 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 04:58 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 04:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 05:00 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 05:00 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 04:47 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 04:59 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 04:54 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:49 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/125482020.shtml)
-- 2026-06-30 05:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/584089.shtml)
-- 2026-06-30 04:38 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/8750791499.shtml)
-- 2026-06-30 04:42 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/81301889030.shtml)
-- 2026-06-30 04:38 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/45493988.shtml)
-- 2026-06-30 04:38 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/84581.shtml)
-- 2026-06-30 05:03 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/674671.shtml)
-- 2026-06-30 04:54 - [金牌调解](https://www.share.kurohicncr.top/Article/details/62271856.shtml)
-- 2026-06-30 05:05 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/379159279758.shtml)
-- 2026-06-30 04:54 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/53160594197.shtml)
-- 2026-06-30 04:59 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/7965282.shtml)
-- 2026-06-30 05:04 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/8543627572.shtml)
-- 2026-06-30 04:56 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/346471.shtml)
-- 2026-06-30 04:57 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/74838049144.shtml)
-- 2026-06-30 04:40 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/24503.shtml)
+- 2026-06-30 04:47 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/6865725574.shtml)
+- 2026-06-30 04:52 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/065203.shtml)
+- 2026-06-30 05:10 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/2489084.shtml)
+- 2026-06-30 05:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/93357079455.shtml)
+- 2026-06-30 04:44 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/5441373.shtml)
+- 2026-06-30 04:59 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/614431207059.shtml)
+- 2026-06-30 04:42 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/27647.shtml)
+- 2026-06-30 05:08 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/2098120.shtml)
+- 2026-06-30 04:48 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/828765715668.shtml)
+- 2026-06-30 04:54 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/24098.shtml)
+- 2026-06-30 05:02 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/00579.shtml)
+- 2026-06-30 04:51 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/949446624277.shtml)
+- 2026-06-30 04:52 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/8227230.shtml)
+- 2026-06-30 05:08 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/7509122886.shtml)
+- 2026-06-30 04:55 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/03914059.shtml)

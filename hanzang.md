@@ -1,60 +1,61 @@
-# 宁夏：民政部门不能自行主动担任遗产管理人
+# 【市场聚焦】花生：一个巴掌拍不响
 
-> 更新时间：2026-06-30 05:06:03 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新网银川5月11日电 (记者 杨迪)记者11日从宁夏民政厅获悉，该部门近日出台《民政部门担任遗产管理人工作参考》(下称《工作参考》)，进一步厘清履职边界、规范工作全流程，为基层民政依法、稳妥、规范开展遗产管理人工作提供清晰实操指引。《工作参考》明确民政部门作为兜底性遗产管理主体，履职全程要严格遵照《民法典》《民事诉讼法》相关规定，建立“立案应诉、遗产清点、公示公告、债权债务处
+中粮期货研究中心 摘要 1、截至上周，花生期货和现货价格一同下跌到溢价挤出，并迎来反弹，在新季面积兑现的窗口，如此活跃的花生期货，背后少不了市场群体对新季供应的巨大分歧，目前看来，落脚点在河南产区。 2、如此量价格局的花生期货市场，需要一场减仓行动，来彻底终结原有的震荡区间。 3、花生期货几乎磨底了两个产季，未来的产季级别的行情，需要供需两方面的合力推动，即供给侧的减面积减单产
 
 ## 正文
 
-中新网银川5月11日电 (记者 杨迪)记者11日从宁夏民政厅获悉，该部门近日出台《民政部门担任遗产管理人工作参考》(下称《工作参考》)，进一步厘清履职边界、规范工作全流程，为基层民政依法、稳妥、规范开展遗产管理人工作提供清晰实操指引。
+中粮期货研究中心 摘要 1、截至上周，花生期货和现货价格一同下跌到溢价挤出，并迎来反弹，在新季面积兑现的窗口，如此活跃的花生期货，背后少不了市场群体对新季供应的巨大分歧，目前看来，落脚点在河南产区。
 
-《工作参考》明确民政部门作为兜底性遗产管理主体，履职全程要严格遵照《民法典》《民事诉讼法》相关规定，建立“立案应诉、遗产清点、公示公告、债权债务处理、无主财产认定、收归国有”全闭环工作体系。
+2、如此量价格局的花生期货市场，需要一场减仓行动，来彻底终结原有的震荡区间。
 
-同时，强调民政部门仅依法履行遗产法定管理职责，不垫付债务、不承担额外赔偿责任，以法治刚性维护行政机关合法权益与法律权威。
+3、花生期货几乎磨底了两个产季，未来的产季级别的行情，需要供需两方面的合力推动，即供给侧的减面积减单产，以及需求端的结构性增量。
 
-《工作参考》明确民政部门不能自行主动担任遗产管理人，必须经由人民法院依法指定的两种途径担任：一是通过利害关系人向法院提起指定遗产管理人特别诉讼，由法院指定被继承人生前住所地县级民政部门担任遗产管理人；二是人民法院依职权直接指定民政部门担任遗产管理人或在普通诉讼程序中追加民政部门作为被告或第三人。
+【市场聚焦】花生：一个巴掌拍不响 2026年6月8日 一、花生期货的热度上升 1、上周花生期货增仓，且低开高走，成交量出现脉冲式增长。
 
-通过法定程序，明确了任职启动渠道。
+其中，品种总持仓量增加30%至近35万手的历史持仓高位，单日总成交量在上周五跳增至52万余手的历史第二高水平，主力合约PK610的日线向上突破自5月中旬以来的本产季低位震荡区间，收盘价8294元/吨，结算价8252元/吨。
 
-《工作参考》细化遗产管理人七个工作步骤，规范应诉答辩，全面摸清遗产底数，全域公开公示公告，分类妥善管护遗产，严谨债权核查登记，严格按照法定顺序完成遗产分配，依规处置无主剩余遗产，打造标准化履职流程。
+2、尝试分析上周行情的核心因素。
 
-同时，明确合法管理、诉讼、公告、律师等各方必要履职费用，可从遗产中优先列支。
+估值方面，现货供应充足且处于买方市场，期货处于往年同期均值两倍以上的历史性的持仓高位，期货、现货价格已跌回当前产季全面上新时点的价位，也是各自往年历史同期的较低价位（其中，东北现货的价格跌至期货远月合约的成本参照区间，可以说，现货溢价已被陆续挤出，当前部分贸易商已经提升了赴东北产区看货的意愿）。
 
-(完)
+题材方面，上周河南麦收大头落地，河南耕地夏播进度过半，豫南夏播完成大半，而期货在上周之初尚未计价河南花生面积题材和天气升水题材。
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 04:58 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 04:56 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 04:47 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 04:39 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 04:36 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 04:58 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 05:03 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 04:43 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-30 04:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 04:54 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 04:51 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 04:38 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 05:05 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 04:58 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 04:45 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 05:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 05:04 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 04:51 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 05:06 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 05:01 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 04:56 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 05:05 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 04:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 04:59 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 04:44 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 04:48 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 04:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 04:54 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:05 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/505228575401.shtml)
-- 2026-06-30 04:47 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/37060530550.shtml)
-- 2026-06-30 04:44 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/02741753.shtml)
-- 2026-06-30 04:42 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/58103326138.shtml)
-- 2026-06-30 04:44 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/648440216.shtml)
-- 2026-06-30 04:50 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/2591694.shtml)
-- 2026-06-30 04:42 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/664170824.shtml)
-- 2026-06-30 04:46 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/538654239152.shtml)
-- 2026-06-30 04:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/703605.shtml)
-- 2026-06-30 04:52 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/0096744096.shtml)
-- 2026-06-30 04:51 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/834436.shtml)
-- 2026-06-30 04:45 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/61335079.shtml)
-- 2026-06-30 05:05 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/51438342901.shtml)
-- 2026-06-30 04:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/028323999.shtml)
-- 2026-06-30 04:40 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/258499.shtml)
+- 2026-06-30 05:02 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/72849.shtml)
+- 2026-06-30 05:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/9980562707.shtml)
+- 2026-06-30 04:44 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/247900523806.shtml)
+- 2026-06-30 05:10 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/0413120777.shtml)
+- 2026-06-30 05:02 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/723195985.shtml)
+- 2026-06-30 04:59 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/0816439.shtml)
+- 2026-06-30 04:46 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/7034637.shtml)
+- 2026-06-30 05:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/82683.shtml)
+- 2026-06-30 04:54 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/1319663.shtml)
+- 2026-06-30 04:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/53740.shtml)
+- 2026-06-30 04:44 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/981329073213.shtml)
+- 2026-06-30 04:45 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/185914110543.shtml)
+- 2026-06-30 04:55 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/2356180453.shtml)
+- 2026-06-30 04:49 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/72695332953.shtml)
+- 2026-06-30 04:52 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/61657.shtml)

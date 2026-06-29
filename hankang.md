@@ -1,57 +1,56 @@
-# 珠江委完成2025年度取用水领域信用评价工作
+# 专家解读：黄山对话会为何举办 空间考古如何构建新范式
 
-> 更新时间：2026-06-30 05:06:03 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新网广州5月11日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)11日消息，取用水领域信用评价是加强取用水监管、规范取用水秩序的重要手段。按照水利部工作部署，珠江委近日已完成了2025年度取用水领域信用评价，并公布评价结果。珠江委介绍，该委在全面总结2024年度信用评价工作经验基础上，开展2025年信用评价工作，进一步优化评价工作方法，做好信用评价修复相关工作。
+中新网北京6月9日电 (记者 孙自法)第五届联合国教科文组织名录遗产与可持续发展黄山对话会(黄山对话会)近日顺利举办，中外学界和业界代表相聚安徽黄山，共商“数智技术驱动名录遗产可持续发展”大计。 作为大会组委会主席，中国科学院空天信息创新研究院研究员、联合国教科文组织自然与文化遗产空间技术国际中心(HIST)副主任王心源在会间接受记者采访，聚焦黄山对话会为何举办、五届以来收获哪
 
 ## 正文
 
-中新网广州5月11日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)11日消息，取用水领域信用评价是加强取用水监管、规范取用水秩序的重要手段。
+中新网北京6月9日电 (记者 孙自法)第五届联合国教科文组织名录遗产与可持续发展黄山对话会(黄山对话会)近日顺利举办，中外学界和业界代表相聚安徽黄山，共商“数智技术驱动名录遗产可持续发展”大计。
 
-按照水利部工作部署，珠江委近日已完成了2025年度取用水领域信用评价，并公布评价结果。
+作为大会组委会主席，中国科学院空天信息创新研究院研究员、联合国教科文组织自然与文化遗产空间技术国际中心(HIST)副主任王心源在会间接受记者采访，聚焦黄山对话会为何举办、五届以来收获哪些亮点成果、何以结缘双遗产地黄山等话题进行解读。
 
-珠江委介绍，该委在全面总结2024年度信用评价工作经验基础上，开展2025年信用评价工作，进一步优化评价工作方法，做好信用评价修复相关工作。
+他还以“从遥感考古到空间考古”为题作学术报告，为大数据、人工智能(AI)时代如何构建空间考古新范式建言献策。
 
-珠江委表示，该委全面梳理审批发证项目及已批复取水许可未发证项目情况，合理确定纳入2025年度取用水领域信用评价的取用水户。
+影响力越来越大 王心源说，名录遗产是全人类共同的瑰宝，是历史文明的鲜活载体，也是联结过去、当下与未来的纽带，国际对话、交流、合作则是自然文化遗产全球治理的重要内容。
 
-同时，充分利用信用中国、全国取用水管理平台，加强与相关流域管理机构和地方水行政主管部门沟通对接，多渠道采集信用信息，并着重收集2024年度信用评价修复相关信息，经认真审核后纳入年度信用评价信息库，确保信用信息采集的权威性、准确性和完整性。
+黄山对话会自2014年举办第一届以来，迄今已成功举办五届，主题从关注空间技术利用到监测气候变化对名录遗产影响，从强调天空地一体化到关注大数据、人工智能赋能名录遗产保护与可持续发展，对话水平越来越高，质量越来越好，影响力越来越大。
 
-严格履行信息审核、结果公示、异议申诉处理等程序，评价结果及时公示，并向被扣分的取用水户书面通知评价结果及扣分原因，切实保障取用水户的知情权。
+王心源指出，黄山是国际上具有重要知名度和广泛影响力的自然与文化双遗产地，也是世界地质公园、世界生物圈保护区，被列入世界遗产名录以来，黄山市在经费投入、研究管理等方面投入很大力量，成为联合国教科文组织名录遗产典型示范地。
 
-此外，畅通异议申诉渠道，针对个别取用水户提出的异议申请，全面审核提交证据材料，申请理由不成立的，加强与取用水户沟通复核，做好解释说明，确保信用评价结果全面客观、准确有效。
+一方面，双遗产地黄山如何处理好保护与高质量可持续发展，新的发展形势提出新的挑战。
 
-珠江委表示，下一步，该委将持续推动信用评价结果多场景应用，落实信用分级分类监管措施，精准实施分级分类监管，引导取用水单位自觉规范取用水行为，不断提升流域取用水管理水平。
+另一方面，HIST的建设与发展，也需要建立一个国际同行深度对话、交流合作的学术平台。
 
 ## 相关推荐
 
-- 2026-06-30 04:38 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 04:45 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-30 04:43 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 04:59 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 04:44 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 04:39 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 04:37 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 04:43 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 04:44 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-30 04:50 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 04:50 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 05:08 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 04:53 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 04:55 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 04:44 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 04:45 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 04:55 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 05:02 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 05:05 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 04:58 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 05:09 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:05 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/8113148377.shtml)
-- 2026-06-30 04:53 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/003366264.shtml)
-- 2026-06-30 05:03 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/8735185.shtml)
-- 2026-06-30 04:42 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/29726203.shtml)
-- 2026-06-30 05:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/35945.shtml)
-- 2026-06-30 04:51 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/003456060.shtml)
-- 2026-06-30 04:50 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/8350685.shtml)
-- 2026-06-30 04:46 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/81652.shtml)
-- 2026-06-30 04:51 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/50542.shtml)
-- 2026-06-30 04:40 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/9336600502.shtml)
-- 2026-06-30 04:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/655500.shtml)
-- 2026-06-30 04:54 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/3719888519.shtml)
-- 2026-06-30 04:46 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/840278.shtml)
-- 2026-06-30 05:05 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/449578218804.shtml)
-- 2026-06-30 05:05 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/01868862.shtml)
+- 2026-06-30 04:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/63106285.shtml)
+- 2026-06-30 04:45 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/882847530.shtml)
+- 2026-06-30 04:56 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/027406.shtml)
+- 2026-06-30 05:04 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/01574675.shtml)
+- 2026-06-30 04:49 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/7420259.shtml)
+- 2026-06-30 04:44 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/2469891.shtml)
+- 2026-06-30 05:00 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/23626608899.shtml)
+- 2026-06-30 05:00 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/791580.shtml)
+- 2026-06-30 05:03 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/029721.shtml)
+- 2026-06-30 05:09 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/45108927.shtml)
+- 2026-06-30 04:45 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/20387494920.shtml)
+- 2026-06-30 04:58 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/897004.shtml)
+- 2026-06-30 04:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/354826024380.shtml)
+- 2026-06-30 04:56 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/787954501844.shtml)
+- 2026-06-30 05:09 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/4946640325.shtml)

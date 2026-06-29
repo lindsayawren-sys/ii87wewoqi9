@@ -1,46 +1,56 @@
-# 中国碳中和因可换股债券获转换而发行2.06亿股
+# 高盛、摩根大通探索算力期货交易，用作AI融资风险对冲工具
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中国碳中和（01372）发布公告，于2026年5月11日，该公司因可换股债券获转换而发行2.06亿股。责任编辑：卢昱君
+据知情人士透露，高盛集团与摩根大通正研究针对算力成本开展交易的方案，其中包括交易绑定图形处理器（GPU）租赁价格的期货合约。GPU是AI热潮中最紧缺的资源之一，多家交易所计划于今年晚些时候挂牌该类合约。 此番商讨足以说明，数千亿资金涌入数据中心与芯片赛道，正在重塑金融市场格局。对于为AI基建项目提供融资的银行而言，算力期货可以对冲未来算力供给过剩的风险，同时协助自身客户锁定算力
 
 ## 正文
 
-中国碳中和（01372）发布公告，于2026年5月11日，该公司因可换股债券获转换而发行2.06亿股。
+据知情人士透露，高盛集团与摩根大通正研究针对算力成本开展交易的方案，其中包括交易绑定图形处理器（GPU）租赁价格的期货合约。
 
-责任编辑：卢昱君
+GPU是AI热潮中最紧缺的资源之一，多家交易所计划于今年晚些时候挂牌该类合约。
+
+此番商讨足以说明，数千亿资金涌入数据中心与芯片赛道，正在重塑金融市场格局。
+
+对于为AI基建项目提供融资的银行而言，算力期货可以对冲未来算力供给过剩的风险，同时协助自身客户锁定算力成本、完成套期保值。
+
+两家投行的相关探索尚处于初期阶段，未必会立刻落地；而且算力交易市场本身刚起步，还可能遭遇监管层面的质询。
+
+不过大型投行对这类标的并不陌生，它们早已交易电力以及其他AI基建相关大宗商品。
+
+不少市场参与者表示，布局算力交易自然是下一步发展方向。
+
+放眼整个行业，各大交易所、数据服务商都在争先把GPU租赁定价打造成标准化金融市场。
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 05:05 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 04:57 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 04:38 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 05:03 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 04:38 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-30 04:40 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 04:50 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 04:37 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 04:36 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 04:45 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 05:00 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 04:57 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 04:57 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 04:56 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-30 05:06 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 05:04 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 05:08 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 05:11 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 05:01 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 04:50 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 04:42 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:57 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/97660843.shtml)
-- 2026-06-30 04:53 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/186464312424.shtml)
-- 2026-06-30 04:49 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/83812.shtml)
-- 2026-06-30 04:37 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/38241451162.shtml)
-- 2026-06-30 04:48 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/182510840.shtml)
-- 2026-06-30 04:49 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/616244.shtml)
-- 2026-06-30 04:53 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/0759860140.shtml)
-- 2026-06-30 04:55 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/672903.shtml)
-- 2026-06-30 05:05 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/160032128832.shtml)
-- 2026-06-30 04:39 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/88805219026.shtml)
-- 2026-06-30 05:00 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/211425.shtml)
-- 2026-06-30 05:01 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/863714.shtml)
-- 2026-06-30 04:36 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/6024023.shtml)
-- 2026-06-30 04:50 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/755565978453.shtml)
-- 2026-06-30 04:51 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/6042187.shtml)
+- 2026-06-30 04:43 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/18219937661.shtml)
+- 2026-06-30 04:53 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/609067488.shtml)
+- 2026-06-30 04:51 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/98016278823.shtml)
+- 2026-06-30 04:51 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/37341.shtml)
+- 2026-06-30 05:02 - [乔家的儿女](https://www.blog.minike.top/Article/details/4205114337.shtml)
+- 2026-06-30 04:58 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/053894.shtml)
+- 2026-06-30 05:08 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/6540637.shtml)
+- 2026-06-30 05:01 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/473007.shtml)
+- 2026-06-30 04:43 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/2645603.shtml)
+- 2026-06-30 05:00 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/09140687.shtml)
+- 2026-06-30 05:00 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/46598092.shtml)
+- 2026-06-30 05:03 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/068808398.shtml)
+- 2026-06-30 05:05 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/8104763483.shtml)
+- 2026-06-30 05:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/97056199236.shtml)
+- 2026-06-30 05:04 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/3955573.shtml)

@@ -1,58 +1,57 @@
-# 抵押贷款利率走高压制购房需求，美国4月房屋销售数据不及预期
+# 美国农业部部长：得州新增新世界螺旋蝇病例，但全国粮食供应无风险
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-核心要点 美国房地产经纪人协会（NAR）数据显示：经季节性调整年化口径下，4 月成屋销量环比基本持平，仅微涨 0.2%，至 402 万套；而楼市分析师此前预期涨幅超 3%。 4 月房屋销量同比持平。该数据以实际过户成交为准，对应购房合约大多在 2 月末至 3 月签订。 据《抵押贷款每日新闻》数据，30 年期固定抵押贷款利率 3 月末收于 5% 高位区间，随后受美国与以色列对伊朗
+核心要点 农业部部长解读螺旋蝇疫情：我们有能力再次消灭这种虫害 美国农业部部长布鲁克・罗林斯于周一表态，食肉寄生虫新世界螺旋蝇重现得州，但美国粮食供应不会因此受到威胁。 罗林斯做客 CNBC 节目《财经早间》时称：“这并非病毒，也不是疫病，只是一种小型害虫。举例来说，蝇虫幼虫落在牛犊伤口处便可滋生，但该虫害能够医治。” 她后续补充道：“我们已安排人员实地处置，有能力遏制虫害扩散
 
 ## 正文
 
-核心要点 美国房地产经纪人协会（NAR）数据显示：经季节性调整年化口径下，4 月成屋销量环比基本持平，仅微涨 0.2%，至 402 万套；而楼市分析师此前预期涨幅超 3%。
+核心要点 农业部部长解读螺旋蝇疫情：我们有能力再次消灭这种虫害 美国农业部部长布鲁克・罗林斯于周一表态，食肉寄生虫新世界螺旋蝇重现得州，但美国粮食供应不会因此受到威胁。
 
-4 月房屋销量同比持平。
+罗林斯做客 CNBC 节目《财经早间》时称：“这并非病毒，也不是疫病，只是一种小型害虫。
 
-该数据以实际过户成交为准，对应购房合约大多在 2 月末至 3 月签订。
+举例来说，蝇虫幼虫落在牛犊伤口处便可滋生，但该虫害能够医治。
 
-据《抵押贷款每日新闻》数据，30 年期固定抵押贷款利率 3 月末收于 5% 高位区间，随后受美国与以色列对伊朗开战影响，4 月利率急剧飙升。
+” 她后续补充道：“我们已安排人员实地处置，有能力遏制虫害扩散。
 
-美国房地产经纪人协会首席经济学家劳伦斯・尹在声明中表示： “尽管宏观经济信号分化 —— 股市创历史新高，但消费者信心处于历史低位，不过购房可负担性持续改善，对房屋销量形成小幅支撑。
+我们将全力以赴，投入超 10 亿美元资金，先把虫害驱回墨西哥境内，再彻底根除，复刻约 50 年前的成功经验。
 
-目前抵押贷款利率低于去年同期，居民平均收入增速也跑赢房价涨幅。
+” 她此番表态不久后，美国农业部又确认得州新增两例螺旋蝇感染案例：拉萨尔县一头牛犊、安德鲁斯县一只宠物犬，至此全美确诊病例累计达四起。
 
-” 4 月房源库存环比上升 5.8%，同比仅增长 1.4%，库存可售周期为 4.4 个月。
+农业部表示后续将公布新增病例详细信息，初步调查显示这只患病宠物犬近期去过墨西哥。
 
-楼市通常以6 个月库存作为买卖双方供需平衡线，当前库存仍处于偏紧状态。
+得州萨瓦拉县最新发现的感染牧场，距离农业部周三通报的全美首例阳性牧场仅约 5 英里。
 
 ## 相关推荐
 
-- 2026-06-30 04:48 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 04:46 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 04:46 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 04:59 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 04:58 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 04:48 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 04:52 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 04:40 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 04:42 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 04:49 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 04:49 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 04:37 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 04:55 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 04:43 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 04:49 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 04:57 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-30 05:07 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 05:06 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 05:08 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 04:51 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 04:53 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 05:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 05:11 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/89216860.shtml)
-- 2026-06-30 05:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/35016568419.shtml)
-- 2026-06-30 04:42 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/385116651121.shtml)
-- 2026-06-30 04:57 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/311302151.shtml)
-- 2026-06-30 04:48 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/038146920879.shtml)
-- 2026-06-30 04:39 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/41531.shtml)
-- 2026-06-30 04:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/6957568.shtml)
-- 2026-06-30 04:41 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/1721456.shtml)
-- 2026-06-30 04:41 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/5940474.shtml)
-- 2026-06-30 04:54 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/182767.shtml)
-- 2026-06-30 04:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/0774588850.shtml)
-- 2026-06-30 05:00 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/8062781.shtml)
-- 2026-06-30 04:46 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/2896340.shtml)
-- 2026-06-30 05:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/82677621636.shtml)
-- 2026-06-30 04:43 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/5887126905.shtml)
+- 2026-06-30 04:58 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/58342294.shtml)
+- 2026-06-30 04:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/17915.shtml)
+- 2026-06-30 05:05 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/61494424931.shtml)
+- 2026-06-30 04:50 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/19938938238.shtml)
+- 2026-06-30 05:04 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/11350325.shtml)
+- 2026-06-30 04:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/58885488.shtml)
+- 2026-06-30 05:02 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/0742792077.shtml)
+- 2026-06-30 05:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/0022009019.shtml)
+- 2026-06-30 04:47 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/489602.shtml)
+- 2026-06-30 05:07 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/166756625565.shtml)
+- 2026-06-30 05:06 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/01330.shtml)
+- 2026-06-30 04:56 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/932314.shtml)
+- 2026-06-30 05:02 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/985259777.shtml)
+- 2026-06-30 04:47 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/057041582552.shtml)
+- 2026-06-30 04:58 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/189444246.shtml)

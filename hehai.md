@@ -1,61 +1,48 @@
-# “大空头”知名投资人评AI：堪比1999—2000年互联网泡沫
+# 双象股份：公司通过投资者热线、“互动易”平台等多种方式与投资者沟通交流
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-据报道，5月8日标普500指数再创历史新高，同一天，伯里在订阅平台Substack发布市场警示。 他直言：“股市涨跌根本不是由就业数据或消费者信心决定。大盘一味直线上涨，只靠一个所有人都自以为看懂的两个字母主题在支撑。眼下氛围，如同1999至2000年泡沫最后的疯狂阶段。” 他这样概括当下市场舆论：“全天从头到尾，话题只有AI，没人讨论其他任何事。”在伯里看来，市场被单一主题完
+证券日报网讯6月8日，双象股份在互动平台回答投资者提问时表示，相关情况请关注公司披露的投资者关系活动记录表。公司通过投资者热线、“互动易”平台等多种方式与投资者沟通交流。
 
 ## 正文
 
-据报道，5月8日标普500指数再创历史新高，同一天，伯里在订阅平台Substack发布市场警示。
+证券日报网讯6月8日，双象股份在互动平台回答投资者提问时表示，相关情况请关注公司披露的投资者关系活动记录表。
 
-他直言：“股市涨跌根本不是由就业数据或消费者信心决定。
-
-大盘一味直线上涨，只靠一个所有人都自以为看懂的两个字母主题在支撑。
-
-眼下氛围，如同1999至2000年泡沫最后的疯狂阶段。
-
-” 他这样概括当下市场舆论：“全天从头到尾，话题只有AI，没人讨论其他任何事。
-
-”在伯里看来，市场被单一主题完全主导，正是泡沫末期的典型特征。
-
-值得注意的是，就在伯里发布警示当天，密歇根大学消费者信心指数跌至历史低位，但美股市场完全无视利空，依旧一路走高。
-
-为何伯里紧盯费城半导体指数 伯里警示中最具体的一点，是将费城半导体指数类比2000年3月科技股崩盘前夕的走势。
+公司通过投资者热线、“互动易”平台等多种方式与投资者沟通交流。
 
 ## 相关推荐
 
-- 2026-06-30 04:45 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-30 04:37 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 04:39 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 05:04 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 04:41 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 05:01 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 05:05 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 04:50 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 04:54 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 04:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 05:02 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 04:37 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 04:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 05:05 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 05:02 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 04:48 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 04:46 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-30 04:56 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 04:53 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 05:04 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 05:10 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 05:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-30 04:43 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 05:08 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 04:50 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 04:52 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 04:53 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 04:59 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 05:08 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:39 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/943814.shtml)
-- 2026-06-30 04:51 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/46104096.shtml)
-- 2026-06-30 04:59 - [毒液2](http://www.blog.kurohicncr.top/Article/details/663741605892.shtml)
-- 2026-06-30 04:40 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/209106.shtml)
-- 2026-06-30 04:45 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/2250905.shtml)
-- 2026-06-30 04:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/55609.shtml)
-- 2026-06-30 04:39 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/202537407751.shtml)
-- 2026-06-30 04:49 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/14887097.shtml)
-- 2026-06-30 04:54 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/58750970964.shtml)
-- 2026-06-30 04:44 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/214283.shtml)
-- 2026-06-30 05:00 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/2526653335.shtml)
-- 2026-06-30 04:40 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/9211948.shtml)
-- 2026-06-30 04:39 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/428866.shtml)
-- 2026-06-30 04:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/91643.shtml)
-- 2026-06-30 05:01 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/7588739.shtml)
+- 2026-06-30 04:54 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/8421457.shtml)
+- 2026-06-30 04:52 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/8907406537.shtml)
+- 2026-06-30 05:03 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/2430539776.shtml)
+- 2026-06-30 04:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/6340638.shtml)
+- 2026-06-30 04:58 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/991560154.shtml)
+- 2026-06-30 05:10 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/470953223514.shtml)
+- 2026-06-30 04:43 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/16183.shtml)
+- 2026-06-30 05:09 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/96792.shtml)
+- 2026-06-30 04:46 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/44335.shtml)
+- 2026-06-30 04:56 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/0200574470.shtml)
+- 2026-06-30 04:45 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/584699.shtml)
+- 2026-06-30 05:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/287159373.shtml)
+- 2026-06-30 05:04 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/15864893.shtml)
+- 2026-06-30 04:43 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/154619536475.shtml)
+- 2026-06-30 05:08 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/961776154863.shtml)

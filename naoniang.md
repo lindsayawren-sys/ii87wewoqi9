@@ -1,44 +1,60 @@
-# 快讯：现货黄金失守4700美元/盎司，日内跌0.74%。
+# 酒价内参6月8日价格发布：飞天茅台上涨2元，连续三天上涨昨日涨幅尤为强劲
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-北京时间5月12日下午，现货黄金失守4700美元/盎司，日内跌0.74%。 责任编辑：朱赫楠
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月8日整体继续大幅回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9918元，较昨日大幅上涨21元，创下近五天以来最高。市场已连续三日反弹，终端交投情绪回暖修复。今日除国窖1573与习酒君品价格下跌外，其余品种全线上涨或持平。 今日11大白酒单品八涨两跌一平，赢家占据绝对优势。上涨方面，青
 
 ## 正文
 
-北京时间5月12日下午，现货黄金失守4700美元/盎司，日内跌0.74%。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月8日整体继续大幅回升。
 
-责任编辑：朱赫楠
+如果主要单品各取一瓶整体打包售卖，今日总售价为9918元，较昨日大幅上涨21元，创下近五天以来最高。
+
+市场已连续三日反弹，终端交投情绪回暖修复。
+
+今日除国窖1573与习酒君品价格下跌外，其余品种全线上涨或持平。
+
+今日11大白酒单品八涨两跌一平，赢家占据绝对优势。
+
+上涨方面，青花郎涨幅居前，上涨7元/瓶，重返690元上方；精品茅台与古井贡古20均上涨6元/瓶，前者收获三连阳，价格快速回升至月内次高位；水晶剑南春上涨5元/瓶，创下近一周最大涨幅，价格亦平近一月最高纪录；洋河梦之蓝M6+上涨4元/瓶；飞天茅台上涨2元/瓶，连续三天上涨昨日涨幅尤为强劲；五粮液普五八代与青花汾20均小幅上涨1元/瓶。
+
+下跌方面，国窖1573跌幅居前，下跌6元/瓶，遭遇五连阴，再创月内新低；习酒君品下跌5元/瓶，近一个月其价格中枢持续下移。
+
+五粮液1618价格环比保持不变，近一月价格走势颇为平稳。
 
 ## 相关推荐
 
-- 2026-06-30 04:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 04:38 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 04:51 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 05:06 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 04:36 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 04:57 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 04:49 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-30 05:00 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 04:52 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 04:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 05:02 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 04:42 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 04:53 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 04:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 04:56 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 04:45 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 04:55 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 04:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 04:59 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 04:45 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-30 05:09 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 05:03 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 05:05 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 04:42 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:54 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/2336220926.shtml)
-- 2026-06-30 04:37 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/123062225717.shtml)
-- 2026-06-30 04:57 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/60903473.shtml)
-- 2026-06-30 04:42 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/445808187.shtml)
-- 2026-06-30 04:57 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/90937.shtml)
-- 2026-06-30 05:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/5652515480.shtml)
-- 2026-06-30 04:54 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/313839339381.shtml)
-- 2026-06-30 04:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/17239503997.shtml)
-- 2026-06-30 04:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/76733022.shtml)
-- 2026-06-30 04:37 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/38500535.shtml)
-- 2026-06-30 04:48 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/77108.shtml)
-- 2026-06-30 04:50 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/4111505512.shtml)
-- 2026-06-30 04:53 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/480345.shtml)
-- 2026-06-30 04:38 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/70541421983.shtml)
-- 2026-06-30 04:55 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/94817304.shtml)
+- 2026-06-30 04:45 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/124295.shtml)
+- 2026-06-30 04:44 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/9412751.shtml)
+- 2026-06-30 05:00 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/5112101.shtml)
+- 2026-06-30 04:58 - [送你一朵小红花](http://www.share.minike.top/Article/details/5289617216.shtml)
+- 2026-06-30 04:48 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/575459.shtml)
+- 2026-06-30 05:10 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/28129.shtml)
+- 2026-06-30 05:04 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/47425.shtml)
+- 2026-06-30 04:45 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/44637.shtml)
+- 2026-06-30 04:57 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/8293879.shtml)
+- 2026-06-30 04:42 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/9541043.shtml)
+- 2026-06-30 05:02 - [金牌调解](https://www.blog.minike.top/Article/details/95411.shtml)
+- 2026-06-30 04:58 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/279916232.shtml)
+- 2026-06-30 05:00 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/594161629863.shtml)
+- 2026-06-30 05:02 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/724355458.shtml)
+- 2026-06-30 04:46 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/764435468936.shtml)

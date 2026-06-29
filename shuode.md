@@ -1,48 +1,56 @@
-# 世卫：加沙已有超4.3万人致残，其中四分之一为儿童
+# FDA准辉瑞公司一款用于治疗儿童出血性疾病的药物
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新网5月13日电 据俄罗斯卫星通讯社12日援引世界卫生组织的消息，自2023年10月以来，加沙地带已有超过4.3万人因军事行动致残，其中四分之一为儿童。 世卫组织驻巴勒斯坦被占领土代表范德维尔特在日内瓦举行的新闻发布会上称：“根据世卫组织的最新估计，自2023年10月以来，加沙地带已有17.2万人受伤，其中约4.3万人为重伤，四分之一的人是儿童。” 范德维尔特指出，加沙地带康
+辉瑞公司周一表示，美国食品药品监督管理局（FDA）已批准其药物Hympavzi用于预防或减少儿童及部分血友病患者的出血发作频率。 此次批准使辉瑞的Hympavzi成为首个可用于6至11岁B型血友病儿童患者的非凝血因子疗法，无论患者是否存在抑制剂。 监管机构还将适用范围扩大至12岁及以上、存在抑制剂（一种抗体）的A型或B型血友病患者。 Hympavzi此前已获批用于12岁及以上、
 
 ## 正文
 
-中新网5月13日电 据俄罗斯卫星通讯社12日援引世界卫生组织的消息，自2023年10月以来，加沙地带已有超过4.3万人因军事行动致残，其中四分之一为儿童。
+辉瑞公司周一表示，美国食品药品监督管理局（FDA）已批准其药物Hympavzi用于预防或减少儿童及部分血友病患者的出血发作频率。
 
-世卫组织驻巴勒斯坦被占领土代表范德维尔特在日内瓦举行的新闻发布会上称：“根据世卫组织的最新估计，自2023年10月以来，加沙地带已有17.2万人受伤，其中约4.3万人为重伤，四分之一的人是儿童。
+此次批准使辉瑞的Hympavzi成为首个可用于6至11岁B型血友病儿童患者的非凝血因子疗法，无论患者是否存在抑制剂。
 
-” 范德维尔特指出，加沙地带康复医疗系统目前面临严峻挑战。
+监管机构还将适用范围扩大至12岁及以上、存在抑制剂（一种抗体）的A型或B型血友病患者。
+
+Hympavzi此前已获批用于12岁及以上、体内未产生阻碍凝血蛋白合成的抗体的患者。
+
+该药物通过自动注射笔皮下给药，是每周往往需要多次输注的静脉注射疗法的替代方案。
+
+血友病是一种罕见疾病，患者因体内缺乏足够的凝血蛋白（即凝血因子）而导致血液难以凝固，从而在受伤或手术后引发自发性严重出血。
+
+其中，最常见的A型血友病是由凝血因子VIII缺乏或水平低下引起的；而B型血友病则由凝血因子IX缺乏或水平低下引起。
+
+在该后期临床试验中，Hympavzi显著降低了患有A型或B型血友病且伴有抑制剂的12岁及以上成人和青少年的平均年化出血率。
 
 ## 相关推荐
 
-- 2026-06-30 04:38 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 04:58 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 04:56 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 05:04 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 04:56 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 04:43 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 04:47 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 04:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 04:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 04:36 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-30 04:38 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 05:01 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 04:57 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 04:58 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 05:11 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 04:45 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 04:51 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 05:02 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 05:06 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 04:56 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 05:05 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 04:49 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:45 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/8281299.shtml)
-- 2026-06-30 04:48 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/701804.shtml)
-- 2026-06-30 04:56 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/37565783365.shtml)
-- 2026-06-30 04:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/551112.shtml)
-- 2026-06-30 04:44 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/50645830.shtml)
-- 2026-06-30 04:37 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/90935.shtml)
-- 2026-06-30 05:05 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/795065763764.shtml)
-- 2026-06-30 04:54 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/22357.shtml)
-- 2026-06-30 05:03 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/827703.shtml)
-- 2026-06-30 04:38 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/9984021.shtml)
-- 2026-06-30 05:02 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/2266139.shtml)
-- 2026-06-30 04:53 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/3218803.shtml)
-- 2026-06-30 04:40 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/76990885030.shtml)
-- 2026-06-30 04:38 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/7926781.shtml)
-- 2026-06-30 04:38 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/802613248247.shtml)
+- 2026-06-30 05:07 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/6568676.shtml)
+- 2026-06-30 04:43 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/457243492.shtml)
+- 2026-06-30 04:50 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/93859847103.shtml)
+- 2026-06-30 04:46 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/71024.shtml)
+- 2026-06-30 05:09 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/511704974.shtml)
+- 2026-06-30 04:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/69236243.shtml)
+- 2026-06-30 04:49 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/073223131.shtml)
+- 2026-06-30 04:53 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/048193.shtml)
+- 2026-06-30 04:49 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/414656.shtml)
+- 2026-06-30 04:44 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/581446.shtml)
+- 2026-06-30 05:06 - [恋与深空 日服](http://www.blog.minike.top/Article/details/03658917.shtml)
+- 2026-06-30 04:53 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/213220.shtml)
+- 2026-06-30 05:02 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/273441487.shtml)
+- 2026-06-30 05:07 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/679658454.shtml)
+- 2026-06-30 04:55 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/6065207379.shtml)

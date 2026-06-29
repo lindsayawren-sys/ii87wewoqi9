@@ -1,61 +1,55 @@
-# “中国林都”伊春：火山岩上杜鹃花开 “撞色”美景醉游人
+# 颠覆认知！西藏察隅横断山深处藏着塞上小江南
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新网伊春5月11日电(刘璐 兰胜宇)11日，第三届伊春·丰林杜鹃花观赏季启幕。在黑龙江省伊春市丰林县红星火山地质公园，火山岩黝黑粗粝，杜鹃花粉紫如烟，“撞色”美景吸引全国各地游客及摄影爱好者，共赴一场花海之约。 “早就听说伊春环境好、生态好、空气好，果然名不虚传。刚刚体验了武侠风格的旅拍，很出片。”山东菏泽游客赵先生说。活动依托火山岩杜鹃花海原生态景观，精心打造文旅观赏、定制
+发布时间：2026年06月08日 11:34 来源：中国新闻网 2026年是西藏和平解放75周年，滇藏公路通车50周年。近日，中国新闻社云南分社和西藏分社联合开展的“穿越横断山·同心启新篇”主题采访活动，走进地处横断山区的西藏自治区林芝市察隅县，偶遇一处绝美村落——布宗村。 布宗村静卧贡日嘎布曲河谷，海拔近2300米，平均气温14至16摄氏度，四周森林密布，红豆杉、云杉、冷杉层
 
 ## 正文
 
-中新网伊春5月11日电(刘璐 兰胜宇)11日，第三届伊春·丰林杜鹃花观赏季启幕。
+发布时间：2026年06月08日 11:34 来源：中国新闻网 2026年是西藏和平解放75周年，滇藏公路通车50周年。
 
-在黑龙江省伊春市丰林县红星火山地质公园，火山岩黝黑粗粝，杜鹃花粉紫如烟，“撞色”美景吸引全国各地游客及摄影爱好者，共赴一场花海之约。
+近日，中国新闻社云南分社和西藏分社联合开展的“穿越横断山·同心启新篇”主题采访活动，走进地处横断山区的西藏自治区林芝市察隅县，偶遇一处绝美村落——布宗村。
 
-“早就听说伊春环境好、生态好、空气好，果然名不虚传。
+布宗村静卧贡日嘎布曲河谷，海拔近2300米，平均气温14至16摄氏度，四周森林密布，红豆杉、云杉、冷杉层层环抱，村民的院落散落其间，掩映在苍翠林木中。
 
-刚刚体验了武侠风格的旅拍，很出片。
+中国里程最长的国道G219穿谷而过，将这座藏东南山村接入国家公路网。
 
-”山东菏泽游客赵先生说。
+绿水穿村，林木葱茏，河谷的生机在镜头里徐徐展开，谁能不爱藏东南的原生态风光！
 
-活动依托火山岩杜鹃花海原生态景观，精心打造文旅观赏、定制旅拍、花海音乐会等多元场景，让游客沉浸式感受花海美景，留存专属旅行记忆。
-
-走进景区，不少游客换上精致的汉服妆造，在花间拍照打卡；声乐演唱、古风舞蹈、器乐演奏轮番登场，与漫山杜鹃相映成趣。
-
-黑龙江林业文工团、琵琶演奏员夏怡蕊表示，传统民乐自带山水意境，琵琶婉转的古韵与山林美景浑然相融，让人心情舒畅。
+(王临梓 贡嘎来松 陈静) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 04:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 04:37 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 04:46 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 04:36 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 04:44 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 05:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 04:54 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 04:37 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 04:54 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 04:41 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 04:49 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 04:50 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 04:59 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-30 04:56 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 04:54 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 04:52 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 05:02 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 05:09 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 04:48 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 04:43 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 05:06 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 05:03 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 04:59 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 05:00 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 04:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 05:07 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 05:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 05:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:42 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/76613799893.shtml)
-- 2026-06-30 04:47 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/83783136.shtml)
-- 2026-06-30 04:38 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/10916.shtml)
-- 2026-06-30 04:37 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/314849429623.shtml)
-- 2026-06-30 04:41 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/638233816.shtml)
-- 2026-06-30 04:37 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/577728531160.shtml)
-- 2026-06-30 04:48 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/68349625581.shtml)
-- 2026-06-30 04:52 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/29535643840.shtml)
-- 2026-06-30 04:56 - [日本进球](http://www.blog.minike.top/Article/details/7069849.shtml)
-- 2026-06-30 05:03 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/466324.shtml)
-- 2026-06-30 04:58 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/977294099.shtml)
-- 2026-06-30 04:50 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/477434393.shtml)
-- 2026-06-30 05:03 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/60537097653.shtml)
-- 2026-06-30 04:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/74066.shtml)
-- 2026-06-30 04:44 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/7062237.shtml)
+- 2026-06-30 05:06 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/02303149.shtml)
+- 2026-06-30 04:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/856795.shtml)
+- 2026-06-30 05:09 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/11018101.shtml)
+- 2026-06-30 05:10 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/2632369006.shtml)
+- 2026-06-30 04:46 - [啊啊啊](https://www.blog.minike.top/Article/details/20273143.shtml)
+- 2026-06-30 04:56 - [我和我的家乡](https://www.share.minike.top/Article/details/7206528.shtml)
+- 2026-06-30 05:09 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/054724.shtml)
+- 2026-06-30 04:46 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/6446892538.shtml)
+- 2026-06-30 04:51 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/610233.shtml)
+- 2026-06-30 04:46 - [爱很美味](http://www.share.kurohicncr.top/Article/details/985275111829.shtml)
+- 2026-06-30 04:42 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/654836.shtml)
+- 2026-06-30 04:42 - [小娘惹](http://www.blog.minike.top/Article/details/506350471225.shtml)
+- 2026-06-30 04:53 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/381118.shtml)
+- 2026-06-30 05:00 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/5590104.shtml)
+- 2026-06-30 05:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/97017.shtml)

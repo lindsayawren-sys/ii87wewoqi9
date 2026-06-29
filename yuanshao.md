@@ -1,57 +1,42 @@
-# 诚益通（300430）投资者索赔分析
+# 菲律宾群岛地区发生7.9级地震强震已造成35人遇难 灾民生活受影响
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-2026年4月29日晚，诚益通（300430）公告，公司聘请的信永中和会计师事务所（特殊普通合伙）对公司2025 年度进 行审计，会计师事务所出具了无法表示意见的审计报告，对公司2025 年度内部控制的有效性进行了审计，并出具了否定意见审计报告。部分股民或许存在索赔机会。 徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市
+发布时间：2026年06月09日 09:38 来源：央视新闻 责任编辑：【李骏】
 
 ## 正文
 
-2026年4月29日晚，诚益通（300430）公告，公司聘请的信永中和会计师事务所（特殊普通合伙）对公司2025 年度进 行审计，会计师事务所出具了无法表示意见的审计报告，对公司2025 年度内部控制的有效性进行了审计，并出具了否定意见审计报告。
-
-部分股民或许存在索赔机会。
-
-徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致损失，可以向有管辖权的法院提起民事赔偿诉讼以维护自己的合法权益，可索赔损失范围包括投资差额损失、印花税及佣金损失。
-
-（徐劲律师专栏） 暂定索赔条件： 在2026年4月30日前买入，并在2026年4月30日后卖出或仍持有而亏损的投资者（最终索赔结果以法院判决为准）。
-
-（*ST益通维权入口） 投资者应准备下列材料：身份证复印件，证券账户开户信息确认单（原件加盖证券公司营业部印章），证券交易记录流水（从首次买入该股票至今并加盖证券公司营业部印章，有库存股的还要打印出库存股数）。
-
-（本文由北京市盈科（深圳）律师事务所徐劲律师（执业证号14403200610948623）供稿，不代表新浪财经的立场。
-
-徐劲律师擅长在上市公司虚假陈述案件中为股民维权索赔，执业十余年来，曾代理投资者起诉多家上市公司成功索赔。
-
-） 责任编辑：韦子蓉
+发布时间：2026年06月09日 09:38 来源：央视新闻 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-30 04:49 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 04:44 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-30 04:52 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 04:57 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-30 04:37 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 04:47 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 04:52 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 04:44 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 04:56 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-30 04:57 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 04:48 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 04:45 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 05:04 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 05:06 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 04:58 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 05:08 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 04:54 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 04:50 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 04:52 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 05:10 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 05:10 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:42 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/562192.shtml)
-- 2026-06-30 05:02 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/3961980883.shtml)
-- 2026-06-30 04:52 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/988522879.shtml)
-- 2026-06-30 05:00 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/47096098325.shtml)
-- 2026-06-30 04:48 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/626670.shtml)
-- 2026-06-30 04:59 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/438753232201.shtml)
-- 2026-06-30 05:03 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/90113.shtml)
-- 2026-06-30 04:45 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/56352930.shtml)
-- 2026-06-30 04:53 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/576887729.shtml)
-- 2026-06-30 05:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/6722696.shtml)
-- 2026-06-30 05:04 - [流金岁月](http://www.blog.minike.top/Article/details/2087079.shtml)
-- 2026-06-30 04:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/49724745764.shtml)
-- 2026-06-30 04:40 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/40360254498.shtml)
-- 2026-06-30 04:55 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/2134403162.shtml)
-- 2026-06-30 04:51 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/6308618.shtml)
+- 2026-06-30 04:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/162089906.shtml)
+- 2026-06-30 04:46 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/73577.shtml)
+- 2026-06-30 05:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/5642577.shtml)
+- 2026-06-30 05:09 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/044312.shtml)
+- 2026-06-30 04:53 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/17138409395.shtml)
+- 2026-06-30 04:53 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/017104710.shtml)
+- 2026-06-30 04:45 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/5814772.shtml)
+- 2026-06-30 05:03 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/69517.shtml)
+- 2026-06-30 05:11 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/184577.shtml)
+- 2026-06-30 04:59 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/2500353912.shtml)
+- 2026-06-30 05:06 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/5030430.shtml)
+- 2026-06-30 05:04 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/785855.shtml)
+- 2026-06-30 05:03 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/973541851261.shtml)
+- 2026-06-30 05:01 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/31150.shtml)
+- 2026-06-30 04:44 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/4891124.shtml)

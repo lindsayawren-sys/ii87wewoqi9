@@ -1,59 +1,58 @@
-# 伊朗核协议前景不明，油价小幅走高
+# 钉钉副总裁马锐拉离职，发文《置身钉外》
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-周二，油价上涨近1%，原因是结束美以对伊朗战争的谈判前景脆弱，德黑兰对华盛顿提议的回应凸显出严重分歧，这使得供应担忧持续存在。 截至格林尼治标准时间4：11，布伦特原油期货上涨86美分，涨幅0.8%，报每桶105.07美元；美国西德克萨斯中质原油期货上涨99美分，涨幅1%，报每桶99.06美元。两大基准原油周一均上涨近2.8%。 美国总统特朗普周一表示，与伊朗的停火协议“命悬一
+6月8日，钉钉副总裁、AI产品负责人马锐拉在个人公众号上发布题为《置身钉外》的文章，称他已于5月15日办完离职手续，正式告别三年阿里生涯，离开钉钉。在这篇文章中，马锐拉主要分享了自己阅读《置身钉内》后的感受与思考，反复强调“心疼”。 就在上一周，阿里内网一篇长达7.5万字的文章《置身钉内》引发全网围观。作者系钉钉“ONE”项目（钉钉8.0推出的旗舰AI工作首页）核心产品经理滕雅
 
 ## 正文
 
-周二，油价上涨近1%，原因是结束美以对伊朗战争的谈判前景脆弱，德黑兰对华盛顿提议的回应凸显出严重分歧，这使得供应担忧持续存在。
+6月8日，钉钉副总裁、AI产品负责人马锐拉在个人公众号上发布题为《置身钉外》的文章，称他已于5月15日办完离职手续，正式告别三年阿里生涯，离开钉钉。
 
-截至格林尼治标准时间4：11，布伦特原油期货上涨86美分，涨幅0.8%，报每桶105.07美元；美国西德克萨斯中质原油期货上涨99美分，涨幅1%，报每桶99.06美元。
+在这篇文章中，马锐拉主要分享了自己阅读《置身钉内》后的感受与思考，反复强调“心疼”。
 
-两大基准原油周一均上涨近2.8%。
+就在上一周，阿里内网一篇长达7.5万字的文章《置身钉内》引发全网围观。
 
-美国总统特朗普周一表示，与伊朗的停火协议“命悬一线”，指出在多项要求上存在分歧，包括停止所有战线的敌对行动、解除美国的海上封锁、恢复伊朗石油销售以及战争损失赔偿等。
+作者系钉钉“ONE”项目（钉钉8.0推出的旗舰AI工作首页）核心产品经理滕雅辛（花名“幽素”），在这篇长文中，她按时间线复盘了“ONE”这款AI产品从立项、冲高至300万日活（DAU），再到最终收缩、拆分的全过程。
 
-德黑兰还强调其对霍尔木兹海峡拥有主权，全球约五分之一的石油和液化天然气通过该海峡运输。
+ONE项目是钉钉创始人陈航（花名“无招”）回归后主推的首个AI原生战略项目，随2025年8月发布的钉钉8.0上线，主打“事找人”的AI工作信息流模式。
 
-星展银行能源行业团队负责人苏夫罗·萨卡尔表示：“对（和平）协议即将达成的乐观情绪似乎再度消退，如果我们到5月底还看不到协议，那么油价上行风险肯定就摆在桌面上。
+然而，该项目最终因定位迷失、底层基因冲突、设计逻辑脱节、组织内部高压管理等多重矛盾走向收缩，资源全面迁移至悟空Agent。
 
-” 与海峡近乎关闭相关的供应中断已促使生产商削减出口。
+对于这篇文章，钉钉方面暂无回应。
 
-路透社周一的一项调查显示，石油输出国组织4月石油产量降至二十多年来的最低水平。
+相关人士对记者表示，该项目“不代表整体和组织，失败会有各种各样的理由”。
 
 ## 相关推荐
 
-- 2026-06-30 04:39 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 04:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 04:44 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 05:05 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 04:45 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-30 04:42 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 04:44 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 04:48 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 04:47 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 04:54 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 04:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 04:44 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 04:57 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 04:47 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 04:57 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 04:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 05:11 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 04:53 - [日本16强魔咒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 04:44 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 04:52 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 04:45 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-30 05:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 04:54 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 05:02 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 04:45 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:54 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/15494987749.shtml)
-- 2026-06-30 05:02 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/623065361.shtml)
-- 2026-06-30 04:50 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/367181784108.shtml)
-- 2026-06-30 04:36 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/893915.shtml)
-- 2026-06-30 04:58 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/239680229402.shtml)
-- 2026-06-30 04:48 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/36005.shtml)
-- 2026-06-30 04:43 - [张凌赫 客串](https://www.blog.minike.top/Article/details/5987866830.shtml)
-- 2026-06-30 04:51 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/9014764829.shtml)
-- 2026-06-30 05:01 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/82362341569.shtml)
-- 2026-06-30 04:45 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/299934.shtml)
-- 2026-06-30 05:03 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/54362699383.shtml)
-- 2026-06-30 04:48 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/267698937872.shtml)
-- 2026-06-30 04:39 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/837662012540.shtml)
-- 2026-06-30 04:47 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/637283822049.shtml)
-- 2026-06-30 04:59 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/973488466.shtml)
+- 2026-06-30 05:00 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/79311272.shtml)
+- 2026-06-30 04:44 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/2761739.shtml)
+- 2026-06-30 04:42 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/55423704.shtml)
+- 2026-06-30 04:51 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/84052143.shtml)
+- 2026-06-30 04:42 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/09585.shtml)
+- 2026-06-30 04:58 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/05876.shtml)
+- 2026-06-30 04:51 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/87561.shtml)
+- 2026-06-30 05:00 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/435476.shtml)
+- 2026-06-30 04:42 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/24082609516.shtml)
+- 2026-06-30 04:53 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/17855854776.shtml)
+- 2026-06-30 04:47 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/682079150280.shtml)
+- 2026-06-30 04:53 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/666959734.shtml)
+- 2026-06-30 04:58 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/548955.shtml)
+- 2026-06-30 04:53 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/6689646.shtml)
+- 2026-06-30 05:04 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/97799033.shtml)

@@ -1,52 +1,59 @@
-# 新疆：“犬”力以赴守护你 警营开放日活动亮点多
+# 奇瑞澄清：没有在印度市场直接投资和技术转让
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 14:40 来源：中国新闻网 近日，新疆出入境边防检查总站昌吉边境管理支队警犬技术复训班邀请北塔山牧场小学60余名师生参加“‘犬’力以赴守护你”警营开放日。活动中，警犬展示了服从、搜毒、扑咬等实战科目，并在互动环节温顺亲近师生。期间，苏吉边境检查站民警开展法治宣讲，将毒品危害、自我防护等知识传递给孩子，播下法治种子。(作者：康恒毅 唐健博) 责
+中新网北京6月8日电(记者 张尼)近日“奇瑞汽车要进入印度造车”传闻引发市场关注。8日，奇瑞汽车发布一份澄清声明称，部分媒体和账号所称的“技术出口”“技术输出”等表述，均与事实不符。 奇瑞汽车在声明中称，关注到近日许多媒体援引外媒信息，解读奇瑞与印度塔塔集团的相关合作，其中不乏善意的关心，但也衍生出大量不实猜测。 奇瑞与印度塔塔集团正在商谈的合作协议，限定为车型相关的零部件供应
 
 ## 正文
 
-发布时间：2026年05月12日 14:40 来源：中国新闻网 近日，新疆出入境边防检查总站昌吉边境管理支队警犬技术复训班邀请北塔山牧场小学60余名师生参加“‘犬’力以赴守护你”警营开放日。
+中新网北京6月8日电(记者 张尼)近日“奇瑞汽车要进入印度造车”传闻引发市场关注。
 
-活动中，警犬展示了服从、搜毒、扑咬等实战科目，并在互动环节温顺亲近师生。
+8日，奇瑞汽车发布一份澄清声明称，部分媒体和账号所称的“技术出口”“技术输出”等表述，均与事实不符。
 
-期间，苏吉边境检查站民警开展法治宣讲，将毒品危害、自我防护等知识传递给孩子，播下法治种子。
+奇瑞汽车在声明中称，关注到近日许多媒体援引外媒信息，解读奇瑞与印度塔塔集团的相关合作，其中不乏善意的关心，但也衍生出大量不实猜测。
 
-(作者：康恒毅 唐健博) 责任编辑：【魏聪聪】
+奇瑞与印度塔塔集团正在商谈的合作协议，限定为车型相关的零部件供应，为其提供汽车散件。
+
+奇瑞没有在印度市场直接投资和技术转让等安排，部分媒体和账号所称的“平台转让”“平台授权”“技术授权”“技术出口”“技术输出”等表述，均与事实不符。
+
+公开报道显示，塔塔集团是印度最大的公司之一，经营信息及通讯、工程、材料、能源、消费品、化工品及服务业等七大类业务。
+
+其旗下的塔塔汽车是印度最大的汽车制造商，捷豹路虎就隶属于塔塔汽车。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:51 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 04:45 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 04:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 04:40 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 04:36 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 05:05 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 04:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 05:03 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 05:02 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 04:38 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 04:47 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 04:59 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 05:00 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 04:39 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 05:00 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 04:43 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 05:00 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 05:07 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 04:54 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 04:58 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 04:49 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 05:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 04:45 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 05:05 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 05:11 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 04:59 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 05:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:37 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/506386824.shtml)
-- 2026-06-30 04:55 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/61583482878.shtml)
-- 2026-06-30 04:57 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/42276149.shtml)
-- 2026-06-30 04:52 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/52545.shtml)
-- 2026-06-30 04:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/004631779.shtml)
-- 2026-06-30 04:54 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/983673648989.shtml)
-- 2026-06-30 04:52 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/02520666.shtml)
-- 2026-06-30 04:36 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/714733.shtml)
-- 2026-06-30 04:57 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/4726988.shtml)
-- 2026-06-30 04:46 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/91127182.shtml)
-- 2026-06-30 04:55 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/632108819689.shtml)
-- 2026-06-30 04:48 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/9388327.shtml)
-- 2026-06-30 04:59 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/98757.shtml)
-- 2026-06-30 04:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/368825.shtml)
-- 2026-06-30 04:41 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/348831920.shtml)
+- 2026-06-30 05:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/31341.shtml)
+- 2026-06-30 04:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/041882547531.shtml)
+- 2026-06-30 05:01 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/51013736.shtml)
+- 2026-06-30 05:11 - [小娘惹](http://www.blog.minike.top/Article/details/525992.shtml)
+- 2026-06-30 04:55 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/366727225153.shtml)
+- 2026-06-30 04:54 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/71700986795.shtml)
+- 2026-06-30 04:50 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/61448374026.shtml)
+- 2026-06-30 04:55 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/4741047.shtml)
+- 2026-06-30 04:49 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/23662353.shtml)
+- 2026-06-30 04:45 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/5611251.shtml)
+- 2026-06-30 04:52 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/86370567.shtml)
+- 2026-06-30 04:46 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/599295779.shtml)
+- 2026-06-30 04:52 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/078748474.shtml)
+- 2026-06-30 04:58 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/02095327.shtml)
+- 2026-06-30 05:12 - [日本进球](http://www.share.kurohicncr.top/Article/details/4361552.shtml)

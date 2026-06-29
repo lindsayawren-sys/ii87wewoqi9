@@ -1,58 +1,47 @@
-# ATFX:美原油为何在今日13 30快速拉升
+# 航行警告！北部湾部分海域进行实弹射击 禁止驶入
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 5月12，ATFX：现阶段，美原油WTI主要由消息面驱动：当主流预期倾向美伊和谈有望时，美原油迅速下跌；当主流预期倾向于美伊重新开打时，美原油迅速上涨。 ▲ATFX图 北京时间今日13：30，美原油从开盘价95.72美元迅速拉升，截至北京时间16：15，美原油最高报价97.8美元，涨幅超2美元。同期的纽约原油期货价格已经上破100美元关口。是什么因素
+中新网6月9日电 据中国海事局网站消息，湛江海事局发布航行警告，6月9日23时至10日06时，6月10日14时至11日07时，6月11日14时至23时，北部湾部分海域进行实弹射击，禁止驶入。
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 5月12，ATFX：现阶段，美原油WTI主要由消息面驱动：当主流预期倾向美伊和谈有望时，美原油迅速下跌；当主流预期倾向于美伊重新开打时，美原油迅速上涨。
-
-▲ATFX图 北京时间今日13：30，美原油从开盘价95.72美元迅速拉升，截至北京时间16：15，美原油最高报价97.8美元，涨幅超2美元。
-
-同期的纽约原油期货价格已经上破100美元关口。
-
-是什么因素导致美原油在欧盘开始之前出现剧烈上涨走势？
-
-▲ATFX图 回顾当时的财经日历，虽然有大量的数据发布，但能够撼动市场的，可能就是上图中的纽约联储主席威廉姆斯演讲。
-
-这场演讲发发生在北京时间15：16，当时的美原油已经出现了相当幅度的涨幅。
-
-德国的通胀率数据虽然也比较重要，但结果是年率维持2.9%不变，月率维持0.6%不变，数据表现稳定，无法作为驱动美原油价格大幅波动的直接理由。
-
-消息面上，美国总统特朗普此前表态对伊朗的回应“完全无法接受”，有消息称特朗普正在考虑对伊朗重新采取打击行动。
+中新网6月9日电 据中国海事局网站消息，湛江海事局发布航行警告，6月9日23时至10日06时，6月10日14时至11日07时，6月11日14时至23时，北部湾部分海域进行实弹射击，禁止驶入。
 
 ## 相关推荐
 
-- 2026-06-30 04:54 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 05:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 04:39 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 04:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 04:48 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 04:38 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 04:43 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 05:01 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 05:04 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 05:00 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-30 04:37 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 04:51 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 04:53 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 05:00 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 04:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 04:53 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 05:02 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 04:43 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 04:52 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 04:46 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 04:52 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 05:09 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 05:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 04:42 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 04:44 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 05:05 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 05:02 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:57 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/2241786477.shtml)
-- 2026-06-30 04:55 - [毒液2](https://www.share.minike.top/Article/details/65958022736.shtml)
-- 2026-06-30 04:51 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/0769462.shtml)
-- 2026-06-30 05:04 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/014438467.shtml)
-- 2026-06-30 04:40 - [日本领先巴西](https://www.share.minike.top/Article/details/30953.shtml)
-- 2026-06-30 04:38 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/156060.shtml)
-- 2026-06-30 04:45 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/9011553090.shtml)
-- 2026-06-30 04:55 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/51145071374.shtml)
-- 2026-06-30 04:53 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/156570.shtml)
-- 2026-06-30 04:59 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/24854.shtml)
-- 2026-06-30 04:54 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/7958686747.shtml)
-- 2026-06-30 05:04 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/639258719.shtml)
-- 2026-06-30 04:58 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/76862017629.shtml)
-- 2026-06-30 04:54 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/43723676.shtml)
-- 2026-06-30 04:37 - [沙丘](http://www.blog.minike.top/Article/details/117844892.shtml)
+- 2026-06-30 04:59 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/539959.shtml)
+- 2026-06-30 05:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/1613876578.shtml)
+- 2026-06-30 04:49 - [小娘惹](https://www.share.kurohicncr.top/Article/details/9109871611.shtml)
+- 2026-06-30 05:09 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/408253719.shtml)
+- 2026-06-30 05:01 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/7816127010.shtml)
+- 2026-06-30 04:59 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/29999063091.shtml)
+- 2026-06-30 04:48 - [月亮](http://www.share.kurohicncr.top/Article/details/603767.shtml)
+- 2026-06-30 05:11 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/18251.shtml)
+- 2026-06-30 05:06 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/48244843509.shtml)
+- 2026-06-30 04:45 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/2053555400.shtml)
+- 2026-06-30 05:10 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/020534212405.shtml)
+- 2026-06-30 04:59 - [金刚川](http://www.share.minike.top/Article/details/5371330393.shtml)
+- 2026-06-30 04:45 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/542463546732.shtml)
+- 2026-06-30 04:57 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/1003219.shtml)
+- 2026-06-30 04:49 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/275527042848.shtml)

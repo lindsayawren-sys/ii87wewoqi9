@@ -1,57 +1,57 @@
-# 全国碳市场累计成交额突破600亿元 累计成交量8.96亿吨
+# 密集路演股价狂飙，261亿大牛股收关注函
 
-> 更新时间：2026-06-30 05:06:03 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新社北京5月12日电 (记者 阮煜琳)全国碳排放权交易市场(下称“全国碳市场”)2021年7月16日启动上线交易。最新成交数据显示，截至2026年5月12日，全国碳市场碳排放配额(CEA)累计成交量8.96亿吨，累计成交额突破600亿元(人民币，下同)。当日，全国碳市场碳排放配额挂牌协议交易成交量219167吨，成交额17993344元；大宗协议交易成交量400000吨，成交
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷达Finance 雷达财经出品 文|丁禹 编|孟帅 两个多月股价狂飙4倍的大牛股唯特偶，突遭监管问询。 6月4日，深交所向唯特偶下发关注函，就公司近期股价异常波动及路演活动中频繁提及光模块、先进封装等热点领域相关业务的情况展开问询。 6月7日，唯特偶
 
 ## 正文
 
-中新社北京5月12日电 (记者 阮煜琳)全国碳排放权交易市场(下称“全国碳市场”)2021年7月16日启动上线交易。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-最新成交数据显示，截至2026年5月12日，全国碳市场碳排放配额(CEA)累计成交量8.96亿吨，累计成交额突破600亿元(人民币，下同)。
+来源：雷达Finance 雷达财经出品 文|丁禹 编|孟帅 两个多月股价狂飙4倍的大牛股唯特偶，突遭监管问询。
 
-当日，全国碳市场碳排放配额挂牌协议交易成交量219167吨，成交额17993344元；大宗协议交易成交量400000吨，成交额32690000元。
+6月4日，深交所向唯特偶下发关注函，就公司近期股价异常波动及路演活动中频繁提及光模块、先进封装等热点领域相关业务的情况展开问询。
 
-当天最高价82.50元/吨，收盘价82.10元/吨，收盘价较前一日上涨1.28%。
+6月7日，唯特偶就关注函进行回复，其中提到“截至目前，公司在光模块及先进封装领域的营收占比贡献率较低，均不到1%”。
 
-全国碳排放权交易市场是中国控制温室气体排放、加快经济社会发展全面绿色低碳转型的重要政策工具。
+雷达财经注意到，4月初唯特偶股价尚不足30元，截至6月8日收盘，唯特偶股价报143.49元/股，较4月初涨约4倍，最新市值约261亿元。
 
-截至2026年5月12日，全国碳市场碳排放配额累计成交量896170854吨，累计成交额60011546721.08元。
+而就在股价上涨之际，公司大股东杜宣、董事兼副总裁桑泽林于4月末抛出减持计划。
 
-2025年，全国碳排放权交易市场新增纳入钢铁、水泥、铝冶炼三个行业，全国温室气体自愿减排交易市场实现稳起步、稳运行。
+截至5月29日，杜宣合计减持约206万股，套现1.94亿元。
 
-生态环境部部长黄润秋日前表示，2026年，将着力增强绿色发展动能。
+此外，今年3月2日，公司控股股东、实际控制人廖高兵一致行动人深圳利乐缘完成此前披露的减持计划，共套现约6319万元。
 
 ## 相关推荐
 
-- 2026-06-30 04:49 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 04:40 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 04:57 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 04:40 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 04:40 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 04:53 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 04:54 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 04:44 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 04:58 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 04:56 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 04:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 04:45 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 04:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 05:03 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 05:11 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 05:09 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 04:58 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 04:52 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 04:48 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-30 04:46 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 04:48 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 04:43 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/69493974782.shtml)
-- 2026-06-30 04:44 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/4100250.shtml)
-- 2026-06-30 04:51 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/145806878.shtml)
-- 2026-06-30 04:52 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/94171297.shtml)
-- 2026-06-30 04:58 - [天道](https://www.blog.minike.top/Article/details/67274592.shtml)
-- 2026-06-30 04:56 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/127682764.shtml)
-- 2026-06-30 04:57 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/459884834145.shtml)
-- 2026-06-30 04:49 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/415602744.shtml)
-- 2026-06-30 04:38 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/648895.shtml)
-- 2026-06-30 04:39 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/37196.shtml)
-- 2026-06-30 04:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/45241794.shtml)
-- 2026-06-30 04:44 - [一见倾心](http://www.share.kurohicncr.top/Article/details/607173183.shtml)
-- 2026-06-30 04:42 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/366777981370.shtml)
-- 2026-06-30 04:55 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/04572.shtml)
-- 2026-06-30 04:58 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/85148122319.shtml)
+- 2026-06-30 05:09 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/833361.shtml)
+- 2026-06-30 05:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/43601178.shtml)
+- 2026-06-30 04:52 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/22791.shtml)
+- 2026-06-30 05:06 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/8639265.shtml)
+- 2026-06-30 05:11 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/26032907.shtml)
+- 2026-06-30 05:03 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/79571100237.shtml)
+- 2026-06-30 04:52 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/421021988316.shtml)
+- 2026-06-30 04:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/50928851.shtml)
+- 2026-06-30 04:55 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/2087082996.shtml)
+- 2026-06-30 05:03 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/82707209293.shtml)
+- 2026-06-30 04:50 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/301943937627.shtml)
+- 2026-06-30 05:04 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/2846347.shtml)
+- 2026-06-30 04:52 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/267673.shtml)
+- 2026-06-30 04:56 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/121503643450.shtml)
+- 2026-06-30 05:03 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/567552.shtml)

@@ -1,59 +1,56 @@
-# 周天勇：劳动力流动贡献的经济增长和近年的下行压力
+# 中国驻伊朗大使馆再次提醒在伊中国公民加强安全防范
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：天勇谈经济 前天晚上才看到4月30日，新浪财经转了一篇化名“九门提督”的热心网友的《评周天勇“一元论”： 还是两条腿走路靠谱！》的文章，发表在2022年5月18日。笔者就此回答一下，用数据通俗地再现一下48年二元体制变动影响的国民经济流动和增长。今天先发出之一。 周天勇 看来其文章是明显对我目前计划行
+中新网6月8日电 据“中国驻伊朗大使馆”微信公众号消息，中国驻伊朗大使馆8日发布关于当前伊朗安全形势及离伊通道的提醒： 一、鉴于当前复杂严峻形势，中国驻伊朗使领馆再次提醒在伊中国公民加强安全防范和应急准备，及时向驻伊使领馆报备。同时，请中国公民暂勿来伊。 二、目前，伊首都德黑兰及西部地区空域处于关闭状态，请在伊中国公民重点关注伊马汉航空离伊航班恢复情况。同时，综合考虑口岸情况和
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网6月8日电 据“中国驻伊朗大使馆”微信公众号消息，中国驻伊朗大使馆8日发布关于当前伊朗安全形势及离伊通道的提醒： 一、鉴于当前复杂严峻形势，中国驻伊朗使领馆再次提醒在伊中国公民加强安全防范和应急准备，及时向驻伊使领馆报备。
 
-来源：天勇谈经济 前天晚上才看到4月30日，新浪财经转了一篇化名“九门提督”的热心网友的《评周天勇“一元论”： 还是两条腿走路靠谱！
+同时，请中国公民暂勿来伊。
 
-》的文章，发表在2022年5月18日。
+二、目前，伊首都德黑兰及西部地区空域处于关闭状态，请在伊中国公民重点关注伊马汉航空离伊航班恢复情况。
 
-笔者就此回答一下，用数据通俗地再现一下48年二元体制变动影响的国民经济流动和增长。
+同时，综合考虑口岸情况和当地及周边安全等因素，目前在伊中国公民可通过以下陆路通道离伊： (一)伊朗—亚美尼亚边境Nordoz口岸地址：Nordoz Border Terminal 开放时间：24小时 通行条件：护照有效期6个月以上，对持普通护照中国公民免签。
 
-今天先发出之一。
+(二)伊朗—土耳其边境Razi口岸 地址：Razi Border Terminal 开放时间：10:00-16:00 通行条件：护照有效期6个月以上，对持普通护照中国公民免签。
 
-周天勇 看来其文章是明显对我目前计划行政与市场机制二元体制，向一元社会主义市场经济转轨带来经济增长，还有转轨缓慢和停滞形成的增长下行的解释没有理解，认为发展经济靠计划行政和市场机制，即还是由两种资源配置体制走路靠谱。
+(三)伊朗—土库曼斯坦边境Bajgiran口岸 地址：Bajgiran Border 开放时间：08:30-15:30 通行条件：中国公民入境、过境土库曼斯坦需办理签证。
 
-论述体制作用与经济产出和增长的关系，的确是一个学术问题。
+请有需要的中国公民(含港澳台同胞)提前联系中国驻伊朗使馆。
 
-为什么称之为国民经济工程实验室？
+离伊中国公民请务必提前规划好路线，了解沿途安全形势并做好应急准备。
 
 ## 相关推荐
 
-- 2026-06-30 04:37 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 04:57 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 04:55 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-30 04:49 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 04:55 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 04:57 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 04:39 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 04:55 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-30 05:01 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 04:52 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 04:41 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 04:37 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 04:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 04:50 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 04:43 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 04:51 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 05:02 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 04:54 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 05:11 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 05:09 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 05:08 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 05:00 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-30 05:02 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:59 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/7208310455.shtml)
-- 2026-06-30 04:39 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/855300876113.shtml)
-- 2026-06-30 04:50 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/1309071.shtml)
-- 2026-06-30 04:44 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/7355392.shtml)
-- 2026-06-30 04:59 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/714055345.shtml)
-- 2026-06-30 04:39 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/7651912676.shtml)
-- 2026-06-30 04:58 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/68604.shtml)
-- 2026-06-30 04:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/990270420.shtml)
-- 2026-06-30 04:42 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/7140624.shtml)
-- 2026-06-30 04:40 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/440812899.shtml)
-- 2026-06-30 04:38 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/32432.shtml)
-- 2026-06-30 04:44 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/65451706.shtml)
-- 2026-06-30 04:37 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/2825662484.shtml)
-- 2026-06-30 04:57 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/4211303.shtml)
-- 2026-06-30 04:51 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/84435549891.shtml)
+- 2026-06-30 04:48 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/07234823280.shtml)
+- 2026-06-30 05:00 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/03976250.shtml)
+- 2026-06-30 04:51 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/4382728.shtml)
+- 2026-06-30 05:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/923359.shtml)
+- 2026-06-30 05:03 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/421678035.shtml)
+- 2026-06-30 04:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/569974633814.shtml)
+- 2026-06-30 05:05 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/49893705578.shtml)
+- 2026-06-30 04:52 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/29359181415.shtml)
+- 2026-06-30 04:50 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/982111850.shtml)
+- 2026-06-30 05:00 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/9422736489.shtml)
+- 2026-06-30 05:03 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/49435649518.shtml)
+- 2026-06-30 04:52 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/22962602401.shtml)
+- 2026-06-30 05:02 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/017121.shtml)
+- 2026-06-30 05:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/901426565.shtml)
+- 2026-06-30 04:59 - [啊啊啊](https://www.share.minike.top/Article/details/88409.shtml)

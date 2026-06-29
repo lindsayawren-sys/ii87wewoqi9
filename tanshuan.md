@@ -1,61 +1,51 @@
-# Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究
+# 新疆维吾尔自治区党委原常委、自治区政府原副主席陈伟俊被“双开”
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-临床阶段生物制药公司Forte Biosciences周一公布2026年第一季度财报，GAAP每股亏损为1.24美元，较上年同期的每股亏损1.37美元有所收窄。公司本季度净亏损2214万美元，去年同期为1566万美元。 公司核心候选药物FB102近期获得美国FDA授予的乳糜泻快速通道资格认定。Forte首席执行官Paul Wagner表示，FB102在乳糜泻领域的临床开发进展顺
+中新网6月8日电 据中央纪委国家监委网站消息，经中共中央批准，中央纪委国家监委对新疆维吾尔自治区党委原常委、自治区政府原副主席陈伟俊严重违纪违法问题进行了立案审查调查。 经查，陈伟俊丧失理想信念，背弃初心使命，对抗组织审查；违反中央八项规定精神，接受可能影响公正执行公务的宴请；不按规定报告个人有关事项，在组织谈话时不如实说明问题，在干部选拔任用等工作中为他人谋取利益；纵容、默许
 
 ## 正文
 
-临床阶段生物制药公司Forte Biosciences周一公布2026年第一季度财报，GAAP每股亏损为1.24美元，较上年同期的每股亏损1.37美元有所收窄。
+中新网6月8日电 据中央纪委国家监委网站消息，经中共中央批准，中央纪委国家监委对新疆维吾尔自治区党委原常委、自治区政府原副主席陈伟俊严重违纪违法问题进行了立案审查调查。
 
-公司本季度净亏损2214万美元，去年同期为1566万美元。
+经查，陈伟俊丧失理想信念，背弃初心使命，对抗组织审查；违反中央八项规定精神，接受可能影响公正执行公务的宴请；不按规定报告个人有关事项，在组织谈话时不如实说明问题，在干部选拔任用等工作中为他人谋取利益；纵容、默许亲属利用其职务上的影响谋取私利，违规收受礼品、礼金、消费卡，违规借用管理和服务对象钱款，违规从事营利性活动，由他人支付应当由本人支付的费用；毫无纪法观念，贪婪无度，大搞权钱交易，利用职务便利为他人在项目用地、税费减免、工程承揽等方面谋利，并非法收受巨额财物。
 
-公司核心候选药物FB102近期获得美国FDA授予的乳糜泻快速通道资格认定。
+陈伟俊严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-Forte首席执行官Paul Wagner表示，FB102在乳糜泻领域的临床开发进展顺利，关键数据即将读出，II期研究的顶线结果预计于2026年公布。
-
-此外，FB102针对非节段性白癜风和斑秃的Ib期临床研究也在推进中，白癜风研究的顶线数据预计近期公布，斑秃数据预计于2026年读出。
-
-研发费用方面，一季度研发支出为2050万美元，较上年同期的1270万美元显著增加，主要由于FB102相关临床试验费用增长670万美元。
-
-截至一季度末，公司持有现金及现金等价物5820万美元。
-
-2026年4月，公司通过公开发行募集总收益1.725亿美元，发行660万股普通股。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中央纪委常委会会议研究并报中共中央批准，决定给予陈伟俊开除党籍处分；由国家监委给予其开除公职处分；终止其党的二十大代表、新疆维吾尔自治区第十次党代会代表资格；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 04:55 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 04:36 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-30 04:47 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 04:37 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 04:58 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 05:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 04:48 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 04:58 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 04:40 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 04:58 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 05:03 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 05:00 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 04:42 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 04:47 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 04:52 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 04:49 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 05:09 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 04:56 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-30 05:08 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 04:55 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 04:44 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 04:49 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 04:47 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 05:10 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 04:52 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 05:11 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 05:10 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:45 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/37956783158.shtml)
-- 2026-06-30 04:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/0095759954.shtml)
-- 2026-06-30 04:51 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/902464696.shtml)
-- 2026-06-30 05:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/475221220522.shtml)
-- 2026-06-30 04:39 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/1592942586.shtml)
-- 2026-06-30 04:36 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/94617856.shtml)
-- 2026-06-30 04:54 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/527808.shtml)
-- 2026-06-30 04:44 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/64413684953.shtml)
-- 2026-06-30 04:54 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/84414.shtml)
-- 2026-06-30 05:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/2943724.shtml)
-- 2026-06-30 04:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/015927.shtml)
-- 2026-06-30 04:37 - [千香](http://www.share.minike.top/Article/details/5893600049.shtml)
-- 2026-06-30 04:55 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/052833294436.shtml)
-- 2026-06-30 05:01 - [爱很美味](http://www.share.kurohicncr.top/Article/details/4438488.shtml)
-- 2026-06-30 04:55 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/548806413751.shtml)
+- 2026-06-30 04:51 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/20660922.shtml)
+- 2026-06-30 04:52 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/833502949.shtml)
+- 2026-06-30 04:58 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/43968010.shtml)
+- 2026-06-30 04:59 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/99901906.shtml)
+- 2026-06-30 04:56 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/34889702.shtml)
+- 2026-06-30 04:51 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/986051555690.shtml)
+- 2026-06-30 05:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/429904047378.shtml)
+- 2026-06-30 05:05 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/710116526.shtml)
+- 2026-06-30 05:04 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/40844.shtml)
+- 2026-06-30 05:02 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/9096016.shtml)
+- 2026-06-30 05:11 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/47835.shtml)
+- 2026-06-30 04:51 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/5381649159.shtml)
+- 2026-06-30 04:53 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/890102328.shtml)
+- 2026-06-30 04:48 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/153036379.shtml)
+- 2026-06-30 04:55 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/13324492.shtml)

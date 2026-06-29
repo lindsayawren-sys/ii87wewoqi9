@@ -1,53 +1,61 @@
-# 特朗普推迟下调牛肉进口关税计划
+# 华尔街再度追捧人工智能，亚洲科技股应声反弹
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-特朗普政府表示，将推迟一项旨在平抑牛肉高价的方案，该方案原本计划暂停征收进口牛肉关税。特朗普原定于周一签署两项行政令，下调牛肉进口关税，并放宽对美国肉牛养殖户的监管限制。周一晚间，白宫官员称，相关举措已被推迟，政府正敲定最终细则。此次推迟，源于国会部分共和党议员以及肉牛牧场主的强烈反对，而牧场主群体历来是特朗普稳固的支持者基本盘。媒体周一早些时候曾报道特朗普拟签署相关行政令的计
+亚洲股市周二大幅反弹，此前一日该地区芯片企业遭遇普遍抛售。 韩国综合股价指数（Kospi）大涨 8.2%，日本日经 225 指数上涨 2%。而就在前一个交易日，这些以科技股为主的股指均出现了相近幅度的下跌。 占据韩国股市权重大头的芯片巨头三星电子与 SK 海力士股价分别飙升 9.5% 和 16.4%。周一两家公司股价曾分别收跌 10.2% 和 7.7%。 此番反弹，源于周一美股
 
 ## 正文
 
-特朗普政府表示，将推迟一项旨在平抑牛肉高价的方案，该方案原本计划暂停征收进口牛肉关税。
+亚洲股市周二大幅反弹，此前一日该地区芯片企业遭遇普遍抛售。
 
-特朗普原定于周一签署两项行政令，下调牛肉进口关税，并放宽对美国肉牛养殖户的监管限制。
+韩国综合股价指数（Kospi）大涨 8.2%，日本日经 225 指数上涨 2%。
 
-周一晚间，白宫官员称，相关举措已被推迟，政府正敲定最终细则。
+而就在前一个交易日，这些以科技股为主的股指均出现了相近幅度的下跌。
 
-此次推迟，源于国会部分共和党议员以及肉牛牧场主的强烈反对，而牧场主群体历来是特朗普稳固的支持者基本盘。
+占据韩国股市权重大头的芯片巨头三星电子与 SK 海力士股价分别飙升 9.5% 和 16.4%。
 
-媒体周一早些时候曾报道特朗普拟签署相关行政令的计划。
+周一两家公司股价曾分别收跌 10.2% 和 7.7%。
 
-责任编辑：王永生
+此番反弹，源于周一美股市场的走强：纳斯达克综合指数上涨 0.9%，覆盖范围更广的标普 500 指数微涨 0.3%。
+
+其中英特尔涨幅居首，大涨 11.1%；迈威尔科技上涨 9.6%，美光科技涨幅接近 10%。
+
+受投资者押注人工智能行业将迎来繁荣行情影响，亚洲以芯片股为主的股指（尤其是韩国综合指数）今年累计涨幅创下新高。
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 04:54 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-30 04:55 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 04:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 05:02 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 05:02 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 05:02 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 05:00 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 04:44 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 04:48 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 04:56 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 05:11 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 04:54 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 04:45 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 05:07 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 05:07 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 05:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 05:03 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 05:04 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 04:59 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 04:42 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 04:51 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 04:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 04:47 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 04:48 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 04:58 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:55 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/16375229.shtml)
-- 2026-06-30 04:55 - [巴西vs日本](http://www.blog.minike.top/Article/details/97362.shtml)
-- 2026-06-30 04:53 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/4555702279.shtml)
-- 2026-06-30 04:57 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/70519.shtml)
-- 2026-06-30 04:42 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/045771016871.shtml)
-- 2026-06-30 05:02 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/05864.shtml)
-- 2026-06-30 04:40 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/07097.shtml)
-- 2026-06-30 04:38 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/0403611.shtml)
-- 2026-06-30 05:00 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/818357.shtml)
-- 2026-06-30 04:59 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/332770245.shtml)
-- 2026-06-30 04:36 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/72346318.shtml)
-- 2026-06-30 04:52 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/322330439.shtml)
-- 2026-06-30 04:43 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/7989370365.shtml)
-- 2026-06-30 05:03 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/8223326645.shtml)
-- 2026-06-30 04:51 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/627790426.shtml)
+- 2026-06-30 04:55 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/0120010.shtml)
+- 2026-06-30 04:52 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/76171496.shtml)
+- 2026-06-30 05:01 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/532138.shtml)
+- 2026-06-30 05:08 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/8084370933.shtml)
+- 2026-06-30 04:43 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/8782296.shtml)
+- 2026-06-30 04:56 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/9339171.shtml)
+- 2026-06-30 05:05 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/35174635.shtml)
+- 2026-06-30 04:46 - [请回答王牌2019](http://www.blog.minike.top/Article/details/24129.shtml)
+- 2026-06-30 05:01 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/839723219364.shtml)
+- 2026-06-30 05:11 - [蔚来车主罚站](http://www.share.minike.top/Article/details/060735675.shtml)
+- 2026-06-30 04:48 - [女心理师](https://www.share.kurohicncr.top/Article/details/71164799.shtml)
+- 2026-06-30 05:11 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/629241509275.shtml)
+- 2026-06-30 05:07 - [《共患难》](https://www.blog.minike.top/Article/details/62844055.shtml)
+- 2026-06-30 04:51 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/6143443.shtml)
+- 2026-06-30 04:58 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/9239698.shtml)

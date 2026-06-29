@@ -1,59 +1,57 @@
-# 吉林省从四个维度精准发力 建设现代化产业体系
+# Upstart遭集体诉讼，首席原告申请截止日期为6月8日
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新网长春5月12日电 (高龙安 李彦国)吉林省发展改革委主任李平12日介绍，该省以智能化、绿色化、融合化为发展方向，加快构建具有本地特色的“2266”现代化产业体系。 具体架构为：培育农业和农产品加工、旅游业2个万亿元级产业；汽车及零部件、银发经济两个五千亿元级产业；新能源、新装备、新医药、新一代光电信息、石化、冶金建材6个千亿元级产业；新材料、人工智能、氢能与新型储能、生物
+知名证券律师事务所Faruqi & Faruqi， LLP提醒Upstart Holdings， Inc．（纳斯达克代码：UPST）的投资者，针对该公司的联邦证券集体诉讼中，申请担任首席原告的截止日期为2026年6月8日。 该诉讼指控Upstart及其高管在2025年5月14日至2025年11月4日期间，违反了联邦证券法，做出了虚假和/或误导性陈述。诉讼的核心涉及Upstart
 
 ## 正文
 
-中新网长春5月12日电 (高龙安 李彦国)吉林省发展改革委主任李平12日介绍，该省以智能化、绿色化、融合化为发展方向，加快构建具有本地特色的“2266”现代化产业体系。
+知名证券律师事务所Faruqi & Faruqi， LLP提醒Upstart Holdings， Inc．（纳斯达克代码：UPST）的投资者，针对该公司的联邦证券集体诉讼中，申请担任首席原告的截止日期为2026年6月8日。
 
-具体架构为：培育农业和农产品加工、旅游业2个万亿元级产业；汽车及零部件、银发经济两个五千亿元级产业；新能源、新装备、新医药、新一代光电信息、石化、冶金建材6个千亿元级产业；新材料、人工智能、氢能与新型储能、生物制造、低空经济、轻工纺织6个百亿元级产业。
+该诉讼指控Upstart及其高管在2025年5月14日至2025年11月4日期间，违反了联邦证券法，做出了虚假和/或误导性陈述。
 
-12日，吉林省政府新闻办在长春召开“开局起步‘十五五’推动吉林全面振兴和高质量发展”系列主题新闻发布会第二场，李平就构建吉林特色现代化产业体系相关情况作介绍。
+诉讼的核心涉及Upstart引以为傲的“Model 22”人工智能信贷承销模型。
 
-李平表示，围绕建设现代化产业体系，该省重点从传统产业、新兴产业、未来产业、现代服务业四个维度精准发力。
+根据诉状，被告未能向投资者披露以下关键事实：Model 22在执行风险分离过程中，经常对负面宏观经济信号反应过度；因此，该模型的整体准确性和提高贷款批准率的能力被夸大；该模型对信贷和宏观经济状况的过于保守评估对Upstart的营收结果产生了显著的负面影响，导致公司此前发布的2025年全年营收指引变得不可靠且不切实际。
 
-传统产业是现代化产业体系根基，要运用绿色技术、数智技术促进转型升级。
+真相于2025年11月4日开始浮出水面。
 
-据悉，吉林省瞄准汽车产业智能化、网联化、电动化方向，支持整车企业扩大新能源汽车产能，聚力打造世界先进水平智能网联新能源汽车产业基地。
+当天，Upstart发布了2025年第三季度的财务业绩，报告营收为2.77亿美元，低于公司此前约2.8亿美元的业绩指引和市场预期的2.62亿美元。
 
-同时，做实做深“粮头食尾”“畜头肉尾”“农头工尾”全产业链，延伸加工链条，向精深加工、高附加值环节迈进，建设全国重要农产品精深加工基地。
+公司还将2025年第四季度的营收预期下调至2.88亿美元，远低于市场预期的3.037亿美元。
 
-“新兴产业是吉林省振兴发展的增长极，要加快培育壮大，推动技术和产品迭代，稳步做优增量。
+同时，Upstart将2025年全年的营收指引从约10.55亿美元下调至约10.35亿美元，并将来自费用的收入预期从约9.90亿美元下调至约9.46亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 04:40 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 04:48 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 04:44 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-30 04:44 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 04:43 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 05:00 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 04:37 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 04:36 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 04:40 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 04:36 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 04:37 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 05:03 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 04:57 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 05:05 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 05:01 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 04:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 05:04 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 04:45 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 04:50 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 04:55 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 04:59 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 04:45 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 05:05 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 05:05 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:57 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/03170362.shtml)
-- 2026-06-30 04:58 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/3986398248.shtml)
-- 2026-06-30 04:46 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/783825.shtml)
-- 2026-06-30 04:41 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/60912.shtml)
-- 2026-06-30 04:59 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/6125432.shtml)
-- 2026-06-30 05:03 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/08768218480.shtml)
-- 2026-06-30 04:40 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/5071154.shtml)
-- 2026-06-30 04:39 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/28969.shtml)
-- 2026-06-30 04:49 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/564787.shtml)
-- 2026-06-30 05:01 - [苗族银饰](http://www.blog.minike.top/Article/details/68473665281.shtml)
-- 2026-06-30 05:01 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/12356.shtml)
-- 2026-06-30 04:53 - [女心理师](https://www.share.kurohicncr.top/Article/details/252638291.shtml)
-- 2026-06-30 04:37 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/59832.shtml)
-- 2026-06-30 04:38 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/254717607.shtml)
-- 2026-06-30 04:45 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/433645523.shtml)
+- 2026-06-30 04:55 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/07563392.shtml)
+- 2026-06-30 05:02 - [巴西2比1日本](https://www.blog.minike.top/Article/details/353012610.shtml)
+- 2026-06-30 04:43 - [TOP Prada](http://www.share.minike.top/Article/details/411275479336.shtml)
+- 2026-06-30 05:10 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/0267801.shtml)
+- 2026-06-30 04:43 - [巴西vs日本](http://www.share.minike.top/Article/details/92818.shtml)
+- 2026-06-30 05:11 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/5969383.shtml)
+- 2026-06-30 05:07 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/629315393461.shtml)
+- 2026-06-30 04:51 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/63377035858.shtml)
+- 2026-06-30 04:42 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/215006409.shtml)
+- 2026-06-30 05:06 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/521920.shtml)
+- 2026-06-30 05:03 - [起风了](http://www.blog.minike.top/Article/details/426265023669.shtml)
+- 2026-06-30 04:57 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/703646.shtml)
+- 2026-06-30 05:06 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/83840975266.shtml)
+- 2026-06-30 05:01 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/443495086254.shtml)
+- 2026-06-30 04:58 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/510566705.shtml)

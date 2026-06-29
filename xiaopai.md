@@ -1,56 +1,61 @@
-# 三江源青海玉树启动2026年全国防灾减灾日活动 筑牢安全稳定屏障
+# 腾讯控股早盘涨超4% 旗下微信发布关于开发者接入微信AI生态指引
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新网青海玉树5月12日电 (祁绣娟)12日，全国第18个防灾减灾日当天，青海省玉树藏族自治州2026年全国防灾减灾日暨全州“应急服务提速”交流活动启动仪式在素有“黄河源头第一县”之称的曲麻莱县举行，并同步组织开展交通救援暨防汛应急综合演练。 曲麻莱县交通救援暨防汛应急综合演练，立足当地高海拔、高寒缺氧、牧区居住分散的地域特点，检验山洪、公路水毁、山体滑坡等自然灾害应急处置能力
+腾讯控股（00700）早盘涨超4%，截至发稿，股价上涨4.17%，现报465港元。 6月8日，据微信公开课消息，为给用户提供更智能的交互体验，微信开放平台在充分尊重开发者权益和自主选择的基础上，面向开发者提供了便捷接入微信AI生态的能力。开发者需在“小程序管理后台-AI能力”主动授权接入微信AI。 同时平台提供了两种选项，以满足不同规模团队的开发需求。自动模式方面，授权平台提审
 
 ## 正文
 
-中新网青海玉树5月12日电 (祁绣娟)12日，全国第18个防灾减灾日当天，青海省玉树藏族自治州2026年全国防灾减灾日暨全州“应急服务提速”交流活动启动仪式在素有“黄河源头第一县”之称的曲麻莱县举行，并同步组织开展交通救援暨防汛应急综合演练。
+腾讯控股（00700）早盘涨超4%，截至发稿，股价上涨4.17%，现报465港元。
 
-曲麻莱县交通救援暨防汛应急综合演练，立足当地高海拔、高寒缺氧、牧区居住分散的地域特点，检验山洪、公路水毁、山体滑坡等自然灾害应急处置能力。
+6月8日，据微信公开课消息，为给用户提供更智能的交互体验，微信开放平台在充分尊重开发者权益和自主选择的基础上，面向开发者提供了便捷接入微信AI生态的能力。
 
-演练前，救援队伍整装待命，各类救援装备集中展示。
+开发者需在“小程序管理后台-AI能力”主动授权接入微信AI。
 
-在宣传区域，工作人员围绕“人人讲安全、个个会应急——提高防灾减灾救灾能力”的主题，向参观的民众发放宣传手册，讲解转移避险、防汛排涝、急救逃生等知识。
+同时平台提供了两种选项，以满足不同规模团队的开发需求。
 
-演练现场，模拟强降雨引发河道涨水、桥涵水毁、山体滑坡、车辆受困等险情。
+自动模式方面，授权平台提审时读取小程序源码，无需投入额外开发；平台将分析你的小程序页面，让微信AI能直接操作。
 
-曲麻莱县防汛抗旱指挥部制定《汛期应急装备物资调配方案》，各部门快速响应、联动协同，分工成立现场工作组，启动“曲麻莱县城至巴干乡S313线”防汛抗洪三级应急响应，依次开展队伍集结、物资调运、风险排查、人员转移、交通疏导、伤员救治等实操演练。
+开发模式方面，开发者可基于小程序业务特性，自主个性化开发；通过平台评测与审核后，可被微信Al调用。
 
-全程衔接有序、处置规范，全面检验了应急队伍实战能力与部门联动处置水平。
+两种模式不互斥，可同时开启。
 
-“通过这次演练学习到了很多避险自救知识，也看到了救援人员的辛苦，以后要多多学习防灾减灾的知识，提高应急避险自救的能力。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:45 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 05:00 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 04:58 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 05:05 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 05:03 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 04:51 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 04:39 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 05:00 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 04:55 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 04:43 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 04:49 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 04:44 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 05:04 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 04:48 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 05:06 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 04:55 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 04:45 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 04:46 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 04:58 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 05:00 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 05:01 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 04:46 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 05:10 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 04:46 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 04:43 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:48 - [流金岁月](https://www.blog.minike.top/Article/details/80325596.shtml)
-- 2026-06-30 04:49 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/417196712.shtml)
-- 2026-06-30 04:57 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/435023409.shtml)
-- 2026-06-30 05:05 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/183741846364.shtml)
-- 2026-06-30 04:36 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/87381.shtml)
-- 2026-06-30 04:52 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/0215286562.shtml)
-- 2026-06-30 05:03 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/641083.shtml)
-- 2026-06-30 04:41 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/889667.shtml)
-- 2026-06-30 04:41 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/38394.shtml)
-- 2026-06-30 04:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/78981005.shtml)
-- 2026-06-30 05:01 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/9071351.shtml)
-- 2026-06-30 04:56 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/282178994.shtml)
-- 2026-06-30 04:57 - [巴西vs日本](https://www.share.minike.top/Article/details/4142071.shtml)
-- 2026-06-30 05:03 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/323498.shtml)
-- 2026-06-30 04:42 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/2735486.shtml)
+- 2026-06-30 05:11 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/64926412910.shtml)
+- 2026-06-30 04:53 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/22954100.shtml)
+- 2026-06-30 04:55 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/477188.shtml)
+- 2026-06-30 05:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/48266.shtml)
+- 2026-06-30 05:07 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/60364.shtml)
+- 2026-06-30 04:52 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/8008418701.shtml)
+- 2026-06-30 04:45 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/5544400398.shtml)
+- 2026-06-30 04:57 - [亚洲球队全部告别世界杯](https://www.blog.minike.top/Article/details/395380352.shtml)
+- 2026-06-30 04:57 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/9284939113.shtml)
+- 2026-06-30 04:42 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/91075720723.shtml)
+- 2026-06-30 05:03 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/038885980.shtml)
+- 2026-06-30 05:11 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/74195667023.shtml)
+- 2026-06-30 04:57 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/138599472118.shtml)
+- 2026-06-30 04:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/776531336.shtml)
+- 2026-06-30 05:05 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/65797835354.shtml)

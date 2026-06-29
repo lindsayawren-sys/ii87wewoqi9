@@ -1,57 +1,59 @@
-# 加州海上天然气平台退役作业期间发生火灾
+# 5000余部短剧遭盗版搬运，怎么证明“未经许可”？侵权数量如何认定？
 
-> 更新时间：2026-06-30 05:06:03 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-周一，美国海岸警卫队及其合作伙伴对加利福尼亚州圣巴巴拉附近海域一座已停运的天然气平台上的火灾进行了应急响应。 早上6点30分，当平台人员正在对Habitat平台进行退役作业时，该平台发生火灾。 Habitat平台是一座非产油平台，位于圣巴巴拉西南约8英里处。 应急响应人员和平台人员报告称，火势于上午11点40分被扑灭。 目前没有迹象表明平台有石油泄漏入海，也未对野生动物或公众造
+短剧没有版权信息，怎么证明“未经许可”？内容高度碎片化，侵权数量如何认定？ 5000余部短剧遭盗版搬运之后 “原创短剧最怕盗版盗播，那起侵权案件对我们影响很大。多亏检察机关从严打击，如今有法治保驾护航，我们搞创作也更安心了。”4月29日，面对前来回访的浙江省海宁市检察院检察官，嘉兴市某文化传媒公司负责人感慨道。 这家公司是国内短剧头部公司，也是这起涉及5000余部短剧遭盗版搬运
 
 ## 正文
 
-周一，美国海岸警卫队及其合作伙伴对加利福尼亚州圣巴巴拉附近海域一座已停运的天然气平台上的火灾进行了应急响应。
+短剧没有版权信息，怎么证明“未经许可”？
 
-早上6点30分，当平台人员正在对Habitat平台进行退役作业时，该平台发生火灾。
+内容高度碎片化，侵权数量如何认定？
 
-Habitat平台是一座非产油平台，位于圣巴巴拉西南约8英里处。
+5000余部短剧遭盗版搬运之后 “原创短剧最怕盗版盗播，那起侵权案件对我们影响很大。
 
-应急响应人员和平台人员报告称，火势于上午11点40分被扑灭。
+多亏检察机关从严打击，如今有法治保驾护航，我们搞创作也更安心了。
 
-目前没有迹象表明平台有石油泄漏入海，也未对野生动物或公众造成影响。
+”4月29日，面对前来回访的浙江省海宁市检察院检察官，嘉兴市某文化传媒公司负责人感慨道。
 
-参与响应的机构包括： 美国海岸警卫队西南区、洛杉矶-长滩分遣队、海峡群岛站；文图拉县消防局、文图拉市消防局、圣巴巴拉县消防局、圣巴巴拉市消防局；安全与环境执法局；海上溢油应急公司。
+这家公司是国内短剧头部公司，也是这起涉及5000余部短剧遭盗版搬运的受害企业之一。
 
-责任编辑：张俊 SF065
+办案中，面对海量盗版资源，海宁市检察院从认定侵权到追赃挽损，再到推动行业治理，为数字文化创意产业筑起了一道法治防线。
+
+案发 原创短剧遭非法盗播 近年来，短剧行业快速走红，成为网络视听行业新的经济增长点。
 
 ## 相关推荐
 
-- 2026-06-30 04:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 04:59 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 04:55 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-30 04:58 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 04:37 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-30 04:49 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 04:37 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-30 04:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 04:50 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 04:55 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 04:42 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 04:58 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 04:49 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 05:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 05:08 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 04:43 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 05:05 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 04:58 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 04:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 04:53 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 05:00 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 04:50 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 05:09 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 04:44 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 05:09 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 04:50 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:41 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/17697.shtml)
-- 2026-06-30 05:03 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/3548628.shtml)
-- 2026-06-30 04:59 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/3861333.shtml)
-- 2026-06-30 04:40 - [千与千寻](http://www.share.kurohicncr.top/Article/details/20220859.shtml)
-- 2026-06-30 04:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/351876.shtml)
-- 2026-06-30 04:47 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/938021.shtml)
-- 2026-06-30 05:02 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/108541199.shtml)
-- 2026-06-30 04:58 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/364633144465.shtml)
-- 2026-06-30 05:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/17024280.shtml)
-- 2026-06-30 05:01 - [沙丘](https://www.share.kurohicncr.top/Article/details/5602761357.shtml)
-- 2026-06-30 04:41 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/428738.shtml)
-- 2026-06-30 04:42 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/730462.shtml)
-- 2026-06-30 04:49 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/09774.shtml)
-- 2026-06-30 04:45 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/383833627106.shtml)
-- 2026-06-30 04:47 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/20300196025.shtml)
+- 2026-06-30 04:53 - [孙兴慜道歉](http://www.share.minike.top/Article/details/34079.shtml)
+- 2026-06-30 04:46 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/724252142924.shtml)
+- 2026-06-30 04:43 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/165191083.shtml)
+- 2026-06-30 04:45 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/9952114.shtml)
+- 2026-06-30 05:04 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/95761.shtml)
+- 2026-06-30 05:11 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/663707048.shtml)
+- 2026-06-30 04:57 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/47582356.shtml)
+- 2026-06-30 04:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/42243803910.shtml)
+- 2026-06-30 04:57 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/6916073.shtml)
+- 2026-06-30 05:10 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/27070.shtml)
+- 2026-06-30 05:04 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/3914123.shtml)
+- 2026-06-30 04:46 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/13590.shtml)
+- 2026-06-30 05:07 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/4646637.shtml)
+- 2026-06-30 04:50 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/5877670.shtml)
+- 2026-06-30 05:00 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/81740216349.shtml)

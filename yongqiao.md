@@ -1,57 +1,48 @@
-# 大涨118%！A股年内首只翻倍ETF诞生
+# 惠陶集团拟更名为“玖方数智科技控股有限公司”
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-记者丨易妍君 编辑丨张星 受全球AI算力需求爆发催化，5月12日，韩国半导体巨头继续暴涨，截至发稿，SK海力士涨3.67%，三星电子涨1.31%。此前一周，前述两只热门韩股的区间涨幅分别达到31%、22%。 韩国综合指数于5月12日一度涨2.3%，再创历史新高，逼近8000点大关。而5月6日，该指数刚刚突破7000点。 “狂热”情绪进一步向国内市场蔓延，相关跨境ETF溢价率再度
+惠陶集团（08238）公布，董事会建议将公司英文名称由“Winto Group （Holdings） Limited”更改为“Jiufang Digital Technology Holdings Limited”，并采纳“玖方数智科技控股有限公司”为公司中文名称，借以取代现有中文名称“惠陶集团（控股）有限公司”。责任编辑：卢昱君
 
 ## 正文
 
-记者丨易妍君 编辑丨张星 受全球AI算力需求爆发催化，5月12日，韩国半导体巨头继续暴涨，截至发稿，SK海力士涨3.67%，三星电子涨1.31%。
+惠陶集团（08238）公布，董事会建议将公司英文名称由“Winto Group （Holdings） Limited”更改为“Jiufang Digital Technology Holdings Limited”，并采纳“玖方数智科技控股有限公司”为公司中文名称，借以取代现有中文名称“惠陶集团（控股）有限公司”。
 
-此前一周，前述两只热门韩股的区间涨幅分别达到31%、22%。
-
-韩国综合指数于5月12日一度涨2.3%，再创历史新高，逼近8000点大关。
-
-而5月6日，该指数刚刚突破7000点。
-
-“狂热”情绪进一步向国内市场蔓延，相关跨境ETF溢价率再度高企。
-
-A股年内首只翻倍ETF诞生！
-
-截至5月11日，中韩半导体ETF华泰柏瑞（513310）年内涨幅118.63%。
-
-近一年来该基金业绩已猛涨超215%。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:45 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 04:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 04:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-30 04:59 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 05:05 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 04:58 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 04:45 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 04:52 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 05:05 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 04:56 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 04:59 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 05:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 04:51 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 05:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 04:56 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 04:47 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 04:52 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 05:01 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 04:43 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 05:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-30 05:02 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-30 05:08 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 05:02 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 04:56 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 05:09 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:54 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/7985182712.shtml)
-- 2026-06-30 04:48 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/63095451.shtml)
-- 2026-06-30 04:59 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/951716167.shtml)
-- 2026-06-30 04:51 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/7162585.shtml)
-- 2026-06-30 04:44 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/96800.shtml)
-- 2026-06-30 04:53 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/10237644170.shtml)
-- 2026-06-30 04:56 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/917501017996.shtml)
-- 2026-06-30 04:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/8917128.shtml)
-- 2026-06-30 04:44 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/236164064292.shtml)
-- 2026-06-30 04:39 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/0056240199.shtml)
-- 2026-06-30 05:02 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/9374646.shtml)
-- 2026-06-30 04:37 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/64451665134.shtml)
-- 2026-06-30 04:53 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/85972925124.shtml)
-- 2026-06-30 04:41 - [85花告别古偶](https://www.share.minike.top/Article/details/533070934.shtml)
-- 2026-06-30 04:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/278442.shtml)
+- 2026-06-30 05:09 - [第一炉香](https://www.share.minike.top/Article/details/94812876.shtml)
+- 2026-06-30 04:47 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/3347353067.shtml)
+- 2026-06-30 05:04 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/05757080704.shtml)
+- 2026-06-30 04:58 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/77915803347.shtml)
+- 2026-06-30 05:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/666185123.shtml)
+- 2026-06-30 05:02 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/375907786716.shtml)
+- 2026-06-30 05:09 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/054935240257.shtml)
+- 2026-06-30 04:42 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/103710933.shtml)
+- 2026-06-30 04:58 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/51058117.shtml)
+- 2026-06-30 05:07 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/0290013165.shtml)
+- 2026-06-30 04:55 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/816683.shtml)
+- 2026-06-30 04:50 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/98335394.shtml)
+- 2026-06-30 04:45 - [刘念回应](https://www.share.minike.top/Article/details/951681.shtml)
+- 2026-06-30 04:47 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/421018.shtml)
+- 2026-06-30 05:07 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/49350244.shtml)

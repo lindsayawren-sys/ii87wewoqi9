@@ -1,54 +1,58 @@
-# 赣锋锂业(002460.SZ)：注销2022年股票期权激励计划剩余55.125万份期权，因第四个行权期业绩未达标
+# 时隔7个月再访韩国，黄仁勋带去了物理AI“生意”
 
-> 更新时间：2026-06-30 05:06:03 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-2026年5月12日，江西赣锋锂业集团股份有限公司(002460.SZ)发布公告称，公司对2022年股票期权激励计划第四个行权期因公司层面业绩未达标、当期不得行权的55.125万份股票期权予以注销。经中国证券登记结算有限责任公司深圳分公司审核确认，注销事宜已办理完成，本次注销不影响公司股本，股本结构未发生变化。公告显示，根据公司《2022年股票期权激励计划(草案)》，行权考核年
+黄仁勋曾表示，物理AI的“ChatGPT时刻”已经到来。 北京时间6月8日，英伟达官宣与多家韩国科技企业达成合作，它们分别是SK海力士、SK电讯、斗山集团、LG集团、NAVER。其中，人工智能、机器人技术是重点合作领域。 韩国是亚洲制造业强国，拥有芯片、电子、汽车等优势产业。黄仁勋表示，芯片制造将越来越多地由人工智能和机器人技术驱动，可以将在韩国发明的机器人技术和物理AI技术应
 
 ## 正文
 
-2026年5月12日，江西赣锋锂业集团股份有限公司(002460.SZ)发布公告称，公司对2022年股票期权激励计划第四个行权期因公司层面业绩未达标、当期不得行权的55.125万份股票期权予以注销。
+黄仁勋曾表示，物理AI的“ChatGPT时刻”已经到来。
 
-经中国证券登记结算有限责任公司深圳分公司审核确认，注销事宜已办理完成，本次注销不影响公司股本，股本结构未发生变化。
+北京时间6月8日，英伟达官宣与多家韩国科技企业达成合作，它们分别是SK海力士、SK电讯、斗山集团、LG集团、NAVER。
 
-公告显示，根据公司《2022年股票期权激励计划(草案)》，行权考核年度为2022至2025年四个会计年度，每个会计年度考核一次。
+其中，人工智能、机器人技术是重点合作领域。
 
-如公司未达到业绩考核目标，所有激励对象对应考核当年可行权的股票期权不得行权，由公司注销。
+韩国是亚洲制造业强国，拥有芯片、电子、汽车等优势产业。
 
-本次注销系第四个行权期公司业绩未达标所致。
+黄仁勋表示，芯片制造将越来越多地由人工智能和机器人技术驱动，可以将在韩国发明的机器人技术和物理AI技术应用于工业领域。
 
-此前，公司已于2026年4月29日召开第六届董事会第十五次会议审议通过相关议案，并于4月30日披露了注销公告。
+此前在2025年10月底访问韩国时，英伟达宣布与韩国三大企业集团——三星、SK集团和现代汽车集团达成合作，共同打造人工智能（AI）工厂。
+
+此次合作消息发布后，“物理AI”在国内A股市场也引发了关注，当天相关概念股持续走强。
+
+目前，有多家上市公司涉及物理AI概念，如中望软件、凡拓数创、天娱数科、能科科技等盘中涨停，索辰科技、汉鑫科技、奥比中光均涨超10%。
 
 ## 相关推荐
 
-- 2026-06-30 04:41 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 05:00 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 04:53 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 04:52 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 04:55 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 04:38 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 04:36 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 04:56 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 04:38 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 04:43 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 04:58 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 04:37 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 05:10 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 04:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 04:56 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 04:53 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 04:48 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 04:42 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 05:05 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 05:05 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 05:10 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 04:42 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 04:58 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 04:44 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:46 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/94704644.shtml)
-- 2026-06-30 04:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/77028.shtml)
-- 2026-06-30 04:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/45346.shtml)
-- 2026-06-30 04:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/541307.shtml)
-- 2026-06-30 04:51 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/0861441.shtml)
-- 2026-06-30 04:52 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/3604238.shtml)
-- 2026-06-30 04:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/90020787.shtml)
-- 2026-06-30 04:49 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/444835.shtml)
-- 2026-06-30 04:43 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/192398.shtml)
-- 2026-06-30 04:44 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/98855099221.shtml)
-- 2026-06-30 04:38 - [天道](http://www.share.kurohicncr.top/Article/details/12786.shtml)
-- 2026-06-30 04:47 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/3350533141.shtml)
-- 2026-06-30 05:03 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/66700.shtml)
-- 2026-06-30 04:50 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/388465962.shtml)
-- 2026-06-30 04:40 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/32915879469.shtml)
+- 2026-06-30 04:55 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/5180606.shtml)
+- 2026-06-30 04:46 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/6498990.shtml)
+- 2026-06-30 04:57 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/066856429677.shtml)
+- 2026-06-30 05:04 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/3688520.shtml)
+- 2026-06-30 04:51 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/615378414.shtml)
+- 2026-06-30 05:05 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/29179283667.shtml)
+- 2026-06-30 05:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/28094562773.shtml)
+- 2026-06-30 05:05 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/01168.shtml)
+- 2026-06-30 04:57 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/410654.shtml)
+- 2026-06-30 05:04 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/31506.shtml)
+- 2026-06-30 04:59 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/1851338153.shtml)
+- 2026-06-30 05:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/303056305310.shtml)
+- 2026-06-30 04:45 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/187482911.shtml)
+- 2026-06-30 04:58 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/37141.shtml)
+- 2026-06-30 04:45 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/373766236306.shtml)

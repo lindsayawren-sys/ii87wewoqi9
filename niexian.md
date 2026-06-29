@@ -1,56 +1,59 @@
-# 特斯拉将向德国工厂注资2.5亿美元
+# 铸造铝合金期货交易一周年 服务实体功能初显
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-马斯克旗下的特斯拉将向其德国工厂注资2.5亿美元，用于提高电动汽车电芯产能。随著欧洲市场销量回暖，特斯拉正借此举进一步提升该地区的整体产量。 柏林-勃兰登堡工厂是特斯拉在欧洲的首个制造基地。这座“超级工厂”于2022年3月投产，不仅生产数十万辆Model Y汽车，还制造数以百万计的电芯。电芯是为电动汽车提供动力的储能单元。 工厂负责人安德烈·蒂里希在社交平台上发文称，这笔2.5
+6月10日，我国首个再生商品期货交易品种——铸造铝合金期货及期权合约在上海期货交易所（下称上期所）上市一周年，市场总体运行平稳，期现价格联动紧密，规模稳步提升，交割顺畅有序，功能发挥逐步显现。 铸造铝合金期货及期权上市一年来，市场功能有效发挥。一是市场规模稳步增加，交割平稳顺畅。截至2026年6月9日，累计成交量（单边统计，下同） 227.47万手，约合2274.69万吨；日均
 
 ## 正文
 
-马斯克旗下的特斯拉将向其德国工厂注资2.5亿美元，用于提高电动汽车电芯产能。
+6月10日，我国首个再生商品期货交易品种——铸造铝合金期货及期权合约在上海期货交易所（下称上期所）上市一周年，市场总体运行平稳，期现价格联动紧密，规模稳步提升，交割顺畅有序，功能发挥逐步显现。
 
-随著欧洲市场销量回暖，特斯拉正借此举进一步提升该地区的整体产量。
+铸造铝合金期货及期权上市一年来，市场功能有效发挥。
 
-柏林-勃兰登堡工厂是特斯拉在欧洲的首个制造基地。
+一是市场规模稳步增加，交割平稳顺畅。
 
-这座“超级工厂”于2022年3月投产，不仅生产数十万辆Model Y汽车，还制造数以百万计的电芯。
+截至2026年6月9日，累计成交量（单边统计，下同） 227.47万手，约合2274.69万吨；日均成交量0.94万手，约合9.36万吨；日均持仓1.95万手，折合现货规模约20万吨，约占国内铸造铝合金月度消费量50%；累计成交金额5027.30亿元。
 
-电芯是为电动汽车提供动力的储能单元。
+铸造铝合金期货完成7次交割，累计交割量约76680吨，累计交割金额约16.87亿元。
 
-工厂负责人安德烈·蒂里希在社交平台上发文称，这笔2.5亿美元的投资将助力特斯拉扩充员工队伍并提升产能。
+铸造铝合金期权累计成交量42.54万手，日均成交量0.18万手，日均持仓0.53万手，累计成交金额9.37亿元。
 
-特斯拉的目标是在该厂实现100万辆的产量；就在最近，该厂的累计产量刚刚突破75万辆大关。
+二是期现价格联动紧密，合约结构合理。
 
-蒂里希表示，眼下德国本土车企正面临来自竞争对手的激烈竞争角逐，整个德国工业界处境艰难，而特斯拉的这一增资计划无疑是个好消息。
+铸造铝合金期现价格相关性达0.99，基差保持在合理区间，到期价差良好收敛；各合约价格呈现近低远高结构，充分反映了市场各方对未来供需变化的预期。
 
 ## 相关推荐
 
-- 2026-06-30 04:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 04:58 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 04:47 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 05:03 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 04:36 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-30 05:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 04:36 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 04:38 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 04:38 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 04:36 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 04:50 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 04:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 04:47 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-30 04:52 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 05:09 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 04:48 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 05:05 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 05:11 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 05:08 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 04:59 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 04:45 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 05:05 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 05:01 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:56 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/935763.shtml)
-- 2026-06-30 04:59 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/264365.shtml)
-- 2026-06-30 05:01 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/393080.shtml)
-- 2026-06-30 05:03 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/275277621.shtml)
-- 2026-06-30 05:01 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/5278673.shtml)
-- 2026-06-30 04:41 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/719755.shtml)
-- 2026-06-30 05:03 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/836585937024.shtml)
-- 2026-06-30 04:39 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/0181200.shtml)
-- 2026-06-30 04:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/46622992.shtml)
-- 2026-06-30 04:49 - [一见倾心](http://www.share.kurohicncr.top/Article/details/577872948274.shtml)
-- 2026-06-30 04:40 - [85花告别古偶](https://www.blog.minike.top/Article/details/28649478.shtml)
-- 2026-06-30 04:59 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/992960818.shtml)
-- 2026-06-30 04:43 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/27210298.shtml)
-- 2026-06-30 04:42 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/9617988902.shtml)
-- 2026-06-30 04:38 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/69884694.shtml)
+- 2026-06-30 05:11 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/2426562.shtml)
+- 2026-06-30 05:01 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/40522.shtml)
+- 2026-06-30 04:46 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/2517786.shtml)
+- 2026-06-30 05:09 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/53099043.shtml)
+- 2026-06-30 04:54 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/6222042860.shtml)
+- 2026-06-30 04:56 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/2678460.shtml)
+- 2026-06-30 04:56 - [月亮](http://www.blog.minike.top/Article/details/675902901.shtml)
+- 2026-06-30 04:57 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/942244021.shtml)
+- 2026-06-30 04:43 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/3686613555.shtml)
+- 2026-06-30 05:02 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/008747758754.shtml)
+- 2026-06-30 04:42 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/48852.shtml)
+- 2026-06-30 04:55 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/7304224331.shtml)
+- 2026-06-30 04:47 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/4308592.shtml)
+- 2026-06-30 04:49 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/700582.shtml)
+- 2026-06-30 04:42 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/917789897.shtml)

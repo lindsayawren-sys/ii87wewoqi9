@@ -1,56 +1,60 @@
-# SoFi拟收购PrimaryBid多数资产，股价应声上涨
+# 中式主题乐园重塑文旅赛道（经济聚焦）
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-SoFi Technologies周一宣布，已同意收购英国金融科技公司PrimaryBid的多数资产。受此消息提振，该股当日上涨约1.7%。 据天空新闻报道，PrimaryBid在致投资者的信中披露了这一交易。PrimaryBid表示，尽管公司财务状况依然健康且拥有多年的现金储备，但鉴于当前英国国内市场状况，此举被视为对股东而言的最佳结果。交易完成后，PrimaryBid将停止
+注重沉浸体验，满足情绪价值 中式主题乐园重塑文旅赛道(经济聚焦) 人民日报 证券时报记者 韩忠楠 秦燕玲 郭博昊记者近日实地探访“只有河南·戏剧幻城”、清明上河园等沉浸式文旅项目，发现年轻游客逐渐青睐兼具文化底蕴、沉浸体验与情感共鸣的本土文旅业态。依托实景演绎、NPC(非玩家角色)互动等玩法，新建园区与老牌景区双双实现业绩突破，有老牌景区3年营收增长约15倍。 热潮背后，是国内
 
 ## 正文
 
-SoFi Technologies周一宣布，已同意收购英国金融科技公司PrimaryBid的多数资产。
+注重沉浸体验，满足情绪价值 中式主题乐园重塑文旅赛道(经济聚焦) 人民日报 证券时报记者 韩忠楠 秦燕玲 郭博昊记者近日实地探访“只有河南·戏剧幻城”、清明上河园等沉浸式文旅项目，发现年轻游客逐渐青睐兼具文化底蕴、沉浸体验与情感共鸣的本土文旅业态。
 
-受此消息提振，该股当日上涨约1.7%。
+依托实景演绎、NPC(非玩家角色)互动等玩法，新建园区与老牌景区双双实现业绩突破，有老牌景区3年营收增长约15倍。
 
-据天空新闻报道，PrimaryBid在致投资者的信中披露了这一交易。
+热潮背后，是国内主题乐园跳出复刻海外、比拼硬件的发展模式，转向以IP(知识产权)为重点、情绪消费为驱动力的消费新赛道。
 
-PrimaryBid表示，尽管公司财务状况依然健康且拥有多年的现金储备，但鉴于当前英国国内市场状况，此举被视为对股东而言的最佳结果。
+与此同时，政策也进一步为提供新供给的优质文旅企业创造良好营商环境。
 
-交易完成后，PrimaryBid将停止独立运营，并向其投资者进行部分资本返还。
+市场、政策双重红利之下，中式主题乐园迎来发展关键节点。
 
-PrimaryBid的核心业务是让散户投资者能够参与上市公司的公开发行和IPO。
+根植地方特色、以文化IP重塑体验的中式乐园蓬勃发展 走进“只有河南·戏剧幻城”，只见328米的夯土城墙连绵矗立。
 
-此次收购并非双方首次合作，早在2024年，SoFi就曾与PrimaryBid合作推出定向股票平台，为企业提供向员工、客户及散户投资者预留IPO股份的数字化服务。
+近5年，这座“城”吸引着八方来客。
 
-SoFi首席执行官Anthony Noto当时将该合作称为“扩大投资者准入的自然演变”。
+该项目自2021年6月运营以来，截至2025年底，累计观剧人次超过5800万，其中80%来自省外，85%为18至35岁的年轻人。
 
 ## 相关推荐
 
-- 2026-06-30 04:46 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 04:44 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 04:52 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 05:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 04:58 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 04:57 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 04:44 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-30 04:56 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 04:44 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 05:00 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 04:44 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 05:09 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-30 05:05 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 04:59 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 05:08 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 05:09 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 05:09 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 04:59 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 04:57 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 05:05 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 04:57 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 04:53 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 05:08 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 04:53 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:51 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/034590887185.shtml)
-- 2026-06-30 04:43 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/7682966283.shtml)
-- 2026-06-30 05:00 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/11288.shtml)
-- 2026-06-30 04:49 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/3439949.shtml)
-- 2026-06-30 04:39 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/837091.shtml)
-- 2026-06-30 04:55 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/09369600686.shtml)
-- 2026-06-30 04:43 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/59443728293.shtml)
-- 2026-06-30 04:55 - [周生如故](http://www.share.minike.top/Article/details/57144.shtml)
-- 2026-06-30 04:54 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/25966581.shtml)
-- 2026-06-30 04:57 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/39697.shtml)
-- 2026-06-30 04:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/41613.shtml)
-- 2026-06-30 04:37 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/280210.shtml)
-- 2026-06-30 04:45 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/99937.shtml)
-- 2026-06-30 04:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/0032413.shtml)
-- 2026-06-30 04:56 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/401186055463.shtml)
+- 2026-06-30 04:50 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/432896862.shtml)
+- 2026-06-30 04:42 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/1792437989.shtml)
+- 2026-06-30 04:55 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/8375846.shtml)
+- 2026-06-30 04:52 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/85999532.shtml)
+- 2026-06-30 04:46 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/150175702.shtml)
+- 2026-06-30 05:04 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/7848999.shtml)
+- 2026-06-30 04:43 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/96127657221.shtml)
+- 2026-06-30 04:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/49649828.shtml)
+- 2026-06-30 05:07 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/43911.shtml)
+- 2026-06-30 04:59 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/9201229573.shtml)
+- 2026-06-30 04:50 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/463184.shtml)
+- 2026-06-30 04:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/99729415.shtml)
+- 2026-06-30 05:01 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/09819759171.shtml)
+- 2026-06-30 04:51 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/1607147952.shtml)
+- 2026-06-30 05:08 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/98471016.shtml)

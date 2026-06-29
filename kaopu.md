@@ -1,49 +1,50 @@
-# 李强致电祝贺毛焦尔就任匈牙利总理
+# 惠陶集团拟发行本金总额为350万港元的可换股债券
 
-> 更新时间：2026-06-30 05:06:03 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新社北京5月12日电 5月12日，中国国务院总理李强致电毛焦尔·彼得，祝贺他就任匈牙利总理。 李强表示，中方始终视匈牙利为欧洲地区的重要伙伴，愿同匈方一道，传承传统友谊，增进政治互信，深化务实合作，推动中匈关系行稳致远，更好造福两国人民。(完)
+惠陶集团（08238）发布公告，于2026年6月8日，公司与认购人马海杨先生订立认购协议，内容有关发行本金总额为350万港元的可换股债券。于可换股债券按初步换股价每股换股股份0.2港元（可予调整）获悉数转换后，合共1741.8万股换股股份将予发行，相当于公司现有已发行股本当中约5%及经发行换股股份扩大的已发行股本当中约4.76%。 认购事项所得款项总额将为350万港元，而所得款
 
 ## 正文
 
-中新社北京5月12日电 5月12日，中国国务院总理李强致电毛焦尔·彼得，祝贺他就任匈牙利总理。
+惠陶集团（08238）发布公告，于2026年6月8日，公司与认购人马海杨先生订立认购协议，内容有关发行本金总额为350万港元的可换股债券。
 
-李强表示，中方始终视匈牙利为欧洲地区的重要伙伴，愿同匈方一道，传承传统友谊，增进政治互信，深化务实合作，推动中匈关系行稳致远，更好造福两国人民。
+于可换股债券按初步换股价每股换股股份0.2港元（可予调整）获悉数转换后，合共1741.8万股换股股份将予发行，相当于公司现有已发行股本当中约5%及经发行换股股份扩大的已发行股本当中约4.76%。
 
-(完)
+认购事项所得款项总额将为350万港元，而所得款项净额将约为320万港元。
+
+集团拟将发行可换股债券筹集的所得款项净额用于一般营运资金。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:40 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 04:55 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 04:59 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 04:59 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 04:57 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 04:57 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 04:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 04:43 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 04:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 04:50 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 04:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 04:47 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 04:52 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 04:47 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 05:10 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 04:42 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 05:11 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 04:58 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 04:54 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 04:59 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 04:43 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 04:42 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 05:08 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/08408442.shtml)
-- 2026-06-30 04:40 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/388400153334.shtml)
-- 2026-06-30 04:50 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/436655942.shtml)
-- 2026-06-30 05:03 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/84814200.shtml)
-- 2026-06-30 04:53 - [扬名立万](https://www.share.kurohicncr.top/Article/details/40889003.shtml)
-- 2026-06-30 04:47 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/4206457.shtml)
-- 2026-06-30 04:54 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/90229636.shtml)
-- 2026-06-30 04:51 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/370723151.shtml)
-- 2026-06-30 04:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/512438057629.shtml)
-- 2026-06-30 04:42 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/107452548.shtml)
-- 2026-06-30 05:03 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/2857204.shtml)
-- 2026-06-30 04:54 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/702496566.shtml)
-- 2026-06-30 04:42 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/511289027134.shtml)
-- 2026-06-30 05:01 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/393123049651.shtml)
-- 2026-06-30 04:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/006962508.shtml)
+- 2026-06-30 05:02 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/705420.shtml)
+- 2026-06-30 05:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/3671735407.shtml)
+- 2026-06-30 04:57 - [逃狱兄弟](https://www.blog.minike.top/Article/details/2216660.shtml)
+- 2026-06-30 04:43 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/76162.shtml)
+- 2026-06-30 04:52 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/062397184.shtml)
+- 2026-06-30 04:52 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/432706083.shtml)
+- 2026-06-30 04:54 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/406187672483.shtml)
+- 2026-06-30 04:49 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/95999591.shtml)
+- 2026-06-30 04:52 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/45926.shtml)
+- 2026-06-30 04:50 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/42092125635.shtml)
+- 2026-06-30 04:58 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/218467026573.shtml)
+- 2026-06-30 05:08 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/5978121635.shtml)
+- 2026-06-30 04:45 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/3905367850.shtml)
+- 2026-06-30 04:58 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/300833783.shtml)
+- 2026-06-30 04:55 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/517857680780.shtml)

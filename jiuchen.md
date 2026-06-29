@@ -1,59 +1,58 @@
-# 贸促出海-东南亚直采招商会
+# 浙江（华东）深远海风电母港核心区码头进入海上施工
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-2026年5月20日(周三)~ 5月28日(周四) 印尼、越南 报名截止： 2026年5月8日 0:00 活动规模30人活动简介 东南亚作为中国第一大贸易伙伴，是我国周边外交与 “一带一路” 建设的核心区域，经贸合作地位举足轻重。东南亚地区凭借丰富的自然资源、突出的区位通道优势以及持续增长的市场需求，已成为我国外向型企业国际化布局的重要目的地。 为进一步培育壮大贸易发展新动能，
+中新网温州6月9日电(奚金燕 南云亥 周志南 )据浙江省能源集团9日消息，浙江(华东)深远海风电母港核心区新建龙门档码头工程海上施工作业已正式启动。 作为全国首个面向深远海的风电母港，浙江(华东)深远海风电母港以打造集聚风电全产业链的新型功能港为目标，计划到2030年形成千亿级风电产业集群。 此次母港核心区码头工程水上沉桩作业是整个桩基工程的关键环节。本阶段共计要完成322根桩
 
 ## 正文
 
-2026年5月20日(周三)~ 5月28日(周四) 印尼、越南 报名截止： 2026年5月8日 0:00 活动规模30人活动简介 东南亚作为中国第一大贸易伙伴，是我国周边外交与 “一带一路” 建设的核心区域，经贸合作地位举足轻重。
+中新网温州6月9日电(奚金燕 南云亥 周志南 )据浙江省能源集团9日消息，浙江(华东)深远海风电母港核心区新建龙门档码头工程海上施工作业已正式启动。
 
-东南亚地区凭借丰富的自然资源、突出的区位通道优势以及持续增长的市场需求，已成为我国外向型企业国际化布局的重要目的地。
+作为全国首个面向深远海的风电母港，浙江(华东)深远海风电母港以打造集聚风电全产业链的新型功能港为目标，计划到2030年形成千亿级风电产业集群。
 
-为进一步培育壮大贸易发展新动能，引导企业优化全球市场布局，助力企业有效应对复杂多变的国际经贸环境，依托一般货物贸易与跨境电商新业态融合发展模式抢抓海外市场机遇、拓展国际订单资源，中国国际贸易促进委员会商业行业委员会拟组织国内优质外向型企业赴东南亚开展市场考察活动。
+此次母港核心区码头工程水上沉桩作业是整个桩基工程的关键环节。
 
-通过拜访政府机构、商务洽谈、精准供采对接、重点行业调研等多维模式，协助企业对接东南亚优质采购资源，深化务实经贸合作。
+本阶段共计要完成322根桩基施工，包括200根直径1.4米的钢管桩以及122根嵌岩桩钢护筒。
 
-本次活动拟于2026年5月下旬举办，将整合境内外优质资源，组织“贸促出海-东南亚直采招商会”团组出海。
+该项目所在地水文气象复杂多变，大风、大雾天气频繁，潮汐影响大，且紧邻航道、LNG码头、避风锚地及周边居民点，对项目施工组织、施工技术、安全管控都提出了极高要求。
 
-活动期间拟拜访印尼工业部、印尼企业家协会(TES)、印尼青年企业家协会(HIPMI)、印尼头部企业Erajaya集团，以及越南科技部、越南建设部、胡志明市贸易与投资促进中心(ITPC)、新华集团(越南)、FPT集团等多国政府部门、商协会及重点企业，通过实地对接与深度交流，助力企业精准把握当地政策红利及市场实操信息，切实帮助中国企业抓商机，拓市场，找订单。
+此外，受限于龙门档码头的结构形式和遗留结构，港池内仅可容纳单艘施工船舶，作业需按照上部结构拆除、水上清淤、水下割桩、围堤挖除等工序依次开展，施工工序多，施工难度大。
 
-活动形式如下： 一、组织机构 主办单位：中国国际贸易促进委员会商业行业委员会 承办单位：中国国际商会商业行业商会、方维(深圳)国际商业有限公司 二、时间地点 时间：2026年5月20日-5月28日，共9天(暂定，含往返路程) 地点：印尼、越南 报名截止时间：5月初(以后续通知为准) 三、重点行业(参团企业类别) 消费品、人工智能、新能源/电力设备及建筑相关行业 四、活动规模 团组人数：20-30人，各地贸促会、商协会及行业企业代表 五、活动形式 (一)境外企业及商协会调研 定向组织考察境外各行业头部企业、商协会，邀请当地头部企业/品牌商分享行业及成功经验并答疑解惑； (二)行业市场考察 组织考察境外重点行业市场，与当地企业进行交流沟通，身临其境了解当地行业市场现状； (三)境外政府拜访及营商环境考察 组织考察当地城市规划与商业、文化产业情况，考察当地
+为确保项目高效有序推进，浙江省能源集团坚持深挖细凿技术优化与党建引领组织优化“双管齐下”。
 
-活动日程 详细活动日程待定。
+在技术优化方面，组织高标准专家咨询，对工程实施方案进行严密论证，取消后接岸平台和挡泥钢板桩，并科学优化还建1#引桥结构形式等多项设计。
 
 ## 相关推荐
 
-- 2026-06-30 04:43 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 04:51 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 04:37 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 04:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-30 04:45 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 04:53 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 04:47 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 04:49 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 04:47 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 04:56 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 04:47 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 05:04 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 04:39 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 05:01 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 04:59 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 05:10 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 04:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 05:10 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 04:46 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 04:48 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 04:47 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 05:11 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-30 05:10 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 04:46 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 04:44 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:50 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/25420418.shtml)
-- 2026-06-30 05:04 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/1630242577.shtml)
-- 2026-06-30 04:36 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/2672298.shtml)
-- 2026-06-30 05:05 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/47140406784.shtml)
-- 2026-06-30 04:42 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/11102041.shtml)
-- 2026-06-30 05:05 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/52985.shtml)
-- 2026-06-30 04:58 - [急先锋](http://www.share.minike.top/Article/details/515555.shtml)
-- 2026-06-30 04:45 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/460502131.shtml)
-- 2026-06-30 05:04 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/96895.shtml)
-- 2026-06-30 04:56 - [速度与激情9](http://www.blog.minike.top/Article/details/40215916064.shtml)
-- 2026-06-30 05:01 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/914301433661.shtml)
-- 2026-06-30 04:59 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/41970.shtml)
-- 2026-06-30 04:50 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/261447411775.shtml)
-- 2026-06-30 04:52 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/973137.shtml)
-- 2026-06-30 05:02 - [乔家的儿女](https://www.share.minike.top/Article/details/673440.shtml)
+- 2026-06-30 04:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/129858634.shtml)
+- 2026-06-30 04:55 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/110102.shtml)
+- 2026-06-30 04:53 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/41110251.shtml)
+- 2026-06-30 05:10 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/976732510387.shtml)
+- 2026-06-30 04:51 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/175595445576.shtml)
+- 2026-06-30 05:06 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/005415385883.shtml)
+- 2026-06-30 04:45 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/455616268448.shtml)
+- 2026-06-30 05:08 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/561808271.shtml)
+- 2026-06-30 05:07 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/96809.shtml)
+- 2026-06-30 04:43 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/89671.shtml)
+- 2026-06-30 04:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/055808361.shtml)
+- 2026-06-30 04:51 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/2745648366.shtml)
+- 2026-06-30 04:45 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/24407.shtml)
+- 2026-06-30 05:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/70443840.shtml)
+- 2026-06-30 05:03 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/860487.shtml)

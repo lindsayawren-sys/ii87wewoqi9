@@ -1,60 +1,57 @@
-# 三峡水库去冬今春枯水期累计补水超百亿立方米
+# 2026中国银行人民币国际使用论坛在上海举办 葛海蛟出席活动并致辞
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-中新社湖北宜昌5月12日电 (郭晓莹 朱文丽)据三峡集团消息，三峡水库于2025年11月21日启动枯水期补水调度，截至2026年5月12日，已累计为长江中下游补水超100亿立方米。 每年冬季至来年春季是长江流域少雨时期，为有效应对枯水期挑战，三峡集团依据水利部长江水利委员会调度要求科学制定补水方案，持续加大三峡水库下泄流量，日均出库流量超7000立方米每秒，平均出库流量超自然平
+来源：中国银行 6月9日，2026中国银行人民币国际使用论坛在上海举办。上海市常务副市长吴伟、中国人民银行副行长陶玲、希腊央行副行长西奥多·佩拉吉迪斯（Theodore Pelagidis）、中国银行董事长葛海蛟出席活动并致辞。中国银行副行长黄学玲现场发布《中国银行人民币国际使用白皮书（2026）》。 葛海蛟表示，中国“十五五”规划纲要提出，扩大高水平对外开放，推进人民币国际化
 
 ## 正文
 
-中新社湖北宜昌5月12日电 (郭晓莹 朱文丽)据三峡集团消息，三峡水库于2025年11月21日启动枯水期补水调度，截至2026年5月12日，已累计为长江中下游补水超100亿立方米。
+来源：中国银行 6月9日，2026中国银行人民币国际使用论坛在上海举办。
 
-每年冬季至来年春季是长江流域少雨时期，为有效应对枯水期挑战，三峡集团依据水利部长江水利委员会调度要求科学制定补水方案，持续加大三峡水库下泄流量，日均出库流量超7000立方米每秒，平均出库流量超自然平均流量近六成。
+上海市常务副市长吴伟、中国人民银行副行长陶玲、希腊央行副行长西奥多·佩拉吉迪斯（Theodore Pelagidis）、中国银行董事长葛海蛟出席活动并致辞。
 
-根据国家统计局发布的《中华人民共和国2024年国民经济和社会发展统计公报》，2024年中国人均用水量为421立方米。
+中国银行副行长黄学玲现场发布《中国银行人民币国际使用白皮书（2026）》。
 
-按这一标准计算，三峡水库本轮枯水期补水量相当于约2375万人的全年用水量。
+葛海蛟表示，中国“十五五”规划纲要提出，扩大高水平对外开放，推进人民币国际化，与世界各国共享机遇、共同发展。
 
-三峡集团负责人表示，目前长江流域正式进入汛期，三峡集团将密切监测水雨情变化，持续跟踪上游来水与中下游用水情况，按照主管部门统一调度，为防洪、补水、生态等效益充分发挥创造有利条件。
+当前，跨境人民币清算结算“跑出加速度”，跨境人民币投融资“驶入快车道”，跨境人民币支付创新“按下快进键”，人民币国际使用加速从量变走向质变。
 
-三峡水库在每年汛末蓄水，在枯水期至次年汛前逐渐释放并腾出库容，以“蓄丰补枯”调度，为长江中下游沿线民生供水、农业生产、航运畅通及生态保护提供保障。
+作为跨境人民币服务主渠道，中国银行国际结算客户约40万户，今年前5个月办理跨境人民币结算量同比增长超20%，熊猫债、离岸人民币债券承销金额市场领先，深度参与“跨境支付通”、多边央行数字货币桥、跨境二维码支付等创新项目，切实见证人民币国际使用的巨大需求和潜力。
 
-据三峡集团提供的数据显示，三峡水库建成以来，年均向下游补水220亿立方米，历年累计补水超3600亿立方米，使枯水期下游流量较常年天然流量增加33%以上，满足长江中下游民众生产生活用水需求，有效促进了长江水生态系统稳定。
+葛海蛟表示，中国银行将以这次论坛为契机，持续探索人民币产品服务创新，努力成为全球投资者投资中国、使用人民币的好朋友、好伙伴。
 
-(完)
+以更深层次的场景融合促进国际经贸合作，加大对跨境电商等新业态支持力度，助力大宗商品贸易、海运领域全链条人民币计价结算，大力拓展外籍来华人士支付等消费场景；以更紧密的互联互通服务投融资便利化，大力支持债券通、互换通、跨境理财通等机制扩容，助力境外机构分享中国市场发展机遇；以更前沿的科技融入跨境支付体系建设，持续推广跨境人民币基础设施互联互通项目，全面支持上海数字人民币国际运营中心建设；以更密切的国际合作共建人民币业务生态圈，深化与境外央行、金融机构、企业及国际组织合作，持续为市场提供稳定的人民币流动性，促进人民币在境外国别间使用。
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 04:43 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 04:52 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 04:40 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 04:44 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 05:04 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 04:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 04:51 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 04:55 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 04:54 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 04:44 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 04:51 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 05:05 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 04:52 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 05:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 05:09 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 04:56 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 05:06 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 04:42 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 05:05 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 05:03 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 05:02 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 04:52 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 05:03 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 04:50 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:44 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/98091416.shtml)
-- 2026-06-30 04:56 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/065071.shtml)
-- 2026-06-30 04:59 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/3805499.shtml)
-- 2026-06-30 04:44 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/8037103.shtml)
-- 2026-06-30 04:51 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/8553134.shtml)
-- 2026-06-30 04:43 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/9592429.shtml)
-- 2026-06-30 04:57 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/0169922996.shtml)
-- 2026-06-30 05:05 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/286158043.shtml)
-- 2026-06-30 04:44 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/47579017711.shtml)
-- 2026-06-30 05:00 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/1457406701.shtml)
-- 2026-06-30 05:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/42640777.shtml)
-- 2026-06-30 04:59 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/05742.shtml)
-- 2026-06-30 04:39 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/14195680.shtml)
-- 2026-06-30 04:59 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/963638130009.shtml)
-- 2026-06-30 04:56 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/07390.shtml)
+- 2026-06-30 04:50 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/3939614642.shtml)
+- 2026-06-30 04:52 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/197224.shtml)
+- 2026-06-30 05:11 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/3521298537.shtml)
+- 2026-06-30 05:08 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/197632.shtml)
+- 2026-06-30 05:03 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/50093.shtml)
+- 2026-06-30 05:01 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/922535036220.shtml)
+- 2026-06-30 05:08 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/4201760595.shtml)
+- 2026-06-30 04:52 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/866123140.shtml)
+- 2026-06-30 05:11 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/9368574.shtml)
+- 2026-06-30 05:02 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/93550320092.shtml)
+- 2026-06-30 04:56 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/987657706775.shtml)
+- 2026-06-30 05:04 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/4399408491.shtml)
+- 2026-06-30 04:43 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/20622462.shtml)
+- 2026-06-30 04:50 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/4254947315.shtml)
+- 2026-06-30 04:42 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/04909.shtml)

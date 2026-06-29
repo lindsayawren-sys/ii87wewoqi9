@@ -1,43 +1,54 @@
-# 中国和塔吉克斯坦签署永久睦邻友好合作条约
+# “希望舟”载梦启航：走进残友们的温暖之家
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-新华社快讯：5月12日，中国和塔吉克斯坦在北京签署永久睦邻友好合作条约。
+发布时间：2026年06月08日 22:13 来源：中国新闻网 在义乌全球数贸中心，有一家名为“希望舟文创阁”的门店。这里不只是一间商铺，更是140多位残友共同的“家”。为了让残友们和社会“接轨”，店主龚爱珍自掏腰包，租了这个店铺，把残友们带进了“技能商业化”的新赛道。如今，店里展出的数百款产品——从编绳项链、发夹、挂件，到自创的“六义”人物卡通形象钩针作品，均出自这些残友之手
 
 ## 正文
 
-新华社快讯：5月12日，中国和塔吉克斯坦在北京签署永久睦邻友好合作条约。
+发布时间：2026年06月08日 22:13 来源：中国新闻网 在义乌全球数贸中心，有一家名为“希望舟文创阁”的门店。
+
+这里不只是一间商铺，更是140多位残友共同的“家”。
+
+为了让残友们和社会“接轨”，店主龚爱珍自掏腰包，租了这个店铺，把残友们带进了“技能商业化”的新赛道。
+
+如今，店里展出的数百款产品——从编绳项链、发夹、挂件，到自创的“六义”人物卡通形象钩针作品，均出自这些残友之手。
+
+从打造样品、批量生产到门店销售，这个特殊的团队实现了自产自销的就业创业新模式。
+
+(张煜欢 肖健） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 04:47 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 04:39 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 04:53 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 04:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 05:03 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 04:42 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 04:41 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 04:40 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 04:58 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 04:59 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 05:09 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 05:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 04:51 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-30 04:46 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 04:52 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 04:43 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 04:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 05:05 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 05:04 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 04:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 04:49 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 05:10 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:57 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/7920622708.shtml)
-- 2026-06-30 04:49 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/779585044.shtml)
-- 2026-06-30 04:36 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/8563789.shtml)
-- 2026-06-30 04:49 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/232557975849.shtml)
-- 2026-06-30 04:37 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/0849552.shtml)
-- 2026-06-30 04:52 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/7239556678.shtml)
-- 2026-06-30 05:01 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/09662585.shtml)
-- 2026-06-30 04:38 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/138116541196.shtml)
-- 2026-06-30 04:38 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/08002.shtml)
-- 2026-06-30 05:05 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/302137352.shtml)
-- 2026-06-30 04:59 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/481966897293.shtml)
-- 2026-06-30 04:59 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/07311870045.shtml)
-- 2026-06-30 04:59 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.kurohicncr.top/Article/details/027514105.shtml)
-- 2026-06-30 04:46 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/45691.shtml)
-- 2026-06-30 04:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/54828684312.shtml)
+- 2026-06-30 04:45 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/17528113.shtml)
+- 2026-06-30 04:51 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/732763705.shtml)
+- 2026-06-30 04:47 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/0003793.shtml)
+- 2026-06-30 04:44 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/871708716.shtml)
+- 2026-06-30 05:09 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/81443757.shtml)
+- 2026-06-30 05:11 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/150082.shtml)
+- 2026-06-30 04:49 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/908875634.shtml)
+- 2026-06-30 04:55 - [巴西绝杀日本](http://www.share.minike.top/Article/details/94660537884.shtml)
+- 2026-06-30 05:00 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/670200460.shtml)
+- 2026-06-30 04:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/19350.shtml)
+- 2026-06-30 05:00 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/420831111.shtml)
+- 2026-06-30 05:04 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/26481.shtml)
+- 2026-06-30 05:11 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/047602279.shtml)
+- 2026-06-30 04:58 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/01575.shtml)
+- 2026-06-30 04:53 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/32397042.shtml)

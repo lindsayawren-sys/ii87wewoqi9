@@ -1,45 +1,61 @@
-# 美称一直在监控伊朗埋在废墟下的浓缩铀
+# 英国葛兰素史克斥资106亿美元收购美国药企Nuvalent
 
-> 更新时间：2026-06-30 05:06:03 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 13:14 来源：央视新闻 责任编辑：【王祎】
+核心要点 英国制药巨头葛兰素史克（GSK）敲定收购美国药企 Nuvalent 的交易，交易总价 106 亿美元，核心目的是补强自身肺癌药物管线。这笔收购将成为这家英国药企十余年来规模最大的一笔并购。 葛兰素史克周二披露公告显示，本次交易为全现金收购，对 Nuvalent 的估值折合每股 124 美元，较该股前一交易日收盘价溢价 40%。 英国《金融时报》周二早间率先曝出该并购消
 
 ## 正文
 
-发布时间：2026年05月12日 13:14 来源：央视新闻 责任编辑：【王祎】
+核心要点 英国制药巨头葛兰素史克（GSK）敲定收购美国药企 Nuvalent 的交易，交易总价 106 亿美元，核心目的是补强自身肺癌药物管线。
+
+这笔收购将成为这家英国药企十余年来规模最大的一笔并购。
+
+葛兰素史克周二披露公告显示，本次交易为全现金收购，对 Nuvalent 的估值折合每股 124 美元，较该股前一交易日收盘价溢价 40%。
+
+英国《金融时报》周二早间率先曝出该并购消息，Nuvalent 方面暂未回应媒体置评请求。
+
+葛兰素史克首席执行官卢克・米尔斯在声明中表示：“本次收购将为葛兰素史克带来立即可兑现的新增营收增长点，自 2027 年起提升公司利润贡献。
+
+同时依托处于三期临床阶段、靶向 B7-H3 的抗体药物偶联物 Ris-Rez，搭建起可快速拓展的肺癌药物研发平台。
+
+” 公司称，本次收购不会调整 2026 全年核心营业利润、核心每股收益增长预期，并预计该并购从 2027 年起拉动整体营收增长。
+
+此次并购是葛兰素史克史上第二大规模交易，仅次于 2014 年与诺华达成的资产置换交易（交易总额 200 亿美元，葛兰素史克借此接管诺华疫苗业务板块）。
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 04:53 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 04:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 05:00 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 04:40 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 04:50 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 04:37 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 04:47 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 05:03 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 04:51 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 05:03 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 04:46 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 04:46 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 04:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 04:52 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 05:10 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 04:52 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 04:59 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 05:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 05:09 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 04:47 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 05:09 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 05:00 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 04:43 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 04:42 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 05:05 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 05:10 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 04:54 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:47 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/12307.shtml)
-- 2026-06-30 04:47 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/32031.shtml)
-- 2026-06-30 04:53 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/68344641423.shtml)
-- 2026-06-30 04:40 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/347026037.shtml)
-- 2026-06-30 05:04 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/83347.shtml)
-- 2026-06-30 04:41 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/68562.shtml)
-- 2026-06-30 04:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/671117.shtml)
-- 2026-06-30 05:04 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/93816780489.shtml)
-- 2026-06-30 05:00 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/45863291.shtml)
-- 2026-06-30 04:59 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/273576549497.shtml)
-- 2026-06-30 04:47 - [青春环游记第三季](http://www.share.minike.top/Article/details/935125702709.shtml)
-- 2026-06-30 04:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/495013444.shtml)
-- 2026-06-30 05:02 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/1424003.shtml)
-- 2026-06-30 04:54 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/33420145383.shtml)
-- 2026-06-30 05:00 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/1890569.shtml)
+- 2026-06-30 04:55 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/258504.shtml)
+- 2026-06-30 04:43 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/53030140744.shtml)
+- 2026-06-30 04:43 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/519205257619.shtml)
+- 2026-06-30 04:57 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/32304549.shtml)
+- 2026-06-30 05:08 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/5908931.shtml)
+- 2026-06-30 05:00 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/393212713.shtml)
+- 2026-06-30 05:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/119973313997.shtml)
+- 2026-06-30 04:46 - [美股](https://www.blog.kurohicncr.top/Article/details/5124576.shtml)
+- 2026-06-30 04:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/4266103.shtml)
+- 2026-06-30 04:52 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/07586178630.shtml)
+- 2026-06-30 04:57 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/725221997.shtml)
+- 2026-06-30 05:01 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/385721263.shtml)
+- 2026-06-30 05:06 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/7745311182.shtml)
+- 2026-06-30 05:08 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/88724.shtml)
+- 2026-06-30 04:44 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/338312100.shtml)

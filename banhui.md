@@ -1,56 +1,57 @@
-# 金价上涨 受可能的头寸调整影响
+# 东西问·古典学丨古典学家王焕生：“奥德赛时期”，靠四个字度过
 
-> 更新时间：2026-06-30 05:06:02 UTC+8
+> 更新时间：2026-06-30 05:12:02 UTC+8
 
 ## 摘要
 
-金价在亚洲早盘交易中上涨，受可能的头寸调整影响。 现货黄金上涨0.5%，报每盎司4，756.30美元。 InTouch Capital Markets的分析师团队在评论中表示：“投资者在等待有关美国和伊朗下一步行动的更多细节。“该团队指出：“总统特朗普对伊朗最新的沟通表达了不满，并正与他的顾问坐下来确定未来的战略。“该团队补充说，特朗普似乎想放弃进一步的军事打击，但伊朗不断的拒
+中新社北京6月9日电 题：古典学家王焕生：“奥德赛时期”，靠四个字度过 中新社记者 安英昭 如何度过人生的“奥德赛时期”？这一话题近期在中国社交网络引发热议，官方媒体及文化名人随后也展开讨论。 实际上，“奥德赛时期”(Odyssey Years)一词，早在2007年即由《纽约时报》专栏作者大卫·布鲁克斯(David Brooks)提出。他借用西方文学经典《奥德赛》主人公奥德修斯
 
 ## 正文
 
-金价在亚洲早盘交易中上涨，受可能的头寸调整影响。
+中新社北京6月9日电 题：古典学家王焕生：“奥德赛时期”，靠四个字度过 中新社记者 安英昭 如何度过人生的“奥德赛时期”？
 
-现货黄金上涨0.5%，报每盎司4，756.30美元。
+这一话题近期在中国社交网络引发热议，官方媒体及文化名人随后也展开讨论。
 
-InTouch Capital Markets的分析师团队在评论中表示：“投资者在等待有关美国和伊朗下一步行动的更多细节。
+实际上，“奥德赛时期”(Odyssey Years)一词，早在2007年即由《纽约时报》专栏作者大卫·布鲁克斯(David Brooks)提出。
 
-“该团队指出：“总统特朗普对伊朗最新的沟通表达了不满，并正与他的顾问坐下来确定未来的战略。
+他借用西方文学经典《奥德赛》主人公奥德修斯的故事，从那段漫长而惊险的旅程中延伸概括出“奥德赛时期”，用来定义人类青春期与成年期之间的探索时期。
 
-“该团队补充说，特朗普似乎想放弃进一步的军事打击，但伊朗不断的拒绝可能会促使他采取其他行动。
+第二届世界古典学大会前夕，中新社“东西问”专访了《荷马史诗》古希腊文汉译第一人、新中国第二代古典学人王焕生先生。
 
-责任编辑：王永生
+谈及自己的“奥德赛时期”，他笑着说了四个字。
+
+“奥德赛时期”，靠四个字度过 1959年，20岁的王焕生如愿考入了北京外国语学院(现北京外国语大学)留苏预备部学习俄语。
+
+一年后，王焕生满怀憧憬，准备去苏联学习先进科学技术，回国报效祖国。
 
 ## 相关推荐
 
-- 2026-06-30 04:48 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 04:57 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 04:59 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 04:50 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 04:45 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-30 04:47 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 04:52 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 04:58 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 05:03 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 04:59 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 04:48 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 04:45 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-30 04:41 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-30 04:54 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 05:07 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 05:01 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 04:46 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 04:58 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 05:11 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 05:03 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 05:08 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 05:00 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 05:00 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 04:47 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 05:02 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:04 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/84315843.shtml)
-- 2026-06-30 04:42 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/381884904643.shtml)
-- 2026-06-30 04:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/44685.shtml)
-- 2026-06-30 04:39 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/9572765.shtml)
-- 2026-06-30 04:42 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/98371708941.shtml)
-- 2026-06-30 04:59 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/399815158.shtml)
-- 2026-06-30 04:57 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/54259.shtml)
-- 2026-06-30 05:03 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/980021.shtml)
-- 2026-06-30 05:01 - [日本领先巴西](http://www.share.minike.top/Article/details/538247.shtml)
-- 2026-06-30 04:49 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/3896074.shtml)
-- 2026-06-30 04:42 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/50116682.shtml)
-- 2026-06-30 04:52 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/1747228.shtml)
-- 2026-06-30 04:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/811167.shtml)
-- 2026-06-30 04:46 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/325014854.shtml)
-- 2026-06-30 04:58 - [内马尔替补](http://www.blog.minike.top/Article/details/4803686703.shtml)
+- 2026-06-30 04:49 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/024330463.shtml)
+- 2026-06-30 05:07 - [金牌调解](http://www.blog.minike.top/Article/details/280618302.shtml)
+- 2026-06-30 04:47 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/87221941.shtml)
+- 2026-06-30 04:43 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/25108.shtml)
+- 2026-06-30 04:47 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/99916044153.shtml)
+- 2026-06-30 04:45 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/484561105.shtml)
+- 2026-06-30 04:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/8952450388.shtml)
+- 2026-06-30 04:46 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/9259476.shtml)
+- 2026-06-30 05:02 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/714650951.shtml)
+- 2026-06-30 04:53 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/0747396093.shtml)
+- 2026-06-30 05:01 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/84975600.shtml)
+- 2026-06-30 05:06 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/78044324.shtml)
+- 2026-06-30 04:56 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/75058059910.shtml)
+- 2026-06-30 05:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/62011550179.shtml)
+- 2026-06-30 04:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/087981249.shtml)
