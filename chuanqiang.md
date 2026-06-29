@@ -1,59 +1,58 @@
-# 广州数智未来展：多款首发产品“秀”出中国智造新高度
+# 从“灌输”到“点燃”：一位军校教员的十年讲台路
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-广州国际数智装备与人工智能展览会深度推动“两业融合” 多款首发产品“秀”出中国智造新高度 从航空级高精传动到具身智能机器人，从低空物流无人机到智能物流装备全链路解决方案……昨日，由广州国际会展集团和汉诺威米兰佰特展览联合主办的广州国际数智装备与人工智能展览会(以下简称“数智未来展”)开幕。展会设立广州国际低空经济与航空航天展览会、广州国际智能装备与机器人展览会、中国(广州)国际
+中新网太原4月8日电 题：从“灌输”到“点燃”：一位军校教员的十年讲台路 作者 杨静 张立程 秦诗凯 清晨的阳光洒进校园，军校教员肖利丽踏着坚定的步伐走进教室。讲台下，一双双年轻的眼睛清澈而炽热，盛满对知识的渴求、对军营的向往。 作为军校专业课教员，在三尺讲台深耕十年，肖利丽坚信：教学不止于传授知识，更要以心育心、以情铸魂，让每一堂课都成为点燃灵魂的火种。 肖利丽主讲《组训施教
 
 ## 正文
 
-广州国际数智装备与人工智能展览会深度推动“两业融合” 多款首发产品“秀”出中国智造新高度 从航空级高精传动到具身智能机器人，从低空物流无人机到智能物流装备全链路解决方案……昨日，由广州国际会展集团和汉诺威米兰佰特展览联合主办的广州国际数智装备与人工智能展览会(以下简称“数智未来展”)开幕。
+中新网太原4月8日电 题：从“灌输”到“点燃”：一位军校教员的十年讲台路 作者 杨静 张立程 秦诗凯 清晨的阳光洒进校园，军校教员肖利丽踏着坚定的步伐走进教室。
 
-展会设立广州国际低空经济与航空航天展览会、广州国际智能装备与机器人展览会、中国(广州)国际物流装备与技术展览会三大核心展区，为全球客商搭建集技术展示、场景落地于一体的顶级行业盛会，深度推动先进制造业和现代服务业“两业融合”，向外界“秀”出了中国智造技术新高度。
+讲台下，一双双年轻的眼睛清澈而炽热，盛满对知识的渴求、对军营的向往。
 
-强强联合打造AI“生态圈”在展会启动仪式暨广州数字科技生态大会上，重磅发布了十余款广州数字科技AI创新产品及平台成果，集结多家龙头企业核心前沿新品，覆盖国产化算力、行业大模型、工业智能检测、智慧医疗、智能调度、网络安全、智慧交通、人才赋能等领域，充分彰显广州本土数字科技企业强劲的研发创新能力与场景落地实力。
+作为军校专业课教员，在三尺讲台深耕十年，肖利丽坚信：教学不止于传授知识，更要以心育心、以情铸魂，让每一堂课都成为点燃灵魂的火种。
 
-大会现场，广州数科集团携手中国电子信息行业联合会、中国电信广州分公司、广州移动、中国联通广州市分公司、华为等单位，联合发起“广州数字科技生态共建”行动，围绕资源整合、技术攻关、生态搭建、成果转化等核心方向深化合作，致力于打造开放共生、协同共赢的数字科技产业生态圈，助力广州加速建成数字经济引领型城市。
+肖利丽主讲《组训施教》这门核心课程。
 
-与此同时，广州数科集团与华为达成深度战略合作，双方将持续深耕算力中心建设、AI技术创新、行业数智解决方案研发等重点领域，夯实广州数字产业算力底座与技术底盘，加速数字技术与实体经济深度融合，赋能各行业数字化、智能化升级。
+课程看似枯燥，却连着基层战场，关系着打赢使命。
 
-广州数字科技集团相关负责人表示，未来，广州数科集团将与华为围绕人工智能、金融、交通、医疗等领域展开更加深度的合作，构建广州算力底座，通过合作打造更多的国家人工智能中试基地和示范项目，把广州的人工智能应用在各个场景落地，真正服务于工业制造、服务业以及居民日常生活。
+在她看来，课堂不能只有书本理论，更要有温度、有力量、有直抵人心的故事。
 
-“秀”出低空经济全链条生态 低空经济领域是本次数智未来展的焦点。
+2015年，肖利丽第一次尝试在课前讲述一名基层连长在高原驻训中带领战士完成极限拉练的真实故事。
 
-“本次参展是广州低空经济全生态实力的集中展示。
+为了让学员们真切感受边防军人的爱国情怀，她提前数天埋头备课，整理教案，反复推敲每一处讲述细节。
 
 ## 相关推荐
 
-- 2026-06-29 23:46 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 23:49 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 23:43 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 23:42 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 23:59 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-30 00:03 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 23:37 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 23:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 23:50 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 23:55 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 23:55 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 23:42 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 23:42 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 00:11 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 00:01 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 00:09 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 00:02 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 23:42 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 23:50 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 00:02 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 23:57 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 23:47 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 23:49 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 23:54 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 23:55 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:37 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/5460330879.shtml)
-- 2026-06-29 23:38 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/1645898187.shtml)
-- 2026-06-30 00:05 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/7946905.shtml)
-- 2026-06-29 23:53 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/347545215.shtml)
-- 2026-06-29 23:39 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/925109690011.shtml)
-- 2026-06-29 23:37 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/269120.shtml)
-- 2026-06-29 23:50 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/0635084.shtml)
-- 2026-06-29 23:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/87790484.shtml)
-- 2026-06-29 23:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/93393.shtml)
-- 2026-06-29 23:47 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/80539689.shtml)
-- 2026-06-29 23:41 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/1478740182.shtml)
-- 2026-06-29 23:43 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/114380.shtml)
-- 2026-06-29 23:40 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/399745.shtml)
-- 2026-06-29 23:39 - [美股](http://www.share.minike.top/Article/details/590519857.shtml)
-- 2026-06-29 23:47 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/110276.shtml)
+- 2026-06-29 23:47 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/35762.shtml)
+- 2026-06-30 00:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/3206843.shtml)
+- 2026-06-30 00:02 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/63497080.shtml)
+- 2026-06-30 00:06 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/86515.shtml)
+- 2026-06-29 23:46 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/4602447594.shtml)
+- 2026-06-29 23:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/3741890.shtml)
+- 2026-06-29 23:43 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/05562684.shtml)
+- 2026-06-30 00:07 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/63404.shtml)
+- 2026-06-30 00:01 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/5873175635.shtml)
+- 2026-06-30 00:07 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/095451972750.shtml)
+- 2026-06-29 23:45 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/248874214057.shtml)
+- 2026-06-30 00:11 - [极限挑战第一季](http://www.blog.minike.top/Article/details/027865.shtml)
+- 2026-06-30 00:03 - [急先锋](https://www.share.minike.top/Article/details/696283.shtml)
+- 2026-06-30 00:08 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/983308.shtml)
+- 2026-06-29 23:52 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/5643665526.shtml)

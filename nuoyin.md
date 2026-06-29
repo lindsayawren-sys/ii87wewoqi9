@@ -1,61 +1,58 @@
-# 美国青少年海口体验中国传统文化：“真的很酷！”
+# 中越边境友谊关口岸一季度整车出口量同比增超两倍
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-中新社海口6月3日电(记者 张茜翼) “这是我第一次接触中国功夫，那么多复杂动作，真的很酷！”12岁美国学生林曼彤(Scarlett)3日在海口说，以前只能在电视或书本里看到中国功夫，如今亲身体验“感觉很新鲜”。 当日，参加“海南自贸港中美基础教育对话会暨中美青少年人文交流营”的美国师生及家长走进海南师范大学附属小学，开启一场中华传统文化体验之旅。 书法体验区墨香四溢。美国青少
+【东盟专线】中越边境友谊关口岸一季度整车出口量同比增超两倍 中新社广西凭祥4月7日电 (记者 杨陈)友谊关海关7日介绍，今年一季度，该关监管出口整车超13000辆，同比增长224.4%。 地处中越边境广西凭祥市的友谊关口岸是中国通往东盟重要陆路口岸之一。记者当天在口岸看到，一辆辆中国国产重卡、自卸车整齐列队，通关后将驶向越南各地的项目施工现场、在建园区以及物流枢纽。 “现在申报
 
 ## 正文
 
-中新社海口6月3日电(记者 张茜翼) “这是我第一次接触中国功夫，那么多复杂动作，真的很酷！
+【东盟专线】中越边境友谊关口岸一季度整车出口量同比增超两倍 中新社广西凭祥4月7日电 (记者 杨陈)友谊关海关7日介绍，今年一季度，该关监管出口整车超13000辆，同比增长224.4%。
 
-”12岁美国学生林曼彤(Scarlett)3日在海口说，以前只能在电视或书本里看到中国功夫，如今亲身体验“感觉很新鲜”。
+地处中越边境广西凭祥市的友谊关口岸是中国通往东盟重要陆路口岸之一。
 
-当日，参加“海南自贸港中美基础教育对话会暨中美青少年人文交流营”的美国师生及家长走进海南师范大学附属小学，开启一场中华传统文化体验之旅。
+记者当天在口岸看到，一辆辆中国国产重卡、自卸车整齐列队，通关后将驶向越南各地的项目施工现场、在建园区以及物流枢纽。
 
-书法体验区墨香四溢。
+“现在申报出境的车辆，最快1天到2天就能办完所有手续，有时候当天申报当天就能出境。
 
-美国青少年第一次握起毛笔，认真写下“和平”“开心”“海南”等汉字。
+”中外运广西有限公司凭祥分公司口岸交接员李健霖介绍，该公司长期代理多家中国品牌重卡出口越南业务，年经手数万台车辆。
 
-“中国书法很美。
+李健霖称，过去整车出口通关周期长，一批车从申报到出境要一周左右。
 
-”文凯(Bennett)说，书法之美不仅在于字形的结构，更在于笔画的粗细变化与书写方式——“充满了情绪”。
+现在海关推出新政，企业线上即可完成申报、审核及放行，单日最高能放行上百台重卡出境。
 
-孙小涛(Todd)则写下一个端正的“福”字，并小心翼翼地将作品收好。
+当前，越南南北高速、工业园区、矿山开发、港口物流等重大项目密集开工，对重型运输车辆需求强劲。
 
 ## 相关推荐
 
-- 2026-06-29 23:57 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 00:04 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 23:57 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 23:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 23:55 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 23:40 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 23:46 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 23:47 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 00:04 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 23:43 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 23:46 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 23:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 23:38 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 23:58 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 23:58 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 00:01 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 23:48 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 00:07 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 23:43 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 00:12 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 23:56 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 00:06 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 00:00 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 23:44 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 00:07 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 00:08 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 00:08 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/639154.shtml)
-- 2026-06-29 23:43 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/317754841.shtml)
-- 2026-06-30 00:05 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/88255.shtml)
-- 2026-06-29 23:50 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/863850351.shtml)
-- 2026-06-29 23:52 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/16956.shtml)
-- 2026-06-29 23:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/169884686359.shtml)
-- 2026-06-29 23:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/7678778225.shtml)
-- 2026-06-29 23:56 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/656852635.shtml)
-- 2026-06-29 23:55 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/876284128775.shtml)
-- 2026-06-29 23:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/103703.shtml)
-- 2026-06-30 00:01 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/253208931631.shtml)
-- 2026-06-29 23:47 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/890256576154.shtml)
-- 2026-06-29 23:59 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/302261477694.shtml)
-- 2026-06-29 23:57 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/29494948.shtml)
-- 2026-06-29 23:40 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/276456461262.shtml)
+- 2026-06-30 00:01 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/9931564584.shtml)
+- 2026-06-29 23:47 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/975714.shtml)
+- 2026-06-29 23:51 - [起风了](http://www.share.minike.top/Article/details/166266.shtml)
+- 2026-06-29 23:47 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/65795634.shtml)
+- 2026-06-30 00:08 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/51685799.shtml)
+- 2026-06-29 23:46 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/693214225.shtml)
+- 2026-06-29 23:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/1780956.shtml)
+- 2026-06-29 23:42 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/19749.shtml)
+- 2026-06-30 00:05 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/764392522109.shtml)
+- 2026-06-30 00:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/353912487.shtml)
+- 2026-06-30 00:00 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/02611.shtml)
+- 2026-06-29 23:54 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/9056962.shtml)
+- 2026-06-30 00:04 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/031251.shtml)
+- 2026-06-29 23:57 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/02423.shtml)
+- 2026-06-29 23:52 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/08233046.shtml)

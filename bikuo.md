@@ -1,61 +1,60 @@
-# 科技赋能守护银发晚年
+# 【券商聚焦】中信建投维持泡泡玛特(09992)“买入”评级 指平台价值未被充分定价
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-中新网沈阳6月4日电(姜月恒 禹瑞斋 李雪飞)随着老龄人口数量增长，各类智能化养老科创产品落地应用。从陪护配送机器人、居家安全监测雷达，到医用健康采集终端、专业康复护理机器人等适老化装备陆续推向市场。智能设备既在起居照料、健康监护等方面为老年人提供实用助力，也切实提升老年群体晚年生活质量。 清晨，沈阳市和平区的街巷，不少老人悠闲漫步。84岁的康志和老人出行时，一台智能轮椅始终紧
+金吾财讯 | 中信建投证券发布研报指，泡泡玛特(09992)2025年全年业绩高速增长，毛利率、经营利润率及净利率均创历史新高。该行认为，公司“多IP×多市场×多品类”的平台价值尚未被市场充分定价，维持“买入”评级。报告指出，泡泡玛特2025年实现收入371.2亿元，同比增长184.7%；毛利率为72.1%，同比提升5.3个百分点；经调整净利润达130.8亿元，同比增长284.
 
 ## 正文
 
-中新网沈阳6月4日电(姜月恒 禹瑞斋 李雪飞)随着老龄人口数量增长，各类智能化养老科创产品落地应用。
+金吾财讯 | 中信建投证券发布研报指，泡泡玛特(09992)2025年全年业绩高速增长，毛利率、经营利润率及净利率均创历史新高。
 
-从陪护配送机器人、居家安全监测雷达，到医用健康采集终端、专业康复护理机器人等适老化装备陆续推向市场。
+该行认为，公司“多IP×多市场×多品类”的平台价值尚未被市场充分定价，维持“买入”评级。
 
-智能设备既在起居照料、健康监护等方面为老年人提供实用助力，也切实提升老年群体晚年生活质量。
+报告指出，泡泡玛特2025年实现收入371.2亿元，同比增长184.7%；毛利率为72.1%，同比提升5.3个百分点；经调整净利润达130.8亿元，同比增长284.5%。
 
-清晨，沈阳市和平区的街巷，不少老人悠闲漫步。
+盈利能力提升主要受益于海外高单价收入占比提升、柔性供应链策略降低成本以及费用率的显著改善。
 
-84岁的康志和老人出行时，一台智能轮椅始终紧随其后。
+业务方面，海外市场成为核心增长引擎，收入合计162.7亿元，同比增长291.9%，占集团总收入比例升至43.8%。
 
-老人缓步闲逛，体力不支时便让轮椅停下座在上面，智能轮椅成了老人日常出行的贴心帮手。
+其中，美洲区收入同比大增748.4%至68.1亿元，是增速最快的区域。
 
-“我岁数大了，身体还算康健，就是长途行走吃力。
+国内市场通过精细化运营实现收入208.5亿元，同比增长134.6%，会员规模突破7200万。
 
-有了智能轮椅，走累了就能坐下代步；步行时开启跟随模式，设备自动跟在身后，遇上障碍还能自动刹车，出门省心又安全。
+IP矩阵结构持续优化，THE MONSTERS (Labubu) 全年收入141.6亿元，占比38.1%；SkullPanda、Crybaby、星星人等二线IP均实现高速增长，多点突破。
 
 ## 相关推荐
 
-- 2026-06-29 23:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 23:50 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 00:01 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 00:01 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 23:46 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 00:02 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 23:50 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-30 00:00 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 23:43 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-30 00:01 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 00:03 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 23:59 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 23:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 23:42 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 23:41 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 23:55 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 00:00 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 00:06 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 00:07 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 00:10 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 00:04 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 23:43 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 23:55 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 00:11 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 23:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 00:09 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 23:55 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 23:42 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 23:58 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:05 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/1394134747.shtml)
-- 2026-06-30 00:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/78732946742.shtml)
-- 2026-06-29 23:45 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/377020311.shtml)
-- 2026-06-29 23:46 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/643030.shtml)
-- 2026-06-29 23:51 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/5988304453.shtml)
-- 2026-06-30 00:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/012311181.shtml)
-- 2026-06-29 23:56 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/972661502.shtml)
-- 2026-06-29 23:40 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/5541363141.shtml)
-- 2026-06-30 00:03 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/2365968607.shtml)
-- 2026-06-29 23:42 - [东方风云榜](http://www.share.minike.top/Article/details/420689.shtml)
-- 2026-06-29 23:37 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/07313.shtml)
-- 2026-06-30 00:02 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/779354.shtml)
-- 2026-06-29 23:40 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/577689117668.shtml)
-- 2026-06-30 00:04 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/04332.shtml)
-- 2026-06-29 23:57 - [爱很美味](http://www.blog.minike.top/Article/details/44778757.shtml)
+- 2026-06-30 00:08 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/944820.shtml)
+- 2026-06-29 23:53 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/180211120.shtml)
+- 2026-06-29 23:47 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/470859794241.shtml)
+- 2026-06-30 00:01 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/7788221.shtml)
+- 2026-06-30 00:12 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/019596.shtml)
+- 2026-06-30 00:07 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/42168.shtml)
+- 2026-06-30 00:02 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/07433.shtml)
+- 2026-06-29 23:51 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/652318.shtml)
+- 2026-06-29 23:50 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/800015908.shtml)
+- 2026-06-29 23:59 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/3250594619.shtml)
+- 2026-06-30 00:11 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/40047176226.shtml)
+- 2026-06-29 23:57 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/92887575052.shtml)
+- 2026-06-29 23:51 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/97383061460.shtml)
+- 2026-06-30 00:09 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/20858.shtml)
+- 2026-06-29 23:45 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/226970518127.shtml)

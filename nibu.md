@@ -1,60 +1,59 @@
-# 易方达登顶中国ETF一哥
+# 英特尔将为特斯拉和SpaceX的Terafab项目设计和制造芯片
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：胖狼说财 今天被一则新闻刷屏了，易方达基金旗下ETF以不到20亿规模的微弱优势，超过华夏基金，成为新晋ETF一哥。 胖狼看了下数据，ETF领域确实已经早早形成了双寡头之势，易方达和华夏全面领跑，把后面的公司甩得车尾灯都看不到了。 这是华夏基金自2004年发行境内首只ETF（上证50ETF）以来，首次在
+英特尔将参与马斯克的Terafab项目，为其提供芯片设计和制造方面的帮助。这是特斯拉和SpaceX的一项雄心勃勃的举措，旨在得克萨斯州建造一座新的芯片工厂，以支持每年1万亿瓦的算力。 英特尔在社交媒体平台X上发帖称：“我们大规模设计、制造和封装超高性能芯片的能力，将有助于加速实现Terafab每年产出1万亿瓦算力的目标，从而为AI和机器人技术的未来发展提供动力。” 据英特尔称，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+英特尔将参与马斯克的Terafab项目，为其提供芯片设计和制造方面的帮助。
 
-来源：胖狼说财 今天被一则新闻刷屏了，易方达基金旗下ETF以不到20亿规模的微弱优势，超过华夏基金，成为新晋ETF一哥。
+这是特斯拉和SpaceX的一项雄心勃勃的举措，旨在得克萨斯州建造一座新的芯片工厂，以支持每年1万亿瓦的算力。
 
-胖狼看了下数据，ETF领域确实已经早早形成了双寡头之势，易方达和华夏全面领跑，把后面的公司甩得车尾灯都看不到了。
+英特尔在社交媒体平台X上发帖称：“我们大规模设计、制造和封装超高性能芯片的能力，将有助于加速实现Terafab每年产出1万亿瓦算力的目标，从而为AI和机器人技术的未来发展提供动力。
 
-这是华夏基金自2004年发行境内首只ETF（上证50ETF）以来，首次在ETF规模榜首位置被实质性超越。
+” 据英特尔称，马斯克于上周末访问了该公司。
 
-但这个差距意味着，这只是一场毫厘之间的胜利，一哥之争已进入日度级胶着状态，未来随时可能再度互换。
+英特尔股价上涨2.2%，至51.94美元。
 
-易方达为什么能反超？
+马斯克上月宣布的Terafab工厂旨在生产芯片，用于特斯拉的汽车、其正在研发的人形机器人，以及SpaceX在太空建造AI数据中心的计划。
 
-胖狼认为，这并非易方达突然爆发，而是在2026年年初以来全市场ETF大幅缩水中，易方达展现出了更强的规模韧性。
+对于寻求迅速扩大AI基础设施规模的科技公司而言，某些类型芯片的供应已成为一大关键瓶颈。
 
-年初华夏基金ETF规模突破万亿，还有不少媒体报道，转眼间，几个月的时间，从万亿到6000亿，而易方达也从9200亿到了6000亿，被国家队多赎回的那些钱，也许就是差距缩小的核心原因。
+马斯克曾表示，Terafab项目正是为了应对既有芯片制造商的供应限制。
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 23:48 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 23:41 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 23:55 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 23:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 23:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 23:56 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 23:57 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 23:43 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 23:39 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 00:04 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 23:43 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 23:40 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 23:45 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 23:53 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 23:53 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 23:47 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 23:43 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 23:42 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 23:44 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 23:56 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 23:49 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 23:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 00:09 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 00:01 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 00:00 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 23:52 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:55 - [毒液2](https://www.blog.minike.top/Article/details/3953762.shtml)
-- 2026-06-29 23:47 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/145866782526.shtml)
-- 2026-06-30 00:05 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/21527393.shtml)
-- 2026-06-29 23:50 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/97317343431.shtml)
-- 2026-06-29 23:53 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/17257630.shtml)
-- 2026-06-30 00:01 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/365406440062.shtml)
-- 2026-06-29 23:41 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/80447977978.shtml)
-- 2026-06-29 23:53 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/5575861.shtml)
-- 2026-06-29 23:48 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/685768307.shtml)
-- 2026-06-29 23:51 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/36292.shtml)
-- 2026-06-29 23:52 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/8940383614.shtml)
-- 2026-06-29 23:47 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/81107303.shtml)
-- 2026-06-29 23:43 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/750272158.shtml)
-- 2026-06-29 23:47 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/46775365823.shtml)
-- 2026-06-29 23:42 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/555156.shtml)
+- 2026-06-30 00:00 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/623803.shtml)
+- 2026-06-30 00:04 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/240655.shtml)
+- 2026-06-29 23:47 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/5508362894.shtml)
+- 2026-06-29 23:57 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/990155051848.shtml)
+- 2026-06-29 23:54 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/43242650119.shtml)
+- 2026-06-29 23:50 - [一见倾心](http://www.share.minike.top/Article/details/29706516314.shtml)
+- 2026-06-29 23:49 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/0309754923.shtml)
+- 2026-06-30 00:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/99433479759.shtml)
+- 2026-06-29 23:56 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/87060414555.shtml)
+- 2026-06-29 23:52 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/390473204.shtml)
+- 2026-06-29 23:46 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/80912174293.shtml)
+- 2026-06-29 23:56 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/84344991.shtml)
+- 2026-06-29 23:42 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/8679341.shtml)
+- 2026-06-29 23:49 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/82440112.shtml)
+- 2026-06-30 00:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/77813.shtml)

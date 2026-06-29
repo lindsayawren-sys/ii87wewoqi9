@@ -1,60 +1,46 @@
-# 私募信贷行业未来几年将面临更高损失 清算时刻已写在“物理定律”里
+# GLP-1口服药扩大肥胖治疗市场 吸引不愿接受注射治疗的患者
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-随着私募信贷行业经历其第一个完整周期，未来几年该行业将面临更高损失。 “违约损失率只会更高，”Glendon Capital Management创始合伙人Holly Kim表示，“我只是相信物理定律。” 这位橡树资本前高管周三在纽约举行的彭博全球信贷论坛（Bloomberg Global Credit Forum）上表示，私募信贷的黄金时代 —— 这一时期恰逢利率上升、银行收
+诺和诺德的口服Wegovy正在吸引那些原本不愿接受注射治疗的新患者，而礼来正准备推出口服药参与竞争；早期需求表明该品类正在实现超越患者转换的自然增长。责任编辑：张俊 SF065
 
 ## 正文
 
-随着私募信贷行业经历其第一个完整周期，未来几年该行业将面临更高损失。
+诺和诺德的口服Wegovy正在吸引那些原本不愿接受注射治疗的新患者，而礼来正准备推出口服药参与竞争；早期需求表明该品类正在实现超越患者转换的自然增长。
 
-“违约损失率只会更高，”Glendon Capital Management创始合伙人Holly Kim表示，“我只是相信物理定律。
-
-” 这位橡树资本前高管周三在纽约举行的彭博全球信贷论坛（Bloomberg Global Credit Forum）上表示，私募信贷的黄金时代 —— 这一时期恰逢利率上升、银行收缩放贷 —— 已经结束，市场很快将面临清算。
-
-Glendon Capital联合创始人Holly Kim解释为什么在没有任何经济冲击或其他通胀相关经济因素的情况下，私募信贷行业仍可能出现大量“违约积压”。
-
-她在纽约举行的彭博全球信贷论坛上发言。
-
-私募信贷这一资产类别曾被誉为金融业的最新前沿，今年已遭遇一系列挫折。
-
-在人工智能热潮中，该行业对软件投资的敞口扩大引发对信贷质量的担忧，导致赎回请求涌现。
-
-与此同时，基金管理人对贷款的不透明估值也引来监管审查。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 23:57 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 23:43 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 23:44 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 23:45 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 23:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 23:39 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 23:57 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 23:55 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 23:43 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 23:48 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 23:54 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 23:50 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 23:39 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 23:40 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 00:03 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-30 00:10 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 23:56 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 23:55 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 00:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 23:45 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 23:43 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 23:43 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 00:02 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 00:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 00:10 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 23:47 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:42 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/134782.shtml)
-- 2026-06-29 23:49 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/691728.shtml)
-- 2026-06-30 00:04 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/646623736397.shtml)
-- 2026-06-29 23:46 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/494138400.shtml)
-- 2026-06-29 23:40 - [沉睡花园](https://www.share.minike.top/Article/details/185570127156.shtml)
-- 2026-06-29 23:52 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/41318942.shtml)
-- 2026-06-29 23:55 - [刘念回应](http://www.share.minike.top/Article/details/16840.shtml)
-- 2026-06-29 23:59 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/963385.shtml)
-- 2026-06-29 23:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/19716432.shtml)
-- 2026-06-29 23:36 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/83876585.shtml)
-- 2026-06-29 23:51 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/6119836765.shtml)
-- 2026-06-29 23:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/46717.shtml)
-- 2026-06-30 00:04 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/56980.shtml)
-- 2026-06-29 23:43 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/573340.shtml)
-- 2026-06-29 23:50 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/812257918.shtml)
+- 2026-06-29 23:57 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/6812947051.shtml)
+- 2026-06-30 00:09 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/162668651.shtml)
+- 2026-06-30 00:11 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/0182363540.shtml)
+- 2026-06-30 00:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/982588.shtml)
+- 2026-06-29 23:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/41523.shtml)
+- 2026-06-29 23:44 - [男子称在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/433200301354.shtml)
+- 2026-06-29 23:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/138361.shtml)
+- 2026-06-29 23:44 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/5811625.shtml)
+- 2026-06-30 00:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/1596282109.shtml)
+- 2026-06-30 00:00 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/4519961377.shtml)
+- 2026-06-29 23:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/286861.shtml)
+- 2026-06-30 00:04 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/380583.shtml)
+- 2026-06-29 23:48 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/5282589.shtml)
+- 2026-06-30 00:05 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/388466.shtml)
+- 2026-06-29 23:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/7943421.shtml)

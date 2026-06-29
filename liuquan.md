@@ -1,54 +1,61 @@
-# 教育部：推动高校录取通知书回归“一页纸” 纠治奢华录取通知书
+# 三家私募领中基协罚单，横琴均成被暂停备案12个月
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-2026年全国统一高考将于6月7日开考，教育部会同国家教育统一考试工作部际联席会议成员单位，全力为高考营造良好氛围。 严肃招生宣传纪律 指导各地各校严格落实高校招生宣传工作纪律要求，严禁虚假宣传、违规承诺，严禁以任何形式炒作“高考状元”“高分考生”“升学率”。推动高校录取通知书回归“一页纸”，坚决纠治奢华录取通知书、新生礼盒等不良风气。 治理违规招生行为要求各地认真履行属地监管
+登录新浪财经APP 搜索【信披】查看更多考评等级 界面新闻记者 | 龙力又有头部私募收到了中基协开出的“罚单”。根据中基协3月27日披露的纪律处分决定书，广东横琴均成私募基金管理有限公司（下称：横琴均成）因存在多项违规行为被暂停受理产品备案12个月，横琴均成的法定代表人司维被予以公开谴责，公司时任合规风控负责人张春阳被予以警告。中基协检查发现，横琴均成存在从事与私募基金无关的业
 
 ## 正文
 
-2026年全国统一高考将于6月7日开考，教育部会同国家教育统一考试工作部际联席会议成员单位，全力为高考营造良好氛围。
+登录新浪财经APP 搜索【信披】查看更多考评等级 界面新闻记者 | 龙力又有头部私募收到了中基协开出的“罚单”。
 
-严肃招生宣传纪律 指导各地各校严格落实高校招生宣传工作纪律要求，严禁虚假宣传、违规承诺，严禁以任何形式炒作“高考状元”“高分考生”“升学率”。
+根据中基协3月27日披露的纪律处分决定书，广东横琴均成私募基金管理有限公司（下称：横琴均成）因存在多项违规行为被暂停受理产品备案12个月，横琴均成的法定代表人司维被予以公开谴责，公司时任合规风控负责人张春阳被予以警告。
 
-推动高校录取通知书回归“一页纸”，坚决纠治奢华录取通知书、新生礼盒等不良风气。
+中基协检查发现，横琴均成存在从事与私募基金无关的业务和委托不具有基金销售业务资格的机构和个人募集资金等违规行为。
 
-治理违规招生行为要求各地认真履行属地监管责任，指导高校持续优化专业(组)设置，进一步加强和改进特殊类型考试招生工作。
+具体来看，2019年5月，横琴均成与深圳前海汇成咨询服务有限公司签订《项目资金介绍服务协议》，约定由横琴均成为田某的个人期货资金账户提供管理和投资咨询顾问服务。
 
-指导各地会同有关部门加大涉考涉招培训机构治理，坚决打击虚假宣传、高价收费、组织诈骗或作弊、扰乱考试招生秩序等违法违规行为，切实维护考生和家长合法权益。
+相关行为违反了《私募投资基金管理人内部控制指引》第八条关于私募基金管理人不得兼营与私募基金管理无关的业务的相关规定。
 
-监制/李浙 主编/王兴栋 总台央视记者/高晨源 编辑/谭瑶 来源：新闻联播微信公众号
+2021年4月，横琴均成与杭州瀚邦经济信息咨询有限公司（下称：杭州瀚邦）签订了《均成资产财务顾问服务协议》，约定由杭州瀚邦为横琴均成提供顾问服务，具体为向横琴均成推荐投资者，协助横琴均成与基金投资者沟通，并推进交易文件签署、交易交割等事项，杭州瀚邦从横琴均成后续收取的基金管理费或业绩报酬中收取分成。
+
+银行流水显示，横琴均成实际向杭州瀚邦支付服务费共计约8.99万元。
+
+横琴均成虽提供了部分投资者适当性材料，但基金推介、销售等前端募集工作有杭州瀚邦参与。
 
 ## 相关推荐
 
-- 2026-06-29 23:58 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 00:00 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 23:45 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 23:41 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 23:45 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 23:48 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 23:55 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 23:45 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 00:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 23:39 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 00:02 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 23:58 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 23:52 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 00:06 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 23:48 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 23:57 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 00:08 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 23:52 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 23:42 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 23:46 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 00:11 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 23:45 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 23:44 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 00:00 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 23:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 23:45 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 00:09 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/6012220.shtml)
-- 2026-06-30 00:03 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/394389.shtml)
-- 2026-06-30 00:02 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/113966909639.shtml)
-- 2026-06-29 23:50 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/0881504324.shtml)
-- 2026-06-29 23:55 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/86529685.shtml)
-- 2026-06-29 23:48 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/56168554482.shtml)
-- 2026-06-30 00:02 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/012323803.shtml)
-- 2026-06-29 23:55 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/826712758995.shtml)
-- 2026-06-29 23:46 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/1951279976.shtml)
-- 2026-06-29 23:42 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/842389293596.shtml)
-- 2026-06-29 23:55 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/7556828.shtml)
-- 2026-06-29 23:43 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/83279.shtml)
-- 2026-06-29 23:43 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/241894.shtml)
-- 2026-06-30 00:01 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/5803798.shtml)
-- 2026-06-29 23:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/1949825135.shtml)
+- 2026-06-29 23:51 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/65421607.shtml)
+- 2026-06-29 23:44 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/4801380465.shtml)
+- 2026-06-29 23:50 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/283564201.shtml)
+- 2026-06-29 23:56 - [新官上任三把火](http://www.share.minike.top/Article/details/09250081.shtml)
+- 2026-06-30 00:02 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/06384342419.shtml)
+- 2026-06-29 23:59 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/730711689424.shtml)
+- 2026-06-30 00:07 - [扬名立万](https://www.share.kurohicncr.top/Article/details/0497582.shtml)
+- 2026-06-29 23:50 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/99131190.shtml)
+- 2026-06-30 00:09 - [小娘惹](https://www.blog.minike.top/Article/details/426255689918.shtml)
+- 2026-06-30 00:10 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/47224086.shtml)
+- 2026-06-29 23:45 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/970045791704.shtml)
+- 2026-06-29 23:49 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/630602164.shtml)
+- 2026-06-30 00:01 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/8092008892.shtml)
+- 2026-06-30 00:01 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/064588562145.shtml)
+- 2026-06-29 23:54 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/278436434776.shtml)

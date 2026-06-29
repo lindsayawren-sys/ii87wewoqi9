@@ -1,60 +1,49 @@
-# 70亿富豪正式离婚，40亿元冻结股权如何分？
+# 法拉帝：接纳期内KKCG Maritime已接获合共2.8万股股份的有效接纳要约
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷达Finance 雷达财经出品 文|丁禹 编|孟帅 5月29日晚，神州数码披露了公司控股股东、实际控制人郭为离婚案的最新进展。 神州数码收到郭为通知，法院二审驳回了郭为前妻郭郑俐的上诉，维持原判，且该判决为终审判决。 雷达财经注意到，去年1月、今年2月，法院相继冻结郭为所持有的神州数码的全部股份，共
+法拉帝（09638）发布公告，截至3月31日下午5时30分（中欧时间）（下午11时30分（香港时间））：于3月31日，KKCG Maritime并无接获有效接纳要约；及于接纳期内，KKCG Maritime已接获合共2.8万股股份（占截至本公告日期已发行股份约 0.008283%及占最高数目约0.053778%）的有效接纳要约。 KKCG Maritime将于接纳期内刊发有关要
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+法拉帝（09638）发布公告，截至3月31日下午5时30分（中欧时间）（下午11时30分（香港时间））：于3月31日，KKCG Maritime并无接获有效接纳要约；及于接纳期内，KKCG Maritime已接获合共2.8万股股份（占截至本公告日期已发行股份约 0.008283%及占最高数目约0.053778%）的有效接纳要约。
 
-来源：雷达Finance 雷达财经出品 文|丁禹 编|孟帅 5月29日晚，神州数码披露了公司控股股东、实际控制人郭为离婚案的最新进展。
+KKCG Maritime将于接纳期内刊发有关要约接纳程度的进一步公告。
 
-神州数码收到郭为通知，法院二审驳回了郭为前妻郭郑俐的上诉，维持原判，且该判决为终审判决。
+此外，KKCG Maritime将：于截止日期后首个交易日上午7时29分（中欧时间）（下午1时29分（香港时间））前透过要约初步结果通告公布要约的暂定结果及（倘适用）暂定分配率；及于付款日期前的交易日上午7时29分（中欧时间）（下午1时29分（香港时间））前透过要约最终结果通告公布要约最终结果及（倘适用）最终分配率。
 
-雷达财经注意到，去年1月、今年2月，法院相继冻结郭为所持有的神州数码的全部股份，共计1.55亿股股份，占公司总股本的21.36%。
-
-按公司最新股价计算，这部分股份价值约40亿元。
-
-后续，法院就二人离婚财产分割的进一步判决，或将影响神州数码的控制权。
-
-值得一提的是，在今年3月揭晓的《2026胡润全球富豪榜》中，郭为以70亿元的财富登榜。
-
-截至6月3日收盘，神州数码股价为25.58元/股，较去年股价峰值（前复权）缩水约四成，总市值约260亿元。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 23:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 23:43 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 23:36 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 23:50 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 23:51 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 23:50 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 23:41 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 23:45 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 23:53 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 23:54 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 23:58 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 23:37 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 23:39 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 23:54 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 23:50 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 00:11 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 23:46 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 00:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 23:58 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 00:11 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 00:04 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 23:44 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 23:42 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 23:59 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:38 - [女心理师](http://www.blog.minike.top/Article/details/00686.shtml)
-- 2026-06-29 23:55 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/43922583.shtml)
-- 2026-06-30 00:02 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/061894404.shtml)
-- 2026-06-29 23:44 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/53457029.shtml)
-- 2026-06-30 00:05 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/21175.shtml)
-- 2026-06-29 23:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/465377716.shtml)
-- 2026-06-29 23:51 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/3920153.shtml)
-- 2026-06-29 23:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/84700714.shtml)
-- 2026-06-30 00:03 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/6908311.shtml)
-- 2026-06-29 23:43 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/751874.shtml)
-- 2026-06-29 23:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/392407.shtml)
-- 2026-06-29 23:36 - [请回答王牌2019](https://www.share.minike.top/Article/details/0304988956.shtml)
-- 2026-06-29 23:58 - [毒液2](https://www.blog.minike.top/Article/details/64742.shtml)
-- 2026-06-29 23:48 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/834966.shtml)
-- 2026-06-29 23:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/74019771941.shtml)
+- 2026-06-29 23:50 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/93169284533.shtml)
+- 2026-06-29 23:53 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/1987534679.shtml)
+- 2026-06-29 23:43 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/01782163104.shtml)
+- 2026-06-29 23:56 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/4681947501.shtml)
+- 2026-06-29 23:51 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/5608218.shtml)
+- 2026-06-30 00:04 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/247660263506.shtml)
+- 2026-06-29 23:50 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/3879882.shtml)
+- 2026-06-30 00:07 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/368373135113.shtml)
+- 2026-06-30 00:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/929678133.shtml)
+- 2026-06-30 00:03 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/475547311954.shtml)
+- 2026-06-29 23:48 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/139536955.shtml)
+- 2026-06-30 00:04 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/1638631.shtml)
+- 2026-06-29 23:50 - [巴西队主帅称日本队是世界最佳之一](http://www.share.minike.top/Article/details/3625955809.shtml)
+- 2026-06-29 23:43 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/02048.shtml)
+- 2026-06-30 00:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/444698.shtml)

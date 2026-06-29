@@ -1,51 +1,56 @@
-# 邮储银行：金融市场总监杨西琳的任职资格已获核准
+# 房企年报：亏损的还在裸泳，盈利的换了泳姿
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-6月4日金融一线消息，邮储银行发布公告，国家金融监督管理总局已核准金融市场总监杨西琳的任职资格。 简历显示，杨西琳，女，1971年出生，获中央财政金融学院（现中央财经大学）经济学学士学位，高级经济师。历任深圳市邮政储汇局副局长，邮储银行深圳分行行长助理、副行长等职务。现任邮储银行金融同业部总经理。责任编辑：秦艺
+地产行业的上一个时代，规模就是通行证。排行榜上前进一位，那是真金白银砸出来的。金融机构看排名给额度，额度决定来年的弹药，弹药又决定下一年的座次——一个完美的循环。没人觉得这个游戏会停，直到它真的停了。2025年的年报季，像是潮水退去后的一次点名。有人迟到了，有人缺席了，有人穿着救生衣浮在水面上，还有人不知道什么时候已经爬上了岸。万科交出的成绩单，归母净利润-885.6亿元，比上
 
 ## 正文
 
-6月4日金融一线消息，邮储银行发布公告，国家金融监督管理总局已核准金融市场总监杨西琳的任职资格。
+地产行业的上一个时代，规模就是通行证。
 
-简历显示，杨西琳，女，1971年出生，获中央财政金融学院（现中央财经大学）经济学学士学位，高级经济师。
+排行榜上前进一位，那是真金白银砸出来的。
 
-历任深圳市邮政储汇局副局长，邮储银行深圳分行行长助理、副行长等职务。
+金融机构看排名给额度，额度决定来年的弹药，弹药又决定下一年的座次——一个完美的循环。
 
-现任邮储银行金融同业部总经理。
+没人觉得这个游戏会停，直到它真的停了。
 
-责任编辑：秦艺
+2025年的年报季，像是潮水退去后的一次点名。
+
+有人迟到了，有人缺席了，有人穿着救生衣浮在水面上，还有人不知道什么时候已经爬上了岸。
+
+万科交出的成绩单，归母净利润-885.6亿元，比上一年又多亏了一大截。
+
+保利发展守住了盈利的底线，但归母净利润缩水到只剩10.26亿元。
 
 ## 相关推荐
 
-- 2026-06-30 00:00 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 23:55 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 23:54 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 23:39 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 23:59 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 23:40 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 00:03 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 23:38 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 00:00 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 23:36 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 23:57 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 23:57 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 23:56 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 23:48 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 00:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 00:09 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 00:04 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 23:48 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 00:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 23:53 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 00:04 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:42 - [刘念回应](http://www.share.minike.top/Article/details/054939350281.shtml)
-- 2026-06-29 23:38 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/14923.shtml)
-- 2026-06-29 23:43 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/178351575751.shtml)
-- 2026-06-29 23:42 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/74087.shtml)
-- 2026-06-29 23:57 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/231377829.shtml)
-- 2026-06-29 23:36 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/24547.shtml)
-- 2026-06-29 23:58 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/47807267571.shtml)
-- 2026-06-29 23:59 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/057858302.shtml)
-- 2026-06-29 23:46 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/02841472595.shtml)
-- 2026-06-29 23:36 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/06166217809.shtml)
-- 2026-06-29 23:39 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/8223428171.shtml)
-- 2026-06-30 00:02 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/15198.shtml)
-- 2026-06-29 23:52 - [千与千寻](http://www.blog.minike.top/Article/details/03887447947.shtml)
-- 2026-06-29 23:37 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/3268196291.shtml)
-- 2026-06-29 23:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/77149.shtml)
+- 2026-06-29 23:52 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/9340485494.shtml)
+- 2026-06-30 00:06 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/543402.shtml)
+- 2026-06-29 23:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/6737421094.shtml)
+- 2026-06-29 23:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/6742878.shtml)
+- 2026-06-29 23:55 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/11283683.shtml)
+- 2026-06-29 23:50 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/8287391595.shtml)
+- 2026-06-29 23:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/29129998.shtml)
+- 2026-06-30 00:03 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/93901532054.shtml)
+- 2026-06-29 23:42 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/902063152518.shtml)
+- 2026-06-30 00:05 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/84995765.shtml)
+- 2026-06-30 00:05 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/7355701448.shtml)
+- 2026-06-29 23:49 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/55195.shtml)
+- 2026-06-30 00:04 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/5772932.shtml)
+- 2026-06-30 00:11 - [速度与激情9](https://www.blog.minike.top/Article/details/294090730803.shtml)
+- 2026-06-30 00:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/59734.shtml)

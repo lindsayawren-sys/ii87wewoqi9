@@ -1,50 +1,56 @@
-# 特朗普：乐见普京与泽连斯基会面
+# 叙乡情促产业振兴 汕头市邀海内外乡贤共话发展
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-中新网6月5日电 据俄罗斯卫星通讯社报道，当地时间4日，美国总统特朗普表示，他乐见俄罗斯总统普京与乌克兰总统泽连斯基会面，并认为这会推动局势朝好的方向发展。 特朗普在白宫对记者说：“我认为如果他们能会面，那将是一件极好的事情。” 特朗普指出，关于这一会面可能性的讨论让他感到欣慰，并补充称，他期待俄乌双方能够相互妥协，以解决乌克兰危机。
+中新社汕头4月7日电 (记者 李怡青)2026年汕头市海内外潮商企业家座谈会暨重点产业招商引资活动7日在广东汕头举行，海内外乡贤齐聚一堂，共叙乡情，共谋发展。 香港潮属社团总会主席胡定旭称，汕头目前致力于发展“三新两特一大”(“三新”即新能源、新材料、新一代电子信息产业，“两特”即纺织服装、玩具创意特色传统产业，“一大”即大健康产业)，与香港及海外潮商的资源优势高度契合。汕头医
 
 ## 正文
 
-中新网6月5日电 据俄罗斯卫星通讯社报道，当地时间4日，美国总统特朗普表示，他乐见俄罗斯总统普京与乌克兰总统泽连斯基会面，并认为这会推动局势朝好的方向发展。
+中新社汕头4月7日电 (记者 李怡青)2026年汕头市海内外潮商企业家座谈会暨重点产业招商引资活动7日在广东汕头举行，海内外乡贤齐聚一堂，共叙乡情，共谋发展。
 
-特朗普在白宫对记者说：“我认为如果他们能会面，那将是一件极好的事情。
+香港潮属社团总会主席胡定旭称，汕头目前致力于发展“三新两特一大”(“三新”即新能源、新材料、新一代电子信息产业，“两特”即纺织服装、玩具创意特色传统产业，“一大”即大健康产业)，与香港及海外潮商的资源优势高度契合。
 
-” 特朗普指出，关于这一会面可能性的讨论让他感到欣慰，并补充称，他期待俄乌双方能够相互妥协，以解决乌克兰危机。
+汕头医疗资源底蕴深厚，香港则具有国际临床试验学院(筹备)和生物医药融资中心优势。
+
+他希望通过“研发在港、转化在汕”模式，吸引专业人才回乡设立实验室或生产基地。
+
+上海潮汕联谊会荣誉会长蔡彤说，汕头正规划建设绿色新材料产业园区，重点发展高端储能化学品、电子化学品、高端精细化学品等方向。
+
+其将通过该联谊会桥梁，推动“上海研发、汕头制造”的协同模式。
+
+现场，汕头相关负责人进行该市重点园区招商推介，汕头高新区、汕头综合保税区、汕头华侨经济文化合作试验区(下称“汕头华侨试验区”)代表分别介绍汕头科学城与六合产业园、临港经济区、跨境数字经济产业园的产业优势与合作机遇。
+
+其中，汕头华侨试验区依托中国最大的国际海缆登陆站、海上风电绿能等核心优势，叠加开展“来数加工”业务试点，重点打造900亩跨境数字经济产业园，为海内外潮商布局总部经济、算力建设等领域提供重要载体与发展支撑。
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 23:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 23:43 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 23:50 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 23:51 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 23:50 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 23:41 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 23:44 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 00:04 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 23:43 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 00:04 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 23:36 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 00:03 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 23:49 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 00:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 23:48 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 23:51 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 00:09 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 00:06 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 00:09 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 00:11 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 00:10 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 23:42 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 23:57 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/14325821.shtml)
-- 2026-06-29 23:59 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/9253698.shtml)
-- 2026-06-29 23:37 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/99641096680.shtml)
-- 2026-06-30 00:04 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/309813.shtml)
-- 2026-06-29 23:38 - [存储三巨头被告了](https://www.share.minike.top/Article/details/01363988.shtml)
-- 2026-06-30 00:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/8945038.shtml)
-- 2026-06-29 23:43 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/28073850.shtml)
-- 2026-06-29 23:42 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/3262438793.shtml)
-- 2026-06-29 23:39 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/62549.shtml)
-- 2026-06-29 23:53 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/6992192779.shtml)
-- 2026-06-30 00:03 - [肝不好身体这几处会“说话”](http://www.share.minike.top/Article/details/59356374.shtml)
-- 2026-06-29 23:47 - [毒液2](http://www.blog.minike.top/Article/details/057490477.shtml)
-- 2026-06-29 23:54 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/22277900418.shtml)
-- 2026-06-29 23:44 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/1345744.shtml)
-- 2026-06-29 23:42 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/72866405.shtml)
+- 2026-06-30 00:05 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/372734954.shtml)
+- 2026-06-29 23:44 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/878057792.shtml)
+- 2026-06-30 00:06 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/71484.shtml)
+- 2026-06-29 23:55 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/9600975161.shtml)
+- 2026-06-29 23:55 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/78962691.shtml)
+- 2026-06-29 23:47 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/07890.shtml)
+- 2026-06-29 23:54 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/72496749009.shtml)
+- 2026-06-30 00:08 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/11674936.shtml)
+- 2026-06-30 00:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/308235013.shtml)
+- 2026-06-29 23:51 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/64323455.shtml)
+- 2026-06-30 00:07 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/816270.shtml)
+- 2026-06-30 00:11 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/7711239.shtml)
+- 2026-06-29 23:43 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/0086949.shtml)
+- 2026-06-30 00:03 - [刘宇宁 好听](https://www.share.minike.top/Article/details/181559.shtml)
+- 2026-06-30 00:04 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/0872001.shtml)

@@ -1,46 +1,58 @@
-# 外交部谈“五眼联盟”指责中方“间谍威胁”：很讽刺
+# 海康威视辟谣“多人被调查”传闻，公司境外业务占比超三成
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-新华社北京6月4日电(记者董雪、孙楠)就有报道称“五眼联盟”指责中方招募所谓“情报人员”，外交部发言人毛宁6月4日在例行记者会上答问时表示，作为全球最大的情报合作联盟，“五眼联盟”长期以来在世界各地开展大规模系统性的间谍活动，这样一个组织却指责所谓中国“间谍威胁”，这本身就很讽刺。(完)
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：南方都市报 4月7日，一则“海康威视（002415）总部300多人被带走调查”的传言迅速流传，受此消息影响，这家安防巨头盘中股价一度跌超1%。据媒体报道，有媒体记者以投资者身份致电海康威视，工作人员明确表示相关传言系谣言。午后海康威视跌幅有所收窄，收报30.20元，跌0.23%。南都湾财社记者也就此事
 
 ## 正文
 
-新华社北京6月4日电(记者董雪、孙楠)就有报道称“五眼联盟”指责中方招募所谓“情报人员”，外交部发言人毛宁6月4日在例行记者会上答问时表示，作为全球最大的情报合作联盟，“五眼联盟”长期以来在世界各地开展大规模系统性的间谍活动，这样一个组织却指责所谓中国“间谍威胁”，这本身就很讽刺。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-(完)
+来源：南方都市报 4月7日，一则“海康威视（002415）总部300多人被带走调查”的传言迅速流传，受此消息影响，这家安防巨头盘中股价一度跌超1%。
+
+据媒体报道，有媒体记者以投资者身份致电海康威视，工作人员明确表示相关传言系谣言。
+
+午后海康威视跌幅有所收窄，收报30.20元，跌0.23%。
+
+南都湾财社记者也就此事致电海康威视，相关负责人向记者确认相关传言系谣言，并表示相关工作人员均有正常上班。
+
+海康威视成立于2001年，2010年5月挂牌上市，被认为是全球最大的视频监控设备制造商。
+
+而在近日，一则网传“小作文”称，因牵涉近期地缘事件，“海康威视总部300多人被带走调查”。
+
+南都湾财社记者就相关传闻向海康威视求证，相关工作人员表示传闻不实，并表示经核实，传闻所涉高管、技术人员今日均有正常上班。
 
 ## 相关推荐
 
-- 2026-06-30 00:06 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 23:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 00:05 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 00:00 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 00:02 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 00:01 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 00:03 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 23:55 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 23:51 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 23:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 23:49 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 23:50 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 00:09 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 00:11 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 23:52 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 23:57 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 23:56 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 23:49 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 00:07 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 23:44 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 23:55 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 23:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 00:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 23:59 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:01 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/857353248374.shtml)
-- 2026-06-29 23:52 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/361625689.shtml)
-- 2026-06-29 23:38 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/45744730.shtml)
-- 2026-06-29 23:45 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/373118953592.shtml)
-- 2026-06-29 23:58 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/6248434.shtml)
-- 2026-06-29 23:46 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/60881.shtml)
-- 2026-06-29 23:47 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/6480935749.shtml)
-- 2026-06-30 00:00 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/12875.shtml)
-- 2026-06-29 23:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/55827044278.shtml)
-- 2026-06-29 23:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/78408729324.shtml)
-- 2026-06-29 23:37 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/09837465.shtml)
-- 2026-06-30 00:01 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/81357955533.shtml)
-- 2026-06-29 23:50 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/20790935.shtml)
-- 2026-06-30 00:04 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/30883.shtml)
-- 2026-06-29 23:46 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/328991646.shtml)
+- 2026-06-29 23:47 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/5149714.shtml)
+- 2026-06-30 00:07 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/57801.shtml)
+- 2026-06-29 23:50 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/59876018.shtml)
+- 2026-06-29 23:58 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/1904525295.shtml)
+- 2026-06-29 23:45 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/0193120470.shtml)
+- 2026-06-30 00:06 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/38193606.shtml)
+- 2026-06-30 00:07 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/54313274535.shtml)
+- 2026-06-30 00:07 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/66586396928.shtml)
+- 2026-06-30 00:00 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/43590256.shtml)
+- 2026-06-29 23:58 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/3277872279.shtml)
+- 2026-06-29 23:58 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/011912921.shtml)
+- 2026-06-30 00:11 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/4973027.shtml)
+- 2026-06-29 23:58 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/044201557.shtml)
+- 2026-06-29 23:43 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/8488757.shtml)
+- 2026-06-29 23:54 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/5020344757.shtml)

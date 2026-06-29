@@ -1,51 +1,56 @@
-# Benchmark资本募资12.5亿美元新基金，投向成熟期初创企业
+# 银行科技战略升维：从“支撑工具”到“生死存亡之战”
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-Benchmark资本（Benchmark）新完成两支基金募资，其中一支将投资中后期初创项目，打破该机构常年只投早期创业公司的传统。知情募资人士透露：12.5 亿美元基金专注布局成熟期企业，另一支 7.5 亿美元基金继续深耕早期项目。 近几个月多家同行机构陆续落地史上规模最大的募资，Benchmark资本也顺势跟进。Benchmark过往一贯募资体量在 4 亿~5 亿美元、每隔
+从15家上市国有行及股份行2025年年报来看，一个最直观的变化是金融科技的战略“语态”发生了根本性跃迁。过去，科技常被描述为“支撑业务发展”“提升运营效率”的赋能者；而今，它已站上C位，被定位为驱动银行未来竞争格局的核心引擎。 兴业银行在财报中用了一个极具冲击力的表述：“将数智化转型作为生死存亡之战”。这或许在一定程度上反映出，在当前息差收窄、传统增长模式见顶的背景下，科技驱动
 
 ## 正文
 
-Benchmark资本（Benchmark）新完成两支基金募资，其中一支将投资中后期初创项目，打破该机构常年只投早期创业公司的传统。
+从15家上市国有行及股份行2025年年报来看，一个最直观的变化是金融科技的战略“语态”发生了根本性跃迁。
 
-知情募资人士透露：12.5 亿美元基金专注布局成熟期企业，另一支 7.5 亿美元基金继续深耕早期项目。
+过去，科技常被描述为“支撑业务发展”“提升运营效率”的赋能者；而今，它已站上C位，被定位为驱动银行未来竞争格局的核心引擎。
 
-近几个月多家同行机构陆续落地史上规模最大的募资，Benchmark资本也顺势跟进。
+兴业银行在财报中用了一个极具冲击力的表述：“将数智化转型作为生死存亡之战”。
 
-Benchmark过往一贯募资体量在 4 亿~5 亿美元、每隔数年新设一期基金；此前已有多位合伙人提出质疑：固守小额基金 + 纯早期投资的旧模式，能否持续跑出顶尖投资回报。
+这或许在一定程度上反映出，在当前息差收窄、传统增长模式见顶的背景下，科技驱动的数智化正被赋予拯救利润、重塑模式的战略使命。
 
-责任编辑：郭明煜
+除兴业银行之外，多家银行也将科技相关表述持续升维。
+
+如招商银行行长王良在致辞中提到，践行“AI First”理念，招商银行在战略重点明确深入实施“AI+”行动，打造智能银行。
+
+平安银行行长冀光恒表示，把握科技革命时代机遇，深化科技战略，强化数字底座，深化数字化转型和科技赋能，将科技打造成为驱动银行发展的核心竞争力。
+
+中信银行在财报中提及，将全力打造“领先的数字化银行”。
 
 ## 相关推荐
 
-- 2026-06-29 23:37 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 23:50 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 23:36 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 23:56 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 23:53 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 00:03 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 23:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 23:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 23:36 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 23:37 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 23:52 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 00:05 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 23:57 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 00:00 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 23:53 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 00:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 00:02 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 23:46 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 00:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 00:11 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 23:48 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:51 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/403227925188.shtml)
-- 2026-06-29 23:44 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/73022.shtml)
-- 2026-06-29 23:46 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/295273636106.shtml)
-- 2026-06-29 23:40 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/871911.shtml)
-- 2026-06-30 00:04 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/54021.shtml)
-- 2026-06-29 23:51 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/213483324.shtml)
-- 2026-06-30 00:04 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/442018906.shtml)
-- 2026-06-29 23:47 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/12089166.shtml)
-- 2026-06-29 23:39 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/999525130.shtml)
-- 2026-06-30 00:04 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/2645843.shtml)
-- 2026-06-29 23:52 - [一生一世](http://www.blog.minike.top/Article/details/37011523.shtml)
-- 2026-06-29 23:44 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/351982040437.shtml)
-- 2026-06-29 23:37 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/76937.shtml)
-- 2026-06-29 23:44 - [爱很美味](https://www.blog.minike.top/Article/details/48203876.shtml)
-- 2026-06-29 23:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/15411991.shtml)
+- 2026-06-30 00:01 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/9653915631.shtml)
+- 2026-06-29 23:50 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/1126250203.shtml)
+- 2026-06-29 23:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/2617899554.shtml)
+- 2026-06-29 23:56 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/946367111348.shtml)
+- 2026-06-29 23:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/90578958794.shtml)
+- 2026-06-30 00:02 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/5589151574.shtml)
+- 2026-06-30 00:01 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/732921.shtml)
+- 2026-06-30 00:08 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/3635688.shtml)
+- 2026-06-29 23:56 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/05165.shtml)
+- 2026-06-29 23:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/566374114.shtml)
+- 2026-06-29 23:42 - [金刚川](http://www.share.kurohicncr.top/Article/details/7036235.shtml)
+- 2026-06-29 23:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/44032815.shtml)
+- 2026-06-29 23:56 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/57639293.shtml)
+- 2026-06-29 23:57 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/6004579628.shtml)
+- 2026-06-30 00:04 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/19743474215.shtml)

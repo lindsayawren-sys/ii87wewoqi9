@@ -1,58 +1,57 @@
-# 摩根士丹利上调目标价 休曼纳股价逆势涨超6%
+# 多只创新药概念股涨停，津药药业回应七连板：“炒作”系误读
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-健康保险公司休曼纳股价周四上涨超过6%。尽管摩根士丹利维持对该股的“低配”评级，但该行将目标价从每股217美元上调至249美元。 新的目标价意味着较周三收盘价仍有约24%的下行空间，但相较于此前基于217美元目标价所预示的近34%的预期跌幅，这一调整明显收窄了悲观预期。市场将此解读为利好消息，推动股价大幅反弹。 摩根士丹利分析师在报告中表示，上调目标价主要反映了对该公司医疗保险
+4月8日开盘，津药药业股价再度触及涨停后回落，截至收盘为7.36元/股。3月27日-4月7日，津药药业股价历经7连涨，区间累计涨幅94.67%。目前津药药业无创新药在研项目，却在近日被列为创新药概念在炒作，且最近一期业绩大幅下滑，津药药业已发布5次交易风险提示非理性炒作。 被贴创新药标签，股价猛涨 3月27日开始，津药药业股价七连板，股价从3月27日的3.94元/股疯涨至4月7
 
 ## 正文
 
-健康保险公司休曼纳股价周四上涨超过6%。
+4月8日开盘，津药药业股价再度触及涨停后回落，截至收盘为7.36元/股。
 
-尽管摩根士丹利维持对该股的“低配”评级，但该行将目标价从每股217美元上调至249美元。
+3月27日-4月7日，津药药业股价历经7连涨，区间累计涨幅94.67%。
 
-新的目标价意味着较周三收盘价仍有约24%的下行空间，但相较于此前基于217美元目标价所预示的近34%的预期跌幅，这一调整明显收窄了悲观预期。
+目前津药药业无创新药在研项目，却在近日被列为创新药概念在炒作，且最近一期业绩大幅下滑，津药药业已发布5次交易风险提示非理性炒作。
 
-市场将此解读为利好消息，推动股价大幅反弹。
+被贴创新药标签，股价猛涨 3月27日开始，津药药业股价七连板，股价从3月27日的3.94元/股疯涨至4月7日的7.76元/股，在连续发布5个交易风险提示后，4月8日开盘依然触及涨停，股价为8.44元/股，但很快开始回落。
 
-摩根士丹利分析师在报告中表示，上调目标价主要反映了对该公司医疗保险优势业务板块估值压力的边际缓解，以及对近期管理层成本控制措施的审慎认可。
+津药药业主营业务为甾体激素类、氨基酸类原料药及制剂的研发、生产和销售。
 
-然而，分析师同时指出，公司仍面临监管政策变化、医疗赔付率上升以及行业竞争加剧等结构性挑战，因此维持“低配”评级不变。
+在4月4日和4月7日发布的风险提示公告中，津药药业澄清，关注到市场将公司列为创新药概念并进行炒作，但公司目前研发以仿制药为主，无在研创新药项目，相关炒作存在明显误读。
 
-休曼纳此前公布的第一季度财报显示，其医疗保险优势计划会员人数出现小幅下降，且医疗费用支出高于预期，引发市场对该公司盈利能力的担忧。
+此外，津药药业也关注到了市场对激素原料药产品价格的讨论，称目前公司甾体激素原料药价格总体保持平稳，对公司业绩无明显影响。
 
-今年以来，该股累计跌幅已超过30%，显著跑输标普500指数。
+截至4月7日，津药药业最新市盈率已经达到513.94倍，而其所属中上协行业分类“C27医药制造业”对应的行业滚动市盈率为29.26倍，津药药业相关指标已严重偏离行业合理估值水平，呈现出泡沫化。
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 23:44 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 23:58 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 23:52 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 23:50 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 23:51 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 23:44 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 23:41 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 00:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 23:48 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 23:43 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 00:01 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 23:50 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 00:07 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 23:52 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 23:43 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 00:03 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 00:00 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 23:42 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 23:52 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 23:53 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 23:55 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 23:50 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/398714.shtml)
-- 2026-06-30 00:00 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/440848879163.shtml)
-- 2026-06-29 23:56 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/714247.shtml)
-- 2026-06-29 23:51 - [锐评T1零封KC](http://www.share.minike.top/Article/details/050306389.shtml)
-- 2026-06-29 23:46 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/34039468.shtml)
-- 2026-06-29 23:41 - [男子称在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/2002918.shtml)
-- 2026-06-29 23:51 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/92699619.shtml)
-- 2026-06-29 23:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/00185974.shtml)
-- 2026-06-29 23:58 - [美股](https://www.blog.kurohicncr.top/Article/details/40132065923.shtml)
-- 2026-06-29 23:36 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/042481089794.shtml)
-- 2026-06-29 23:50 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/678830805.shtml)
-- 2026-06-29 23:51 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/30083567.shtml)
-- 2026-06-29 23:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/980467278039.shtml)
-- 2026-06-29 23:59 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/4336339808.shtml)
-- 2026-06-29 23:53 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/8544200.shtml)
+- 2026-06-29 23:52 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/416117.shtml)
+- 2026-06-30 00:05 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/139394305.shtml)
+- 2026-06-29 23:53 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/178430.shtml)
+- 2026-06-29 23:55 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/010808017776.shtml)
+- 2026-06-29 23:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/0903697.shtml)
+- 2026-06-29 23:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/497875934903.shtml)
+- 2026-06-30 00:04 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/165021.shtml)
+- 2026-06-29 23:46 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/895900054.shtml)
+- 2026-06-29 23:54 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/84303.shtml)
+- 2026-06-29 23:54 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/20012765580.shtml)
+- 2026-06-29 23:49 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/581350363.shtml)
+- 2026-06-30 00:06 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/67531439752.shtml)
+- 2026-06-30 00:07 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/954674194.shtml)
+- 2026-06-29 23:50 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/060265091430.shtml)
+- 2026-06-30 00:07 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/39578875.shtml)

@@ -1,60 +1,59 @@
-# 重庆银行股权整合落定，国资股东实现“六转一”
+# 全红婵涉嫌遭受网暴 所在训练中心：已报警
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-中国基金报记者 马嘉昕 历时近半年的国资股权整合正式落定。6月2日晚间，重庆银行发布公告称，重庆联交所、西南证券、重庆轻纺资产、重庆机电集团、重庆农投资产及重庆家具已将其持有的全部该行股票转让给重庆发展资产经营有限公司（以下简称重庆发展资产），相关转让事项已完成过户登记。 国资股东实现“六转一” 公告显示，今年1月，重庆市国资委出具批复文件，同意上述6家公司将其持有的该行股票转
+中新网4月8日电 广东省二沙体育训练中心微信公众号4月8日发文称，近日，我中心跳水运动员全红婵涉嫌遭受网暴一事，受到社会的高度关注，我中心已向公安机关报警。全红婵作为一名为国家赢得荣誉的年轻运动员，在成长过程中承受了不应有的舆论压力和精神伤害，对此，我中心表示严重关切，并坚决反对。文章指出，运动员是国家的宝贵财富，是体育精神的践行者与传播者，以任何名义对运动员及其家属进行恶意中
 
 ## 正文
 
-中国基金报记者 马嘉昕 历时近半年的国资股权整合正式落定。
+中新网4月8日电 广东省二沙体育训练中心微信公众号4月8日发文称，近日，我中心跳水运动员全红婵涉嫌遭受网暴一事，受到社会的高度关注，我中心已向公安机关报警。
 
-6月2日晚间，重庆银行发布公告称，重庆联交所、西南证券、重庆轻纺资产、重庆机电集团、重庆农投资产及重庆家具已将其持有的全部该行股票转让给重庆发展资产经营有限公司（以下简称重庆发展资产），相关转让事项已完成过户登记。
+全红婵作为一名为国家赢得荣誉的年轻运动员，在成长过程中承受了不应有的舆论压力和精神伤害，对此，我中心表示严重关切，并坚决反对。
 
-国资股东实现“六转一” 公告显示，今年1月，重庆市国资委出具批复文件，同意上述6家公司将其持有的该行股票转让给重庆发展资产。
+文章指出，运动员是国家的宝贵财富，是体育精神的践行者与传播者，以任何名义对运动员及其家属进行恶意中伤、侮辱谩骂、传播虚假信息的行为，均已超过法律与道德底线。
 
-上述事项完成后，该行股东重庆渝富资本运营集团有限公司（以下简称渝富资本）及其一致行动人的构成将发生变动，上述6家公司不再是渝富资本的一致行动人。
+这种行为不仅严重干扰了运动员的正常训练和生活，更破坏了公平、健康、向上的体育生态。
 
-重庆银行还表示，该行于近日收到渝富资本通知，上述股份转让事项已完成过户登记。
+文章明确，我中心坚决反对任何形式的网络暴力和人格侵害，坚决反对畸形的饭圈文化，坚决支持全红婵通过法律手段依法维护自身权益。
 
-这也标志着，重庆银行国资股东从“分散持有”向“专业集中”迈出关键一步。
+我中心将联合相关部门，通过法律途径坚决追究网暴者责任。
 
-信息显示，重庆发展资产是地方国资委新设的专业资产运营平台，该公司成立于2023年11月，注册资本为50亿元。
+文章提到，我们呼吁广大体育爱好者，不要参与传播不实信息，不对运动员进行身体、家庭、个人生活的恶意评论，不实施言论攻击行为。
 
-官网资料显示，重庆发展资产的主要职责是资产盘活和资金管理，盘活部分包括收购、营运和处置全市区县政府及国企资产、股权、特许经营权等，管理方面包括承接市委、市政府安排的资产收购任务，以及管理市级国资应急周转资金池。
+尊重与理解，是赛场的一声加油，是低谷时的一份包容，请将关注回归体育运动本身，回归体育的拼搏精神。
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 23:52 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 23:48 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 23:41 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 23:49 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 23:42 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 00:04 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 00:02 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 23:38 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 00:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 23:36 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 23:42 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 23:55 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 23:56 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 23:54 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 23:45 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 23:51 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 23:59 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 23:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 23:52 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 00:02 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 23:50 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 23:59 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 00:02 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 23:52 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 00:08 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 00:09 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:51 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/1104295.shtml)
-- 2026-06-29 23:38 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/23121.shtml)
-- 2026-06-29 23:58 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/344528618690.shtml)
-- 2026-06-29 23:44 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/27850185.shtml)
-- 2026-06-30 00:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/4879178.shtml)
-- 2026-06-29 23:53 - [起风了](http://www.share.minike.top/Article/details/03348935.shtml)
-- 2026-06-30 00:00 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/18260.shtml)
-- 2026-06-29 23:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/61653.shtml)
-- 2026-06-29 23:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/2902708.shtml)
-- 2026-06-29 23:44 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/911681.shtml)
-- 2026-06-29 23:48 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/0536985540.shtml)
-- 2026-06-29 23:58 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/28706693163.shtml)
-- 2026-06-30 00:03 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/0226010483.shtml)
-- 2026-06-29 23:44 - [斛珠夫人](http://www.blog.minike.top/Article/details/070796928127.shtml)
-- 2026-06-29 23:53 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/53088259502.shtml)
+- 2026-06-30 00:11 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/42477134856.shtml)
+- 2026-06-29 23:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/566709.shtml)
+- 2026-06-29 23:50 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/81510577405.shtml)
+- 2026-06-29 23:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/263669.shtml)
+- 2026-06-29 23:53 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/56043.shtml)
+- 2026-06-30 00:03 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/511991677.shtml)
+- 2026-06-29 23:44 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/46128.shtml)
+- 2026-06-29 23:54 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/081901775.shtml)
+- 2026-06-30 00:08 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/296713570.shtml)
+- 2026-06-29 23:53 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/58301998163.shtml)
+- 2026-06-29 23:45 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/81570278794.shtml)
+- 2026-06-30 00:04 - [世界杯](http://www.blog.kurohicncr.top/Article/details/409970972769.shtml)
+- 2026-06-29 23:56 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/429220441.shtml)
+- 2026-06-29 23:57 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/36905536.shtml)
+- 2026-06-30 00:08 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/479364498.shtml)

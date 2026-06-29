@@ -1,56 +1,49 @@
-# 市场预警AI债券“泡沫化”风险，更多债券发行还在路上
+# 马达加斯加因能源供应危机宣布进入紧急状态
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-今年债券市场上10%~15%的债券发行规模可能与AI有关。 在市场担心美股人工智能（AI）泡沫之际，债券市场的AI泡沫化也引起了市场关注。 双线资本（Double Line）投资组合经理科恩（Robert Cohen）6月3日在全球信贷论坛上表示，参照铁路、互联网等行业过往大量资本涌入催生泡沫的历史规律，AI相关债券几乎肯定会迈入泡沫阶段。 “我们陷入AI泡沫的可能性有多大？我
+马达加斯加宣布进入为期 15 天的全国能源紧急状态，理由是中东冲突扰乱了燃料供应。 马达加斯加总统府在周二的内阁会议后表示，该决定允许当局采取“特殊措施”来管理和恢复供应并提供公共服务。 声明中没有提供更多细节。责任编辑：于健 SF069
 
 ## 正文
 
-今年债券市场上10%~15%的债券发行规模可能与AI有关。
+马达加斯加宣布进入为期 15 天的全国能源紧急状态，理由是中东冲突扰乱了燃料供应。
 
-在市场担心美股人工智能（AI）泡沫之际，债券市场的AI泡沫化也引起了市场关注。
+马达加斯加总统府在周二的内阁会议后表示，该决定允许当局采取“特殊措施”来管理和恢复供应并提供公共服务。
 
-双线资本（Double Line）投资组合经理科恩（Robert Cohen）6月3日在全球信贷论坛上表示，参照铁路、互联网等行业过往大量资本涌入催生泡沫的历史规律，AI相关债券几乎肯定会迈入泡沫阶段。
+声明中没有提供更多细节。
 
-“我们陷入AI泡沫的可能性有多大？
-
-我敢说可能是100%。
-
-”他断言，“由于泡沫破裂的可能性很高，基金经理应该关注资产负债表稳健的公司以及具有强有力保障措施的投资项目。
-
-”他补充称，当基金经理购买债券并假设公司未来能够发展壮大以履行其债务时，信贷市场就会过度乐观。
-
-景顺北美投资级信贷主管布瑞尔（Matt Brill）表示，许多AI债券交易受益于被称为超大规模数据中心运营商（hyperscalers）的大型盈利科技公司的支持。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 23:57 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 23:40 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 23:38 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 23:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 00:02 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 23:50 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-30 00:02 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 23:41 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 23:36 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 23:46 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 23:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 23:53 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 00:02 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 23:47 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 23:55 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 00:10 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 23:50 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 00:00 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 00:10 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 23:51 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 00:11 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/7849931787.shtml)
-- 2026-06-29 23:49 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/9908843.shtml)
-- 2026-06-29 23:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/97249047573.shtml)
-- 2026-06-29 23:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/322200268117.shtml)
-- 2026-06-30 00:05 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/1481748774.shtml)
-- 2026-06-29 23:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/338921669101.shtml)
-- 2026-06-30 00:00 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/823376.shtml)
-- 2026-06-29 23:41 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/0779324.shtml)
-- 2026-06-29 23:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/530294.shtml)
-- 2026-06-30 00:02 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/68785285.shtml)
-- 2026-06-29 23:49 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/20299.shtml)
-- 2026-06-29 23:43 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/62649824366.shtml)
-- 2026-06-30 00:04 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/945464415230.shtml)
-- 2026-06-29 23:54 - [恋与深空致歉](https://www.share.minike.top/Article/details/386958875.shtml)
-- 2026-06-29 23:49 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/293041044076.shtml)
+- 2026-06-30 00:04 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/89707336.shtml)
+- 2026-06-30 00:01 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/13838282284.shtml)
+- 2026-06-29 23:50 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/9170764091.shtml)
+- 2026-06-30 00:05 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/1932432.shtml)
+- 2026-06-30 00:08 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/690595.shtml)
+- 2026-06-29 23:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/44144.shtml)
+- 2026-06-29 23:45 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/4550571989.shtml)
+- 2026-06-30 00:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/37009453.shtml)
+- 2026-06-29 23:46 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/020665350.shtml)
+- 2026-06-30 00:07 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/5106426418.shtml)
+- 2026-06-29 23:52 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/5326217.shtml)
+- 2026-06-30 00:06 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/215063.shtml)
+- 2026-06-29 23:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/216068411989.shtml)
+- 2026-06-30 00:11 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/32771981.shtml)
+- 2026-06-30 00:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/4539890107.shtml)

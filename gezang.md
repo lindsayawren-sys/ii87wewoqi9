@@ -1,56 +1,43 @@
-# 伊朗袭击科威特，美国在霍尔木兹附近海域发动空袭，海湾冲突再度升级
+# 中航光电：累计回购公司股份4098670股
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-海湾地区的敌对行动周三再度升级，伊朗对科威特的袭击造成该国机场受损、数十人受伤，与此同时美军在霍尔木兹海峡附近实施打击，而旨在止战的外交努力几乎未见进展迹象。 这些袭击是对摇摇欲坠的停火协议的最新考验，推动油价上涨近2%。此时，距离美以对伊朗发动打击已过去三个多月，霍尔木兹海峡基本仍处于关闭状态。 科威特当局及官方媒体称，伊朗无人机和导弹袭击导致科威特国际机场设施及外交使团受损
+证券日报网讯 3月31日，中航光电发布公告称，截至2026年3月31日，公司通过股票回购专用证券账户以集中竞价交易方式累计回购股份数量为4，098，670股，约占公司目前总股本的0.1936%。
 
 ## 正文
 
-海湾地区的敌对行动周三再度升级，伊朗对科威特的袭击造成该国机场受损、数十人受伤，与此同时美军在霍尔木兹海峡附近实施打击，而旨在止战的外交努力几乎未见进展迹象。
-
-这些袭击是对摇摇欲坠的停火协议的最新考验，推动油价上涨近2%。
-
-此时，距离美以对伊朗发动打击已过去三个多月，霍尔木兹海峡基本仍处于关闭状态。
-
-科威特当局及官方媒体称，伊朗无人机和导弹袭击导致科威特国际机场设施及外交使团受损，造成一人死亡、逾60人受伤，机场航班一度暂停。
-
-民航当局随后表示，科威特航空和半岛航空在采取安全措施后已恢复航班。
-
-据伊朗官方媒体报道，伊朗精锐的革命卫队称其并未向科威特机场开火，并将破坏归咎于美军拦截导弹未能命中目标。
-
-美方军方表示这一说法不实，称伊朗无人机是蓄意针对机场发动袭击。
-
-此前，伊朗媒体报道称，革命卫队袭击了驻巴林的美国第五舰队总部、一处美军空军基地以及一艘名为Panaya的船只。
+证券日报网讯 3月31日，中航光电发布公告称，截至2026年3月31日，公司通过股票回购专用证券账户以集中竞价交易方式累计回购股份数量为4，098，670股，约占公司目前总股本的0.1936%。
 
 ## 相关推荐
 
-- 2026-06-29 23:40 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 23:55 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 23:41 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 00:05 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 23:54 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 00:00 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 23:50 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 23:41 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 23:45 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 00:02 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 00:11 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 23:50 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 00:00 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 00:06 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 00:08 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 23:56 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 23:53 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 23:43 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 00:08 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 00:03 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 00:08 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:37 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/0444696.shtml)
-- 2026-06-29 23:55 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/99418479245.shtml)
-- 2026-06-30 00:02 - [明星大侦探第四季](http://www.share.minike.top/Article/details/324982957420.shtml)
-- 2026-06-30 00:05 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/362035503.shtml)
-- 2026-06-29 23:38 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/39619546.shtml)
-- 2026-06-29 23:53 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/718049612985.shtml)
-- 2026-06-29 23:38 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/10569.shtml)
-- 2026-06-29 23:40 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/6308655979.shtml)
-- 2026-06-29 23:47 - [爱很美味](http://www.blog.minike.top/Article/details/5700500.shtml)
-- 2026-06-29 23:58 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/150385096.shtml)
-- 2026-06-29 23:58 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/262577641.shtml)
-- 2026-06-29 23:55 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/57235313667.shtml)
-- 2026-06-30 00:01 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/6849868867.shtml)
-- 2026-06-30 00:01 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/28201214065.shtml)
-- 2026-06-29 23:47 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/22773332507.shtml)
+- 2026-06-29 23:59 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/2533667.shtml)
+- 2026-06-29 23:51 - [恋与深空 日服](http://www.blog.minike.top/Article/details/70603630410.shtml)
+- 2026-06-29 23:50 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/193935.shtml)
+- 2026-06-29 23:58 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/55161.shtml)
+- 2026-06-29 23:44 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/87891768863.shtml)
+- 2026-06-30 00:02 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/667298699494.shtml)
+- 2026-06-29 23:56 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/61952.shtml)
+- 2026-06-30 00:06 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/26907271.shtml)
+- 2026-06-30 00:07 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/9747558593.shtml)
+- 2026-06-29 23:56 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/683810.shtml)
+- 2026-06-29 23:56 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/7602814827.shtml)
+- 2026-06-30 00:08 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/73860386.shtml)
+- 2026-06-30 00:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/396654285.shtml)
+- 2026-06-29 23:56 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/798965.shtml)
+- 2026-06-29 23:44 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/0609015419.shtml)

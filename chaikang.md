@@ -1,59 +1,54 @@
-# 台湾导演陈坤厚：“把中华文化善良传统拍给世界看”
+# 伊朗民众在全国各地的桥梁及发电厂周围组成人链
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-中新社北京6月4日电 题：台湾导演陈坤厚：“把中华文化善良传统拍给世界看” 作者 徐雪莹 李百加 年近87岁的台湾导演陈坤厚最近很忙。这位金马奖终身成就奖获得者携新作《青铜葵花》，辗转于大陆不同城市映后交流现场。 “善良是中国几千年来的文化传统，我想把它拍给世界看。这也是我们电影创作者该做的事。”接受中新社采访时，陈坤厚如是说。 电影《青铜葵花》改编自国际安徒生奖得主、大陆儿童
+伊朗官方及其他当地媒体发布的视频和照片显示，为回应特朗普总统摧毁基础设施的威胁，伊朗民众正全国各地的桥梁及发电厂周围组成人链。许多示威者挥舞着伊朗伊斯兰共和国国旗，或是手持在美以战争首轮打击中身亡的最高领袖阿亚图拉・阿里・哈梅内伊的画像。 伊朗半官方的梅赫尔通讯社发布的照片显示，在西部城市克尔曼沙赫，抗议者在一座发电厂前举着横幅，上面写着：“袭击电力基础设施属于战争罪。” 改革
 
 ## 正文
 
-中新社北京6月4日电 题：台湾导演陈坤厚：“把中华文化善良传统拍给世界看” 作者 徐雪莹 李百加 年近87岁的台湾导演陈坤厚最近很忙。
+伊朗官方及其他当地媒体发布的视频和照片显示，为回应特朗普总统摧毁基础设施的威胁，伊朗民众正全国各地的桥梁及发电厂周围组成人链。
 
-这位金马奖终身成就奖获得者携新作《青铜葵花》，辗转于大陆不同城市映后交流现场。
+许多示威者挥舞着伊朗伊斯兰共和国国旗，或是手持在美以战争首轮打击中身亡的最高领袖阿亚图拉・阿里・哈梅内伊的画像。
 
-“善良是中国几千年来的文化传统，我想把它拍给世界看。
+伊朗半官方的梅赫尔通讯社发布的照片显示，在西部城市克尔曼沙赫，抗议者在一座发电厂前举着横幅，上面写着：“袭击电力基础设施属于战争罪。
 
-这也是我们电影创作者该做的事。
+” 改革派报纸《东方报》发布的视频显示，在北部地区，塞姆南发电厂前的抗议者高呼 “美国去死，以色列去死”。
 
-”接受中新社采访时，陈坤厚如是说。
+战争期间，伊朗政府多次组织支持政府的集会。
 
-电影《青铜葵花》改编自国际安徒生奖得主、大陆儿童文学作家曹文轩同名小说，讲述20世纪60年代苏北农村男孩青铜与城市女孩葵花的情谊。
+目前尚不清楚今日的示威活动是自发的还是有组织策划的。
 
-陈坤厚说，他被小说中无为而善的情感与充盈的细节所打动，希望透过影像将这份心灵滋养传递给更多人。
-
-陈坤厚与曹文轩并非首次合作。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 23:48 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 23:41 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 23:48 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 23:59 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 23:51 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 23:43 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 00:03 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 23:45 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 23:50 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 00:04 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 23:43 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 23:54 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 23:41 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-30 00:01 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 23:53 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 00:00 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 23:52 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 23:48 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 00:04 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 00:02 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 23:53 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 23:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 00:04 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:39 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/910918413.shtml)
-- 2026-06-29 23:37 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/95758804300.shtml)
-- 2026-06-30 00:04 - [新官上任三把火](http://www.blog.minike.top/Article/details/3068630569.shtml)
-- 2026-06-29 23:38 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/07813747106.shtml)
-- 2026-06-29 23:57 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/92745.shtml)
-- 2026-06-29 23:54 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/09714.shtml)
-- 2026-06-29 23:36 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/3555081661.shtml)
-- 2026-06-29 23:55 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/5442856.shtml)
-- 2026-06-29 23:42 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/703577942.shtml)
-- 2026-06-29 23:56 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/13709830076.shtml)
-- 2026-06-29 23:44 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/126141297393.shtml)
-- 2026-06-29 23:59 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/4165315.shtml)
-- 2026-06-29 23:47 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/5453462368.shtml)
-- 2026-06-29 23:54 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/76525534.shtml)
-- 2026-06-29 23:53 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/243324009965.shtml)
+- 2026-06-29 23:53 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/29296.shtml)
+- 2026-06-29 23:42 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/8058762.shtml)
+- 2026-06-29 23:54 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/501548098914.shtml)
+- 2026-06-29 23:49 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/2732361347.shtml)
+- 2026-06-30 00:05 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/95727956.shtml)
+- 2026-06-30 00:03 - [明星大侦探第一季](http://www.share.minike.top/Article/details/8599633.shtml)
+- 2026-06-30 00:09 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/8203618937.shtml)
+- 2026-06-30 00:04 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/544361763.shtml)
+- 2026-06-30 00:10 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/10534442.shtml)
+- 2026-06-30 00:04 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/868718239.shtml)
+- 2026-06-29 23:58 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/950675216.shtml)
+- 2026-06-29 23:47 - [一生一世](http://www.blog.kurohicncr.top/Article/details/892698265.shtml)
+- 2026-06-29 23:57 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/01158274856.shtml)
+- 2026-06-29 23:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/06039.shtml)
+- 2026-06-29 23:43 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/11448.shtml)

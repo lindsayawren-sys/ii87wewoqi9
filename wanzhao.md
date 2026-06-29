@@ -1,59 +1,57 @@
-# “十五五”时期农业农村现代化这样推进
+# 化工行业迎来更新机遇，当前化工板块如何布局？
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-新华解码丨“十五五”时期农业农村现代化这样推进 新华社北京6月2日电 新华社记者王悦阳、胡璐 农业农村现代化关系中国式现代化全局和成色。日前，国务院印发《加快农业农村现代化“十五五”规划》，明确了“十五五”时期加快农业农村现代化的思路目标、重点任务和政策措施，为以加快农业农村现代化更好推进中国式现代化建设提供行动指南。务农重本，国之大纲。规划提出“十五五”时期加快农业农村现代化
+近日，工业和信息化部等七部门印发《加力推进石化化工行业老旧装置更新改造行动方案(2026—2029年)》，全面推进石化化工行业老旧装置改造升级，推动我国石化化工产业从“量大”向“质优”转变，行业迎来新一轮升级机遇。化工行业是典型的“大而散”行业，产业链条长、细分领域多、技术壁垒高，普通投资者做个股研究耗时耗力，而指数化投资是个不错的选择，能助力投资者高效把握化工产业行情。市场上
 
 ## 正文
 
-新华解码丨“十五五”时期农业农村现代化这样推进 新华社北京6月2日电 新华社记者王悦阳、胡璐 农业农村现代化关系中国式现代化全局和成色。
+近日，工业和信息化部等七部门印发《加力推进石化化工行业老旧装置更新改造行动方案(2026—2029年)》，全面推进石化化工行业老旧装置改造升级，推动我国石化化工产业从“量大”向“质优”转变，行业迎来新一轮升级机遇。
 
-日前，国务院印发《加快农业农村现代化“十五五”规划》，明确了“十五五”时期加快农业农村现代化的思路目标、重点任务和政策措施，为以加快农业农村现代化更好推进中国式现代化建设提供行动指南。
+化工行业是典型的“大而散”行业，产业链条长、细分领域多、技术壁垒高，普通投资者做个股研究耗时耗力，而指数化投资是个不错的选择，能助力投资者高效把握化工产业行情。
 
-务农重本，国之大纲。
+市场上主流的化工行业指数有两只：中证石化产业指数与中证细分化工产业主题指数。
 
-规划提出“十五五”时期加快农业农村现代化的总体要求，明确到2030年，粮食安全根基持续夯实，农业质量效益和竞争力不断提高，脱贫攻坚成果持续巩固拓展，农业科技自立自强水平大幅提高，把农业建成现代化大产业取得重要进展，农民收入持续较快增长，宜居宜业和美乡村加快建设，城乡融合发展实现新突破，农业农村高质量发展取得显著成效。
+它们同属化工行业指数，有什么区别？
 
-聚焦主要目标指标，规划分领域部署七方面重点任务，即提升农业综合生产能力和质量效益，持续巩固拓展脱贫攻坚成果，强化农业科技和装备支撑，拓宽农民增收致富渠道，加快农业发展全面绿色转型，推进宜居宜业和美乡村建设，提高强农惠农富农政策效能。
+中证石化产业指数目前有39只成份股，中证细分化工产业主题指数有50只成份股，两只指数的成份股重合度约80%。
 
-粮食安全是“国之大者”，“十五五”时期推进农业农村现代化，如何实现稳产保供？
+不过，中证石化产业指数的化工纯度更高，石油石化和基础化工行业占比93%，比细分化工产业主题指数高出11个百分点，而且其特有成份股包含中国石化、中国海油、中国石油这“三桶油”，因而对油价上涨更为敏感，加之传统高耗能化工含量更高，更能受益于行业供给端的改善，且随着老旧装置改造持续推进，化工行业供给格局有望进一步优化。
 
-规划提出，到2030年粮食等重要农产品供给保障能力稳步提升，粮食综合生产能力达到1.45万亿斤左右。
+中证细分化工产业主题指数成份股中，主要多了天赐材料、龙佰集团等电池化学品公司，因而与电池材料细分赛道的景气度相关性高一些。
 
-农产品既要保数量，也要保质量、保多样。
+从历史表现来看，中证石化产业指数在产业周期确认反转、进入景气度右侧上行、产品价格上涨利润兑现阶段，凭借龙头公司的定价权和规模效应，往往展现出更强的行情持续性和超额收益。
 
 ## 相关推荐
 
-- 2026-06-29 23:45 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 23:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 23:46 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 00:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 23:53 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 23:53 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 23:58 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 00:03 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 23:45 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 23:47 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 23:42 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 00:05 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 00:04 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 00:08 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 23:44 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 23:42 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-30 00:04 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 00:05 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 00:07 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 00:02 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 00:08 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 23:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 00:10 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 00:08 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:03 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/670206609.shtml)
-- 2026-06-29 23:57 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/866316001.shtml)
-- 2026-06-29 23:37 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/5156818842.shtml)
-- 2026-06-29 23:38 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/3521372682.shtml)
-- 2026-06-30 00:06 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/9353547.shtml)
-- 2026-06-30 00:02 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/72695.shtml)
-- 2026-06-30 00:05 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/648251723.shtml)
-- 2026-06-29 23:47 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/8076399.shtml)
-- 2026-06-29 23:49 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/927884235.shtml)
-- 2026-06-30 00:05 - [世界杯](https://www.blog.kurohicncr.top/Article/details/92904.shtml)
-- 2026-06-29 23:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/3856483251.shtml)
-- 2026-06-30 00:04 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/3076747.shtml)
-- 2026-06-29 23:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/71486559597.shtml)
-- 2026-06-29 23:52 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/57569.shtml)
-- 2026-06-29 23:56 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/0343025351.shtml)
+- 2026-06-30 00:02 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/28222310544.shtml)
+- 2026-06-30 00:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/36419.shtml)
+- 2026-06-29 23:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/98523.shtml)
+- 2026-06-30 00:00 - [斗破苍穹](http://www.blog.minike.top/Article/details/4023858341.shtml)
+- 2026-06-29 23:49 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/871837.shtml)
+- 2026-06-30 00:03 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/293658056470.shtml)
+- 2026-06-30 00:02 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/6799952565.shtml)
+- 2026-06-29 23:44 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/446904.shtml)
+- 2026-06-30 00:01 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/1362782140.shtml)
+- 2026-06-29 23:49 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/640827831.shtml)
+- 2026-06-30 00:11 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/42148.shtml)
+- 2026-06-29 23:42 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/863591.shtml)
+- 2026-06-30 00:09 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/97491997.shtml)
+- 2026-06-29 23:44 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/270026.shtml)
+- 2026-06-30 00:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/98956311.shtml)

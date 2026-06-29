@@ -1,58 +1,61 @@
-# 中国生态环境部：提升核安全文化水平 筑牢核安全防线
+# 美股风险溢价指标跃升 市场担忧美国陷入上世纪70年代式的滞胀
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-中新社北京6月4日电 (记者 阮煜琳)中国生态环境部近日发布《核安全文化建设通用指南》(以下简称《建设指南》)《核安全文化评估实施指南》(以下简称《评估指南》)。生态环境部核设施安全监管司有关负责人4日表示，两项标准旨在进一步指导推动行业开展核安全文化建设与评估工作，持续提升行业核安全文化水平，筑牢核安全防线，促进实现高水平核安全。两项标准均自2026年8月15日起正式实施。该
+一项指标显示，投资者要求持有股票而非债券的风险溢价升至两年多来最高水平，随着伊朗战争引发油价飙升，市场担忧美国经济可能陷入类似上世纪70年代的滞胀环境。 这一指标是股票风险溢价的一种变体，用于衡量投资者持有股票而非无风险美国国债时期望获得的额外补偿。纽约大学金融学教授Aswath Damodaran以估值研究见长，他计算的这一指标在4月初接近4.8%，为2023年末以来最高水平
 
 ## 正文
 
-中新社北京6月4日电 (记者 阮煜琳)中国生态环境部近日发布《核安全文化建设通用指南》(以下简称《建设指南》)《核安全文化评估实施指南》(以下简称《评估指南》)。
+一项指标显示，投资者要求持有股票而非债券的风险溢价升至两年多来最高水平，随着伊朗战争引发油价飙升，市场担忧美国经济可能陷入类似上世纪70年代的滞胀环境。
 
-生态环境部核设施安全监管司有关负责人4日表示，两项标准旨在进一步指导推动行业开展核安全文化建设与评估工作，持续提升行业核安全文化水平，筑牢核安全防线，促进实现高水平核安全。
+这一指标是股票风险溢价的一种变体，用于衡量投资者持有股票而非无风险美国国债时期望获得的额外补偿。
 
-两项标准均自2026年8月15日起正式实施。
+纽约大学金融学教授Aswath Damodaran以估值研究见长，他计算的这一指标在4月初接近4.8%，为2023年末以来最高水平。
 
-该负责人表示，核安全文化强调将核安全摆在最高优先级，贯穿于核安全理念、制度、环境、行为等各方面全过程，是保障核能与核技术利用事业安全、健康、可持续发展的重要基石。
+随着中东冲突迅速升级，投资者风险偏好减弱，标普500指数较高点一度下跌9%，同时油价飙升，通胀反弹担忧升温，市场因而更加关注这一指标。
 
-据介绍，《建设指南》聚焦核安全文化建设目标任务与路径方法，《评估指南》侧重如何准确识别核安全文化薄弱环节并持续改进，共同构建起核安全文化培育建设与评价改进的完整闭环。
+对一些人而言，这种背景正开始令人不安地联想到上世纪70年代。
 
-《建设指南》主要内容包括通过系统开展核安全文化建设，构建严密的核安全责任体系，持续完善核安全管理体系，识别并有效消除核安全隐患，使维护核安全成为全行业从业人员的内在共识和自觉行动。
+当时，美国经历能源危机、经济增长停滞、消费价格飙升，股市回报也表现低迷。
 
-上述负责人表示，两项标准均明确，要坚持实事求是、因地制宜，结合行业特点和自身实际开展建设与评估，确保取得实效。
+22V Research LLC总裁兼首席市场策略师Dennis DeBusschere表示，当前的股票风险溢价“与上世纪70年代的滞胀环境相符”。
 
-(完)
+他的公司使用Damodaran的这一指标。
 
 ## 相关推荐
 
-- 2026-06-29 23:57 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 23:42 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 00:01 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 23:48 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 23:41 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 23:55 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 23:39 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 23:45 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 23:48 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 23:36 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 23:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 23:51 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 23:46 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 23:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 00:07 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 00:08 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 23:48 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 23:46 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 00:10 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 00:08 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 23:43 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 00:00 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 23:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 00:11 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 23:51 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 23:58 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 23:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:04 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/9721686.shtml)
-- 2026-06-29 23:42 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/31379569749.shtml)
-- 2026-06-29 23:52 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/048099846177.shtml)
-- 2026-06-29 23:47 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/5678877.shtml)
-- 2026-06-29 23:55 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/774290581.shtml)
-- 2026-06-29 23:51 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/46953.shtml)
-- 2026-06-29 23:57 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/791600098298.shtml)
-- 2026-06-29 23:48 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/4576185146.shtml)
-- 2026-06-29 23:54 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/09982.shtml)
-- 2026-06-29 23:46 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/139875394191.shtml)
-- 2026-06-30 00:02 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/02950747.shtml)
-- 2026-06-29 23:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/7796690970.shtml)
-- 2026-06-29 23:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/15912.shtml)
-- 2026-06-30 00:00 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/12165.shtml)
-- 2026-06-29 23:36 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/806444515315.shtml)
+- 2026-06-29 23:57 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/26090.shtml)
+- 2026-06-29 23:43 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/448149215.shtml)
+- 2026-06-29 23:48 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/24015370.shtml)
+- 2026-06-29 23:52 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/105820976599.shtml)
+- 2026-06-29 23:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/18177093010.shtml)
+- 2026-06-30 00:09 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/669280.shtml)
+- 2026-06-30 00:08 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/59904294303.shtml)
+- 2026-06-29 23:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/091450869.shtml)
+- 2026-06-29 23:50 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/050498.shtml)
+- 2026-06-30 00:05 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/38358.shtml)
+- 2026-06-29 23:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/05042764.shtml)
+- 2026-06-30 00:07 - [金牌调解](http://www.blog.minike.top/Article/details/64948.shtml)
+- 2026-06-30 00:01 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/763781.shtml)
+- 2026-06-30 00:01 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/975829.shtml)
+- 2026-06-29 23:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/656846.shtml)

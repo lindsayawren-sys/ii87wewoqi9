@@ -1,60 +1,60 @@
-# 硬科技赛道ETF比拼，头部公司为何受青睐
+# 马来西亚总理：能源供应至少6月前有保障
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-今年3月31日前，全市场ETF都按交易所要求完成了扩位场内简称的调整，自此，所有ETF扩位场内简称中都加上了基金管理人的名字。 现在打开行情软件搜索，出现的都是“芯片ETF易方达”“人工智能ETF华夏”“沪深300ETF华泰柏瑞”这种一眼就能分辨是哪家公司产品的名字，投资者在跟踪同一指数的多只ETF中挑选时更加方便。 而更名完成后的这两个月，硬科技板块恰好迎来了一波行情。4月初
+中新社吉隆坡4月7日电 据马新社7日报道，马来西亚总理安瓦尔7日表示，受全球能源危机影响，马来西亚能源供应预计至少在今年6月前保持充足。 安瓦尔表示，目前对5月和6月的预测显示，市场可能会出现一些价格波动，但就未来几个月而言，仍有把握保证供应。当前全球能源局势的不确定性导致的价格波动难以避免。 安瓦尔强调，尽管马来西亚是能源生产国，但同时也是净进口国。能源供应的稳定，得益于马来
 
 ## 正文
 
-今年3月31日前，全市场ETF都按交易所要求完成了扩位场内简称的调整，自此，所有ETF扩位场内简称中都加上了基金管理人的名字。
+中新社吉隆坡4月7日电 据马新社7日报道，马来西亚总理安瓦尔7日表示，受全球能源危机影响，马来西亚能源供应预计至少在今年6月前保持充足。
 
-现在打开行情软件搜索，出现的都是“芯片ETF易方达”“人工智能ETF华夏”“沪深300ETF华泰柏瑞”这种一眼就能分辨是哪家公司产品的名字，投资者在跟踪同一指数的多只ETF中挑选时更加方便。
+安瓦尔表示，目前对5月和6月的预测显示，市场可能会出现一些价格波动，但就未来几个月而言，仍有把握保证供应。
 
-而更名完成后的这两个月，硬科技板块恰好迎来了一波行情。
+当前全球能源局势的不确定性导致的价格波动难以避免。
 
-4月初至5月末，中证半导体材料设备主题指数上涨48%，上证科创板芯片指数涨幅更是高达57%，半导体产业链从上游设备材料到设计、制造等环节都处于市场高度关注的状态。
+安瓦尔强调，尽管马来西亚是能源生产国，但同时也是净进口国。
 
-在ETF全部“实名制”之后，赶上硬科技行情升温，跟踪同一指数的产品之间分化也变得明显。
+能源供应的稳定，得益于马来西亚国家石油公司(Petronas)的全球布局及与主要产油国的长期合作，使其在地缘紧张局势下未出现供应短缺。
 
-那么投资者偏爱哪家的产品呢？
+据安瓦尔介绍，马来西亚拥有庞大的液化天然气产能，加上从澳大利亚进口以及国家石油公司在加拿大项目的成功运营，保障了国家能源安全。
 
-跟踪中证半导体材料设备主题指数的ETF有5只，其中半导体设备ETF易方达（159558）的资金净流入和份额增长率在这5只ETF中均排名第一。
+此外，马来西亚正积极拓展与土耳其在液化天然气、半导体方面的合作。
 
-上证科创板芯片指数的赛道更加拥挤——共有11只ETF跟踪这只指数，而科创芯片ETF易方达（589130）的资金净流入和份额增长率同样位列第一。
+2025年，土耳其石油产量增长 26%，天然气产量增长39%。
 
 ## 相关推荐
 
-- 2026-06-29 23:57 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-30 00:05 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 23:41 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 23:38 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 00:00 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 23:41 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 23:54 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 23:59 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 23:48 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 23:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 23:42 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 00:03 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 23:40 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 23:41 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 00:05 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 00:11 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 00:11 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 00:02 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 00:09 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 23:52 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 00:06 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 23:47 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 23:51 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 00:08 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 23:53 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 23:52 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 23:43 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 00:07 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:50 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/787413596.shtml)
-- 2026-06-29 23:57 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/66484.shtml)
-- 2026-06-29 23:54 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.kurohicncr.top/Article/details/44289.shtml)
-- 2026-06-29 23:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/36353.shtml)
-- 2026-06-29 23:46 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/821624142.shtml)
-- 2026-06-29 23:46 - [扬名立万](https://www.share.minike.top/Article/details/709015.shtml)
-- 2026-06-29 23:51 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/958654539043.shtml)
-- 2026-06-30 00:03 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/96328370.shtml)
-- 2026-06-29 23:58 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/80245268084.shtml)
-- 2026-06-29 23:38 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/241276420.shtml)
-- 2026-06-29 23:56 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/36084855920.shtml)
-- 2026-06-29 23:50 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/76012030.shtml)
-- 2026-06-29 23:38 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/49091506.shtml)
-- 2026-06-29 23:37 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/7004677177.shtml)
-- 2026-06-29 23:45 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/541442227001.shtml)
+- 2026-06-30 00:05 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/8470519869.shtml)
+- 2026-06-30 00:10 - [追觅称质量不行终身包修也没意义](http://www.share.minike.top/Article/details/43141327635.shtml)
+- 2026-06-30 00:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/0447228.shtml)
+- 2026-06-30 00:05 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/7076233.shtml)
+- 2026-06-30 00:07 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/84565161.shtml)
+- 2026-06-30 00:00 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/47184486489.shtml)
+- 2026-06-30 00:09 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/9090718.shtml)
+- 2026-06-29 23:59 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/682850647.shtml)
+- 2026-06-30 00:00 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/8291868.shtml)
+- 2026-06-29 23:57 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/9548800688.shtml)
+- 2026-06-30 00:10 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/344382999258.shtml)
+- 2026-06-30 00:09 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/194131703372.shtml)
+- 2026-06-29 23:46 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/63166.shtml)
+- 2026-06-29 23:46 - [一见倾心](https://www.share.minike.top/Article/details/433394.shtml)
+- 2026-06-30 00:10 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/752567717472.shtml)

@@ -1,57 +1,58 @@
-# 浦发银行总行人事调整 涉及零售多部门
+# 助贷新规落地半年，行业如何应对监管大考？深度拆解5家头部公司2025年年报
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-来源：金融人事mini 本期，主要介绍浦发银行中层人事换防，涉及总行零售条线多部门副总。 总行零售业务部副总经理汤嘉惠，调任信用卡中心副总经理。 汤嘉惠，历任浦发银行个人银行财富管理部总经理、零售产品部副总经理、零售业务部副总经理。其还担任上海政协委员，近年来特别关注养老金融的发展，今年4月曾表示养老金融是银行零售转型重要赛道，应布局长期稳健分红型养老产品，并呼吁统一养老产业贷
+2025年，对于中国金融科技行业而言，注定是被载入史册、被严监管与强技术深刻重塑的“转折之年”。随着2025年10月1日《关于加强商业银行互联网助贷业务管理提升金融服务质效的通知》（下文简称“助贷新规”）的正式落地，延续多年的粗放扩张逻辑被彻底改写，行业转而进入一场关于“合规、质量与利润”的大考。 如今这场新规“大考”已过半年，奇富科技、乐信、信也科技、小赢科技、宜人智科等5家
 
 ## 正文
 
-来源：金融人事mini 本期，主要介绍浦发银行中层人事换防，涉及总行零售条线多部门副总。
+2025年，对于中国金融科技行业而言，注定是被载入史册、被严监管与强技术深刻重塑的“转折之年”。
 
-总行零售业务部副总经理汤嘉惠，调任信用卡中心副总经理。
+随着2025年10月1日《关于加强商业银行互联网助贷业务管理提升金融服务质效的通知》（下文简称“助贷新规”）的正式落地，延续多年的粗放扩张逻辑被彻底改写，行业转而进入一场关于“合规、质量与利润”的大考。
 
-汤嘉惠，历任浦发银行个人银行财富管理部总经理、零售产品部副总经理、零售业务部副总经理。
+如今这场新规“大考”已过半年，奇富科技、乐信、信也科技、小赢科技、宜人智科等5家美国上市的头部金融科技公司也于近日陆续交出2025年的全年成绩单。
 
-其还担任上海政协委员，近年来特别关注养老金融的发展，今年4月曾表示养老金融是银行零售转型重要赛道，应布局长期稳健分红型养老产品，并呼吁统一养老产业贷款认定标准。
+透过这些财报，我们看到的不仅是头部金融科技公司营收与利润的增减，更是行业在“挤水分”过程中，各家公司不同的生存逻辑与突围路径。
 
-总行风险管理部副总经理刘展，拟任总行零售信贷部副总经理。
+稳健的基本盘：营收结构优化，利润彰显韧性 虽然在去年第四季度普遍经历了助贷新规落地的“阵痛”，但从全年的维度来看，五家金融科技公司的业绩“底盘”依然稳固，展现出穿越周期的强大韧性。
 
-刘展是银行风控专家，今年初曾介绍浦发银行以“数智基座”支撑升级风控体系的经验，发挥智能决策平台与监测平台的作用，实现从贷前审批到贷后监测的全流程数字化风控，赋能科技金融和普惠金融等业务的快速拓展。
+整体来看，2025年，5家金融科技公司总营收规模持续扩大，头部效应显著，且在盈利层面展现了不同的增长动能。
 
-总行数字平台部副总经理金大伟，拟任总行零售信贷部副总经理；曾任浦发银行嘉兴分行副行长，2023年9月宁任波分行副行长，2025年调任数字平台部。
+其中，奇富科技以192.05亿元营收继续稳坐“铁王座”，乐信与信也科技紧随其后，构成百亿阵营；小赢科技与宜人智科则处于第二梯队。
 
-沈阳分行副行长张彦丽，调任总行财富管理部副总经理；曾任浦发银行西安未央路支行行长，西安分行零售业务部总经理，2025年6月起任沈阳分行副行长。
+具体来看，2025年，奇富科技全年净收入192.05亿元，同比增长11.88%，规模位居行业头把交椅。
 
 ## 相关推荐
 
-- 2026-06-29 23:55 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 23:36 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 23:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 23:58 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 23:46 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 23:50 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 23:45 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 23:57 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 23:50 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 23:59 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 23:53 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 00:05 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 23:48 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 23:49 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 23:44 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 00:00 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 23:53 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 00:01 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 00:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 23:45 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 00:06 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 23:42 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 23:58 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:01 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/154786146.shtml)
-- 2026-06-29 23:45 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/271280630540.shtml)
-- 2026-06-29 23:59 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/52222902.shtml)
-- 2026-06-29 23:59 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/78979.shtml)
-- 2026-06-29 23:51 - [月亮](http://www.share.kurohicncr.top/Article/details/1778260.shtml)
-- 2026-06-29 23:59 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/8513843720.shtml)
-- 2026-06-29 23:42 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/81703797876.shtml)
-- 2026-06-30 00:00 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/76134888564.shtml)
-- 2026-06-29 23:37 - [千香](http://www.share.kurohicncr.top/Article/details/775719.shtml)
-- 2026-06-29 23:44 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/08210229808.shtml)
-- 2026-06-29 23:50 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/536035344307.shtml)
-- 2026-06-30 00:04 - [TOP Prada](https://www.share.minike.top/Article/details/558803.shtml)
-- 2026-06-29 23:53 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/129324.shtml)
-- 2026-06-29 23:46 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/6946600.shtml)
-- 2026-06-29 23:57 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/5276404969.shtml)
+- 2026-06-30 00:07 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/8174720.shtml)
+- 2026-06-29 23:51 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/913782991193.shtml)
+- 2026-06-29 23:54 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/170997.shtml)
+- 2026-06-30 00:05 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/8941367462.shtml)
+- 2026-06-29 23:49 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/36388.shtml)
+- 2026-06-29 23:47 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/997866974.shtml)
+- 2026-06-29 23:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/650174401106.shtml)
+- 2026-06-29 23:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/628150.shtml)
+- 2026-06-29 23:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/139631.shtml)
+- 2026-06-29 23:43 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/411997549.shtml)
+- 2026-06-29 23:58 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/96088539050.shtml)
+- 2026-06-29 23:46 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/49013619324.shtml)
+- 2026-06-29 23:59 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/150541592671.shtml)
+- 2026-06-29 23:58 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/36353849363.shtml)
+- 2026-06-29 23:44 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/71467.shtml)

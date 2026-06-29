@@ -1,59 +1,46 @@
-# 交通银行FT账户体系实现全国试点区域全覆盖
+# 王毅将访问朝鲜
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-来源：交通银行 近日，交通银行广东省分行成功上线自由贸易账户（下称“FT账户”）体系，标志着交行FT账户服务已全面覆盖上海、海南、广东、天津、深圳等全国试点区域。这一突破进一步拓展了交行自贸金融服务的辐射范围，形成差异化核心优势。交行将依托账户一体化服务，有效拓展区内新设外资项目、产业链跨境主体及异地落地集团客户，增强客户粘性，夯实客群根基。 FT账户体系是我国高水平开放的核心
+外交部发言人宣布： 应朝鲜外务省邀请，中共中央政治局委员、外交部长王毅将于4月9日至10日访问朝鲜。
 
 ## 正文
 
-来源：交通银行 近日，交通银行广东省分行成功上线自由贸易账户（下称“FT账户”）体系，标志着交行FT账户服务已全面覆盖上海、海南、广东、天津、深圳等全国试点区域。
-
-这一突破进一步拓展了交行自贸金融服务的辐射范围，形成差异化核心优势。
-
-交行将依托账户一体化服务，有效拓展区内新设外资项目、产业链跨境主体及异地落地集团客户，增强客户粘性，夯实客群根基。
-
-FT账户体系是我国高水平开放的核心基础设施，在试验区内构建起与国际金融市场相接轨、与境内市场相对隔离的特殊金融环境。
-
-在实现跨境资金高效自由流动的同时，极大便利企业跨境贸易、投融资与资金管理，显著降低融资成本、提升全球资源配置能力。
-
-早在2014年和2019年，交行便作为首批试点银行，先后在上海和海南上线FT账户体系。
-
-依托该体系，交行积极开展跨境融资、全功能资金池及自贸离岸债等创新试点，积累了一批可复制可推广的经验，为我国对接国际高标准经贸规则、稳步推进制度型开放提供了重要支撑与实践样本。
-
-近年来，交行自贸区分账核算单元（FTU单元）业务规模持续增长。
+外交部发言人宣布： 应朝鲜外务省邀请，中共中央政治局委员、外交部长王毅将于4月9日至10日访问朝鲜。
 
 ## 相关推荐
 
-- 2026-06-29 23:46 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 23:57 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-30 00:01 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 23:43 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 23:36 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 23:44 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 23:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 23:57 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 23:46 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 00:05 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 23:40 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 23:53 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 23:39 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 23:43 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 23:55 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 23:51 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 23:45 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 23:52 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 23:46 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 23:48 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 23:57 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 23:55 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 00:10 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 23:42 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 23:48 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 00:11 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 00:07 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:58 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/7607987863.shtml)
-- 2026-06-30 00:02 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/052401783.shtml)
-- 2026-06-29 23:52 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/234741211.shtml)
-- 2026-06-29 23:38 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/57007672790.shtml)
-- 2026-06-30 00:04 - [蔚来车主罚站](http://www.share.minike.top/Article/details/49477131.shtml)
-- 2026-06-30 00:01 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/49389780.shtml)
-- 2026-06-29 23:50 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/247098678.shtml)
-- 2026-06-29 23:36 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/79626671734.shtml)
-- 2026-06-29 23:56 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/516133726673.shtml)
-- 2026-06-29 23:50 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/68739.shtml)
-- 2026-06-29 23:49 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/78956928781.shtml)
-- 2026-06-29 23:40 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/31743527762.shtml)
-- 2026-06-29 23:40 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/9265758120.shtml)
-- 2026-06-29 23:40 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/53834.shtml)
-- 2026-06-30 00:02 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/14507093526.shtml)
+- 2026-06-29 23:55 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/9091344278.shtml)
+- 2026-06-29 23:59 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/7714167.shtml)
+- 2026-06-29 23:48 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/53571371.shtml)
+- 2026-06-30 00:03 - [啊啊啊](http://www.share.minike.top/Article/details/38491602581.shtml)
+- 2026-06-30 00:00 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/272190191690.shtml)
+- 2026-06-29 23:51 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/8022712.shtml)
+- 2026-06-29 23:59 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/08854.shtml)
+- 2026-06-30 00:02 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/46873.shtml)
+- 2026-06-30 00:06 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/004303.shtml)
+- 2026-06-29 23:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/020691369.shtml)
+- 2026-06-29 23:47 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/8674772031.shtml)
+- 2026-06-30 00:10 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/92999061.shtml)
+- 2026-06-29 23:45 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/947294018.shtml)
+- 2026-06-29 23:43 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/90150877148.shtml)
+- 2026-06-30 00:06 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/016706.shtml)

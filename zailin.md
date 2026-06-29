@@ -1,59 +1,60 @@
-# 澳门社会文化司司长：三方面着手织密社区急救“防护网”
+# 超300项新标7项重点任务 纺织工业升级“有标可依”
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-中新网澳门6月3日电 (记者 郑嘉伟)澳门特区政府社会文化司司长柯岚3日接受特区立法会议员质询时表示，将通过优化信息发布机制、提升社区自动体外心脏除颤器(下称“AED机”)覆盖率、普及急救教育三个方面，织密澳门社区急救“防护网”。柯岚指出，为确保澳门居民在紧急时能迅速获取设备和信息，卫生局已整合全澳门社区和政府部门的AED机资源，并制作分布地图，居民可通过“一户通”查找设备位置
+到2028年，制修订多元适配、数字转型等国家标准300项以上—— 纺织工业升级“有标可依”(锐财经) 纺织工业是我国传统支柱产业、重要民生产业和国际优势产业。近日，工业和信息化部、生态环境部、国家市场监督管理总局等3部门联合印发《标准引领纺织工业优化升级行动方案(2026—2028年)》(以下简称《行动方案》)，按照“标缺必补、标低则提、标优重贯”的思路，进一步优化标准供给结构
 
 ## 正文
 
-中新网澳门6月3日电 (记者 郑嘉伟)澳门特区政府社会文化司司长柯岚3日接受特区立法会议员质询时表示，将通过优化信息发布机制、提升社区自动体外心脏除颤器(下称“AED机”)覆盖率、普及急救教育三个方面，织密澳门社区急救“防护网”。
+到2028年，制修订多元适配、数字转型等国家标准300项以上—— 纺织工业升级“有标可依”(锐财经) 纺织工业是我国传统支柱产业、重要民生产业和国际优势产业。
 
-柯岚指出，为确保澳门居民在紧急时能迅速获取设备和信息，卫生局已整合全澳门社区和政府部门的AED机资源，并制作分布地图，居民可通过“一户通”查找设备位置，预计今年内可投入使用。
+近日，工业和信息化部、生态环境部、国家市场监督管理总局等3部门联合印发《标准引领纺织工业优化升级行动方案(2026—2028年)》(以下简称《行动方案》)，按照“标缺必补、标低则提、标优重贯”的思路，进一步优化标准供给结构，增强标准实施效能，提高标准国际化水平，加快构建引领产业优化升级的标准体系，推动纺织工业高质量发展。
 
-她续指，卫生局将从总量和分布两方面完善AED机的配置，将院前急救和医院救治有机衔接。
+进一步完善纺织标准体系纺织业在稳就业、促创新、扩消费等方面作用突出。
 
-一是持续与政府部门及社团机构沟通协作，争取明年将AED机总量增至680部，达到约每10万人口配置100部的目标；二是结合各区人口密度和旅客情况，优化急救设备的分布。
+中国拥有全球最为完备的纺织工业体系，年产服装超700亿件，纺织品服装出口占全球纺织品服装贸易比重三成以上，生产规模、贸易规模均居世界首位。
 
-柯岚还表示，卫生局会持续推广AED机的应用及急救知识，正筹备成立急救培训中心，通过建立系统化培训机制，加强与政府部门和社团机构合作，为居民、教师及医疗人员等开展相应急救培训。
+中国纺织工业联合会数据显示，2025年全国限额以上服装、鞋帽、针纺织品类商品零售额15215亿元，同比增长3.2%。
 
-同时，加大支持社团机构开展急救课程的力度，确保培训专业性与持续性。
+此次出台《行动方案》有何考量？
 
-她说，未来将充分发挥“健康社区”计划的作用，通过健康社区加油站、咨询站及快闪站等多元渠道，进一步普及急救知识，加强向居民展示实物设备，提供实际操作体验，让公众熟悉设备的使用。
+工信部有关负责人解释，当前，我国消费升级持续深化，市场需求呈现个性化、多样化、高品质化的特点，现行标准体系难以完全满足多元需求，亟需通过组织实施《行动方案》，进一步完善纺织标准体系，以标准供给质量的提高带动企业核心竞争力的提升，增强供需适配性。
 
-(完)
+据介绍，《行动方案》结合现有标准制修订节奏及工作基础，在充分调研产业实际、梳理标准缺口的基础上提出国内国际标准制修订目标——到2028年，制修订多元适配、数字转型、绿色低碳、健康安全等国家标准300项以上，纺织标准供给能力全面提高；制修订国际标准10项以上，国际标准转化率持续保持在85%以上，国内国际一致性稳步提升。
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 23:54 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 00:03 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 23:52 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 00:02 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 23:59 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 23:57 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 23:48 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 23:37 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 23:39 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 23:49 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 23:52 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 23:48 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 23:45 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 23:45 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 23:50 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 00:04 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 23:44 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 23:47 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 23:53 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 23:48 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 00:07 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 23:43 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 00:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 23:58 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 23:47 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 23:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:00 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/6390662809.shtml)
-- 2026-06-30 00:03 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/12186343.shtml)
-- 2026-06-29 23:42 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/9282225.shtml)
-- 2026-06-29 23:51 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/8915048442.shtml)
-- 2026-06-29 23:36 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/38640648.shtml)
-- 2026-06-30 00:05 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/411734572543.shtml)
-- 2026-06-29 23:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/54487.shtml)
-- 2026-06-29 23:55 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/655789544.shtml)
-- 2026-06-29 23:45 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/78879.shtml)
-- 2026-06-30 00:05 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/086276488861.shtml)
-- 2026-06-30 00:02 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/7730356.shtml)
-- 2026-06-30 00:01 - [欧洲缘何成为变暖最快的大洲](http://www.share.minike.top/Article/details/518750697.shtml)
-- 2026-06-29 23:45 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/25882.shtml)
-- 2026-06-29 23:37 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/38843.shtml)
-- 2026-06-29 23:59 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/807425.shtml)
+- 2026-06-30 00:02 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/24890.shtml)
+- 2026-06-29 23:49 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/26608.shtml)
+- 2026-06-29 23:56 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/492522057300.shtml)
+- 2026-06-30 00:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/98704089.shtml)
+- 2026-06-30 00:04 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/3051013.shtml)
+- 2026-06-29 23:50 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/93401870705.shtml)
+- 2026-06-29 23:51 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/074731847948.shtml)
+- 2026-06-29 23:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/0480721.shtml)
+- 2026-06-29 23:51 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/707790414038.shtml)
+- 2026-06-30 00:07 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/42035.shtml)
+- 2026-06-29 23:50 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/565595233668.shtml)
+- 2026-06-29 23:59 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/534826791111.shtml)
+- 2026-06-29 23:50 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/3998844.shtml)
+- 2026-06-29 23:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/09980695894.shtml)
+- 2026-06-29 23:55 - [恋与深空回应争议](http://www.share.minike.top/Article/details/79309868461.shtml)

@@ -1,46 +1,51 @@
-# 中国再保险：将于8月21日派发末期股息每股0.0691元
+# 宁夏银川：疗愈成“她悦己”新宠
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-6月4日金融一线消息，中国再保今日发布公告称，将于2026年8月21日派发截至2025年12月31日止年度的末期股息每股0.0691元。 责任编辑：曹睿潼
+发布时间：2026年04月07日 17:05 来源：中国新闻网 曾几何时，人们下班后约饭、约电影，如今，在银川，越来越多的女性市民选择约一场颂钵冥想或是一次沉浸式瑜伽。 根据愈到研究院最新发布的《2026年疗愈经济蓝皮书》数据显示，中国疗愈经济市场规模已突破10万亿元大关，这一庞大的数字背后，是大众对心理健康前所未有的关注。 (记者 谢宇 宁夏银川报道） 责任编辑：【于晓】
 
 ## 正文
 
-6月4日金融一线消息，中国再保今日发布公告称，将于2026年8月21日派发截至2025年12月31日止年度的末期股息每股0.0691元。
+发布时间：2026年04月07日 17:05 来源：中国新闻网 曾几何时，人们下班后约饭、约电影，如今，在银川，越来越多的女性市民选择约一场颂钵冥想或是一次沉浸式瑜伽。
 
-责任编辑：曹睿潼
+根据愈到研究院最新发布的《2026年疗愈经济蓝皮书》数据显示，中国疗愈经济市场规模已突破10万亿元大关，这一庞大的数字背后，是大众对心理健康前所未有的关注。
+
+(记者 谢宇 宁夏银川报道） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-30 00:02 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 23:50 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 23:54 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 23:42 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 23:53 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 23:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 23:39 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 00:03 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 00:04 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 23:36 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 23:55 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 00:00 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 23:59 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 23:50 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 23:50 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 00:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 23:56 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 00:09 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 23:42 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 00:03 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 00:02 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 23:43 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 23:54 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 23:56 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 23:44 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 23:52 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 23:53 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:44 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/538924098083.shtml)
-- 2026-06-29 23:40 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/804019535783.shtml)
-- 2026-06-29 23:47 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/3106033.shtml)
-- 2026-06-29 23:52 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/958064161.shtml)
-- 2026-06-29 23:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/3037582.shtml)
-- 2026-06-29 23:43 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/417480.shtml)
-- 2026-06-29 23:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/378841857146.shtml)
-- 2026-06-29 23:49 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.kurohicncr.top/Article/details/682629.shtml)
-- 2026-06-29 23:51 - [世界杯](http://www.share.minike.top/Article/details/09451713.shtml)
-- 2026-06-29 23:57 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/8666540571.shtml)
-- 2026-06-29 23:40 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/793630929.shtml)
-- 2026-06-29 23:56 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/57369213.shtml)
-- 2026-06-29 23:48 - [蔚来车主罚站](https://www.share.minike.top/Article/details/41990463.shtml)
-- 2026-06-29 23:41 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/32416437915.shtml)
-- 2026-06-29 23:57 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/7103252.shtml)
+- 2026-06-30 00:02 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/77997.shtml)
+- 2026-06-29 23:59 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/811499264.shtml)
+- 2026-06-29 23:45 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/661850.shtml)
+- 2026-06-29 23:48 - [沙丘](http://www.blog.kurohicncr.top/Article/details/3109243.shtml)
+- 2026-06-29 23:43 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/2335189024.shtml)
+- 2026-06-30 00:09 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/29751.shtml)
+- 2026-06-29 23:57 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/441555540.shtml)
+- 2026-06-29 23:49 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/858452772.shtml)
+- 2026-06-30 00:01 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/1233360.shtml)
+- 2026-06-29 23:43 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/2097980885.shtml)
+- 2026-06-30 00:11 - [金刚川](http://www.blog.minike.top/Article/details/860824536.shtml)
+- 2026-06-29 23:59 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/30287600039.shtml)
+- 2026-06-29 23:59 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/5875809.shtml)
+- 2026-06-30 00:02 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/2240320029.shtml)
+- 2026-06-29 23:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/76335028.shtml)

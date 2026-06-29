@@ -1,59 +1,57 @@
-# 挪威航空将购买一架在租的波音737-800飞机
+# 微软、雪佛龙和Engine No.1签署电力供应独家协议
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-挪威航空（Norwegian Air Shuttle）达成一项协议，将购买一架目前由其租赁的波音（Boeing） 737-800飞机。 挪威航空表示，交易完成后，预计将录得约8，500万挪威克朗（合920万美元）的非经常性收益，这笔收益反映了该飞机的价格以及租赁负债的相应减少。该交易预计每年还将产生约1，000万克朗的经常性成本节省。 该航空公司表示，此项交易有助于巩固其未来机
+微软、雪佛龙和投资基金Engine No.1三家公司周二表示，已就发电和电力供应达成排他性协议。 包括微软在内的科技公司正急于为其快速扩张的数据中心确保电力供应，这些数据中心将为 ChatGPT 和 Copilot 等人工智能服务提供动力。 三家公司在一份声明中表示：”目前尚未敲定任何商业条款，也没有最终协议。” 雪佛龙和Engine No.1已于去年宣布合作在美国数据中心旁建
 
 ## 正文
 
-挪威航空（Norwegian Air Shuttle）达成一项协议，将购买一架目前由其租赁的波音（Boeing） 737-800飞机。
+微软、雪佛龙和投资基金Engine No.1三家公司周二表示，已就发电和电力供应达成排他性协议。
 
-挪威航空表示，交易完成后，预计将录得约8，500万挪威克朗（合920万美元）的非经常性收益，这笔收益反映了该飞机的价格以及租赁负债的相应减少。
+包括微软在内的科技公司正急于为其快速扩张的数据中心确保电力供应，这些数据中心将为 ChatGPT 和 Copilot 等人工智能服务提供动力。
 
-该交易预计每年还将产生约1，000万克朗的经常性成本节省。
+三家公司在一份声明中表示：”目前尚未敲定任何商业条款，也没有最终协议。
 
-该航空公司表示，此项交易有助于巩固其未来机队、增强财务灵活性并提高资产所有权比例，从而支持长期运营和战略增长，同时降低总体拥有成本。
+” 雪佛龙和Engine No.1已于去年宣布合作在美国数据中心旁建设天然气发电厂，双方计划使用电力服务公司GE Vernova 的涡轮机。
 
-该交易预计将在第二季度完成。
+媒体报道了与微软达成的协议，称该长期协议与德克萨斯州西部拟建的天然气发电厂有关，预计成本约为 70 亿美元。
 
-挪威航空表示，已为此次收购获得了长期融资。
+该发电厂最初将发电 2，500 兆瓦，用于为一个大型数据中心园区供电。
 
-责任编辑：刘明亮
+雪佛龙公司曾于11月表示，其首个使用天然气为人工智能数据中心供电的项目将建在西得克萨斯州，目标是在2027年投入使用。
+
+据媒体上周报道，微软已同意租用一个数据中心项目，该数据中心项目原本是为甲骨文ORCL.N和OpenAI开发的。
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 23:39 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 23:56 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 23:57 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 23:57 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 23:39 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 23:51 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 23:55 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 23:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 00:01 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 23:51 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 23:50 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 23:47 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 23:41 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 00:00 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 23:51 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 23:55 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 00:03 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 00:02 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 23:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 23:45 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 23:52 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 00:10 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 00:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 00:04 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 23:51 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:51 - [炽夏](http://www.share.minike.top/Article/details/176045391.shtml)
-- 2026-06-29 23:46 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/61695515.shtml)
-- 2026-06-29 23:44 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/7786096.shtml)
-- 2026-06-29 23:39 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/49901.shtml)
-- 2026-06-29 23:40 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/11557713786.shtml)
-- 2026-06-29 23:53 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/442489478462.shtml)
-- 2026-06-29 23:45 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/17388.shtml)
-- 2026-06-29 23:48 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/95914669010.shtml)
-- 2026-06-29 23:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/798942.shtml)
-- 2026-06-29 23:56 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/189120447561.shtml)
-- 2026-06-29 23:56 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/642262.shtml)
-- 2026-06-29 23:50 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/277063696.shtml)
-- 2026-06-29 23:37 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/49304474875.shtml)
-- 2026-06-29 23:40 - [极限挑战第一季](https://www.blog.minike.top/Article/details/53329289662.shtml)
-- 2026-06-29 23:50 - [一生一世](http://www.blog.kurohicncr.top/Article/details/71419265.shtml)
+- 2026-06-29 23:47 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/241698745062.shtml)
+- 2026-06-30 00:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/81533.shtml)
+- 2026-06-30 00:02 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/882976889.shtml)
+- 2026-06-29 23:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/614425045.shtml)
+- 2026-06-29 23:50 - [月亮](https://www.blog.kurohicncr.top/Article/details/4084635612.shtml)
+- 2026-06-30 00:10 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/4765784.shtml)
+- 2026-06-29 23:55 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/65351014480.shtml)
+- 2026-06-29 23:43 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/71383418.shtml)
+- 2026-06-30 00:02 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/490648.shtml)
+- 2026-06-29 23:46 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/80555924.shtml)
+- 2026-06-30 00:06 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/1103014.shtml)
+- 2026-06-29 23:55 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/29321.shtml)
+- 2026-06-30 00:04 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/355442230.shtml)
+- 2026-06-30 00:10 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/9937432.shtml)
+- 2026-06-29 23:43 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/96380790028.shtml)

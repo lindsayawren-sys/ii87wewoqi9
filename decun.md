@@ -1,60 +1,57 @@
-# 玻璃基板概念升温，美迪凯两日异动后提示相关收入占比仅约2% | 长三角资本局
+# 360漏洞挖掘智能体最新发现OpenClaw三大漏洞
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 玻璃基板概念继续搅动二级市场，杭州科创板公司美迪凯被资金推到台前。 6月2日晚间，美迪凯发布股票交易异常波动公告称，公司股票于6月1日、6月2日连续两个交易日内收盘价格涨幅偏离值累计达到30%，属于股票交易异常波动情形。 6月3日，公司股价继续走强，截至收盘报30.20元，涨12.86%，成交额进一步放大。 这份公告的重点不是确认利好，而是降温。美迪凯
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新浪科技讯 4月7日晚间消息，近期，360漏洞挖掘智能体针对OpenClaw 成功新挖掘并上报1个高危、2个中危共3个高价值漏洞，目前所有新发现漏洞均已被官方修复并公开披露。 此次新发现的三大漏洞均直指AI智能体核心运行机制，安全风险直接影响用户设备、数据与账号的核心安全，危害清晰且直观。其中，高危漏洞存在
 
 ## 正文
 
-文|新浪财经上海站 十里 玻璃基板概念继续搅动二级市场，杭州科创板公司美迪凯被资金推到台前。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-6月2日晚间，美迪凯发布股票交易异常波动公告称，公司股票于6月1日、6月2日连续两个交易日内收盘价格涨幅偏离值累计达到30%，属于股票交易异常波动情形。
+新浪科技讯 4月7日晚间消息，近期，360漏洞挖掘智能体针对OpenClaw 成功新挖掘并上报1个高危、2个中危共3个高价值漏洞，目前所有新发现漏洞均已被官方修复并公开披露。
 
-6月3日，公司股价继续走强，截至收盘报30.20元，涨12.86%，成交额进一步放大。
+此次新发现的三大漏洞均直指AI智能体核心运行机制，安全风险直接影响用户设备、数据与账号的核心安全，危害清晰且直观。
 
-这份公告的重点不是确认利好，而是降温。
+其中，高危漏洞存在于本地脚本审批与执行环节，系统仅对脚本审批状态进行判断，未校验脚本内容是否被篡改，攻击者可在脚本通过审批后恶意替换代码，进而在用户电脑上执行非法操作，实现信息窃取、文件修改甚至整机控制。
 
-美迪凯在公告中提示，2025年公司半导体用玻璃基板相关产品销售收入占总营收比重约2%，占比较低，未对公司业绩构成重大影响。
+一处中危漏洞藏于 OAuth 手动粘贴授权流程，因开发者将本地私密安全校验参数直接复用为公开参数，关键校验信息会随回调 URL 泄露，攻击者可通过剪贴板、网络代理等方式窃取该信息，轻松获取访问令牌并接管用户关联的 Google 服务，对用户账号安全与数据隐私形成严重威胁；另一处中危漏洞则出现在语音通话WebSocket数据处理流程，系统未提前校验数据合法性便直接处理超大数据包，攻击者可通过发送海量大数据包耗尽系统资源，造成设备卡顿、崩溃，导致正常服务无法使用。
 
-换句话说，市场正在追逐的玻璃基板概念，目前在美迪凯收入结构里仍只是一个较小分支。
+据介绍，360漏洞挖掘智能体体系已累计发现多款主流AI智能体的高价值安全漏洞。
 
-股价表现则明显跑在业绩前面。
+区别于传统规则式漏洞扫描工具，360漏洞挖掘智能体实现了从规则驱动到智能思维驱动的跨越，可精准识别AI智能体中授权逻辑缺陷、资源管控漏洞、协议实现风险等深层隐患。
 
-6月2日，美迪凯盘中快速拉升并收获20%涨停。
+而其更具里程碑意义的价值在于，让安全研究员沉淀多年的攻防直觉与领域经验，第一次拥有了可沉淀、可复用、可持续进化的数字化载体。
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 23:47 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 23:41 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 00:04 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 23:44 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 23:50 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 23:57 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 23:49 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 23:53 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 23:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 23:46 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 23:38 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 23:41 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 23:55 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 23:47 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 23:48 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 23:45 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 23:57 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 00:02 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 00:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 23:53 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 23:53 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 00:08 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 00:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 23:50 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:00 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/64998623.shtml)
-- 2026-06-30 00:03 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/729961.shtml)
-- 2026-06-29 23:53 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/13328.shtml)
-- 2026-06-29 23:45 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/224617805349.shtml)
-- 2026-06-29 23:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/5714298.shtml)
-- 2026-06-30 00:00 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/00071450881.shtml)
-- 2026-06-29 23:40 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/722889292.shtml)
-- 2026-06-29 23:55 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/0310711576.shtml)
-- 2026-06-29 23:54 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/103313227.shtml)
-- 2026-06-29 23:42 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/575684565541.shtml)
-- 2026-06-30 00:02 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/133701684.shtml)
-- 2026-06-29 23:52 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/24359.shtml)
-- 2026-06-30 00:01 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/81032.shtml)
-- 2026-06-29 23:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/4188380.shtml)
-- 2026-06-29 23:49 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/82542663.shtml)
+- 2026-06-29 23:48 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/117599.shtml)
+- 2026-06-30 00:01 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/26996392922.shtml)
+- 2026-06-29 23:49 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/507241.shtml)
+- 2026-06-30 00:11 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/2887133.shtml)
+- 2026-06-29 23:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/78662.shtml)
+- 2026-06-29 23:52 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/51431126.shtml)
+- 2026-06-30 00:05 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/668990392.shtml)
+- 2026-06-30 00:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/8838042.shtml)
+- 2026-06-29 23:58 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/46333752514.shtml)
+- 2026-06-29 23:50 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/3729858750.shtml)
+- 2026-06-29 23:52 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/838123885538.shtml)
+- 2026-06-30 00:10 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/550927192.shtml)
+- 2026-06-29 23:52 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/651511.shtml)
+- 2026-06-30 00:04 - [恋与深空 日服](http://www.blog.minike.top/Article/details/7622901355.shtml)
+- 2026-06-29 23:49 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/902743807.shtml)

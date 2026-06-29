@@ -1,60 +1,48 @@
-# 旧金山联储行长戴利：AI生产率提升"无处不在，唯独不在数据中"
+# A股三大股指齐高开 超5000只个股上涨
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-旧金山联储行长玛丽·戴利周四在彭博科技大会上发表讲话时，对人工智能的经济影响提出了一个耐人寻味的观察：尽管AI技术正在各行各业迅速普及，但宏观经济数据中仍未显示出相应的生产率增长。 “生产率提升似乎无处不在，唯独不在数据中，”戴利在回答关于AI对经济影响的问题时这样表示。她指出，官方统计数据显示，虽然过去十个季度的非农商业部门劳动生产率年化增长率达到约2.7%，高于50年长期平
+中新网4月8日电 (记者 谢艺观)4月8日，A股开盘，上证指数高开1.03%，深证成指高开2.36%，创业板指高开3.07%。全市场超5000只个股上涨。盘面上，贵金属、互联网、电子元器件、半导体等行业板块涨幅居前；概念板块方面，航空运输精选、光模块(CPO)、光芯片等表现亮眼。
 
 ## 正文
 
-旧金山联储行长玛丽·戴利周四在彭博科技大会上发表讲话时，对人工智能的经济影响提出了一个耐人寻味的观察：尽管AI技术正在各行各业迅速普及，但宏观经济数据中仍未显示出相应的生产率增长。
+中新网4月8日电 (记者 谢艺观)4月8日，A股开盘，上证指数高开1.03%，深证成指高开2.36%，创业板指高开3.07%。
 
-“生产率提升似乎无处不在，唯独不在数据中，”戴利在回答关于AI对经济影响的问题时这样表示。
+全市场超5000只个股上涨。
 
-她指出，官方统计数据显示，虽然过去十个季度的非农商业部门劳动生产率年化增长率达到约2.7%，高于50年长期平均水平的1.9%，但经济学家们至今难以将这些增长明确归因于AI技术。
-
-戴利解释称，当前企业正在利用AI实现自动化和流程优化，但这些大多属于“一次性调整”，而非持续性的生产率增长。
-
-她以自动化生产线或AI辅助贷款审批为例，“你一次性地节省了成本，但这并不会带来持续的增长。
-
-我们寻找的是一项能持续带来生产率提升的技术，让所有行业都能大规模地变得更好。
-
-” 戴利将当前情况与1990年代计算机和软件普及时期进行了对比。
-
-她回顾道，时任美联储主席格林斯潘当年就认为生产率数据未能准确捕捉正在发生的技术变革，最终证明他是正确的。
+盘面上，贵金属、互联网、电子元器件、半导体等行业板块涨幅居前；概念板块方面，航空运输精选、光模块(CPO)、光芯片等表现亮眼。
 
 ## 相关推荐
 
-- 2026-06-30 00:00 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 23:42 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 23:55 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 23:46 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 23:48 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 23:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 23:56 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 23:51 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 00:05 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 00:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 23:36 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 23:42 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 23:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 23:56 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 00:09 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 00:02 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 00:04 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 23:43 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 23:50 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 23:57 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 00:06 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 23:59 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 00:04 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 23:58 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 23:49 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 00:07 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/48908.shtml)
-- 2026-06-30 00:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/794060536.shtml)
-- 2026-06-29 23:39 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.kurohicncr.top/Article/details/690627485.shtml)
-- 2026-06-30 00:05 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/79230461.shtml)
-- 2026-06-29 23:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/3739415.shtml)
-- 2026-06-29 23:59 - [时光音乐会](https://www.blog.minike.top/Article/details/419543828491.shtml)
-- 2026-06-29 23:57 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/81965724.shtml)
-- 2026-06-29 23:37 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/8281772.shtml)
-- 2026-06-29 23:36 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/48949.shtml)
-- 2026-06-30 00:05 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/188770046.shtml)
-- 2026-06-29 23:51 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/558909.shtml)
-- 2026-06-29 23:55 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/7921385.shtml)
-- 2026-06-29 23:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/762893516460.shtml)
-- 2026-06-29 23:42 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/3839483936.shtml)
-- 2026-06-29 23:57 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/68613.shtml)
+- 2026-06-29 23:48 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/719806173.shtml)
+- 2026-06-30 00:05 - [我和我的家乡](https://www.share.minike.top/Article/details/8815146.shtml)
+- 2026-06-29 23:51 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/835090958.shtml)
+- 2026-06-29 23:50 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/6005866.shtml)
+- 2026-06-29 23:51 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/0546300.shtml)
+- 2026-06-29 23:43 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/962021172623.shtml)
+- 2026-06-29 23:50 - [电影后室值得看吗](https://www.share.minike.top/Article/details/6699789686.shtml)
+- 2026-06-30 00:01 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/36621612739.shtml)
+- 2026-06-30 00:11 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/92788433.shtml)
+- 2026-06-29 23:58 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/091491.shtml)
+- 2026-06-29 23:54 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/76848520826.shtml)
+- 2026-06-29 23:51 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/7624283.shtml)
+- 2026-06-30 00:02 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/7347479.shtml)
+- 2026-06-29 23:59 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/734802374726.shtml)
+- 2026-06-30 00:07 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/703983319.shtml)

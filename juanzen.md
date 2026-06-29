@@ -1,42 +1,58 @@
-# 大陆海警部门在相关海域依法开展执法巡查 国务院台办：是正常履职行为
+# 中国发布全球首个全景式碳排放核算大模型 精准服务应对气候变化
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月04日 09:09 来源：央视新闻 责任编辑：【李骏】
+中新网北京4月8日电 (记者 孙自法)在气候变化正深刻重塑地球生态环境、广泛影响人类社会发展的背景下，如何科学、高效开展全球碳排放核算至关重要，备受关注。 4月8日，全球首个覆盖生产端、消费端及自然源的全景式碳排放核算系统——“磐石·禹衡碳核算大模型”(“磐石·禹衡”大模型)在上海正式发布，标志着中国在全球碳排放核算领域取得重大技术突破。 数据算法算力三层支撑 “磐石·禹衡”大
 
 ## 正文
 
-发布时间：2026年06月04日 09:09 来源：央视新闻 责任编辑：【李骏】
+中新网北京4月8日电 (记者 孙自法)在气候变化正深刻重塑地球生态环境、广泛影响人类社会发展的背景下，如何科学、高效开展全球碳排放核算至关重要，备受关注。
+
+4月8日，全球首个覆盖生产端、消费端及自然源的全景式碳排放核算系统——“磐石·禹衡碳核算大模型”(“磐石·禹衡”大模型)在上海正式发布，标志着中国在全球碳排放核算领域取得重大技术突破。
+
+数据算法算力三层支撑 “磐石·禹衡”大模型由中国科学院上海高等研究院牵头打造，旨在破解传统碳核算面临的知识壁垒高、数据处理难、周期长、分辨率低等瓶颈问题，通过生成式人工智能(AI)重构碳核算领域范式，动态刻画全球碳流动与碳溯源，全面提升中国在全球气候治理中的科技话语权。
+
+以中国科学院此前牵头开发的“磐石·科学基础大模型”为基座，“磐石·禹衡”大模型在技术架构上构建了数据、算法、算力三层支撑体系。
+
+数据层以研究团队构建的八类自主数据集为核心，并通过与部门、行业的协同对接，实现数据高频更新与融合。
+
+算法层以自主研发的多口径碳核算方法学为核心，开发了基于大语言模型的碳核算垂直领域智能体并实现多智能体协作，确保核算的完整性和精确性。
+
+算力层通过构建高性能内部服务器集群并与外部算力中心协同，实现算力资源的全局优化与弹性供给。
+
+据了解，“磐石·禹衡”之名，“磐石”来自坚如磐石的科学之基，“禹”源于“大禹治水”的远古东方智慧，“衡”则取其公平公正之意。
 
 ## 相关推荐
 
-- 2026-06-30 00:05 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 00:03 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 23:43 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 23:39 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 23:53 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 23:37 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 23:49 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 23:44 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 23:40 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 23:55 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 23:46 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 23:50 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 23:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 00:06 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 23:42 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 00:03 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 23:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 23:53 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 23:57 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 23:50 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 23:57 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-30 00:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:51 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/13299449844.shtml)
-- 2026-06-29 23:58 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/181907976179.shtml)
-- 2026-06-29 23:58 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/27911072709.shtml)
-- 2026-06-29 23:51 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/006113.shtml)
-- 2026-06-29 23:46 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/0850784945.shtml)
-- 2026-06-29 23:38 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/90306665507.shtml)
-- 2026-06-29 23:57 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/4900048798.shtml)
-- 2026-06-29 23:41 - [东方风云榜直播](https://www.share.minike.top/Article/details/50472246.shtml)
-- 2026-06-30 00:01 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/135993730.shtml)
-- 2026-06-29 23:43 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/7654042.shtml)
-- 2026-06-29 23:58 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/13267.shtml)
-- 2026-06-29 23:46 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/673195281.shtml)
-- 2026-06-29 23:59 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/746779405514.shtml)
-- 2026-06-29 23:49 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/96131989137.shtml)
-- 2026-06-29 23:40 - [天道](http://www.share.kurohicncr.top/Article/details/4516170.shtml)
+- 2026-06-30 00:08 - [新官上任三把火](https://www.share.minike.top/Article/details/6022490.shtml)
+- 2026-06-30 00:01 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/407974.shtml)
+- 2026-06-30 00:01 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/77335.shtml)
+- 2026-06-30 00:09 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/4057902.shtml)
+- 2026-06-29 23:43 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/989575.shtml)
+- 2026-06-30 00:08 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/3252194.shtml)
+- 2026-06-30 00:06 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/859153755.shtml)
+- 2026-06-30 00:11 - [月亮](https://www.blog.kurohicncr.top/Article/details/3248525.shtml)
+- 2026-06-30 00:07 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/713978.shtml)
+- 2026-06-29 23:46 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/48454155350.shtml)
+- 2026-06-29 23:55 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/11236977803.shtml)
+- 2026-06-29 23:52 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/49074220243.shtml)
+- 2026-06-29 23:56 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/6784624.shtml)
+- 2026-06-29 23:51 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/487595.shtml)
+- 2026-06-30 00:02 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/1075751243.shtml)

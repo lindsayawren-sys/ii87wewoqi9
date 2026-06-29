@@ -1,49 +1,60 @@
-# 特朗普签署行政令阻止“威胁性”商品进口
+# 燃油价格上涨，达美航空上调行李托运费
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-美国海关与边境保护局局长Rodney Scott称，美国总统特朗普签署了一项关于海关执法的行政令，旨在阻止具有威胁性的产品进入美国。 Scott在白宫的签署仪式上发表讲话。 Scott说：“我们将开始追究贸易方面把威胁性物品和威胁性产品带入我国的责任，就像我们在边境其他方面所做的那样”。责任编辑：丁文武
+达美航空宣布，首件及第二件托运行李费用各上调 10 美元 简要摘要 受航空燃油价格飙升影响，达美航空将上调国内航线及部分短途国际航线的托运行李费，新规于周三生效。 达美航空将上调国内航线及部分短途国际航线的托运行李费用，此举是航司为抵消伊朗战争引发的航空燃油成本暴涨而采取的措施。 达美航空周二宣布，首件及第二件托运行李费用各增加 10 美元，第三件托运行李费用则上调 50 美元
 
 ## 正文
 
-美国海关与边境保护局局长Rodney Scott称，美国总统特朗普签署了一项关于海关执法的行政令，旨在阻止具有威胁性的产品进入美国。
+达美航空宣布，首件及第二件托运行李费用各上调 10 美元 简要摘要 受航空燃油价格飙升影响，达美航空将上调国内航线及部分短途国际航线的托运行李费，新规于周三生效。
 
-Scott在白宫的签署仪式上发表讲话。
+达美航空将上调国内航线及部分短途国际航线的托运行李费用，此举是航司为抵消伊朗战争引发的航空燃油成本暴涨而采取的措施。
 
-Scott说：“我们将开始追究贸易方面把威胁性物品和威胁性产品带入我国的责任，就像我们在边境其他方面所做的那样”。
+达美航空周二宣布，首件及第二件托运行李费用各增加 10 美元，第三件托运行李费用则上调 50 美元。
 
-责任编辑：丁文武
+此次涨价将于周三生效，调整后首件托运行李费为 45 美元，第二件 55 美元，第三件 200 美元。
+
+达美航空一位发言人表示：“这些调整是公司持续评估全业务线定价的结果，也反映了全球形势变化与行业动态带来的影响。
+
+” 与达美常旅客计划、高端票价及联名信用卡绑定的托运行李权益保持不变。
+
+公司同时表示，长途国际航线的行李费不作调整。
+
+此次涨价前，其他航司已采取类似举措：上调票价、增收行李费、削减航线，以覆盖急剧攀升的航空燃油成本 —— 燃油也是航司最大的成本支出之一。
 
 ## 相关推荐
 
-- 2026-06-29 23:41 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-29 23:59 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 23:43 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 23:58 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 23:42 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 23:40 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 23:54 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 23:44 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 23:56 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 23:57 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 23:46 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 00:07 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 00:10 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 23:42 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 23:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 23:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 00:06 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 23:58 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 23:48 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 23:57 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 23:56 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 23:45 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 00:02 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 23:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 23:48 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:45 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/4104367.shtml)
-- 2026-06-29 23:55 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/9226188413.shtml)
-- 2026-06-29 23:40 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/79858457729.shtml)
-- 2026-06-29 23:45 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/72476.shtml)
-- 2026-06-29 23:49 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/50056286.shtml)
-- 2026-06-29 23:53 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/120989.shtml)
-- 2026-06-30 00:03 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/26259121.shtml)
-- 2026-06-29 23:48 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/80858381.shtml)
-- 2026-06-29 23:41 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/45617694.shtml)
-- 2026-06-30 00:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/51226816552.shtml)
-- 2026-06-30 00:00 - [毒液2](http://www.share.minike.top/Article/details/747911.shtml)
-- 2026-06-29 23:38 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/841394233044.shtml)
-- 2026-06-30 00:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/536822082.shtml)
-- 2026-06-30 00:00 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/55664391.shtml)
-- 2026-06-29 23:47 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/632474191.shtml)
+- 2026-06-29 23:56 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/146447.shtml)
+- 2026-06-30 00:04 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/106595.shtml)
+- 2026-06-29 23:43 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/949463374777.shtml)
+- 2026-06-29 23:43 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/1231773.shtml)
+- 2026-06-30 00:02 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/870799180.shtml)
+- 2026-06-30 00:03 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/862725856848.shtml)
+- 2026-06-30 00:00 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/159964.shtml)
+- 2026-06-30 00:08 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/861713724.shtml)
+- 2026-06-30 00:10 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/95531335.shtml)
+- 2026-06-29 23:59 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/439880401.shtml)
+- 2026-06-30 00:10 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/4752243.shtml)
+- 2026-06-29 23:55 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/668003728.shtml)
+- 2026-06-29 23:44 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/414221608.shtml)
+- 2026-06-30 00:07 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/531302.shtml)
+- 2026-06-30 00:05 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/109763962.shtml)

@@ -1,61 +1,58 @@
-# 侧记：欧美同学会，百年不变的报国赤子心
+# 停火协议生效后，美国两大海湾盟友仍称遭伊朗袭击
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-中新网北京6月3日电 题：侧记：欧美同学会，百年不变的报国赤子心 中新网记者 朱延静 百年沧海桑田，从北京到全国，从中国到世界，有一个名字仍然响亮。 1913年，詹天佑、蔡元培等知名海归留学生在北京发起成立欧美同学会。113年后，这家“百年老店”正站在新的历史节点上。 6月2日，欧美同学会(中国留学人员联谊会)第二次全国会员代表大会刚刚在北京落幕，来自五湖四海的留学人员代表齐聚
+两个与美国结盟的阿拉伯国家表示，尽管伊朗已签署停火协议，但今晨仍遭到伊朗无人机与导弹袭击。 科威特军方称，伊朗无人机对科威特发动袭击，对石油设施、发电站及海水淡化厂造成重大物资损失。阿联酋国防部则表示，防空部队正在 “拦截来自伊朗的导弹与无人机袭击”。 伊朗官方媒体援引伊朗国家炼油与分销公司的声明报道，此次袭击是为报复针对伊朗能源基础设施的打击，声明称伊朗拉万岛的炼油设施 “遭
 
 ## 正文
 
-中新网北京6月3日电 题：侧记：欧美同学会，百年不变的报国赤子心 中新网记者 朱延静 百年沧海桑田，从北京到全国，从中国到世界，有一个名字仍然响亮。
+两个与美国结盟的阿拉伯国家表示，尽管伊朗已签署停火协议，但今晨仍遭到伊朗无人机与导弹袭击。
 
-1913年，詹天佑、蔡元培等知名海归留学生在北京发起成立欧美同学会。
+科威特军方称，伊朗无人机对科威特发动袭击，对石油设施、发电站及海水淡化厂造成重大物资损失。
 
-113年后，这家“百年老店”正站在新的历史节点上。
+阿联酋国防部则表示，防空部队正在 “拦截来自伊朗的导弹与无人机袭击”。
 
-6月2日，欧美同学会(中国留学人员联谊会)第二次全国会员代表大会刚刚在北京落幕，来自五湖四海的留学人员代表齐聚一堂，共同探讨传承与创新。
+伊朗官方媒体援引伊朗国家炼油与分销公司的声明报道，此次袭击是为报复针对伊朗能源基础设施的打击，声明称伊朗拉万岛的炼油设施 “遭到敌人卑鄙袭击”。
 
-“不变”的是根植于心的报国初心 从詹天佑、蔡元培到钱学森、郭永怀，一代代留学人员把个人理想融入国家民族的事业中…… “无论身在何处，欧美同学会最重要的底色就是爱国。
+声明并未明确所指的敌人是谁，但此前美国与以色列已对伊朗关键基础设施发动多轮打击。
 
-”在大会分组讨论上，中国科学院大学特聘教授、欧美同学会留加分会会长吴德胜的发言引发共鸣。
+过去一小时内，伊朗革命卫队表示将遵守停火协议，但同时警告美国 “他们的手指仍扣在扳机上”。
 
-他说，当今地缘政治风云诡谲、科技革命加速演进，留学人员的思潮在变，“但只要坚守爱国底色，我们的工作就有迹可循”。
+据信，革命卫队在此次冲突中基本处于独立行动状态。
 
-这份传承，在西北工业大学得到了生动体现。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 23:56 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 23:47 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 23:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 00:01 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-30 00:05 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 23:39 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 23:44 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 23:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 23:53 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 23:58 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 23:58 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 23:52 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 23:39 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 23:46 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 23:52 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 00:09 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 00:10 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 00:03 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 00:11 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 00:11 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 00:04 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 23:56 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 00:07 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 00:02 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 23:51 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 23:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 00:06 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/502573062.shtml)
-- 2026-06-29 23:43 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/1614189000.shtml)
-- 2026-06-29 23:44 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/772207.shtml)
-- 2026-06-29 23:36 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/53578782.shtml)
-- 2026-06-29 23:36 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/1461109381.shtml)
-- 2026-06-30 00:03 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/07561721.shtml)
-- 2026-06-29 23:45 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/3094254470.shtml)
-- 2026-06-29 23:44 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/782293980379.shtml)
-- 2026-06-29 23:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/662234603.shtml)
-- 2026-06-30 00:04 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/1892806.shtml)
-- 2026-06-30 00:05 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/58471.shtml)
-- 2026-06-29 23:36 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/2047999.shtml)
-- 2026-06-29 23:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/248611.shtml)
-- 2026-06-30 00:05 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/5605975840.shtml)
-- 2026-06-30 00:01 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/0417065.shtml)
+- 2026-06-30 00:03 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/9752340.shtml)
+- 2026-06-30 00:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/176005981299.shtml)
+- 2026-06-29 23:47 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/484524370.shtml)
+- 2026-06-30 00:10 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/50524850978.shtml)
+- 2026-06-29 23:54 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/530624.shtml)
+- 2026-06-30 00:02 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/164913.shtml)
+- 2026-06-29 23:51 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/38915413.shtml)
+- 2026-06-30 00:01 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/2235312271.shtml)
+- 2026-06-29 23:53 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/4053245.shtml)
+- 2026-06-29 23:58 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/216900.shtml)
+- 2026-06-30 00:08 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/497739964.shtml)
+- 2026-06-29 23:42 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/2783854472.shtml)
+- 2026-06-29 23:53 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/24844486015.shtml)
+- 2026-06-29 23:58 - [时光音乐会](https://www.share.minike.top/Article/details/093272049527.shtml)
+- 2026-06-30 00:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/373138500.shtml)

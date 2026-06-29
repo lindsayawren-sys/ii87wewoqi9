@@ -1,58 +1,58 @@
-# 股价闪崩，300085火速回应
+# 鸣鸣很忙发布上市后首份业绩：经营稳健，高质量增长
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月3日午后，银之杰（300085）股价突然跳水，盘中一度跌超19%，最低报33.56元/股。截至收盘，银之杰报35.13元/股，跌15.51%。 银之杰股价闪崩，或是受到一则小作文影响。 当日，一则有关“银之杰被立案调查了，财务造假可能性大，估计收盘发公告”的小作文在股吧等平台流传。 对此，上证报记者致电
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年3月31日，中国最大的休闲食品饮料连锁零售商鸣鸣很忙（股票代码：01768.HK）发布2025年度业绩公告。数据显示，2025年门店商品交易总额（GMV）达935.69亿元，同比增长68.5%；公司实现营业收入661.70亿元，同比增长68.2%，实现净利润23.29亿元，同比增长180.9%，实
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-6月3日午后，银之杰（300085）股价突然跳水，盘中一度跌超19%，最低报33.56元/股。
+2026年3月31日，中国最大的休闲食品饮料连锁零售商鸣鸣很忙（股票代码：01768.HK）发布2025年度业绩公告。
 
-截至收盘，银之杰报35.13元/股，跌15.51%。
+数据显示，2025年门店商品交易总额（GMV）达935.69亿元，同比增长68.5%；公司实现营业收入661.70亿元，同比增长68.2%，实现净利润23.29亿元，同比增长180.9%，实现经调整净利润26.92亿元，同比增长194.9%。
 
-银之杰股价闪崩，或是受到一则小作文影响。
+截至2025年末，公司旗下“零食很忙”“赵一鸣零食”门店总数达21，948家，覆盖全国30个省份及所有城市等级。
 
-当日，一则有关“银之杰被立案调查了，财务造假可能性大，估计收盘发公告”的小作文在股吧等平台流传。
+作为港股上市后的首份年度业绩，鸣鸣很忙集团2025年稳健经营与高质量增长并进。
 
-对此，上证报记者致电银之杰董秘刘奕求证。
+公告显示，公司盈利能力进一步增强，毛利率提升至9.8%，经调净利率提升至4.1%，反映出经营结构的持续优化。
 
-刘奕回应称：“这个传言不实，目前公司经营一切正常，并没有收到被立案调查的相关通知。
+截至期末，货币资金同比增长93.0%至37.44亿元，为业务发展提供了稳固资金支撑。
 
-” 作者：孔令仪 责任编辑：杨红卜
+业绩的稳健增长，源于大众市场坚实的日常消费需求与公司运营效率的持续提升。
 
 ## 相关推荐
 
-- 2026-06-30 00:05 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 23:39 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 00:04 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 23:39 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 23:45 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 00:00 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 00:05 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 23:56 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 00:05 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 23:53 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 00:02 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 00:04 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 00:11 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 00:03 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 23:55 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 23:59 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 23:47 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 00:04 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 00:09 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 00:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 00:10 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 23:51 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 23:55 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 23:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/23380818189.shtml)
-- 2026-06-29 23:43 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/396722000573.shtml)
-- 2026-06-30 00:01 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/776750658.shtml)
-- 2026-06-30 00:00 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/103899983111.shtml)
-- 2026-06-29 23:39 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/688864552429.shtml)
-- 2026-06-29 23:39 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/0354378755.shtml)
-- 2026-06-30 00:04 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/3291232217.shtml)
-- 2026-06-29 23:53 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/663191404717.shtml)
-- 2026-06-29 23:59 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/4072981250.shtml)
-- 2026-06-29 23:39 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/17240115421.shtml)
-- 2026-06-29 23:44 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/38830123.shtml)
-- 2026-06-29 23:59 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/06985598.shtml)
-- 2026-06-30 00:05 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/835343.shtml)
-- 2026-06-30 00:02 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/8419456.shtml)
-- 2026-06-29 23:40 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/851297707111.shtml)
+- 2026-06-29 23:54 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/080750.shtml)
+- 2026-06-29 23:50 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/2748207172.shtml)
+- 2026-06-30 00:04 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/285578508693.shtml)
+- 2026-06-29 23:50 - [千香](http://www.blog.minike.top/Article/details/029047037.shtml)
+- 2026-06-29 23:43 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/95752691.shtml)
+- 2026-06-30 00:11 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/827490355.shtml)
+- 2026-06-30 00:01 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/60842559996.shtml)
+- 2026-06-30 00:05 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/201809.shtml)
+- 2026-06-30 00:07 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/172788.shtml)
+- 2026-06-29 23:43 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/7606781.shtml)
+- 2026-06-29 23:51 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/5141062.shtml)
+- 2026-06-29 23:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/046390.shtml)
+- 2026-06-29 23:44 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/413433337.shtml)
+- 2026-06-30 00:10 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/928440696.shtml)
+- 2026-06-29 23:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/3971599.shtml)

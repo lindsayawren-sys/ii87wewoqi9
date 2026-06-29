@@ -1,60 +1,57 @@
-# 2026穗港澳青少年文化交流季正式启动
+# 油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-中新网广州6月3日电 (记者 程景伟)2026穗港澳青少年文化交流季3日在广州购书中心正式启动。 当天，来自广州市中黄港澳子弟学校的100余名学生率先踏上“城脉”主题研学之旅，前往广州艺博院品味艺术珍品。在随后的交流季启动仪式上，他们以精品舞蹈《梦回花旦》惊艳亮相，将传统粤剧身段与现代表达巧妙融合，生动诠释港澳新生代对岭南文化的传承与创新。 现场同步点亮“文化之扇”主题装置，象
+油价在涨跌之间震荡，美国总统唐纳德·特朗普对伊朗设定最后期限，要求其重新开放霍尔木兹海峡，否则将摧毁伊朗的关键基础设施。 布伦特原油在每桶110美元附近波动，WTI油价则有所走高。特朗普周一表示，与伊朗的谈判“进展顺利”，同时明确指出，如果伊朗未能在周二东部时间晚8点截止期限前达成协议，该国将面临的后果。 欧洲交易日伊始，市场走势显示投资者对冲突缓和的预期一度有所升温，原油期货
 
 ## 正文
 
-中新网广州6月3日电 (记者 程景伟)2026穗港澳青少年文化交流季3日在广州购书中心正式启动。
+油价在涨跌之间震荡，美国总统唐纳德·特朗普对伊朗设定最后期限，要求其重新开放霍尔木兹海峡，否则将摧毁伊朗的关键基础设施。
 
-当天，来自广州市中黄港澳子弟学校的100余名学生率先踏上“城脉”主题研学之旅，前往广州艺博院品味艺术珍品。
+布伦特原油在每桶110美元附近波动，WTI油价则有所走高。
 
-在随后的交流季启动仪式上，他们以精品舞蹈《梦回花旦》惊艳亮相，将传统粤剧身段与现代表达巧妙融合，生动诠释港澳新生代对岭南文化的传承与创新。
+特朗普周一表示，与伊朗的谈判“进展顺利”，同时明确指出，如果伊朗未能在周二东部时间晚8点截止期限前达成协议，该国将面临的后果。
 
-现场同步点亮“文化之扇”主题装置，象征三地文化同源、心意相连，并正式发布“城脉、商脉、文脉、山脉、水脉”五条主题研学路线。
+欧洲交易日伊始，市场走势显示投资者对冲突缓和的预期一度有所升温，原油期货回吐了早盘涨幅。
 
-“城脉”路线当天率先启动，其余四条路线则将于6月至10月陆续组织实施，每条路线均配备专业讲解及非遗手作体验活动。
+随后，伊朗半官方的迈赫尔通讯社报道称，该国主要石油出口码头所在地哈尔克岛传出爆炸声，油价随即飙升。
 
-系列城市主题手绘图书《老广新游》主创王大欣带来“图解广府文化”专题讲座，从多元视角帮助港澳青少年深入理解岭南历史与广府文脉。
+该报道未说明岛上具体哪些目标遭到袭击。
 
-据介绍，本届交流季以名家讲座与主题研学活动为两大核心板块，面向穗港澳三地青少年系统展开。
+特朗普表示，美军可以在“明晚12点前摧毁伊朗所有桥梁”。
 
-其中，名家讲座围绕“文学共鸣·文化认同”主线，内容涵盖岭南历史、饮食文化、城市记忆、非遗传承及儿童文学等多元领域，助力穗港澳学子在倾听中读懂岭南。
+他还威胁称，发电厂将会“燃烧、爆炸，再也无法使用”。
 
 ## 相关推荐
 
-- 2026-06-29 23:57 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 23:55 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 23:54 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 23:36 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 00:01 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 23:41 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 23:45 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 23:36 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 00:01 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 23:37 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 23:55 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 23:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 00:01 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 23:44 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 23:46 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 00:11 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 23:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 23:58 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 00:09 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 23:55 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 23:58 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 00:11 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 00:00 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 00:02 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 23:59 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/478908.shtml)
-- 2026-06-30 00:03 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/675259654009.shtml)
-- 2026-06-29 23:41 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/141347014.shtml)
-- 2026-06-30 00:04 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/4335559992.shtml)
-- 2026-06-29 23:55 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/888600443890.shtml)
-- 2026-06-29 23:38 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/0223610.shtml)
-- 2026-06-29 23:57 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/165931.shtml)
-- 2026-06-29 23:51 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/32819.shtml)
-- 2026-06-29 23:57 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/0057228699.shtml)
-- 2026-06-30 00:05 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/773822785910.shtml)
-- 2026-06-29 23:50 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/59670211697.shtml)
-- 2026-06-29 23:39 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/37250557.shtml)
-- 2026-06-29 23:42 - [张凌赫 客串](http://www.blog.minike.top/Article/details/305226918602.shtml)
-- 2026-06-30 00:02 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/4611163.shtml)
-- 2026-06-29 23:41 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/5173287851.shtml)
+- 2026-06-30 00:04 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/308121035474.shtml)
+- 2026-06-29 23:42 - [一生一世](http://www.blog.minike.top/Article/details/43627.shtml)
+- 2026-06-30 00:11 - [男子称在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/299591.shtml)
+- 2026-06-29 23:49 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/08201110.shtml)
+- 2026-06-29 23:45 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/206648.shtml)
+- 2026-06-29 23:46 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/1930317.shtml)
+- 2026-06-29 23:47 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/02697996.shtml)
+- 2026-06-29 23:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/25393170.shtml)
+- 2026-06-29 23:58 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/77728301832.shtml)
+- 2026-06-29 23:50 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/967210305.shtml)
+- 2026-06-29 23:47 - [金刚川](https://www.blog.minike.top/Article/details/641967.shtml)
+- 2026-06-29 23:54 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/716147779.shtml)
+- 2026-06-30 00:08 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/45220262.shtml)
+- 2026-06-30 00:11 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/16069.shtml)
+- 2026-06-30 00:11 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/51368.shtml)

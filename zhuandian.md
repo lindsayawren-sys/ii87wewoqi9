@@ -1,56 +1,59 @@
-# 郑商所增设指定尿素交割厂库及提货点
+# 博时市场点评4月7日：两市震荡上涨，成交持续缩量
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-关于增设指定尿素交割厂库及提货点的公告 〔2026〕82号 根据企业申请，经研究决定，增设安徽泉盛化工有限公司为指定尿素交割厂库，增设成都云图控股股份有限公司指定尿素交割厂库提货点；自本公告发布之日起开展尿素期货业务。相关信息如下。 一、交割厂库具体信息 厂库名称：安徽泉盛化工有限公司 厂库简称：泉盛化工 厂库代码：2035 厂库地址：安徽省定远县炉桥镇盐化工业园区中能大道 联
+🌟【博时市场点评4月7日】两市震荡上涨，成交持续缩量 📝每日观点 🎈今日沪深三大指数震荡收涨，两市成交较上周五继续缩量至1.62万亿。从基本面看，国内3月PMI指标重返扩展区间，供需指标均有所上行，显示经济景气度在春节后季节性回升的基础上，叠加政策发力，实现了超季节性的改善，后续需关注原材料价格大幅上行对中下游企业利润的挤压程度，以及价格能否向下游传导。海外方面，美国3月新增非
 
 ## 正文
 
-关于增设指定尿素交割厂库及提货点的公告 〔2026〕82号 根据企业申请，经研究决定，增设安徽泉盛化工有限公司为指定尿素交割厂库，增设成都云图控股股份有限公司指定尿素交割厂库提货点；自本公告发布之日起开展尿素期货业务。
+🌟【博时市场点评4月7日】两市震荡上涨，成交持续缩量 📝每日观点 🎈今日沪深三大指数震荡收涨，两市成交较上周五继续缩量至1.62万亿。
 
-相关信息如下。
+从基本面看，国内3月PMI指标重返扩展区间，供需指标均有所上行，显示经济景气度在春节后季节性回升的基础上，叠加政策发力，实现了超季节性的改善，后续需关注原材料价格大幅上行对中下游企业利润的挤压程度，以及价格能否向下游传导。
 
-一、交割厂库具体信息 厂库名称：安徽泉盛化工有限公司 厂库简称：泉盛化工 厂库代码：2035 厂库地址：安徽省定远县炉桥镇盐化工业园区中能大道 联 系 人：许聪 联系电话：17505506866 日最低发货量：1000吨/天 升 贴 水：0元/吨 二、交割提货点具体信息 成都云图控股股份有限公司的厂库简称、厂库代码、联系人保持不变。
+海外方面，美国3月新增非农就业高于预期，失业率也超预期回落，由于统计变化使得1-3月非农就业数据波动较大，但从均值来看仍较去年四季度有所好转，整体仍有韧性，后续受到高油价对增长的拖累，就业市场中枢或有所回落。
 
-新增提货点：湖北省应城市城中办事处古盐大道以南、大智路以北（应城市新都化工有限责任公司），双方另有约定的除外。
+近期扰动全球市场的美伊冲突仍有不确定性，由此引发的类滞胀交易仍然难以消散。
 
-日最低发货量：1500吨/天 升 贴 水：0元/吨 特此公告。
+短期防御策略或仍是较好选择，权益上或可考虑红利低波+确定性成长的配置。
 
-郑州商品交易所 2026年6月4日责任编辑：李铁民
+在中长期视角下，地缘冲突反复可能加速全球资本对安全资产的配置需求，国内更好的安全环境和基本面的逐步向好或吸引跨境资本布局。
+
+🔥消息面 🎈4月6日，交通运输部数据显示，清明假期（4月4日至6日），全社会跨区域人员流动量预计84537.8万人次，日均28179万人次，同比增长6%。
+
+铁路、公路、民航首日客运量均超历史同期峰值。
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 23:47 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 23:50 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-30 00:04 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 23:56 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 23:59 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 23:38 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 23:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 23:49 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 23:56 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 23:57 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 23:52 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 23:50 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 00:00 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 00:07 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 00:08 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 23:52 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 23:59 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 23:57 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 23:48 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 23:57 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 23:56 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 00:09 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 23:52 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 00:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 23:47 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 00:10 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:04 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/25888302.shtml)
-- 2026-06-29 23:52 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/230160.shtml)
-- 2026-06-29 23:58 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/280432946.shtml)
-- 2026-06-30 00:02 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/1604979199.shtml)
-- 2026-06-29 23:43 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/8663869306.shtml)
-- 2026-06-29 23:40 - [流金岁月](http://www.blog.minike.top/Article/details/2744603.shtml)
-- 2026-06-29 23:37 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/0248854550.shtml)
-- 2026-06-29 23:42 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/2660347.shtml)
-- 2026-06-30 00:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/9941673112.shtml)
-- 2026-06-29 23:55 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/6217485.shtml)
-- 2026-06-30 00:00 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/33486.shtml)
-- 2026-06-29 23:50 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/42727.shtml)
-- 2026-06-29 23:56 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/094215.shtml)
-- 2026-06-29 23:45 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/31551.shtml)
-- 2026-06-29 23:41 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/9146424.shtml)
+- 2026-06-29 23:48 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/687331034.shtml)
+- 2026-06-30 00:06 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/32417811.shtml)
+- 2026-06-30 00:02 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/18332.shtml)
+- 2026-06-29 23:49 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/548868019163.shtml)
+- 2026-06-29 23:43 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/894931052939.shtml)
+- 2026-06-30 00:11 - [美股](https://www.blog.minike.top/Article/details/935022.shtml)
+- 2026-06-30 00:01 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/0094240.shtml)
+- 2026-06-29 23:50 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/173232037100.shtml)
+- 2026-06-30 00:04 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/03092.shtml)
+- 2026-06-30 00:02 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/18493.shtml)
+- 2026-06-29 23:46 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/980449243790.shtml)
+- 2026-06-29 23:56 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/01641050.shtml)
+- 2026-06-30 00:06 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/15982.shtml)
+- 2026-06-29 23:54 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/928759313.shtml)
+- 2026-06-29 23:48 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/18911216.shtml)

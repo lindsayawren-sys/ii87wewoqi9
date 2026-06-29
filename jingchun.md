@@ -1,58 +1,56 @@
-# 挪威石油工人计划举行罢工 或将冲击国际能源市场
+# 6年3次夺冠！南方基金投资猛人刘文良14年磨一剑
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-挪威石油和天然气领域三大工会日前宣布，因薪酬谈判破裂，近8%的挪威油气行业工人计划自当地时间6月5日起举行罢工。挪威离岸工业协会（Offshore Norway）3日警告称，罢工初期预计将导致挪威石油和天然气日产量减少约4.55万桶油当量，约占该国总产量的1%以上。 据了解，此次参与罢工的工会包括Safe、Styrke和Lederne，共拥有约8100名油气生产会员。若由国家主
+来源：资市会 “可转债的盾+景气成长的矛”。 作者 | 资市分子 2025年以来，A股市场波动上行，结构性分化日益明显，叠加债市转入震荡的环境，可转债基金兼具稳健与弹性特性，凭借亮眼表现，逐步打破投资者对债券型基金收益偏低的传统认知。 2025年，南方昌元可转债、民生加银增强收益和博时转债增强分别居前三名，其表现较不少主动权益类基金还出色。 翻开冠军产品南方昌元可转债基金经理的
 
 ## 正文
 
-挪威石油和天然气领域三大工会日前宣布，因薪酬谈判破裂，近8%的挪威油气行业工人计划自当地时间6月5日起举行罢工。
+来源：资市会 “可转债的盾+景气成长的矛”。
 
-挪威离岸工业协会（Offshore Norway）3日警告称，罢工初期预计将导致挪威石油和天然气日产量减少约4.55万桶油当量，约占该国总产量的1%以上。
+作者 | 资市分子 2025年以来，A股市场波动上行，结构性分化日益明显，叠加债市转入震荡的环境，可转债基金兼具稳健与弹性特性，凭借亮眼表现，逐步打破投资者对债券型基金收益偏低的传统认知。
 
-据了解，此次参与罢工的工会包括Safe、Styrke和Lederne，共拥有约8100名油气生产会员。
+2025年，南方昌元可转债、民生加银增强收益和博时转债增强分别居前三名，其表现较不少主动权益类基金还出色。
 
-若由国家主持的薪酬调解在未来几天内仍未能达成协议，首批约600名关键岗位的工人将率先离岗，且工会保留后续扩大罢工规模的权利。
+翻开冠军产品南方昌元可转债基金经理的业绩，可谓战绩显赫。
 
-工会方面强调，其会员在海上钻井平台上担任核心职务，罢工将对油气生产产生广泛而深远的影响。
+过去六年，他所管理的可转债基金3次夺得同类产品年度冠军。
 
-此次罢工范围涵盖埃克菲斯克（Ekofisk 2/4 K）、斯塔特福约德（Statfjord A）、乌拉（Ula）、德劳根（Draugen）以及奥塞贝格（Oseberg B、C、East）等多个重要油气田及平台，涉及挪威国家石油公司（Equinor）、阿克BP（Aker BP）、Okea和康菲石油（ConocoPhillips）等主要能源运营商。
+突出的阿尔法获取能力，让刘文良成为当前市场上兼具专业深度与实战成效的稀缺型可转债投资业界翘楚。
 
-目前，工会正寻求高于通胀率的加薪幅度并要求修改合同条款，但尚未公布具体诉求细节。
+他的成功背后，是14年磨一剑锤炼出的深厚功底与投研体系。
 
-市场分析指出，挪威目前油气日产量超过400万桶油当量（原油与天然气产量几乎各占一半）。
+01 深耕领域14年 刘文良为北京大学金融学硕士，2012年7月加入南方基金，从固定收益部转债研究员、宏观研究员、信用分析师逐步成长，2016年起正式担任基金经理，至今深耕固收+领域14年，是南方基金内部培养的资深投研人才。
 
 ## 相关推荐
 
-- 2026-06-29 23:54 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 23:58 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 23:50 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 00:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 23:50 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 23:52 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 23:54 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 23:47 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 23:54 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 00:06 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 23:46 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 23:56 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 23:48 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 23:45 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 00:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 23:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 23:50 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 00:07 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 23:48 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 00:06 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 23:52 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 23:50 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:51 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/71547059.shtml)
-- 2026-06-29 23:59 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/90966321.shtml)
-- 2026-06-29 23:42 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/3560749376.shtml)
-- 2026-06-29 23:58 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/5159085328.shtml)
-- 2026-06-29 23:56 - [85花告别古偶](https://www.share.minike.top/Article/details/7712949.shtml)
-- 2026-06-30 00:01 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/098131.shtml)
-- 2026-06-29 23:44 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/423814.shtml)
-- 2026-06-29 23:36 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/92848804255.shtml)
-- 2026-06-29 23:47 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/1510435649.shtml)
-- 2026-06-29 23:58 - [第一炉香](http://www.share.kurohicncr.top/Article/details/24575807.shtml)
-- 2026-06-29 23:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/945313423.shtml)
-- 2026-06-29 23:52 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/53579253638.shtml)
-- 2026-06-29 23:43 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/48249.shtml)
-- 2026-06-30 00:01 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/097248.shtml)
-- 2026-06-29 23:37 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/7594998.shtml)
+- 2026-06-30 00:03 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/001310793.shtml)
+- 2026-06-29 23:45 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/0793468.shtml)
+- 2026-06-29 23:49 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/4639092096.shtml)
+- 2026-06-29 23:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/4383188.shtml)
+- 2026-06-29 23:44 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/141860256994.shtml)
+- 2026-06-29 23:57 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/58676535.shtml)
+- 2026-06-29 23:47 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/980413.shtml)
+- 2026-06-29 23:45 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/7260121343.shtml)
+- 2026-06-30 00:11 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/4157899257.shtml)
+- 2026-06-29 23:54 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/0107966.shtml)
+- 2026-06-29 23:47 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/207409.shtml)
+- 2026-06-29 23:44 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/266836386628.shtml)
+- 2026-06-29 23:53 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/4829779.shtml)
+- 2026-06-29 23:58 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/7005601278.shtml)
+- 2026-06-30 00:09 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/726222570.shtml)

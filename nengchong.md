@@ -1,61 +1,56 @@
-# 港股5月回购透视：合计回购220亿港元 京东健康、药明康德等年内首度回购
+# 天孚通信公布2025年度分配预案：拟10转增4派7元（含税）
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-转自：新华财经 新华财经北京6月5日电 新华财经和面包财经研究员梳理的公开资料显示，2026年5月港股有136家上市公司发起回购，累计回购14.12亿股，回购金额合计达220.14亿港元。 友邦保险、腾讯控股、中国宏桥5月回购金额居于前列。此外，京东健康、药明康德、京东物流等公司于5月首度进行年内回购。 5月回购回溯：友邦保险、腾讯控股、中国宏桥等回购额居前 根据信披数据，20
+4月7日天孚通信发布2025年度分配预案，拟10转增4派7元（含税）。证券时报·数据宝统计显示，公司今日公布了2025年报，共实现营业收入51.63亿元，同比增长58.79%，实现净利润20.17亿元，同比增长50.15%，基本每股收益为2.5958元。资金面上看，该股今日主力资金净流出11.32亿元，近5日主力资金净流出3.40亿元。两融数据显示，该股最新融资余额为80.57
 
 ## 正文
 
-转自：新华财经 新华财经北京6月5日电 新华财经和面包财经研究员梳理的公开资料显示，2026年5月港股有136家上市公司发起回购，累计回购14.12亿股，回购金额合计达220.14亿港元。
+4月7日天孚通信发布2025年度分配预案，拟10转增4派7元（含税）。
 
-友邦保险、腾讯控股、中国宏桥5月回购金额居于前列。
+证券时报·数据宝统计显示，公司今日公布了2025年报，共实现营业收入51.63亿元，同比增长58.79%，实现净利润20.17亿元，同比增长50.15%，基本每股收益为2.5958元。
 
-此外，京东健康、药明康德、京东物流等公司于5月首度进行年内回购。
+资金面上看，该股今日主力资金净流出11.32亿元，近5日主力资金净流出3.40亿元。
 
-5月回购回溯：友邦保险、腾讯控股、中国宏桥等回购额居前 根据信披数据，2026年5月港股共有136家上市公司发起回购，累计回购14.12亿股，回购金额合计达220.14亿港元。
+两融数据显示，该股最新融资余额为80.57亿元，近5日增加7.01亿元，增幅为9.53%。
 
-从个股来看，友邦保险、腾讯控股、中国宏桥5月回购金额居于前列。
+截至发稿，共有1027家公司公布了2025年度分配方案，其中分配方案中包含送转的有87只，送转方案公布当日股价上涨的有38只，涨停的有松芝股份、泛微网络（维权）、通达股份（维权）等，方案公布后5日股价上涨的有34只，累计涨幅居前的有通达股份、中润光学、泛微网络等，累计涨幅为35.07%、15.83%、14.41%。
 
-腾讯控股5月回购金额为45.07亿港元，回购数量为1018.6万股，回购最低价为420.4港元/股，最高价为468.6港元/股。
-
-2026年前5月，腾讯控股年内已回购超20次，合计回购超140亿港元。
-
-2026年一季度，腾讯实现营收1964.58亿元，同比增长9%；权益持有人应占盈利580.93亿元，同比增长21%。
+（数据宝）天孚通信上市以来分配方案概览（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-29 23:48 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 23:38 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 23:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 23:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 23:52 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 23:37 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 23:54 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 23:50 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 23:41 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 23:46 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 23:58 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 23:41 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 23:54 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-30 00:02 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 00:04 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 23:55 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 23:49 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 00:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 23:45 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 23:54 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 23:47 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 23:55 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 23:59 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 00:10 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 00:10 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 00:07 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 23:54 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 00:07 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 23:47 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:02 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/6211817078.shtml)
-- 2026-06-29 23:46 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/790268261241.shtml)
-- 2026-06-30 00:03 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/521551.shtml)
-- 2026-06-29 23:38 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/8060804.shtml)
-- 2026-06-29 23:40 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/7922717794.shtml)
-- 2026-06-29 23:55 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/153504.shtml)
-- 2026-06-29 23:47 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/654064.shtml)
-- 2026-06-29 23:38 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/37590247.shtml)
-- 2026-06-29 23:55 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/04559.shtml)
-- 2026-06-30 00:02 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/399340595.shtml)
-- 2026-06-29 23:53 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/02289603465.shtml)
-- 2026-06-30 00:00 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/0072323.shtml)
-- 2026-06-29 23:48 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/13400.shtml)
-- 2026-06-29 23:57 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/40644767.shtml)
-- 2026-06-29 23:44 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/63964934614.shtml)
+- 2026-06-29 23:42 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/44062760989.shtml)
+- 2026-06-29 23:50 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/6643753386.shtml)
+- 2026-06-29 23:52 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/400366.shtml)
+- 2026-06-29 23:57 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/408910035.shtml)
+- 2026-06-29 23:59 - [恋与深空致歉](https://www.share.minike.top/Article/details/5238622.shtml)
+- 2026-06-29 23:48 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/0731459868.shtml)
+- 2026-06-30 00:01 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/38964748.shtml)
+- 2026-06-29 23:57 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/481210.shtml)
+- 2026-06-30 00:01 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/37139.shtml)
+- 2026-06-30 00:07 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/2367993.shtml)
+- 2026-06-30 00:00 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/753698715.shtml)
+- 2026-06-29 23:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/47144.shtml)
+- 2026-06-30 00:09 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/552219994838.shtml)
+- 2026-06-30 00:07 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/470008620.shtml)
+- 2026-06-29 23:58 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/29605.shtml)

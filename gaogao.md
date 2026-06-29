@@ -1,59 +1,56 @@
-# 芒种时节煲一锅泥鳅炖豆腐——小鲜藏至味 苦夏始清补
+# 中东局势缓和，A股大科技集体走强，创业板软件 ETF 富国（159107）盘中涨幅达5.49%
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-芒种时节煲一锅泥鳅炖豆腐——小鲜藏至味 苦夏始清补(食愈24节气) 人民日报海外版记者 王美华 “时雨及芒种，四野皆插秧。”6月5日，当太阳到达黄经75度时，夏天的第三个节气——芒种来到我们身边。 “夜来南风起，小麦覆陇黄”，又到一年麦熟时，遍野金黄，梅熟果香，栀子吐芳，晚稻插秧，丰收与播种在此刻交汇，一幅热烈而丰美的夏日图景正徐徐铺展。麦熟梅黄，收种两忙 芒种一到，仲夏便正式
+今天大科技集体走强，盘中软件开发、消费电子、大数据、互联网等细分方向涨幅居前，截至发稿，创业板软件 ETF 富国（159107）盘中涨幅达5.49%，创业板人工智能ETF富国（159246）盘中涨幅达5.44%，科创AIETF富国（589380）盘中涨幅达4.7%。其中创业板软件 ETF 富国成分股东方国信涨幅超15%，网宿科技涨超9%。 消息面，美伊在巴基斯坦斡旋下达成两周临
 
 ## 正文
 
-芒种时节煲一锅泥鳅炖豆腐——小鲜藏至味 苦夏始清补(食愈24节气) 人民日报海外版记者 王美华 “时雨及芒种，四野皆插秧。
+今天大科技集体走强，盘中软件开发、消费电子、大数据、互联网等细分方向涨幅居前，截至发稿，创业板软件 ETF 富国（159107）盘中涨幅达5.49%，创业板人工智能ETF富国（159246）盘中涨幅达5.44%，科创AIETF富国（589380）盘中涨幅达4.7%。
 
-”6月5日，当太阳到达黄经75度时，夏天的第三个节气——芒种来到我们身边。
+其中创业板软件 ETF 富国成分股东方国信涨幅超15%，网宿科技涨超9%。
 
-“夜来南风起，小麦覆陇黄”，又到一年麦熟时，遍野金黄，梅熟果香，栀子吐芳，晚稻插秧，丰收与播种在此刻交汇，一幅热烈而丰美的夏日图景正徐徐铺展。
+消息面，美伊在巴基斯坦斡旋下达成两周临时停火，局势骤然缓和。
 
-麦熟梅黄，收种两忙 芒种一到，仲夏便正式开始了。
+另据工信部最新发布数据显示，前2个月，信息技术服务收入14474亿元，同比增长13.1%，占全行业收入的67.2%。
 
-首都医科大学附属北京中医医院老年病科副主任医师贾淑红介绍，此时雨量充沛、气温升高、湿度增大，江南、江淮等地陆续进入梅雨季节。
+其中，云计算、大数据服务共实现收入2809亿元，同比增长11.4%，占信息技术服务收入的19.4%；集成电路设计收入636亿元，同比增长15.7%；电子商务平台技术服务收入1793亿元，同比增长10.5%。
 
-“黄梅时节家家雨，青草池塘处处蛙”，绵绵细雨与重重雾霭，构成了江南梅雨季的典型景象。
+机构分析指出，两会首提 “智能经济新形态” 与 “算电协同”，明确 2027 年 AI 与 6 大重点领域融合普及率超 70%，政策催化国产算力与电力基础设施深度融合。
 
-“芒种芒种，连收带种”。
+短期需关注 5-6 月多模态模型迭代与 Agent 规模化商用进展，中长期看好算力基建 + 行业应用双轮驱动，算力租赁、IDC、边缘算力等细分赛道业绩确定性较强。
 
-芒种的字面意思是“有芒的麦子快收，有芒的稻子可种”。
+创业板软件 ETF 富国（159107）跟踪创业板软件指数（399264），精选 50 只创业板软件核心标的，覆盖基础软件、应用软件、IT 服务全链条，自带 20CM 高弹性属性。
 
 ## 相关推荐
 
-- 2026-06-29 23:53 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 23:50 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 23:57 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 00:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 23:53 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 23:49 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 23:53 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 23:36 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 23:39 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 23:54 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 23:45 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 00:02 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 00:01 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 23:56 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 23:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 23:55 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 00:03 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 00:05 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 23:56 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 23:54 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 00:11 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 00:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 00:11 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:42 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/56569.shtml)
-- 2026-06-29 23:48 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/151776.shtml)
-- 2026-06-29 23:46 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/8516698287.shtml)
-- 2026-06-29 23:40 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/0838064.shtml)
-- 2026-06-29 23:47 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/35964.shtml)
-- 2026-06-29 23:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/9442939373.shtml)
-- 2026-06-29 23:45 - [青春环游记第三季](http://www.share.minike.top/Article/details/314309.shtml)
-- 2026-06-29 23:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/139797552167.shtml)
-- 2026-06-29 23:59 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/8518208.shtml)
-- 2026-06-29 23:44 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/622228522.shtml)
-- 2026-06-29 23:57 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/1657426116.shtml)
-- 2026-06-29 23:47 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/072644838212.shtml)
-- 2026-06-30 00:04 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/6652784.shtml)
-- 2026-06-29 23:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/55045388.shtml)
-- 2026-06-29 23:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/197291.shtml)
+- 2026-06-29 23:52 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/288722459686.shtml)
+- 2026-06-30 00:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/6488520.shtml)
+- 2026-06-30 00:01 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/829559.shtml)
+- 2026-06-30 00:03 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/71252601264.shtml)
+- 2026-06-30 00:06 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/12575.shtml)
+- 2026-06-29 23:57 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/9859239766.shtml)
+- 2026-06-29 23:55 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/356915865470.shtml)
+- 2026-06-29 23:42 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/48051.shtml)
+- 2026-06-30 00:04 - [炽夏](http://www.share.kurohicncr.top/Article/details/692713521.shtml)
+- 2026-06-30 00:02 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/086611145.shtml)
+- 2026-06-29 23:55 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/85565395.shtml)
+- 2026-06-29 23:44 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/09723240759.shtml)
+- 2026-06-29 23:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/0246616.shtml)
+- 2026-06-30 00:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/497528453723.shtml)
+- 2026-06-29 23:52 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/55340492060.shtml)

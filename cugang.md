@@ -1,57 +1,58 @@
-# 商务部：愿与巴西保持沟通 共同推动双边农产品贸易高质量发展
+# 财经早报：特朗普宣布同意停火两周，美国原油期货暴跌近20%丨2026年4月8日
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-中新网6月4日电 6月4日，商务部召开例行新闻发布会。会上，有记者问：巴西外长维埃拉本周来华访问，是否同中方谈及有关大豆检验及安全标准，以及牛肉免税配额的问题，最新进展如何？ 商务部新闻发言人何咏前表示，6月1日，商务部部长王文涛会见了来华访问的巴西外交部长维埃拉，双方就中巴经贸关系和多边框架下合作等议题进行交流。 巴西是中国大豆和牛肉第一大进口来源国。今年以来中国自巴西进口大
+【重磅】不惧波动！把握A股T+0交易机会，当天买卖，赚了就跑（附精选股票池） 【头条要闻】 最后期限到来前一刻，特朗普宣布同意停火两周 央视新闻消息，当地时间4月7日，美国总统特朗普在社交平台发文称，在与巴基斯坦总理夏巴兹·谢里夫及陆军参谋长阿西姆·穆尼尔通话后，应巴方请求，美方决定暂缓原计划针对伊朗的军事打击行动。 特朗普表示，前提是伊朗同意全面、立即且安全地开放霍尔木兹海峡
 
 ## 正文
 
-中新网6月4日电 6月4日，商务部召开例行新闻发布会。
+【重磅】不惧波动！
 
-会上，有记者问：巴西外长维埃拉本周来华访问，是否同中方谈及有关大豆检验及安全标准，以及牛肉免税配额的问题，最新进展如何？
+把握A股T+0交易机会，当天买卖，赚了就跑（附精选股票池） 【头条要闻】 最后期限到来前一刻，特朗普宣布同意停火两周 央视新闻消息，当地时间4月7日，美国总统特朗普在社交平台发文称，在与巴基斯坦总理夏巴兹·谢里夫及陆军参谋长阿西姆·穆尼尔通话后，应巴方请求，美方决定暂缓原计划针对伊朗的军事打击行动。
 
-商务部新闻发言人何咏前表示，6月1日，商务部部长王文涛会见了来华访问的巴西外交部长维埃拉，双方就中巴经贸关系和多边框架下合作等议题进行交流。
+特朗普表示，前提是伊朗同意全面、立即且安全地开放霍尔木兹海峡，美方将暂停对伊朗的轰炸和攻击，为期两周，并称该安排将构成“双向停火”。
 
-巴西是中国大豆和牛肉第一大进口来源国。
+他表示，目前已完成并超额实现既定军事目标，同时在推动与伊朗达成长期和平协议及中东地区和平方面取得重要进展。
 
-今年以来中国自巴西进口大豆和牛肉均呈现较快增长。
+伊朗：我方几乎已实现全部战争目标 同意停火两周 伊朗人民必须知晓，得益于本国儿女的不懈努力及其在战场上的历史性表现，一个多月以来，敌人一直在乞求伊朗停止猛烈攻势。
 
-中方愿就有关问题与巴方保持沟通，共同推动双边农产品贸易高质量发展。
+但伊朗自始至终决意将战争持续至实现既定目标——包括让敌人追悔莫及、陷入绝望，并消除对伊朗的长期威胁，因此拒绝了所有此类请求，战争也持续至今，已进入第四十天。
+
+此外，伊朗迄今已多次拒绝美国总统提出的最后期限，并始终强调，不会重视敌人提出的任何形式的最后通牒。
+
+此刻，我们向伟大的伊朗人民宣告喜讯：我方几乎已实现全部战争目标，英勇的伊朗儿女已将敌人逼入历史性的绝境，使其遭遇永久性失败。
 
 ## 相关推荐
 
-- 2026-06-30 00:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 23:44 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 23:36 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 23:59 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 23:45 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 23:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 23:44 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 23:46 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 00:00 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 23:44 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 23:38 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 23:53 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 23:56 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 23:36 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 23:56 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 00:03 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 23:47 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 00:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 23:49 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 00:10 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 23:52 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 00:07 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 00:07 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 00:07 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 00:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 23:44 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 00:08 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:01 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/9628894.shtml)
-- 2026-06-29 23:49 - [东方风云榜直播](https://www.share.minike.top/Article/details/3283946360.shtml)
-- 2026-06-30 00:02 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/0464093.shtml)
-- 2026-06-29 23:51 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/890473566.shtml)
-- 2026-06-29 23:36 - [扫黑风暴](https://www.blog.minike.top/Article/details/906798.shtml)
-- 2026-06-29 23:48 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/28268.shtml)
-- 2026-06-29 23:59 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/134211.shtml)
-- 2026-06-29 23:40 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/84601514.shtml)
-- 2026-06-29 23:56 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/1190821.shtml)
-- 2026-06-29 23:56 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/3865784.shtml)
-- 2026-06-30 00:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/182281.shtml)
-- 2026-06-29 23:53 - [田曦薇没招了](http://www.share.minike.top/Article/details/517376038747.shtml)
-- 2026-06-30 00:04 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/667883.shtml)
-- 2026-06-30 00:02 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/74175906.shtml)
-- 2026-06-29 23:46 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/16847.shtml)
+- 2026-06-29 23:55 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/1545120037.shtml)
+- 2026-06-29 23:59 - [金刚川](http://www.share.minike.top/Article/details/5775644.shtml)
+- 2026-06-30 00:02 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/286715.shtml)
+- 2026-06-30 00:09 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/082217193239.shtml)
+- 2026-06-29 23:47 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/95922402.shtml)
+- 2026-06-29 23:54 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/69545321.shtml)
+- 2026-06-29 23:49 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/6199453468.shtml)
+- 2026-06-29 23:58 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/36972066133.shtml)
+- 2026-06-29 23:55 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/95269575.shtml)
+- 2026-06-30 00:12 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/8340377647.shtml)
+- 2026-06-30 00:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/25148.shtml)
+- 2026-06-29 23:46 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/585640627183.shtml)
+- 2026-06-30 00:11 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/48979570.shtml)
+- 2026-06-29 23:46 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/890045.shtml)
+- 2026-06-30 00:07 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/494962.shtml)

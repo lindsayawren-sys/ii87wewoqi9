@@ -1,54 +1,55 @@
-# 内蒙古一残疾大哥救下受伤骆驼悉心照料
+# 全国人大常委会副委员长武维华率团访问加蓬
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月03日 15:55 来源：中国新闻网 近日，内蒙古一位身患残疾的男子途经屠宰场时，偶遇一峰腿部受伤的哺乳期母骆驼，身旁幼驼尚小。自身残疾的他深知病痛与身不由己的苦楚，心生恻隐，果断花钱买下骆驼母子。 后来他专程请来兽医为受伤母驼诊治，经过悉心养护，母骆驼伤势稳步好转，小骆驼也日渐亲近主人。男子坦言，看着小家伙健康成长，所有付出都值得。 (记者 陈峰 视
+新华社利伯维尔4月7日电 应加蓬国民议会邀请，全国人大常委会副委员长武维华5日至7日率团访问加蓬，同加蓬总统恩圭马会见，并同加国民议会议长奥南加、参议院第一副议长马比亚拉会谈。 武维华表示，中加友谊源远流长。近年来，在习近平主席和恩圭马总统战略引领下，中加关系发展势头良好，各领域合作成果显著。中方愿同加方一道，落实好两国元首重要共识和中非合作论坛北京峰会成果，弘扬传统友谊，加强
 
 ## 正文
 
-发布时间：2026年06月03日 15:55 来源：中国新闻网 近日，内蒙古一位身患残疾的男子途经屠宰场时，偶遇一峰腿部受伤的哺乳期母骆驼，身旁幼驼尚小。
+新华社利伯维尔4月7日电 应加蓬国民议会邀请，全国人大常委会副委员长武维华5日至7日率团访问加蓬，同加蓬总统恩圭马会见，并同加国民议会议长奥南加、参议院第一副议长马比亚拉会谈。
 
-自身残疾的他深知病痛与身不由己的苦楚，心生恻隐，果断花钱买下骆驼母子。
+武维华表示，中加友谊源远流长。
 
-后来他专程请来兽医为受伤母驼诊治，经过悉心养护，母骆驼伤势稳步好转，小骆驼也日渐亲近主人。
+近年来，在习近平主席和恩圭马总统战略引领下，中加关系发展势头良好，各领域合作成果显著。
 
-男子坦言，看着小家伙健康成长，所有付出都值得。
+中方愿同加方一道，落实好两国元首重要共识和中非合作论坛北京峰会成果，弘扬传统友谊，加强治国理政经验交流，推动中加全面战略合作伙伴关系深入发展。
 
-(记者 陈峰 视频来源 奔腾融媒） 责任编辑：【叶攀】
+武维华还宣介了中国对53个非洲建交国全面实施零关税举措。
+
+加方积极评价两国关系发展成就和中国对非零关税政策，表示将继续坚定恪守一个中国原则，愿同中方共同努力，密切双方立法机构交流合作，深化资源开发、基础设施建设、农业等领域合作，将加中传统友好转化为更多合作成果，造福两国人民。
 
 ## 相关推荐
 
-- 2026-06-29 23:38 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 00:03 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 00:01 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 23:53 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 00:00 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 23:39 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 00:01 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 23:57 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 00:01 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 00:06 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 23:40 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 23:52 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 23:44 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 23:40 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 23:44 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 23:43 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 23:44 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 23:47 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 00:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 23:49 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 23:51 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 00:01 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 00:05 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 00:07 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 23:43 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 23:59 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 23:58 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/67216134277.shtml)
-- 2026-06-29 23:54 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/674715.shtml)
-- 2026-06-29 23:56 - [明星大侦探第四季](http://www.share.minike.top/Article/details/3786317.shtml)
-- 2026-06-30 00:02 - [月亮](http://www.blog.minike.top/Article/details/86783.shtml)
-- 2026-06-30 00:04 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/21526682371.shtml)
-- 2026-06-30 00:00 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/103768112.shtml)
-- 2026-06-29 23:51 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/89456604.shtml)
-- 2026-06-29 23:43 - [炽夏](http://www.blog.minike.top/Article/details/7149642230.shtml)
-- 2026-06-30 00:04 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/91956.shtml)
-- 2026-06-29 23:52 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/135647380631.shtml)
-- 2026-06-29 23:37 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/67484.shtml)
-- 2026-06-30 00:00 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/922149804277.shtml)
-- 2026-06-29 23:46 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/9907357.shtml)
-- 2026-06-29 23:39 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/981139770.shtml)
-- 2026-06-29 23:38 - [绘画区你赢了](https://www.blog.minike.top/Article/details/922925900018.shtml)
+- 2026-06-30 00:03 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/5644951950.shtml)
+- 2026-06-29 23:44 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/867186.shtml)
+- 2026-06-30 00:08 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/407125.shtml)
+- 2026-06-29 23:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/097769.shtml)
+- 2026-06-29 23:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/116272384.shtml)
+- 2026-06-29 23:45 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/4492827.shtml)
+- 2026-06-29 23:49 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/10241.shtml)
+- 2026-06-30 00:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/979251062.shtml)
+- 2026-06-30 00:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/944800730811.shtml)
+- 2026-06-29 23:50 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/3536738248.shtml)
+- 2026-06-29 23:43 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/82809447187.shtml)
+- 2026-06-30 00:01 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/1394080437.shtml)
+- 2026-06-29 23:42 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/217396.shtml)
+- 2026-06-30 00:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/49237.shtml)
+- 2026-06-29 23:55 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/74088573596.shtml)

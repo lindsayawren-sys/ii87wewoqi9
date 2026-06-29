@@ -1,59 +1,58 @@
-# 金店凌晨被盗百万黄金 半瓶可乐成警方破案关键
+# PriceSeek重点提醒：温氏生猪销售均价环比降13%
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-法治在线丨金店凌晨被盗百万黄金 半瓶可乐成警方破案关键 凌晨时分，宁静的上海街头，突然响起刺耳的铃声，打破了深夜的平静，原来是一家沿街金店的防盗警报被触发，铃声响起的瞬间，金店负责人也收到防盗提示，当即对店内视频进行查看，发现一个黑影在仓促之下砸碎了店内的柜台，盗走了大量黄金饰品，之后仓皇逃窜。发现金店被盗后，负责人立即报警求助。 从接警到抵达现场，民警仅用时5分钟。此时金店外
+生意社04月08日讯温氏股份最新公告称，公司2026年3月销售肉猪368.28万头，收入48.28亿元，毛猪销售均价10.11元/公斤，环比变动分别为36.55%、22.04%、-12.99%，同比变动分别为18.97%、-11.27%、-32.01%。PriceSeek评析生猪，多空评分：-1.5温氏股份公告显示，2026年3月毛猪销售均价10.11元/公斤，环比下降12.9
 
 ## 正文
 
-法治在线丨金店凌晨被盗百万黄金 半瓶可乐成警方破案关键 凌晨时分，宁静的上海街头，突然响起刺耳的铃声，打破了深夜的平静，原来是一家沿街金店的防盗警报被触发，铃声响起的瞬间，金店负责人也收到防盗提示，当即对店内视频进行查看，发现一个黑影在仓促之下砸碎了店内的柜台，盗走了大量黄金饰品，之后仓皇逃窜。
+生意社04月08日讯温氏股份最新公告称，公司2026年3月销售肉猪368.28万头，收入48.28亿元，毛猪销售均价10.11元/公斤，环比变动分别为36.55%、22.04%、-12.99%，同比变动分别为18.97%、-11.27%、-32.01%。
 
-发现金店被盗后，负责人立即报警求助。
+PriceSeek评析生猪，多空评分：-1.5温氏股份公告显示，2026年3月毛猪销售均价10.11元/公斤，环比下降12.99%，同比下降32.01%，同时销售数量环比增长36.55%。
 
-从接警到抵达现场，民警仅用时5分钟。
+这表明生猪现货市场供应增加，需求相对疲软，导致价格承压下行，利空现货价格。
 
-此时金店外围一片狼藉，窃贼将刀具、防滑手套、大力钳等全套作案工具随意丢弃在防盗窗外。
+结合生猪期货数据，主力合约2609价格环比上涨215点，结算价11755元/吨，反映市场对远期供需改善的预期，但当前现货弱势可能抑制短期期货走势。
 
-防盗窗为进出通道 破损痕迹清晰经现场细致勘查，警方迅速锁定犯罪嫌疑人唯一进出通道——金店的防盗窗。
+整体评分为-1.5，因现货价格显著下跌主导利空，期货支撑有限。
 
-窗口铁皮底座脱落，一截铁栏杆被暴力剪断，破损痕迹清晰完整。
+【大宗商品公式定价原理】生意社基准价是基于价格大数据与生意社价格模型产生的交易指导价，又称生意社价格。
 
-与此同时，现场遗留的大量物证中，半瓶没喝完的可乐也为案件的侦破埋下关键伏笔。
+可用于确定以下两种需求的交易结算价：1、指定日期的结算价2、指定周期的平均结算价定价公式：结算价=生意社基准价×K＋C K：调整系数，包括账期成本等因素。
 
-上海市公安局奉贤区分局刑侦支队刑科所技术员 钟愉：铁栅栏下方有管钳，还有手套，还有一个蛇皮袋。
+C：升贴水，包括物流成本、品牌价差、区域价差等因素。
 
 ## 相关推荐
 
-- 2026-06-29 23:54 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 23:40 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 23:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 00:00 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 00:02 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 00:00 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 00:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 23:47 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 00:01 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 23:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 23:47 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 23:36 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 23:46 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 00:09 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 00:11 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 23:58 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 00:02 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 00:10 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 23:50 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 23:44 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 00:05 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 23:44 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 23:58 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 00:01 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 23:43 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/17325.shtml)
-- 2026-06-29 23:41 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/28153442.shtml)
-- 2026-06-29 23:40 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/408443960936.shtml)
-- 2026-06-29 23:57 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/936130391617.shtml)
-- 2026-06-29 23:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/4578021740.shtml)
-- 2026-06-29 23:37 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/302656657.shtml)
-- 2026-06-29 23:40 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/411192409037.shtml)
-- 2026-06-29 23:52 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/540246.shtml)
-- 2026-06-29 23:37 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/22328918.shtml)
-- 2026-06-29 23:46 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/79444988.shtml)
-- 2026-06-29 23:47 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/1615851.shtml)
-- 2026-06-30 00:01 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/15383.shtml)
-- 2026-06-29 23:57 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/540322624.shtml)
-- 2026-06-29 23:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/245498.shtml)
-- 2026-06-29 23:36 - [扫黑风暴](https://www.share.minike.top/Article/details/599336.shtml)
+- 2026-06-30 00:07 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/10429787479.shtml)
+- 2026-06-29 23:59 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/163929.shtml)
+- 2026-06-29 23:44 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/4737452466.shtml)
+- 2026-06-30 00:10 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/2447449.shtml)
+- 2026-06-29 23:58 - [法拉利车主已自行承担修理费近3万](http://www.share.minike.top/Article/details/0147277.shtml)
+- 2026-06-29 23:58 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/2313901.shtml)
+- 2026-06-30 00:07 - [恋与深空 巧合](https://www.share.minike.top/Article/details/2286400.shtml)
+- 2026-06-30 00:10 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/24425969616.shtml)
+- 2026-06-29 23:47 - [恋与深空回应争议](http://www.share.minike.top/Article/details/97042096627.shtml)
+- 2026-06-29 23:45 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/6241176529.shtml)
+- 2026-06-29 23:55 - [青春环游记第三季](http://www.share.minike.top/Article/details/9252186317.shtml)
+- 2026-06-30 00:10 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/09621.shtml)
+- 2026-06-29 23:51 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/986413997.shtml)
+- 2026-06-29 23:55 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/54172.shtml)
+- 2026-06-29 23:50 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/6262772.shtml)

@@ -1,55 +1,60 @@
-# 黑石集团限制旗下旗舰私募信贷基金赎回
+# 中国极地冰层钻探突破国际热水钻探最深纪录
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-美国资产管理巨头黑石集团（Blackstone）周四向监管机构提交的文件显示，由于今年第二季度投资者赎回请求激增，集团已对旗下旗舰私募信贷基金的提款额度实施限制。黑石集团也由此成为最新一家限制投资者赎回的资产管理机构。 相关监管文件显示，在第二季度的要约收购中，黑石私募信贷基金的投资者申请赎回的份额占该基金总发行份额的10%。鉴于赎回压力，该基金最终决定仅履行相当于总发行份额5
+中新社北京4月7日电 (记者 阮煜琳)中国自然资源部组织的中国第42次南极考察队在东南极麒麟冰下湖区域，日前成功完成中国首次南极冰层热水钻探试验，钻深达3413米，突破国际极地热水钻探的2540米的最深纪录。 自然资源部7日表示，这标志着中国具备在90%以上的南极冰盖和全部北极冰盖开展钻探研究的能力。 相较于传统机械冰钻，热水钻探穿透能力强、钻进效率高、对冰体扰动小、易于实现大
 
 ## 正文
 
-美国资产管理巨头黑石集团（Blackstone）周四向监管机构提交的文件显示，由于今年第二季度投资者赎回请求激增，集团已对旗下旗舰私募信贷基金的提款额度实施限制。
+中新社北京4月7日电 (记者 阮煜琳)中国自然资源部组织的中国第42次南极考察队在东南极麒麟冰下湖区域，日前成功完成中国首次南极冰层热水钻探试验，钻深达3413米，突破国际极地热水钻探的2540米的最深纪录。
 
-黑石集团也由此成为最新一家限制投资者赎回的资产管理机构。
+自然资源部7日表示，这标志着中国具备在90%以上的南极冰盖和全部北极冰盖开展钻探研究的能力。
 
-相关监管文件显示，在第二季度的要约收购中，黑石私募信贷基金的投资者申请赎回的份额占该基金总发行份额的10%。
+相较于传统机械冰钻，热水钻探穿透能力强、钻进效率高、对冰体扰动小、易于实现大口径与洁净作业，能够高效抵达冰下湖、冰架底部、冰下基岩等关键界面，是国际社会研究极地冰盖与冰架深部环境的主流技术。
 
-鉴于赎回压力，该基金最终决定仅履行相当于总发行份额5%的赎回请求。
+此次现场试验由中国自然资源部主责的国家重点研发计划支持，主要目标为开展大深度冰盖热水钻探系统南极应用示范，通过钻穿麒麟冰下湖上方的冰盖，为后续开展冰下湖原位观测、水体和湖底样品采集提供无污染通道和关键技术支撑。
 
-黑石集团在致股东的信中对此解释称，在本轮要约收购期的后半段，赎回活动已出现减速迹象，其中本土市场的赎回量已低于上一季度水平。
+现场试验经历海冰和内陆物资运输、设备组装调试、热水钻探作业、过程污染监测等多环节攻坚作业，成功钻穿麒麟冰下湖上覆的冰盖。
 
-责任编辑：龙运翔
+此次试验针对超过3000米厚的冰盖，集成应用多项适应极地现场、满足高精度快速清洁钻探需求的装备，并突破了极地热水钻耐低温、外源污染物控制、大深度软管和绞车高精度控制等关键核心技术。
+
+本次成功钻探，实现了极地大深度热水钻探的高效、稳定、清洁钻进。
+
+此次任务在中国第42次南极考察队组织和保障下，在中国工程院孙友宏院士的策划和指导下，由中国极地研究中心(中国极地研究所)、吉林大学和中国地质大学(北京)共同牵头，联合多家单位共同完成。
 
 ## 相关推荐
 
-- 2026-06-30 00:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 23:54 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 23:55 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 23:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 23:59 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 23:43 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-30 00:05 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 23:50 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 23:40 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 00:01 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 00:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 23:54 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 23:36 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 23:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 23:44 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 23:54 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 23:54 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 00:06 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 00:04 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 23:50 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 23:59 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 23:55 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 00:11 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 00:00 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 00:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 00:08 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 23:50 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:43 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/98111.shtml)
-- 2026-06-30 00:05 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/223233344.shtml)
-- 2026-06-29 23:36 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/39657953.shtml)
-- 2026-06-29 23:49 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/89177.shtml)
-- 2026-06-29 23:44 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/19955503.shtml)
-- 2026-06-29 23:42 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/022036612106.shtml)
-- 2026-06-30 00:05 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/090954.shtml)
-- 2026-06-30 00:01 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/14151.shtml)
-- 2026-06-30 00:02 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/1972986.shtml)
-- 2026-06-29 23:50 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/01511887904.shtml)
-- 2026-06-29 23:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/425268075.shtml)
-- 2026-06-30 00:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/5323633935.shtml)
-- 2026-06-30 00:02 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/76484449856.shtml)
-- 2026-06-29 23:49 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/23402.shtml)
-- 2026-06-29 23:54 - [美股](http://www.blog.kurohicncr.top/Article/details/78281770.shtml)
+- 2026-06-29 23:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/15632796.shtml)
+- 2026-06-29 23:42 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/601676401836.shtml)
+- 2026-06-30 00:05 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/2816141949.shtml)
+- 2026-06-29 23:54 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/81681435031.shtml)
+- 2026-06-30 00:04 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/591735902083.shtml)
+- 2026-06-29 23:52 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/35199173927.shtml)
+- 2026-06-29 23:49 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/601594.shtml)
+- 2026-06-29 23:53 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/07877862.shtml)
+- 2026-06-29 23:57 - [送你一朵小红花](https://www.blog.minike.top/Article/details/375607476.shtml)
+- 2026-06-29 23:55 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/3724594592.shtml)
+- 2026-06-29 23:48 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/6370698668.shtml)
+- 2026-06-29 23:42 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/893349.shtml)
+- 2026-06-30 00:05 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/3346923017.shtml)
+- 2026-06-29 23:52 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/3661482.shtml)
+- 2026-06-30 00:11 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/756617.shtml)

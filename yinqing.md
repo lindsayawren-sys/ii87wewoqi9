@@ -1,56 +1,61 @@
-# 去冰后咖啡仅半杯有余？瑞幸咖啡遭消费者吐槽
+# 确诊骨质疏松，可以打“骨头针”吗
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-对比可见，选择“不满杯”后，饮品只剩净容量的三分之二。 “我要的是满杯的去冰拿铁，而不是买了个半杯的寂寞。”近日，市民张先生向本报反映，他在瑞幸咖啡下单一杯超大杯拿铁并选择“去冰”后，到手饮品仅勉强过半杯。面对质疑，门店给出的解释是“去冰后液体不会补满”。这让张先生难以接受：“花的是满杯的钱，凭啥拿到手就缩了水？” 记者实测 去冰后液体不足三分之二 根据市民张先生的描述，昨天下
+确诊骨质疏松，可以打“骨头针”吗 专家：不能盲目跟风，擅自停药骨质会急剧下降 随着人口老龄化加剧，我国骨质疏松症患者人数不断攀升。作为一种慢性代谢性疾病，骨质疏松症通常需要长期治疗与管理。近期，被称为“骨头针”的注射类药物引发广泛关注，因其每半年或一年注射一次，方便快捷，但也有不少患者反映这类药物副作用明显。“骨头针”到底是不是“护骨神器”？为此，记者采访了南京医科大学第二附属
 
 ## 正文
 
-对比可见，选择“不满杯”后，饮品只剩净容量的三分之二。
+确诊骨质疏松，可以打“骨头针”吗 专家：不能盲目跟风，擅自停药骨质会急剧下降 随着人口老龄化加剧，我国骨质疏松症患者人数不断攀升。
 
-“我要的是满杯的去冰拿铁，而不是买了个半杯的寂寞。
+作为一种慢性代谢性疾病，骨质疏松症通常需要长期治疗与管理。
 
-”近日，市民张先生向本报反映，他在瑞幸咖啡下单一杯超大杯拿铁并选择“去冰”后，到手饮品仅勉强过半杯。
+近期，被称为“骨头针”的注射类药物引发广泛关注，因其每半年或一年注射一次，方便快捷，但也有不少患者反映这类药物副作用明显。
 
-面对质疑，门店给出的解释是“去冰后液体不会补满”。
+“骨头针”到底是不是“护骨神器”？
 
-这让张先生难以接受：“花的是满杯的钱，凭啥拿到手就缩了水？
+为此，记者采访了南京医科大学第二附属医院骨科副主任医师王伯尧。
 
-” 记者实测 去冰后液体不足三分之二 根据市民张先生的描述，昨天下午，他在瑞幸咖啡App下单了一杯标注容量为596ml的超大杯生椰拿铁，特意勾选了“去冰”选项。
+扬子晚报/紫牛新闻记者 万惠娟 门诊咨询“骨头针”的人变多了记者注意到，社交平台上关于“骨头针”的讨论帖不少。
 
-取餐时却发现，杯中的液面距离杯口尚有明显差距。
+网友小陌的妈妈今年64岁，刚确诊骨质疏松。
 
-“我拿在手里感觉轻飘飘的，打开盖子一看，液体只比一半多一点点。
+看到网上很多人推荐“骨头针”，小陌发帖询问：“要不要带妈妈去试试？
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 23:43 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 00:04 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 23:45 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 23:50 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 23:37 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 23:44 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 23:51 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 23:57 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 23:47 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 23:45 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 23:44 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 23:54 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 23:43 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 23:45 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 23:56 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 23:52 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 00:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 23:54 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 00:08 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 23:55 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 00:11 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 00:00 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 23:49 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 23:44 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:57 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/9736962005.shtml)
-- 2026-06-29 23:49 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/999117114893.shtml)
-- 2026-06-29 23:39 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/42191741768.shtml)
-- 2026-06-29 23:43 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/033117875.shtml)
-- 2026-06-29 23:53 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/3472762.shtml)
-- 2026-06-29 23:58 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/73506.shtml)
-- 2026-06-29 23:38 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/622446.shtml)
-- 2026-06-29 23:49 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/56191220.shtml)
-- 2026-06-29 23:39 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/65326943652.shtml)
-- 2026-06-29 23:37 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/2052091245.shtml)
-- 2026-06-29 23:46 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/427991.shtml)
-- 2026-06-29 23:44 - [世界杯](https://www.blog.kurohicncr.top/Article/details/61406279051.shtml)
-- 2026-06-29 23:55 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/961912.shtml)
-- 2026-06-30 00:04 - [急先锋](https://www.share.kurohicncr.top/Article/details/526523477.shtml)
-- 2026-06-29 23:41 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/969064.shtml)
+- 2026-06-29 23:50 - [电影后室值得看吗](https://www.share.minike.top/Article/details/67448993.shtml)
+- 2026-06-29 23:45 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/2445731.shtml)
+- 2026-06-30 00:09 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/139020805917.shtml)
+- 2026-06-30 00:03 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/04815.shtml)
+- 2026-06-30 00:09 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/149403365.shtml)
+- 2026-06-29 23:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/599491884211.shtml)
+- 2026-06-29 23:59 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/4895972.shtml)
+- 2026-06-29 23:52 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/40168635.shtml)
+- 2026-06-29 23:45 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/466919003224.shtml)
+- 2026-06-30 00:10 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/04682973818.shtml)
+- 2026-06-30 00:06 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/5658568169.shtml)
+- 2026-06-29 23:45 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/2380042293.shtml)
+- 2026-06-30 00:01 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/873208238639.shtml)
+- 2026-06-29 23:49 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/906936856289.shtml)
+- 2026-06-29 23:48 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/7754724832.shtml)

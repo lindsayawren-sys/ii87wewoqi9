@@ -1,59 +1,59 @@
-# Garmin发布全球跑步与骑行数据报告：揭示运动爱好者行为新趋势
+# 广西桂林至越南河内国际航线首航
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-为庆祝全球跑步日和全球骑行日，Garmin于6月3日发布了年度全球跑步与骑行数据报告。基于Garmin Connect社区数百万用户的匿名活动数据，报告揭示了过去一年全球运动爱好者的行为变化与运动趋势。 在跑步方面，数据显示Garmin用户的跑步活动量持续增长。室内跑步活动同比增长近13%，户外跑步活动增长3%。同时，在同一周内既跑步又进行力量训练的用户增加了23%，显示出跑者
+【东盟专线】广西桂林至越南河内国际航线首航 中新社桂林4月7日电 (欧惠兰 莫伟雯 杨飏)4月7日17时13分，由北部湾航空执飞的GX8918国际航班抵达桂林两江国际机场，标志着越南河内—桂林国际航线首航成功。 据了解，该航线为济南—桂林—河内，由北部湾航空执飞，航班号为GX8917/8，使用A320机型飞行，计划每周飞行两班，班期为周二和周四。这是桂林机场首次通航越南河内。
 
 ## 正文
 
-为庆祝全球跑步日和全球骑行日，Garmin于6月3日发布了年度全球跑步与骑行数据报告。
+【东盟专线】广西桂林至越南河内国际航线首航 中新社桂林4月7日电 (欧惠兰 莫伟雯 杨飏)4月7日17时13分，由北部湾航空执飞的GX8918国际航班抵达桂林两江国际机场，标志着越南河内—桂林国际航线首航成功。
 
-基于Garmin Connect社区数百万用户的匿名活动数据，报告揭示了过去一年全球运动爱好者的行为变化与运动趋势。
+据了解，该航线为济南—桂林—河内，由北部湾航空执飞，航班号为GX8917/8，使用A320机型飞行，计划每周飞行两班，班期为周二和周四。
 
-在跑步方面，数据显示Garmin用户的跑步活动量持续增长。
+这是桂林机场首次通航越南河内。
 
-室内跑步活动同比增长近13%，户外跑步活动增长3%。
+当天，该航班落地桂林机场后，桂林市文旅部门、桂林机场组织了首航仪式。
 
-同时，在同一周内既跑步又进行力量训练的用户增加了23%，显示出跑者对交叉训练的重视程度明显提升。
+桂林两江国际机场负责人介绍，4月9日，桂林机场将开通桂林至越南最大城市胡志明市的定期航班。
 
-全球跑者的平均单次跑步距离为4.82英里（约7.76公里）。
+随着2条至越南国际航线的开通，桂林出境航点将达到6个。
 
-令人意外的是，50至59岁年龄段的跑者平均跑得最远，单次达5.1英里（约8.2公里），超越了更年轻的年龄组。
-
-在配速方面，男性平均配速为每英里9分21秒，女性为每英里10分11秒。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:37 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 00:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 23:38 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 00:03 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 23:47 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 23:57 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 23:58 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 23:49 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 23:49 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 23:41 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 23:45 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 23:46 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 23:50 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 00:07 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 00:08 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 00:00 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 23:42 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 00:09 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 23:56 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 23:55 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 23:49 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 23:47 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 00:01 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 23:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-30 00:11 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 23:52 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 00:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 23:50 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:37 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/103467108.shtml)
-- 2026-06-29 23:57 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/078579269517.shtml)
-- 2026-06-29 23:50 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/199021786630.shtml)
-- 2026-06-29 23:42 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/444758605.shtml)
-- 2026-06-29 23:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/2765886856.shtml)
-- 2026-06-29 23:43 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/15618235043.shtml)
-- 2026-06-29 23:46 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/0126658.shtml)
-- 2026-06-29 23:54 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/9954145.shtml)
-- 2026-06-29 23:43 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/54652.shtml)
-- 2026-06-29 23:42 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/413996520.shtml)
-- 2026-06-30 00:04 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/77791923483.shtml)
-- 2026-06-30 00:03 - [流金岁月](http://www.blog.minike.top/Article/details/55307.shtml)
-- 2026-06-29 23:39 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/4749564810.shtml)
-- 2026-06-29 23:37 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/8741899039.shtml)
-- 2026-06-29 23:41 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/798686144.shtml)
+- 2026-06-29 23:55 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/248600606.shtml)
+- 2026-06-29 23:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/61042627.shtml)
+- 2026-06-30 00:03 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/6178369942.shtml)
+- 2026-06-30 00:10 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/993182.shtml)
+- 2026-06-29 23:53 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/1954145057.shtml)
+- 2026-06-30 00:01 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/71089746674.shtml)
+- 2026-06-29 23:48 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/574899.shtml)
+- 2026-06-29 23:44 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/58931998123.shtml)
+- 2026-06-30 00:10 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/4732084.shtml)
+- 2026-06-30 00:05 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/749831.shtml)
+- 2026-06-30 00:08 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/67401.shtml)
+- 2026-06-30 00:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/510866.shtml)
+- 2026-06-30 00:06 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/38026.shtml)
+- 2026-06-30 00:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/09400.shtml)
+- 2026-06-30 00:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/072372731042.shtml)

@@ -1,60 +1,54 @@
-# 酒价内参6月4日价格发布：水晶剑南春下跌2元
+# Jan De Nul已成功下水其第二艘新一代电缆铺设船
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月4日整体明显走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日大幅下跌25元，回吐昨日全部涨幅。市场在前一日底部反弹后迅速转衰，终端交投情绪偏谨慎，今日除习酒君品微涨外其余十大品种均下跌或平盘。 今日白酒市场11大
+比利时海洋工程承包商Jan De Nul集团已成功下水其第二艘新一代电缆铺设船（CLV）“威廉·汤姆森”号（William Thomson），以扩大其能力，支持不断增长的海上风电和电网互联项目。“威廉·汤姆森”号与其姊妹船“弗莱明·詹金”号（Fleeming Jenkin）是目前全球同类船舶中规模最大、运载能力最强的电缆铺设船。 两艘船均由Jan De Nul自主设计，在中国招
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月4日整体明显走弱。
+比利时海洋工程承包商Jan De Nul集团已成功下水其第二艘新一代电缆铺设船（CLV）“威廉·汤姆森”号（William Thomson），以扩大其能力，支持不断增长的海上风电和电网互联项目。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日大幅下跌25元，回吐昨日全部涨幅。
+“威廉·汤姆森”号与其姊妹船“弗莱明·詹金”号（Fleeming Jenkin）是目前全球同类船舶中规模最大、运载能力最强的电缆铺设船。
 
-市场在前一日底部反弹后迅速转衰，终端交投情绪偏谨慎，今日除习酒君品微涨外其余十大品种均下跌或平盘。
+两艘船均由Jan De Nul自主设计，在中国招商工业海门基地建造。
 
-今日白酒市场11大单品一涨九跌一平，输家占据绝对优势。
+入列后，它们的首份任务将是服务荷兰-德国电网运营商TenneT的2GW海上电网项目，为四个不同的电网连接点安装超过2，800公里的525 kV直流电缆。
 
-上涨方面，习酒君品小幅上涨1元/瓶，收获四连阳，逐步走出月内最低谷。
+此外，其中一艘船还计划于2028年参与比利时“伊丽莎白公主公主岛”能源枢纽的电缆安装工程。
 
-下跌方面，五粮液普五八代与古井贡古20跌幅居前，均下跌5元/瓶，其中前者三连阴后创下月内最低价纪录，近一个月其价格下行势头明显；青花汾20与青花郎均下跌4元/瓶，其中前者回吐前一日全部涨幅，回落至月内最低位，后者创下月内最低价格记录；飞天茅台、精品茅台与水晶剑南春均下跌2元/瓶；五粮液1618与国窖1573均小幅下跌1元/瓶。
-
-洋河梦之蓝M6+的价格环比保持不变。
-
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 00:02 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 23:53 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 23:44 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 23:48 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 23:48 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 23:56 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 23:46 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 00:01 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 23:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 23:37 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 23:39 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 00:00 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 23:42 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 00:00 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 23:46 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 23:52 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 23:53 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 23:48 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 00:05 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 00:06 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 00:10 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 23:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 00:02 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 23:50 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 23:53 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 00:11 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:55 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/69004426510.shtml)
-- 2026-06-29 23:45 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/002322749.shtml)
-- 2026-06-29 23:55 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/168972.shtml)
-- 2026-06-29 23:57 - [新官上任三把火](https://www.share.minike.top/Article/details/862541.shtml)
-- 2026-06-29 23:57 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/6893249.shtml)
-- 2026-06-29 23:43 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/518139197443.shtml)
-- 2026-06-29 23:59 - [女心理师](http://www.share.kurohicncr.top/Article/details/612040234587.shtml)
-- 2026-06-30 00:01 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/8254476.shtml)
-- 2026-06-29 23:50 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/194346007.shtml)
-- 2026-06-29 23:41 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/4811047.shtml)
-- 2026-06-29 23:56 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/018164415034.shtml)
-- 2026-06-29 23:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/80861821.shtml)
-- 2026-06-29 23:45 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/6552989396.shtml)
-- 2026-06-29 23:48 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/98160811194.shtml)
-- 2026-06-29 23:37 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/36522567801.shtml)
+- 2026-06-30 00:07 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/4650329700.shtml)
+- 2026-06-30 00:09 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/941456.shtml)
+- 2026-06-29 23:43 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/0607613.shtml)
+- 2026-06-30 00:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/61182012.shtml)
+- 2026-06-29 23:44 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/12462.shtml)
+- 2026-06-29 23:52 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/722978545968.shtml)
+- 2026-06-30 00:09 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/294918544516.shtml)
+- 2026-06-29 23:47 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/77670735.shtml)
+- 2026-06-30 00:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/0830001403.shtml)
+- 2026-06-29 23:50 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/886098124125.shtml)
+- 2026-06-30 00:11 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/03951753.shtml)
+- 2026-06-29 23:58 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/31223.shtml)
+- 2026-06-30 00:08 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/93718814384.shtml)
+- 2026-06-30 00:04 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/781014.shtml)
+- 2026-06-29 23:52 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/9781658155.shtml)

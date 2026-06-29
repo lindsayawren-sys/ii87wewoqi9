@@ -1,56 +1,61 @@
-# 市场监管总局公布八起传统工艺市场“打假清源”典型案例
+# 巴菲特：爱泼斯坦文件曝光后 就没再和比尔盖茨说过话
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-中新网6月4日电 据“市说新语”微信公众号消息，为切实整治珠宝玉石、贵金属饰品、红木制品等传统工艺市场“假证书、假机构、假产品、假网站”等突出问题，严厉打击违法违规行为，规范市场秩序，维护消费者权益，2026年以来，市场监管部门以珠宝首饰等传统工艺品为重点，深入开展“打假清源”专项行动，依法查办了一批违法违规案件。现选取部分典型案例予以公布。1.江苏省东海县冰瑶珠宝商行销售以假
+沃伦・巴菲特周二表示，在杰弗里・爱泼斯坦相关文件全部公开后，他就再也没有与微软创始人比尔・盖茨交谈过。 “整件事曝光之后，我就完全没和他说过话。”巴菲特节目中对贝基・奎克表示。 他补充道：“我不想让自己陷入知情的处境……以免被传召作证。” 被问及是否仍与盖茨是好友时，巴菲特温情评价了两人的私人关系——他们曾与盖茨前妻梅琳达・盖茨共同发起“捐赠誓言”（The Giving Ple
 
 ## 正文
 
-中新网6月4日电 据“市说新语”微信公众号消息，为切实整治珠宝玉石、贵金属饰品、红木制品等传统工艺市场“假证书、假机构、假产品、假网站”等突出问题，严厉打击违法违规行为，规范市场秩序，维护消费者权益，2026年以来，市场监管部门以珠宝首饰等传统工艺品为重点，深入开展“打假清源”专项行动，依法查办了一批违法违规案件。
+沃伦・巴菲特周二表示，在杰弗里・爱泼斯坦相关文件全部公开后，他就再也没有与微软创始人比尔・盖茨交谈过。
 
-现选取部分典型案例予以公布。
+“整件事曝光之后，我就完全没和他说过话。
 
-1.江苏省东海县冰瑶珠宝商行销售以假充真的产品和虚假宣传案 东海县市场监管局根据举报，对东海县冰瑶珠宝商行直播经营场所进行现场检查。
+”巴菲特节目中对贝基・奎克表示。
 
-经查，当事人在某平台直播时，宣称其销售的珠宝饰品类产品为天然翡翠、蜜蜡、水晶等材质，是“天然的、无酸洗、无优化、缅甸的A货”等，并称其产品配有“国检证书”。
+他补充道：“我不想让自己陷入知情的处境……以免被传召作证。
 
-经对销售产品检测，结果均为石英岩玉(染色)、翡翠(处理)、玻璃、塑料材质，与直播宣传的产品材质不符，随货配备的证书亦非正规检测机构出具的检测报告，而是当事人联系制作的假证书。
+” 被问及是否仍与盖茨是好友时，巴菲特温情评价了两人的私人关系——他们曾与盖茨前妻梅琳达・盖茨共同发起“捐赠誓言”（The Giving Pledge），旨在号召全球最富有人士承诺将大部分财富用于慈善事业。
 
-当事人的行为违反《中华人民共和国产品质量法》第三十九条、《中华人民共和国反不正当竞争法》第九条第一款的规定。
+但巴菲特谈及爱泼斯坦与盖茨相关丑闻时补充说：“我认为在事情澄清之前，过多交流没有意义。
 
-2026年4月，东海县市场监管局依据《中华人民共和国产品质量法》第五十条、《中华人民共和国反不正当竞争法》第二十五条第一款、《中华人民共和国行政处罚法》第二十九条的规定，对当事人销售以假充真的产品和虚假商业宣传的违法行为作出处罚，依法责令其停止违法行为，没收以假充真产品共3673件，并处以罚款150000元。
+” “我不想宣誓作证。
 
-2.广东省四会市浪臻珠宝店虚假商业宣传案 四会市市场监管局根据举报，对四会市浪臻珠宝店进行检查。
+”这是爱泼斯坦文件公布后，巴菲特首次就盖茨公开发表评论。
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 23:47 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 23:57 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 23:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 23:58 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 23:52 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 23:39 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 23:57 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 00:00 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 23:50 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 23:52 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 23:47 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 00:03 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 23:48 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 23:46 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 00:10 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 23:49 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 23:44 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 00:09 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 23:52 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 00:04 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 23:52 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 23:59 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 23:43 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 00:09 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/72591748536.shtml)
-- 2026-06-29 23:45 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/8878359951.shtml)
-- 2026-06-29 23:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/5402353125.shtml)
-- 2026-06-29 23:46 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/30160.shtml)
-- 2026-06-29 23:44 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/4182992167.shtml)
-- 2026-06-29 23:51 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/91477561695.shtml)
-- 2026-06-29 23:53 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/964629732532.shtml)
-- 2026-06-29 23:50 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/32192.shtml)
-- 2026-06-29 23:49 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/262970174020.shtml)
-- 2026-06-29 23:58 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/229075220.shtml)
-- 2026-06-30 00:02 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/22641459.shtml)
-- 2026-06-29 23:54 - [金刚川](https://www.blog.minike.top/Article/details/839681399466.shtml)
-- 2026-06-29 23:36 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/149338.shtml)
-- 2026-06-30 00:03 - [逃狱兄弟](http://www.blog.minike.top/Article/details/1381417.shtml)
-- 2026-06-30 00:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/48476.shtml)
+- 2026-06-29 23:55 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/58437.shtml)
+- 2026-06-29 23:49 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/090336.shtml)
+- 2026-06-29 23:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/8816514885.shtml)
+- 2026-06-29 23:58 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/9030405317.shtml)
+- 2026-06-29 23:47 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5128965.shtml)
+- 2026-06-29 23:52 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/385022639302.shtml)
+- 2026-06-29 23:49 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/0259401302.shtml)
+- 2026-06-30 00:00 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/707745374370.shtml)
+- 2026-06-29 23:44 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/37436211041.shtml)
+- 2026-06-29 23:45 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/7825748.shtml)
+- 2026-06-29 23:43 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/065392967.shtml)
+- 2026-06-30 00:08 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/4400978963.shtml)
+- 2026-06-29 23:44 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/87601826.shtml)
+- 2026-06-29 23:47 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/961455649509.shtml)
+- 2026-06-29 23:48 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/411792.shtml)

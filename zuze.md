@@ -1,59 +1,58 @@
-# 财经早报：特朗普称美伊协议可能在本周末达成，A股再次登上新闻联播丨2026年6月4日
+# 3384家！全球家族办公室为何对香港青睐有加？
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-【重磅】全球迎来“芯片牛”！别再错过，立即开户跟进>> 【头条要闻】 特朗普称美伊协议可能在本周末达成 当地时间3日，美国总统特朗普在白宫说，美国同伊朗的谈判进展顺利，协议可能在本周末达成。 特朗普说：“我听说谈判本身进行得非常顺利，实际上是相当顺利……如果真能达成协议，那可能会在这个周末揭晓。” 在被问及伊朗对科威特的最新袭击发生后，美国与伊朗停火协议是否仍然生效时，特朗普说
+“对来自世界各地的家族而言，香港无疑是把握内地庞大机遇的最佳门户。国际资本与投资者对香港前景充满信心。”在近日举办的第四届“裕泽香江”高峰论坛上，香港特区政府财政司司长陈茂波表示，香港股票市场表现强劲，资产及财富管理业务持续蓬勃发展，对全球超高净值家族而言，香港不只是一个安全港，更是一个充满商机的城市。作为全球家族办公室投资的重要枢纽，香港吸引力日益显著。数据显示，截至2025
 
 ## 正文
 
-【重磅】全球迎来“芯片牛”！
+“对来自世界各地的家族而言，香港无疑是把握内地庞大机遇的最佳门户。
 
-别再错过，立即开户跟进>> 【头条要闻】 特朗普称美伊协议可能在本周末达成 当地时间3日，美国总统特朗普在白宫说，美国同伊朗的谈判进展顺利，协议可能在本周末达成。
+国际资本与投资者对香港前景充满信心。
 
-特朗普说：“我听说谈判本身进行得非常顺利，实际上是相当顺利……如果真能达成协议，那可能会在这个周末揭晓。
+”在近日举办的第四届“裕泽香江”高峰论坛上，香港特区政府财政司司长陈茂波表示，香港股票市场表现强劲，资产及财富管理业务持续蓬勃发展，对全球超高净值家族而言，香港不只是一个安全港，更是一个充满商机的城市。
 
-” 在被问及伊朗对科威特的最新袭击发生后，美国与伊朗停火协议是否仍然生效时，特朗普说，“凡事皆有因”，美军在前两天夜里对伊朗进行了相当猛烈的打击，“所以有些事情发生是有原因的，而且这种原因通常多少说得通”。
+作为全球家族办公室投资的重要枢纽，香港吸引力日益显著。
 
-他还说，伊朗此次举动“算不上什么大事”，并称“我们已经掌控了局势，并迅速将其扼杀在了萌芽状态”。
+数据显示，截至2025年底，香港的单一家族办公室(以下简称家办)达3384家，两年间增加约680家、升幅超25%，充分反映全球超高净值家族正在用真金白银对香港的未来投下信心票。
 
-伊朗称在阿曼湾打击一艘美驱逐舰 美军否认 当地时间3日，美军中央司令部在社交媒体发文，否认伊朗有关“在阿曼湾对一艘美军驱逐舰发动打击”的说法，称“美国海上军事力量目前仍在安全、畅通无阻地进行飞行、航行及各项行动。
+这些家办在香港聘用逾万名全职专业人员，涵盖财务顾问、法律、会计等领域，每年为香港带来约126亿港元的收益，惠及香港社会各阶层。
 
-” 当天早些时候，伊朗军方发表声明称，伊朗海军刚刚在阿曼湾对一艘美军驱逐舰发动打击，针对设于该舰、对伊朗实施敌对行动的指挥控制中心。
+优势凸显 香港货币及金融研究中心近日发表一份题为《超越财富：透过慈善、影响力投资及风险管理推动香港家族办公室生态圈发展》的报告显示，香港家族办公室行业增长动力强劲。
 
-伊朗最高领袖批准：成立霍尔木兹海峡问题工作组 据伊朗方面3日消息，伊朗伊斯兰议会副议长阿里·尼克扎德表示，伊朗外交部已获伊朗最高领袖穆杰塔巴·哈梅内伊批准，成立霍尔木兹海峡问题工作组。
+高达91%的受访者表示已投资香港市场，信心主要源于香港的完善监管架构、资本自由流动、成熟金融市场以及具竞争力的税制。
 
 ## 相关推荐
 
-- 2026-06-29 23:40 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 23:55 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 23:43 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 23:57 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 23:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 23:44 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 23:38 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 23:43 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 23:39 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 00:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 23:42 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 23:47 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 23:53 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 00:11 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 23:54 - [蔚来车主罚站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 00:01 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 23:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 23:47 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 23:58 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 00:06 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 23:56 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 23:57 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 23:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 23:59 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 23:50 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/527648481.shtml)
-- 2026-06-29 23:57 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/59353330000.shtml)
-- 2026-06-29 23:43 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/7297007.shtml)
-- 2026-06-29 23:58 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/953205494293.shtml)
-- 2026-06-29 23:40 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/13827168798.shtml)
-- 2026-06-29 23:55 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/3672344.shtml)
-- 2026-06-29 23:39 - [月亮](http://www.blog.kurohicncr.top/Article/details/500245172886.shtml)
-- 2026-06-29 23:47 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/29076566456.shtml)
-- 2026-06-29 23:54 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/470609.shtml)
-- 2026-06-29 23:54 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/689204.shtml)
-- 2026-06-29 23:55 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/13174010.shtml)
-- 2026-06-30 00:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/98098030.shtml)
-- 2026-06-29 23:44 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/50644.shtml)
-- 2026-06-29 23:55 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/442302.shtml)
-- 2026-06-29 23:54 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/83087370966.shtml)
+- 2026-06-29 23:43 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/1480123.shtml)
+- 2026-06-29 23:50 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/496812.shtml)
+- 2026-06-30 00:07 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/3414593920.shtml)
+- 2026-06-29 23:44 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/74318439.shtml)
+- 2026-06-29 23:55 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/59160178303.shtml)
+- 2026-06-29 23:57 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/587832081613.shtml)
+- 2026-06-29 23:57 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/761534201.shtml)
+- 2026-06-29 23:54 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/01524910.shtml)
+- 2026-06-29 23:48 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/30806405.shtml)
+- 2026-06-30 00:08 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/9194356182.shtml)
+- 2026-06-30 00:08 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/06732.shtml)
+- 2026-06-29 23:52 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/52427403.shtml)
+- 2026-06-29 23:59 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/490985130.shtml)
+- 2026-06-30 00:02 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/525245.shtml)
+- 2026-06-30 00:06 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/6406550421.shtml)

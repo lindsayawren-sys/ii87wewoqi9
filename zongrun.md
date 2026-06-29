@@ -1,60 +1,57 @@
-# 世界经济论坛：地缘经济碎片化或致全球年损超3000亿美元，美国工资降幅最大
+# 江西首条多式联运疏港铁路取得突破 控制性工程莫家岭隧道贯通
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-中新网6月4日电 世界经济论坛当地时间4日发布报告称，受地缘政治紧张、经济安全担忧及主要经济体贸易关系变化影响，地缘经济碎片化在2025年和2026年加速发展，预计每年将给全球经济造成2130亿至3070亿美元损失。报告称，关税上调、投资限制和报复措施正日益影响包括美国、欧盟、加拿大、日本和韩国在内的传统经济体，推高企业成本并增加跨境投资不确定性。若碎片化进一步恶化，全球经济损
+中新网九江4月7日电 (李翔 胡琤)4月7日，位于江西九江彭泽县的九江红光港区铁路专用线莫家岭隧道顺利贯通，标志着该专用线项目建设取得重要进展，为后续铺轨及全线通车奠定坚实基础。 九江红光港区铁路专用线是江西省首条可办理集散货到发、集装箱装卸和中转的综合性疏港铁路。作为江西省首条综合性疏港铁路，该项目近期设计年发送运量645万吨、到达运量600万吨，远期分别提升至1205万吨和
 
 ## 正文
 
-中新网6月4日电 世界经济论坛当地时间4日发布报告称，受地缘政治紧张、经济安全担忧及主要经济体贸易关系变化影响，地缘经济碎片化在2025年和2026年加速发展，预计每年将给全球经济造成2130亿至3070亿美元损失。
+中新网九江4月7日电 (李翔 胡琤)4月7日，位于江西九江彭泽县的九江红光港区铁路专用线莫家岭隧道顺利贯通，标志着该专用线项目建设取得重要进展，为后续铺轨及全线通车奠定坚实基础。
 
-报告称，关税上调、投资限制和报复措施正日益影响包括美国、欧盟、加拿大、日本和韩国在内的传统经济体，推高企业成本并增加跨境投资不确定性。
+九江红光港区铁路专用线是江西省首条可办理集散货到发、集装箱装卸和中转的综合性疏港铁路。
 
-若碎片化进一步恶化，全球经济损失可能达到6.9万亿美元，占全球GDP的6.4%。
+作为江西省首条综合性疏港铁路，该项目近期设计年发送运量645万吨、到达运量600万吨，远期分别提升至1205万吨和910万吨。
 
-报告预计，现有产业碎片化政策将推动全球通胀率上升0.2至0.3个百分点，并削弱居民购买力。
+该铁路自2025年8月正式开工建设，目前正稳步推进，预计2027年8月完工。
 
-报道还称，新兴市场和发展中经济体受冲击尤为严重，在极端情景下产出损失最高可达10.7%。
+此次贯通的莫家岭隧道全长295米，是全线重难点控制性工程。
 
-报道指出，实际工资下降幅度最明显的是美国。
+据中铁二十四局九江红光港区铁路专用线项目经理方国开介绍，隧道全线均为Ⅴ级围岩，浅埋段占比超过一半，岩体破碎、自稳能力差，且作业面狭长，施工难度大。
 
-预计美国低技能劳动者的实际工资将下降0.33%，中等技能劳动者下降0.49%，高技能劳动者下降0.66%。
+建设过程中，项目团队采用“地质调查+超前钻探+物探”综合预报措施，运用地质雷达和加深炮孔对掌子面进行精准探测，提前探明断层破碎带和富水区，确保了施工安全与质量。
 
-与此同时，其他主要经济体也面临类似的购买力下滑压力。
+九江红光港区铁路专用线位于湖口县与彭泽县交界处，自铜九铁路流泗站引出，正线全长约6.9公里。
 
 ## 相关推荐
 
-- 2026-06-29 23:37 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 23:39 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 23:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 23:48 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 23:51 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 23:59 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 23:49 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 23:51 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 23:56 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 00:01 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 23:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 23:47 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 23:51 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 23:46 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 23:51 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 00:05 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 00:04 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 23:53 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-30 00:09 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 00:05 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 00:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 23:48 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 23:50 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 23:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 00:02 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:51 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/03304458.shtml)
-- 2026-06-29 23:46 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/790473746.shtml)
-- 2026-06-29 23:54 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/5082347382.shtml)
-- 2026-06-30 00:04 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/32841376747.shtml)
-- 2026-06-29 23:52 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/622629.shtml)
-- 2026-06-29 23:52 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/1610167826.shtml)
-- 2026-06-29 23:54 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/9011981.shtml)
-- 2026-06-29 23:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/7027435440.shtml)
-- 2026-06-29 23:55 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/0866803.shtml)
-- 2026-06-29 23:46 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/84463103857.shtml)
-- 2026-06-30 00:05 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/7738109.shtml)
-- 2026-06-29 23:54 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/0091592375.shtml)
-- 2026-06-29 23:38 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/86540887.shtml)
-- 2026-06-30 00:02 - [一见倾心](https://www.share.minike.top/Article/details/78790944.shtml)
-- 2026-06-30 00:05 - [起风了](http://www.blog.minike.top/Article/details/478872.shtml)
+- 2026-06-29 23:44 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/585662181.shtml)
+- 2026-06-29 23:47 - [斛珠夫人](http://www.blog.minike.top/Article/details/84076426.shtml)
+- 2026-06-29 23:56 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/353335122911.shtml)
+- 2026-06-29 23:58 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/86537434.shtml)
+- 2026-06-29 23:55 - [MG总经理直播被冲](http://www.blog.kurohicncr.top/Article/details/90844563.shtml)
+- 2026-06-30 00:00 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/846433914.shtml)
+- 2026-06-30 00:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/5286376.shtml)
+- 2026-06-29 23:59 - [小娘惹](http://www.blog.minike.top/Article/details/7797905933.shtml)
+- 2026-06-29 23:57 - [金牌调解](https://www.blog.minike.top/Article/details/56856.shtml)
+- 2026-06-29 23:50 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/879308.shtml)
+- 2026-06-29 23:50 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/600465456867.shtml)
+- 2026-06-30 00:08 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/419741231592.shtml)
+- 2026-06-29 23:46 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/483167619.shtml)
+- 2026-06-29 23:55 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/7578458629.shtml)
+- 2026-06-30 00:09 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/955846180.shtml)

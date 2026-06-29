@@ -1,60 +1,59 @@
-# 金山软件Q1游戏收入再降22% CEO直言“还得再熬两个季度” 上月已被剔出恒生科技指数成分股
+# 一年少刷3300亿，招行信用卡等待筑底
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-5月29日，金山软件交出了一份业务分化极为剧烈的一季报。公司当季总营收24.17亿元，同比仅微增3%；归母净利润同比大增284%至10.91亿元，但这笔看似亮眼的利润增长，并非来自主业经营改善，而是一笔合营公司带来的巨额利润贡献在支撑——报告期内合营公司从前一年同期的亏损1232.9万元一举转为盈利18.59亿元。 拆解收入构成，两大板块的割裂态势已至冰点。 办公软件及服务收入
+总资产13万亿，银行零售之王正经历阵痛。 “这几年零售业务受到的外部政策、市场变化冲击最大。”3月30日，招商银行行长王良在业绩会坦言。 压力最直观的是信用卡。 这一招行引以为傲的“王牌”业务，也在进入缩量时代。截至2025年末，其信用卡贷款余额9391亿元，微降87亿元，收入800亿元，亦下降一成左右。 尤其明显的是，其交易额连续两年少刷3000亿元以上。 变局之际，管理层新
 
 ## 正文
 
-5月29日，金山软件交出了一份业务分化极为剧烈的一季报。
+总资产13万亿，银行零售之王正经历阵痛。
 
-公司当季总营收24.17亿元，同比仅微增3%；归母净利润同比大增284%至10.91亿元，但这笔看似亮眼的利润增长，并非来自主业经营改善，而是一笔合营公司带来的巨额利润贡献在支撑——报告期内合营公司从前一年同期的亏损1232.9万元一举转为盈利18.59亿元。
+“这几年零售业务受到的外部政策、市场变化冲击最大。
 
-拆解收入构成，两大板块的割裂态势已至冰点。
+”3月30日，招商银行行长王良在业绩会坦言。
 
-办公软件及服务收入同比增长24%至16.13亿元，而网络游戏及其他业务收入仅录得8.04亿元，同比下降22%，环比也下降了7%。
+压力最直观的是信用卡。
 
-游戏业务的表现不仅不及市场预期，更成为拖累整体收入的主因——中金公司在研报中直指，一季度经营利润仅3.95亿元，同比下滑34.3%，主要源于游戏业务表现不及预期。
+这一招行引以为傲的“王牌”业务，也在进入缩量时代。
 
-与这份财报同步披露的，还有一个更令市场不安的信号：就在一季度财报发布前的5月上旬，金山软件被正式剔出恒生科技指数成分股。
+截至2025年末，其信用卡贷款余额9391亿元，微降87亿元，收入800亿元，亦下降一成左右。
 
-在财报电话会上，金山软件CEO邹涛给出了一个相当直白的判断：Q1游戏收入同比下滑的趋势，“还会延续未来一到两个季度”，因为内部仍在做积极的战略调整。
+尤其明显的是，其交易额连续两年少刷3000亿元以上。
 
-邹涛的判断并非危言耸听。
+变局之际，管理层新老交替。
 
 ## 相关推荐
 
-- 2026-06-30 00:04 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 23:40 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 23:41 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 23:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 23:52 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 23:45 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 23:44 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 23:51 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 23:51 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 23:54 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 23:40 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 23:50 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 00:00 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 00:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 23:44 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 23:48 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 23:43 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 23:43 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 00:11 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 23:45 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 23:58 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 23:56 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 23:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 23:48 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 23:56 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 00:07 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 23:54 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:52 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/15543792.shtml)
-- 2026-06-29 23:41 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/600343.shtml)
-- 2026-06-29 23:52 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/923566.shtml)
-- 2026-06-29 23:54 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/93398424117.shtml)
-- 2026-06-29 23:42 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/9563676.shtml)
-- 2026-06-29 23:50 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/42842.shtml)
-- 2026-06-29 23:48 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/06621568.shtml)
-- 2026-06-29 23:56 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/798096933.shtml)
-- 2026-06-29 23:57 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/1608859.shtml)
-- 2026-06-30 00:02 - [时光音乐会](https://www.share.minike.top/Article/details/033475967.shtml)
-- 2026-06-29 23:47 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/8918591489.shtml)
-- 2026-06-29 23:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/700488021.shtml)
-- 2026-06-29 23:49 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/962640.shtml)
-- 2026-06-29 23:51 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/689754.shtml)
-- 2026-06-29 23:42 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/19863.shtml)
+- 2026-06-30 00:07 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/040106084605.shtml)
+- 2026-06-29 23:59 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/44244378321.shtml)
+- 2026-06-29 23:57 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/578874.shtml)
+- 2026-06-29 23:56 - [日防卫省正考虑引进美企人工智能系统](https://www.share.minike.top/Article/details/500215.shtml)
+- 2026-06-29 23:46 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/3583226902.shtml)
+- 2026-06-29 23:52 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/956987504257.shtml)
+- 2026-06-30 00:06 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/116815.shtml)
+- 2026-06-30 00:01 - [美股](http://www.blog.kurohicncr.top/Article/details/212621.shtml)
+- 2026-06-30 00:05 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/000947697865.shtml)
+- 2026-06-30 00:04 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/4406157.shtml)
+- 2026-06-30 00:11 - [女心理师](https://www.blog.minike.top/Article/details/669654256.shtml)
+- 2026-06-29 23:42 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/857675.shtml)
+- 2026-06-29 23:50 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/14580809.shtml)
+- 2026-06-30 00:08 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/337421.shtml)
+- 2026-06-29 23:52 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/12503105.shtml)

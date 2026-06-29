@@ -1,58 +1,57 @@
-# 农业银行董事长谷澍赴塔吉克斯坦开展工作调研
+# 美欧因伊朗战争愈加离心 北约联盟裂痕加深
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-来源：中国农业银行 当地时间6月2日至3日，农业银行董事长谷澍在杜尚别与塔吉克斯坦国家银行（即塔中央银行）等进行工作会谈，并慰问农业银行杜尚别代表处员工。 在拜访塔国家银行时，谷澍表示，在两国元首的战略引领下，中塔双边关系正处于历史最好时期，农业银行将继续积极支持杜尚别代表处发挥桥梁纽带作用，为中塔双边经贸投资往来、产业合作落地等提供金融服务。塔国家银行行长托利布佐达欢迎谷澍董
+美国的北约盟友对卷入伊朗战争的抵触情绪日益上升，这一本就承压的军事联盟面临进一步裂痕。 据知情人士称，西班牙周一对美国军机关闭领空，意大利拒绝允许飞往中东的美军飞机在西西里基地降落。据报美国建议华沙考虑向中东部署一套“爱国者”系统以加强防空，波兰回应称暂无相关计划。 对于法国拒绝允许载有军事物资的飞机使用其领空，特朗普周二在社交媒体上表达了不满，称美国会记住这件事。 法国总统府
 
 ## 正文
 
-来源：中国农业银行 当地时间6月2日至3日，农业银行董事长谷澍在杜尚别与塔吉克斯坦国家银行（即塔中央银行）等进行工作会谈，并慰问农业银行杜尚别代表处员工。
+美国的北约盟友对卷入伊朗战争的抵触情绪日益上升，这一本就承压的军事联盟面临进一步裂痕。
 
-在拜访塔国家银行时，谷澍表示，在两国元首的战略引领下，中塔双边关系正处于历史最好时期，农业银行将继续积极支持杜尚别代表处发挥桥梁纽带作用，为中塔双边经贸投资往来、产业合作落地等提供金融服务。
+据知情人士称，西班牙周一对美国军机关闭领空，意大利拒绝允许飞往中东的美军飞机在西西里基地降落。
 
-塔国家银行行长托利布佐达欢迎谷澍董事长一行到访，他介绍了塔吉克斯坦经济金融发展近况并表示，两国牢固的政治互信为金融领域合作奠定了良好基础，期待双方未来进一步深化和加强多领域交流合作。
+据报美国建议华沙考虑向中东部署一套“爱国者”系统以加强防空，波兰回应称暂无相关计划。
 
-在塔期间，谷澍还与塔国家储蓄银行董事长萨利姆佐达举行了工作会谈，并拜会中国驻塔吉克斯坦大使郭志军。
+对于法国拒绝允许载有军事物资的飞机使用其领空，特朗普周二在社交媒体上表达了不满，称美国会记住这件事。
 
-谷澍赴杜尚别代表处调研，慰问代表处员工，听取工作汇报，肯定了代表处近年所取得的工作成效，并就继续发挥好功能平台作用提出工作要求。
+法国总统府对这位美国总统的发文表示惊讶。
 
-农业银行人力资源部、国际金融部、杜尚别代表处有关负责人陪同参加相关拜访和活动。
+马克龙办公室在一份声明中表示：“法国的立场自冲突一开始以来就从未改变，这一决定与法国自本轮冲突开始以来的一贯立场一致。
 
-责任编辑：曹睿潼
+” 自2月28日美国和以色列对伊朗发动战争以来，欧洲领导人一直在走钢丝。
+
+他们既不想激怒美国这位最高统帅，又希望他不要削弱对乌克兰的援助。
 
 ## 相关推荐
 
-- 2026-06-29 23:43 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 23:45 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 23:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 23:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 23:44 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 00:01 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 23:53 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 23:47 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 00:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 23:47 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 23:39 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 23:55 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 23:59 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 23:59 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 23:45 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 00:03 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 23:59 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 00:10 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 23:44 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 00:07 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 23:51 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 00:07 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 00:10 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 23:57 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 23:51 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/0526957357.shtml)
-- 2026-06-30 00:03 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/9928807.shtml)
-- 2026-06-29 23:42 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/99413092.shtml)
-- 2026-06-29 23:42 - [绘画区你赢了](http://www.blog.minike.top/Article/details/27692.shtml)
-- 2026-06-29 23:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/226292252695.shtml)
-- 2026-06-29 23:45 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/443389606831.shtml)
-- 2026-06-29 23:46 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/564945.shtml)
-- 2026-06-29 23:56 - [沙丘](http://www.blog.minike.top/Article/details/37393947963.shtml)
-- 2026-06-29 23:43 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/13083656550.shtml)
-- 2026-06-30 00:05 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/08690.shtml)
-- 2026-06-29 23:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/1713152033.shtml)
-- 2026-06-29 23:40 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/43013172194.shtml)
-- 2026-06-29 23:44 - [肝不好身体这几处会“说话”](http://www.share.kurohicncr.top/Article/details/949857317.shtml)
-- 2026-06-29 23:45 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/08864.shtml)
-- 2026-06-29 23:42 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/297983.shtml)
+- 2026-06-29 23:47 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/35220356.shtml)
+- 2026-06-29 23:46 - [天道](https://www.blog.kurohicncr.top/Article/details/40969.shtml)
+- 2026-06-29 23:46 - [女心理师](https://www.blog.kurohicncr.top/Article/details/438650697.shtml)
+- 2026-06-30 00:10 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/065479313439.shtml)
+- 2026-06-29 23:48 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/5286383472.shtml)
+- 2026-06-30 00:07 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/1088420.shtml)
+- 2026-06-29 23:57 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/58273012840.shtml)
+- 2026-06-30 00:01 - [炽夏](https://www.share.kurohicncr.top/Article/details/7006742.shtml)
+- 2026-06-29 23:51 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/3762543827.shtml)
+- 2026-06-30 00:10 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/53425399948.shtml)
+- 2026-06-29 23:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/997008562.shtml)
+- 2026-06-29 23:59 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/145805.shtml)
+- 2026-06-29 23:58 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/31384.shtml)
+- 2026-06-30 00:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/012733448207.shtml)
+- 2026-06-29 23:44 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/72497970621.shtml)

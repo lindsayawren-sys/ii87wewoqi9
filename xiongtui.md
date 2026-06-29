@@ -1,57 +1,52 @@
-# AI热潮造富：去年200万人晋身百万美元富豪，高净值人士总财富超98万亿美元
+# 中国信达：金融服务业务总资产7573.44亿元 同比增长4.07%
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-全球可投资资产总额至少100万美元的人去年财富增加了近9%。 根据法国IT和顾问公司凯捷（Capgemini）的一份报告，2025年，全球高净值人士的财富总额将达到创纪录的98.3万亿美元。 报告称，受AI乐观情绪推动的股市上涨，是财富增加的主要引擎，帮助全球百万美元富豪人数增加近200万人，达到创纪录的2530万人。 资产仍然高度集中在超级富豪手中。净资产超过3，000万美元
+3月31日金融一线消息，中国信达发布2025年度经营业绩，截至2025年末，金融服务业务总资产7573.44亿元，同比增长4.07%；税前利润60.58亿元，同比增长40.54%。南商银行税前利润37.81亿元，同比增长5.65%。信达证券税前利润20.95亿元，同比增长36.36%。金谷信托税前利润11.23亿元，同比增长51.18%。信达金租税前利润13.74亿元，同比增长
 
 ## 正文
 
-全球可投资资产总额至少100万美元的人去年财富增加了近9%。
+3月31日金融一线消息，中国信达发布2025年度经营业绩，截至2025年末，金融服务业务总资产7573.44亿元，同比增长4.07%；税前利润60.58亿元，同比增长40.54%。
 
-根据法国IT和顾问公司凯捷（Capgemini）的一份报告，2025年，全球高净值人士的财富总额将达到创纪录的98.3万亿美元。
+南商银行税前利润37.81亿元，同比增长5.65%。
 
-报告称，受AI乐观情绪推动的股市上涨，是财富增加的主要引擎，帮助全球百万美元富豪人数增加近200万人，达到创纪录的2530万人。
+信达证券税前利润20.95亿元，同比增长36.36%。
 
-资产仍然高度集中在超级富豪手中。
+金谷信托税前利润11.23亿元，同比增长51.18%。
 
-净资产超过3，000万美元的超高净值人士，财富增长速度在所有财富阶层中最为迅猛，这个族群的人数已达到创纪录的25万人。
+信达金租税前利润13.74亿元，同比增长64.42%。
 
-根据凯捷的报告，美国在2025年新增73.6万名百万富豪，总数达到870万人。
-
-高净值人士的财富比前一年增长了10%。
-
-责任编辑：于健 SF069
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 23:59 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 23:54 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 00:03 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 23:58 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 00:04 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 23:50 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 23:54 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 23:47 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 23:40 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 23:37 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 23:42 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 23:54 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 00:07 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 00:08 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 23:43 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 23:53 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 00:06 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 23:59 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 23:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 00:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:53 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/3096452135.shtml)
-- 2026-06-29 23:38 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/2949694.shtml)
-- 2026-06-29 23:40 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/8632807005.shtml)
-- 2026-06-29 23:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/3208099279.shtml)
-- 2026-06-29 23:59 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/407244182040.shtml)
-- 2026-06-29 23:52 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/86011332663.shtml)
-- 2026-06-29 23:42 - [女心理师](http://www.blog.minike.top/Article/details/26169372129.shtml)
-- 2026-06-30 00:04 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/41009.shtml)
-- 2026-06-29 23:36 - [一见倾心](http://www.share.minike.top/Article/details/025953.shtml)
-- 2026-06-29 23:59 - [沙丘](http://www.share.minike.top/Article/details/32694652.shtml)
-- 2026-06-29 23:43 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/20516427332.shtml)
-- 2026-06-29 23:59 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/98930335907.shtml)
-- 2026-06-29 23:59 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/90929182.shtml)
-- 2026-06-29 23:50 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/978142.shtml)
-- 2026-06-29 23:57 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/92588.shtml)
+- 2026-06-30 00:04 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/83065302.shtml)
+- 2026-06-29 23:59 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/891652931549.shtml)
+- 2026-06-29 23:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/013238.shtml)
+- 2026-06-29 23:59 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/031809221.shtml)
+- 2026-06-29 23:56 - [月亮](https://www.blog.minike.top/Article/details/965681923968.shtml)
+- 2026-06-30 00:09 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/88815.shtml)
+- 2026-06-29 23:55 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/55747.shtml)
+- 2026-06-29 23:58 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/268043972150.shtml)
+- 2026-06-29 23:54 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/555392300380.shtml)
+- 2026-06-29 23:46 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/3159377.shtml)
+- 2026-06-29 23:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/114074583.shtml)
+- 2026-06-29 23:53 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/29891.shtml)
+- 2026-06-29 23:51 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/96579.shtml)
+- 2026-06-30 00:09 - [斗破苍穹](http://www.blog.minike.top/Article/details/7602666386.shtml)
+- 2026-06-29 23:55 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/6228066.shtml)

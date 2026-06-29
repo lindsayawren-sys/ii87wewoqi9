@@ -1,59 +1,59 @@
-# 外交部：希望欧方客观理性看待中欧经贸关系
+# 红板科技上交所上市：涨226%公司市值435亿年营收36.8亿，净利5亿
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！外交部发言人毛宁6月4日在例行记者会上回答有关中欧经贸关系的提问时说，贸易保护主义违背经济规律，损人不利己。希望欧方客观理性看待中欧经贸关系，同中方一道压缩问题清单，做大合作蛋糕，实现互利共赢。 毛宁表示，中欧经贸合作源于共同利益，本质上是比较优势和市场竞争共同作用的结果。优势互补不是风险，利益融合也不是威
+雷递网 雷建平 4月8日江西红板科技股份有限公司（简称：“红板科技”，股票代码：“603459”）今日在上交所主板上市。红板科技发行价为17.7元，发行1亿股，募资总额为17.7亿元。红板科技开盘价为52元，较发行价上涨194%；收盘价为57.7元，较发行价上涨226%；以收盘价计算，公司市值为435亿元。年营收36.77亿 净利5.4亿红板科技专注于印制电路板的研发、生产和销
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+雷递网 雷建平 4月8日江西红板科技股份有限公司（简称：“红板科技”，股票代码：“603459”）今日在上交所主板上市。
 
-外交部发言人毛宁6月4日在例行记者会上回答有关中欧经贸关系的提问时说，贸易保护主义违背经济规律，损人不利己。
+红板科技发行价为17.7元，发行1亿股，募资总额为17.7亿元。
 
-希望欧方客观理性看待中欧经贸关系，同中方一道压缩问题清单，做大合作蛋糕，实现互利共赢。
+红板科技开盘价为52元，较发行价上涨194%；收盘价为57.7元，较发行价上涨226%；以收盘价计算，公司市值为435亿元。
 
-毛宁表示，中欧经贸合作源于共同利益，本质上是比较优势和市场竞争共同作用的结果。
+年营收36.77亿 净利5.4亿红板科技专注于印制电路板的研发、生产和销售，产品定位于中高端应用市场，是行业内HDI板收入占比较高、能够批量生产任意互连HDI板和IC载板的企业之一。
 
-优势互补不是风险，利益融合也不是威胁。
+红板科技已形成完善的产品结构，产品包括HDI板、刚性板、柔性板、刚柔结合板、类载板、IC载板等，可为客户提供多样化的产品选择和一站式服务。
 
-越来越多的欧洲企业选择深耕中国，扩大在华业务，这本身就是对所谓“去风险”最有力的回应。
+公司产品应用于消费电子、汽车电子、高端显示、通讯电子等领域。
 
-责任编辑：宋雅芳
+招股书显示，红板科技2023年、2024年、2025年营收分别为23.4亿元、27亿元、36.77亿；净利分别为1.05亿元、2.1亿元、5.4亿元；扣非后净利分别为8704万元、1.94亿元、5.21亿元。
+
+红板科技预计2026年第一季度营收为9亿到9.5亿，较上年同期的7.75亿元增长16%到22.53%；预计净利为1.2亿到1.25亿，较上年同期的1.08亿元增长10.85%到15.47%；扣非后净利为1.15亿到1.2亿，较上年同期的1.05亿增长9.7%到14.47%。
 
 ## 相关推荐
 
-- 2026-06-29 23:43 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 00:04 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 23:42 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 23:49 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 23:52 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 23:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 23:47 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 23:42 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 23:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 23:39 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 23:41 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-30 00:02 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 00:02 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 23:44 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 00:00 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 23:50 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 23:50 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 00:03 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 23:52 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 23:54 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 23:55 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 23:49 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 00:09 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 23:44 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 23:59 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 23:50 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 23:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 23:43 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:42 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/125149.shtml)
-- 2026-06-29 23:58 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/38278631.shtml)
-- 2026-06-29 23:48 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/3485869.shtml)
-- 2026-06-29 23:38 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/401256434.shtml)
-- 2026-06-29 23:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/7357825656.shtml)
-- 2026-06-29 23:43 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/67424.shtml)
-- 2026-06-30 00:04 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/17004.shtml)
-- 2026-06-29 23:38 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/370112.shtml)
-- 2026-06-29 23:57 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/209997954460.shtml)
-- 2026-06-29 23:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/71403.shtml)
-- 2026-06-29 23:47 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/17040674487.shtml)
-- 2026-06-29 23:41 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/65669104.shtml)
-- 2026-06-29 23:49 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/7796166668.shtml)
-- 2026-06-30 00:01 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/254348513766.shtml)
-- 2026-06-30 00:03 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/0647664432.shtml)
+- 2026-06-30 00:08 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/339872243331.shtml)
+- 2026-06-29 23:47 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/482109600295.shtml)
+- 2026-06-29 23:43 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/867585836.shtml)
+- 2026-06-29 23:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/399407.shtml)
+- 2026-06-30 00:03 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/623972.shtml)
+- 2026-06-30 00:08 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/5180956671.shtml)
+- 2026-06-29 23:49 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/550404.shtml)
+- 2026-06-30 00:08 - [存储三巨头被告了](https://www.share.minike.top/Article/details/84168898831.shtml)
+- 2026-06-29 23:48 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/78172.shtml)
+- 2026-06-30 00:08 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/694927240629.shtml)
+- 2026-06-30 00:02 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/266018383.shtml)
+- 2026-06-29 23:50 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/13340454224.shtml)
+- 2026-06-29 23:42 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/0785288.shtml)
+- 2026-06-29 23:56 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/212114443731.shtml)
+- 2026-06-29 23:45 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/07064.shtml)

@@ -1,56 +1,56 @@
-# 从“手摇袜机”到“智造出海”：一根纱线织出一条产业链
+# 突然，大跌！花旗宣布：下调！芯片，突传利空
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-中新网辽宁辽阳6月3日电 (姜月恒 解东达)“即将开哨的2026年美加墨世界杯，我们接了一百万双球迷袜的订单。”在辽宁省辽阳市辽阳县小北河镇，辽宁保利袜业进出口有限公司董事长王中新不无自豪地说道。 除了美洲地区，现如今小北河生产的袜子还远销南非、澳大利亚、德国、俄罗斯等全球三十多个国家和地区。这里的2.5万台织机昼夜不息地运转，年产袜子超过25亿双，直接出口额突破3000万元，
+全球“最火赛道”突然降温。 3月31日，美股盘前，存储芯片概念股继续走弱，美光科技一度跌近2%，闪迪一度跌超2%，前一交易日，美光科技、闪迪跌幅分别超9%、7%。消息面上，花旗集团将美光科技目标价从510美元下调至425美元。此外，今日日韩存储芯片板块全线大跌，SK海力士大跌超7%，三星电子跌超5%。 据花旗报告，谷歌新技术TurboQuant冲击导致内存价格跳水，主流DDR5
 
 ## 正文
 
-中新网辽宁辽阳6月3日电 (姜月恒 解东达)“即将开哨的2026年美加墨世界杯，我们接了一百万双球迷袜的订单。
+全球“最火赛道”突然降温。
 
-”在辽宁省辽阳市辽阳县小北河镇，辽宁保利袜业进出口有限公司董事长王中新不无自豪地说道。
+3月31日，美股盘前，存储芯片概念股继续走弱，美光科技一度跌近2%，闪迪一度跌超2%，前一交易日，美光科技、闪迪跌幅分别超9%、7%。
 
-除了美洲地区，现如今小北河生产的袜子还远销南非、澳大利亚、德国、俄罗斯等全球三十多个国家和地区。
+消息面上，花旗集团将美光科技目标价从510美元下调至425美元。
 
-这里的2.5万台织机昼夜不息地运转，年产袜子超过25亿双，直接出口额突破3000万元，已成为继浙江诸暨、广东里水等之后的全国第五大袜业产业集群，被誉为“中国袜业名镇”。
+此外，今日日韩存储芯片板块全线大跌，SK海力士大跌超7%，三星电子跌超5%。
 
-从40年前家庭作坊里的手摇半自动织机，到如今拥有第五代“织缝翻一体机”的黑灯工厂雏形，小北河袜业的蜕变，是一条从“一根纱线”开始的产业链攻坚之路。
+据花旗报告，谷歌新技术TurboQuant冲击导致内存价格跳水，主流DDR5 16GB现货价格近期下跌6%。
 
-“以前我们是典型的‘两头在外’，原料靠外地采购，销售靠外部渠道。
+摩根士丹利也表示，AI算力需求持续释放，但客户对DRAM（动态随机存取存储器）高价的承受力已构成实质性约束，相关厂商面临估值下修压力。
 
-”辽阳金棉花袜业有限公司负责人王海峰回忆，早期的小北河袜业主要依托辽阳石化化纤优势生产纯涤棉袜，产品生硬闷汗，且受限于外地原料供应，利润微薄。
+花旗宣布：下调 3月31日，花旗分析师Atif Malik发布报告称，将美光目标价从510美元下调至425美元，降幅达17%。
 
-为打破瓶颈，当地企业自建生产线，攻克了原料配比与纺丝稳定性的“卡脖子”难题。
+报告显示，主流DDR5 16GB DRAM现货价格近期下跌约6%，此轮回落主要归因于市场对谷歌TurboQuant技术的顾虑。
 
 ## 相关推荐
 
-- 2026-06-29 23:44 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 23:47 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 00:02 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 00:01 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 00:03 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 23:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 23:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 23:41 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 23:52 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 23:36 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 00:05 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 23:51 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 23:49 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 23:56 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 23:55 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 23:58 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 23:52 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 23:53 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 00:03 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 00:09 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:48 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/076574623712.shtml)
-- 2026-06-29 23:50 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/485146305.shtml)
-- 2026-06-29 23:53 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/1350862.shtml)
-- 2026-06-30 00:05 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/08733.shtml)
-- 2026-06-29 23:59 - [这一刀 会很帅](http://www.share.minike.top/Article/details/37627300842.shtml)
-- 2026-06-29 23:51 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/26933473.shtml)
-- 2026-06-29 23:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/931430.shtml)
-- 2026-06-29 23:55 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/581147.shtml)
-- 2026-06-29 23:49 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/55283120649.shtml)
-- 2026-06-29 23:39 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/950349442724.shtml)
-- 2026-06-29 23:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/5124919979.shtml)
-- 2026-06-29 23:40 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/170350071.shtml)
-- 2026-06-29 23:38 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/814401421.shtml)
-- 2026-06-29 23:45 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/02050.shtml)
-- 2026-06-29 23:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/9521108.shtml)
+- 2026-06-30 00:00 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/10561225042.shtml)
+- 2026-06-30 00:08 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/7355751.shtml)
+- 2026-06-29 23:51 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/918492.shtml)
+- 2026-06-29 23:46 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/24894328059.shtml)
+- 2026-06-30 00:07 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/28736426.shtml)
+- 2026-06-29 23:57 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/9935899.shtml)
+- 2026-06-30 00:08 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/63828122.shtml)
+- 2026-06-29 23:44 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/390488262.shtml)
+- 2026-06-30 00:02 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/9609279702.shtml)
+- 2026-06-29 23:57 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/10612.shtml)
+- 2026-06-29 23:43 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/3038541981.shtml)
+- 2026-06-29 23:47 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/36045.shtml)
+- 2026-06-29 23:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/2921432.shtml)
+- 2026-06-29 23:59 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/583441566037.shtml)
+- 2026-06-30 00:00 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/68456520950.shtml)

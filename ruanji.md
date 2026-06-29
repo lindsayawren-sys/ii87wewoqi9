@@ -1,47 +1,61 @@
-# 重情重义的领袖、实干家——老挝奔舍那家族眼中的习近平
+# 高盛上调奈飞评级与目标价 看好营收增长前景
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月04日 20:33 来源：人民日报英文客户端 责任编辑：【韦俊龙】
+奈飞周一获得高盛的积极评级。该投行指出，在与派拉蒙天空之舞就华纳兄弟的争端结束后，奈飞的营收前景改善、资本回报率提高，且发展路径更加清晰。 高盛将奈飞的评级从“中性”上调至“买入”，并将目标价上调20%至120美元，意味着约26% 的上涨空间。 分析师埃里克·谢里丹表示，得益于其广告业务和计划中的订阅价格上调，这家流媒体公司未来三到四年可能实现两位数的营收增长。 谢里丹还认为，
 
 ## 正文
 
-发布时间：2026年06月04日 20:33 来源：人民日报英文客户端 责任编辑：【韦俊龙】
+奈飞周一获得高盛的积极评级。
+
+该投行指出，在与派拉蒙天空之舞就华纳兄弟的争端结束后，奈飞的营收前景改善、资本回报率提高，且发展路径更加清晰。
+
+高盛将奈飞的评级从“中性”上调至“买入”，并将目标价上调20%至120美元，意味着约26% 的上涨空间。
+
+分析师埃里克·谢里丹表示，得益于其广告业务和计划中的订阅价格上调，这家流媒体公司未来三到四年可能实现两位数的营收增长。
+
+谢里丹还认为，在内容支出保持纪律性的支持下，未来三年每年的GAAP营业利润率有望扩大约250个基点。
+
+他补充说，奈飞可能在未来五年内通过资本回报向股东返还其市值的20%至25%。
+
+奈飞计划于4月16日收盘后公布第一季度业绩。
+
+华尔街预期其非GAAP每股收益为0.77美元，营收为121.7亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 00:01 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 23:41 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 23:52 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 00:01 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 00:01 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 23:39 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 23:51 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 23:45 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 23:59 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 23:59 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 23:41 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 23:57 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 23:55 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 00:01 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 00:04 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 23:57 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 23:42 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 00:05 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 00:06 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 00:08 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 00:04 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 00:09 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 00:05 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 23:54 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 23:42 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 23:51 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 23:48 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 23:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 00:09 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 23:56 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:40 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/6918756796.shtml)
-- 2026-06-29 23:45 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/81011601466.shtml)
-- 2026-06-30 00:01 - [哈兰德吃饭被镜中自己吓到](https://www.share.kurohicncr.top/Article/details/1731054614.shtml)
-- 2026-06-29 23:58 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/415923.shtml)
-- 2026-06-29 23:49 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/016979994399.shtml)
-- 2026-06-29 23:56 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/449948.shtml)
-- 2026-06-29 23:57 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/4491785967.shtml)
-- 2026-06-29 23:36 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/423796.shtml)
-- 2026-06-29 23:52 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/88694.shtml)
-- 2026-06-30 00:05 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/2756539.shtml)
-- 2026-06-30 00:05 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/3981875.shtml)
-- 2026-06-29 23:48 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/59699487918.shtml)
-- 2026-06-29 23:43 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/364190914.shtml)
-- 2026-06-29 23:52 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/669058.shtml)
-- 2026-06-29 23:37 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/941864422997.shtml)
+- 2026-06-30 00:00 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/126349883.shtml)
+- 2026-06-29 23:57 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/6624453.shtml)
+- 2026-06-29 23:51 - [世界杯](http://www.share.kurohicncr.top/Article/details/741984.shtml)
+- 2026-06-29 23:58 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/63728594309.shtml)
+- 2026-06-29 23:43 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/07312817.shtml)
+- 2026-06-30 00:03 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/80130732.shtml)
+- 2026-06-30 00:09 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/707565093.shtml)
+- 2026-06-30 00:11 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/67917.shtml)
+- 2026-06-29 23:45 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/45974734.shtml)
+- 2026-06-29 23:44 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/23218.shtml)
+- 2026-06-29 23:51 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/813055767814.shtml)
+- 2026-06-30 00:05 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/32540881.shtml)
+- 2026-06-30 00:11 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/857577.shtml)
+- 2026-06-29 23:55 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/15063602.shtml)
+- 2026-06-29 23:57 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/10045.shtml)

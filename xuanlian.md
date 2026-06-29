@@ -1,56 +1,48 @@
-# 福建连江2.5万亩生蚝迎来丰收季 养殖户挑灯夜战
+# 大摩：降中国海外发展目标价至12.5港元 评级“与大市同步”
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月04日 11:58 来源：中国新闻网 眼下，在福建连江县，渔民们在海里养殖的2.5万亩生蚝迎来丰收季，肉质鲜嫩、肥美，预计总产量达10万吨以上。 在定海湾的万余亩生蚝养殖区，一个个塑胶浮球错落有致地排列在蔚蓝色的海面上，浮球下是用绳索串联吊养的一笼笼生蚝。养殖户们利用定滑轮、桅杆、起网机等设备，将吊养在海里的一笼笼生蚝打捞上船，码放整齐，准备运回岸边出
+摩根士丹利发布研报称，已将中国海外发展（00688）风险回报更新，目标价由13.5港元下调至12.5港元，维持“与大市同步”评级。该行解释，下调目标价主要由于纳入2025年业绩及引入2028年预测，并将2026年核心每股盈利预测下调13%，2027年下调2%，以反映更新了物业发展项目交付及完工时间表；租金收入增长放缓；物业发展毛利率复苏较弱；销售及行政开支高于预期。责任编辑：史
 
 ## 正文
 
-发布时间：2026年06月04日 11:58 来源：中国新闻网 眼下，在福建连江县，渔民们在海里养殖的2.5万亩生蚝迎来丰收季，肉质鲜嫩、肥美，预计总产量达10万吨以上。
+摩根士丹利发布研报称，已将中国海外发展（00688）风险回报更新，目标价由13.5港元下调至12.5港元，维持“与大市同步”评级。
 
-在定海湾的万余亩生蚝养殖区，一个个塑胶浮球错落有致地排列在蔚蓝色的海面上，浮球下是用绳索串联吊养的一笼笼生蚝。
+该行解释，下调目标价主要由于纳入2025年业绩及引入2028年预测，并将2026年核心每股盈利预测下调13%，2027年下调2%，以反映更新了物业发展项目交付及完工时间表；租金收入增长放缓；物业发展毛利率复苏较弱；销售及行政开支高于预期。
 
-养殖户们利用定滑轮、桅杆、起网机等设备，将吊养在海里的一笼笼生蚝打捞上船，码放整齐，准备运回岸边出售。
-
-收满一船船生蚝，渔民们将其运到码头边，将其吊到岸上，趁着晚上天气凉爽，挑灯夜战，将生蚝分拣，除去壳面上的附着物，然后装袋，过秤，直接卖给前来收购的经销商，一直干到次日凌晨三四点。
-
-收获上岸的生蚝，除了直接卖给经销商之外，一些村民也在当地办起了生蚝加工厂，将收获上岸的生蚝进行清洗净化，然后按个头大小分类、贴标、加冰、打包，然后再销往市场或卖给外地客商。
-
-连江县与马祖列岛一衣带水，海水水质优良，适宜生蚝生长，目前，连江村民养殖的生蚝主要分布在定海湾、罗源湾、松芦湾以及黄岐半岛外围海域。
-
-据连江县海洋与渔业部门统计，去年全县养殖的生蚝总面积达2.5万亩，总产量达10万吨，总产值达4亿多元，今年生蚝养殖规模和产量与去年整体相当。
-
-(吴晟炜 吴其法） 责任编辑：【张燕玲】
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-29 23:57 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 23:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 23:55 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 23:40 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 00:03 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 23:56 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 23:36 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 23:50 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 23:54 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 23:38 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 23:57 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 23:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 23:44 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 00:01 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-30 00:09 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 23:47 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 00:01 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 00:00 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 00:11 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 23:55 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 23:43 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 23:46 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:38 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/592129.shtml)
-- 2026-06-29 23:53 - [第一炉香](http://www.blog.minike.top/Article/details/53182498.shtml)
-- 2026-06-30 00:03 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/876083.shtml)
-- 2026-06-29 23:47 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/2107852204.shtml)
-- 2026-06-29 23:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/96637.shtml)
-- 2026-06-29 23:58 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/3756920739.shtml)
-- 2026-06-29 23:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/47903843.shtml)
-- 2026-06-29 23:54 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/516974.shtml)
-- 2026-06-30 00:05 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/716434.shtml)
-- 2026-06-29 23:44 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/4666822.shtml)
-- 2026-06-30 00:01 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/981951354.shtml)
-- 2026-06-29 23:55 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/58160737.shtml)
-- 2026-06-29 23:55 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/744245798044.shtml)
-- 2026-06-29 23:54 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/08528496.shtml)
-- 2026-06-29 23:55 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/993040861.shtml)
+- 2026-06-30 00:04 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/135083383.shtml)
+- 2026-06-30 00:01 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/207960884037.shtml)
+- 2026-06-29 23:51 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/497817288.shtml)
+- 2026-06-29 23:59 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/462934.shtml)
+- 2026-06-29 23:50 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/819731.shtml)
+- 2026-06-29 23:50 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/264545.shtml)
+- 2026-06-29 23:44 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/76652356780.shtml)
+- 2026-06-29 23:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/4811476401.shtml)
+- 2026-06-30 00:02 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/500746017987.shtml)
+- 2026-06-29 23:46 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/55363833812.shtml)
+- 2026-06-29 23:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/6394835.shtml)
+- 2026-06-30 00:07 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/67005.shtml)
+- 2026-06-29 23:45 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/6883897412.shtml)
+- 2026-06-29 23:52 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/036086964.shtml)
+- 2026-06-30 00:05 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/51259163690.shtml)

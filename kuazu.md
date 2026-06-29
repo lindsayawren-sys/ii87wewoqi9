@@ -1,51 +1,56 @@
-# 今夏国家电网最大用电负荷将超13亿千瓦 同比增约6%
+# 华为发布2025年年报：净利润680亿元！研发投入1923亿
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-记者今天从国家电网了解到，据测算，今夏国家电网经营区最大用电负荷将超过13亿千瓦，比去年同期增长约6%。为全力保障电网安全运行和电力可靠供应，国家电网加快保供能力建设，持续完善电力市场化交易，促进清洁能源高效利用，目前，168项迎峰度夏重点工程正在加快建设。 (总台央视记者 孙渊)
+快科技3月31日消息，华为今日发布2025年年度报告，报告显示，华为经营结果符合预期，实现全球销售收入8809亿元人民币，净利润680亿元人民币，较2024年的625.74亿元实现稳步增长。经营现金流表现亮眼，达1273.84亿元，同比大幅增长44.1%，现金与短期投资为3614.26亿元，资金链充裕。2025年研发投入达到1923亿元人民币，约占全年收入的21.8%，近十年累
 
 ## 正文
 
-记者今天从国家电网了解到，据测算，今夏国家电网经营区最大用电负荷将超过13亿千瓦，比去年同期增长约6%。
+快科技3月31日消息，华为今日发布2025年年度报告，报告显示，华为经营结果符合预期，实现全球销售收入8809亿元人民币，净利润680亿元人民币，较2024年的625.74亿元实现稳步增长。
 
-为全力保障电网安全运行和电力可靠供应，国家电网加快保供能力建设，持续完善电力市场化交易，促进清洁能源高效利用，目前，168项迎峰度夏重点工程正在加快建设。
+经营现金流表现亮眼，达1273.84亿元，同比大幅增长44.1%，现金与短期投资为3614.26亿元，资金链充裕。
 
-(总台央视记者 孙渊)
+2025年研发投入达到1923亿元人民币，约占全年收入的21.8%，近十年累计投入的研发费用超过13820亿元人民币。
+
+截至2025年12月31日，华为研发员工约11.4万名，占总员工数量的53.7%；截至2025年底，在全球共持有有效授权专利约16.5万件。
+
+区域营收方面，中国市场仍为核心，实现6162.49亿元，同比微增0.2%。
+
+海外市场增长显著，欧洲中东非洲、亚太区域分别同比增长8.8%、15.7%，美洲市场微增2.4%，海外业务成为营收增长的重要补充。
+
+智能汽车解决方案业务成为增长引擎，实现收入450.18亿元，同比大增72.1%，智能部件年发货量超3800万件，乾崑智驾、鸿蒙座舱等产品体验获市场认可。
+
+数字能源业务同比增长12.7%至773.12亿元，光储解决方案、AI数据中心等产品助力绿色低碳发展。
 
 ## 相关推荐
 
-- 2026-06-29 23:38 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 23:45 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 23:42 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 23:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 23:37 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 23:46 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 23:47 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 00:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 23:46 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 23:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 23:56 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 23:53 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 23:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 00:05 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 23:57 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 23:59 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 23:47 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 23:51 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 00:08 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 23:59 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 23:58 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 23:46 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 23:58 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 00:08 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 00:10 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:03 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/0335770973.shtml)
-- 2026-06-29 23:46 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/2679395.shtml)
-- 2026-06-29 23:44 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/28855795.shtml)
-- 2026-06-29 23:41 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/30985080753.shtml)
-- 2026-06-30 00:05 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/6564348349.shtml)
-- 2026-06-29 23:51 - [东方风云榜直播](https://www.share.minike.top/Article/details/823100119.shtml)
-- 2026-06-29 23:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/977085869.shtml)
-- 2026-06-29 23:54 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/916421044.shtml)
-- 2026-06-29 23:38 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/251921.shtml)
-- 2026-06-29 23:38 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/74649877373.shtml)
-- 2026-06-30 00:02 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/92684637.shtml)
-- 2026-06-30 00:04 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/24287520.shtml)
-- 2026-06-30 00:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/40121370.shtml)
-- 2026-06-29 23:57 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/1027299215.shtml)
-- 2026-06-29 23:57 - [爱很美味](http://www.blog.minike.top/Article/details/95791284.shtml)
+- 2026-06-30 00:08 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/24204797.shtml)
+- 2026-06-29 23:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/398957394345.shtml)
+- 2026-06-29 23:47 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/358730051.shtml)
+- 2026-06-29 23:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/42329.shtml)
+- 2026-06-30 00:09 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/02996574.shtml)
+- 2026-06-29 23:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/5026144816.shtml)
+- 2026-06-29 23:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/2327861.shtml)
+- 2026-06-29 23:53 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/56143.shtml)
+- 2026-06-29 23:47 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/5864255.shtml)
+- 2026-06-30 00:01 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/45082653314.shtml)
+- 2026-06-29 23:53 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/2204154.shtml)
+- 2026-06-30 00:11 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/256449441.shtml)
+- 2026-06-30 00:11 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/03105.shtml)
+- 2026-06-29 23:56 - [月亮](http://www.blog.kurohicncr.top/Article/details/754056505001.shtml)
+- 2026-06-30 00:07 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/89649689.shtml)

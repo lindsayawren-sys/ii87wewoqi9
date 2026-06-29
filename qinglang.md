@@ -1,54 +1,57 @@
-# 赖清德为什么怕小红书？
+# OpenAI完成1220亿美元融资 估值达8520亿美元
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月04日 19:25 来源：中国新闻网 近日，赖清德在与岛内高中生对谈时称，TikTok、小红书对台湾青年世代的影响已达“安全危机”，久而久之，会把中国大陆当作好人。台湾原乡人文化工作室执行长、媒体人张钧凯向中国新闻网“燕新台”工作室表示，赖清德的言论本质是冷战思维与信息茧房下的认知错位，也是其自卑心态的真实反映。他指出，台湾年轻人对大陆APP“用脚投票
+OpenAI已完成一轮融资交易，以8520亿美元估值向投资者募资1220亿美元。这是该公司迄今规模最大的一轮融资，将支持其在芯片、数据中心和人才方面的高昂投入。 这笔融资历时数月，主要来自三家大型科技公司。其中，亚马逊同意投资500亿美元，英伟达和软银集团分别投资300亿美元。亚马逊投资中有很大一部分 —— 350亿美元 —— 以OpenAI 上市或达到通用人工智能（AGI）技
 
 ## 正文
 
-发布时间：2026年06月04日 19:25 来源：中国新闻网 近日，赖清德在与岛内高中生对谈时称，TikTok、小红书对台湾青年世代的影响已达“安全危机”，久而久之，会把中国大陆当作好人。
+OpenAI已完成一轮融资交易，以8520亿美元估值向投资者募资1220亿美元。
 
-台湾原乡人文化工作室执行长、媒体人张钧凯向中国新闻网“燕新台”工作室表示，赖清德的言论本质是冷战思维与信息茧房下的认知错位，也是其自卑心态的真实反映。
+这是该公司迄今规模最大的一轮融资，将支持其在芯片、数据中心和人才方面的高昂投入。
 
-他指出，台湾年轻人对大陆APP“用脚投票”，本身就是对赖清德当局妖魔化大陆的破解与抵抗，他们相信自己的亲身经历与亲眼所见，对大陆的善意在提高，这是赖清德当局不愿意看到的局面，却也是两岸关系相向而行的大势所趋。
+这笔融资历时数月，主要来自三家大型科技公司。
 
-台湾青年自媒体人翟翾说，两岸同胞渴望通过真实的民间交流来认识彼此，不会被任何政治谎言所限制。
+其中，亚马逊同意投资500亿美元，英伟达和软银集团分别投资300亿美元。
 
-(策划/制作：燕新台 君言晚 常望涛 中新网“燕新台”工作室出品） 责任编辑：【吉翔】
+亚马逊投资中有很大一部分 —— 350亿美元 —— 以OpenAI 上市或达到通用人工智能（AGI）技术里程碑为先决条件。
+
+这家ChatGPT开发商还获得了众多其他知名支持者的资金，包括Andreessen Horowitz、阿布扎比的MGX、D.E． Shaw Ventures、TPG和普徕仕。
+
+公司估值已包含此次融资金额。
+
+OpenAI首次通过银行渠道向个人投资者募资逾30亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 23:41 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 23:50 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 23:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 23:55 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 23:59 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 23:55 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 23:48 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 23:38 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 23:57 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 00:01 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 23:46 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 23:53 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 23:56 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 23:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 23:52 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 23:52 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 23:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 23:43 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 23:47 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 23:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 00:10 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 23:48 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 23:58 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 00:04 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/63276.shtml)
-- 2026-06-29 23:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/492855.shtml)
-- 2026-06-30 00:02 - [美股](https://www.blog.minike.top/Article/details/82658374896.shtml)
-- 2026-06-29 23:56 - [一生一世](http://www.share.kurohicncr.top/Article/details/452584.shtml)
-- 2026-06-30 00:03 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/29074115.shtml)
-- 2026-06-29 23:51 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/22573716.shtml)
-- 2026-06-29 23:37 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/277914385.shtml)
-- 2026-06-29 23:59 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/59139247.shtml)
-- 2026-06-29 23:37 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/25003471361.shtml)
-- 2026-06-29 23:56 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/40967459.shtml)
-- 2026-06-29 23:46 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/03853772127.shtml)
-- 2026-06-29 23:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/76311634.shtml)
-- 2026-06-29 23:37 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/90061.shtml)
-- 2026-06-29 23:38 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/76964373733.shtml)
-- 2026-06-29 23:48 - [扫黑风暴](https://www.share.minike.top/Article/details/955386681.shtml)
+- 2026-06-29 23:47 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/036183.shtml)
+- 2026-06-29 23:47 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/42465.shtml)
+- 2026-06-30 00:06 - [千香](http://www.share.minike.top/Article/details/180186.shtml)
+- 2026-06-29 23:49 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/738009983335.shtml)
+- 2026-06-29 23:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/97060918407.shtml)
+- 2026-06-30 00:10 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/3968898.shtml)
+- 2026-06-29 23:51 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/6102577035.shtml)
+- 2026-06-30 00:11 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/75015368.shtml)
+- 2026-06-29 23:56 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/7430767.shtml)
+- 2026-06-29 23:53 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/9760353.shtml)
+- 2026-06-30 00:03 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/97396627989.shtml)
+- 2026-06-30 00:04 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/01844484.shtml)
+- 2026-06-29 23:46 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/833999.shtml)
+- 2026-06-29 23:59 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/972316114.shtml)
+- 2026-06-30 00:11 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/0368996.shtml)

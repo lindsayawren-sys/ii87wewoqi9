@@ -1,47 +1,59 @@
-# 国锐生活拟委任立信德豪为核数师
+# 特朗普，最新表态！霍尔木兹海峡，突传大消息！黄金拉升、白银走低！
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-国锐生活（00108）发布公告，公司的现任核数师安永会计师事务所的当前任期将于公司应届股东周年大会结束时届满，且将委任香港立信德豪会计师事务所有限公司（立信德豪）为公司截至2026年12月31日止财政年度的核数师。责任编辑：卢昱君
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！特朗普再度发声，全球资产波动。此外，美国国防部长再次敦促伊朗“开放”霍尔木兹海峡，并称“世界各国都应准备好采取行动”，以确保该海峡畅通。 黄金与白银方面，黄金开盘涨逾0.3%，逼近4700美元，白银则跌0.1%。 原油方面，WTI原油开盘涨逾0.5%。 美股方面，美国三大股指全线收涨，道指涨2.49%报46
 
 ## 正文
 
-国锐生活（00108）发布公告，公司的现任核数师安永会计师事务所的当前任期将于公司应届股东周年大会结束时届满，且将委任香港立信德豪会计师事务所有限公司（立信德豪）为公司截至2026年12月31日止财政年度的核数师。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-责任编辑：卢昱君
+特朗普再度发声，全球资产波动。
+
+此外，美国国防部长再次敦促伊朗“开放”霍尔木兹海峡，并称“世界各国都应准备好采取行动”，以确保该海峡畅通。
+
+黄金与白银方面，黄金开盘涨逾0.3%，逼近4700美元，白银则跌0.1%。
+
+原油方面，WTI原油开盘涨逾0.5%。
+
+美股方面，美国三大股指全线收涨，道指涨2.49%报46341.51点，标普500指数涨2.91%报6528.52点，纳指涨3.83%报21590.63点。
+
+3月份，道指跌5.38%，标普500指数跌5.09%，纳指跌4.75%。
+
+从消息面上来看，美伊两方都表达了结束战争的意愿。
 
 ## 相关推荐
 
-- 2026-06-29 23:46 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 23:46 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 23:47 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 23:39 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 23:54 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 23:44 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 23:53 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 23:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 23:55 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 00:01 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 23:51 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 23:47 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 23:52 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 23:57 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 23:53 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 23:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 23:57 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 00:08 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 00:10 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 23:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 23:43 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 23:54 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 23:43 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 00:05 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 23:55 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 23:43 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:51 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/37613208.shtml)
-- 2026-06-29 23:56 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.kurohicncr.top/Article/details/11234.shtml)
-- 2026-06-29 23:59 - [浙江进入梅雨最强“攻击时段”](http://www.blog.minike.top/Article/details/149664379.shtml)
-- 2026-06-29 23:41 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/934129745.shtml)
-- 2026-06-29 23:45 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/36530.shtml)
-- 2026-06-30 00:03 - [毒液2](http://www.blog.kurohicncr.top/Article/details/258595.shtml)
-- 2026-06-29 23:45 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/6717410.shtml)
-- 2026-06-29 23:50 - [一见倾心](https://www.blog.minike.top/Article/details/59381945830.shtml)
-- 2026-06-29 23:39 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/58657184955.shtml)
-- 2026-06-30 00:03 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/570012.shtml)
-- 2026-06-29 23:43 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/380750380500.shtml)
-- 2026-06-29 23:59 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/0614880890.shtml)
-- 2026-06-29 23:39 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/41198640982.shtml)
-- 2026-06-29 23:52 - [千与千寻](https://www.share.kurohicncr.top/Article/details/2316773899.shtml)
-- 2026-06-30 00:05 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/51051.shtml)
+- 2026-06-29 23:42 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/29319.shtml)
+- 2026-06-30 00:05 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/37045.shtml)
+- 2026-06-29 23:46 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/6630824117.shtml)
+- 2026-06-30 00:11 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/477760545.shtml)
+- 2026-06-29 23:57 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/44043.shtml)
+- 2026-06-29 23:54 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/9421394.shtml)
+- 2026-06-30 00:07 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/07406435077.shtml)
+- 2026-06-29 23:43 - [扬名立万](https://www.share.minike.top/Article/details/70371.shtml)
+- 2026-06-29 23:49 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/87618.shtml)
+- 2026-06-30 00:05 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/72665667.shtml)
+- 2026-06-30 00:10 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/643970.shtml)
+- 2026-06-29 23:59 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/0255587.shtml)
+- 2026-06-29 23:55 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/64824706862.shtml)
+- 2026-06-30 00:10 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/0543150314.shtml)
+- 2026-06-29 23:58 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/929098750507.shtml)

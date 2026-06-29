@@ -1,52 +1,56 @@
-# 金融圈突发！魏维被查，涉嫌严重违纪违法
+# 美伊停战+国产大模型突破 创业板50ETF华安（159949）半日成交11.44亿领跑同类
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-来源：华夏时报 据中央纪委国家监委网站4日通报，据中央纪委国家监委驻国家开发银行纪检监察组、河北省纪委监委消息：国家开发银行原资深专家魏维涉嫌严重违纪违法，目前正接受中央纪委国家监委驻国家开发银行纪检监察组纪律审查和河北省监察委员会监察调查。 公开信息显示，魏维，男，大学本科，工学学士，高级工程师。1959年10月生于广州市，祖籍黑龙江省。曾任国家开发银行信贷管理局局长，国家开
+4月8日，市场早盘高开高走，沪指涨近2%，深成指涨近4%，创指涨近5%。受此带动，创业板50ETF华安（159949）涨5.03%，报1.566元，换手率5.50%，成交额11.44亿元，居同类标的ETF首位。 最新报告显示，创业板50ETF华安（159949）十大重仓股全线飘红。截止午盘，宁德时代涨2.70%，中际旭创涨8.07%，新易盛涨7.20%，东方财富涨3.90%，阳
 
 ## 正文
 
-来源：华夏时报 据中央纪委国家监委网站4日通报，据中央纪委国家监委驻国家开发银行纪检监察组、河北省纪委监委消息：国家开发银行原资深专家魏维涉嫌严重违纪违法，目前正接受中央纪委国家监委驻国家开发银行纪检监察组纪律审查和河北省监察委员会监察调查。
+4月8日，市场早盘高开高走，沪指涨近2%，深成指涨近4%，创指涨近5%。
 
-公开信息显示，魏维，男，大学本科，工学学士，高级工程师。
+受此带动，创业板50ETF华安（159949）涨5.03%，报1.566元，换手率5.50%，成交额11.44亿元，居同类标的ETF首位。
 
-1959年10月生于广州市，祖籍黑龙江省。
+最新报告显示，创业板50ETF华安（159949）十大重仓股全线飘红。
 
-曾任国家开发银行信贷管理局局长，国家开发银行业务发展局局长，国家开发银行四川分行党委书记、行长等职务。
+截止午盘，宁德时代涨2.70%，中际旭创涨8.07%，新易盛涨7.20%，东方财富涨3.90%，阳光电源涨3.53%，胜宏科技涨6.50%，汇川技术涨3.18%，迈瑞医疗涨2.61%，天孚通信涨3.94%，亿纬锂能涨6.02%。
 
-来源：中央纪委国家监委网站、公开信息责任编辑：刘万里 SF014
+消息面上，一方面美国总统宣布美伊停战两周，地缘冲突局势的缓和有效地提振了市场整体的风险偏好，为港股科技等风险资产提供了良好的宏观环境；另一方面，4月7日，千问Qwen3.6-Plus大模型凭借连续4天登顶日榜的成绩，问鼎OpenRouter全球大模型调用量周榜（3/30-4/3），彰显出国产大模型的全球竞争力。
+
+国泰海通证券表示，市场调整后，中国股市正出现重要底部与击球点。
+
+中国经济转型与积极产业进展，是打破当下弥漫的滞胀风险认识的关键，也是中国股市“长牛”、“慢牛”、“转型牛”的根基。
+
+勿自乱阵脚，市场调整反而是机会，建议积极布局。
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 23:47 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 23:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 23:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 23:53 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 23:53 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 00:00 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 23:54 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 00:04 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 00:00 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 23:40 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 00:04 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 00:06 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 23:57 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 23:57 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 23:51 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 00:10 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 00:04 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 00:05 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 23:56 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 00:06 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 00:10 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:00 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/6763144099.shtml)
-- 2026-06-29 23:54 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/51248518423.shtml)
-- 2026-06-29 23:55 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/19228440513.shtml)
-- 2026-06-29 23:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/0756433.shtml)
-- 2026-06-29 23:44 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/75796855.shtml)
-- 2026-06-29 23:40 - [金牌调解](https://www.share.minike.top/Article/details/408851223.shtml)
-- 2026-06-29 23:47 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/1151721.shtml)
-- 2026-06-29 23:53 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/22114.shtml)
-- 2026-06-29 23:56 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/32763.shtml)
-- 2026-06-29 23:52 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/199752.shtml)
-- 2026-06-29 23:57 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/348509359755.shtml)
-- 2026-06-29 23:48 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/8738925.shtml)
-- 2026-06-29 23:40 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/80906960314.shtml)
-- 2026-06-29 23:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/54736398.shtml)
-- 2026-06-29 23:40 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/90182236511.shtml)
+- 2026-06-30 00:10 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/6533333.shtml)
+- 2026-06-30 00:06 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/12032.shtml)
+- 2026-06-29 23:54 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/44646849.shtml)
+- 2026-06-30 00:11 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/40563267.shtml)
+- 2026-06-29 23:45 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/41768178.shtml)
+- 2026-06-29 23:42 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/0453888978.shtml)
+- 2026-06-29 23:50 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/69710.shtml)
+- 2026-06-29 23:48 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/95428.shtml)
+- 2026-06-29 23:49 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/634786281792.shtml)
+- 2026-06-29 23:57 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/8875759.shtml)
+- 2026-06-29 23:47 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/202399824768.shtml)
+- 2026-06-30 00:07 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/576945530431.shtml)
+- 2026-06-29 23:50 - [毒液2](http://www.blog.kurohicncr.top/Article/details/336513.shtml)
+- 2026-06-29 23:44 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/004895336.shtml)
+- 2026-06-30 00:07 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/5084927.shtml)

@@ -1,57 +1,57 @@
-# 调查：未来一年加元有望走强，关键在美墨加协定审查取得进展
+# 华泰期货：美伊达成停火协议两周，油价大幅回落
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-路透公布的一项调查显示，只要加拿大国内经济复苏，且北美贸易协定的审查取得进展，未来一年加元兑美元将走强。 在5月29日至6月3日进行的调查中，31位外汇分析师的预测中值显示，未来三个月加元/美元将升值1.4%，升至1.37加元，即72.99美分。这略低于上月调查预测的1.3667。 最新调查预测12个月后，加元/美元将上涨3.7%至1.3400，而此前预测为1.3433。 负责
+来源：华泰期货 作者： 康远宁 市场要闻与重要数据 1、WTI 5月原油期货收涨0.54美元，涨幅0.48%，报112.95美元/桶。布伦特6月原油期货收跌0.50美元，跌幅超过0.45%，报109.27美元/桶。中东Abu Dhabi Murban原油期货跌0.37%，报118.64美元/桶。NYMEX 5月天然气期货收报2.87美元/百万英热单位。NYMEX 5月汽油期货收
 
 ## 正文
 
-路透公布的一项调查显示，只要加拿大国内经济复苏，且北美贸易协定的审查取得进展，未来一年加元兑美元将走强。
+来源：华泰期货 作者： 康远宁 市场要闻与重要数据 1、WTI 5月原油期货收涨0.54美元，涨幅0.48%，报112.95美元/桶。
 
-在5月29日至6月3日进行的调查中，31位外汇分析师的预测中值显示，未来三个月加元/美元将升值1.4%，升至1.37加元，即72.99美分。
+布伦特6月原油期货收跌0.50美元，跌幅超过0.45%，报109.27美元/桶。
 
-这略低于上月调查预测的1.3667。
+中东Abu Dhabi Murban原油期货跌0.37%，报118.64美元/桶。
 
-最新调查预测12个月后，加元/美元将上涨3.7%至1.3400，而此前预测为1.3433。
+NYMEX 5月天然气期货收报2.87美元/百万英热单位。
 
-负责加美贸易事务的部长 勒布朗（Dominic LeBlanc）周二在华盛顿表示，加拿大与美国就《美墨加协定》的审查举行了一次积极的会谈。
+NYMEX 5月汽油期货收报3.3052美元/加仑，NYMEX 5月取暖油期货收报4.4774美元/加仑。
 
-BMO资本市场加拿大利率及宏观策略师 Benjamin Reitzes表示：“美墨加协定谈判需取得进展并最终达成协议，加元才能实现持久走强。
+2、 伊朗已经为美国总统特朗普可能的疯狂之举准备了“惊喜”，其中之一就是将沙特阿美石油公司、延布油田和富查伊拉输油管道列入伊朗的打击目标。
 
-” “在此之前，加元将面临挑战，因为经济仍受不确定性的压力，且美伊局势的头条新闻正令市场剧烈波动，”他称。
+他表示，如果特朗普真的犯下罪行，伊朗将毫不犹豫地让美国及其盟友付出沉重代价。
 
-责任编辑：王永生
+他还强调，“如果特朗普执意越陷越深，我们已经为他准备了一个黑洞，让他无法逃脱”。
 
 ## 相关推荐
 
-- 2026-06-30 00:02 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 23:54 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 23:52 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 23:42 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 23:50 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 23:39 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 23:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 23:39 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 23:53 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 23:58 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 23:47 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 23:46 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 23:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 23:58 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 23:59 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 00:05 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 23:55 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 23:44 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 23:55 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 00:11 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 23:56 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 00:00 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/91356415786.shtml)
-- 2026-06-29 23:44 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/129571.shtml)
-- 2026-06-29 23:50 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/638143085635.shtml)
-- 2026-06-29 23:58 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/89703928744.shtml)
-- 2026-06-29 23:37 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/485139388266.shtml)
-- 2026-06-29 23:57 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/539495988.shtml)
-- 2026-06-30 00:05 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/63417.shtml)
-- 2026-06-29 23:38 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/5304501.shtml)
-- 2026-06-29 23:56 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/052398331670.shtml)
-- 2026-06-30 00:02 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/00350588.shtml)
-- 2026-06-29 23:36 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/2271330.shtml)
-- 2026-06-29 23:39 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/946134408.shtml)
-- 2026-06-30 00:02 - [一生一世](https://www.share.kurohicncr.top/Article/details/0669651306.shtml)
-- 2026-06-29 23:41 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/4615402.shtml)
-- 2026-06-29 23:47 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/41684275.shtml)
+- 2026-06-29 23:50 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/70473235400.shtml)
+- 2026-06-30 00:09 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/4556826.shtml)
+- 2026-06-30 00:09 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/5169199.shtml)
+- 2026-06-30 00:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/801570862402.shtml)
+- 2026-06-29 23:43 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/11681035.shtml)
+- 2026-06-30 00:00 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/863895933597.shtml)
+- 2026-06-29 23:45 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/060922962.shtml)
+- 2026-06-29 23:52 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/5178127107.shtml)
+- 2026-06-30 00:02 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/4431280.shtml)
+- 2026-06-29 23:42 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/510653454165.shtml)
+- 2026-06-30 00:07 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/44353805375.shtml)
+- 2026-06-29 23:47 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/52658573.shtml)
+- 2026-06-29 23:52 - [天道](http://www.share.kurohicncr.top/Article/details/661007698236.shtml)
+- 2026-06-29 23:49 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/0224587.shtml)
+- 2026-06-29 23:44 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/546233976.shtml)

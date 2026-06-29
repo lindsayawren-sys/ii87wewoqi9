@@ -1,56 +1,61 @@
-# 3分钟，垂直涨停！封单超6万手
+# 沈阳“红色巴士”搭载沉浸式情景剧 致敬抗美援朝英烈
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今天，A股市场震荡调整，三大指数集体下挫。个股跌多涨少，1344只个股上涨，4121只个股下跌。市场全天成交额为27791亿元，较上一交易日减少3740亿元。 算力硬件股逆势走强，临近尾盘，乳业股局部表现活跃。电子化学品、超级电容、光刻机、存储芯片等板块涨幅居前，油气、有色金属、白酒等板块调整。 电子化学品
+中新网沈阳4月7日电(杨茜茜)清明时节，一场别开生面的“行走的思政课”在沈阳市皇姑区街头开讲，数十位民营企业家代表登上抗美援朝主题研学观光巴士，在行进的城市街巷中观看沉浸式情景剧，于可触摸、可参与的红色教育中缅怀革命先烈。 一辆红色双层观光巴士缓缓驶出沈阳抗美援朝烈士陵园停车场，激昂的军歌在车厢内响起，情景话剧《英雄城市之抗美援朝》正式开演。这辆被称作“红色巴士”的研学观光车，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网沈阳4月7日电(杨茜茜)清明时节，一场别开生面的“行走的思政课”在沈阳市皇姑区街头开讲，数十位民营企业家代表登上抗美援朝主题研学观光巴士，在行进的城市街巷中观看沉浸式情景剧，于可触摸、可参与的红色教育中缅怀革命先烈。
 
-今天，A股市场震荡调整，三大指数集体下挫。
+一辆红色双层观光巴士缓缓驶出沈阳抗美援朝烈士陵园停车场，激昂的军歌在车厢内响起，情景话剧《英雄城市之抗美援朝》正式开演。
 
-个股跌多涨少，1344只个股上涨，4121只个股下跌。
+这辆被称作“红色巴士”的研学观光车，将移动剧场与城市观光深度融合。
 
-市场全天成交额为27791亿元，较上一交易日减少3740亿元。
+随着巴士穿行在皇姑区的大街小巷，车厢内的演员通过深情独白与生动演绎，带领乘客完成了一场跨越70余载的时空对话。
 
-算力硬件股逆势走强，临近尾盘，乳业股局部表现活跃。
+“吃吧，吃饱了才能打胜仗。
 
-电子化学品、超级电容、光刻机、存储芯片等板块涨幅居前，油气、有色金属、白酒等板块调整。
+”演出过程中，身着志愿军军装的演员将特制的“冻土豆”、雪地伪装服依次递到观众手中，冰凉的触感瞬间将众人带回冰雪覆盖的长津湖战场。
 
-电子化学品板块中，中船特气“20CM”涨停；液冷服务器概念股奕东电子、鼎通科技“20CM”涨停；乳业龙头股贝因美（维权）涨停；玻璃基板概念股红星发展8天6板；光通信概念股金时科技9天5板、天洋新材4连板；煤炭股大有能源4连板；有色股表现弱势，中国铝业跌超9%，天山铝业跌超8%。
+当模拟防空警报拉响，车厢内再现“冰雕连”的悲壮场景，烈士宋阿毛“冰雪啊！
 
-贝因美尾盘直线涨停 午后，乳业板块部分个股活跃。
+我决不屈服于你”的绝笔信在车厢内回响，现场观众眼含热泪，屏息凝神。
 
 ## 相关推荐
 
-- 2026-06-29 23:55 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 23:37 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 23:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 23:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 23:51 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 23:58 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 23:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 00:02 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 23:46 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 23:41 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 23:54 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 00:07 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 00:05 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 23:57 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 23:58 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 23:59 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 00:04 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 23:43 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 23:55 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 23:49 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 23:57 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 23:42 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 23:59 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 23:46 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 23:53 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:43 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/798925365.shtml)
-- 2026-06-29 23:41 - [送你一朵小红花](https://www.blog.minike.top/Article/details/48339161212.shtml)
-- 2026-06-29 23:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/8101082.shtml)
-- 2026-06-29 23:38 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/53963.shtml)
-- 2026-06-29 23:49 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/59536617152.shtml)
-- 2026-06-29 23:55 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/9102823.shtml)
-- 2026-06-29 23:39 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/0109509105.shtml)
-- 2026-06-29 23:57 - [85花告别古偶](http://www.blog.minike.top/Article/details/225762.shtml)
-- 2026-06-30 00:02 - [东方风云榜](http://www.blog.minike.top/Article/details/205919.shtml)
-- 2026-06-29 23:38 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/862354346.shtml)
-- 2026-06-29 23:42 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/7446835641.shtml)
-- 2026-06-29 23:46 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/510943389.shtml)
-- 2026-06-29 23:36 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/648475089817.shtml)
-- 2026-06-30 00:06 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/9939348487.shtml)
-- 2026-06-29 23:53 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/31336.shtml)
+- 2026-06-29 23:56 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/07841017.shtml)
+- 2026-06-29 23:55 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/6857472.shtml)
+- 2026-06-30 00:00 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/91846906.shtml)
+- 2026-06-29 23:53 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/329275533.shtml)
+- 2026-06-29 23:48 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/9278595196.shtml)
+- 2026-06-30 00:02 - [哈兰德吃饭被镜中自己吓到](https://www.share.kurohicncr.top/Article/details/6530971820.shtml)
+- 2026-06-30 00:04 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/78673769695.shtml)
+- 2026-06-29 23:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/24801531962.shtml)
+- 2026-06-30 00:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/981540533475.shtml)
+- 2026-06-30 00:10 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/657393478358.shtml)
+- 2026-06-29 23:58 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/4911039404.shtml)
+- 2026-06-29 23:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/349360.shtml)
+- 2026-06-29 23:47 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/00587683419.shtml)
+- 2026-06-29 23:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/76089.shtml)
+- 2026-06-30 00:00 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/7579578.shtml)

@@ -1,61 +1,57 @@
-# 又一批银行下架三年期、五年期存款
+# 酒价内参4月3日价格发布 国窖1573保持不变
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-继六大行停售5年期大额存单后，近期部分中小银行停售3年期和5年期定期存款产品。 业内人士认为，银行通过高息揽储匹配高收益资产的经营思路难以为继，长期定存下架，是银行精细化管控付息负债成本的措施。 部分银行3年期存款下架 中关村银行近日发布公告称，自2026年5月30日起，该行营业厅、手机银行App、企业网银等渠道，暂时下架个人、单位整存整取3年期存款产品。已办理的存量整存整取3
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握登录新浪财经APP 搜索【信披】查看更多考评等级 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场各大单品的终端零售均价在4月3日呈强势上攻态势。如果主要单品各取一瓶整体打包售卖，今日总售价为9984元，较昨日上涨24元，创近两周以来新高。各大单品全线普涨无任何一家下跌，整体价格延续稳步上行表现。 今日白酒市场
 
 ## 正文
 
-继六大行停售5年期大额存单后，近期部分中小银行停售3年期和5年期定期存款产品。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握登录新浪财经APP 搜索【信披】查看更多考评等级 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场各大单品的终端零售均价在4月3日呈强势上攻态势。
 
-业内人士认为，银行通过高息揽储匹配高收益资产的经营思路难以为继，长期定存下架，是银行精细化管控付息负债成本的措施。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9984元，较昨日上涨24元，创近两周以来新高。
 
-部分银行3年期存款下架 中关村银行近日发布公告称，自2026年5月30日起，该行营业厅、手机银行App、企业网银等渠道，暂时下架个人、单位整存整取3年期存款产品。
+各大单品全线普涨无任何一家下跌，整体价格延续稳步上行表现。
 
-已办理的存量整存整取3年存款产品不受本次调整影响，仍按照存入时约定的利率计息，按约定到期兑付或到期转存。
+今日白酒市场11大单品七涨四平。
 
-6月3日，中新经纬查看中关村银行App发现，目前该行整存整取栏目中仅剩3个月、6个月、1年和2年的定期存款产品，年利率分别为1.20%、1.40%、1.60%和1.80%，已无3年期和5年期存款在售。
+上涨方面，五粮液普五八代涨幅居前，环比上涨7元/瓶，渠道报价有所抬升；习酒君品上涨6元/瓶；洋河梦之蓝M6+与青花郎均上涨3元/瓶；青花汾20与古井贡古20均上涨2元/瓶；飞天茅台小幅上涨1元/瓶，在官方价格上调预期与定价锚支撑下，渠道端报价继续稳步走强。
 
-与工商银行同期限产品相比，该行年利率分别高出0.40、0.40、0.50、0.60个百分点。
+精品茅台、五粮液1618、国窖1573及水晶剑南春价格环比保持不变。
 
-除中关村银行外，亿联银行App显示，该行2年、3年、5年期定期存款均为“售罄”状态。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-蓝海银行客服介绍，该行3年期、5年期定期存款目前都没有额度，2年期定期存款每天开放少量额度。
+随着元旦官方i茅台平台开始出售1499元/瓶的飞天茅台（31日凌晨上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品市场终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 23:56 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 23:47 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 23:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 23:55 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 23:45 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 23:51 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 23:52 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 23:37 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 23:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 23:44 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 23:38 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 23:47 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 23:39 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 23:56 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 23:42 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 00:09 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 23:45 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 00:04 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 23:44 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 23:50 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 23:45 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 23:45 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 00:06 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 23:53 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 23:42 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 23:45 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:55 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/1973529.shtml)
-- 2026-06-29 23:46 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/6947596.shtml)
-- 2026-06-29 23:45 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/43730.shtml)
-- 2026-06-29 23:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/56176881.shtml)
-- 2026-06-30 00:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/435763988568.shtml)
-- 2026-06-29 23:47 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/47440915308.shtml)
-- 2026-06-30 00:04 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/672394961.shtml)
-- 2026-06-30 00:01 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/588763.shtml)
-- 2026-06-29 23:42 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/9769613.shtml)
-- 2026-06-29 23:56 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/43591153.shtml)
-- 2026-06-29 23:40 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/166707932.shtml)
-- 2026-06-29 23:40 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/309874615.shtml)
-- 2026-06-30 00:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/91981.shtml)
-- 2026-06-29 23:38 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/4810379.shtml)
-- 2026-06-29 23:46 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/52349790.shtml)
+- 2026-06-29 23:45 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/9741437730.shtml)
+- 2026-06-29 23:48 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/625056075819.shtml)
+- 2026-06-30 00:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/274417727.shtml)
+- 2026-06-30 00:10 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/3053283.shtml)
+- 2026-06-30 00:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/6618395.shtml)
+- 2026-06-30 00:04 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/76078358.shtml)
+- 2026-06-30 00:10 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/005447583976.shtml)
+- 2026-06-29 23:45 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/95739881.shtml)
+- 2026-06-30 00:08 - [巴西队主帅称日本队是世界最佳之一](http://www.share.minike.top/Article/details/66892438444.shtml)
+- 2026-06-30 00:01 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/026054500.shtml)
+- 2026-06-30 00:01 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/9740680064.shtml)
+- 2026-06-29 23:53 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/875587.shtml)
+- 2026-06-30 00:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/366266.shtml)
+- 2026-06-29 23:50 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/63122.shtml)
+- 2026-06-30 00:09 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/5091259.shtml)

@@ -1,56 +1,58 @@
-# MLCC、燃机概念联袂爆发，多股涨停！华宝基金军工ETF（512810）逆市连阳，机构：关注“军转民”投资机会
+# 意大利计划更换莱奥纳多股份公司CEO 投资者的反对声浪日益高涨
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-6月4日，大市回调之际，军工逆市飘红。军工核心资产——军工ETF华宝（512810）收涨0.41%成功连阳，守住年线的同时向上收复5日线。 成份股整体跌多涨少，不过MLCC、燃机概念多股暴涨为指数提供强力支撑，宏达电子20CM涨停，振华科技、中国动力、旭光电子集体10%涨停封板。光启技术、航天电子、中国卫星、中航沈飞等权重股齐跌为主要拖累。 消息面，受益AI需求景气，MLCC行
+意大利跨国高科技公司莱奥纳多股份公司（Leonardo S.p.A．）是正面临日益增大的投资者关注。此前激进股东Guy Wyser-Pratte对意大利政府据报计划更换首席执行官Roberto Cingolani表示反对，认为此举可能反映出政治干预，而非运营需要。 Wyser-Pratte在接受采访时表示，Cingolani“做得非常出色”，尤其是在将这家政府支持的企业定位为欧
 
 ## 正文
 
-6月4日，大市回调之际，军工逆市飘红。
+意大利跨国高科技公司莱奥纳多股份公司（Leonardo S.p.A．）是正面临日益增大的投资者关注。
 
-军工核心资产——军工ETF华宝（512810）收涨0.41%成功连阳，守住年线的同时向上收复5日线。
+此前激进股东Guy Wyser-Pratte对意大利政府据报计划更换首席执行官Roberto Cingolani表示反对，认为此举可能反映出政治干预，而非运营需要。
 
-成份股整体跌多涨少，不过MLCC、燃机概念多股暴涨为指数提供强力支撑，宏达电子20CM涨停，振华科技、中国动力、旭光电子集体10%涨停封板。
+Wyser-Pratte在接受采访时表示，Cingolani“做得非常出色”，尤其是在将这家政府支持的企业定位为欧洲碎片化国防领域的整合者方面。
 
-光启技术、航天电子、中国卫星、中航沈飞等权重股齐跌为主要拖累。
+他将这一潜在领导层变动与总理Giorgia Meloni周围的政治动态联系起来，暗示这一时机可能并非巧合，并可能给股东带来不确定性。
 
-消息面，受益AI需求景气，MLCC行业正进入新一轮涨价、景气上行周期。
+市场反应似乎反映了这些担忧，莱奥纳多股份公司股价盘中一度下跌8.5%，创下八个多月来的最大跌幅。
 
-据行业数据披露，日系龙头已对AI服务器用MLCC提价15%至35%，部分厂商提价6%至13%，高端产品交期大幅延长至20周以上，消费级现货跟涨约20%。
+Wyser-Pratte指出，投资者可能已经通过价格走势表达了不安，并警告称，在业绩强劲执行期间更换CEO可能会削弱信心。
 
-分析指出，部分军工电子企业除军工被动元器件外，也包括AI服务器电源、电力储能市场等民用被动元器件业务，有望迎来新成长逻辑。
+自2023年上任以来，Cingolani带领公司实现了显著的业绩提升，包括股价上涨超过400%，同时收入、盈利和现金流稳步增长。
 
-燃机方面，AIDC爆发带来电力缺口，燃机成为刚需。
+在地区国防开支普遍增加的背景下，2025年收入达到195亿欧元，较2023年增长28%。
 
 ## 相关推荐
 
-- 2026-06-29 23:56 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 23:50 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 23:41 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 23:58 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 23:45 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 23:39 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 23:57 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 23:48 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 00:01 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 23:57 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 00:11 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 00:02 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 23:51 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 23:57 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 23:46 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 00:04 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 00:04 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 23:44 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 23:42 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 23:48 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 23:50 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 00:08 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:47 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/6016281516.shtml)
-- 2026-06-29 23:38 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/04986.shtml)
-- 2026-06-29 23:58 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/341833.shtml)
-- 2026-06-29 23:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/4568521307.shtml)
-- 2026-06-29 23:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/569271600.shtml)
-- 2026-06-29 23:42 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/307263018995.shtml)
-- 2026-06-29 23:53 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/462971.shtml)
-- 2026-06-29 23:40 - [肝不好身体这几处会“说话”](http://www.share.minike.top/Article/details/0499224.shtml)
-- 2026-06-29 23:41 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/084995022355.shtml)
-- 2026-06-29 23:47 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/717831065854.shtml)
-- 2026-06-29 23:45 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/295005994052.shtml)
-- 2026-06-29 23:56 - [逃狱兄弟](http://www.share.minike.top/Article/details/96641017.shtml)
-- 2026-06-29 23:57 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/73689886249.shtml)
-- 2026-06-30 00:03 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/32925365204.shtml)
-- 2026-06-29 23:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/56810267.shtml)
+- 2026-06-29 23:50 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/6403839350.shtml)
+- 2026-06-29 23:57 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/915983.shtml)
+- 2026-06-29 23:57 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/23528784.shtml)
+- 2026-06-29 23:42 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/324635.shtml)
+- 2026-06-30 00:00 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/44196.shtml)
+- 2026-06-30 00:03 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/785452.shtml)
+- 2026-06-29 23:59 - [世界杯](https://www.share.kurohicncr.top/Article/details/60523.shtml)
+- 2026-06-30 00:06 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/38625.shtml)
+- 2026-06-29 23:49 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/02587.shtml)
+- 2026-06-30 00:11 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/93023447544.shtml)
+- 2026-06-29 23:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/6042411.shtml)
+- 2026-06-30 00:02 - [一见倾心](http://www.share.kurohicncr.top/Article/details/048890163945.shtml)
+- 2026-06-29 23:58 - [爱很美味](https://www.blog.minike.top/Article/details/149844.shtml)
+- 2026-06-30 00:09 - [扬名立万](http://www.share.minike.top/Article/details/40363.shtml)
+- 2026-06-29 23:52 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/2455151.shtml)

@@ -1,61 +1,56 @@
-# 以色列北部选民要求对黎巴嫩采取强硬立场，总理内塔尼亚胡支持率大幅下滑
+# 会员条款侵害消费者权益 洲际酒店被京津冀消协组织联合约谈
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-最新民调显示，黎巴嫩真主党火箭弹袭击最密集的以色列北部，总理内塔尼亚胡选民支持率断崖式下跌；大选临近，北部民意倒逼他在对黎问题上转向强硬立场。 以黎两国于周三晚间达成停火协议，无论这份协议能否落地，都与以色列北部民众的诉求背道而驰。 希伯来大学阿加姆研究所发布的民调数据显示：相较以色列其他地区选民，北部民众正加速背离内塔尼亚胡所属集团，并就黎巴嫩战事严厉问责总理。 伊朗提出，若
+中新网4月8日电 据“北京市场监管”微信公众号消息，针对国际酒店集团“洲际酒店”在其会员计划《洲际优悦会会员条款与附则》(以下简称“会员条款”)中，设置排除中国法律管辖、强制中国消费者赴境外仲裁、限制消费者集体维权权利、可随意变更合同条款、对使用商品造成的损失概不负责等多项涉嫌侵害消费者合法权益的条款，4月8日，京津冀三地消协组织依据《中华人民共和国消费者权益保护法实施条例》第
 
 ## 正文
 
-最新民调显示，黎巴嫩真主党火箭弹袭击最密集的以色列北部，总理内塔尼亚胡选民支持率断崖式下跌；大选临近，北部民意倒逼他在对黎问题上转向强硬立场。
+中新网4月8日电 据“北京市场监管”微信公众号消息，针对国际酒店集团“洲际酒店”在其会员计划《洲际优悦会会员条款与附则》(以下简称“会员条款”)中，设置排除中国法律管辖、强制中国消费者赴境外仲裁、限制消费者集体维权权利、可随意变更合同条款、对使用商品造成的损失概不负责等多项涉嫌侵害消费者合法权益的条款，4月8日，京津冀三地消协组织依据《中华人民共和国消费者权益保护法实施条例》第四十条“消费者协会可以就消费者投诉的损害消费者合法权益的行为开展调查，与有关经营者核实情况，约请有关经营者到场陈述事实意见、提供证据资料等”规定，按照中国消费者协会《消协组织消费维权约谈经营者办法(试行)》，对洲际酒店集团国内运营方——六洲酒店管理(上海)有限公司进行联合约谈，并提出明确整改要求。
 
-以黎两国于周三晚间达成停火协议，无论这份协议能否落地，都与以色列北部民众的诉求背道而驰。
+格式条款涉嫌违法违规，限制消费者权利 京津冀三地消协组织指出，调查发现洲际酒店集团在其网站及APP的会员条款中设置了多项涉嫌侵害消费者合法权益的内容，主要集中在以下两个方面： 其一，强制仲裁、排除诉讼选择及中国法律适用，剥夺消费者集体维权权利。
 
-希伯来大学阿加姆研究所发布的民调数据显示：相较以色列其他地区选民，北部民众正加速背离内塔尼亚胡所属集团，并就黎巴嫩战事严厉问责总理。
+根据会员条款第9、11、16项规定，涉及会员计划相关的金钱赔偿等争议，需提交美国仲裁协会仲裁，放弃在法院申诉、行政诉讼等权利，且不得集体、团体、共同和代表诉讼。
 
-伊朗提出，若要同美国达成和平协议，先决条件是以色列终止在黎军事行动；这份民调直观反映出，内塔尼亚胡愈发陷入两难：一边要考量国内大选，一边需要配合美国盟友的外交布局。
+同时，会员条款强行规定其解释与执行适用美国乔治亚州法律，未纳入仲裁的争议亦只能向该州法院提起诉讼。
 
-以色列全国大选最晚将于10月举行，一旦落败，内塔尼亚胡执政联盟或将下台，终结他数十年来屹立以色列政坛的传奇履历。
+京津冀三地消协组织指出： 上述规定排除了我国法律管辖，中国消费者在主张权利时，将面临争议解决在时间、经济、地域障碍等方面带来的较高成本与不确定性，不合理地增加了中国消费者的维权成本，限制了消费者便利、高效寻求法律救济的渠道，涉嫌违反《中华人民共和国消费者权益保护法》第二十六条、《中华人民共和国消费者权益保护法实施条例》第十七条、《合同行政监督管理办法》第八条关于经营者不得利用格式条款排除或限制消费者主要权利的规定，相关条款依法应属无效。
 
-尽管本届政府被视作以色列史上最右翼内阁，但大量北部民众希望政府摆脱美国施压束缚，在中东冲突问题上祭出更强硬的军事对策。
+其二，侵害消费者选择权、公平交易权、求偿权等核心权利。
 
-受访选民表示，以色列必须持续作战，直至彻底瓦解真主党组织。
+会员条款第6项赋予了经营者较为宽泛的单方决定权，规定洲际酒店集团有权随时单方面修改或取消会员计划的全部或部分内容，而将会员“继续保留会员资格”的行为单方、默示地推定为同意所有更新，这实质上将随时关注并理解格式条款变动的责任完全转移至消费者一方。
 
-众多北部选民，主张以色列继续加码作战（4月短暂休战后战事仍零星持续），并指责内塔尼亚胡屈从美国总统特朗普的压力、仓促敲定停火。
+此外，会员条款第21项声明对商品、服务不作任何保证，对因其缺陷或故障造成的任何损失概不负责(仅对新泽西州居民例外)。
 
 ## 相关推荐
 
-- 2026-06-29 23:53 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 00:06 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 23:39 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 00:05 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 23:53 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 23:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 23:41 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 23:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 23:55 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 23:54 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 23:42 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 23:51 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 23:53 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 00:03 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 23:37 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 00:04 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 00:07 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 00:02 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 23:46 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 00:11 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 00:01 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 00:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 23:55 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 23:59 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 23:46 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:54 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/0035704002.shtml)
-- 2026-06-29 23:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/345863.shtml)
-- 2026-06-30 00:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/58089555.shtml)
-- 2026-06-29 23:54 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/5272752699.shtml)
-- 2026-06-29 23:45 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/28193725014.shtml)
-- 2026-06-30 00:00 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/06087430.shtml)
-- 2026-06-29 23:53 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/267018.shtml)
-- 2026-06-29 23:41 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/0474620639.shtml)
-- 2026-06-30 00:05 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/61257800899.shtml)
-- 2026-06-29 23:58 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/45502812874.shtml)
-- 2026-06-29 23:37 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/672046055344.shtml)
-- 2026-06-29 23:39 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/745309422286.shtml)
-- 2026-06-30 00:04 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/1517163.shtml)
-- 2026-06-29 23:44 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/38875.shtml)
-- 2026-06-29 23:44 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/340577.shtml)
+- 2026-06-29 23:54 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/8211122887.shtml)
+- 2026-06-30 00:08 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/558995.shtml)
+- 2026-06-29 23:50 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/95945476.shtml)
+- 2026-06-29 23:55 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/046545666.shtml)
+- 2026-06-29 23:50 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/515784522215.shtml)
+- 2026-06-29 23:52 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/63750097387.shtml)
+- 2026-06-30 00:04 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/01979.shtml)
+- 2026-06-29 23:59 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/1377411785.shtml)
+- 2026-06-30 00:00 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/7485329568.shtml)
+- 2026-06-29 23:47 - [我和我的家乡](http://www.share.minike.top/Article/details/23851152091.shtml)
+- 2026-06-29 23:48 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/928484.shtml)
+- 2026-06-30 00:01 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/831696907494.shtml)
+- 2026-06-29 23:48 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/058626324.shtml)
+- 2026-06-29 23:46 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/26624707700.shtml)
+- 2026-06-29 23:57 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/628113991096.shtml)

@@ -1,42 +1,50 @@
-# 这座“高原小故宫”，藏着600年前汉藏共书的“中国”
+# 清明祭英魂 吴石、何遂将军后人福州以乡味寄哀思
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-从青海西宁向东 翻过一道山梁 瞿昙寺的红墙静静矗立在河湟谷地 当地人常说： “浪了瞿昙寺，北京再甭去” 这句夸赞里 藏着一座“高原小故宫”的骄傲与秘密 走进中国工艺美术馆 “高原丝路 瞿昙之光——青海丝路文物与瞿昙寺壁画艺术展” 84件精品文物 113件壁画临摹作品 带你翻越祁连山 直抵瞿昙寺 一座“缩小版”紫禁城 始建于明洪武年间的瞿昙寺 由明太祖朱元璋钦赐寺名 它是明朝在河
+发布时间：2026年04月07日 18:20 来源：中国新闻网 “清明祭英魂·家国共长怀”主题活动4月7日在福建福州三山人文纪念园举行，吴石、何遂将军后人，以及从事吴石将军事迹研究与宣传工作的专家学者齐聚现场，追思革命先辈，共话精神传承。 9时30分左右，在吴石、何遂将军塑像前，吴石将军孙女吴红、何遂将军长孙何代宁担任主祭人，手持白色毛巾，蘸取清水，轻轻擦拭吴石、何遂将军雕像，
 
 ## 正文
 
-从青海西宁向东 翻过一道山梁 瞿昙寺的红墙静静矗立在河湟谷地 当地人常说： “浪了瞿昙寺，北京再甭去” 这句夸赞里 藏着一座“高原小故宫”的骄傲与秘密 走进中国工艺美术馆 “高原丝路 瞿昙之光——青海丝路文物与瞿昙寺壁画艺术展” 84件精品文物 113件壁画临摹作品 带你翻越祁连山 直抵瞿昙寺 一座“缩小版”紫禁城 始建于明洪武年间的瞿昙寺 由明太祖朱元璋钦赐寺名 它是明朝在河湟地区敕建的第一座藏传佛教寺院 走进展厅看到瞿昙寺的模型 你会恍惚是否穿越到了北京故宫 中轴对称，三进院落 隆国殿两翼 抄手斜廊向上拱起 大钟楼、大鼓楼左右对峙 格局与明朝紫禁城 奉天殿、文楼、武楼如出一辙 这不是巧合 而是在雪域高原 明代中央政权针对中原官式规制的一项“国家工程” 中原工匠带来的形制 融入地方审美 建成了这座汉藏合璧的建筑活化石 御碑上的“中国” 一座汉文与藏
+发布时间：2026年04月07日 18:20 来源：中国新闻网 “清明祭英魂·家国共长怀”主题活动4月7日在福建福州三山人文纪念园举行，吴石、何遂将军后人，以及从事吴石将军事迹研究与宣传工作的专家学者齐聚现场，追思革命先辈，共话精神传承。
+
+9时30分左右，在吴石、何遂将军塑像前，吴石将军孙女吴红、何遂将军长孙何代宁担任主祭人，手持白色毛巾，蘸取清水，轻轻擦拭吴石、何遂将军雕像，以最质朴的仪式寄托对革命先辈的追思。
+
+供桌上，荔枝肉、鱼丸、芋泥、清明粿等多道福州特色风味菜肴整齐摆放。
+
+吴红、何代宁分别斟上3杯家乡老酒，以饱含乡愁的味道敬献两位将军，传递“后人未忘、家乡未忘”的深情。
+
+(叶秋云 制作 刘鹏） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-29 23:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 23:48 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 00:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 23:54 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 23:59 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 23:49 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 00:05 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 23:47 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 00:02 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 23:43 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 23:50 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 23:44 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 23:51 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 23:57 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 23:43 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 23:42 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 23:43 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 00:11 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 00:01 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 23:55 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:01 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/70148.shtml)
-- 2026-06-29 23:44 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/3081584301.shtml)
-- 2026-06-29 23:47 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/202001610132.shtml)
-- 2026-06-29 23:40 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/9907881.shtml)
-- 2026-06-29 23:41 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/4469360509.shtml)
-- 2026-06-29 23:58 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/37847133175.shtml)
-- 2026-06-29 23:53 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/45500.shtml)
-- 2026-06-29 23:46 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/109271789.shtml)
-- 2026-06-29 23:39 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/49584.shtml)
-- 2026-06-30 00:02 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/530637380410.shtml)
-- 2026-06-29 23:47 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/253816330078.shtml)
-- 2026-06-29 23:42 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/8597228746.shtml)
-- 2026-06-29 23:45 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/35406435510.shtml)
-- 2026-06-29 23:53 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.kurohicncr.top/Article/details/952764.shtml)
-- 2026-06-30 00:03 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/24538.shtml)
+- 2026-06-30 00:05 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/01509.shtml)
+- 2026-06-30 00:08 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/02118914.shtml)
+- 2026-06-30 00:04 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/493125751.shtml)
+- 2026-06-29 23:57 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/509575.shtml)
+- 2026-06-29 23:57 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/5439269.shtml)
+- 2026-06-30 00:02 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/3138409330.shtml)
+- 2026-06-29 23:58 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/302312.shtml)
+- 2026-06-30 00:03 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/07596668.shtml)
+- 2026-06-29 23:55 - [急先锋](http://www.share.kurohicncr.top/Article/details/992795866527.shtml)
+- 2026-06-30 00:11 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/879973872420.shtml)
+- 2026-06-29 23:51 - [小娘惹](http://www.share.minike.top/Article/details/236992.shtml)
+- 2026-06-29 23:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/496822332026.shtml)
+- 2026-06-29 23:52 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/842564355846.shtml)
+- 2026-06-30 00:05 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/41686606.shtml)
+- 2026-06-29 23:46 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/643715923.shtml)

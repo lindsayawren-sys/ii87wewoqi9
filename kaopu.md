@@ -1,58 +1,59 @@
-# 高盛：到2030年四巨头AI支出将超日本GDP！A股光模块有望成最大赢家？
+# （乡村行·看振兴）广东紫金茶香漫山 青山绿树“生金”富农家
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-科技巨头们正向人工智能（AI）领域投入巨额资金。高盛周二更新了其对2025年至2030年超大规模数据中心资本支出的预测。该行计算得出，仅四家科技巨头——Meta 、微软、亚马逊和Alphabet——的支出就有望在2030年底达到5.3万亿美元。 根据国际货币基金组织的数据，这一支出规模超过了日本、英国、印度和法国等200多个国家的GDP。而如果把人工智能支出看作一个国家，它将成
+中新网河源4月7日电 (张璐 甘建楼)近日，广东省河源市紫金县连绵起伏的茶山上，茶树陆续吐露鲜嫩新芽，空气中弥漫着淡淡的茶香。 连日来，紫金县9万亩茶园进入春茶集中采摘期，茶农抢抓时机，穿梭在茶垄间采摘新茶。 紫金县一家茶园负责人黄东灵表示：“春分过后，茶场就陆续组织附近村民进山采茶，每天都有一两百人。” 在紫金县一家农业开发有限公司的茶叶加工厂内，机器轰鸣，茶香四溢。该公司生
 
 ## 正文
 
-科技巨头们正向人工智能（AI）领域投入巨额资金。
+中新网河源4月7日电 (张璐 甘建楼)近日，广东省河源市紫金县连绵起伏的茶山上，茶树陆续吐露鲜嫩新芽，空气中弥漫着淡淡的茶香。
 
-高盛周二更新了其对2025年至2030年超大规模数据中心资本支出的预测。
+连日来，紫金县9万亩茶园进入春茶集中采摘期，茶农抢抓时机，穿梭在茶垄间采摘新茶。
 
-该行计算得出，仅四家科技巨头——Meta 、微软、亚马逊和Alphabet——的支出就有望在2030年底达到5.3万亿美元。
+紫金县一家茶园负责人黄东灵表示：“春分过后，茶场就陆续组织附近村民进山采茶，每天都有一两百人。
 
-根据国际货币基金组织的数据，这一支出规模超过了日本、英国、印度和法国等200多个国家的GDP。
+” 在紫金县一家农业开发有限公司的茶叶加工厂内，机器轰鸣，茶香四溢。
 
-而如果把人工智能支出看作一个国家，它将成为世界第四大经济体。
+该公司生产技术总监陈荣发介绍，为保证春茶品质，茶青采摘严格按照“一芽两叶”标准，要求当天采摘，当天制作完成。
 
-A股哪些方向有望深度受益？
+经过摊青、杀青、萎凋、揉捻、烘焙、提香等工序，昼夜不停地轮番作业，最终制成口感鲜香的头春茶。
 
-如此庞大的投入将首先转化为对AI算力基础设施的强劲需求，而光模块作为数据中心内连接GPU集群、实现高速数据传输的核心器件，有望深度受益。
+“受近期气候影响，今年春茶的香气和口感优于往年，品质比去年有明显提升。
 
-具体逻辑在于：AI大模型训练需要海量GPU协同，直接驱动800G、1.6T等高速光模块的量价齐升。
+”紫金县一家农场负责人钟泰钢表示，今年的头春茶“未采先热”，不少客户通过直播、提前预订等方式锁定好茶，线上线下订单持续提升。
 
 ## 相关推荐
 
-- 2026-06-29 23:59 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 23:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 00:00 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 23:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 23:43 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 00:01 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 23:41 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 23:43 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 23:37 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 23:52 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 23:39 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 23:38 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 23:50 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 00:07 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 23:43 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 00:05 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 23:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 00:04 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 23:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 23:52 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 00:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 00:05 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 00:07 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 00:01 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 00:02 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:50 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/92803.shtml)
-- 2026-06-29 23:39 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/81408684479.shtml)
-- 2026-06-29 23:52 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/08220288548.shtml)
-- 2026-06-30 00:00 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/48852.shtml)
-- 2026-06-29 23:48 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/48639119654.shtml)
-- 2026-06-29 23:36 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/95976279.shtml)
-- 2026-06-29 23:46 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/13845.shtml)
-- 2026-06-29 23:44 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/84248514929.shtml)
-- 2026-06-30 00:01 - [我们的少年时代2](http://www.blog.minike.top/Article/details/5130810.shtml)
-- 2026-06-30 00:02 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/34119199075.shtml)
-- 2026-06-29 23:54 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/712333.shtml)
-- 2026-06-29 23:50 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/2440160.shtml)
-- 2026-06-29 23:52 - [刘念回应](http://www.share.minike.top/Article/details/322879175.shtml)
-- 2026-06-30 00:04 - [炽夏](http://www.blog.minike.top/Article/details/5954636.shtml)
-- 2026-06-29 23:58 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/030673.shtml)
+- 2026-06-29 23:46 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/10581891.shtml)
+- 2026-06-29 23:51 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/843873141953.shtml)
+- 2026-06-29 23:46 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/816736612449.shtml)
+- 2026-06-29 23:54 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/19647708.shtml)
+- 2026-06-29 23:58 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/6012250282.shtml)
+- 2026-06-29 23:54 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/72116.shtml)
+- 2026-06-29 23:52 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/11886472.shtml)
+- 2026-06-30 00:08 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/6462298.shtml)
+- 2026-06-29 23:54 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/13364220.shtml)
+- 2026-06-29 23:50 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/07912854177.shtml)
+- 2026-06-30 00:11 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/4934828163.shtml)
+- 2026-06-29 23:59 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/541511717655.shtml)
+- 2026-06-29 23:51 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/067122.shtml)
+- 2026-06-29 23:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/109307.shtml)
+- 2026-06-29 23:50 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/94707460937.shtml)

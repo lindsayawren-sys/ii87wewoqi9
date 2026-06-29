@@ -1,57 +1,60 @@
-# 开课通知| 6月12日-14日，6位投资大咖为您带来一场投资盛宴
+# 光伏“退税时代”正式落幕！对多晶硅市场影响几何？
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:03 UTC+8
 
 ## 摘要
 
-（来源：VCA创投社）2024年9月，国务院总理李强主持召开国务院常务会议，研究促进创业投资发展的有关举措。会议指出，创业投资事关科技创新、产业升级和高质量发展。要尽快疏通“募投管退”各环节存在的堵点卡点，支持符合条件的科技型企业境内外上市，大力发展股权转让、并购市场，推广实物分配股票试点，鼓励社会资本设立市场化并购母基金或创业投资二级市场基金，促进创投行业良性循环。此外，会议
+来源：期货日报 光伏“退税时代”正式落幕！ 4月1日起，光伏产品9%的增值税出口退税正式取消。业内人士认为，此次政策调整，体现了国家对新能源产业支持方式的优化与转型，将进一步助推光伏、锂电等产业迈向高质量发展新阶段。 市场人士：政策变化或给行业带来短期压力 据悉，我国光伏行业出口退税政策始于2013年10月，企业可享受高达50%的增值税退税比例。随着行业竞争力提升，出口退税政策
 
 ## 正文
 
-（来源：VCA创投社）2024年9月，国务院总理李强主持召开国务院常务会议，研究促进创业投资发展的有关举措。
+来源：期货日报 光伏“退税时代”正式落幕！
 
-会议指出，创业投资事关科技创新、产业升级和高质量发展。
+4月1日起，光伏产品9%的增值税出口退税正式取消。
 
-要尽快疏通“募投管退”各环节存在的堵点卡点，支持符合条件的科技型企业境内外上市，大力发展股权转让、并购市场，推广实物分配股票试点，鼓励社会资本设立市场化并购母基金或创业投资二级市场基金，促进创投行业良性循环。
+业内人士认为，此次政策调整，体现了国家对新能源产业支持方式的优化与转型，将进一步助推光伏、锂电等产业迈向高质量发展新阶段。
 
-此外，会议表示，要推动国资出资成为更有担当的长期资本、耐心资本，完善国有资金出资、考核、容错、退出相关政策措施。
+市场人士：政策变化或给行业带来短期压力 据悉，我国光伏行业出口退税政策始于2013年10月，企业可享受高达50%的增值税退税比例。
 
-会议还指出，要夯实创业投资健康发展的制度基础，落实资本市场改革重点举措，健全资本市场功能，进一步激发创业投资市场活力。
+随着行业竞争力提升，出口退税政策逐步优化。
 
-在当下这个充满挑战、充满变革机遇的时代，对投资人以及想加入创投圈层的人而言，无疑是令人激动的一件事。
+2024年11月15日，财政部、税务总局发布公告，将部分成品油、光伏、电池、部分非金属矿物制品的出口退税率由13%下调至9%。
 
-创投行业正经历新旧动能转换，以政府引导基金为抓手，母基金为媒介的增量资金成为市场不可忽视的重要参与力量，投资逻辑与投资策略都在发生重大转变。
+有市场人士表示，出口退税取消可能给光伏行业带来短期压力。
 
-投资分析师VCA认证中心致力于培养并认证新时期股权投资精英人才，联合深圳市创业投资同业公会发起投资分析师VCA证书实战班，依托创投公会丰富的创投资源和人脉圈层，汇聚最具实力的创投机构大咖，通过充分的学习和讨论，共筑股权投资新时代！
+据业内测算，取消9%的出口退税，预计将使光伏产品成本每瓦上升0.06元至0.07元。
 
 ## 相关推荐
 
-- 2026-06-30 00:05 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 23:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 23:56 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 23:36 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 00:03 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 23:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 23:40 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 23:39 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 23:51 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 00:04 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 23:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 00:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 23:50 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 23:47 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 00:08 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 23:52 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 00:10 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 23:49 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 23:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 23:51 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 23:44 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 23:55 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 23:44 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 23:59 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 23:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/35631.shtml)
-- 2026-06-29 23:58 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/767782259727.shtml)
-- 2026-06-29 23:44 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/8354767.shtml)
-- 2026-06-29 23:39 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/9831684.shtml)
-- 2026-06-29 23:48 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/4543071.shtml)
-- 2026-06-29 23:56 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/08023.shtml)
-- 2026-06-30 00:03 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/2746886721.shtml)
-- 2026-06-29 23:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/795657940765.shtml)
-- 2026-06-29 23:39 - [男子称在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/4984577352.shtml)
-- 2026-06-29 23:55 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/31637.shtml)
-- 2026-06-29 23:41 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/98402584.shtml)
-- 2026-06-30 00:01 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/58601970.shtml)
-- 2026-06-29 23:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/6398621.shtml)
-- 2026-06-29 23:51 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/23967.shtml)
-- 2026-06-29 23:54 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/7883269.shtml)
+- 2026-06-29 23:47 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/105279341.shtml)
+- 2026-06-30 00:07 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/62751537.shtml)
+- 2026-06-29 23:53 - [青春环游记第三季](http://www.blog.minike.top/Article/details/425762807295.shtml)
+- 2026-06-30 00:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/976878.shtml)
+- 2026-06-30 00:08 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/802960.shtml)
+- 2026-06-30 00:08 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/0554371373.shtml)
+- 2026-06-30 00:11 - [东方风云榜](https://www.share.minike.top/Article/details/84235820478.shtml)
+- 2026-06-30 00:03 - [一生一世](http://www.share.kurohicncr.top/Article/details/4059173.shtml)
+- 2026-06-30 00:06 - [请回答王牌2019](https://www.blog.minike.top/Article/details/759817652.shtml)
+- 2026-06-29 23:56 - [炽夏](https://www.share.minike.top/Article/details/20469134093.shtml)
+- 2026-06-30 00:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/297739100579.shtml)
+- 2026-06-29 23:58 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/562363079939.shtml)
+- 2026-06-29 23:46 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/38874765687.shtml)
+- 2026-06-29 23:51 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/15659727732.shtml)
+- 2026-06-29 23:57 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/2032456.shtml)

@@ -1,57 +1,58 @@
-# 华润万象生活早盘涨逾4% 大摩给予目标价55.47港元
+# 能攻善守！标普A红利ETF华宝（562060）场内上涨1.4%，连续5日吸金1.3亿元
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-华润万象生活（01209）盘中涨超4%，截至发稿，股价上涨3.87%，现报42.98港元，成交额7279.20万港元。 大摩发布研报称，相信华润万象生活（01209）未来30天股价上升，发生机率料80%以上。主要是因为股票近期已明显回落，令短期估值大幅更具吸引力。评级增持，目标价55.47港元。 该行认为市场对华润万象同店销售增长可能放缓过度担忧，原因是近月奢侈品及黄金销售较弱
+4月8日早盘，A股三大指数集体走强，市场情绪回暖，红利资产则出现普遍回调。在这一分化行情中，高股息人气标杆——标普A红利ETF华宝（562060） 再度展现出“能攻善守”的独特优势。截至发稿，场内价格上涨1.4%，表现显著优于主流红利指数，实时成交额突破3100万元，交投热度持续攀升。 盘面上，景津装备、中材国际、华荣股份、中原传媒、潍柴动力、润邦股份、中钢国际、中创智领、新媒
 
 ## 正文
 
-华润万象生活（01209）盘中涨超4%，截至发稿，股价上涨3.87%，现报42.98港元，成交额7279.20万港元。
+4月8日早盘，A股三大指数集体走强，市场情绪回暖，红利资产则出现普遍回调。
 
-大摩发布研报称，相信华润万象生活（01209）未来30天股价上升，发生机率料80%以上。
+在这一分化行情中，高股息人气标杆——标普A红利ETF华宝（562060） 再度展现出“能攻善守”的独特优势。
 
-主要是因为股票近期已明显回落，令短期估值大幅更具吸引力。
+截至发稿，场内价格上涨1.4%，表现显著优于主流红利指数，实时成交额突破3100万元，交投热度持续攀升。
 
-评级增持，目标价55.47港元。
+盘面上，景津装备、中材国际、华荣股份、中原传媒、潍柴动力、润邦股份、中钢国际、中创智领、新媒股份、凌霄泵业等一批兼具高股息与低估值属性的成份股轮番走强，涨幅均超3%。
 
-该行认为市场对华润万象同店销售增长可能放缓过度担忧，原因是近月奢侈品及黄金销售较弱。
+数据来源：沪深交易所，截至2026.4.8，10点45分 资金面上，截至2026年4月7日，标普A股红利ETF华宝（562060）已连续5个交易日资金连续净流入超1.3亿元；拉长时间看，近20个交易日累计吸金逾13亿元，最新规模突破46亿元，迭创历史新高。
 
-该行认为公司相对具免疫力，因过去几年已大幅提升在中低端消费以及二线及顶级三线城市的曝光度，预计仍能达到指引的高单位数同店销售增长，估计5月为中单位数，相比首四个月的约10%同比增长，并实现今年介乎约11%至14%的每股盈利增长，主要受惠于持续的市场份额提升、新商场开业，以及营运杠杆带来的利润率扩张。
+数据来源：沪深交易所等，截至2026.4.7 华泰证券研究指出，考虑股利再投资收益，红利策略在海外和国内均长期有效。
 
-责任编辑：卢昱君
+长期来看，全球宏观不确定性上升与利率趋势下行是红利策略占优的核心环境；短期而言，红利策略兼具一定避险与顺周期属性，在估值收缩阶段相对抗跌，周期型红利策略或在通胀上行阶段更具相对优势。
+
+公开资料显示，标普A股红利ETF华宝（562060）及其联接基金（A类501029、C类005125）被动跟踪标普中国A股红利机会指数，截至3月31日，最新股息率5.25%。
 
 ## 相关推荐
 
-- 2026-06-29 23:47 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 23:53 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 23:43 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 00:03 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 23:50 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 23:41 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 23:54 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 23:56 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 23:36 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 23:42 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 23:55 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 23:59 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 23:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 23:43 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 00:07 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 00:08 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 23:58 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 00:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 00:04 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 23:48 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 23:57 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 23:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 23:52 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 23:55 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 00:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:37 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/30048390047.shtml)
-- 2026-06-29 23:58 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/4684288611.shtml)
-- 2026-06-29 23:55 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/493862810.shtml)
-- 2026-06-29 23:40 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/7075842826.shtml)
-- 2026-06-29 23:37 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/4762183254.shtml)
-- 2026-06-29 23:47 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/644436778214.shtml)
-- 2026-06-29 23:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/44864.shtml)
-- 2026-06-29 23:54 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/204525328510.shtml)
-- 2026-06-30 00:00 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/10127434.shtml)
-- 2026-06-29 23:39 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/898749869.shtml)
-- 2026-06-29 23:39 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/1583089005.shtml)
-- 2026-06-29 23:46 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/97260220656.shtml)
-- 2026-06-30 00:05 - [炽夏](http://www.blog.kurohicncr.top/Article/details/92131016048.shtml)
-- 2026-06-29 23:56 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/31697747129.shtml)
-- 2026-06-29 23:47 - [美以这对亲密盟友要掰了吗](http://www.blog.kurohicncr.top/Article/details/0204712578.shtml)
+- 2026-06-30 00:11 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/972598.shtml)
+- 2026-06-29 23:44 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/51584757.shtml)
+- 2026-06-29 23:54 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/656235121.shtml)
+- 2026-06-30 00:06 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/34368.shtml)
+- 2026-06-29 23:46 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/20118469599.shtml)
+- 2026-06-30 00:06 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/365107935916.shtml)
+- 2026-06-30 00:09 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/990124488891.shtml)
+- 2026-06-29 23:49 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/305374028.shtml)
+- 2026-06-29 23:57 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/071593498112.shtml)
+- 2026-06-29 23:53 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/33062.shtml)
+- 2026-06-29 23:46 - [世界杯](https://www.blog.kurohicncr.top/Article/details/76611854280.shtml)
+- 2026-06-30 00:09 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/37394.shtml)
+- 2026-06-29 23:58 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/586917968205.shtml)
+- 2026-06-29 23:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/3172942175.shtml)
+- 2026-06-30 00:07 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/0207636541.shtml)

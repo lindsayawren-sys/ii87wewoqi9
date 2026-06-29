@@ -1,59 +1,59 @@
-# “2026世界市长对话·北京”活动举行 聚焦人文交流与城市建设
+# 纽约汇市：美元月度涨幅收窄 市场预期伊朗战争可能缓和
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-6月2日至3日，由国务院新闻办公室指导的“2026世界市长对话·北京”活动在北京市举行。来自摩洛哥、塞舌尔、突尼斯、塞内加尔等6个非洲国家的30余位市长和城市代表共同参加了活动。 今年是中非开启外交关系70周年，在“2026世界市长对话·北京”活动上，与会嘉宾围绕“加强文明交流互鉴 赓续中非传统友好”开展深入交流与互动，共同探索中非人文交流与城市合作的发展之路。 毛里求斯地方政
+美元指数周二下跌，回吐部分月度涨幅，此前有报道称美国总统唐纳德·特朗普表示，即便霍尔木兹海峡仍基本处于封锁状态，他也愿意结束美国对伊朗的军事行动。 彭博美元即期指数周二下跌0.6%，但3月仍然上涨约2.4%，创下去年7月以来最佳月度表现。 在伊朗和美国释放出推动冲突解决的信号后，油价下跌。 “在美军调动之际，不能排除局势升级的风险，”瑞穗的Jordan Rochester写道，
 
 ## 正文
 
-6月2日至3日，由国务院新闻办公室指导的“2026世界市长对话·北京”活动在北京市举行。
+美元指数周二下跌，回吐部分月度涨幅，此前有报道称美国总统唐纳德·特朗普表示，即便霍尔木兹海峡仍基本处于封锁状态，他也愿意结束美国对伊朗的军事行动。
 
-来自摩洛哥、塞舌尔、突尼斯、塞内加尔等6个非洲国家的30余位市长和城市代表共同参加了活动。
+彭博美元即期指数周二下跌0.6%，但3月仍然上涨约2.4%，创下去年7月以来最佳月度表现。
 
-今年是中非开启外交关系70周年，在“2026世界市长对话·北京”活动上，与会嘉宾围绕“加强文明交流互鉴 赓续中非传统友好”开展深入交流与互动，共同探索中非人文交流与城市合作的发展之路。
+在伊朗和美国释放出推动冲突解决的信号后，油价下跌。
 
-毛里求斯地方政府初级部长 穆罕默德·法齐·阿里蒙：毛里求斯与中国开展了很多交流合作，比如在基础设施建设发展方面，我们需要向中国学习，期待学到发展经验。
+“在美军调动之际，不能排除局势升级的风险，”瑞穗的Jordan Rochester写道，关键结论之一是“保持做多美元”。
 
-活动期间，嘉宾们在北京的秀水街体验中国传统茶艺和书法；在中关村国际创新中心深入了解智慧导览、沉浸式光影体验等文化科技场景应用，调研科技赋能文旅高质量发展。
+美国消费者信心3月意外回升，人们对商业环境和劳动力市场状况的看法略有改善。
 
-非斯副市长 阿齐兹·莱巴尔：这是我第一次来北京，第一次喝中国茶，这是古老且有文化、历史感的中国特色。
+美元/日元周二下跌0.6%至158.69，但3月上涨约1.7%。
 
-维多利亚市长 乔西·米肖·巴耶特：中国的科技进步程度之高令人惊叹，在这里没有什么是不可能的。
+美元/加元小幅走弱至1.3911。
 
-我在中国参加的市长对话活动，给世界市长提供了一个聚在一起相互学习、交流经验的机会，比如如何建设智慧城市，如何在小型城市发展科技融合等。
+加拿大实际国内生产总值（GDP）年初小幅增长，显示在伊朗战争引发油价冲击之前，经济仍在稳步前行。
 
 ## 相关推荐
 
-- 2026-06-29 23:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 00:02 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 23:45 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-30 00:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 23:43 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 00:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 23:59 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 23:48 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 00:05 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 00:01 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 23:39 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-30 00:01 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 23:42 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 00:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 00:09 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 23:59 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 00:03 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 23:49 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 23:52 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 23:50 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 23:57 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 23:43 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 23:56 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 23:45 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 23:54 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 00:08 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:04 - [美人鱼](https://www.share.kurohicncr.top/Article/details/581791298024.shtml)
-- 2026-06-29 23:43 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/27881376.shtml)
-- 2026-06-29 23:58 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/2950141505.shtml)
-- 2026-06-29 23:49 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/364727617636.shtml)
-- 2026-06-29 23:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/58147687438.shtml)
-- 2026-06-29 23:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/44786.shtml)
-- 2026-06-29 23:40 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/139180.shtml)
-- 2026-06-30 00:02 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/929165868.shtml)
-- 2026-06-29 23:58 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/47759967.shtml)
-- 2026-06-29 23:54 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/993652.shtml)
-- 2026-06-29 23:46 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/71101488.shtml)
-- 2026-06-29 23:37 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/132577761399.shtml)
-- 2026-06-29 23:38 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/03503992.shtml)
-- 2026-06-29 23:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/1064140537.shtml)
-- 2026-06-29 23:44 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/359886.shtml)
+- 2026-06-30 00:06 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/981318664.shtml)
+- 2026-06-29 23:50 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/43017634.shtml)
+- 2026-06-30 00:05 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/6683618.shtml)
+- 2026-06-30 00:07 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/97445.shtml)
+- 2026-06-30 00:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/4909561984.shtml)
+- 2026-06-29 23:53 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/081345.shtml)
+- 2026-06-30 00:04 - [急先锋](https://www.blog.kurohicncr.top/Article/details/095076090.shtml)
+- 2026-06-30 00:00 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/805341950397.shtml)
+- 2026-06-29 23:42 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/6768017897.shtml)
+- 2026-06-29 23:47 - [速度与激情9](https://www.share.minike.top/Article/details/645774345810.shtml)
+- 2026-06-29 23:46 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/75469914803.shtml)
+- 2026-06-30 00:05 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/7328447.shtml)
+- 2026-06-29 23:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/678516.shtml)
+- 2026-06-29 23:57 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/588754894250.shtml)
+- 2026-06-29 23:56 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/0367283.shtml)

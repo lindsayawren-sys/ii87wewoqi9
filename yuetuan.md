@@ -1,50 +1,59 @@
-# 以色列防长：若黎巴嫩真主党发动袭击 以军将打击贝鲁特
+# 巴菲特：自爱泼斯坦文件"事情曝光"后未与比尔盖茨交谈
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-中新网6月4日电 据法新社报道，以色列国防部长卡茨4日表示，与黎巴嫩达成的停火协议保留以军在黎巴嫩真主党袭击以色列社区时打击贝鲁特的“自由”。他还表示，以军在黎巴嫩南部的行动将继续。 卡茨在一份声明中表示，现阶段，以色列国防军将继续实施火力和地面行动，驻守黎巴嫩境内直至“黄线”的安全区，包括博福特地区，同时继续拆除“恐怖主义”基础设施。 卡茨称，以军仍保留“在美国支持下，对针对
+沃伦·巴菲特周二表示，自杰弗里·爱泼斯坦相关文件“曝光”以来，他未曾与微软创始人比尔·盖茨交谈过。 “自那件事曝光以来，我完全没有和他谈过，”巴菲特对媒体表示。 “我不想处于知道某些事情……而被传唤为证人的位置，”他补充道。 巴菲特详细谈到了这名臭名昭著的性犯罪者爱泼斯坦。近几个月来，随着所谓爱泼斯坦文件的公布，爱泼斯坦与盖茨及其他知名人士的友谊细节浮出水面，给他们带来了破坏性
 
 ## 正文
 
-中新网6月4日电 据法新社报道，以色列国防部长卡茨4日表示，与黎巴嫩达成的停火协议保留以军在黎巴嫩真主党袭击以色列社区时打击贝鲁特的“自由”。
+沃伦·巴菲特周二表示，自杰弗里·爱泼斯坦相关文件“曝光”以来，他未曾与微软创始人比尔·盖茨交谈过。
 
-他还表示，以军在黎巴嫩南部的行动将继续。
+“自那件事曝光以来，我完全没有和他谈过，”巴菲特对媒体表示。
 
-卡茨在一份声明中表示，现阶段，以色列国防军将继续实施火力和地面行动，驻守黎巴嫩境内直至“黄线”的安全区，包括博福特地区，同时继续拆除“恐怖主义”基础设施。
+“我不想处于知道某些事情……而被传唤为证人的位置，”他补充道。
 
-卡茨称，以军仍保留“在美国支持下，对针对以色列社区和领土的袭击作出回应、打击贝鲁特的行动自由”。
+巴菲特详细谈到了这名臭名昭著的性犯罪者爱泼斯坦。
 
-他同时对3日达成的停火协议表示欢迎。
+近几个月来，随着所谓爱泼斯坦文件的公布，爱泼斯坦与盖茨及其他知名人士的友谊细节浮出水面，给他们带来了破坏性的影响。
+
+“令我震惊的是，竟有人能如此成功地充当骗子，”巴菲特说。
+
+“男人会喜欢性……有些人会喜欢不交税，而他摸清了他们的弱点，”巴菲特表示。
+
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 00:00 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 23:56 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 00:00 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 23:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 23:36 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 23:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 23:49 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 23:40 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 23:38 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 23:42 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 23:48 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 00:08 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 23:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 00:06 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 00:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 00:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 00:09 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 23:53 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 00:06 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 23:58 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 00:09 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 23:44 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 00:09 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:42 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/17849.shtml)
-- 2026-06-29 23:49 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/44369339.shtml)
-- 2026-06-29 23:55 - [欧洲缘何成为变暖最快的大洲](http://www.share.minike.top/Article/details/87623786.shtml)
-- 2026-06-29 23:58 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/222267.shtml)
-- 2026-06-30 00:05 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/570047485552.shtml)
-- 2026-06-29 23:58 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/32985079.shtml)
-- 2026-06-30 00:01 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/30328971969.shtml)
-- 2026-06-29 23:49 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/4507254875.shtml)
-- 2026-06-30 00:05 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/45438593.shtml)
-- 2026-06-29 23:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/10924428917.shtml)
-- 2026-06-29 23:53 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/398530.shtml)
-- 2026-06-29 23:55 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/81826588328.shtml)
-- 2026-06-29 23:57 - [小娘惹](https://www.blog.minike.top/Article/details/41500639.shtml)
-- 2026-06-29 23:56 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/7727113.shtml)
-- 2026-06-29 23:45 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/47158.shtml)
+- 2026-06-30 00:04 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/892387890.shtml)
+- 2026-06-30 00:00 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/05628663987.shtml)
+- 2026-06-29 23:45 - [美人鱼](http://www.share.kurohicncr.top/Article/details/804280355603.shtml)
+- 2026-06-29 23:44 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/65434.shtml)
+- 2026-06-29 23:57 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/15799.shtml)
+- 2026-06-30 00:01 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/98759.shtml)
+- 2026-06-30 00:04 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/14327.shtml)
+- 2026-06-29 23:43 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/326502.shtml)
+- 2026-06-30 00:11 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/133812451.shtml)
+- 2026-06-29 23:56 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/40810442.shtml)
+- 2026-06-30 00:03 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/333616.shtml)
+- 2026-06-29 23:55 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/7518217.shtml)
+- 2026-06-29 23:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/48394208.shtml)
+- 2026-06-30 00:00 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/886999866.shtml)
+- 2026-06-30 00:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/72420213.shtml)

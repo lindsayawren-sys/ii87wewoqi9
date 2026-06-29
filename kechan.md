@@ -1,61 +1,59 @@
-# 君正集成冲刺港股：第一季营收16亿 屹唐盛芯减持，至少套现20亿
+# 特朗普同意与伊朗达成为期两周的停火协议后 金价上涨
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-雷递网 雷建平 6月4日北京君正集成电路股份有限公司（简称：“君正集成”）日前更新招股书，准备在港交所上市。君正集成已在深交所上市，截至今日收盘，君正集成股价为150.41元，市值为726亿元。第一季营收15.6亿，净利3亿君正集成成立于2005年，基于创始团队的CPU设计技术，在消费电子市场实现SoC芯片产业化，2011年5月公司在创业板上市（300223）。君正在处理器技术
+美国总统特朗普与伊朗达成为期两周停火协议，以敲定结束这场扰乱全球市场的战争的谈判，金价随之上涨。 黄金价格一度上涨3.2%，升至每盎司4850美元以上，延续了前一交易日1.2%的涨幅。特朗普在社交媒体发文称，在他设定的摧毁伊朗“整个文明”的最后期限前不到两小时，他同意暂停轰炸，并补充说，重新开放霍尔木兹海峡是此次停火的关键条件。伊朗方面表示，未来两周内，船只“有可能”安全通过该
 
 ## 正文
 
-雷递网 雷建平 6月4日北京君正集成电路股份有限公司（简称：“君正集成”）日前更新招股书，准备在港交所上市。
+美国总统特朗普与伊朗达成为期两周停火协议，以敲定结束这场扰乱全球市场的战争的谈判，金价随之上涨。
 
-君正集成已在深交所上市，截至今日收盘，君正集成股价为150.41元，市值为726亿元。
+黄金价格一度上涨3.2%，升至每盎司4850美元以上，延续了前一交易日1.2%的涨幅。
 
-第一季营收15.6亿，净利3亿君正集成成立于2005年，基于创始团队的CPU设计技术，在消费电子市场实现SoC芯片产业化，2011年5月公司在创业板上市（300223）。
+特朗普在社交媒体发文称，在他设定的摧毁伊朗“整个文明”的最后期限前不到两小时，他同意暂停轰炸，并补充说，重新开放霍尔木兹海峡是此次停火的关键条件。
 
-君正在处理器技术、多媒体技术和AI技术等计算技术领域持续投入，其芯片在智能视频监控、AIoT、工业和消费、生物识别及教育电子领域获得市场。
+伊朗方面表示，未来两周内，船只“有可能”安全通过该海峡。
 
-2020年，君正集成完成对美国ISSI的收购。
+原油价格暴跌至每桶100美元以下，美元也走软，这为以美元计价的黄金提供了支撑。
 
-ISSI面向汽车、工业和医疗等领域提供高品质、高可靠性的存储器产品，包括SRAM、DRAM、NOR Flash、2D NAND Flash 和eMMC。
+股市大幅上涨，摩根士丹利资本国际亚太指数触及三周高点。
 
-招股书显示，君正集成2023年、2024年、2025年营收分别为45.31亿元、42.13亿元、47.4亿元；毛利分别为16亿元、14.73亿元、15.54亿元；毛利率分别为35.5%、35%、32.8%。
+自中东战争爆发以来，黄金价格走势与股市大体同步，由于部分投资者需要弥补投资组合中其他领域的损失，黄金传统的避险吸引力有所减弱。
 
-君正集成2023年、2024年、2025年期内利润分别为5.16亿元、3.64亿元、3.75亿元；期内利润率分别为11.4%、8.6%、7.9%。
+Pepperstone集团策略师艾哈迈德・阿西里表示：“金价突破4800美元，反映出市场对风险的重新评估，而非整体格局的转变。
 
 ## 相关推荐
 
-- 2026-06-29 23:42 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 23:47 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 23:46 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 23:46 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 23:40 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 23:37 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 00:02 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 23:37 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 00:00 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 23:57 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 23:41 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 23:37 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 00:04 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 23:46 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 23:46 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 23:56 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 23:57 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 23:42 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 00:11 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 00:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 00:00 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 23:44 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 00:01 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 00:01 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 00:00 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 23:43 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 23:42 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 23:44 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/396290176.shtml)
-- 2026-06-29 23:52 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/90820593.shtml)
-- 2026-06-29 23:38 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/44680.shtml)
-- 2026-06-30 00:01 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/861252747359.shtml)
-- 2026-06-30 00:05 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/654745525.shtml)
-- 2026-06-29 23:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/602448.shtml)
-- 2026-06-29 23:51 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/03011.shtml)
-- 2026-06-29 23:52 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/21184611.shtml)
-- 2026-06-30 00:01 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/23473.shtml)
-- 2026-06-29 23:54 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/658980691582.shtml)
-- 2026-06-29 23:48 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/79117.shtml)
-- 2026-06-30 00:02 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/718834353.shtml)
-- 2026-06-29 23:51 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/99109239216.shtml)
-- 2026-06-29 23:36 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/22716818185.shtml)
-- 2026-06-29 23:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/33492.shtml)
+- 2026-06-30 00:10 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/7765533.shtml)
+- 2026-06-29 23:51 - [明星大侦探第一季](https://www.share.minike.top/Article/details/75868497.shtml)
+- 2026-06-29 23:44 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/0048504.shtml)
+- 2026-06-29 23:56 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/43969518.shtml)
+- 2026-06-30 00:01 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/94918086932.shtml)
+- 2026-06-30 00:02 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/512205553875.shtml)
+- 2026-06-29 23:47 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/038360834.shtml)
+- 2026-06-29 23:55 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/395013310143.shtml)
+- 2026-06-29 23:49 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/13022616021.shtml)
+- 2026-06-29 23:44 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/75171.shtml)
+- 2026-06-29 23:54 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/58420475.shtml)
+- 2026-06-30 00:07 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/556986140871.shtml)
+- 2026-06-30 00:02 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/19802.shtml)
+- 2026-06-29 23:58 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/961554.shtml)
+- 2026-06-29 23:42 - [女心理师](http://www.share.kurohicncr.top/Article/details/60266646062.shtml)

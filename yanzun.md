@@ -1,58 +1,48 @@
-# PMET Resources获法国兴业银行项目融资意向，推进Shaakichiuwaanaan锂矿开发
+# OpenAI要求加利福尼亚州和特拉华州调查马斯克
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-PMET Resources于6月3日宣布，已收到法国兴业银行发出的不具约束力的意向书，就公司位于魁北克省Eeyou Istchee詹姆斯湾地区的Shaakichiuwaanaan项目一期开发提供潜在项目融资。 根据意向书，法国兴业银行表达了作为委托牵头安排人参与潜在债务融资方案的兴趣。该意向书旨在协助推进贷方尽职调查，包括技术、环境和商业审查，同时PMET正朝着2026年第四
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：财联社） 财联社4月7日电，OpenAI敦促加利福尼亚州和特拉华州的总检察长调查马斯克可能存在的“不当和反竞争行为”。
 
 ## 正文
 
-PMET Resources于6月3日宣布，已收到法国兴业银行发出的不具约束力的意向书，就公司位于魁北克省Eeyou Istchee詹姆斯湾地区的Shaakichiuwaanaan项目一期开发提供潜在项目融资。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-根据意向书，法国兴业银行表达了作为委托牵头安排人参与潜在债务融资方案的兴趣。
-
-该意向书旨在协助推进贷方尽职调查，包括技术、环境和商业审查，同时PMET正朝着2026年第四季度完成更新版可行性研究的目标迈进。
-
-PMET首席财务官Natacha Garoute表示：“法国兴业银行带来了广泛的全球采矿项目融资专业知识，包括为魁北克矿业资产融资的丰富经验。
-
-他们的兴趣进一步强化了Shaakichiuwaanaan项目的质量、规模和战略重要性。
-
-我们期待在推进贷方尽职调查的过程中与法国兴业银行团队密切合作，并继续建立强大的融资银团以支持一期开发。
-
-” 此次意向标志着PMET长期融资战略的又一重要进展。
-
-此前，公司已获得加拿大出口发展局、德国复兴信贷银行IPEX银行以及另一家加拿大主要金融机构的支持和参与。
+（来源：财联社） 财联社4月7日电，OpenAI敦促加利福尼亚州和特拉华州的总检察长调查马斯克可能存在的“不当和反竞争行为”。
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 23:56 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 23:55 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 23:54 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 23:56 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 23:42 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 23:43 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 23:36 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 00:01 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 23:45 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 23:38 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 23:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 23:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 23:53 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 23:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 23:54 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 23:56 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 23:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 23:47 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 23:47 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 00:10 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 23:48 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 00:01 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 00:09 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 00:04 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 23:56 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [美人鱼](https://www.share.minike.top/Article/details/030426.shtml)
-- 2026-06-29 23:42 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/3042322342.shtml)
-- 2026-06-29 23:47 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/532300186575.shtml)
-- 2026-06-29 23:57 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/36658.shtml)
-- 2026-06-29 23:41 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/61826.shtml)
-- 2026-06-29 23:43 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/65673873255.shtml)
-- 2026-06-29 23:36 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/696869856.shtml)
-- 2026-06-29 23:42 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/77101.shtml)
-- 2026-06-29 23:43 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/050563112.shtml)
-- 2026-06-29 23:51 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/44820.shtml)
-- 2026-06-30 00:01 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/472973.shtml)
-- 2026-06-29 23:48 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/212359710.shtml)
-- 2026-06-29 23:59 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/111031.shtml)
-- 2026-06-30 00:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/5867167388.shtml)
-- 2026-06-29 23:37 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/85737274.shtml)
+- 2026-06-29 23:49 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/294457892.shtml)
+- 2026-06-30 00:11 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/78912.shtml)
+- 2026-06-29 23:46 - [《贺子珍》](https://www.blog.minike.top/Article/details/062306.shtml)
+- 2026-06-30 00:04 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/99883.shtml)
+- 2026-06-29 23:57 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/320752.shtml)
+- 2026-06-30 00:11 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/79423002129.shtml)
+- 2026-06-29 23:46 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/217228.shtml)
+- 2026-06-29 23:52 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/47520929.shtml)
+- 2026-06-29 23:54 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/373658046.shtml)
+- 2026-06-29 23:47 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/99610.shtml)
+- 2026-06-29 23:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/26599360198.shtml)
+- 2026-06-29 23:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/23045.shtml)
+- 2026-06-29 23:48 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/9358776351.shtml)
+- 2026-06-29 23:51 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/19165658.shtml)
+- 2026-06-30 00:01 - [流金岁月](https://www.blog.minike.top/Article/details/588166.shtml)

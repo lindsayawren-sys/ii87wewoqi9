@@ -1,56 +1,57 @@
-# 国家广播电视总局部署开展微短剧有害低俗内容和侵权盗版专项治理
+# Anthropic锁定谷歌和博通数千亿美元算力 年化营收翻三倍至300亿美元
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月1日，国家广播电视总局部署开展微短剧有害低俗内容和侵权盗版专项治理。本次专项治理为期2个月，将依法依规集中治理部分微短剧存在的涉儿童有害、软色情擦边、拜金炫富、畸形婚恋观、封建糟粕、暴力复仇、低俗片名、侵权盗版等8个重点问题，规范微短剧创作传播行为，进一步营造清朗健康的行业发展生态。 广电总局有关负责人
+Anthropic已承诺从谷歌云（Alphabet旗下部门）获取“数吉瓦”的计算能力，其中包括通过一项与博通达成的新协议，从2027年开始交付约3.5吉瓦的算力。 据一位知情人士透露，这些协议涉及的总新增算力可能接近5吉瓦。按照每吉瓦基础设施约350亿至500亿美元的成本估算，这一承诺可能耗资数千亿美元。博通股价盘前上涨3.58%，Alphabet上涨1.32%。这家芯片制造商
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+Anthropic已承诺从谷歌云（Alphabet旗下部门）获取“数吉瓦”的计算能力，其中包括通过一项与博通达成的新协议，从2027年开始交付约3.5吉瓦的算力。
 
-6月1日，国家广播电视总局部署开展微短剧有害低俗内容和侵权盗版专项治理。
+据一位知情人士透露，这些协议涉及的总新增算力可能接近5吉瓦。
 
-本次专项治理为期2个月，将依法依规集中治理部分微短剧存在的涉儿童有害、软色情擦边、拜金炫富、畸形婚恋观、封建糟粕、暴力复仇、低俗片名、侵权盗版等8个重点问题，规范微短剧创作传播行为，进一步营造清朗健康的行业发展生态。
+按照每吉瓦基础设施约350亿至500亿美元的成本估算，这一承诺可能耗资数千亿美元。
 
-广电总局有关负责人表示，本次专项治理对于营造微短剧行业良好内容生态具有重要意义。
+博通股价盘前上涨3.58%，Alphabet上涨1.32%。
 
-各省级广电行政主管部门要切实履行属地管理责任，建立巡查与抽查机制，对辖区内平台和制作机构实行全周期、动态化监管；相关平台和制作机构要认真落实主体责任，积极主动开展全面排查，对发现的问题内容即查即改、处置到位。
+这家芯片制造商还另外达成协议，将在2031年前为谷歌开发并提供未来多代的张量处理单元。
 
-在扎实开展专项治理的同时，深入实施“微短剧精品创作传播‘五个一批工程’”，着力提升微短剧创作质量。
+Anthropic表示，其年化营收在3月底达到300亿美元，高于2025年底的约90亿美元，在大约三个月内增长了两倍多。
 
-专项治理结束后，广电总局将及时总结经验，开展常态化监测监管，制定完善法规制度，进一步营造良好网络视听环境。
+自2月份以来，每年支出超过100万美元的企业客户数量已翻倍，超过1000家。
 
-（国家广播电视总局） 责任编辑：宋雅芳
+Anthropic首席财务官克里希纳·拉奥在公司博客文章中表示：“我们正在建设必要的能力，以服务我们在客户群中看到的指数级增长。
 
 ## 相关推荐
 
-- 2026-06-29 23:58 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 00:00 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 23:56 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 23:36 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 23:51 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 23:50 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 00:03 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 23:46 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 23:48 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 00:02 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 00:11 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 23:58 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 23:52 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 00:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 23:42 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 23:48 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 23:57 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 23:54 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 00:00 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 00:02 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 00:02 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:53 - [世界杯](http://www.blog.minike.top/Article/details/11877588.shtml)
-- 2026-06-29 23:39 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/64308.shtml)
-- 2026-06-29 23:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/46135.shtml)
-- 2026-06-29 23:51 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/9984511.shtml)
-- 2026-06-29 23:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/115796.shtml)
-- 2026-06-29 23:54 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/116030371450.shtml)
-- 2026-06-29 23:49 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/63842189617.shtml)
-- 2026-06-29 23:44 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/637121399.shtml)
-- 2026-06-29 23:55 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/28398804.shtml)
-- 2026-06-29 23:41 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/95257977052.shtml)
-- 2026-06-29 23:52 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/390797520.shtml)
-- 2026-06-30 00:04 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/8473643.shtml)
-- 2026-06-29 23:42 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/905809.shtml)
-- 2026-06-29 23:51 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/71149.shtml)
-- 2026-06-29 23:42 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/869382895973.shtml)
+- 2026-06-29 23:43 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/9845387.shtml)
+- 2026-06-29 23:51 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/279477581.shtml)
+- 2026-06-30 00:08 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/3905289.shtml)
+- 2026-06-30 00:11 - [乔家的儿女](https://www.blog.minike.top/Article/details/784264.shtml)
+- 2026-06-30 00:01 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/23531.shtml)
+- 2026-06-29 23:57 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/98850389427.shtml)
+- 2026-06-29 23:46 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/55584998.shtml)
+- 2026-06-29 23:48 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/62353.shtml)
+- 2026-06-29 23:43 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/09690.shtml)
+- 2026-06-30 00:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/54927.shtml)
+- 2026-06-29 23:46 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/53002.shtml)
+- 2026-06-30 00:10 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/5504145.shtml)
+- 2026-06-30 00:05 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/2393818.shtml)
+- 2026-06-29 23:44 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/9700814417.shtml)
+- 2026-06-30 00:04 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/4024513.shtml)

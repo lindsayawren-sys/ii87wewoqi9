@@ -1,61 +1,60 @@
-# 市场环境承压，Inditex销售额增速逆势走高
+# 广西财政精准投入 2025年筹集保障房3.6万余套（间）
 
-> 更新时间：2026-06-30 00:06:03 UTC+8
+> 更新时间：2026-06-30 00:12:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 中东冲突抬升成本、消费信心走弱，服装零售商普遍承压 ZARA 母公司Inditex（ITX）股价上涨 5.73%。公司表示，尽管中东战事推高原材料与物流运费、服装行业整体经营环境严峻，上月公司营收增速仍出现提速。 这家西班牙时尚巨头旗下还拥有玛西莫・杜蒂、波丝卡等服饰品牌。公司周三披露：5 月 1 日 —6 月 1 日期间，固定汇率口径销售
+中新网南宁4月7日电(韦佳秀)广西财政厅近日发布消息称，2025年通过精准投入，广西累计筹集配售型保障房4545套、配租型保障房3.17万套(间)，有效满足新市民、青年人及中低收入群体住房需求。 具体而言，2025年广西财政厅统筹安排财政补助资金9.88亿元(人民币，下同)，重点支持公租房、保障性租赁住房和配售型保障房建设；安排奖补资金1.06亿元，支持地方国企收购存量商品房转
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 中东冲突抬升成本、消费信心走弱，服装零售商普遍承压 ZARA 母公司Inditex（ITX）股价上涨 5.73%。
+中新网南宁4月7日电(韦佳秀)广西财政厅近日发布消息称，2025年通过精准投入，广西累计筹集配售型保障房4545套、配租型保障房3.17万套(间)，有效满足新市民、青年人及中低收入群体住房需求。
 
-公司表示，尽管中东战事推高原材料与物流运费、服装行业整体经营环境严峻，上月公司营收增速仍出现提速。
+具体而言，2025年广西财政厅统筹安排财政补助资金9.88亿元(人民币，下同)，重点支持公租房、保障性租赁住房和配售型保障房建设；安排奖补资金1.06亿元，支持地方国企收购存量商品房转化为保障房，推动形成“保障+市场”双轨并行的住房供给格局。
 
-这家西班牙时尚巨头旗下还拥有玛西莫・杜蒂、波丝卡等服饰品牌。
+同时，广西财政统筹补助资金与城中村改造专项借款，支持拆迁安置及市政道路、绿地公园、教育医疗等配套设施建设，挖掘亭子码头千年历史底蕴，打造商文旅融合新业态。
 
-公司周三披露：5 月 1 日 —6 月 1 日期间，固定汇率口径销售额同比大涨 11.5%，较截至 4 月 30 日一季度 8.8% 的营收增速显著抬升；其一季度总营收 87.5 亿欧元（折合 101.8 亿美元），Visible Alpha 汇总的分析师一致预期为 87.2 亿欧元，业绩小幅优于预期。
+2025年，广西共统筹资金2.09亿元支持城中村改造，涉及6112户居民，新开工安置住房7740套。
 
-受波斯湾地缘冲突带来的成本上涨、居民消费意愿下滑双重冲击，全球服装零售商经营普遍承压。
+为消除危旧房隐患，广西通过财政补助引导民众出资，推动危旧房改造由“政府独唱”向“共建共享”转变。
 
-Inditex称：“全品类开支均执行精细化管控，成本管控成效向好。
+2025年，广西统筹补助资金8亿元推进城市危旧房改造，开工改造1.73万套。
 
-” 公司一季度净利润由去年同期 13.1 亿欧元增至 13.8 亿欧元。
+在城镇老旧小区改造方面，2025年广西聚焦管网改造、环境整治、设施完善等任务，安排补助资金14.16亿元，支持1195个老旧小区、12.7万户居民居住条件升级。
 
-公司展望 2027 财年（截至次年 1 月）毛利率保持平稳，波动区间控制在正负 0.5 个百分点以内。
+截至2025年底，累计新增停车位5.96万个、电动汽车充电桩4060个，4833个小区完善照明设施，584个小区实施适老化、无障碍改造。
 
 ## 相关推荐
 
-- 2026-06-29 23:40 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 23:43 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 23:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 00:01 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 23:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 23:47 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 00:04 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 00:01 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 00:05 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 23:36 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 23:38 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 23:53 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 23:44 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 23:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 23:41 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 23:48 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 23:43 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 00:02 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 00:03 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 00:05 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 23:43 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 23:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 00:09 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 23:44 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 23:57 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 00:00 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 23:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 23:59 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 23:58 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:39 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/081084161.shtml)
-- 2026-06-29 23:53 - [女心理师](https://www.share.kurohicncr.top/Article/details/216293.shtml)
-- 2026-06-29 23:54 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/5072327.shtml)
-- 2026-06-30 00:03 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/9286367.shtml)
-- 2026-06-29 23:36 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/8119232.shtml)
-- 2026-06-30 00:00 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/7979431.shtml)
-- 2026-06-29 23:58 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/009762318861.shtml)
-- 2026-06-29 23:55 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/357523.shtml)
-- 2026-06-29 23:56 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/097896770.shtml)
-- 2026-06-29 23:43 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/4476418.shtml)
-- 2026-06-29 23:43 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/14903.shtml)
-- 2026-06-30 00:02 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/0737217.shtml)
-- 2026-06-29 23:42 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/792713.shtml)
-- 2026-06-29 23:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/626442630253.shtml)
-- 2026-06-29 23:36 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/356431.shtml)
+- 2026-06-30 00:05 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/0369456.shtml)
+- 2026-06-29 23:50 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/8054906403.shtml)
+- 2026-06-30 00:02 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/38616859364.shtml)
+- 2026-06-30 00:00 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/49822523.shtml)
+- 2026-06-29 23:46 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/432960.shtml)
+- 2026-06-29 23:57 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/422519.shtml)
+- 2026-06-30 00:11 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/413641255055.shtml)
+- 2026-06-29 23:57 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/19970.shtml)
+- 2026-06-29 23:52 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/44922.shtml)
+- 2026-06-29 23:44 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/040164.shtml)
+- 2026-06-30 00:04 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/42218.shtml)
+- 2026-06-30 00:02 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/145794.shtml)
+- 2026-06-30 00:08 - [美股](http://www.blog.kurohicncr.top/Article/details/352554.shtml)
+- 2026-06-30 00:00 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/24433490057.shtml)
+- 2026-06-30 00:08 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/02972110182.shtml)
