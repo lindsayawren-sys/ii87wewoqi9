@@ -1,57 +1,59 @@
-# 人类首次获取珠峰峰顶透底冰芯样本
+# 美团：优化算法治理 保障骑手合法权益
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新社加德满都5月22日电 (记者 崔楠)珠穆朗玛峰“巅峰之芯”中尼联合科考队当地时间近日成功从珠峰尼泊尔一侧登顶，并完成人类首次珠峰峰顶透底冰芯样本钻取。 科考队珠峰南坡大本营留守团队22日告诉中新社记者，科考队于当地时间21日7时30分登顶珠峰，随即在珠峰峰顶开展冰芯钻取等科学采样工作，约两小时后完成采样。 科考队队长温旭表示，在珠峰顶开展冰芯钻取工作，不仅需要完成极限攀登
+新浪科技讯 6月16日下午消息，美团官方公众号发文称，将算法治理作为践行企业社会责任的重要方面，聚焦骑手反映强烈的问题诉求，推动算法从“效率优先”向“以人为本”转变，切实保障骑手合法权益，努力增强骑手的获得感、幸福感、安全感。 美团称，“超时扣款”曾是骑手，特别是新骑手最担心的问题之一。为破解这一痛点，美团推出超时免罚措施，用得分体系代替负向扣款，于2025年实现超时免罚全国覆
 
 ## 正文
 
-中新社加德满都5月22日电 (记者 崔楠)珠穆朗玛峰“巅峰之芯”中尼联合科考队当地时间近日成功从珠峰尼泊尔一侧登顶，并完成人类首次珠峰峰顶透底冰芯样本钻取。
+新浪科技讯 6月16日下午消息，美团官方公众号发文称，将算法治理作为践行企业社会责任的重要方面，聚焦骑手反映强烈的问题诉求，推动算法从“效率优先”向“以人为本”转变，切实保障骑手合法权益，努力增强骑手的获得感、幸福感、安全感。
 
-科考队珠峰南坡大本营留守团队22日告诉中新社记者，科考队于当地时间21日7时30分登顶珠峰，随即在珠峰峰顶开展冰芯钻取等科学采样工作，约两小时后完成采样。
+美团称，“超时扣款”曾是骑手，特别是新骑手最担心的问题之一。
 
-科考队队长温旭表示，在珠峰顶开展冰芯钻取工作，不仅需要完成极限攀登，更要在极度缺氧、低温严寒及有限作业窗口内完成连续科学操作。
+为破解这一痛点，美团推出超时免罚措施，用得分体系代替负向扣款，于2025年实现超时免罚全国覆盖，激励骑手从“安全”“准时”“服务”三个维度获得正向积分，有效减轻骑手配送压力。
 
-本次科考首席科学家、中国科学院青藏高原研究所副所长、研究员徐柏青表示，珠峰峰顶是地球地理最高点。
+同时，改进了针对新骑手的订单调度系统，使得“新手期”不会接到难度大的订单。
 
-此次获取的峰顶冰芯及多海拔梯度样本，填补了人类观测的重要空白，为进一步理解极高海拔区域气候环境变化、印度洋季风影响边界、污染物向高海拔区域传输路径，以及珠峰南北坡气候响应差异等问题提供关键样品。
+美团还提到，鼓励骑手“慢下来赚更多”。
 
-“巅峰之芯”项目由中国科学院加德满都科教中心与天津市极致应对气候变化促进中心联合发起。
+正向激励骑手遵守交通规则，将骑手交通安全表现纳入考核体系，“安全分”等级越高，奖励越多。
 
-科考团队介绍，目前，登顶队员正在下撤，并沿途继续开展多海拔梯度冰芯、雪芯样本采集。
+此外，还为保持零闯红灯记录的骑手发放“等灯等灯奖”。
 
-相关样本将于近日随队运抵珠峰南坡大本营，并经专业低温保存转运，后续进入实验室分析阶段。
+2025年，“等灯等灯奖”累计覆盖近200个城市，投入7000万元，奖励骑手近128万人次。
 
 ## 相关推荐
 
-- 2026-06-29 22:21 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 22:21 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 22:23 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 22:25 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 22:11 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 22:26 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 22:24 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 22:33 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 22:23 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 22:30 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 22:33 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 22:28 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 22:25 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 22:19 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 22:23 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 22:12 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 22:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 22:33 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 22:15 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 22:36 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 22:14 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 22:21 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 22:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 22:16 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:06 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/6509618528.shtml)
-- 2026-06-29 22:14 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/63881992992.shtml)
-- 2026-06-29 22:27 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/43368.shtml)
-- 2026-06-29 22:06 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/7257136.shtml)
-- 2026-06-29 22:25 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.minike.top/Article/details/7537500.shtml)
-- 2026-06-29 22:27 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/254550603848.shtml)
-- 2026-06-29 22:15 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/84171077.shtml)
-- 2026-06-29 22:20 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/085788.shtml)
-- 2026-06-29 22:22 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/9171862795.shtml)
-- 2026-06-29 22:35 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/745305629130.shtml)
-- 2026-06-29 22:19 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/79810969661.shtml)
-- 2026-06-29 22:12 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/7312244571.shtml)
-- 2026-06-29 22:10 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/420141490.shtml)
-- 2026-06-29 22:30 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/9548067261.shtml)
-- 2026-06-29 22:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/697427.shtml)
+- 2026-06-29 22:18 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/484364.shtml)
+- 2026-06-29 22:26 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/1770449.shtml)
+- 2026-06-29 22:20 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/16073949.shtml)
+- 2026-06-29 22:24 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/70655558950.shtml)
+- 2026-06-29 22:34 - [返利科技盘中上演“天地板”](http://www.blog.minike.top/Article/details/39122983063.shtml)
+- 2026-06-29 22:25 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/543738032171.shtml)
+- 2026-06-29 22:33 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/9532471.shtml)
+- 2026-06-29 22:18 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/72278949008.shtml)
+- 2026-06-29 22:34 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/0278026861.shtml)
+- 2026-06-29 22:22 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/8249145.shtml)
+- 2026-06-29 22:19 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/2298849880.shtml)
+- 2026-06-29 22:13 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/666990.shtml)
+- 2026-06-29 22:25 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/107326.shtml)
+- 2026-06-29 22:36 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/555741.shtml)
+- 2026-06-29 22:21 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/65775931634.shtml)

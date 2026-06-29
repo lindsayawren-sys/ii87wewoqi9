@@ -1,56 +1,58 @@
-# 一顶虎头帽连世界 三代苗绣人绣出深山“潮品”
+# 希迪智驾午后飙升逾33% 沙特国家矿业公司到访希迪智驾共推智慧矿山全球化实践
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网湘西5月25日电 (易灏 谭江南 田源)在湖南湘西十八洞村的苗绣工坊里，72岁的石顺莲完成一顶传统虎头帽的最后针脚。她轻轻将帽子戴在6岁的孙女头上，帽上彩纹鲜亮，虎头憨态传神。 虎头帽，是湘西苗族流传千年的民俗童饰。苗家人借虎之威仪，为孩子祈福健康顺遂。近期，虎头帽引发海内外广泛关注。它的走红，不是偶然的流量幸运，更是非遗技艺传承以及老中青三代苗绣人的接力坚守。石顺莲是十
+希迪智驾（03881）盘中飙升逾35%，截至发稿，股价上涨33.56%，现报22.96港元，成交额1.24亿港元。 6月16日，沙特阿拉伯国家矿业公司（Maaden）代表团到访希迪智驾开展交流考察。双方围绕矿区无人运输、矿山数字化建设及全球化合作等方向展开深入交流，共同探讨智慧矿山技术在全球场景下的应用实践与发展机遇。据悉，Maaden是沙特国家级矿业龙头企业，也是沙特“Vis
 
 ## 正文
 
-中新网湘西5月25日电 (易灏 谭江南 田源)在湖南湘西十八洞村的苗绣工坊里，72岁的石顺莲完成一顶传统虎头帽的最后针脚。
+希迪智驾（03881）盘中飙升逾35%，截至发稿，股价上涨33.56%，现报22.96港元，成交额1.24亿港元。
 
-她轻轻将帽子戴在6岁的孙女头上，帽上彩纹鲜亮，虎头憨态传神。
+6月16日，沙特阿拉伯国家矿业公司（Maaden）代表团到访希迪智驾开展交流考察。
 
-虎头帽，是湘西苗族流传千年的民俗童饰。
+双方围绕矿区无人运输、矿山数字化建设及全球化合作等方向展开深入交流，共同探讨智慧矿山技术在全球场景下的应用实践与发展机遇。
 
-苗家人借虎之威仪，为孩子祈福健康顺遂。
+据悉，Maaden是沙特国家级矿业龙头企业，也是沙特“Vision 2030”战略的重要实施主体。
 
-近期，虎头帽引发海内外广泛关注。
+此外，希迪智驾携自主研发的远程操控挖掘机亮相澳大利亚2026珀斯技工博览会（Perth Tradie Expo），以AI+远程操控创新技术方案引发广泛关注。
 
-它的走红，不是偶然的流量幸运，更是非遗技艺传承以及老中青三代苗绣人的接力坚守。
+此次参展，标志着希迪智驾在海外市场拓展中迈出重要一步，也展现了中国智能驾驶与工程机械远程操控技术的国际竞争力。
 
-石顺莲是十八洞村原党支部书记。
-
-2014年，她在村里牵头成立苗绣合作社。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 22:11 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-29 22:06 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 22:27 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 22:24 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 22:15 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 22:26 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 22:24 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 22:20 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 22:11 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 22:24 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 22:30 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 22:22 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 22:24 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 22:40 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 22:30 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 22:29 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 22:12 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 22:34 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 22:17 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 22:24 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 22:31 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 22:22 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 22:32 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:06 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/149766092.shtml)
-- 2026-06-29 22:16 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/416994175976.shtml)
-- 2026-06-29 22:24 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/443308730451.shtml)
-- 2026-06-29 22:20 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/9682394721.shtml)
-- 2026-06-29 22:23 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/768145.shtml)
-- 2026-06-29 22:18 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/48811207765.shtml)
-- 2026-06-29 22:11 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/907933126.shtml)
-- 2026-06-29 22:28 - [巴西10号球衣是天才传承史](https://www.blog.minike.top/Article/details/7594877086.shtml)
-- 2026-06-29 22:15 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/131521.shtml)
-- 2026-06-29 22:19 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/372493.shtml)
-- 2026-06-29 22:25 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/4988881481.shtml)
-- 2026-06-29 22:34 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/153022060549.shtml)
-- 2026-06-29 22:26 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/836514946094.shtml)
-- 2026-06-29 22:08 - [时光音乐会](http://www.share.minike.top/Article/details/37538342.shtml)
-- 2026-06-29 22:08 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/716147140972.shtml)
+- 2026-06-29 22:26 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/0795446854.shtml)
+- 2026-06-29 22:23 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/461073270.shtml)
+- 2026-06-29 22:38 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/272574521964.shtml)
+- 2026-06-29 22:39 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/5668442.shtml)
+- 2026-06-29 22:22 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/4025022.shtml)
+- 2026-06-29 22:42 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/853982.shtml)
+- 2026-06-29 22:31 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/02478981638.shtml)
+- 2026-06-29 22:30 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/261938.shtml)
+- 2026-06-29 22:13 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/4087099611.shtml)
+- 2026-06-29 22:19 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/713718937.shtml)
+- 2026-06-29 22:17 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/7138807094.shtml)
+- 2026-06-29 22:40 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/15135104956.shtml)
+- 2026-06-29 22:32 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/300662739.shtml)
+- 2026-06-29 22:24 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/239849017161.shtml)
+- 2026-06-29 22:24 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/876504313.shtml)

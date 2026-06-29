@@ -1,49 +1,48 @@
-# 三星电子达成临时协议避免罢工
+# 两部门对青海海西州地震启动国家地震灾害四级应急响应
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-三星电子（KRX：005930）与工会达成了一项临时薪资和奖金协议，暂停了持续18天的罢工，在人工智能内存供应紧张的背景下，公司股价上涨约6%。责任编辑：张俊 SF065
+中新网6月16日电 据应急管理部网站消息，中国地震台网测定，6月16日17时06分，在青海海西州直辖区(北纬37.80度，东经95.56度)发生6.3级地震，震源深度10公里。 地震发生后，应急管理部调派力量赶赴灾区，全力搜救被困人员，调拨物资做好受灾群众救助安置，加强震情监测和跟踪研判。国务院抗震救灾指挥部办公室、应急管理部启动国家地震灾害四级应急响应，派出工作组赶赴当地指导
 
 ## 正文
 
-三星电子（KRX：005930）与工会达成了一项临时薪资和奖金协议，暂停了持续18天的罢工，在人工智能内存供应紧张的背景下，公司股价上涨约6%。
+中新网6月16日电 据应急管理部网站消息，中国地震台网测定，6月16日17时06分，在青海海西州直辖区(北纬37.80度，东经95.56度)发生6.3级地震，震源深度10公里。
 
-责任编辑：张俊 SF065
+地震发生后，应急管理部调派力量赶赴灾区，全力搜救被困人员，调拨物资做好受灾群众救助安置，加强震情监测和跟踪研判。
+
+国务院抗震救灾指挥部办公室、应急管理部启动国家地震灾害四级应急响应，派出工作组赶赴当地指导处置。
+
+国家综合性消防救援队伍已出动救援力量78车320人10条搜救犬赶赴现场救援。
 
 ## 相关推荐
 
-- 2026-06-29 22:34 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 22:35 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 22:19 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 22:16 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 22:21 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 22:28 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 22:28 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 22:13 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 22:14 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 22:24 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 22:19 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 22:18 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 22:10 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 22:10 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 22:29 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 22:23 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 22:13 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 22:35 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 22:40 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 22:40 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 22:12 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 22:17 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 22:35 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 22:17 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 22:34 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:26 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/281677.shtml)
-- 2026-06-29 22:11 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/41988858.shtml)
-- 2026-06-29 22:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/99550652.shtml)
-- 2026-06-29 22:10 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/93332432308.shtml)
-- 2026-06-29 22:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/7845996.shtml)
-- 2026-06-29 22:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/345074291712.shtml)
-- 2026-06-29 22:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/7980391.shtml)
-- 2026-06-29 22:33 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/2318302.shtml)
-- 2026-06-29 22:10 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/034985177439.shtml)
-- 2026-06-29 22:28 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/3000767.shtml)
-- 2026-06-29 22:10 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/09281.shtml)
-- 2026-06-29 22:11 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/24515.shtml)
-- 2026-06-29 22:08 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/107650129215.shtml)
-- 2026-06-29 22:25 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/2488780.shtml)
-- 2026-06-29 22:24 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/09065154071.shtml)
+- 2026-06-29 22:32 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/75608022.shtml)
+- 2026-06-29 22:18 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/194492407.shtml)
+- 2026-06-29 22:33 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/39310439212.shtml)
+- 2026-06-29 22:23 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/925229414099.shtml)
+- 2026-06-29 22:32 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/9180715.shtml)
+- 2026-06-29 22:34 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/623850707.shtml)
+- 2026-06-29 22:15 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/0291973768.shtml)
+- 2026-06-29 22:12 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/658516052777.shtml)
+- 2026-06-29 22:16 - [月亮](http://www.share.minike.top/Article/details/592407724698.shtml)
+- 2026-06-29 22:25 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/9685036.shtml)
+- 2026-06-29 22:17 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/58824.shtml)
+- 2026-06-29 22:37 - [时光音乐会](http://www.blog.minike.top/Article/details/397279077117.shtml)
+- 2026-06-29 22:13 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/45022642617.shtml)
+- 2026-06-29 22:26 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/783570814.shtml)
+- 2026-06-29 22:25 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/151414.shtml)

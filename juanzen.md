@@ -1,61 +1,55 @@
-# 扎根戈壁廿一载：探得亿吨矿，种下同心“红石榴”
+# GTCFX:数据转弱托住金价节奏
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网济南5月25日电 题：扎根戈壁廿一载：探得亿吨矿，种下同心“红石榴” 作者 沙见龙 杨雪 伴着天山南麓第一缕晨光，山东省煤田地质局第五勘探队(以下简称“五队”)的钻机在戈壁滩上启动作业。闫顺尚裹紧工装，弯腰检查着刚从钻孔取出来的岩芯。这是他来新疆的第十七个年头，也是五队在这片土地上扎根的第二十一个春秋。 从一条测井曲线到亿吨级宝藏 “听前辈们说，20多年前，他们第一次踏进
+6月16日，美国区域制造业数据回落后，黄金维持在日内高位附近整理，GTCFX表示这说明贵金属在经济放缓线索出现时仍能获得一定承接。 就市场反应而言，GTCFX认为弱于预期的数据有助于压低收益率上冲意愿，从而减轻黄金此前承受的估值压力，但价格仍未完全摆脱震荡格局。 对于短线资金来说，数据面与利率预期之间的重新平衡，会继续影响黄金上方空间，尤其在宏观事件密集的阶段，行情往往需要更多
 
 ## 正文
 
-中新网济南5月25日电 题：扎根戈壁廿一载：探得亿吨矿，种下同心“红石榴” 作者 沙见龙 杨雪 伴着天山南麓第一缕晨光，山东省煤田地质局第五勘探队(以下简称“五队”)的钻机在戈壁滩上启动作业。
+6月16日，美国区域制造业数据回落后，黄金维持在日内高位附近整理，GTCFX表示这说明贵金属在经济放缓线索出现时仍能获得一定承接。
 
-闫顺尚裹紧工装，弯腰检查着刚从钻孔取出来的岩芯。
+就市场反应而言，GTCFX认为弱于预期的数据有助于压低收益率上冲意愿，从而减轻黄金此前承受的估值压力，但价格仍未完全摆脱震荡格局。
 
-这是他来新疆的第十七个年头，也是五队在这片土地上扎根的第二十一个春秋。
+对于短线资金来说，数据面与利率预期之间的重新平衡，会继续影响黄金上方空间，尤其在宏观事件密集的阶段，行情往往需要更多确认。
 
-从一条测井曲线到亿吨级宝藏 “听前辈们说，20多年前，他们第一次踏进新疆时，只有一辆测井车和3个人的小分队。
+放到后续阶段观察，GTCFX判断金价若能在高位维持稳固，市场会更愿意把这轮回升理解为结构修复，而不只是消息刺激下的短线反弹。
 
-测井车就是办公室，馕饼就着矿泉水就是一顿饭，热乎的泡面配上火腿肠都算是难得的美味。
-
-”2009年，刚毕业的闫顺尚来到新疆大南湖戈壁滩加入了这支队伍。
-
-“刚来的时候没想别的，就想着把活儿干好，把每一口井的数据测准。
-
-”闫顺尚现已成为五队地勘中心的负责人。
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 22:08 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 22:33 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 22:16 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 22:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 22:10 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 22:31 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 22:11 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 22:17 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 22:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 22:20 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 22:09 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 22:29 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 22:24 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 22:10 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 22:30 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 22:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 22:17 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 22:21 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 22:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 22:33 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 22:29 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 22:13 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 22:39 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 22:16 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 22:37 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 22:25 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 22:23 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 22:37 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 22:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:09 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/61311164806.shtml)
-- 2026-06-29 22:18 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/5839771069.shtml)
-- 2026-06-29 22:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/82171912.shtml)
-- 2026-06-29 22:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/1792931.shtml)
-- 2026-06-29 22:14 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/237336.shtml)
-- 2026-06-29 22:28 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/15272.shtml)
-- 2026-06-29 22:13 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/9994887.shtml)
-- 2026-06-29 22:33 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/351817075083.shtml)
-- 2026-06-29 22:25 - [金鹰奖第二阶段投票明日开启](http://www.share.minike.top/Article/details/55971592491.shtml)
-- 2026-06-29 22:07 - [济南航空航天全面起势](http://www.share.kurohicncr.top/Article/details/30652.shtml)
-- 2026-06-29 22:18 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/759894257.shtml)
-- 2026-06-29 22:20 - [AI接过张雪峰志愿填报衣钵](https://www.blog.minike.top/Article/details/15814393494.shtml)
-- 2026-06-29 22:17 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/10525909.shtml)
-- 2026-06-29 22:24 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/13519337860.shtml)
-- 2026-06-29 22:24 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/273669563293.shtml)
+- 2026-06-29 22:17 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/55552.shtml)
+- 2026-06-29 22:36 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/46884897.shtml)
+- 2026-06-29 22:34 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/67864.shtml)
+- 2026-06-29 22:35 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/38692361.shtml)
+- 2026-06-29 22:40 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/198813066578.shtml)
+- 2026-06-29 22:31 - [东方风云榜](http://www.blog.minike.top/Article/details/42704.shtml)
+- 2026-06-29 22:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/95453.shtml)
+- 2026-06-29 22:31 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/662659819497.shtml)
+- 2026-06-29 22:34 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.minike.top/Article/details/318845321.shtml)
+- 2026-06-29 22:26 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/729045863.shtml)
+- 2026-06-29 22:35 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/583006592577.shtml)
+- 2026-06-29 22:23 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/38832.shtml)
+- 2026-06-29 22:39 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/5162133.shtml)
+- 2026-06-29 22:36 - [记者暗访养老机构消防安全](https://www.blog.minike.top/Article/details/86742808.shtml)
+- 2026-06-29 22:22 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/8089031037.shtml)

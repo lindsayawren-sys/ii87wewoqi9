@@ -1,59 +1,50 @@
-# 董事长缺席股东会，ST喜临门股东会澄清实控人家族“内讧”传闻及经营现状
+# 不得以长期、大额补贴扰乱市场秩序 外卖平台新规公开征求意见
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 记者 | 段方 5月22日下午，ST喜临门（维权）（603008.SH）在其位于浙江省绍兴市越城区的喜临门袍江工厂总部召开2025年年度股东会。当日，该公司9名董事中有7人出席，实控人、董事长陈阿裕及董事朱小华未出席。 界面新闻现场获悉，陈阿裕儿子、公司副董事长兼总裁陈一铖，其姐姐暨董事陈萍淇，副总裁郑双全，副总裁蒋永舟，财务总
+中新网6月17日电 据“市说新语”微信公众号消息，为规范外卖平台补贴行为，市场监管总局依据《中华人民共和国反垄断法》《中华人民共和国反不正当竞争法》《中华人民共和国价格法》《中华人民共和国电子商务法》《中华人民共和国食品安全法》等法律法规规定，在广泛听取各方面意见的基础上，加强研究论证，起草形成《外卖平台补贴行为规范十条(征求意见稿)》(以下简称《征求意见稿》)，自即日起至7月
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 记者 | 段方 5月22日下午，ST喜临门（维权）（603008.SH）在其位于浙江省绍兴市越城区的喜临门袍江工厂总部召开2025年年度股东会。
+中新网6月17日电 据“市说新语”微信公众号消息，为规范外卖平台补贴行为，市场监管总局依据《中华人民共和国反垄断法》《中华人民共和国反不正当竞争法》《中华人民共和国价格法》《中华人民共和国电子商务法》《中华人民共和国食品安全法》等法律法规规定，在广泛听取各方面意见的基础上，加强研究论证，起草形成《外卖平台补贴行为规范十条(征求意见稿)》(以下简称《征求意见稿》)，自即日起至7月17日公开征求意见。
 
-当日，该公司9名董事中有7人出席，实控人、董事长陈阿裕及董事朱小华未出席。
+近段时间以来，外卖平台“拼补贴、拼价格、控流量”问题突出，损害平台内经营者、外卖骑手、消费者利益，挤压实体经济，加剧行业“内卷式”竞争。
 
-界面新闻现场获悉，陈阿裕儿子、公司副董事长兼总裁陈一铖，其姐姐暨董事陈萍淇，副总裁郑双全，副总裁蒋永舟，财务总监张冬云，董秘沈洁以及其第九大股东暨前任总经理沈冬良等参会；独立董事代表王光昌等线上参会。
+国务院反垄断反不正当竞争委员会办公室开展外卖行业市场竞争状况调查、评估发现，我国外卖平台存在利用资本优势抢占市场、裹挟平台内经营者参加补贴、导致行业非理性竞争等问题，亟需规范外卖平台补贴行为，引导外卖平台依法合规经营，开展良性竞争。
 
-陈一铖主持此次股东会。
+《征求意见稿》主要包括四方面内容：一是明确总体原则，不得以开展长期、大额补贴的手段和方式，排除、限制市场竞争，扰乱市场竞争秩序；二是明确具体要求，不得强制平台内经营者参加补贴活动或者承担补贴成本，不得利用资本优势实施垄断、不正当竞争行为，不得以低于成本的价格销售商品；三是明确监督措施，开展补贴活动前和实施补贴后向社会公开，并明确公开的主要信息，接受社会监督；四是明确法律风险，提示外卖平台补贴行为应遵守的相关法律规定，以及违法违规开展补贴活动的法律后果。
 
-近30个中小股东或股东代表出席此次股东会。
-
-当日，喜临门股东会审议《2025年度董事会工作报告》、《2025年年度报告及摘要》、《2025年度独立董事述职报告》、《2025年度财务决算报告》等8个议案均获通过。
-
-回应“内讧”传闻，董事长“没有跑” 年度股东会上，近期爆出债务危机的喜临门实际控制人、董事长陈阿裕罕见缺席。
-
-“董事长外出统筹推进债务化解工作。
+下一步，市场监管总局将根据各方面意见，对《征求意见稿》进一步修改完善并抓紧制定出台，规范外卖平台补贴行为，促进形成优质优价、良性竞争的市场秩序，推动行业创新和健康发展。
 
 ## 相关推荐
 
-- 2026-06-29 22:19 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 22:10 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 22:24 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 22:18 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 22:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 22:10 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 22:26 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 22:15 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 22:12 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 22:25 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 22:23 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 22:17 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 22:13 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 22:26 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 22:32 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 22:13 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 22:35 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 22:28 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 22:17 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 22:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 22:31 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 22:16 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 22:22 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/163588328.shtml)
-- 2026-06-29 22:21 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/45493.shtml)
-- 2026-06-29 22:31 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/7789138802.shtml)
-- 2026-06-29 22:35 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/130347668.shtml)
-- 2026-06-29 22:22 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/1754542520.shtml)
-- 2026-06-29 22:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/4946569.shtml)
-- 2026-06-29 22:19 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/059925428647.shtml)
-- 2026-06-29 22:12 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/1206897.shtml)
-- 2026-06-29 22:33 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/531749551735.shtml)
-- 2026-06-29 22:18 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/87664434063.shtml)
-- 2026-06-29 22:07 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/106539.shtml)
-- 2026-06-29 22:13 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/45949595.shtml)
-- 2026-06-29 22:31 - [世界杯](http://www.blog.minike.top/Article/details/491712.shtml)
-- 2026-06-29 22:12 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/0774623884.shtml)
-- 2026-06-29 22:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/368333642.shtml)
+- 2026-06-29 22:21 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/0956211535.shtml)
+- 2026-06-29 22:14 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/72827.shtml)
+- 2026-06-29 22:22 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/17170427311.shtml)
+- 2026-06-29 22:40 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/618362.shtml)
+- 2026-06-29 22:31 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/384223431.shtml)
+- 2026-06-29 22:16 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/652620.shtml)
+- 2026-06-29 22:29 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/3461499449.shtml)
+- 2026-06-29 22:32 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/9931914193.shtml)
+- 2026-06-29 22:28 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/91939307744.shtml)
+- 2026-06-29 22:19 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/5013553646.shtml)
+- 2026-06-29 22:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/29685011.shtml)
+- 2026-06-29 22:33 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/06669001745.shtml)
+- 2026-06-29 22:21 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/3153608186.shtml)
+- 2026-06-29 22:19 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/316507397980.shtml)
+- 2026-06-29 22:40 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/3312077.shtml)

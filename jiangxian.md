@@ -1,58 +1,60 @@
-# 地缘冲突推升物价压力，欧洲央行6月加息概率大幅走高
+# 碳酸锂还涨得动吗？
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——受伊朗局势持续影响，国际能源价格节节攀升，欧元区通胀上行风险再度加剧。欧洲央行计划在六月政策会议上调年度通胀预期，区域内部加息呼声持续升温。虽然美方释放和谈信号，但协议细节尚未落地，能源市场依旧充满变数。 央行高层表态审慎，将结合经济数据权衡货币政策，市场普遍预判六月大概率启动加息操作，地缘风波也让刚企稳的物价水平再度迎来严峻考验。 局势扰动通胀前景 官方下
+作者：谷静/F3016772、Z0013246/ 一德期货有色金属分析师 要点速览版 基本面 上方压制：供给高位与仓单压力持续限制反弹空间； 下方支撑：需求托底与去库边际改善提供安全垫。 关注点 津巴布韦锂矿到港情况、7月底仓单集中注销、下游排产兑现。 碳酸锂自上周出现反弹，但尚未形成趋势性行情便已再度走弱，今天就来梳理其背后的逻辑。 原因分析 前期低位反弹主要是需求支撑，动力
 
 ## 正文
 
-汇通财经APP讯——受伊朗局势持续影响，国际能源价格节节攀升，欧元区通胀上行风险再度加剧。
+作者：谷静/F3016772、Z0013246/ 一德期货有色金属分析师 要点速览版 基本面 上方压制：供给高位与仓单压力持续限制反弹空间； 下方支撑：需求托底与去库边际改善提供安全垫。
 
-欧洲央行计划在六月政策会议上调年度通胀预期，区域内部加息呼声持续升温。
+关注点 津巴布韦锂矿到港情况、7月底仓单集中注销、下游排产兑现。
 
-虽然美方释放和谈信号，但协议细节尚未落地，能源市场依旧充满变数。
+碳酸锂自上周出现反弹，但尚未形成趋势性行情便已再度走弱，今天就来梳理其背后的逻辑。
 
-央行高层表态审慎，将结合经济数据权衡货币政策，市场普遍预判六月大概率启动加息操作，地缘风波也让刚企稳的物价水平再度迎来严峻考验。
+原因分析 前期低位反弹主要是需求支撑，动力电池装车量的持续修复叠加储能维持高增长的推动，使得碳酸锂持续去库。
 
-局势扰动通胀前景 官方下调经济预期 欧洲央行准备在次月议息会议中修正通胀相关预判，伊朗对峙引发的油价上涨，让整个欧元区六月份加息的市场预期不断走强。
+国内锂盐产量维持高位，由于前期矿库存尚可，所以国内并没有因为津巴布韦矿的短暂性缺席而出现产量下降，叠加智利3、4月锂盐出口维持高位，对国内供给进行了有效补给，导致国内5、6月的库存去化速度不尽如人意，这也是本轮反弹强度较弱的主要原因。
 
-欧洲央行行长克里斯蒂娜·拉加德（Christine Lagarde）周日（5月24日）公开发声，她表示，此前机构给出的2026年2.6%通胀预估数值，将在六月会议中重新调整。
+除此之外，交易所仓单维持高位，近月合约交割压力也十分明显。
 
-伊朗冲突爆发之后，区域内整体通胀环境持续变差，经济形势相较上次预测阶段已经出现明显改变。
+后市展望 供应端：7月份，津巴布韦锂矿将集中到港，辉石冶炼产量会有明显恢复，盐湖在进行短暂的电力检修之后产量也会恢复，所以国内产量有望再创新高。
 
-拉加德并未给出明确的政策定论，只是客观阐述外部局势对区域物价带来的负面影响。
+但是智利5月份锂盐出口出现环比大幅下滑，所以对国内的补给会有所下降。
 
 ## 相关推荐
 
-- 2026-06-29 22:08 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 22:16 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 22:12 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 22:34 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 22:10 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 22:18 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 22:11 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 22:20 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 22:28 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 22:33 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 22:22 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 22:21 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 22:21 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 22:39 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 22:31 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 22:19 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 22:38 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 22:23 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 22:27 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 22:31 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 22:33 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 22:32 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 22:33 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 22:12 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 22:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 22:32 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:16 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/566059780.shtml)
-- 2026-06-29 22:18 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/1547632101.shtml)
-- 2026-06-29 22:12 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/504138927.shtml)
-- 2026-06-29 22:35 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/01752.shtml)
-- 2026-06-29 22:29 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/1706041005.shtml)
-- 2026-06-29 22:19 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/769723752.shtml)
-- 2026-06-29 22:27 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/885389150967.shtml)
-- 2026-06-29 22:18 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/330537342.shtml)
-- 2026-06-29 22:07 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/995181463.shtml)
-- 2026-06-29 22:20 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/43938.shtml)
-- 2026-06-29 22:24 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/41770281.shtml)
-- 2026-06-29 22:25 - [山东发布山洪灾害气象预警](http://www.blog.minike.top/Article/details/200657067.shtml)
-- 2026-06-29 22:24 - [高考1357分的同学如何报志愿？](https://www.share.kurohicncr.top/Article/details/387900631360.shtml)
-- 2026-06-29 22:11 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/0845369712.shtml)
-- 2026-06-29 22:08 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/95345444436.shtml)
+- 2026-06-29 22:12 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/2373064.shtml)
+- 2026-06-29 22:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/87613525.shtml)
+- 2026-06-29 22:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/13476.shtml)
+- 2026-06-29 22:25 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/91176610.shtml)
+- 2026-06-29 22:20 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/73956313.shtml)
+- 2026-06-29 22:20 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.minike.top/Article/details/9979726800.shtml)
+- 2026-06-29 22:41 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/562546357.shtml)
+- 2026-06-29 22:34 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/8013854290.shtml)
+- 2026-06-29 22:39 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/154356862311.shtml)
+- 2026-06-29 22:27 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/18560.shtml)
+- 2026-06-29 22:19 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/59303.shtml)
+- 2026-06-29 22:29 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/93575047.shtml)
+- 2026-06-29 22:34 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/8805367408.shtml)
+- 2026-06-29 22:34 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/82606775.shtml)
+- 2026-06-29 22:29 - [小娘惹](http://www.share.minike.top/Article/details/193309.shtml)

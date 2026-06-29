@@ -1,57 +1,46 @@
-# 香港证监会加强开户监控 出台内地投资者账户管理新措施
+# 招商银行：200亿元无固定期限资本债券发行完毕
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新社香港5月23日电 香港证券及期货事务监察委员会(香港证监会)22日发出通函，列明在开立账户及维持客户关系时应实施的监控措施。 据悉，香港证监会近期对12家证券经纪行的开户作业手法进行检视。有关检视识别出多项重大缺失，包括开户文件的尽职审查不足，在开户过程中接受可疑或伪造文件，以及在管理与海外中介人的跨境代理关系方面的弱点。 香港证监会表示，客户账户有可能遭不当使用，并进行
+6月16日金融一线消息，招商银行公告称，本行2026年无固定期限资本债券（第二期）（债券通）于2026年6月11日簿记建档，并于2026年6月15日完成发行。本期债券发行规模为200亿元，前5年票面利率为1.99%，每5年调整一次，在第5年及之后的每个付息日附发行人有条件赎回权。 责任编辑：李琳琳
 
 ## 正文
 
-中新社香港5月23日电 香港证券及期货事务监察委员会(香港证监会)22日发出通函，列明在开立账户及维持客户关系时应实施的监控措施。
+6月16日金融一线消息，招商银行公告称，本行2026年无固定期限资本债券（第二期）（债券通）于2026年6月11日簿记建档，并于2026年6月15日完成发行。
 
-据悉，香港证监会近期对12家证券经纪行的开户作业手法进行检视。
+本期债券发行规模为200亿元，前5年票面利率为1.99%，每5年调整一次，在第5年及之后的每个付息日附发行人有条件赎回权。
 
-有关检视识别出多项重大缺失，包括开户文件的尽职审查不足，在开户过程中接受可疑或伪造文件，以及在管理与海外中介人的跨境代理关系方面的弱点。
-
-香港证监会表示，客户账户有可能遭不当使用，并进行可疑或不法交易，这会加剧洗钱及恐怖分子资金筹集的风险，对此深表关注。
-
-证监会要求所有持牌法团在切实可行的情况下尽快进行内部核查。
-
-香港证监会中介机构部执行董事叶志衡表示，香港证监会对在开户过程中的严重监控失误及使用伪造文件的情况采取零容忍态度，并将对相关持牌法团及其高级管理层采取坚决的监管及执法行动，以维持市场廉洁稳健及公平的竞争环境。
-
-同时，香港证监会列出持牌法团在为内地投资者开立和管理有关账户方面的额外措施。
-
-这些额外措施包括关闭以可疑或伪造文件开立的投资账户，关闭零结余不动投资账户，以及在开立新的投资账户时，须取得投资者书面声明，并要求在结算及资金提存时只可通过以客户本身的名义在合资格银行持有的银行账户进行。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 22:18 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 22:10 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 22:26 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 22:16 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 22:18 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 22:25 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 22:22 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 22:08 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 22:21 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 22:33 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 22:32 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 22:26 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 22:30 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 22:26 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 22:12 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 22:15 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 22:32 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 22:26 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 22:12 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 22:33 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 22:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:11 - [小娘惹](https://www.blog.minike.top/Article/details/86942613605.shtml)
-- 2026-06-29 22:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/00838290812.shtml)
-- 2026-06-29 22:07 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/387017888.shtml)
-- 2026-06-29 22:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/00793169.shtml)
-- 2026-06-29 22:31 - [网友晒14年前支教影像等来学生评论](https://www.share.minike.top/Article/details/461271520913.shtml)
-- 2026-06-29 22:16 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/72286907846.shtml)
-- 2026-06-29 22:29 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/97095.shtml)
-- 2026-06-29 22:29 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/79216765015.shtml)
-- 2026-06-29 22:18 - [流金岁月](https://www.blog.minike.top/Article/details/35305485456.shtml)
-- 2026-06-29 22:08 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/5239725.shtml)
-- 2026-06-29 22:26 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/76460.shtml)
-- 2026-06-29 22:23 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/98873.shtml)
-- 2026-06-29 22:14 - [东方风云榜直播](http://www.blog.minike.top/Article/details/17768227.shtml)
-- 2026-06-29 22:11 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/79491.shtml)
-- 2026-06-29 22:26 - [东方风云榜直播](https://www.blog.minike.top/Article/details/81925106457.shtml)
+- 2026-06-29 22:40 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/671398464.shtml)
+- 2026-06-29 22:39 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/86121191801.shtml)
+- 2026-06-29 22:17 - [王鸿薇要求删陆委会百余万特别费](http://www.share.minike.top/Article/details/615582574254.shtml)
+- 2026-06-29 22:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/436521493.shtml)
+- 2026-06-29 22:20 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/117026.shtml)
+- 2026-06-29 22:23 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/596105277745.shtml)
+- 2026-06-29 22:17 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/41360403.shtml)
+- 2026-06-29 22:37 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/23832547.shtml)
+- 2026-06-29 22:14 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/302232.shtml)
+- 2026-06-29 22:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/853272849354.shtml)
+- 2026-06-29 22:19 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/77937422585.shtml)
+- 2026-06-29 22:25 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/80586354.shtml)
+- 2026-06-29 22:30 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/038371308920.shtml)
+- 2026-06-29 22:31 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/01534594681.shtml)
+- 2026-06-29 22:29 - [存储三巨头被告了](http://www.share.minike.top/Article/details/3766137.shtml)

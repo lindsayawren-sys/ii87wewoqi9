@@ -1,57 +1,57 @@
-# 美国国务卿虽声称与伊朗谈判有“些许进展” 但协议前景仍不明朗
+# 暴雨大暴雨区域将转移，凶悍的龙舟水之后“暴力”梅雨接力来袭
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-美国国务卿鲁比奥表示，与伊朗之间由第三方斡旋的谈判取得了“些许进展”。但将脆弱停火转化为持久和平协议的前景仍不明朗。 鲁比奥周五在瑞典举行的北约外长会议上表示，“我不想夸大其词，但确实出现了一点进展，这是好事。” 伊朗方面正在考虑美国通过巴基斯坦提交的最新提议，但尚未表明何时会正式作出回应。霍尔木兹海峡的地位以及伊朗核计划问题，仍是双方谈判中的主要症结所在。 伊朗驻法国大使Mo
+6月12日以来，广东、广西不少地方遭遇了凶悍的龙舟水，暴雨、大暴雨刷屏，局地遭遇特大暴雨。其中，广东揭阳、汕尾多个区域站6月12日至16日累计降雨量突破同期历史极值。 今天，龙舟水继续在线，广西、广东出现大片强降雨回波，季风气流不断北上，在原有对流的南侧，激发出新的对流，导致降雨短时强度大、持续时间较长。像广西防城港、广东恩平，6小时降雨量就超过了100毫米。 今天夜间到明天，
 
 ## 正文
 
-美国国务卿鲁比奥表示，与伊朗之间由第三方斡旋的谈判取得了“些许进展”。
+6月12日以来，广东、广西不少地方遭遇了凶悍的龙舟水，暴雨、大暴雨刷屏，局地遭遇特大暴雨。
 
-但将脆弱停火转化为持久和平协议的前景仍不明朗。
+其中，广东揭阳、汕尾多个区域站6月12日至16日累计降雨量突破同期历史极值。
 
-鲁比奥周五在瑞典举行的北约外长会议上表示，“我不想夸大其词，但确实出现了一点进展，这是好事。
+今天，龙舟水继续在线，广西、广东出现大片强降雨回波，季风气流不断北上，在原有对流的南侧，激发出新的对流，导致降雨短时强度大、持续时间较长。
 
-” 伊朗方面正在考虑美国通过巴基斯坦提交的最新提议，但尚未表明何时会正式作出回应。
+像广西防城港、广东恩平，6小时降雨量就超过了100毫米。
 
-霍尔木兹海峡的地位以及伊朗核计划问题，仍是双方谈判中的主要症结所在。
+今天夜间到明天，广东、广西等地仍将有强降雨，中央气象台预计，重庆中部、贵州西南部、广西中南部、广东中西部等地部分地区有大暴雨，局地特大暴雨。
 
-伊朗驻法国大使Mohammad Amin-Nejad周三接受彭博采访时表示，伊朗正与阿曼讨论在霍尔木兹海峡实施某种永久性收费机制。
+明天开始，随着副热带高压北抬，低空西南暖湿气流也将北上，大量水汽的聚集抬升区从华南向江南、长江中下游一带转移，主雨带东段开始北抬至长江中下游一带。
 
-美方已明确表示这一做法“不可接受”。
+但贵州南部、广东西部、广西仍然会有暖区对流，雨势依旧较强。
 
-鲁比奥表示，此举可能为世界其他地区树立先例，任何国家都不应接受在霍尔木兹海峡征收通行费。
+明天夜间到后天，西藏东南部、云南西部和东部、贵州南部、湖北西南部和东部、河南东南部、安徽中部、江苏中南部、浙江北部、广西北部、广东北部等地部分地区有暴雨或大暴雨。
 
 ## 相关推荐
 
-- 2026-06-29 22:15 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 22:08 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 22:26 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 22:06 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 22:33 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 22:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 22:08 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 22:34 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 22:21 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 22:22 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 22:19 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 22:24 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 22:15 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 22:24 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 22:19 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 22:26 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 22:36 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 22:30 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 22:21 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 22:37 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 22:23 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 22:32 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:34 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/28873.shtml)
-- 2026-06-29 22:15 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/67677.shtml)
-- 2026-06-29 22:09 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/41926.shtml)
-- 2026-06-29 22:11 - [杨德龙：创新药迎来新的发展机遇](https://www.share.kurohicncr.top/Article/details/3305892.shtml)
-- 2026-06-29 22:32 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/4734073.shtml)
-- 2026-06-29 22:17 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/27911133.shtml)
-- 2026-06-29 22:14 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/31241788388.shtml)
-- 2026-06-29 22:28 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/80493387.shtml)
-- 2026-06-29 22:12 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/581052154271.shtml)
-- 2026-06-29 22:24 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/9378108.shtml)
-- 2026-06-29 22:25 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/448012172897.shtml)
-- 2026-06-29 22:20 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/2792944.shtml)
-- 2026-06-29 22:11 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/287886945.shtml)
-- 2026-06-29 22:22 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/68031560.shtml)
-- 2026-06-29 22:12 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/244485.shtml)
+- 2026-06-29 22:41 - [金刚川](http://www.blog.kurohicncr.top/Article/details/33500.shtml)
+- 2026-06-29 22:27 - [斛珠夫人](http://www.blog.minike.top/Article/details/54151343269.shtml)
+- 2026-06-29 22:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/384415711535.shtml)
+- 2026-06-29 22:35 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/3997471685.shtml)
+- 2026-06-29 22:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/20307.shtml)
+- 2026-06-29 22:28 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/1821164819.shtml)
+- 2026-06-29 22:14 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/63898623356.shtml)
+- 2026-06-29 22:21 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/98183528287.shtml)
+- 2026-06-29 22:36 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/16049.shtml)
+- 2026-06-29 22:19 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/3830019374.shtml)
+- 2026-06-29 22:27 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/84458.shtml)
+- 2026-06-29 22:33 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/6594349140.shtml)
+- 2026-06-29 22:35 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/9915119.shtml)
+- 2026-06-29 22:21 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/544365813321.shtml)
+- 2026-06-29 22:28 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/506140625377.shtml)

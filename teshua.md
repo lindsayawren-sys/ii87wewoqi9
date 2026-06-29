@@ -1,50 +1,57 @@
-# 泰州建行两名客户经理同日被查
+# 近两年浙江法院对外国和港澳台仲裁裁决支持率100%
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-5月25日金融一线消息，据清廉泰州日前发布，中国建设银行泰州医药高新区支行原客户经理黄梅琴涉嫌严重违纪违法，目前正接受中国建设银行江苏省分行纪委纪律审查和江苏省泰州市高港区监委监察调查。 中国建设银行泰州海陵支行客户经理魏俊民涉嫌严重违纪违法，目前正接受中国建设银行江苏省分行纪委纪律审查和江苏省泰州市高港区监委监察调查。责任编辑：曹睿潼
+中新网杭州6月16日电(郭其钰)浙江省高级人民法院16日发布《2024—2025年浙江法院商事仲裁司法审查工作报告》，显示两年来浙江法院对申请承认和执行的外国仲裁裁决、申请认可和执行的港澳台仲裁裁决的支持率均达100%。 仲裁作为国际通行的商事争议解决方式，具有意思自治、程序快捷、高度保密、专家裁判、全球执行等优势，逐渐被越来越多商事主体所选择和信赖。 近两年，浙江法院共受理各
 
 ## 正文
 
-5月25日金融一线消息，据清廉泰州日前发布，中国建设银行泰州医药高新区支行原客户经理黄梅琴涉嫌严重违纪违法，目前正接受中国建设银行江苏省分行纪委纪律审查和江苏省泰州市高港区监委监察调查。
+中新网杭州6月16日电(郭其钰)浙江省高级人民法院16日发布《2024—2025年浙江法院商事仲裁司法审查工作报告》，显示两年来浙江法院对申请承认和执行的外国仲裁裁决、申请认可和执行的港澳台仲裁裁决的支持率均达100%。
 
-中国建设银行泰州海陵支行客户经理魏俊民涉嫌严重违纪违法，目前正接受中国建设银行江苏省分行纪委纪律审查和江苏省泰州市高港区监委监察调查。
+仲裁作为国际通行的商事争议解决方式，具有意思自治、程序快捷、高度保密、专家裁判、全球执行等优势，逐渐被越来越多商事主体所选择和信赖。
 
-责任编辑：曹睿潼
+近两年，浙江法院共受理各类商事仲裁司法审查案件1586件、审结1623件。
+
+案件数量持续增长，收结案量较2023年均有显著提升。
+
+“这反映出仲裁因其专业性、保密性和高效性等特点，正成为越来越多商事主体解决纠纷的优先选择，其社会认可度和市场主体首选率与日俱增。
+
+”浙江高级人民法院审判委员会专职委员叶向阳分析说。
+
+从案件处理结果看，浙江法院对仲裁的支持力度进一步提升。
+
+2024年至2025年，申请撤销仲裁裁决案件的撤裁率降至1.51%，仲裁保全申请的支持率达89.70%，维护了仲裁的终局性和权威性。
 
 ## 相关推荐
 
-- 2026-06-29 22:06 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 22:35 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 22:24 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 22:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 22:19 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 22:16 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 22:10 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 22:32 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 22:10 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 22:27 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 22:23 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 22:06 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 22:06 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 22:35 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 22:28 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 22:26 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 22:12 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 22:39 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 22:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 22:39 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 22:35 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 22:24 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 22:18 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 22:32 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 22:23 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/264197575.shtml)
-- 2026-06-29 22:26 - [天道](http://www.blog.kurohicncr.top/Article/details/67909596.shtml)
-- 2026-06-29 22:20 - [MG总经理直播被冲](http://www.blog.kurohicncr.top/Article/details/903956956.shtml)
-- 2026-06-29 22:17 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/680663308433.shtml)
-- 2026-06-29 22:07 - [沉睡花园](http://www.blog.minike.top/Article/details/31974781.shtml)
-- 2026-06-29 22:27 - [半导体和股市为何没让韩国人起飞](http://www.share.kurohicncr.top/Article/details/70584393059.shtml)
-- 2026-06-29 22:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/1573234.shtml)
-- 2026-06-29 22:27 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/22672372576.shtml)
-- 2026-06-29 22:27 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/052392.shtml)
-- 2026-06-29 22:11 - [上世纪90年代玩具成新宠](http://www.blog.kurohicncr.top/Article/details/77099199.shtml)
-- 2026-06-29 22:22 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/65021.shtml)
-- 2026-06-29 22:29 - [存储三巨头被告了](http://www.share.minike.top/Article/details/222768294.shtml)
-- 2026-06-29 22:19 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/7994537628.shtml)
-- 2026-06-29 22:26 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/67343321189.shtml)
-- 2026-06-29 22:12 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/7866488.shtml)
+- 2026-06-29 22:36 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/615383.shtml)
+- 2026-06-29 22:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/380054944.shtml)
+- 2026-06-29 22:17 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/14060.shtml)
+- 2026-06-29 22:39 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/863734811591.shtml)
+- 2026-06-29 22:21 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/16716351926.shtml)
+- 2026-06-29 22:36 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/07677.shtml)
+- 2026-06-29 22:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/89356559931.shtml)
+- 2026-06-29 22:32 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/94932953786.shtml)
+- 2026-06-29 22:33 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/99587806.shtml)
+- 2026-06-29 22:34 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/44381364012.shtml)
+- 2026-06-29 22:14 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/7686867.shtml)
+- 2026-06-29 22:17 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/57404343.shtml)
+- 2026-06-29 22:41 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/557335626.shtml)
+- 2026-06-29 22:28 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/339306654588.shtml)
+- 2026-06-29 22:27 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/4212591.shtml)

@@ -1,61 +1,57 @@
-# SpaceX升级版“星舰”V3号从得州成功升空 完成首次试飞
+# 许正宇：三大特质赋能沪港金融协同 双向联动助力金融强国建设
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-周五，SpaceX从得克萨斯州发射了第12艘“星舰”进行无人测试飞行。此次高风险试飞旨在检验其新一代航天器的重大升级成果，而埃隆·马斯克旗下的这家火箭公司正接近创纪录的公开上市。 “星舰V3”号的首飞旨在支持更频繁的“星链”卫星发射，并执行未来美国宇航局（NASA）的登月任务，此次首飞标志着该飞行器在经历数月测试延迟后迈出了关键一步。此次试飞的结果还可能影响投资者对SpaceX
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，香港特别行政区政府财经事务及库务局局长许正宇围绕金融赋能实体经济、沪港金融协同发展、助力金融强国建设等核心议题展开深度解读。他以综合性、长期性、联动性三大关键词，系统阐释沪港金融合作的核心优势与未来布局，表示沪港两地金融互补联动成效显著，未来将持续深化协同、服务国家实体经济高质量发
 
 ## 正文
 
-周五，SpaceX从得克萨斯州发射了第12艘“星舰”进行无人测试飞行。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，香港特别行政区政府财经事务及库务局局长许正宇围绕金融赋能实体经济、沪港金融协同发展、助力金融强国建设等核心议题展开深度解读。
 
-此次高风险试飞旨在检验其新一代航天器的重大升级成果，而埃隆·马斯克旗下的这家火箭公司正接近创纪录的公开上市。
+他以综合性、长期性、联动性三大关键词，系统阐释沪港金融合作的核心优势与未来布局，表示沪港两地金融互补联动成效显著，未来将持续深化协同、服务国家实体经济高质量发展。
 
-“星舰V3”号的首飞旨在支持更频繁的“星链”卫星发射，并执行未来美国宇航局（NASA）的登月任务，此次首飞标志着该飞行器在经历数月测试延迟后迈出了关键一步。
+许正宇坦言，自己与陆家嘴论坛渊源深厚，常年参与盛会，且兼具上海工作经历与香港特区政府任职经验，让他对沪港两地金融发展格局有着深刻认知。
 
-此次试飞的结果还可能影响投资者对SpaceX下月首次公开募股（IPO）的信心，此次IPO预计将成为史上规模最大的一次。
+他强调，沪港两地金融市场互补性、联动性优势突出，近年来资本市场合作持续深化、成果凸显，在助力金融强国建设的进程中，两地协同发展不可或缺、价值重大。
 
-SpaceX已投入超过150亿美元开发“星舰”作为一款完全可重复使用的航天器，这对马斯克降低发射成本、扩展“星链”业务以及实现从深空探索到轨道数据中心等雄心壮志的目标至关重要——所有这些因素都计入了其1.75万亿美元的IPO估值目标。
+在解读沪港金融协同的综合性特质时，许正宇表示，香港已被国际知名资管机构认定为全球顶尖的跨境财富管理中心，除成熟的跨境融资功能外，资产管理是香港金融中心的核心优势板块，也是香港立足全球变局、重点发力的金融发展方向。
 
-此次试飞的成功进一步印证了SpaceX的论点：作为有史以来飞行过的最大、最强大的火箭，星舰在经历了多年的重大挫折和开发延误后，已接近商业化就绪。
+与此同时，在全球格局加速迭代、市场风险多元复杂的背景下，企业兼顾利润增长与风险管控的需求持续攀升，风险管理金融工具的重要性愈发凸显。
 
-这艘由“星舰”载人舱与“超级重型”助推火箭组合而成的巨型飞行器，于周五中部时间下午5：30左右从SpaceX位于得克萨斯州布朗斯维尔附近墨西哥湾沿岸的“星基地”发射场腾空而起。
+他特别提及，本次论坛释放的支持香港发行5年期国债期货的政策信号，是香港完善风险管理金融体系的关键一步、标志性一步。
 
-SpaceX的发射实况直播显示，这艘高达40多层楼的火箭从发射塔升起，与此同时，“超级重型”火箭上的“猛禽”发动机群轰然点火，伴随着熊熊烈火以及翻滚的蒸汽和尾气云团。
+未来，香港将依托自身融资、资产管理、风险管理三位一体的综合金融服务能力，主动担当、主动作为，全力服务国家整体发展大局，为实体企业提供全方位风险对冲与金融配套服务。
 
 ## 相关推荐
 
-- 2026-06-29 22:13 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 22:33 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 22:12 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 22:19 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 22:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 22:31 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 22:14 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 22:16 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 22:17 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 22:29 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 22:22 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 22:21 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 22:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 22:30 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 22:22 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 22:25 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 22:18 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 22:17 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 22:37 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 22:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 22:24 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 22:29 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 22:40 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 22:25 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 22:38 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 22:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:26 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/815436462.shtml)
-- 2026-06-29 22:35 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/74409.shtml)
-- 2026-06-29 22:27 - [扬名立万](http://www.share.minike.top/Article/details/88089.shtml)
-- 2026-06-29 22:18 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/305657400547.shtml)
-- 2026-06-29 22:20 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/4980530.shtml)
-- 2026-06-29 22:32 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/48631.shtml)
-- 2026-06-29 22:32 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/260871697.shtml)
-- 2026-06-29 22:28 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/634016551712.shtml)
-- 2026-06-29 22:15 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/9861600059.shtml)
-- 2026-06-29 22:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/82522.shtml)
-- 2026-06-29 22:32 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/20073092.shtml)
-- 2026-06-29 22:12 - [男子称在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/05212.shtml)
-- 2026-06-29 22:10 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/104709.shtml)
-- 2026-06-29 22:35 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/91834.shtml)
-- 2026-06-29 22:22 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/91307353.shtml)
+- 2026-06-29 22:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/6364549090.shtml)
+- 2026-06-29 22:20 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/381860943.shtml)
+- 2026-06-29 22:21 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/571355.shtml)
+- 2026-06-29 22:26 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/54059.shtml)
+- 2026-06-29 22:38 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/67334360957.shtml)
+- 2026-06-29 22:39 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/57341.shtml)
+- 2026-06-29 22:37 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/2482408770.shtml)
+- 2026-06-29 22:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/63948.shtml)
+- 2026-06-29 22:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/903687427.shtml)
+- 2026-06-29 22:41 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/574138127.shtml)
+- 2026-06-29 22:36 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/83386791441.shtml)
+- 2026-06-29 22:31 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/837176534.shtml)
+- 2026-06-29 22:35 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/538746.shtml)
+- 2026-06-29 22:22 - [佛得角队长门德斯被控强奸](http://www.share.kurohicncr.top/Article/details/257083392.shtml)
+- 2026-06-29 22:12 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/0693877.shtml)

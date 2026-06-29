@@ -1,56 +1,59 @@
-# 宁夏警方破获非法狩猎案 现场查获野生动物21只
+# 新疆荒漠长出海水稻
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网银川5月22日电 (记者 杨迪)记者22日从宁夏吴忠市公安局获悉，当地警方近日破获1起非法狩猎刑事案件，有力打击了破坏野生动物资源的违法犯罪行为。 据了解，民警通过线索摸排、实地核查、精准布控，锁定并抓获3名犯罪嫌疑人。现场查获国家二级保护动物猫头鹰1只，“三有”保护动物环颈雉7只、石鸡13只，共计21只野生动物。依法扣押猎套、铁丝钩、鸟笼等作案工具若干。目前，3名犯罪嫌
+中新网乌鲁木齐6月16日电 (史玉江)提到新疆，很多人会想到戈壁荒漠、盐碱滩涂、干旱少雨。可如今，曾经的不毛之地，长出沉甸甸的海水稻。这不是奇迹，而是良种、土地改良、节水技术和当地自然条件共同作用的结果。 海水稻，学名耐盐碱水稻，并不是直接用海水浇灌，而是能在盐碱地里正常生长的水稻品种，比传统水稻品种根系发达。重要的是，它还能在生长中带走部分盐分，慢慢把地“洗”干净。 荒漠变“
 
 ## 正文
 
-中新网银川5月22日电 (记者 杨迪)记者22日从宁夏吴忠市公安局获悉，当地警方近日破获1起非法狩猎刑事案件，有力打击了破坏野生动物资源的违法犯罪行为。
+中新网乌鲁木齐6月16日电 (史玉江)提到新疆，很多人会想到戈壁荒漠、盐碱滩涂、干旱少雨。
 
-据了解，民警通过线索摸排、实地核查、精准布控，锁定并抓获3名犯罪嫌疑人。
+可如今，曾经的不毛之地，长出沉甸甸的海水稻。
 
-现场查获国家二级保护动物猫头鹰1只，“三有”保护动物环颈雉7只、石鸡13只，共计21只野生动物。
+这不是奇迹，而是良种、土地改良、节水技术和当地自然条件共同作用的结果。
 
-依法扣押猎套、铁丝钩、鸟笼等作案工具若干。
+海水稻，学名耐盐碱水稻，并不是直接用海水浇灌，而是能在盐碱地里正常生长的水稻品种，比传统水稻品种根系发达。
 
-目前，3名犯罪嫌疑人已被依法采取刑事强制措施，案件正在进一步办理中。
+重要的是，它还能在生长中带走部分盐分，慢慢把地“洗”干净。
 
-野生动物是维护生态平衡、保护生物多样性的重要资源。
+荒漠变“宝地” 进入6月，新疆生产建设兵团第二师二二三团盐碱地改造现场热火朝天。
 
-猫头鹰作为捕鼠能手，对防控农田鼠害、减少作物损失具有天然作用；环颈雉和石鸡则通过取食昆虫和杂草，帮助维持草原生态系统的稳定。
+“以前这里一浇水就泛白碱，土块硬得跟石头似的。
 
-它们均属于受法律保护的陆生野生动物。
+”种植户刘建国直言，早年这里试过种棉花、种玉米，出苗没几棵，就算活了也长得蔫蔫的，一年到头白忙活，最后只能撂荒。
 
 ## 相关推荐
 
-- 2026-06-29 22:26 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 22:33 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 22:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 22:17 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 22:26 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 22:23 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 22:32 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 22:33 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 22:07 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 22:22 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 22:16 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 22:19 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 22:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 22:18 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 22:16 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 22:35 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 22:19 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 22:22 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 22:30 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 22:24 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 22:30 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 22:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 22:30 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:15 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/8480498.shtml)
-- 2026-06-29 22:20 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/911713073.shtml)
-- 2026-06-29 22:06 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/655807.shtml)
-- 2026-06-29 22:36 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/758302638.shtml)
-- 2026-06-29 22:29 - [沙丘](https://www.blog.minike.top/Article/details/631837794.shtml)
-- 2026-06-29 22:32 - [起风了](http://www.share.minike.top/Article/details/7606868201.shtml)
-- 2026-06-29 22:07 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/63118843161.shtml)
-- 2026-06-29 22:17 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/69551636263.shtml)
-- 2026-06-29 22:29 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/364048591453.shtml)
-- 2026-06-29 22:22 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/50051.shtml)
-- 2026-06-29 22:25 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/089500.shtml)
-- 2026-06-29 22:06 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/187601.shtml)
-- 2026-06-29 22:22 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/916225403.shtml)
-- 2026-06-29 22:26 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/40554848514.shtml)
-- 2026-06-29 22:17 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/68077958730.shtml)
+- 2026-06-29 22:21 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/725530.shtml)
+- 2026-06-29 22:39 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/83580783261.shtml)
+- 2026-06-29 22:15 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/02629723.shtml)
+- 2026-06-29 22:20 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/17315748.shtml)
+- 2026-06-29 22:26 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/642969.shtml)
+- 2026-06-29 22:25 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/41527.shtml)
+- 2026-06-29 22:14 - [刘宇宁 好听](https://www.share.minike.top/Article/details/7640203.shtml)
+- 2026-06-29 22:35 - [巴西10号球衣是天才传承史](http://www.blog.kurohicncr.top/Article/details/00231813.shtml)
+- 2026-06-29 22:33 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/940396246270.shtml)
+- 2026-06-29 22:35 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/8205757.shtml)
+- 2026-06-29 22:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/50965469969.shtml)
+- 2026-06-29 22:14 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/434453.shtml)
+- 2026-06-29 22:36 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/0331718.shtml)
+- 2026-06-29 22:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/7716086852.shtml)
+- 2026-06-29 22:16 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/8367818049.shtml)

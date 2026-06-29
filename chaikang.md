@@ -1,54 +1,58 @@
-# 2026年粤港澳大湾区青少年（学校）羽毛球联赛在广州收官
+# 酒价内参6月17日价格发布：古井贡古20领跌 总价创三天以来新低
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网广州5月25日电 (记者 张璐)2026年粤港澳大湾区青少年(学校)羽毛球联赛(简称“赛事”)24日在广州落下帷幕。 据悉，本次赛事以团体赛形式设置四大参赛组别，采用小组赛抽签晋级、淘汰赛逐级角逐的专业竞赛机制，共有33支队伍参加。 经过激烈的角逐，暨南大学斩获大学混合团体组冠军，东莞高级中学斩获高中男子团体组冠军，香港协恩中学斩获高中女子团体组冠军，肇庆市第一中学斩获初
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月17日整体小幅回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9925元，较昨日微幅下跌2元，连续两日回落并创下三天以来最低。今日总价虽然自6月15日创下的23天以来最高位持续回落，但仍处于进入六月以来相对高位，终端交投情绪环比基
 
 ## 正文
 
-中新网广州5月25日电 (记者 张璐)2026年粤港澳大湾区青少年(学校)羽毛球联赛(简称“赛事”)24日在广州落下帷幕。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月17日整体小幅回落。
 
-据悉，本次赛事以团体赛形式设置四大参赛组别，采用小组赛抽签晋级、淘汰赛逐级角逐的专业竞赛机制，共有33支队伍参加。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9925元，较昨日微幅下跌2元，连续两日回落并创下三天以来最低。
 
-经过激烈的角逐，暨南大学斩获大学混合团体组冠军，东莞高级中学斩获高中男子团体组冠军，香港协恩中学斩获高中女子团体组冠军，肇庆市第一中学斩获初中男子团体组冠军，香港福建中学斩获初中女子团体组冠军，广州市天河区先烈东小学分别斩获小学男子团体组和女子团体组冠军。
+今日总价虽然自6月15日创下的23天以来最高位持续回落，但仍处于进入六月以来相对高位，终端交投情绪环比基本稳定，但核心单品的涨跌分化依然显著。
 
-据介绍，粤港澳大湾区青少年(学校)羽毛球联赛搭建三地校园交流桥梁，在竞技切磋中锤炼青少年意志品格，增进湾区青年情谊。
+今日11大白酒单品四涨六跌一平，输家占据优势。
 
-未来，赛事将持续发挥文体纽带作用，弘扬体育精神，凝聚青春力量，以常态化校园体育交流助力大湾区文体事业发展，为大湾区建设注入青春动能。
+上涨方面，青花郎涨幅居前，上涨7元/瓶，重新站上700元关口，创进入六月以来最高价；五粮液普五八代与五粮液1618均上涨5元/瓶，其中后者创近一月最大单日涨幅，自昨日创下的近一月最低点快速升至近一月次高位；水晶剑南春小幅上涨1元/瓶。
 
-(完)
+下跌方面，古井贡古20跌幅居前，下跌5元/瓶；国窖1573、洋河梦之蓝M6+与习酒君品均下跌4元/瓶，其中国窖1573连续两日回落，但仍守住880元关口，洋河梦之蓝M6+再度跌落600元大关，习酒君品结束此前三连阳，但仍处于进入六月以来高位；飞天茅台下跌2元/瓶；青花汾20小幅下跌1元/瓶，价格回落至月内最低位。
+
+精品茅台价格环比保持不变。
+
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 22:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 22:19 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 22:16 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 22:06 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 22:19 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 22:32 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 22:23 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 22:19 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 22:35 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 22:06 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 22:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 22:24 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 22:31 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 22:21 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 22:25 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 22:36 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 22:28 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 22:39 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 22:18 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 22:41 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 22:14 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 22:32 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 22:20 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 22:15 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:20 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/008080218210.shtml)
-- 2026-06-29 22:22 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/122593527.shtml)
-- 2026-06-29 22:28 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/8040019294.shtml)
-- 2026-06-29 22:31 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/266180.shtml)
-- 2026-06-29 22:21 - [店员光脚踩入盆中清洗土豆](http://www.share.minike.top/Article/details/85013.shtml)
-- 2026-06-29 22:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/660843355.shtml)
-- 2026-06-29 22:22 - [华工科技龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/00709224.shtml)
-- 2026-06-29 22:23 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/444813.shtml)
-- 2026-06-29 22:35 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/099319830.shtml)
-- 2026-06-29 22:27 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/83718499.shtml)
-- 2026-06-29 22:32 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/277210706.shtml)
-- 2026-06-29 22:26 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/91657058.shtml)
-- 2026-06-29 22:19 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/47728178510.shtml)
-- 2026-06-29 22:17 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/018174169518.shtml)
-- 2026-06-29 22:15 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/0490643.shtml)
+- 2026-06-29 22:12 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/3004841.shtml)
+- 2026-06-29 22:25 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/51069.shtml)
+- 2026-06-29 22:21 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/2832685.shtml)
+- 2026-06-29 22:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/9526790371.shtml)
+- 2026-06-29 22:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/072452.shtml)
+- 2026-06-29 22:24 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/323375.shtml)
+- 2026-06-29 22:20 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/330377472502.shtml)
+- 2026-06-29 22:26 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/456865358.shtml)
+- 2026-06-29 22:24 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/61490256.shtml)
+- 2026-06-29 22:34 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/243930.shtml)
+- 2026-06-29 22:36 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/901693176532.shtml)
+- 2026-06-29 22:31 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/71753.shtml)
+- 2026-06-29 22:12 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/78195670.shtml)
+- 2026-06-29 22:27 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/383259.shtml)
+- 2026-06-29 22:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/290513254.shtml)

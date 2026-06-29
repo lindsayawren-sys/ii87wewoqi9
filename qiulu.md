@@ -1,54 +1,50 @@
-# 日经指数上涨逾2% 创历史新高
+# 瑞典央行维持政策利率在1.75%不变 预期为1.750%
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-受对美伊可能达成和平协议的希望提振，日本日经225指数涨幅进一步扩大，最新上涨2.10%，报64667.42点，创历史新高。芯片和建筑类股领涨。铠侠上涨5.3%，大成建设上涨7.8%。在美国总统特朗普周日表示他不急于与伊朗达成结束战争的协议后，投资者正密切关注中东局势的发展。责任编辑：王永生
+瑞典央行维持政策利率不变，符合经济学家预期。 政策利率维持在1.75%不变（预计为1.750%）。 彭博调查的16位经济学家均预期为1.750%。责任编辑：何云
 
 ## 正文
 
-受对美伊可能达成和平协议的希望提振，日本日经225指数涨幅进一步扩大，最新上涨2.10%，报64667.42点，创历史新高。
+瑞典央行维持政策利率不变，符合经济学家预期。
 
-芯片和建筑类股领涨。
+政策利率维持在1.75%不变（预计为1.750%）。
 
-铠侠上涨5.3%，大成建设上涨7.8%。
+彭博调查的16位经济学家均预期为1.750%。
 
-在美国总统特朗普周日表示他不急于与伊朗达成结束战争的协议后，投资者正密切关注中东局势的发展。
-
-责任编辑：王永生
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 22:12 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 22:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 22:07 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 22:12 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 22:33 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 22:20 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 22:19 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 22:20 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 22:35 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 22:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 22:13 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 22:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 22:09 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 22:22 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 22:36 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 22:17 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 22:28 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 22:16 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 22:13 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 22:40 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 22:13 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 22:36 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 22:38 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 22:39 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 22:19 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 22:25 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:08 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/261759.shtml)
-- 2026-06-29 22:23 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/72602083.shtml)
-- 2026-06-29 22:33 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/4035071129.shtml)
-- 2026-06-29 22:25 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/694121272.shtml)
-- 2026-06-29 22:19 - [沙丘](http://www.share.minike.top/Article/details/2470015795.shtml)
-- 2026-06-29 22:20 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/8591877760.shtml)
-- 2026-06-29 22:32 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/84510.shtml)
-- 2026-06-29 22:11 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/187559467627.shtml)
-- 2026-06-29 22:28 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/53764465.shtml)
-- 2026-06-29 22:16 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/1097075.shtml)
-- 2026-06-29 22:11 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/488022119.shtml)
-- 2026-06-29 22:06 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/591167904.shtml)
-- 2026-06-29 22:26 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/9416161243.shtml)
-- 2026-06-29 22:06 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/373671.shtml)
-- 2026-06-29 22:26 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/513871.shtml)
+- 2026-06-29 22:29 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/40171336.shtml)
+- 2026-06-29 22:34 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/0195704.shtml)
+- 2026-06-29 22:16 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/7782352063.shtml)
+- 2026-06-29 22:33 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/27587.shtml)
+- 2026-06-29 22:21 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/5938729493.shtml)
+- 2026-06-29 22:13 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/340805633.shtml)
+- 2026-06-29 22:28 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/96656.shtml)
+- 2026-06-29 22:12 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/366718.shtml)
+- 2026-06-29 22:31 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/0495354555.shtml)
+- 2026-06-29 22:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/105671.shtml)
+- 2026-06-29 22:35 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/837810.shtml)
+- 2026-06-29 22:24 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/332165.shtml)
+- 2026-06-29 22:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/5442868.shtml)
+- 2026-06-29 22:39 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/38204823.shtml)
+- 2026-06-29 22:39 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/436406039.shtml)

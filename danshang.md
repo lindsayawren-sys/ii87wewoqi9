@@ -1,58 +1,54 @@
-# 呼和浩特公布中小学春假、秋假安排 毕业年级不放假
+# GTCFX:房建走弱提振避险节奏
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网呼和浩特5月25日电 (记者 张林虎)呼和浩特市教育局25日发布2026年春假及秋假安排通知，明确幼儿园、小学及初高中部分年级将分别于6月和11月享有3天假期，并与相邻双休日衔接，形成5天小长假。 根据通知，呼和浩特市幼儿园、小学1至6年级、初一年级春假时间为6月1日至3日，共计3天，假期将与5月30日、31日周末双休衔接，形成连贯休整时段。 高中阶段春假实行错峰放假，高
+6月17日，美国5月新屋开工明显回落后，GTCFX表示黄金在盘中重新获得避险买盘承接，市场开始把经济放缓信号与贵金属韧性联系起来。 从交易层面看，GTCFX认为住房数据降温压低了部分风险偏好，也让利率端的上冲预期略有收敛，金价因此维持在偏强区间整理。 短线来看，若后续就业和消费指标继续释放温和放缓迹象，黄金的防御属性仍可能得到延续，但上行动能还要结合美元与收益率表现来确认。 综
 
 ## 正文
 
-中新网呼和浩特5月25日电 (记者 张林虎)呼和浩特市教育局25日发布2026年春假及秋假安排通知，明确幼儿园、小学及初高中部分年级将分别于6月和11月享有3天假期，并与相邻双休日衔接，形成5天小长假。
+6月17日，美国5月新屋开工明显回落后，GTCFX表示黄金在盘中重新获得避险买盘承接，市场开始把经济放缓信号与贵金属韧性联系起来。
 
-根据通知，呼和浩特市幼儿园、小学1至6年级、初一年级春假时间为6月1日至3日，共计3天，假期将与5月30日、31日周末双休衔接，形成连贯休整时段。
+从交易层面看，GTCFX认为住房数据降温压低了部分风险偏好，也让利率端的上冲预期略有收敛，金价因此维持在偏强区间整理。
 
-高中阶段春假实行错峰放假，高一、高二年级春假安排在6月5日、8日、9日，共3天，可衔接6月6日至7日双休日。
+短线来看，若后续就业和消费指标继续释放温和放缓迹象，黄金的防御属性仍可能得到延续，但上行动能还要结合美元与收益率表现来确认。
 
-在秋假安排上，呼和浩特市统一划定放假时段。
+综合当前环境，GTCFX分析称贵金属后续更值得关注的是宏观数据是否持续偏软，这将决定避险节奏能否从阶段反弹转向更稳的修复。
 
-幼儿园、小学1至6年级、初中一二年级、高中一二年级秋假为11月30日至12月2日，为期3天，衔接11月28日、29日双休日。
-
-另外，初二年级因备战生物、地理学业水平考试，不安排春假；初三、高三毕业年级不安排春假、秋假。
-
-(完)
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-29 22:35 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 22:09 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 22:32 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 22:18 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 22:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 22:10 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 22:25 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 22:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 22:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 22:35 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 22:30 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 22:19 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 22:30 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 22:10 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 22:12 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 22:29 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 22:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 22:32 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 22:19 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 22:35 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 22:27 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 22:29 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 22:23 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 22:15 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 22:30 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 22:41 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 22:30 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 22:30 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:18 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/796328002731.shtml)
-- 2026-06-29 22:06 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/13277376.shtml)
-- 2026-06-29 22:20 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/475968.shtml)
-- 2026-06-29 22:25 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/0147734.shtml)
-- 2026-06-29 22:24 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/21165368.shtml)
-- 2026-06-29 22:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/950288553.shtml)
-- 2026-06-29 22:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/551387492914.shtml)
-- 2026-06-29 22:22 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/8617452723.shtml)
-- 2026-06-29 22:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/1206863.shtml)
-- 2026-06-29 22:25 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/2238551.shtml)
-- 2026-06-29 22:19 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/713310455.shtml)
-- 2026-06-29 22:26 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/3789072.shtml)
-- 2026-06-29 22:28 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/2197803870.shtml)
-- 2026-06-29 22:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/41202487047.shtml)
-- 2026-06-29 22:12 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/74790.shtml)
+- 2026-06-29 22:13 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/2008772332.shtml)
+- 2026-06-29 22:18 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/9658470062.shtml)
+- 2026-06-29 22:17 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/826900124412.shtml)
+- 2026-06-29 22:14 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/3163485667.shtml)
+- 2026-06-29 22:27 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/99806.shtml)
+- 2026-06-29 22:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/2895354568.shtml)
+- 2026-06-29 22:20 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/79303110.shtml)
+- 2026-06-29 22:12 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/34431399688.shtml)
+- 2026-06-29 22:23 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/5403389.shtml)
+- 2026-06-29 22:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/180872009113.shtml)
+- 2026-06-29 22:12 - [田曦薇没招了](https://www.share.minike.top/Article/details/057459233182.shtml)
+- 2026-06-29 22:41 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/229875976300.shtml)
+- 2026-06-29 22:26 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/666634206710.shtml)
+- 2026-06-29 22:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/3009541.shtml)
+- 2026-06-29 22:40 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/98971261525.shtml)

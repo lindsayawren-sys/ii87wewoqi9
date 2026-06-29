@@ -1,58 +1,57 @@
-# 文化产业版权金融大会在深圳举行
+# 保健品618大促：热销与乱象并存，如何走出野蛮生长困境？
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网深圳5月25日电 (记者 王坚)中国人民大学国家版权贸易基地近日在深圳与北京银行总行文化金融部、国家对外文化贸易基地(伊犁)签署战略合作协议，就推进版权金融、国际版权贸易达成合作意向。 第二十二届中国(深圳)国际文化产业博览交易会正在深圳举行。其间，由深圳出版集团有限公司、中国人民大学文化科技园(国家版权贸易基地)、中国人民大学深圳研究院〔社会科学高等研究院(深圳)〕主办
+21世纪经济报道记者 韩利明 “考研备考失眠，有什么助眠补剂？”“上班族精力不足，保健品该怎么选？”“27岁打工人常年回购保健品清单”……打开小红书、抖音等社交平台，以保健品为关键词的种草、咨询帖层出不穷，健康食补、营养补充俨然成为全民健康消费新风尚。 消费需求的释放也带动行业规模稳步扩容。中国医药保健品进出口商会数据显示，传统货架电商仍是保健品销售核心阵地，但内容电商的增长势
 
 ## 正文
 
-中新网深圳5月25日电 (记者 王坚)中国人民大学国家版权贸易基地近日在深圳与北京银行总行文化金融部、国家对外文化贸易基地(伊犁)签署战略合作协议，就推进版权金融、国际版权贸易达成合作意向。
+21世纪经济报道记者 韩利明 “考研备考失眠，有什么助眠补剂？
 
-第二十二届中国(深圳)国际文化产业博览交易会正在深圳举行。
+”“上班族精力不足，保健品该怎么选？
 
-其间，由深圳出版集团有限公司、中国人民大学文化科技园(国家版权贸易基地)、中国人民大学深圳研究院〔社会科学高等研究院(深圳)〕主办的“湾区之眼”分会场主题活动“文化产业版权金融大会”在深圳举行。
+”“27岁打工人常年回购保健品清单”……打开小红书、抖音等社交平台，以保健品为关键词的种草、咨询帖层出不穷，健康食补、营养补充俨然成为全民健康消费新风尚。
 
-此次活动汇聚了版权金融领域各方智慧与力量，通过政策解读、主题演讲、实践分享、项目对接等多种形式，为推动版权从“知产”向“资产”转化、共同构建版权金融新生态，以版权金融推动文化产业高质量发展提供了新思路、新路径。
+消费需求的释放也带动行业规模稳步扩容。
 
-活动现场，中国人民大学国家版权贸易基地与北京银行总行文化金融部、国家对外文化贸易基地(伊犁)签署战略合作协议，就推进版权金融、国际版权贸易达成合作意向。
+中国医药保健品进出口商会数据显示，传统货架电商仍是保健品销售核心阵地，但内容电商的增长势头尤为显著。
 
-北方国家版权交易中心与工商银行大连分行签署战略合作协议，携手推进版权金融产品落地实施。
+2025年，中国营养保健食品电商渠道销售总额达到1537亿元，继续保持稳健增长态势。
 
-此外，在版权融资项目路演环节，湖南漫联卡通文化传媒有限公司、深圳市创梦天地科技有限公司、大连天虹影视文化服务有限公司、大爱时光(广州)科技有限公司、魔萌动漫文化传播(深圳)有限公司、深圳华实科技文化有限公司等六家企业先后登台，分别就“虹猫蓝兔”国民IP重启、《地铁跑酷》游戏与中国文化融合、纪录电影《主场》、中国童话王国原创IP、“魔鬼猫”原创潮流IP以及“宾至通”智慧物业解决方案等优质版权融资项目进行了展示。
+市场一路向好的同时，行业发展痛点与乱象也随之暴露：不少消费者质疑保健品是“智商税”，难以辨别进口产品真伪，大量中老年群体深陷保健品推销骗局；虚假宣传、功效夸大、贴牌代工、“假洋牌”横行等乱象持续困扰市场。
 
-(完)
+天津宝恒福豆生物科技集团董事长李宝恒在第十六届中国国际健康产品展览会、2026亚洲天然及营养保健品展上向21世纪经济报道记者直言：“大健康是国家重点战略赛道，全民健康刚需支撑行业长期向好，但目前行业仍处于野蛮生长阶段，各类不合规经营问题多发。
 
 ## 相关推荐
 
-- 2026-06-29 22:32 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 22:22 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 22:10 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 22:20 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 22:23 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 22:22 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 22:27 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 22:27 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 22:08 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 22:35 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 22:21 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 22:19 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 22:20 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 22:36 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 22:15 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 22:34 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 22:29 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 22:20 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 22:29 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 22:31 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 22:19 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 22:31 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 22:23 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:10 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/602340047.shtml)
-- 2026-06-29 22:14 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/61944061672.shtml)
-- 2026-06-29 22:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/42694821132.shtml)
-- 2026-06-29 22:31 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/4937193771.shtml)
-- 2026-06-29 22:15 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/13687954.shtml)
-- 2026-06-29 22:12 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/784269891.shtml)
-- 2026-06-29 22:33 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/514732606.shtml)
-- 2026-06-29 22:28 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/1677311.shtml)
-- 2026-06-29 22:13 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/20992607701.shtml)
-- 2026-06-29 22:06 - [流金岁月](https://www.share.minike.top/Article/details/8557590.shtml)
-- 2026-06-29 22:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/097483.shtml)
-- 2026-06-29 22:20 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/3754687759.shtml)
-- 2026-06-29 22:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/640439.shtml)
-- 2026-06-29 22:22 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/718490340631.shtml)
-- 2026-06-29 22:09 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/26625679912.shtml)
+- 2026-06-29 22:39 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/23959.shtml)
+- 2026-06-29 22:26 - [返利科技盘中上演“天地板”](https://www.share.minike.top/Article/details/524759737904.shtml)
+- 2026-06-29 22:40 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/20636428.shtml)
+- 2026-06-29 22:15 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/044237588159.shtml)
+- 2026-06-29 22:36 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/74413.shtml)
+- 2026-06-29 22:22 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/79317.shtml)
+- 2026-06-29 22:27 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/1910304578.shtml)
+- 2026-06-29 22:36 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/445380.shtml)
+- 2026-06-29 22:39 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/28710.shtml)
+- 2026-06-29 22:14 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/013677.shtml)
+- 2026-06-29 22:14 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/577251.shtml)
+- 2026-06-29 22:22 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/14011.shtml)
+- 2026-06-29 22:16 - [肝不好身体这几处会“说话”](http://www.share.minike.top/Article/details/8208933.shtml)
+- 2026-06-29 22:41 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/02847760645.shtml)
+- 2026-06-29 22:40 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/21252.shtml)

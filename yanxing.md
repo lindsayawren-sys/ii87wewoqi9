@@ -1,61 +1,50 @@
-# 香港举办佛诞节吉祥大会 祈愿国家和香港繁荣稳定
+# 【活力中国调研行】废旧厂区如何“换装”国家级零碳园区？探访全国首个资源循环示范基地
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新社5月24日电 (记者 赵静怡)香港佛教联合会24日在香港体育馆举办“祝福祖国·祝福香港”佛诞节吉祥大会，祈愿国家和香港繁荣稳定。 在现场数千名市民见证下，香港特区政府政务司司长陈国基、中央人民政府驻香港特别行政区联络办公室副主任罗永纲、香港特区政府民政及青年事务局局长麦美娟与香港佛教联合会会长宽运法师共同敲响吉祥钟，祝福祖国繁荣昌盛，香港社会祥和，市民安居乐业。 陈国基致
+发布时间：2026年06月16日 20:39 来源：中国新闻网 6月16日，记者跟随2026年“活力中国调研行”走进全国首个资源循环领域国家级示范基地——中国资环绿色低碳循环经济示范基地，探访退役光伏组件如何“穿上”彩色外衣、废旧衣物怎样“变身”绿茵草皮、风机叶片如何“铺成”庭院小径。看“央地共建、产城融合”模式下，循环经济如何从这里长出千亿级产业集群。(冯宏杰） 责任编辑：【
 
 ## 正文
 
-中新社5月24日电 (记者 赵静怡)香港佛教联合会24日在香港体育馆举办“祝福祖国·祝福香港”佛诞节吉祥大会，祈愿国家和香港繁荣稳定。
+发布时间：2026年06月16日 20:39 来源：中国新闻网 6月16日，记者跟随2026年“活力中国调研行”走进全国首个资源循环领域国家级示范基地——中国资环绿色低碳循环经济示范基地，探访退役光伏组件如何“穿上”彩色外衣、废旧衣物怎样“变身”绿茵草皮、风机叶片如何“铺成”庭院小径。
 
-在现场数千名市民见证下，香港特区政府政务司司长陈国基、中央人民政府驻香港特别行政区联络办公室副主任罗永纲、香港特区政府民政及青年事务局局长麦美娟与香港佛教联合会会长宽运法师共同敲响吉祥钟，祝福祖国繁荣昌盛，香港社会祥和，市民安居乐业。
+看“央地共建、产城融合”模式下，循环经济如何从这里长出千亿级产业集群。
 
-陈国基致辞表示，佛学理念里自利利他的精神，与香港浓厚的关爱文化互相呼应。
-
-希望大家发扬中华优秀传统文化中有容乃大、和而不同的智慧，让友爱与团结的种子在香港各处开花。
-
-宽运法师在致辞中呼吁大众要爱自己、爱家庭、爱国家、爱世界，做守法尽责的好公民，将爱国情怀体现在珍惜土地文化、守护社会安宁上。
-
-佛诞节又名浴佛节，中国汉传佛教以农历四月初八为释迦牟尼诞辰日。
-
-据悉，香港佛联会今年还将举办童真汇演、佛学讲座等活动。
-
-(完)
+(冯宏杰） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 22:16 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 22:09 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 22:13 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 22:29 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 22:21 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 22:14 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 22:11 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 22:27 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 22:15 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 22:16 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 22:31 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 22:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 22:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 22:31 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 22:26 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 22:17 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 22:23 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 22:37 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 22:13 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 22:20 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 22:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 22:23 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 22:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 22:34 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 22:18 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 22:15 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 22:15 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 22:21 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 22:24 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:10 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/709306067245.shtml)
-- 2026-06-29 22:11 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/3047866.shtml)
-- 2026-06-29 22:32 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/11391.shtml)
-- 2026-06-29 22:08 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/04118120320.shtml)
-- 2026-06-29 22:08 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/660581.shtml)
-- 2026-06-29 22:18 - [时光音乐会](http://www.share.minike.top/Article/details/949345.shtml)
-- 2026-06-29 22:33 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/651237578.shtml)
-- 2026-06-29 22:18 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/61084608.shtml)
-- 2026-06-29 22:35 - [一生一世](https://www.blog.minike.top/Article/details/700102.shtml)
-- 2026-06-29 22:19 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/6666843175.shtml)
-- 2026-06-29 22:31 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/7133429392.shtml)
-- 2026-06-29 22:21 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/356257.shtml)
-- 2026-06-29 22:33 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/94938997.shtml)
-- 2026-06-29 22:12 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/45010912.shtml)
-- 2026-06-29 22:20 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/371205997974.shtml)
+- 2026-06-29 22:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/663962067.shtml)
+- 2026-06-29 22:18 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/366427227942.shtml)
+- 2026-06-29 22:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/843291.shtml)
+- 2026-06-29 22:35 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/094175407649.shtml)
+- 2026-06-29 22:32 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/792274855.shtml)
+- 2026-06-29 22:27 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/00389871.shtml)
+- 2026-06-29 22:18 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/7906950.shtml)
+- 2026-06-29 22:39 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/0412946920.shtml)
+- 2026-06-29 22:22 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/50758379033.shtml)
+- 2026-06-29 22:27 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/538086013998.shtml)
+- 2026-06-29 22:20 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/1129413157.shtml)
+- 2026-06-29 22:23 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/491636191.shtml)
+- 2026-06-29 22:21 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/229744877873.shtml)
+- 2026-06-29 22:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/38882.shtml)
+- 2026-06-29 22:14 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/510646581.shtml)

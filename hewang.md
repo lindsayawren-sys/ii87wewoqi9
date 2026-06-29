@@ -1,59 +1,59 @@
-# 今年4月欧盟油价继续上涨 柴油价格同比增长逾33%
+# 潘功胜陆家嘴发声！央行六大增量政策亮相 优化短端利率调控机制
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新社布鲁塞尔5月22日电 (记者 德永健)欧盟统计局22日公布的数据显示，今年4月欧盟油价继续上涨，柴油价格同比增长逾33%，汽油价格同比增长逾13%。 数据显示，今年4月，欧盟燃油和润滑油价格同比增长20.8%，而且所有欧盟成员国燃油和润滑油价格同比均有增长。 欧盟统计局表示，今年4月15个欧盟成员国燃油和润滑油价格同比增长逾20%，其中卢森堡燃油和润滑油价格同比增长33.
+21世纪经济报道记者 唐婧 6月17日上午，2026陆家嘴论坛将正式开幕。中国人民银行行长潘功胜宣布了多项即将出台的重磅政策措施。 一是完善短端利率调控机制。为进一步推动货币政策框架向价格型转型，增强短端利率调控的精准性和有效性，人民银行将对利率调控机制进行进一步探索和优化：一方面，在2024年7月设立临时隔夜正/逆回购工具的基础上，完善工具使用机制，并将操作利率调整为7天期逆
 
 ## 正文
 
-中新社布鲁塞尔5月22日电 (记者 德永健)欧盟统计局22日公布的数据显示，今年4月欧盟油价继续上涨，柴油价格同比增长逾33%，汽油价格同比增长逾13%。
+21世纪经济报道记者 唐婧 6月17日上午，2026陆家嘴论坛将正式开幕。
 
-数据显示，今年4月，欧盟燃油和润滑油价格同比增长20.8%，而且所有欧盟成员国燃油和润滑油价格同比均有增长。
+中国人民银行行长潘功胜宣布了多项即将出台的重磅政策措施。
 
-欧盟统计局表示，今年4月15个欧盟成员国燃油和润滑油价格同比增长逾20%，其中卢森堡燃油和润滑油价格同比增长33.8%，在欧盟成员国中涨幅最高，其次是法国和瑞典，今年4月燃油和润滑油价格同比均增长29.3%。
+一是完善短端利率调控机制。
 
-从柴油和汽油价格看，数据显示今年4月欧盟柴油价格同比增长33.7%，环比增长7.9%。
+为进一步推动货币政策框架向价格型转型，增强短端利率调控的精准性和有效性，人民银行将对利率调控机制进行进一步探索和优化：一方面，在2024年7月设立临时隔夜正/逆回购工具的基础上，完善工具使用机制，并将操作利率调整为7天期逆回购操作利率加、减25个基点，区间由70个基点收窄为50个基点。
 
-汽油价格同比增长13.6%，环比增长2.4%。
+另一方面，进一步丰富公开市场操作工具箱，适时增加隔夜逆回购操作品种，更好地匹配银行体系短期的流动性需求。
 
-欧盟成员国方面，今年4月所有成员国柴油价格环比均有增长，其中斯洛文尼亚柴油价格环比增长23.5%，在欧盟成员国中涨幅最高，其次是保加利亚和塞浦路斯，柴油价格环比分别增长19.5%和18%。
+二是创设境外央行回购工具（RMB Repo Facility for Foreign and International Monetary Authorities，FIMA RMB Repo）。
 
-反之，今年4月波兰柴油价格环比增长1.9%，在欧盟成员国中涨幅最低，其次是罗马尼亚和匈牙利，柴油价格环比分别增长2.3%和2.6%。
+设立境外央行类机构回购工具，包括境外央行或货币当局、国际金融组织、主权财富基金，都可以用中国国债等高等级债券回购的方式，从人民银行获得人民币流动性，便利境外央行类机构的人民币流动性管理和人民币资产配置。
 
-汽油价格方面，今年4月斯洛文尼亚汽油价格环比增长12.9%，在欧盟成员国中涨幅最高，其次是斯洛伐克和保加利亚，汽油价格环比分别增长11.1%和9.1%。
+三是在上海自贸区开展离岸人民币外汇交易试点。
 
 ## 相关推荐
 
-- 2026-06-29 22:10 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 22:22 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 22:06 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 22:33 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 22:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 22:20 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 22:10 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 22:06 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 22:18 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 22:29 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 22:16 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 22:30 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 22:08 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 22:28 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 22:13 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 22:15 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 22:12 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 22:20 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 22:30 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 22:12 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 22:19 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 22:40 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 22:22 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 22:22 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 22:30 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 22:38 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:15 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/940740898735.shtml)
-- 2026-06-29 22:09 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/486152329.shtml)
-- 2026-06-29 22:14 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/7022114.shtml)
-- 2026-06-29 22:34 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/917714.shtml)
-- 2026-06-29 22:20 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/388929798787.shtml)
-- 2026-06-29 22:19 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/62291800.shtml)
-- 2026-06-29 22:09 - [起风了](https://www.blog.minike.top/Article/details/494118.shtml)
-- 2026-06-29 22:07 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/79072465.shtml)
-- 2026-06-29 22:13 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/03600577396.shtml)
-- 2026-06-29 22:25 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/38596750115.shtml)
-- 2026-06-29 22:34 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/08273507.shtml)
-- 2026-06-29 22:13 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/231041650498.shtml)
-- 2026-06-29 22:10 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/699814045.shtml)
-- 2026-06-29 22:26 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/577247956884.shtml)
-- 2026-06-29 22:26 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/346040113.shtml)
+- 2026-06-29 22:26 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/027397.shtml)
+- 2026-06-29 22:14 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/970302.shtml)
+- 2026-06-29 22:41 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/84134.shtml)
+- 2026-06-29 22:28 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/9815701038.shtml)
+- 2026-06-29 22:39 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/985654.shtml)
+- 2026-06-29 22:24 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/627736683.shtml)
+- 2026-06-29 22:30 - [一生一世](http://www.blog.kurohicncr.top/Article/details/7292095602.shtml)
+- 2026-06-29 22:18 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/108765313.shtml)
+- 2026-06-29 22:35 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/434074.shtml)
+- 2026-06-29 22:15 - [恋与深空7天掉粉超50万](https://www.share.minike.top/Article/details/572633320890.shtml)
+- 2026-06-29 22:20 - [世界杯](http://www.share.minike.top/Article/details/4373122.shtml)
+- 2026-06-29 22:22 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/27340.shtml)
+- 2026-06-29 22:33 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/247143176.shtml)
+- 2026-06-29 22:25 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/499921346.shtml)
+- 2026-06-29 22:33 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/91737.shtml)

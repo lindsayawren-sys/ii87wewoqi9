@@ -1,57 +1,55 @@
-# 消金公司不良贷款转让挂牌期数为何“跳号”？
+# 鑫科材料：公司及控股子公司不存在逾期担保事项
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-在银行业信贷资产登记流转中心（简称“银登中心”）的不良贷款转让区，部分消金公司的挂牌期数出现了“断档”。 以中银消费金融为例，该公司已挂牌转让2026年第1至13期、第15期不良贷款，唯独第14期“缺席”。同样，杭银消费金融今年已挂牌第2期、第3期不良贷款，却不见第1期的踪影。 针对消失的一期，两家机构独家回应中国证券报·中证金牛座记者。中银消费金融表示，第14期不良贷款原在处
+证券日报网讯 6月17日，鑫科材料发布公告称，本次鑫科材料为控股子公司鑫科铜业提供担保人民币5，000万元。截至本公告日，公司及控股子公司实际对外担保总额为247，075万元，占公司2025年度经审计归属于母公司所有者净资产的169.30%。公司及控股子公司根据实际经营需要在人民币300，000万元额度范围内为公司及控股子公司向金融机构融资提供担保（包括母子公司之间、子公司之间
 
 ## 正文
 
-在银行业信贷资产登记流转中心（简称“银登中心”）的不良贷款转让区，部分消金公司的挂牌期数出现了“断档”。
+证券日报网讯 6月17日，鑫科材料发布公告称，本次鑫科材料为控股子公司鑫科铜业提供担保人民币5，000万元。
 
-以中银消费金融为例，该公司已挂牌转让2026年第1至13期、第15期不良贷款，唯独第14期“缺席”。
+截至本公告日，公司及控股子公司实际对外担保总额为247，075万元，占公司2025年度经审计归属于母公司所有者净资产的169.30%。
 
-同样，杭银消费金融今年已挂牌第2期、第3期不良贷款，却不见第1期的踪影。
+公司及控股子公司根据实际经营需要在人民币300，000万元额度范围内为公司及控股子公司向金融机构融资提供担保（包括母子公司之间、子公司之间相互提供的担保及反担保，不包括为合并报表范围外的其他企业提供的担保）。
 
-针对消失的一期，两家机构独家回应中国证券报·中证金牛座记者。
+担保额度占公司2025年度经审计归属于母公司所有者净资产的205.57%。
 
-中银消费金融表示，第14期不良贷款原在处置计划内，经内部评估后决定暂不转让，故未挂网；杭银消费金融则称，第1期不良贷款仍在资产整理阶段，因此尚未挂牌。
+公司及控股子公司不存在逾期担保事项。
 
-事实上，期数倒挂现象并不少见。
-
-例如，重庆蚂蚁消费金融2026年第2期、第3期不良贷款转让项目于1月29日挂牌，第1期反而在2月5日才挂牌。
-
-当前消费金融行业不良资产转让进入高频加速期。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 22:33 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 22:25 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 22:19 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 22:23 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 22:18 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 22:09 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 22:07 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 22:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 22:31 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 22:20 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 22:12 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 22:25 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 22:23 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 22:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 22:41 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-29 22:32 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 22:19 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 22:34 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 22:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 22:19 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 22:14 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 22:28 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 22:39 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 22:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:34 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/2681234.shtml)
-- 2026-06-29 22:32 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/712576408672.shtml)
-- 2026-06-29 22:21 - [时光音乐会](https://www.share.minike.top/Article/details/785967670676.shtml)
-- 2026-06-29 22:08 - [杨德龙：创新药迎来新的发展机遇](https://www.share.kurohicncr.top/Article/details/133092836.shtml)
-- 2026-06-29 22:34 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/505058.shtml)
-- 2026-06-29 22:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/626664442.shtml)
-- 2026-06-29 22:35 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/90461.shtml)
-- 2026-06-29 22:22 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/98503095.shtml)
-- 2026-06-29 22:07 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/91017402540.shtml)
-- 2026-06-29 22:20 - [济南航空航天全面起势](https://www.share.kurohicncr.top/Article/details/1368401950.shtml)
-- 2026-06-29 22:16 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/048515474733.shtml)
-- 2026-06-29 22:21 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/430490.shtml)
-- 2026-06-29 22:16 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/696841.shtml)
-- 2026-06-29 22:16 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/02563915.shtml)
-- 2026-06-29 22:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/812925065.shtml)
+- 2026-06-29 22:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/4820590330.shtml)
+- 2026-06-29 22:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/3940887318.shtml)
+- 2026-06-29 22:41 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/917241052707.shtml)
+- 2026-06-29 22:40 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/33122850714.shtml)
+- 2026-06-29 22:23 - [毒液2](https://www.share.minike.top/Article/details/262996.shtml)
+- 2026-06-29 22:40 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/9125852394.shtml)
+- 2026-06-29 22:19 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/66946.shtml)
+- 2026-06-29 22:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/423460.shtml)
+- 2026-06-29 22:19 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.kurohicncr.top/Article/details/179768.shtml)
+- 2026-06-29 22:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/0000015163.shtml)
+- 2026-06-29 22:14 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/12714152574.shtml)
+- 2026-06-29 22:16 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/288848.shtml)
+- 2026-06-29 22:34 - [小娘惹](http://www.blog.minike.top/Article/details/49647730.shtml)
+- 2026-06-29 22:34 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/56031.shtml)
+- 2026-06-29 22:15 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/727314180889.shtml)

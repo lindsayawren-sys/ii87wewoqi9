@@ -1,60 +1,59 @@
-# 让文化瑰宝回家！法国开先例，为何震动西方博物馆界？｜真相
+# 备忘录显示：软银愿景基金首席财务官即将离职
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网5月22日电 当年被殖民者带走的文化瑰宝，正在要求回家。 5月早些时候，法国正式颁布简化非法所获文物归还程序的法律。对法国而言，这不仅是一次文化立法调整，更意味着其首次尝试将文物返还从“逐案政治处理”转向“制度化程序”。 长期以来，被纳入法国公共收藏体系的文物几乎不可移出。而如今，这道延续数百年的制度壁垒，终于出现松动。从“永久收藏”到“允许归还”，法国改变的，不只是法律
+一份内部备忘录显示，软银集团旗下愿景基金投资部门的首席财务官纳夫尼特·戈维尔（Navneet Govil）将在任职十年后离职。 软银投资顾问公司首席执行官亚历克斯·克拉维尔（Alex Clavel）在备忘录中写道，公司将在适当时候公布有关职责交接的详细信息。 软银愿景基金拒绝置评。 作为软银投资顾问公司首席财务官的戈维尔于2016年加入软银，此时距离首期愿景基金成立还有一年。该
 
 ## 正文
 
-中新网5月22日电 当年被殖民者带走的文化瑰宝，正在要求回家。
+一份内部备忘录显示，软银集团旗下愿景基金投资部门的首席财务官纳夫尼特·戈维尔（Navneet Govil）将在任职十年后离职。
 
-5月早些时候，法国正式颁布简化非法所获文物归还程序的法律。
+软银投资顾问公司首席执行官亚历克斯·克拉维尔（Alex Clavel）在备忘录中写道，公司将在适当时候公布有关职责交接的详细信息。
 
-对法国而言，这不仅是一次文化立法调整，更意味着其首次尝试将文物返还从“逐案政治处理”转向“制度化程序”。
+软银愿景基金拒绝置评。
 
-长期以来，被纳入法国公共收藏体系的文物几乎不可移出。
+作为软银投资顾问公司首席财务官的戈维尔于2016年加入软银，此时距离首期愿景基金成立还有一年。
 
-而如今，这道延续数百年的制度壁垒，终于出现松动。
+该基金凭借其高确定性的投资决策，彻底颠覆了初创企业投资领域。
 
-从“永久收藏”到“允许归还”，法国改变的，不只是法律程序；被追问与重新定义的，还有西方博物馆是否天然拥有收藏他者文明产物的权力。
+备忘录称，在“公司应对重大市场波动、转型及前所未有的变革过程中，戈维尔一直是整个业务的重要合作伙伴”。
 
-文物回家，正在从道义呼吁，逐渐演变为一场关于殖民历史、文化主权与国际秩序的全球讨论。
+戈维尔的离职正值软银CEO孙正义将重心转向人工智能热潮之际，该浪潮正在重塑科技行业，其中包括对ChatGPT开发商OpenAI的大手笔投资。
 
-法国为何选择在此刻放宽非法文物归还制度？
+戈维尔具有印度血统，在赞比亚出生并长大，曾在美国求学，并在辉瑞PFE.N和CATechnologies等公司担任过财务职位。
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 22:25 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 22:25 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 22:08 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 22:10 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 22:35 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 22:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 22:15 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 22:24 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 22:31 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 22:17 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 22:25 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 22:32 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 22:12 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 22:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 22:26 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 22:19 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 22:36 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 22:41 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 22:15 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 22:35 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 22:20 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 22:33 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 22:39 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 22:21 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 22:24 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 22:12 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:29 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/424628081.shtml)
-- 2026-06-29 22:06 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/8283713.shtml)
-- 2026-06-29 22:21 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/93558980217.shtml)
-- 2026-06-29 22:29 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/959635336.shtml)
-- 2026-06-29 22:22 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/45146.shtml)
-- 2026-06-29 22:15 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/8939424742.shtml)
-- 2026-06-29 22:32 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/64776.shtml)
-- 2026-06-29 22:32 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/785849.shtml)
-- 2026-06-29 22:28 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/1291579.shtml)
-- 2026-06-29 22:18 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/4136395545.shtml)
-- 2026-06-29 22:25 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/3925429.shtml)
-- 2026-06-29 22:06 - [谁在推动“成都造”影视持续出圈](http://www.share.kurohicncr.top/Article/details/30006619.shtml)
-- 2026-06-29 22:07 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/8667446.shtml)
-- 2026-06-29 22:27 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/794515346947.shtml)
-- 2026-06-29 22:08 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/224461389807.shtml)
+- 2026-06-29 22:22 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/77328757048.shtml)
+- 2026-06-29 22:24 - [女生学医适合选什么专业](https://www.share.kurohicncr.top/Article/details/55992654616.shtml)
+- 2026-06-29 22:40 - [乔家的儿女](http://www.blog.minike.top/Article/details/69721.shtml)
+- 2026-06-29 22:20 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/77303003.shtml)
+- 2026-06-29 22:13 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/460425.shtml)
+- 2026-06-29 22:41 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/8815312.shtml)
+- 2026-06-29 22:14 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/81840.shtml)
+- 2026-06-29 22:24 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/01432192.shtml)
+- 2026-06-29 22:22 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/67683029165.shtml)
+- 2026-06-29 22:31 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/035340.shtml)
+- 2026-06-29 22:29 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/8696142.shtml)
+- 2026-06-29 22:21 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/4126251.shtml)
+- 2026-06-29 22:34 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/746499401.shtml)
+- 2026-06-29 22:37 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/948699545.shtml)
+- 2026-06-29 22:39 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/33558.shtml)

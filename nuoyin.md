@@ -1,61 +1,59 @@
-# 中国职工健身气功指导员培训班结业
+# 州立农业保险面向销售代理人推出AI新政引发集体强烈抗议
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网广州5月22日电 中华全国体育基金会—香港赛马会助力中国职工健身气功指导员培训班22日在广州南沙顺利结业。结业仪式上，伴随着舒缓绵长的音乐，80名学员进行了一段行云流水、神形兼备的健身气功展演。 健身气功具有深厚的传统文化底蕴与独特的健身养生效果，契合职工群体的健身需求。本次培训活动由中华全国体育基金会与香港赛马会共同建立的“助力全民健身专项基金”资助，课程设计科学、内容
+保险公司推出 AI 工具并修改 1.9 万名销售代理人的劳务合同，此举意在扭转公司行业地位不断下滑的颓势 内容要点 州立农业保险首席执行官乔恩・法尼宣布，依托人工智能技术迭代与行业变革，所有计划 2027 年后继续任职的代理人必须签署全新劳务合同。 上个月，州立农业保险在拉斯维加斯举办行业大会，盛情款待旗下数千名销售代理人。公司承担所有差旅费用，参会代理人不仅免费观看了粉红乐队
 
 ## 正文
 
-中新网广州5月22日电 中华全国体育基金会—香港赛马会助力中国职工健身气功指导员培训班22日在广州南沙顺利结业。
+保险公司推出 AI 工具并修改 1.9 万名销售代理人的劳务合同，此举意在扭转公司行业地位不断下滑的颓势 内容要点 州立农业保险首席执行官乔恩・法尼宣布，依托人工智能技术迭代与行业变革，所有计划 2027 年后继续任职的代理人必须签署全新劳务合同。
 
-结业仪式上，伴随着舒缓绵长的音乐，80名学员进行了一段行云流水、神形兼备的健身气功展演。
+上个月，州立农业保险在拉斯维加斯举办行业大会，盛情款待旗下数千名销售代理人。
 
-健身气功具有深厚的传统文化底蕴与独特的健身养生效果，契合职工群体的健身需求。
+公司承担所有差旅费用，参会代理人不仅免费观看了粉红乐队专场演唱会、参与吉米・法伦主持的合唱活动，还能和品牌经典形象 “州立农业的杰克” 扮演者合影留念。
 
-本次培训活动由中华全国体育基金会与香港赛马会共同建立的“助力全民健身专项基金”资助，课程设计科学、内容扎实。
+就在这场盛会之上，任职 33 年的公司元老、首席执行官乔恩・法尼在忠诚体育场的舞台上抛出一则重磅消息：公司将废除全体代理人现行劳务合同。
 
-承担本次教学任务的广州体育学院导师姚琼介绍，培训班将八段锦与新功法“大舞”作为核心教学内容，再分单元推进实践教学，理论与实践并重。
+任何希望在 2027 年之后继续从业的代理人，都必须接受全新薪酬方案与业绩考核指标。
 
-国家体育总局健身气功管理中心对本次培训提供支持，国家体育总局健身气功管理中心国内发展部主任郭莉萍表示，希望大家不断精进，在推广普及健身气功的实践中积累经验、提升资质，以更高的专业水准服务基层，让健身气功造福社会。
+《华尔街曰报》获取的现场会议视频显示，法尼在会上表示：“州立农业保险必须做出变革。
 
-香港赛马会全民健身项目主管任军勉励学员以此次结业为新起点，肩负起传播健康理念的社会责任与使命，将所学带回工作岗位和社区。
+” 此次变革的核心驱动力来自人工智能。
 
-中国企业体育协会近年来重点扶持和推广的健身气功项目，连续三年举办健身气功指导员培训班，成功培育了近300名职工健身气功骨干人才，为基层企事业单位广泛开展健身气功活动奠定了坚实的人才基础。
+这项飞速迭代的技术正在颠覆保险业沿用数十年的线下销售模式，让保险交易变得更高效、成本更低、精准度更高；各类手机应用与智能机器人也彻底重塑了消费者购买保险等金融产品的方式。
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 22:19 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 22:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 22:06 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 22:10 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 22:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 22:19 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 22:24 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 22:34 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 22:25 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 22:20 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 22:25 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 22:16 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 22:10 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 22:32 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 22:23 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 22:34 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 22:30 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 22:12 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 22:21 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 22:33 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 22:29 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 22:31 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 22:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 22:36 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 22:24 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 22:29 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 22:35 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:12 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/2839856.shtml)
-- 2026-06-29 22:06 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/746049.shtml)
-- 2026-06-29 22:21 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/491103349.shtml)
-- 2026-06-29 22:06 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/2867315157.shtml)
-- 2026-06-29 22:29 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/991554134.shtml)
-- 2026-06-29 22:33 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/00449.shtml)
-- 2026-06-29 22:12 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/4628823.shtml)
-- 2026-06-29 22:22 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/991858908.shtml)
-- 2026-06-29 22:23 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/155890221.shtml)
-- 2026-06-29 22:09 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/31741.shtml)
-- 2026-06-29 22:23 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/976247.shtml)
-- 2026-06-29 22:21 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/618558753.shtml)
-- 2026-06-29 22:13 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/85268692.shtml)
-- 2026-06-29 22:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/185085.shtml)
-- 2026-06-29 22:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/2323805390.shtml)
+- 2026-06-29 22:40 - [女心理师](https://www.share.kurohicncr.top/Article/details/659771164.shtml)
+- 2026-06-29 22:12 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.minike.top/Article/details/2380171.shtml)
+- 2026-06-29 22:33 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/26830608871.shtml)
+- 2026-06-29 22:19 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/804618062.shtml)
+- 2026-06-29 22:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/7318226.shtml)
+- 2026-06-29 22:17 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/81905650.shtml)
+- 2026-06-29 22:31 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/85634113652.shtml)
+- 2026-06-29 22:36 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/723944510041.shtml)
+- 2026-06-29 22:40 - [记者乘坐无人驾驶汽车去采访](https://www.blog.kurohicncr.top/Article/details/22828041.shtml)
+- 2026-06-29 22:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/34356.shtml)
+- 2026-06-29 22:25 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/9200725306.shtml)
+- 2026-06-29 22:25 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/555787884.shtml)
+- 2026-06-29 22:22 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/87844717027.shtml)
+- 2026-06-29 22:15 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/697375.shtml)
+- 2026-06-29 22:16 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/386955292.shtml)

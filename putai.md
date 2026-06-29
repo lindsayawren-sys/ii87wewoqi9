@@ -1,57 +1,55 @@
-# 一碗公道饭 万里琼侨情
+# 国际能源署：阿联酋明年石油日产量将增加至520万桶
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新社海南琼海5月25日电 题：一碗公道饭 万里琼侨情 中新社记者 符宇群 芭蕉叶为盘，嘉积鸭鲜嫩入味，原汤焖制的饭团香气浓郁，荤素汤汁均分均等、厚薄一致。在海南侨乡琼海，一碗地道的公道饭，藏着乡土烟火，系着侨脉乡愁，是烙印在当地人心底的味蕾记忆。 琼海嘉积南门市场里，王记公道饭店店主张泰霞有条不紊地炖煮番鸭、熬制“杯贡”，鲜香漫溢街巷，引得食客纷至沓来。她深耕公道饭制作多年，
+国际能源署在月度石油市场报告中称，阿联酋全年石油日产量明年将增加73万桶，升至520万桶/日，该国将成为非欧佩克+原油供应增量的主要来源国之一。 国际能源署预测，阿联酋今年原油日均产量为360万桶，此外天然气凝析油与天然气液日产量达84万桶。 阿联酋已于5月退出欧佩克。 该国5月产能及出口变动：原油日产量上调23万桶，至280万桶/日，仍较冲突前360万桶/日以上的峰值低约83
 
 ## 正文
 
-中新社海南琼海5月25日电 题：一碗公道饭 万里琼侨情 中新社记者 符宇群 芭蕉叶为盘，嘉积鸭鲜嫩入味，原汤焖制的饭团香气浓郁，荤素汤汁均分均等、厚薄一致。
+国际能源署在月度石油市场报告中称，阿联酋全年石油日产量明年将增加73万桶，升至520万桶/日，该国将成为非欧佩克+原油供应增量的主要来源国之一。
 
-在海南侨乡琼海，一碗地道的公道饭，藏着乡土烟火，系着侨脉乡愁，是烙印在当地人心底的味蕾记忆。
+国际能源署预测，阿联酋今年原油日均产量为360万桶，此外天然气凝析油与天然气液日产量达84万桶。
 
-琼海嘉积南门市场里，王记公道饭店店主张泰霞有条不紊地炖煮番鸭、熬制“杯贡”，鲜香漫溢街巷，引得食客纷至沓来。
+阿联酋已于5月退出欧佩克。
 
-她深耕公道饭制作多年，深谙这份美食背后的文化底蕴：“公道饭的根，扎在南洋侨韵与琼海乡土人情之中。
+该国5月产能及出口变动：原油日产量上调23万桶，至280万桶/日，仍较冲突前360万桶/日以上的峰值低约83.5万桶；石油总出口量环比增加26万桶，达310万桶/日，原因是“阿曼沿岸海峡的隐秘原油运输活动大幅增多”。
 
-” 作为公道饭的核心食材，嘉积鸭又称番鸭，是早年琼海“番客”远赴南洋后引进回乡，历经本土化成为琼海特色名产。
+报告指出：“尽管阿联酋5月1日退出欧佩克，为后续进一步扩产创造了空间，但现阶段恢复出口与产量常态是其首要任务。
 
-在物资匮乏的年代，乡邻几户常凑钱合买鸡鸭鹅等家禽，推举“公道头”掌勺分餐，禽肉、饭团、汤汁、蘸料样样均分。
-
-“公道饭”由此而来，展现出邻里共享、互助和睦的乡土底色。
-
-“我们精选本地散养嘉积鸭，以清水搭配姜、盐、胡椒慢煮至九成熟，出锅后趁热以细盐涂抹鸭身，最大程度锁住鸭肉细嫩鲜香的本味。
+”责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 22:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 22:06 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 22:34 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 22:30 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 22:09 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 22:28 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 22:35 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 22:25 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 22:24 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 22:18 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 22:07 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 22:32 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 22:30 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 22:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 22:31 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 22:23 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 22:18 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 22:25 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 22:34 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 22:21 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 22:23 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 22:16 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 22:29 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 22:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:23 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/7492920411.shtml)
-- 2026-06-29 22:16 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/06365.shtml)
-- 2026-06-29 22:29 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/2836502.shtml)
-- 2026-06-29 22:29 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/59270.shtml)
-- 2026-06-29 22:18 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/58422285041.shtml)
-- 2026-06-29 22:32 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/591830543798.shtml)
-- 2026-06-29 22:23 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/69598604.shtml)
-- 2026-06-29 22:30 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/863269.shtml)
-- 2026-06-29 22:29 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/61155.shtml)
-- 2026-06-29 22:31 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/042864.shtml)
-- 2026-06-29 22:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/24466596.shtml)
-- 2026-06-29 22:17 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/23727.shtml)
-- 2026-06-29 22:29 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/42506500.shtml)
-- 2026-06-29 22:15 - [任泽平：AI浪潮刚刚开始](http://www.blog.kurohicncr.top/Article/details/2687798.shtml)
-- 2026-06-29 22:28 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/99447386.shtml)
+- 2026-06-29 22:30 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/75259.shtml)
+- 2026-06-29 22:13 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/383484278.shtml)
+- 2026-06-29 22:34 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/966186205.shtml)
+- 2026-06-29 22:12 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/8693961.shtml)
+- 2026-06-29 22:21 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/91494417.shtml)
+- 2026-06-29 22:37 - [店员光脚踩入盆中清洗土豆](http://www.blog.kurohicncr.top/Article/details/7190868619.shtml)
+- 2026-06-29 22:14 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/030880456.shtml)
+- 2026-06-29 22:19 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/93871.shtml)
+- 2026-06-29 22:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/764642.shtml)
+- 2026-06-29 22:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/81065098.shtml)
+- 2026-06-29 22:23 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/617580086.shtml)
+- 2026-06-29 22:20 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/660037960314.shtml)
+- 2026-06-29 22:25 - [月亮](https://www.blog.kurohicncr.top/Article/details/6700789.shtml)
+- 2026-06-29 22:17 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/99990582689.shtml)
+- 2026-06-29 22:16 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/9140728610.shtml)

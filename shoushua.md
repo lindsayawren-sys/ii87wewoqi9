@@ -1,45 +1,61 @@
-# 山西大同市云冈区发生3.2级地震
+# 国防部：所谓“中国间谍威胁”是别有用心的捏造
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网5月23日电 中国地震台网正式测定：5月23日11时27分在山西大同市云冈区(疑似塌陷)(北纬39.96度，东经113.03度)发生3.2级地震。
+中新网6月16日电 据国防部网站消息，6月16日下午，国防部新闻发言人陈曦大校就近期涉军问题发布消息。 有记者问，“五眼联盟”情报机构称，中国军事情报机构利用网上就业平台招聘西方国家政府工作人员。近日，美方宣布查封13个疑似中国情报部门用来获取信息的互联网域名。请问对此有何评论？ 陈曦表示，这是“五眼联盟”惯用的贼喊捉贼套路。他们反复炒作所谓“中国间谍威胁”，迄今拿不出任何证据
 
 ## 正文
 
-中新网5月23日电 中国地震台网正式测定：5月23日11时27分在山西大同市云冈区(疑似塌陷)(北纬39.96度，东经113.03度)发生3.2级地震。
+中新网6月16日电 据国防部网站消息，6月16日下午，国防部新闻发言人陈曦大校就近期涉军问题发布消息。
+
+有记者问，“五眼联盟”情报机构称，中国军事情报机构利用网上就业平台招聘西方国家政府工作人员。
+
+近日，美方宣布查封13个疑似中国情报部门用来获取信息的互联网域名。
+
+请问对此有何评论？
+
+陈曦表示，这是“五眼联盟”惯用的贼喊捉贼套路。
+
+他们反复炒作所谓“中国间谍威胁”，迄今拿不出任何证据，完全是捕风捉影、别有用心的捏造。
+
+反而是该联盟长期无底线搞间谍窃密活动，已是尽人皆知的事实。
+
+我们要求有关方摒弃冷战思维，停止虚假叙事，回归客观理性的对华政策轨道。
 
 ## 相关推荐
 
-- 2026-06-29 22:31 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 22:29 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 22:17 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 22:13 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 22:26 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 22:15 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 22:29 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 22:35 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 22:19 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 22:19 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 22:31 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 22:32 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 22:14 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 22:35 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 22:16 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 22:21 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 22:13 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 22:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 22:27 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 22:36 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 22:40 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 22:32 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 22:41 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 22:40 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 22:29 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 22:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 22:27 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 22:36 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:06 - [王安宇聪明到导演组炸了](https://www.blog.kurohicncr.top/Article/details/8865030811.shtml)
-- 2026-06-29 22:18 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/216280.shtml)
-- 2026-06-29 22:24 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/5878095.shtml)
-- 2026-06-29 22:06 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/74350.shtml)
-- 2026-06-29 22:10 - [佛得角队长门德斯被控强奸](http://www.blog.minike.top/Article/details/270085046.shtml)
-- 2026-06-29 22:22 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/394068.shtml)
-- 2026-06-29 22:14 - [乌克兰发广告全球征兵](https://www.blog.kurohicncr.top/Article/details/624110253.shtml)
-- 2026-06-29 22:09 - [记者暗访养老机构消防安全](http://www.share.minike.top/Article/details/756293.shtml)
-- 2026-06-29 22:21 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/281117771.shtml)
-- 2026-06-29 22:34 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/40652329806.shtml)
-- 2026-06-29 22:34 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/649995.shtml)
-- 2026-06-29 22:13 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/05818581.shtml)
-- 2026-06-29 22:26 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/704024562.shtml)
-- 2026-06-29 22:11 - [李思潼：不会介意大家夸我运气好](https://www.blog.minike.top/Article/details/04906222187.shtml)
-- 2026-06-29 22:17 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/39451152024.shtml)
+- 2026-06-29 22:21 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/293270.shtml)
+- 2026-06-29 22:41 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/5485388.shtml)
+- 2026-06-29 22:19 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/268413696.shtml)
+- 2026-06-29 22:35 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/686539712.shtml)
+- 2026-06-29 22:28 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/5908053.shtml)
+- 2026-06-29 22:19 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/63902026250.shtml)
+- 2026-06-29 22:31 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/6966293425.shtml)
+- 2026-06-29 22:21 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/702589200.shtml)
+- 2026-06-29 22:22 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/910297135.shtml)
+- 2026-06-29 22:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/2659250534.shtml)
+- 2026-06-29 22:24 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/7298858.shtml)
+- 2026-06-29 22:20 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/970070309.shtml)
+- 2026-06-29 22:14 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/635898891.shtml)
+- 2026-06-29 22:19 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/2980384.shtml)
+- 2026-06-29 22:26 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/47754522935.shtml)

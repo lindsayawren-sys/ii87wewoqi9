@@ -1,55 +1,57 @@
-# 老虎回应遭证监会立案：将严格按照监管要求积极配合相关工作，目前公司各项业务运营正常
+# 全国多地都有“渝见小面”，总数达数十家
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 今日，证监会宣布，对Tiger Brokers （NZ） Limited（以下简称老虎）、富途证券国际（香港）有限公司（以下简称富途）、长桥证券（香港）有限公司（以下简称长桥）境内外相关主体在境内非法经营证券业务等行为立案调查并作出行政处罚事先告知。老虎、富途、长桥境内外相关主体未经核准，未取得经营证券经纪业务许可、经营证券融资
+中新网6月16日电(记者 吴家驹)近日，河南南阳一家“渝见小面”餐饮店被连锁品牌“遇见小面”起诉商标侵权，引发广泛关注。 6月15日，“遇见小面”创始人宋奇公开发文，就“商标风波”致歉。同日，重庆市小面协会就渝见小面被诉发声，称不支持单一企业独家垄断重庆小面。 6月16日，记者查看某餐饮平台发现，除了河南南阳的“渝见小面”，重庆、广州、深圳、长春、新疆库尔勒等全国多地，都有名为
 
 ## 正文
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 今日，证监会宣布，对Tiger Brokers （NZ） Limited（以下简称老虎）、富途证券国际（香港）有限公司（以下简称富途）、长桥证券（香港）有限公司（以下简称长桥）境内外相关主体在境内非法经营证券业务等行为立案调查并作出行政处罚事先告知。
+中新网6月16日电(记者 吴家驹)近日，河南南阳一家“渝见小面”餐饮店被连锁品牌“遇见小面”起诉商标侵权，引发广泛关注。
 
-老虎、富途、长桥境内外相关主体未经核准，未取得经营证券经纪业务许可、经营证券融资融券业务许可，在境内开展证券交易营销推广、处理交易指令等相关证券业务服务并获取相关收益，违反了《证券法》第一百二十条的规定，构成非法经营证券业务。
+6月15日，“遇见小面”创始人宋奇公开发文，就“商标风波”致歉。
 
-此外，三家机构境内外相关主体还违反了《证券投资基金法》第九十七条、《期货和衍生品法》第六十三条的规定，构成非法从事公募基金销售业务、非法从事期货经纪业务。
+同日，重庆市小面协会就渝见小面被诉发声，称不支持单一企业独家垄断重庆小面。
 
-老虎方面回应记者称，“公司已注意到相关通知，将严格按照监管要求积极配合相关工作，目前公司各项业务运营正常。
+6月16日，记者查看某餐饮平台发现，除了河南南阳的“渝见小面”，重庆、广州、深圳、长春、新疆库尔勒等全国多地，都有名为“渝见小面”的餐饮店，总数达到数十家。
 
-老虎始终将合规置于首位，并持续与监管机构保持密切沟通。
+此外，还有不少已歇业关闭的名为“渝见小面”的餐饮店。
 
-”（蓝鲸新闻）责任编辑：石秀珍 SF183
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:32 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 22:17 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 22:13 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 22:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 22:31 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 22:20 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 22:08 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 22:19 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 22:11 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 22:06 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 22:27 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 22:20 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 22:15 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 22:38 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 22:25 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 22:41 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 22:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 22:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 22:25 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 22:20 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 22:20 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 22:26 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 22:24 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 22:28 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 22:32 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 22:16 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 22:35 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 22:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:17 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/44587460.shtml)
-- 2026-06-29 22:21 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/567623344.shtml)
-- 2026-06-29 22:13 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/746680963.shtml)
-- 2026-06-29 22:33 - [欧洲缘何成为变暖最快的大洲](http://www.share.minike.top/Article/details/72092.shtml)
-- 2026-06-29 22:32 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/645096.shtml)
-- 2026-06-29 22:13 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/3205480677.shtml)
-- 2026-06-29 22:20 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/4814785.shtml)
-- 2026-06-29 22:13 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/266043439522.shtml)
-- 2026-06-29 22:31 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/628248067645.shtml)
-- 2026-06-29 22:27 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/71278007.shtml)
-- 2026-06-29 22:08 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/6373243166.shtml)
-- 2026-06-29 22:08 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/2158885.shtml)
-- 2026-06-29 22:29 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/0144368.shtml)
-- 2026-06-29 22:08 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/76048115.shtml)
-- 2026-06-29 22:12 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/64781.shtml)
+- 2026-06-29 22:26 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/9445013286.shtml)
+- 2026-06-29 22:27 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/6660296009.shtml)
+- 2026-06-29 22:23 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/80648377566.shtml)
+- 2026-06-29 22:25 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/9501191651.shtml)
+- 2026-06-29 22:38 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5424333.shtml)
+- 2026-06-29 22:33 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/96251456.shtml)
+- 2026-06-29 22:18 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/690769.shtml)
+- 2026-06-29 22:23 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/5871992781.shtml)
+- 2026-06-29 22:12 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/46466377.shtml)
+- 2026-06-29 22:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/3501362231.shtml)
+- 2026-06-29 22:24 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/64739658146.shtml)
+- 2026-06-29 22:35 - [流金岁月](https://www.share.kurohicncr.top/Article/details/313338822942.shtml)
+- 2026-06-29 22:29 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/4575687.shtml)
+- 2026-06-29 22:21 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/7524423837.shtml)
+- 2026-06-29 22:13 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/19067961.shtml)

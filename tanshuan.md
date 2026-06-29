@@ -1,61 +1,57 @@
-# 2026年海口-柬埔寨文化和旅游交流日启幕
+# 逾30个国家和地区客商赴“中国布鞋之都”觅优质货源
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 21:13 来源：中国新闻网 5月22日，2026年海口-柬埔寨文化和旅游交流日在海口启幕。该活动以文化为纽带、以旅游为桥梁，共绘中柬友好合作新画卷。 现场，柬埔寨经典舞蹈与海南黎族特色舞蹈轮番上演；在市集展区，柬埔寨特色好物琳琅满目，吸引民众购买。 来自柬埔寨的吴丽美(NORIN)目前在海南大学读博，她与好友自发制作柬埔寨特色美食，向大众推介
+中新社河南偃师6月16日电 (阚力 王士豪)来自巴基斯坦、沙特阿拉伯、尼日利亚、韩国等30多个国家和地区的海外客商团16日在“中国布鞋之都”河南省洛阳市偃师区寻找优质鞋品货源。 经过近70年发展，偃师区已有超600家成品鞋生产企业，从业人员近10万人，年产布鞋5亿双，是中国最大的布鞋、纺织面料鞋生产基地，产品远销世界各地。 当日，为期5天的秋冬产销(国际贸易)对接会在偃师举行，
 
 ## 正文
 
-发布时间：2026年05月22日 21:13 来源：中国新闻网 5月22日，2026年海口-柬埔寨文化和旅游交流日在海口启幕。
+中新社河南偃师6月16日电 (阚力 王士豪)来自巴基斯坦、沙特阿拉伯、尼日利亚、韩国等30多个国家和地区的海外客商团16日在“中国布鞋之都”河南省洛阳市偃师区寻找优质鞋品货源。
 
-该活动以文化为纽带、以旅游为桥梁，共绘中柬友好合作新画卷。
+经过近70年发展，偃师区已有超600家成品鞋生产企业，从业人员近10万人，年产布鞋5亿双，是中国最大的布鞋、纺织面料鞋生产基地，产品远销世界各地。
 
-现场，柬埔寨经典舞蹈与海南黎族特色舞蹈轮番上演；在市集展区，柬埔寨特色好物琳琅满目，吸引民众购买。
+当日，为期5天的秋冬产销(国际贸易)对接会在偃师举行，巴基斯坦客商伊姆兰·扎法尔随客商团参会。
 
-来自柬埔寨的吴丽美(NORIN)目前在海南大学读博，她与好友自发制作柬埔寨特色美食，向大众推介家乡风土人情，增进彼此情谊。
+展区前，他货比三家当场选定多款布鞋，“这里款式多样、设计时尚，特别是现代化一体飞织工艺令人眼前一亮，我计划定20万元人民币的货”。
 
-来自柬埔寨的卢雨明借助活动推介咖啡、胡椒等本土产品。
+参展的偃师区双龙制鞋厂总经理李志刚长期与韩国客户保持合作，主打纽扣鞋品。
 
-他希望让海南民众感受本国特色好物，若市场反响良好，未来计划进驻海南开设门店，让当地消费者能够选购柬埔寨特色商品。
+近几年他又开发针对非洲市场的飞织鞋品，“我们八成产品都出口了，不同国家和地区对鞋类产品需求各不相同”。
 
-海口市委常委、副市长仝贵婵表示，海口与柬埔寨地缘相近、人缘相亲、文缘相通，交流合作基础扎实、成果丰硕。
+偃师区工业信息化和商务局局长吉向辉现场介绍，去年当地该产业产值达127亿元，在印度尼西亚获得整鞋订单，在越南承接鞋面订单。
 
-本次活动由柬埔寨王国旅游部、海口市外事办公室、柬埔寨王国驻海口总领事馆联合主办。
+目前，亚洲市场偏好轻便舒适的鞋品，加拿大、德国等市场则对保健鞋、功能鞋需求较大。
 
 ## 相关推荐
 
-- 2026-06-29 22:32 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 22:12 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 22:09 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 22:07 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 22:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 22:28 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 22:24 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 22:15 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 22:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 22:35 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 22:13 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 22:18 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 22:36 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 22:21 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 22:09 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 22:40 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 22:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 22:32 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 22:35 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 22:29 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 22:33 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 22:40 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 22:29 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 22:18 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 22:27 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 22:13 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:06 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/12428082.shtml)
-- 2026-06-29 22:07 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/656936.shtml)
-- 2026-06-29 22:24 - [极限挑战第一季](https://www.blog.minike.top/Article/details/4848449668.shtml)
-- 2026-06-29 22:21 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/316244725.shtml)
-- 2026-06-29 22:26 - [AI接过张雪峰志愿填报衣钵](https://www.blog.kurohicncr.top/Article/details/54263.shtml)
-- 2026-06-29 22:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/435822159822.shtml)
-- 2026-06-29 22:22 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.minike.top/Article/details/7079793751.shtml)
-- 2026-06-29 22:09 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/16926214.shtml)
-- 2026-06-29 22:07 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/928826720.shtml)
-- 2026-06-29 22:10 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/5847433.shtml)
-- 2026-06-29 22:33 - [东方风云榜直播](http://www.share.minike.top/Article/details/273770250511.shtml)
-- 2026-06-29 22:11 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/252655206395.shtml)
-- 2026-06-29 22:07 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/007514.shtml)
-- 2026-06-29 22:10 - [杨德龙：创新药迎来新的发展机遇](https://www.share.minike.top/Article/details/092884.shtml)
-- 2026-06-29 22:27 - [扬名立万](http://www.share.minike.top/Article/details/91708078.shtml)
+- 2026-06-29 22:34 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/76788991299.shtml)
+- 2026-06-29 22:26 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/6873058.shtml)
+- 2026-06-29 22:27 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/087482434.shtml)
+- 2026-06-29 22:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/45223.shtml)
+- 2026-06-29 22:39 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/35069.shtml)
+- 2026-06-29 22:30 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/4775262497.shtml)
+- 2026-06-29 22:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/159783930048.shtml)
+- 2026-06-29 22:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/298940.shtml)
+- 2026-06-29 22:20 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/51304.shtml)
+- 2026-06-29 22:36 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/68380136020.shtml)
+- 2026-06-29 22:13 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/13167.shtml)
+- 2026-06-29 22:24 - [周生如故](http://www.blog.kurohicncr.top/Article/details/293730.shtml)
+- 2026-06-29 22:41 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/7866331282.shtml)
+- 2026-06-29 22:21 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/56739717342.shtml)
+- 2026-06-29 22:16 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/79142125.shtml)

@@ -1,59 +1,58 @@
-# 全国大学生讲解大会太原开幕：以青年之声诠释“美丽中国”
+# 科技上行速度或加快！半导体爆发，科创芯片ETF大涨近6%！科技ETF、电子ETF携手涨超4%！集体创新高！
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网太原5月22日电 (记者 杨静)2026(第三届)全国大学生讲解大会22日在山西传媒学院开幕。本届大会以“美丽中国 我来解说”为主题，吸引全国228所院校报送2200余部作品，并吸引外籍选手参与。 开幕式上，山西传媒学院党委副书记、副校长周建新，播音主持学院院长宋常云先后致辞，阐释了新时代语言传播、文化讲述的重要意义，鼓励青年学子锤炼专业能力、勇担文化传播使命。 开幕式文
+今日（6月17日）A股主要指数悉数上涨，沪指站上4100点，创业板指、深证成指放量涨超1%，科技成长风格明显占优。覆盖创业板+科创板高成长龙头的硬科技宽基——双创50ETF华宝（588330）场内价格大涨3.26%逼近前高。沪深京三市成交额3.11万亿元，较昨日放量278亿元。 盘面上，半导体产业链全线爆发，盛美上海20CM涨停，全“芯”布局芯片产业的科创芯片ETF华宝（589
 
 ## 正文
 
-中新网太原5月22日电 (记者 杨静)2026(第三届)全国大学生讲解大会22日在山西传媒学院开幕。
+今日（6月17日）A股主要指数悉数上涨，沪指站上4100点，创业板指、深证成指放量涨超1%，科技成长风格明显占优。
 
-本届大会以“美丽中国 我来解说”为主题，吸引全国228所院校报送2200余部作品，并吸引外籍选手参与。
+覆盖创业板+科创板高成长龙头的硬科技宽基——双创50ETF华宝（588330）场内价格大涨3.26%逼近前高。
 
-开幕式上，山西传媒学院党委副书记、副校长周建新，播音主持学院院长宋常云先后致辞，阐释了新时代语言传播、文化讲述的重要意义，鼓励青年学子锤炼专业能力、勇担文化传播使命。
+沪深京三市成交额3.11万亿元，较昨日放量278亿元。
 
-开幕式文艺展演精彩纷呈。
+盘面上，半导体产业链全线爆发，盛美上海20CM涨停，全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格强势拉升5.98%，刷新上市高点；PCB、存储芯片、半导体设备等概念多重共振，科技ETF华宝（515000）、电子ETF华宝（515260）携手涨超4%，双双创历史新高！
 
-山西传媒学院舞蹈团、朗诵艺术团、悟空配音工作室等多个教学实践平台联袂呈现歌舞、原创朗诵、创意配音、集体诵读等节目。
+上周五以来券商板块迎来连续上涨，吸引市场目光，关于“券商补涨”的讨论再起。
 
-歌舞《向快乐出发》、原创朗诵《两根棍子》、创意配音《群“音”荟萃》、群诵《这里是山西》等节目展示了语言艺术魅力与青年风采。
+规模374亿元+的顶流券商ETF华宝（512000）此前日线3连阳后，今日场内震荡收平。
 
-据介绍，本届大会共收到来自全国29个省、自治区、直辖市及澳门特别行政区228所院校的2200余部作品，覆盖面广、反响热烈。
+基金经理丰晨成表示，“双背离”（行情走势与市场交投热度背离、基本面与估值背离）构筑性价比，估值修复行情有望继续。
 
-同时吸引外籍选手参与，呈现多元开放的国际化交流特质。
+创历史新高！
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 22:13 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 22:34 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 22:31 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 22:24 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 22:21 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 22:22 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 22:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 22:12 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 22:11 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 22:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 22:22 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 22:20 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 22:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 22:31 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 22:37 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 22:18 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 22:26 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 22:30 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 22:20 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 22:37 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 22:41 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 22:29 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 22:35 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 22:18 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:20 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/927684274.shtml)
-- 2026-06-29 22:21 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/82442052600.shtml)
-- 2026-06-29 22:22 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/812691.shtml)
-- 2026-06-29 22:12 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/694222415.shtml)
-- 2026-06-29 22:13 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/221585652436.shtml)
-- 2026-06-29 22:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/046548593863.shtml)
-- 2026-06-29 22:24 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/79323935.shtml)
-- 2026-06-29 22:16 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/287940.shtml)
-- 2026-06-29 22:11 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/4201195.shtml)
-- 2026-06-29 22:10 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/708906.shtml)
-- 2026-06-29 22:17 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/29583055.shtml)
-- 2026-06-29 22:25 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/20683877292.shtml)
-- 2026-06-29 22:35 - [委内瑞拉发生余震](http://www.share.minike.top/Article/details/6021023577.shtml)
-- 2026-06-29 22:35 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/349635353250.shtml)
-- 2026-06-29 22:15 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/5302366.shtml)
+- 2026-06-29 22:16 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/049666998.shtml)
+- 2026-06-29 22:12 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/875774707.shtml)
+- 2026-06-29 22:37 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/35163537000.shtml)
+- 2026-06-29 22:34 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/1377403.shtml)
+- 2026-06-29 22:20 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/17469982339.shtml)
+- 2026-06-29 22:16 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/529103885.shtml)
+- 2026-06-29 22:38 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/85451153.shtml)
+- 2026-06-29 22:37 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/042916999.shtml)
+- 2026-06-29 22:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/9524584146.shtml)
+- 2026-06-29 22:14 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/26814239.shtml)
+- 2026-06-29 22:31 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/869694040414.shtml)
+- 2026-06-29 22:23 - [货车司机恶意闯卡逃费被行拘](http://www.share.minike.top/Article/details/3879327721.shtml)
+- 2026-06-29 22:26 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/57736490155.shtml)
+- 2026-06-29 22:26 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/3796994977.shtml)
+- 2026-06-29 22:31 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/05958560.shtml)

@@ -1,52 +1,59 @@
-# 新加坡上调2026年出口增长预测
+# 【氯碱半年报】存量的矛盾如何解决？
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-新加坡上调了2026年非石油国内出口的预测，理由是人工智能（AI）需求具有韧性，但同时警示了中东冲突持续和贸易摩擦可能带来的风险。新加坡企业发展局（Enterprise Singapore）周一表示，该国今年非石油国内出口（NODX）预计将增长3.0%至5.0%，高于此前预测的2.0%至4.0%。该机构将上调预测归因于强劲的AI相关需求，称这支撑了全球经济。此外，关税带来的拖累
+紫金天风期货研究所 PVC核心观点 【上半年回顾】 供应端：一季度高供应，二季度受检修叠加乙烯等因素影响整体开工持续走低。上半年产量约1214万吨，同比增2.01%。海外部分企业受不可抗力影响降负荷。 需求端：上半年内需约981万吨，同比降2.58%，1-4月出口170.2万吨，增27.33%。整体看内需较弱，外需缓解部分国内压力。但冲突结束之后，海外装置回归，出口将继续受到退
 
 ## 正文
 
-新加坡上调了2026年非石油国内出口的预测，理由是人工智能（AI）需求具有韧性，但同时警示了中东冲突持续和贸易摩擦可能带来的风险。
+紫金天风期货研究所 PVC核心观点 【上半年回顾】 供应端：一季度高供应，二季度受检修叠加乙烯等因素影响整体开工持续走低。
 
-新加坡企业发展局（Enterprise Singapore）周一表示，该国今年非石油国内出口（NODX）预计将增长3.0%至5.0%，高于此前预测的2.0%至4.0%。
+上半年产量约1214万吨，同比增2.01%。
 
-该机构将上调预测归因于强劲的AI相关需求，称这支撑了全球经济。
+海外部分企业受不可抗力影响降负荷。
 
-此外，关税带来的拖累小于预期，也对贸易额构成了支持。
+需求端：上半年内需约981万吨，同比降2.58%，1-4月出口170.2万吨，增27.33%。
 
-责任编辑：王永生
+整体看内需较弱，外需缓解部分国内压力。
+
+但冲突结束之后，海外装置回归，出口将继续受到退税取消的影响。
+
+库存端：春节后上游及社会库存因抢出口及检修去化，但整体库存依然高位。
+
+盘面：上半年过山车式行情，海外冲突导致暴涨，随后回归基本面。
 
 ## 相关推荐
 
-- 2026-06-29 22:09 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 22:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 22:08 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 22:25 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 22:20 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-29 22:30 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 22:15 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 22:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 22:34 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 22:12 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 22:09 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 22:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 22:28 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 22:17 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 22:39 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 22:18 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 22:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 22:23 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 22:28 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 22:24 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 22:28 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 22:19 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 22:32 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 22:36 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 22:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:21 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/06595.shtml)
-- 2026-06-29 22:07 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/5247364120.shtml)
-- 2026-06-29 22:26 - [金刚川](https://www.share.kurohicncr.top/Article/details/631836648199.shtml)
-- 2026-06-29 22:19 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/067216580.shtml)
-- 2026-06-29 22:09 - [急先锋](https://www.blog.kurohicncr.top/Article/details/77644082494.shtml)
-- 2026-06-29 22:07 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/961082.shtml)
-- 2026-06-29 22:35 - [金鹰奖第二阶段投票明日开启](https://www.share.minike.top/Article/details/21417348.shtml)
-- 2026-06-29 22:34 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/5623710.shtml)
-- 2026-06-29 22:27 - [记者：预计热火将追求小哈达威和康利](https://www.blog.kurohicncr.top/Article/details/95194326.shtml)
-- 2026-06-29 22:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/21875.shtml)
-- 2026-06-29 22:23 - [金刚川](https://www.blog.minike.top/Article/details/92959123.shtml)
-- 2026-06-29 22:15 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/34492884.shtml)
-- 2026-06-29 22:34 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/729845530.shtml)
-- 2026-06-29 22:25 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/93426.shtml)
-- 2026-06-29 22:34 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/789793823432.shtml)
+- 2026-06-29 22:20 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/12363048248.shtml)
+- 2026-06-29 22:37 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/30011636.shtml)
+- 2026-06-29 22:41 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/1407293.shtml)
+- 2026-06-29 22:39 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/486489943.shtml)
+- 2026-06-29 22:38 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.kurohicncr.top/Article/details/175718.shtml)
+- 2026-06-29 22:13 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/26180.shtml)
+- 2026-06-29 22:21 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/433679653.shtml)
+- 2026-06-29 22:34 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/616848717.shtml)
+- 2026-06-29 22:13 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/4039558.shtml)
+- 2026-06-29 22:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/21070971.shtml)
+- 2026-06-29 22:13 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/4456371407.shtml)
+- 2026-06-29 22:19 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/704878.shtml)
+- 2026-06-29 22:37 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/8959533.shtml)
+- 2026-06-29 22:23 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.kurohicncr.top/Article/details/55065.shtml)
+- 2026-06-29 22:34 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/07227084564.shtml)

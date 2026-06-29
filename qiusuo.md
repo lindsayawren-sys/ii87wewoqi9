@@ -1,61 +1,59 @@
-# 美国股市：标普500指数连续第八周上涨 AI热潮与中东缓和预期提振
+# 产能持续恢复中！甲醇库存拐点出现了？
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-美国股市在长周末假期前录得上涨，受市场预期中东紧张局势有望缓和以及人工智能相关交易持续高涨的提振。 标普500指数收涨0.4%，连续第八周上涨，创2023年以来最长连涨。 纳斯达克100指数上涨0.2%，交易员继续涌入人工智能（AI）受益股及更广泛的科技主题板块。 VIX波动率指数徘徊在2月初以来最低水平附近，表明尽管伊朗冲突前景存在不确定性，市场情绪依然平稳。 股票投资者基本
+作者：胡欣/F0299540、Z0012133/ 一德期货能源化工分析师 要点速览版 基本面 供给端：伊朗货源恢复，进口预期大幅上修； 需求端：沿海MTO重启缓慢，传统下游低迷； 库存端：拐点将至，止跌回升为大概率方向。 关注点 油价回调带来的化工品估值修复、海峡通航落地、甲醇供需再平衡。 本周初，美国总统特朗普称美伊达成临时和谈协议，美国海军解除对伊朗的封锁，霍尔木兹海峡恢复
 
 ## 正文
 
-美国股市在长周末假期前录得上涨，受市场预期中东紧张局势有望缓和以及人工智能相关交易持续高涨的提振。
+作者：胡欣/F0299540、Z0012133/ 一德期货能源化工分析师 要点速览版 基本面 供给端：伊朗货源恢复，进口预期大幅上修； 需求端：沿海MTO重启缓慢，传统下游低迷； 库存端：拐点将至，止跌回升为大概率方向。
 
-标普500指数收涨0.4%，连续第八周上涨，创2023年以来最长连涨。
+关注点 油价回调带来的化工品估值修复、海峡通航落地、甲醇供需再平衡。
 
-纳斯达克100指数上涨0.2%，交易员继续涌入人工智能（AI）受益股及更广泛的科技主题板块。
+本周初，美国总统特朗普称美伊达成临时和谈协议，美国海军解除对伊朗的封锁，霍尔木兹海峡恢复通行。
 
-VIX波动率指数徘徊在2月初以来最低水平附近，表明尽管伊朗冲突前景存在不确定性，市场情绪依然平稳。
+受此影响，中东地缘溢价大幅下降，原油及多数化工品承压回落，甲醇也同样走出明显的下跌行情。
 
-股票投资者基本无视能源供应受扰可能重新推高通胀的担忧，而是更关注经济韧性迹象，以及AI相关支出在美国企业界持续扩大的趋势。
+地缘方面 随着谅解备忘录细节的披露以及各方表态的逐渐趋同，目前看美伊达成和谈的预期愈发稳固，双方预计本周五（6月19日）在瑞士正式签署临时协议。
 
-Piper Sandler期权业务主管Daniel Kirsch表示，AI交易“仍受到青睐，投资者关注增长，而不是担忧通胀压力”。
+此外，美国将允许伊朗恢复石油和燃料出口，据报道已有多艘伊朗船只顺利通过美方海上封锁区，这是自美国今年4月实施海上封锁以来首次出现此类情况，中东地缘风险持续下降中。
 
-与Anthropic生态系统相关的一篮子股票自3月初以来已上涨逾50%。
+供给方面 目前甲醇国内开工处于高位水平，尽管后期内地个别装置有检修计划，但整体影响有限。
 
-科技硬件和服务器公司股价延续近期涨势，投资者继续看好AI对该板块的强力推动。
+伊朗上周末陆续重启3套装置，目前伊朗国内已有超7成甲醇产能恢复生产。
 
 ## 相关推荐
 
-- 2026-06-29 22:19 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 22:18 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 22:14 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 22:14 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 22:09 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 22:23 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 22:15 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 22:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 22:26 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 22:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 22:16 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 22:06 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 22:25 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 22:07 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 22:30 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 22:19 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 22:40 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 22:13 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 22:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 22:37 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 22:38 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 22:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 22:38 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 22:31 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 22:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 22:22 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 22:39 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 22:21 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:24 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/939539101810.shtml)
-- 2026-06-29 22:36 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/64949729008.shtml)
-- 2026-06-29 22:29 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/756255054.shtml)
-- 2026-06-29 22:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/5923890275.shtml)
-- 2026-06-29 22:18 - [一见倾心](https://www.share.minike.top/Article/details/16139172.shtml)
-- 2026-06-29 22:06 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/21820109144.shtml)
-- 2026-06-29 22:18 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/454524387079.shtml)
-- 2026-06-29 22:35 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/3697360.shtml)
-- 2026-06-29 22:19 - [英法德葡存在什么隐患](http://www.share.minike.top/Article/details/7450012398.shtml)
-- 2026-06-29 22:09 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/887301759.shtml)
-- 2026-06-29 22:31 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/737487823162.shtml)
-- 2026-06-29 22:26 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/7312367000.shtml)
-- 2026-06-29 22:14 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/912717891892.shtml)
-- 2026-06-29 22:28 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/42115953980.shtml)
-- 2026-06-29 22:17 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/890950985.shtml)
+- 2026-06-29 22:23 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/39402943437.shtml)
+- 2026-06-29 22:14 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/293170431.shtml)
+- 2026-06-29 22:35 - [店员光脚踩入盆中清洗土豆](https://www.blog.minike.top/Article/details/79118303.shtml)
+- 2026-06-29 22:17 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/630239669718.shtml)
+- 2026-06-29 22:28 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/039569.shtml)
+- 2026-06-29 22:33 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/504869.shtml)
+- 2026-06-29 22:13 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/28321772.shtml)
+- 2026-06-29 22:22 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/429024667.shtml)
+- 2026-06-29 22:14 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/17118630532.shtml)
+- 2026-06-29 22:34 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/99604429050.shtml)
+- 2026-06-29 22:32 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/1224361.shtml)
+- 2026-06-29 22:32 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/182120.shtml)
+- 2026-06-29 22:28 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/9608031.shtml)
+- 2026-06-29 22:38 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/3090595788.shtml)
+- 2026-06-29 22:36 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/750582.shtml)

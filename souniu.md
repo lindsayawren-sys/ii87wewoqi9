@@ -1,60 +1,50 @@
-# AI正重塑出版业 业界专家建言加快数智化赋能
+# 旭日企业获董事长杨振鑫增持3.60万股 每股作价约1.36港元
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网深圳5月22日电 (记者 程景伟)2026文化强国建设高峰论坛出版融合发展论坛22日在深圳举办。与会业界专家指出，出版业发展处在业态分化、产业重塑的关口，要强化科技引领，找准技术革新与出版创新的结合点，加快出版业数智化赋能、信息化转型。 近年来，我国出版融合发展业务规模快速增长，涌现出一批标杆单位、精品项目、成熟模式。此次论坛通过主题演讲、专题对谈等方式，围绕出版融合发展
+香港联交所最新数据显示，6月15日，董事长杨振鑫增持旭日企业（00393）3.60万股，每股作价1.3600港元，总金额约为4.90万港元。增持后最新持股数目约为9.60亿股，持股比例为64.03%。责任编辑：卢昱君
 
 ## 正文
 
-中新网深圳5月22日电 (记者 程景伟)2026文化强国建设高峰论坛出版融合发展论坛22日在深圳举办。
+香港联交所最新数据显示，6月15日，董事长杨振鑫增持旭日企业（00393）3.60万股，每股作价1.3600港元，总金额约为4.90万港元。
 
-与会业界专家指出，出版业发展处在业态分化、产业重塑的关口，要强化科技引领，找准技术革新与出版创新的结合点，加快出版业数智化赋能、信息化转型。
+增持后最新持股数目约为9.60亿股，持股比例为64.03%。
 
-近年来，我国出版融合发展业务规模快速增长，涌现出一批标杆单位、精品项目、成熟模式。
-
-此次论坛通过主题演讲、专题对谈等方式，围绕出版融合发展相关的组织变革、技术赋能、人才培养、业态重塑等议题进行深度研讨。
-
-“当下，数智浪潮奔涌而来，人工智能与大数据正深度重塑出版业，深度融合发展已成为一道必须答好的时代命题。
-
-”人民教育出版社党委书记、社长孙强表示，人教社立足音像数字融合成果，推动纸数教材研究、编写、出版、发行相融相通。
-
-以人教版第十二套义务教育教材立体化建设为抓手，强化融合项目管理，建立“产品、内容、技术”深度绑定的协作机制，充分发挥学科编辑室内容研发优势、音数公司产品技术优势，实现纸质教材与数字资源一体规划、同步开发、精准适配，打造多模态融合出版模式，推动纸数教材从简单叠加走向深度融合。
-
-“十五五”时期，人教社将全面实施数智赋能教育出版战略，纵深推进组织体系优化与业务板块整合，构建适应人工智能时代的出版协同新机制。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:33 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 22:11 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 22:32 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 22:33 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 22:17 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 22:21 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-29 22:16 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 22:24 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 22:26 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 22:34 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 22:20 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 22:12 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 22:23 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 22:14 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 22:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 22:18 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 22:36 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 22:33 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 22:28 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 22:27 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 22:27 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 22:22 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 22:29 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 22:23 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 22:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 22:33 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 22:23 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 22:36 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:27 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/95561.shtml)
-- 2026-06-29 22:17 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/35588331.shtml)
-- 2026-06-29 22:31 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/3039563312.shtml)
-- 2026-06-29 22:26 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/503793.shtml)
-- 2026-06-29 22:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/510261202.shtml)
-- 2026-06-29 22:33 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/25828.shtml)
-- 2026-06-29 22:14 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/3246502524.shtml)
-- 2026-06-29 22:18 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/8121663631.shtml)
-- 2026-06-29 22:35 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/600398199254.shtml)
-- 2026-06-29 22:24 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/86888015996.shtml)
-- 2026-06-29 22:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/79913041340.shtml)
-- 2026-06-29 22:15 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/2260149.shtml)
-- 2026-06-29 22:28 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/731811.shtml)
-- 2026-06-29 22:33 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/486538834.shtml)
-- 2026-06-29 22:20 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/61135004.shtml)
+- 2026-06-29 22:23 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/868461033146.shtml)
+- 2026-06-29 22:30 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/4002833097.shtml)
+- 2026-06-29 22:13 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/34854178730.shtml)
+- 2026-06-29 22:19 - [国际清算银行警告AI投资热潮](https://www.share.minike.top/Article/details/12069990286.shtml)
+- 2026-06-29 22:25 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/991235765853.shtml)
+- 2026-06-29 22:36 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/938859949.shtml)
+- 2026-06-29 22:40 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/48757784952.shtml)
+- 2026-06-29 22:15 - [回顾世界杯争议事件](http://www.blog.minike.top/Article/details/464407720.shtml)
+- 2026-06-29 22:27 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/282865790.shtml)
+- 2026-06-29 22:34 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/70259.shtml)
+- 2026-06-29 22:19 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/1217412.shtml)
+- 2026-06-29 22:41 - [锐评T1零封KC](https://www.share.minike.top/Article/details/100353696.shtml)
+- 2026-06-29 22:27 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/38291161.shtml)
+- 2026-06-29 22:35 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/3779884.shtml)
+- 2026-06-29 22:17 - [《贺子珍》](http://www.share.minike.top/Article/details/295983.shtml)

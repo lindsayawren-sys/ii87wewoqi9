@@ -1,61 +1,42 @@
-# 风电审批停滞，危及美国五百亿美元开发项目
+# 联合国儿童基金会发布报告 气候灾害几乎影响到全球所有儿童
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-某行业协会表示，特朗普政府实质上暂停陆上风电新项目审批，致使约500亿美元风电投资、15万个就业岗位面临风险。 美国清洁能源协会文件显示，美国国防部搁置约130个风电拟建项目，相关投资陷入停滞。这些项目建成后发电量可满足2000万户美国家庭用电需求。 文件指出，大力发展可再生能源的得克萨斯州包揽四分之一拟建项目，项目总价值约110亿美元。 文件显示，国防部已停止向联邦航空管理局
+发布时间：2026年06月17日 14:25 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-某行业协会表示，特朗普政府实质上暂停陆上风电新项目审批，致使约500亿美元风电投资、15万个就业岗位面临风险。
-
-美国清洁能源协会文件显示，美国国防部搁置约130个风电拟建项目，相关投资陷入停滞。
-
-这些项目建成后发电量可满足2000万户美国家庭用电需求。
-
-文件指出，大力发展可再生能源的得克萨斯州包揽四分之一拟建项目，项目总价值约110亿美元。
-
-文件显示，国防部已停止向联邦航空管理局（FAA）发送风电项目的审查结论；而项目要推进，必须先获得FAA的审批意见。
-
-这一审批堵点导致尚未取得FAA“无危害认定书”的新建陆上风电项目全部停滞不前。
-
-延误不断加剧，表明特朗普政府对风电项目的打压已开辟新战线——特朗普曾放言，在其任期内绝不允许新装任何风机。
-
-责任编辑：何云
+发布时间：2026年06月17日 14:25 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 22:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 22:32 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 22:06 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 22:12 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 22:13 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 22:21 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 22:16 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 22:31 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 22:23 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 22:19 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 22:20 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 22:10 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 22:10 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 22:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 22:12 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 22:18 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 22:33 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 22:38 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 22:40 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 22:18 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 22:18 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 22:38 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 22:29 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 22:19 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:08 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/966521429.shtml)
-- 2026-06-29 22:07 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/80905148883.shtml)
-- 2026-06-29 22:32 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/03938.shtml)
-- 2026-06-29 22:29 - [金牌调解](https://www.blog.minike.top/Article/details/11456283.shtml)
-- 2026-06-29 22:13 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/534454.shtml)
-- 2026-06-29 22:30 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/70769648.shtml)
-- 2026-06-29 22:08 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/6446599952.shtml)
-- 2026-06-29 22:15 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/287313567.shtml)
-- 2026-06-29 22:31 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/606343.shtml)
-- 2026-06-29 22:08 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/964922553.shtml)
-- 2026-06-29 22:16 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/3538217.shtml)
-- 2026-06-29 22:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/771219121.shtml)
-- 2026-06-29 22:30 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/114424947230.shtml)
-- 2026-06-29 22:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/75636998.shtml)
-- 2026-06-29 22:25 - [田曦薇没招了](https://www.share.minike.top/Article/details/311643.shtml)
+- 2026-06-29 22:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/99263.shtml)
+- 2026-06-29 22:38 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/3777456.shtml)
+- 2026-06-29 22:33 - [佛得角队长门德斯被控强奸](https://www.share.minike.top/Article/details/4446911.shtml)
+- 2026-06-29 22:20 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/006431314.shtml)
+- 2026-06-29 22:14 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/60303861.shtml)
+- 2026-06-29 22:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/78256.shtml)
+- 2026-06-29 22:33 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/595354.shtml)
+- 2026-06-29 22:24 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/7508285.shtml)
+- 2026-06-29 22:37 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/03758788324.shtml)
+- 2026-06-29 22:14 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/82030048.shtml)
+- 2026-06-29 22:26 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/91659993.shtml)
+- 2026-06-29 22:27 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/80009.shtml)
+- 2026-06-29 22:27 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/656696306.shtml)
+- 2026-06-29 22:12 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/190923.shtml)
+- 2026-06-29 22:39 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/816771524518.shtml)

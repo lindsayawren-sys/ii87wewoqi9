@@ -1,60 +1,59 @@
-# 泡泡玛特的“时间价值”：段永平为何持续押注潮玩赛道？
+# 光大期货0617黄金点评：金价延续偏强震荡，关注今晚FOMC议息
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-来源：@证券市场红周刊微博文丨谢长艳 编辑丨张桔近日，潮玩龙头泡泡玛特（09992.HK）发布了今年一季报：财报显示,公司整体收益（未经审核）同比增长75%至80%，尤其中国市场增长强劲，收益同比增长100%—105%，线上渠道增速高达150%—155%。对比来看，海外市场进入深度调整期，美洲地区同比增长55%—60%，欧洲及其他地区同比增长60%—65%，亚太地区同比增长25
+6月16日，COMEX黄金高位震荡，报收4353.0美元/盎司，涨幅0.03%。国内SHFE金夜盘高开，但继续冲高动能有限，报收944.76元/克，跌幅0.06%。 昨日日本央行宣布将基准利率上调25个基点至1%，达到1995年以来最高水平，并宣布将于2027年4月起暂停缩减国债购买规模，因本次加息市场此前已有预期，金融市场反馈平淡，对金价冲击程度有限。 地缘方面，有媒体指出美
 
 ## 正文
 
-来源：@证券市场红周刊微博文丨谢长艳 编辑丨张桔近日，潮玩龙头泡泡玛特（09992.HK）发布了今年一季报：财报显示,公司整体收益（未经审核）同比增长75%至80%，尤其中国市场增长强劲，收益同比增长100%—105%，线上渠道增速高达150%—155%。
+6月16日，COMEX黄金高位震荡，报收4353.0美元/盎司，涨幅0.03%。
 
-对比来看，海外市场进入深度调整期，美洲地区同比增长55%—60%，欧洲及其他地区同比增长60%—65%，亚太地区同比增长25%—30%，环比去年四季度业绩出现下降。
+国内SHFE金夜盘高开，但继续冲高动能有限，报收944.76元/克，跌幅0.06%。
 
-对此，市场担心二季度起在高基数效应下，海外市场收入压力加大。
+昨日日本央行宣布将基准利率上调25个基点至1%，达到1995年以来最高水平，并宣布将于2027年4月起暂停缩减国债购买规模，因本次加息市场此前已有预期，金融市场反馈平淡，对金价冲击程度有限。
 
-在此次股东会上，泡泡玛特的高管表示，希望投资者不要太放大短期业绩波动，潮水退去才见真实力。
+地缘方面，有媒体指出美伊将于19日签署协议，届时霍尔木兹海峡将全面重开，特朗普表示美国接下来将把重心转向俄乌问题。
 
-特别是中国的潮玩市场仍在增长，越来越多的人认可情绪价值并愿意买单，整体市场的增长潜力非常大，IP潮玩龙头还有很大增长空间。
+美伊谈判取得突破性进展，后期关注霍尔木兹海峡通航问题，对黄金而言，随着油价下行，通胀预期回落，联储政策或不再激进鹰派，相对偏乐观。
 
-高于全球水平中国潮玩市场高速增长毕马威发布的《情绪新宠，生态建构——潮玩行业全景洞察与趋势展望报告》中提到，中国经济正在完成从投资驱动向消费驱动的增长模式转型。
+近两日市场关注焦点或放在美联储6月FOMC决议，作为沃什首秀市场关心点在于点阵图如何调整与新主席表述，对黄金市场来说前后或有异动，但市场前期已有定价的情况下，并不悲观看待。
 
-依托宏观经济转型升级的有利契机，潮玩产业这一融合艺术审美、文化符号与情感价值的新型消费形态，正加速重构当代文化产业经济图景。
+短期关注金价能否持续反弹，给市场注入更多信心。
 
-而随着Z世代消费群体的崛起，潮玩产品已突破亚文化圈层壁垒，形成覆盖全年龄段的大众消费市场，成为观察消费升级、文化创新与产业变革的关键观测点。
+资料来源：Wind、光大期货研究所 撰稿：史玥明 从业资格：F03097365 交易咨询资格：Z0017563 免责声明：本报告的信息均来源于公开资料，我公司对这些信息的准确性、可靠性和完整性不作任何保证，也不保证所包含的信息和建议不会发生任何变更。
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 22:28 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 22:10 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 22:11 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 22:24 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 22:13 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 22:16 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 22:09 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 22:10 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 22:18 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 22:13 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 22:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 22:10 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 22:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 22:31 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 22:25 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 22:20 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 22:14 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 22:41 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 22:17 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 22:17 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 22:26 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 22:39 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 22:27 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 22:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 22:28 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 22:23 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:33 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/48724.shtml)
-- 2026-06-29 22:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/91903240565.shtml)
-- 2026-06-29 22:21 - [流金岁月](https://www.share.kurohicncr.top/Article/details/232204.shtml)
-- 2026-06-29 22:35 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/8415562763.shtml)
-- 2026-06-29 22:32 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/50587.shtml)
-- 2026-06-29 22:22 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/990054990463.shtml)
-- 2026-06-29 22:09 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/5503989972.shtml)
-- 2026-06-29 22:36 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/7292231.shtml)
-- 2026-06-29 22:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/63242836137.shtml)
-- 2026-06-29 22:31 - [扫黑风暴](https://www.share.minike.top/Article/details/852162.shtml)
-- 2026-06-29 22:27 - [请回答王牌2019](https://www.share.minike.top/Article/details/73336.shtml)
-- 2026-06-29 22:34 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/47820.shtml)
-- 2026-06-29 22:31 - [小娘惹](http://www.blog.minike.top/Article/details/14195576538.shtml)
-- 2026-06-29 22:06 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/704213746.shtml)
-- 2026-06-29 22:19 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/8119130.shtml)
+- 2026-06-29 22:28 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/09970385.shtml)
+- 2026-06-29 22:21 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/693515611.shtml)
+- 2026-06-29 22:25 - [明星大侦探第一季](http://www.share.minike.top/Article/details/6864135983.shtml)
+- 2026-06-29 22:34 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/3533889.shtml)
+- 2026-06-29 22:30 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/336461.shtml)
+- 2026-06-29 22:36 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/04796992804.shtml)
+- 2026-06-29 22:34 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/66820.shtml)
+- 2026-06-29 22:25 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/679758.shtml)
+- 2026-06-29 22:30 - [毒液2](http://www.blog.minike.top/Article/details/488613246155.shtml)
+- 2026-06-29 22:19 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/8688852465.shtml)
+- 2026-06-29 22:39 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/57172.shtml)
+- 2026-06-29 22:31 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/10387047246.shtml)
+- 2026-06-29 22:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/34115.shtml)
+- 2026-06-29 22:19 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/98020.shtml)
+- 2026-06-29 22:20 - [李思潼：不会介意大家夸我运气好](https://www.blog.kurohicncr.top/Article/details/394907.shtml)

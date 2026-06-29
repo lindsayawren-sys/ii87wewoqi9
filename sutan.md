@@ -1,60 +1,59 @@
-# 资本市场防假打假新格局加快形成
+# 一见·学习贯彻这一思想，意义重大而深远
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 ● 本报记者 昝秀丽 近期，多家上市公司因信息披露违法违规被证监会立案，或收到行政处罚决定书。监管部门依法从严从快、全链条追诉、严肃查处一批财务造假、欺诈发行案件，凸显监管部门整肃净化市场环境的坚决态度，起到警示震慑效果。 市场人士认为，随着打击和防范上市公司财务造假专项行动深入推进，跨部门协同机制不断完善，行政、民事、刑事多重
+2026年6月15日，全国党建工作座谈会在京召开。会议指出，习近平党建思想是加强新时代党的建设的根本遵循。 党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一系列新理念新思想新战略，形成习近平党建思想。学习贯彻这一思想，意义重大而深远。 视频：一见·学习贯彻这一思想，意义重大而深远来源：人民
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 ● 本报记者 昝秀丽 近期，多家上市公司因信息披露违法违规被证监会立案，或收到行政处罚决定书。
+2026年6月15日，全国党建工作座谈会在京召开。
 
-监管部门依法从严从快、全链条追诉、严肃查处一批财务造假、欺诈发行案件，凸显监管部门整肃净化市场环境的坚决态度，起到警示震慑效果。
+会议指出，习近平党建思想是加强新时代党的建设的根本遵循。
 
-市场人士认为，随着打击和防范上市公司财务造假专项行动深入推进，跨部门协同机制不断完善，行政、民事、刑事多重惩戒同步发力，多部门正合力围剿“造假生态圈”，“不敢造假、不能造假、不想造假”的市场生态加速形成。
+党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一系列新理念新思想新战略，形成习近平党建思想。
 
-让造假者人财两空 近期，监管部门接连开出罚单，多家上市公司因财务造假被严肃追责，不仅面临巨额罚款，相关责任人也难逃市场禁入乃至刑事追责，真正让造假者“人财两空”。
+学习贯彻这一思想，意义重大而深远。
 
-5月22日，ST如意（维权）及相关当事人收到山东证监局下发的行政处罚决定书。
+视频：一见·学习贯彻这一思想，意义重大而深远来源：人民日报客户端 “关键在党” 今年是“十五五”开局之年，中国式现代化进入了夯实基础、全面发力的关键时期。
 
-因定期报告存在虚假记载，证监会决定对ST如意给予警告并处以700万元罚款，对其他当事人给予不同程度处罚。
+就在“开年第一课”上，习近平总书记强调：“顺利完成‘十五五’时期目标任务，必须着力提高党领导经济社会发展能力和水平。
 
-ST葫芦娃（维权）5月20日收到海南证监局下发的行政处罚事先告知书，因定期报告涉嫌虚假记载，海南证监局拟对ST葫芦娃给予警告，并处以700万元罚款，对其他当事人给予不同程度处罚。
+” 这一重要部署，既是对历史规律的深刻洞察，更是对现实挑战的清醒把握。
 
-严惩欺诈发行，坚决阻断发行上市“带病闯关”。
+中国共产党领导是中国特色社会主义最本质的特征，是中国特色社会主义制度的最大优势。
 
 ## 相关推荐
 
-- 2026-06-29 22:12 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 22:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 22:06 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 22:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 22:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 22:22 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 22:30 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 22:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 22:34 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 22:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 22:22 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 22:07 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 22:06 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 22:32 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 22:12 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 22:36 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 22:41 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 22:21 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 22:14 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 22:27 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 22:37 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 22:31 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 22:17 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 22:13 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 22:41 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 22:20 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 22:28 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:09 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/917592111.shtml)
-- 2026-06-29 22:24 - [小娘惹](https://www.blog.minike.top/Article/details/210767541.shtml)
-- 2026-06-29 22:09 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.kurohicncr.top/Article/details/58108.shtml)
-- 2026-06-29 22:13 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/8982388295.shtml)
-- 2026-06-29 22:19 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/370948815.shtml)
-- 2026-06-29 22:15 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/7654127191.shtml)
-- 2026-06-29 22:24 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/781820014995.shtml)
-- 2026-06-29 22:25 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/459277570.shtml)
-- 2026-06-29 22:15 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/565671.shtml)
-- 2026-06-29 22:28 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/121948223.shtml)
-- 2026-06-29 22:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/55373660.shtml)
-- 2026-06-29 22:06 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/7322880148.shtml)
-- 2026-06-29 22:22 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/728546.shtml)
-- 2026-06-29 22:15 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/6160189.shtml)
-- 2026-06-29 22:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/590201.shtml)
+- 2026-06-29 22:23 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/452547394.shtml)
+- 2026-06-29 22:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/80010149120.shtml)
+- 2026-06-29 22:33 - [送你一朵小红花](https://www.share.minike.top/Article/details/67079011924.shtml)
+- 2026-06-29 22:20 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/160548078.shtml)
+- 2026-06-29 22:22 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/01369596.shtml)
+- 2026-06-29 22:21 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/602451.shtml)
+- 2026-06-29 22:12 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/888349.shtml)
+- 2026-06-29 22:14 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/859128892.shtml)
+- 2026-06-29 22:41 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/9329731604.shtml)
+- 2026-06-29 22:25 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/694017856802.shtml)
+- 2026-06-29 22:13 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/10205.shtml)
+- 2026-06-29 22:35 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/658564.shtml)
+- 2026-06-29 22:38 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/85720613.shtml)
+- 2026-06-29 22:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/432208770802.shtml)
+- 2026-06-29 22:28 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/6491635.shtml)

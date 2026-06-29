@@ -1,61 +1,57 @@
-# 香江观澜：与国家发展同频共振 香港筑梦太空开启新篇章
+# 习近平对常态化做好东西部协作工作作出重要指示
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新社香港5月24日电 题：与国家发展同频共振 香港筑梦太空开启新篇章 中新社记者 香卢平 神舟二十三号载人飞船计划于5月24日晚发射。执行此次载人飞行任务的航天员乘组中，包括来自香港特区的载荷专家黎家盈。 近年来，香港发展蓝图深度对接国家战略，同频共振积极开拓太空经济发展潜能，实现了从“科普交流”到“地面研究”、再到“太空作业”的跨越。 2003年，完成中国首次载人航天飞行任
+原标题：习近平对常态化做好东西部协作工作作出重要指示强调 总结运用闽宁协作等有益经验 不断增强区域发展协调性 推动全体人民共同富裕迈出坚实步伐 新华社北京6月17日电 中共中央总书记、国家主席、中央军委主席习近平近日对常态化做好东西部协作工作作出重要指示指出，东西部协作开展30年来，在助力脱贫攻坚、促进区域协调发展等方面发挥了重要作用，彰显了我们党的政治优势和我国社会主义制度的
 
 ## 正文
 
-中新社香港5月24日电 题：与国家发展同频共振 香港筑梦太空开启新篇章 中新社记者 香卢平 神舟二十三号载人飞船计划于5月24日晚发射。
+原标题：习近平对常态化做好东西部协作工作作出重要指示强调 总结运用闽宁协作等有益经验 不断增强区域发展协调性 推动全体人民共同富裕迈出坚实步伐 新华社北京6月17日电 中共中央总书记、国家主席、中央军委主席习近平近日对常态化做好东西部协作工作作出重要指示指出，东西部协作开展30年来，在助力脱贫攻坚、促进区域协调发展等方面发挥了重要作用，彰显了我们党的政治优势和我国社会主义制度的优越性。
 
-执行此次载人飞行任务的航天员乘组中，包括来自香港特区的载荷专家黎家盈。
+习近平强调，今年是“十五五”开局之年，也是开展常态化帮扶第一年。
 
-近年来，香港发展蓝图深度对接国家战略，同频共振积极开拓太空经济发展潜能，实现了从“科普交流”到“地面研究”、再到“太空作业”的跨越。
+要总结运用闽宁协作等有益经验，进一步完善协作机制，优化协作方式，拓展协作领域，推动东西部产业互补、人员互动、技术互学、观念互通、作风互鉴，实现互利共赢、共同发展。
 
-2003年，完成中国首次载人航天飞行任务的航天员杨利伟来港，掀起香港全城航天热潮。
+各级党委和政府要认真落实常态化帮扶责任，坚决守牢不发生规模性返贫致贫底线，扎实推进乡村全面振兴，不断增强区域发展协调性，推动全体人民共同富裕迈出坚实步伐。
 
-此后，多名航天员接连访港，“航天热”不断升温。
+全国东西部协作工作会议17日在宁夏银川召开。
 
-由香港中学生设计的“太空养蚕”等3项科学实验搭乘神舟十一号载人飞船升空，在天宫二号太空实验室成功完成科学实验。
+会上传达了习近平重要指示。
 
-2023年，香港大学地质学专家团队获得嫦娥五号于2020年采集的月球土壤样品，成为首支对月壤进行研究的香港团队。
+中共中央政治局委员、国务院副总理刘国中出席会议并讲话。
 
-今年5月11日，天舟十号货运飞船成功发射，搭载了香港科技大学牵头研制的探测载荷“天韵相机”，这是香港科研载荷首次在空间站长期运行。
+他强调，习近平总书记的重要指示高屋建瓴、精辟深邃，具有很强的政治性、思想性、指导性，为常态化做好东西部协作提供了根本遵循，必须深入学习领会、坚决贯彻落实。
 
 ## 相关推荐
 
-- 2026-06-29 22:19 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 22:09 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 22:17 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 22:08 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 22:10 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 22:15 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 22:09 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 22:28 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 22:28 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 22:28 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 22:08 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 22:35 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 22:07 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 22:17 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 22:27 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 22:13 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 22:41 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 22:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 22:15 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 22:21 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 22:25 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 22:12 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 22:33 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 22:26 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 22:39 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 22:21 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:30 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/07013128158.shtml)
-- 2026-06-29 22:16 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/650823671.shtml)
-- 2026-06-29 22:22 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/296108.shtml)
-- 2026-06-29 22:13 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/1519577200.shtml)
-- 2026-06-29 22:18 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/501966.shtml)
-- 2026-06-29 22:13 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/301889393095.shtml)
-- 2026-06-29 22:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/160749383636.shtml)
-- 2026-06-29 22:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/09258982.shtml)
-- 2026-06-29 22:31 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/18980.shtml)
-- 2026-06-29 22:28 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/48333959942.shtml)
-- 2026-06-29 22:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/2297872.shtml)
-- 2026-06-29 22:13 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/521314891.shtml)
-- 2026-06-29 22:33 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/3478095.shtml)
-- 2026-06-29 22:27 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/93861.shtml)
-- 2026-06-29 22:28 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/252358.shtml)
+- 2026-06-29 22:37 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/710605283.shtml)
+- 2026-06-29 22:28 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/14751010.shtml)
+- 2026-06-29 22:31 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/548482382368.shtml)
+- 2026-06-29 22:21 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/03535148.shtml)
+- 2026-06-29 22:37 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/4304511.shtml)
+- 2026-06-29 22:39 - [金牌调解](https://www.share.kurohicncr.top/Article/details/941270543820.shtml)
+- 2026-06-29 22:39 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/65615617.shtml)
+- 2026-06-29 22:27 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/50978.shtml)
+- 2026-06-29 22:15 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/408134443.shtml)
+- 2026-06-29 22:35 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/74269.shtml)
+- 2026-06-29 22:12 - [宜宾地震已转移安置225人](http://www.share.minike.top/Article/details/7964677.shtml)
+- 2026-06-29 22:40 - [时光音乐会](http://www.share.minike.top/Article/details/6469863.shtml)
+- 2026-06-29 22:21 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/0158021.shtml)
+- 2026-06-29 22:40 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/99296919.shtml)
+- 2026-06-29 22:39 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/89932.shtml)

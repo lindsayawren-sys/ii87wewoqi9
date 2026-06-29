@@ -1,58 +1,58 @@
-# ATFX:美国和伊朗谈判迎曙光 美原油应声大跌
+# 随着“美国例外论”交易逻辑重现，投资者纷纷大举押注美元上涨
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 5月22日，隔夜，关于美国和伊朗的谈判消息密集更新，但其中不乏相互矛盾的内容。 北京时间凌晨1：00左右，阿拉伯媒体报道，美国和伊朗的协议草案已经达成，数小时后就会公开发布。草案内容包含立即停火止战、解除制裁、航行自由等等。如果消息真实，意味着持续近三个月的美伊冲突将宣告结束，高企的国际油价也将迎来转折。 ATFX图▲ 北京时间01：09，美原油行情
+全球投资者正再度扎堆买入美元，押注人工智能热潮将推动全球第一大经济体今年表现远超其他经济体，且美联储将被迫维持高利率水平。 美国商品期货交易委员会的数据显示，上周期货市场看涨美元的多头押注增幅创下2018年以来新高，持仓规模也触及一年多峰值。摩根大通分析师称，这一激增源于投资者重新燃起对“美国例外论”的信心。 自伊朗冲突爆发以来，美元兑一篮子主要货币涨幅超2%。投资者此前判断，
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 5月22日，隔夜，关于美国和伊朗的谈判消息密集更新，但其中不乏相互矛盾的内容。
+全球投资者正再度扎堆买入美元，押注人工智能热潮将推动全球第一大经济体今年表现远超其他经济体，且美联储将被迫维持高利率水平。
 
-北京时间凌晨1：00左右，阿拉伯媒体报道，美国和伊朗的协议草案已经达成，数小时后就会公开发布。
+美国商品期货交易委员会的数据显示，上周期货市场看涨美元的多头押注增幅创下2018年以来新高，持仓规模也触及一年多峰值。
 
-草案内容包含立即停火止战、解除制裁、航行自由等等。
+摩根大通分析师称，这一激增源于投资者重新燃起对“美国例外论”的信心。
 
-如果消息真实，意味着持续近三个月的美伊冲突将宣告结束，高企的国际油价也将迎来转折。
+自伊朗冲突爆发以来，美元兑一篮子主要货币涨幅超2%。
 
-ATFX图▲ 北京时间01：09，美原油行情急跌，一分钟时间，市场价格从99.45美元下跌至98.05，跌幅1.4美元。
+投资者此前判断，相比欧亚地区经济体，美国经济抵御能源价格暴涨冲击的能力更强。
 
-随后的47分钟，美原油延续跌至，至01：56分，触及阶段性低点94.97，累计最大跌幅达到4.48美元。
+不过即便市场预判冲突有望平息，美元仅小幅走弱，资金焦点已转向美国自身强劲的经济基本面。
 
-从行情表现来看，市场资金似乎已经确认美国和伊朗的协议草案消息是真实的。
+渣打银行全球十国集团外汇研究主管史蒂文・英格兰德表示：“支撑美元走强的利好逻辑不止伊朗冲突这一条。
 
-ATFX图▲ 然而，北京时间04：12左右，阿拉伯媒体公开驳斥上述报道，批评其新闻失实，并否认消息源头来自于自身的说法。
+美国经济基本面表现稳健，此前市场对就业市场的担忧实属夸大其词。
 
 ## 相关推荐
 
-- 2026-06-29 22:30 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 22:19 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 22:23 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 22:18 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 22:32 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 22:14 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 22:32 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 22:21 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 22:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 22:32 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 22:28 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 22:30 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 22:39 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 22:21 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 22:30 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 22:27 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 22:26 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 22:18 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 22:26 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 22:36 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 22:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 22:35 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 22:18 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 22:24 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:10 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/26622.shtml)
-- 2026-06-29 22:07 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/227532.shtml)
-- 2026-06-29 22:31 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/29022162665.shtml)
-- 2026-06-29 22:32 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/181291814.shtml)
-- 2026-06-29 22:09 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/0181488.shtml)
-- 2026-06-29 22:29 - [乌克兰发广告全球征兵](http://www.blog.minike.top/Article/details/15130.shtml)
-- 2026-06-29 22:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/10586135.shtml)
-- 2026-06-29 22:14 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/24963.shtml)
-- 2026-06-29 22:29 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/4715285.shtml)
-- 2026-06-29 22:15 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/6543380380.shtml)
-- 2026-06-29 22:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/2135915132.shtml)
-- 2026-06-29 22:08 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/76820310042.shtml)
-- 2026-06-29 22:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/290415.shtml)
-- 2026-06-29 22:18 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/4421023.shtml)
-- 2026-06-29 22:15 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/70737145864.shtml)
+- 2026-06-29 22:24 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/7411091161.shtml)
+- 2026-06-29 22:14 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/30751064.shtml)
+- 2026-06-29 22:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/311432163.shtml)
+- 2026-06-29 22:30 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/93765367.shtml)
+- 2026-06-29 22:20 - [网约车出事故平台拒赔称只是中介](https://www.blog.kurohicncr.top/Article/details/1660008.shtml)
+- 2026-06-29 22:37 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/331698284.shtml)
+- 2026-06-29 22:33 - [王安宇聪明到导演组炸了](https://www.blog.kurohicncr.top/Article/details/935622388.shtml)
+- 2026-06-29 22:30 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/681422185.shtml)
+- 2026-06-29 22:30 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/03673011.shtml)
+- 2026-06-29 22:35 - [扫黑风暴](https://www.share.minike.top/Article/details/77683086320.shtml)
+- 2026-06-29 22:13 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/064550440.shtml)
+- 2026-06-29 22:35 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/851016973617.shtml)
+- 2026-06-29 22:17 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/70104788613.shtml)
+- 2026-06-29 22:36 - [巴西队主帅称日本队是世界最佳之一](http://www.share.minike.top/Article/details/445833.shtml)
+- 2026-06-29 22:16 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/07243.shtml)

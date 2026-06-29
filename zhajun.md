@@ -1,58 +1,59 @@
-# 文博会首次设立跨境电商展区 打造文化出海全链路新生态
+# 2025年度个税汇算6月30日结束 这两种情况要注意
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网深圳5月25日电 (记者 张璐)第二十二届中国(深圳)国际文化产业博览交易会(简称“文博会”)正在深圳举行。 本届文博会首次设立的跨境电商展区，以“文化跨境·科技赋能·品牌出海”为核心理念，聚焦文化与科技深度融合的出海新趋势，集中展示中国文化产业数字化转型成果和跨境电商全产业链创新能力。 据悉，该展区打破传统展会单一展示模式，打造“展示+交易+对接+服务”四位一体的综合平
+2025年度个税综合所得汇算办理将于6月30日结束。记者从税务部门收集整理了一些纳税人在办理个税汇算时咨询较多的问题。 国家税务总局发布的最新数据显示，截至5月底，已有超1.6亿人完成个税汇算申报，超过1.1亿人办理了退税，退税金额也明显增大，退税规模同比增加超过17%。 不少网友积极晒出退税“红包”，有人也在咨询，提交了退税申请，但是退税迟迟未到账怎么办？ 税务部门提示，在申
 
 ## 正文
 
-中新网深圳5月25日电 (记者 张璐)第二十二届中国(深圳)国际文化产业博览交易会(简称“文博会”)正在深圳举行。
+2025年度个税综合所得汇算办理将于6月30日结束。
 
-本届文博会首次设立的跨境电商展区，以“文化跨境·科技赋能·品牌出海”为核心理念，聚焦文化与科技深度融合的出海新趋势，集中展示中国文化产业数字化转型成果和跨境电商全产业链创新能力。
+记者从税务部门收集整理了一些纳税人在办理个税汇算时咨询较多的问题。
 
-据悉，该展区打破传统展会单一展示模式，打造“展示+交易+对接+服务”四位一体的综合平台，完整呈现从文化IP挖掘、产品设计研发、合规检测认证到海外营销、物流仓储、品牌运营的文化出海全路径，为中国企业搭建通往全球市场的“快车道”。
+国家税务总局发布的最新数据显示，截至5月底，已有超1.6亿人完成个税汇算申报，超过1.1亿人办理了退税，退税金额也明显增大，退税规模同比增加超过17%。
 
-该展区汇聚了跨境电商平台、供应链服务商、数字传媒机构、IP运营企业、潮玩文创品牌等全生态链代表企业，展示跨境电商在推动文化出海过程中的多元应用场景。
+不少网友积极晒出退税“红包”，有人也在咨询，提交了退税申请，但是退税迟迟未到账怎么办？
 
-深圳市跨境电子商务协会发挥行业枢纽作用，整合全球多个国家和地区的产业资源和渠道网络，为参展企业提供政策解读、市场调研、资源对接等全方位服务。
+税务部门提示，在申请退税过程中，需要重点关注的是“税务审核不通过”和“国库退库失败”两种情况。
 
-J&P集团作为跨境合规服务商，聚焦税务合规、产品合规、知识产权保护等核心领域，为文化科技3C产品出海提供一站式合规解决方案。
+“税务审核不通过”，表示纳税人的申报信息存在问题，税务机关会在个税App里面列明审核不通过的原因，纳税人可以在个税App中及时查看，并对申报数据进行检查、修改、完善，确认无误后重新提交申报。
 
-广州韬泓科技有限公司深耕非洲跨境贸易市场，建立了业内鲜有的全链路自主运营体系。
+“国库退库失败”，表示税款无法退到纳税人的银行账户中。
 
-从源头集采、国际运输到本地清关、末端配送，该公司实现了供应链各环节的自主掌控，为中国文化和科技产品进入非洲市场提供了稳定可靠的贸易基础设施。
+纳税人需及时关注申请退税的银行账户是否为本人账户，并且是否能够正常使用。
 
 ## 相关推荐
 
-- 2026-06-29 22:21 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 22:26 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 22:32 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 22:24 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 22:33 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 22:06 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 22:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 22:31 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 22:22 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 22:07 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 22:07 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 22:30 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 22:28 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 22:21 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 22:23 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 22:33 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 22:32 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 22:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 22:33 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 22:27 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 22:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 22:19 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 22:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 22:38 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 22:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:19 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/343442341.shtml)
-- 2026-06-29 22:15 - [王安宇聪明到导演组炸了](https://www.blog.minike.top/Article/details/378199855.shtml)
-- 2026-06-29 22:08 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/835608438796.shtml)
-- 2026-06-29 22:21 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/5907081.shtml)
-- 2026-06-29 22:10 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/8056040264.shtml)
-- 2026-06-29 22:12 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/5137660.shtml)
-- 2026-06-29 22:32 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/185987550983.shtml)
-- 2026-06-29 22:07 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/76267.shtml)
-- 2026-06-29 22:10 - [毒液2](https://www.blog.minike.top/Article/details/34643792.shtml)
-- 2026-06-29 22:34 - [世界杯高票价为何没劝退球迷](http://www.blog.minike.top/Article/details/314914828.shtml)
-- 2026-06-29 22:16 - [TOP Prada](https://www.share.minike.top/Article/details/5658323.shtml)
-- 2026-06-29 22:28 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/6120075110.shtml)
-- 2026-06-29 22:18 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/466262.shtml)
-- 2026-06-29 22:13 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/692170.shtml)
-- 2026-06-29 22:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/517311841263.shtml)
+- 2026-06-29 22:35 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/360846719235.shtml)
+- 2026-06-29 22:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/012489.shtml)
+- 2026-06-29 22:20 - [青春环游记第三季](https://www.blog.minike.top/Article/details/3272123860.shtml)
+- 2026-06-29 22:39 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/14490.shtml)
+- 2026-06-29 22:38 - [杨德龙：创新药迎来新的发展机遇](https://www.share.minike.top/Article/details/557114711575.shtml)
+- 2026-06-29 22:13 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/534400450.shtml)
+- 2026-06-29 22:34 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/26752.shtml)
+- 2026-06-29 22:31 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/52397006.shtml)
+- 2026-06-29 22:20 - [速度与激情9](http://www.share.minike.top/Article/details/12078.shtml)
+- 2026-06-29 22:12 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/965144.shtml)
+- 2026-06-29 22:25 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/250085.shtml)
+- 2026-06-29 22:20 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/5226433689.shtml)
+- 2026-06-29 22:30 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/254532.shtml)
+- 2026-06-29 22:16 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/92473911987.shtml)
+- 2026-06-29 22:15 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/274501959.shtml)

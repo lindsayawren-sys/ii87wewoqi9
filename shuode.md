@@ -1,60 +1,61 @@
-# 香港首位航天员将执飞 黎家盈博导：她的细心可靠令人印象深刻
+# 上海证券交易所主动管理ETF业务指引来了
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新社香港5月23日电 (记者 邱兆翔)中国载人航天工程办公室23日公布，神舟二十三号载人飞行任务的航天员乘组中，有一名来自中国香港的女性航天员黎家盈。她将以载荷专家的身份，参与本次任务。 这是香港首次有科研人员参与飞行任务。 黎家盈博士时期的导师、香港大学工程学院计算与数据科学学院名誉副教授邹锦沛在接受中新社记者采访时表示，黎家盈在生活中与工作中很有责任心、工作细心谨慎、关心
+登录新浪财经APP 搜索【信披】查看更多考评等级 上交所发布《上海证券交易所主动管理交易型开放式证券投资基金业务指引》 来源：上交所发布 6月17日，中国证监会主席吴清在陆家嘴论坛宣布支持在交易所推出主动ETF。为了保障主动ETF平稳推出，保护投资者合法权益，上交所同日发布了《上海证券交易所主动管理交易型开放式证券投资基金业务指引》（以下简称《指引》）。 主动ETF融合了主动管
 
 ## 正文
 
-中新社香港5月23日电 (记者 邱兆翔)中国载人航天工程办公室23日公布，神舟二十三号载人飞行任务的航天员乘组中，有一名来自中国香港的女性航天员黎家盈。
+登录新浪财经APP 搜索【信披】查看更多考评等级 上交所发布《上海证券交易所主动管理交易型开放式证券投资基金业务指引》 来源：上交所发布 6月17日，中国证监会主席吴清在陆家嘴论坛宣布支持在交易所推出主动ETF。
 
-她将以载荷专家的身份，参与本次任务。
+为了保障主动ETF平稳推出，保护投资者合法权益，上交所同日发布了《上海证券交易所主动管理交易型开放式证券投资基金业务指引》（以下简称《指引》）。
 
-这是香港首次有科研人员参与飞行任务。
+主动ETF融合了主动管理的专业投研能力与ETF的标准化运作优势，具备持仓透明、交易便捷等特点。
 
-黎家盈博士时期的导师、香港大学工程学院计算与数据科学学院名誉副教授邹锦沛在接受中新社记者采访时表示，黎家盈在生活中与工作中很有责任心、工作细心谨慎、关心同事，给他留下了深刻的印象。
+发展主动ETF适应我国资本市场高质量发展阶段，有助于服务居民财富管理需求和赋能公募基金高质量发展，对于增强权益投资吸引力，强化资本市场功能升级，吸引中长期资金入市等具有积极意义，是贯彻落实“十五五”规划建议关于“提高资本市场制度包容性、适应性，健全投资和融资相协调的资本市场功能”，加快上海国际金融中心建设部署、提升上海市场国际竞争力的重要举措。
 
-邹锦沛介绍，黎家盈的本科、硕士及博士学位均在香港大学取得。
+《指引》共十五条，围绕主动ETF的特点，主要对主动ETF命名规则、管理人及基金经理资质、产品投资运作、信息披露、风险防范等方面进行规范。
 
-硕士阶段，她主要从事密码学相关研究。
+主要内容为：一是明确主动ETF定义和命名规则。
 
-博士阶段，她选择转向更具实用性的研究，加入邹锦沛组建的计算机法证研究团队。
+一方面，主动ETF是指基金管理人自主选择投资策略、不以跟踪特定指数为投资目标并在交易所上市交易的开放式基金；另一方面，基金名称应当包含“主动管理交易型开放式证券投资基金”字样，场内简称应当包含“主动”字样。
 
-谈及带领黎家盈进行研究的日子，邹锦沛笑称，黎家盈是全日制学生，经常与他一同参与各种各样的国际会议。
+二是明确基金管理人资质要求。
 
 ## 相关推荐
 
-- 2026-06-29 22:30 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 22:11 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 22:26 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 22:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 22:19 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 22:07 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 22:16 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 22:31 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 22:22 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 22:27 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 22:22 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 22:28 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 22:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 22:08 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 22:14 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 22:31 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 22:15 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 22:39 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 22:17 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 22:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 22:20 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 22:17 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 22:28 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 22:40 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 22:33 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 22:19 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 22:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 22:18 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 22:24 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:27 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/9664446.shtml)
-- 2026-06-29 22:25 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/6065721162.shtml)
-- 2026-06-29 22:35 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/71307447969.shtml)
-- 2026-06-29 22:35 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/159838662.shtml)
-- 2026-06-29 22:18 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/355758629.shtml)
-- 2026-06-29 22:07 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/4266075493.shtml)
-- 2026-06-29 22:25 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/621195707.shtml)
-- 2026-06-29 22:19 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/129392.shtml)
-- 2026-06-29 22:06 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/508809284.shtml)
-- 2026-06-29 22:29 - [把邻居裸体发群算维权还是侵权](http://www.blog.minike.top/Article/details/78531808.shtml)
-- 2026-06-29 22:14 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/2005566683.shtml)
-- 2026-06-29 22:10 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/6203102.shtml)
-- 2026-06-29 22:26 - [温网](https://www.blog.kurohicncr.top/Article/details/51069588926.shtml)
-- 2026-06-29 22:22 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/10084510.shtml)
-- 2026-06-29 22:14 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/833005.shtml)
+- 2026-06-29 22:32 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/39481299.shtml)
+- 2026-06-29 22:12 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/8539862.shtml)
+- 2026-06-29 22:40 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/58659.shtml)
+- 2026-06-29 22:37 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/01821.shtml)
+- 2026-06-29 22:20 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/913326053.shtml)
+- 2026-06-29 22:35 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/5964558.shtml)
+- 2026-06-29 22:20 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/192508819130.shtml)
+- 2026-06-29 22:12 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.minike.top/Article/details/64373855.shtml)
+- 2026-06-29 22:19 - [天道](https://www.blog.minike.top/Article/details/60536184.shtml)
+- 2026-06-29 22:35 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/6051840449.shtml)
+- 2026-06-29 22:41 - [杨紫有3部作品入围金鹰奖](http://www.blog.kurohicncr.top/Article/details/5484292649.shtml)
+- 2026-06-29 22:33 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/91734237918.shtml)
+- 2026-06-29 22:38 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/9245413071.shtml)
+- 2026-06-29 22:20 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/98234315.shtml)
+- 2026-06-29 22:24 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/0449480.shtml)

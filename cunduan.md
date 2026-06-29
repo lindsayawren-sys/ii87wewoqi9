@@ -1,56 +1,56 @@
-# 特朗普退税红利消退，美国民众消费支出或将承压
+# 菲律宾7.8级强震后海床抬升2米 大片珊瑚礁裸露致海洋生物死亡
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-企业高管与经济学家警告，随着特朗普政府退税红利耗尽，加之伊朗战争导致燃油价格飙升并在经济中层层传导，美国消费者距离现金短缺仅剩数月时间。 根据美国国税局数据，特朗普总统标志性预算法案带来的丰厚退税，平均每户近 3500 美元，这让美国人得以继续大手大脚消费。但零售商正准备迎接油价上涨引发的消费回落 ——全球最大经济体的经济增速最快或于今年夏季放缓。 EY Parthenon首席
+中新网6月17日电 据英国《卫报》报道，菲律宾环境部门14日表示，该国近期发生的7.8级强震导致近海海床抬升了2米，大片珊瑚裸露并开始危害海洋生物。 菲律宾国家减灾委员会15日通报，截至当日6时，菲南部棉兰老岛附近海域8日发生的7.8级地震已造成65人死亡、1447人受伤。 报道援引菲环境部门的消息称，地震两天后，居民首次报告了这种被称为“海岸抬升”的地质现象，该现象在某些地方
 
 ## 正文
 
-企业高管与经济学家警告，随着特朗普政府退税红利耗尽，加之伊朗战争导致燃油价格飙升并在经济中层层传导，美国消费者距离现金短缺仅剩数月时间。
+中新网6月17日电 据英国《卫报》报道，菲律宾环境部门14日表示，该国近期发生的7.8级强震导致近海海床抬升了2米，大片珊瑚裸露并开始危害海洋生物。
 
-根据美国国税局数据，特朗普总统标志性预算法案带来的丰厚退税，平均每户近 3500 美元，这让美国人得以继续大手大脚消费。
+菲律宾国家减灾委员会15日通报，截至当日6时，菲南部棉兰老岛附近海域8日发生的7.8级地震已造成65人死亡、1447人受伤。
 
-但零售商正准备迎接油价上涨引发的消费回落 ——全球最大经济体的经济增速最快或于今年夏季放缓。
+报道援引菲环境部门的消息称，地震两天后，居民首次报告了这种被称为“海岸抬升”的地质现象，该现象在某些地方使海岸线延伸了多达200米。
 
-EY Parthenon首席经济学家格雷戈里・达科表示：“退税带来的提振，已基本被中东局势加剧的价格压力所抵消。
+菲火山地震研究所表示，科塔巴托海沟的移动“将萨兰加尼省和西达沃省的部分海岸线向上推……使原本在水下的海床裸露出来。
 
-冲突持续越久，我们越可能走向不利局面：通胀更具黏性，进而侵蚀消费支出增速。
+测绘到的抬升高度约为2米。
 
-” 消费者是美国经济的核心引擎，约占经济总产出的三分之二；近年来，他们也是经济增长的重要驱动力。
+”报道称，该海沟距离棉兰老岛南部海岸最近仅50公里，是地震活动频繁的区域，包括一月份记录到的数千次地震的“群震”。
 
-PNC 银行经济分析主管布莱恩・勒布朗指出：“近年来，经济之所以能对高利率、高通胀及接连冲击保持韧性，关键原因之一是家庭财务状况稳健—— 即便就业与收入增速放缓，消费者仍有能力继续消费。
+环境部门表示，派往该地区的团队“发现大段海岸线、珊瑚礁和海草床已经裸露出来”。
 
-” 这笔大额退税源于特朗普标志性预算法案《宏大美好法案》推出的大规模减税政策，该法案于 2025 年 7 月正式生效。
+一位该部门官员表示，由于需要调查的范围很大，他们尚无法确切说明受影响区域的具体面积。
 
 ## 相关推荐
 
-- 2026-06-29 22:34 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 22:24 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 22:34 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 22:18 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 22:23 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 22:13 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 22:31 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 22:14 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 22:34 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 22:12 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 22:13 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 22:20 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 22:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 22:32 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 22:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 22:19 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 22:14 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 22:27 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 22:16 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 22:18 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:12 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/4449298645.shtml)
-- 2026-06-29 22:25 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/75641.shtml)
-- 2026-06-29 22:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/98309066.shtml)
-- 2026-06-29 22:14 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/057221.shtml)
-- 2026-06-29 22:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/153580113.shtml)
-- 2026-06-29 22:10 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/8165468729.shtml)
-- 2026-06-29 22:11 - [宜宾地震已转移安置225人](https://www.share.kurohicncr.top/Article/details/537976.shtml)
-- 2026-06-29 22:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/14844502381.shtml)
-- 2026-06-29 22:11 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/73523037.shtml)
-- 2026-06-29 22:33 - [周生如故](http://www.blog.minike.top/Article/details/3179845804.shtml)
-- 2026-06-29 22:11 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/9611441209.shtml)
-- 2026-06-29 22:25 - [千与千寻](http://www.share.kurohicncr.top/Article/details/52990243.shtml)
-- 2026-06-29 22:32 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/834199199.shtml)
-- 2026-06-29 22:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/9552160.shtml)
-- 2026-06-29 22:23 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.minike.top/Article/details/085154.shtml)
+- 2026-06-29 22:13 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/817328.shtml)
+- 2026-06-29 22:28 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/5479644.shtml)
+- 2026-06-29 22:21 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/64393933.shtml)
+- 2026-06-29 22:12 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/63263193.shtml)
+- 2026-06-29 22:16 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/70577987.shtml)
+- 2026-06-29 22:16 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/90701.shtml)
+- 2026-06-29 22:38 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/66046415983.shtml)
+- 2026-06-29 22:22 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/725982.shtml)
+- 2026-06-29 22:28 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/16878524815.shtml)
+- 2026-06-29 22:32 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/411028974641.shtml)
+- 2026-06-29 22:21 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/5174047436.shtml)
+- 2026-06-29 22:24 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/892009273.shtml)
+- 2026-06-29 22:35 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/7308970311.shtml)
+- 2026-06-29 22:25 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/48584073.shtml)
+- 2026-06-29 22:36 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/575424068183.shtml)

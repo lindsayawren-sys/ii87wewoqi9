@@ -1,56 +1,60 @@
-# 湖南湘潭新媒体人士发挥“流量优势” 激活乡村振兴“一池春水”
+# 世界银行张文才：聚焦三大金融治理目标，将稳就业作为核心工作
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网湘潭5月25日电 (张雪盈 赵剑国)“这里是曹家坳瀑布，今天我将一次性和大家说清楚怎么玩，请跟随我的镜头一起来感受瀑布的壮美……”在湖南湘潭石鼓镇曹家坳瀑布前，新媒体人士郑莎莎又一次开启了直播观景，吸引不少网友“云上”围观。 近年来，湘潭市深入贯彻落实湖南省委统战部关于新的社会阶层人士统战工作的部署要求，以“一村一品一主播·同心筑梦新农村”行动为抓手，引导新媒体人士投身乡
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，世界银行集团常务副行长兼首席行政官张文才参加2026陆家嘴论坛并表示，在充满不确定性的时期，我们更应该重申对话、开放和务实合作的重要作用，共同维护稳定、促进发展。应对当前挑战，关键在于采取正确的政策行动。在全球方面，各方要加强合作，共同维护能源和粮食安全，巩固开放稳定的国际贸易体系，加快推进能
 
 ## 正文
 
-中新网湘潭5月25日电 (张雪盈 赵剑国)“这里是曹家坳瀑布，今天我将一次性和大家说清楚怎么玩，请跟随我的镜头一起来感受瀑布的壮美……”在湖南湘潭石鼓镇曹家坳瀑布前，新媒体人士郑莎莎又一次开启了直播观景，吸引不少网友“云上”围观。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，世界银行集团常务副行长兼首席行政官张文才参加2026陆家嘴论坛并表示，在充满不确定性的时期，我们更应该重申对话、开放和务实合作的重要作用，共同维护稳定、促进发展。
 
-近年来，湘潭市深入贯彻落实湖南省委统战部关于新的社会阶层人士统战工作的部署要求，以“一村一品一主播·同心筑梦新农村”行动为抓手，引导新媒体人士投身乡村振兴主战场。
+应对当前挑战，关键在于采取正确的政策行动。
 
-石鼓镇铜梁村拥有得天独厚的原生态瀑布群，但长期“养在深闺人未识”。
+在全球方面，各方要加强合作，共同维护能源和粮食安全，巩固开放稳定的国际贸易体系，加快推进能源转型。
 
-郑莎莎、土豆、易俊等本地自媒体博主，敏锐捕捉到“九瀑齐泻”的曹家坳瀑布极具“网红爆款”潜力，通过短视频、攻略图文等形式多角度、高频次推介，让曹家坳瀑布从“小众秘境”跃升为长株潭及周边游客争相打卡的自然奇观。
+在国内层面，政策制定者需要在控制通胀和支持增长之间把握平衡，增强财政的可持续性，维护金融的稳定，为长期发展创造更加有利的条件。
 
-据统计，自“出圈”以来，曹家坳瀑布已累计接待游客超7万人次，带动全链条综合收入超千万元，周边多个村近万人受益，村民庭院成为“黄金铺位”，顶峰腊肉、非遗油纸伞等产品一度售罄。
+张文才表示，从世界银行集团角度来看，全球金融治理体系演进始终围绕三个目标展开：帮助各国获得发展融资、增强经济金融的韧性，以及为人民创造更多的发展机会。
 
-“没想到腊肉、油纸伞这些只有在逢年过节才会被提起的老物件，也成了热门尖货。
+衡量金融体系是否有效，体现在能否促进实体经济的发展、改善人民生活，因此世界银行集团将创造就业作为中心工作。
 
-”湘潭县居民张友鹏说。
+张文才指出，世界银行判断未来10到15年，发展中国家将有超过10亿年轻人达到就业年龄。
 
-面对“泼天流量”，铜梁村迅速行动。
+如果不能及时采取行动，就无法创造足够的就业岗位来满足这一需求。
 
 ## 相关推荐
 
-- 2026-06-29 22:18 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 22:09 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 22:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 22:19 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 22:07 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 22:23 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 22:29 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-29 22:32 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 22:35 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 22:12 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 22:29 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 22:12 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 22:23 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 22:21 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 22:37 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 22:32 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 22:29 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 22:26 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 22:40 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 22:13 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 22:30 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 22:19 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 22:15 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 22:29 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:20 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/37920753413.shtml)
-- 2026-06-29 22:31 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/97398713.shtml)
-- 2026-06-29 22:25 - [起风了](http://www.blog.kurohicncr.top/Article/details/4208005.shtml)
-- 2026-06-29 22:15 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/1219008.shtml)
-- 2026-06-29 22:09 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/477124247.shtml)
-- 2026-06-29 22:29 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/46833.shtml)
-- 2026-06-29 22:13 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/71200027634.shtml)
-- 2026-06-29 22:32 - [东方风云榜](http://www.blog.minike.top/Article/details/51296635293.shtml)
-- 2026-06-29 22:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/76545548.shtml)
-- 2026-06-29 22:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/0801988405.shtml)
-- 2026-06-29 22:15 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/013647.shtml)
-- 2026-06-29 22:06 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/9975642.shtml)
-- 2026-06-29 22:08 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/7676431133.shtml)
-- 2026-06-29 22:18 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/65637659.shtml)
-- 2026-06-29 22:08 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/51544.shtml)
+- 2026-06-29 22:13 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/03950143.shtml)
+- 2026-06-29 22:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/6504015.shtml)
+- 2026-06-29 22:25 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/288831592007.shtml)
+- 2026-06-29 22:31 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/5055738.shtml)
+- 2026-06-29 22:32 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/119818569.shtml)
+- 2026-06-29 22:32 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/20447160986.shtml)
+- 2026-06-29 22:18 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/16276.shtml)
+- 2026-06-29 22:36 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/0169437.shtml)
+- 2026-06-29 22:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/7219714.shtml)
+- 2026-06-29 22:13 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/586657.shtml)
+- 2026-06-29 22:15 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/87072.shtml)
+- 2026-06-29 22:38 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.kurohicncr.top/Article/details/1557651.shtml)
+- 2026-06-29 22:21 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/1051311.shtml)
+- 2026-06-29 22:27 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/32736102222.shtml)
+- 2026-06-29 22:13 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/619082.shtml)

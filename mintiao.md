@@ -1,58 +1,57 @@
-# 热解读｜千磨更坚，乱云从容——习主席引用这三句诗诠释中俄关系
+# 封关半年看海南：企业如何享受政策“叠加效应”？
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-｜热解读｜5月20日，北京人民大会堂，国家主席习近平同来华进行国事访问的俄罗斯总统普京举行会谈。 “尊敬的习近平主席，亲爱的朋友，中国有句古语‘一日不见，如隔三秋’。我们非常高兴见到您。” 这是普京总统第二十五次访华。他引用中国古语真挚表达与习主席重逢的喜悦，称俄中关系已达到前所未有的高水平，堪称真正全面的伙伴关系和战略协作典范。 谈及中俄关系何以一步一个脚印走到今天的高度，习
+中新网海口6月17日电 (张月和)一家医药企业在海南，既可以“零关税”进口高端仪器、耗材自用，也可以进口原料加工成药品，增值达到30%免关税销往内地；又可享受“双15%”所得税政策；还可以叠加免税购物、生活便利和乐城医疗服务等。 6月17日，海南省财政厅厅长李逊敏在海南自由贸易港封关半年新闻发布会上，通过一个案例说明了在海南自贸港封关后，企业是如何享受政策的“叠加效应”的。 这
 
 ## 正文
 
-｜热解读｜5月20日，北京人民大会堂，国家主席习近平同来华进行国事访问的俄罗斯总统普京举行会谈。
+中新网海口6月17日电 (张月和)一家医药企业在海南，既可以“零关税”进口高端仪器、耗材自用，也可以进口原料加工成药品，增值达到30%免关税销往内地；又可享受“双15%”所得税政策；还可以叠加免税购物、生活便利和乐城医疗服务等。
 
-“尊敬的习近平主席，亲爱的朋友，中国有句古语‘一日不见，如隔三秋’。
+6月17日，海南省财政厅厅长李逊敏在海南自由贸易港封关半年新闻发布会上，通过一个案例说明了在海南自贸港封关后，企业是如何享受政策的“叠加效应”的。
 
-我们非常高兴见到您。
+这种“叠加效应”有赖于初步成型的海南自贸港税制体系：“零关税”政策体系日渐完善、“低税率”稳定企业人才预期、免税政策持续释放消费动能。
 
-” 这是普京总统第二十五次访华。
+李逊敏说，封关运作后，海南安排实施了18项税收优惠政策，持续赋能自贸港高质量发展。
 
-他引用中国古语真挚表达与习主席重逢的喜悦，称俄中关系已达到前所未有的高水平，堪称真正全面的伙伴关系和战略协作典范。
+以货物流通税收政策、进口征税商品目录、加工增值免关税等封关政策为核心的制度设计，共同构建了全面、系统的“零关税”制度安排。
 
-谈及中俄关系何以一步一个脚印走到今天的高度，习近平主席引用三句诗深刻阐释两国关系不断发展的深层原因： ——“双方以‘千磨万击还坚劲’的毅力不断深化政治互信和战略协作”； ——“以‘更上一层楼’的精神拓展各领域合作”； ——“以‘乱云飞渡仍从容’的勇气捍卫国际公道正义、推动构建人类命运共同体”。
+李逊敏说，目前，自贸港“零关税”水平提升至74%；享惠的进口货值占相关税目进口总额的77%，政策红利直达企业。
 
-习主席这些重要论述，融通古今、洞悉大势，既蕴含着对人类文明交流交融与历史发展规律的深邃思考，也道出了“中俄关系长期、健康、稳定、高质量发展”的内在逻辑。
+他举例说，最近一家科技企业，“零关税”进口近2.8亿元集成电路生产电子器件，减免税款约4000万元；一家制造业企业，“零关税”进口5400多万元的纯碱生产节能玻璃，减免了约270万元税款，有效降低了生产成本。
 
-中俄关系在纷繁复杂的国际风云中经受重重考验，始终坚如磐石，生动诠释了两国“千磨万击还坚劲”的政治互信。
+延续至2027年底的“双15%”所得税政策，对企业发展和人才引进，发挥了显著优势。
 
 ## 相关推荐
 
-- 2026-06-29 22:32 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 22:25 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 22:35 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 22:08 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 22:10 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 22:20 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 22:24 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 22:19 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 22:31 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 22:06 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 22:15 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 22:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 22:37 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 22:14 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 22:19 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 22:15 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 22:15 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 22:32 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 22:28 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 22:32 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 22:15 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 22:19 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 22:36 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:22 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/55322752.shtml)
-- 2026-06-29 22:14 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/82742277761.shtml)
-- 2026-06-29 22:32 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/015121.shtml)
-- 2026-06-29 22:30 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/415323732939.shtml)
-- 2026-06-29 22:15 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/7445989538.shtml)
-- 2026-06-29 22:08 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/37707889128.shtml)
-- 2026-06-29 22:13 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/43126.shtml)
-- 2026-06-29 22:26 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/843513020489.shtml)
-- 2026-06-29 22:15 - [日防卫省正考虑引进美企人工智能系统](https://www.share.minike.top/Article/details/8605958.shtml)
-- 2026-06-29 22:12 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/8583329481.shtml)
-- 2026-06-29 22:17 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/998907596447.shtml)
-- 2026-06-29 22:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/91892831.shtml)
-- 2026-06-29 22:13 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/7234071.shtml)
-- 2026-06-29 22:19 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/65096208585.shtml)
-- 2026-06-29 22:22 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/499514.shtml)
+- 2026-06-29 22:12 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/798056414472.shtml)
+- 2026-06-29 22:26 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/966639921069.shtml)
+- 2026-06-29 22:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/497168762737.shtml)
+- 2026-06-29 22:23 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/86879181506.shtml)
+- 2026-06-29 22:26 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/809630688882.shtml)
+- 2026-06-29 22:32 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/7171011371.shtml)
+- 2026-06-29 22:40 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/41394.shtml)
+- 2026-06-29 22:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/6465614598.shtml)
+- 2026-06-29 22:23 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/0208706.shtml)
+- 2026-06-29 22:29 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/7840053.shtml)
+- 2026-06-29 22:16 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/987818.shtml)
+- 2026-06-29 22:24 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/66558191000.shtml)
+- 2026-06-29 22:26 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/5510887.shtml)
+- 2026-06-29 22:27 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/731436.shtml)
+- 2026-06-29 22:32 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/381377433.shtml)

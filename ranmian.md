@@ -1,58 +1,57 @@
-# 富途、老虎十年狂飙：跨境互联网券商内地“谢幕”
+# 继产品出海后，华帝向西班牙赠“非遗青瓷”，迈向文化出海
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！持牌经营，是这个行业唯一的入场券。 2026年5月22日，本是一个普通的周五。但对富途控股和老虎证券来说，这可能是十年狂飙之后迎来的一个重要拐点。 这天下午，证监会通报了对富途、老虎、长桥3家跨境互联网券商的处罚（拟）决定。当晚，富途、老虎的美股上市主体就披
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间6月16日凌晨，西班牙对阵佛得角，吹响了这支“斗牛士军团”美加墨征程的第一支“冲锋号角”。一时间，微博、小红书、抖音等社交媒体平台，西班牙霸屏热搜，话题度高居榜首，是本届世界杯开赛以来最热门的比赛之一。 无独有偶，近日，“以瓷为媒，致敬荣光”文化赠礼活动在北京举行。活动现场，华帝股份首席营销官（CM
 
 ## 正文
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-持牌经营，是这个行业唯一的入场券。
+北京时间6月16日凌晨，西班牙对阵佛得角，吹响了这支“斗牛士军团”美加墨征程的第一支“冲锋号角”。
 
-2026年5月22日，本是一个普通的周五。
+一时间，微博、小红书、抖音等社交媒体平台，西班牙霸屏热搜，话题度高居榜首，是本届世界杯开赛以来最热门的比赛之一。
 
-但对富途控股和老虎证券来说，这可能是十年狂飙之后迎来的一个重要拐点。
+无独有偶，近日，“以瓷为媒，致敬荣光”文化赠礼活动在北京举行。
 
-这天下午，证监会通报了对富途、老虎、长桥3家跨境互联网券商的处罚（拟）决定。
+活动现场，华帝股份首席营销官（CMO）潘叶钊在媒体见证下，将由龙泉青瓷非遗大师叶小春亲手烧制的“祥瑞东方龙泉青瓷冰裂纹盘”与“粉青×梅子青龙泉青瓷莲瓣碗”赠予西班牙驻华大使馆，该馆公使衔参赞兼总领事布依特拉格作为代表正式接收。
 
-当晚，富途、老虎的美股上市主体就披露了各自收到的（拟）处罚通知：前者拟被罚没约18.5亿元，后者拟被罚没约4.1亿元，合计超过22亿元人民币。
+资料显示，龙泉青瓷是全球唯一入选联合国教科文组织《人类非物质文化遗产代表作名录》的陶瓷类项目，而冰裂纹是其中最难驾驭的工艺之一。
 
-“最致命”的其实是当天的另一则消息。
+叶小春介绍道，冰裂纹的形成需要瓷胎与釉面在1300度高温的窑火中自然迸裂，呈现出浑然天成的独特纹理，每一件作品都是不可复制的孤品。
 
-证监会与工信部、公安部、央行等八部门联合印发了《综合整治非法跨境证券期货基金经营活动实施方案》（下称《方案》），在全面封锁境内非法证券业务的同时，对存量非法业务发出“最后通牒”——2年清理期，且相关客户只能卖出资产和转出资金。
+“从泥土到成品，要经历几十甚至上百道工序的打磨。
 
 ## 相关推荐
 
-- 2026-06-29 22:13 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 22:12 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 22:29 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 22:31 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 22:32 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 22:14 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 22:07 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 22:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 22:14 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 22:25 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 22:25 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 22:09 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 22:29 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 22:33 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 22:39 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 22:22 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 22:15 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 22:38 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 22:29 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 22:32 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 22:34 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 22:13 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 22:29 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:25 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/18936967993.shtml)
-- 2026-06-29 22:27 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/6867373.shtml)
-- 2026-06-29 22:10 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/7014702.shtml)
-- 2026-06-29 22:27 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/2691424798.shtml)
-- 2026-06-29 22:07 - [天道](http://www.share.kurohicncr.top/Article/details/72158981389.shtml)
-- 2026-06-29 22:13 - [起风了](https://www.share.minike.top/Article/details/380013.shtml)
-- 2026-06-29 22:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/23074.shtml)
-- 2026-06-29 22:28 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/337952.shtml)
-- 2026-06-29 22:10 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/588604.shtml)
-- 2026-06-29 22:35 - [恋与深空致歉](https://www.blog.minike.top/Article/details/447021813.shtml)
-- 2026-06-29 22:07 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/4322342905.shtml)
-- 2026-06-29 22:31 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/414192.shtml)
-- 2026-06-29 22:12 - [记者乘坐无人驾驶汽车去采访](https://www.share.minike.top/Article/details/080777322.shtml)
-- 2026-06-29 22:30 - [任泽平：AI浪潮刚刚开始](http://www.blog.minike.top/Article/details/972018183.shtml)
-- 2026-06-29 22:18 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/67122405575.shtml)
+- 2026-06-29 22:15 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/9000668391.shtml)
+- 2026-06-29 22:16 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/725071511.shtml)
+- 2026-06-29 22:34 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/45948451639.shtml)
+- 2026-06-29 22:39 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/26480522319.shtml)
+- 2026-06-29 22:13 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/48314.shtml)
+- 2026-06-29 22:40 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/756432.shtml)
+- 2026-06-29 22:36 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/0079457729.shtml)
+- 2026-06-29 22:13 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/1463606622.shtml)
+- 2026-06-29 22:37 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/347754275.shtml)
+- 2026-06-29 22:39 - [啊啊啊](https://www.blog.minike.top/Article/details/30294446069.shtml)
+- 2026-06-29 22:39 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/68006476221.shtml)
+- 2026-06-29 22:37 - [送你一朵小红花](http://www.share.minike.top/Article/details/406292403.shtml)
+- 2026-06-29 22:18 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/04004195.shtml)
+- 2026-06-29 22:16 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/50419029585.shtml)
+- 2026-06-29 22:33 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/309967139735.shtml)

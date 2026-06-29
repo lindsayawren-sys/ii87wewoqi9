@@ -1,61 +1,59 @@
-# 连续下跌超7个月，多只恒生科技ETF跌幅近30%，何时能回升？
+# 石油石化突发拉升，华宝基金石油ETF（159019）盘中翻红！机构：看好龙头企业估值迎来修复
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新经纬5月25日电 (薛宇飞)“今年4月中旬买入了恒生科技ETF，当时判断应该到底部了，但这一个月依然在调整。而那些买入芯片ETF的投资者，已经赚爆了。”北京的投资者陆丰(化名)近日对中新经纬说。 从2025年10月初起，港股互联网、科技相关指数不断调整，跟踪这些指数的ETF产品收益率在全市场处于垫底状态。从去年10月算起，多只港股通互联网ETF、恒生科技ETF的累计亏损超过
+石油石化板块今日（6月17日）逆市拉升。一键布局油气全产业链的石油ETF华宝（159019）早盘低开后迅速拉升，而后持续红盘震荡，截至发稿，场内价格涨0.33%。 成份股方面，航运、油气装备等板块部分个股涨幅居前。截至发稿，中远海能涨超6%，招商轮船、招商南油、杰瑞股份涨超3%，中泰股份、和顺石油等亦涨幅居前。 消息面上，6月15日，美国与伊朗达成和平协议，双方预计于6月19日
 
 ## 正文
 
-中新经纬5月25日电 (薛宇飞)“今年4月中旬买入了恒生科技ETF，当时判断应该到底部了，但这一个月依然在调整。
+石油石化板块今日（6月17日）逆市拉升。
 
-而那些买入芯片ETF的投资者，已经赚爆了。
+一键布局油气全产业链的石油ETF华宝（159019）早盘低开后迅速拉升，而后持续红盘震荡，截至发稿，场内价格涨0.33%。
 
-”北京的投资者陆丰(化名)近日对中新经纬说。
+成份股方面，航运、油气装备等板块部分个股涨幅居前。
 
-从2025年10月初起，港股互联网、科技相关指数不断调整，跟踪这些指数的ETF产品收益率在全市场处于垫底状态。
+截至发稿，中远海能涨超6%，招商轮船、招商南油、杰瑞股份涨超3%，中泰股份、和顺石油等亦涨幅居前。
 
-从去年10月算起，多只港股通互联网ETF、恒生科技ETF的累计亏损超过20%，博时中证港股通互联网ETF、富国中证港股通互联网ETF等产品累计亏损接近40%。
+消息面上，6月15日，美国与伊朗达成和平协议，双方预计于6月19日在瑞士举行正式签署仪式，随后将开展更为详细的核问题谈判。
 
-“抄底还是抄早了” 今年4月中旬，陆丰对某证券App上关注的两只恒生科技ETF下单了：买入华夏恒生科技ETF、天弘恒生科技ETF各5万元人民币的份额。
+届时霍尔木兹海峡将恢复开放，美国同步取消针对伊朗港口的海上封锁。
 
-陆丰称，当时，恒生科技已经调整超过6个月，他判断可以抄底了。
+光大证券表示，地缘冲突长期影响仍存，2026年油价有望中高位运行。
 
-“买入前，我问了两个持有恒生科技相关基金的朋友，他们也觉得在芯片引领市场上涨的当下，恒科能受到带动。
+根据Kpler测算，若美伊协议落地全程无重大波折，一个月内霍尔木兹海峡通航量有望恢复至战前近5成水平。
 
 ## 相关推荐
 
-- 2026-06-29 22:31 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 22:09 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 22:31 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 22:07 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 22:30 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 22:30 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 22:34 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 22:17 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 22:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 22:23 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 22:09 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 22:35 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 22:20 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 22:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 22:29 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 22:13 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 22:13 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 22:32 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 22:21 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 22:26 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 22:20 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 22:18 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 22:24 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 22:14 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 22:37 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 22:30 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 22:24 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 22:29 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:30 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/10921777877.shtml)
-- 2026-06-29 22:27 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/7788636.shtml)
-- 2026-06-29 22:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/801503203037.shtml)
-- 2026-06-29 22:32 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/512779.shtml)
-- 2026-06-29 22:29 - [福建海警位金门附近海域常态执法巡查](https://www.blog.minike.top/Article/details/904219.shtml)
-- 2026-06-29 22:19 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/4959974.shtml)
-- 2026-06-29 22:11 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/5362897449.shtml)
-- 2026-06-29 22:30 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/0575843116.shtml)
-- 2026-06-29 22:32 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/2211202814.shtml)
-- 2026-06-29 22:23 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/71147819225.shtml)
-- 2026-06-29 22:27 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/62499889.shtml)
-- 2026-06-29 22:18 - [回顾世界杯争议事件](http://www.blog.minike.top/Article/details/20023645022.shtml)
-- 2026-06-29 22:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/3719572.shtml)
-- 2026-06-29 22:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/68925374.shtml)
-- 2026-06-29 22:23 - [东方风云榜直播](https://www.blog.minike.top/Article/details/482816973.shtml)
+- 2026-06-29 22:15 - [网约车出事故平台拒赔称只是中介](http://www.share.kurohicncr.top/Article/details/10599219559.shtml)
+- 2026-06-29 22:27 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/252987.shtml)
+- 2026-06-29 22:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/1073761623.shtml)
+- 2026-06-29 22:21 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/848436892321.shtml)
+- 2026-06-29 22:18 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/90242.shtml)
+- 2026-06-29 22:39 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/13655.shtml)
+- 2026-06-29 22:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/17177078684.shtml)
+- 2026-06-29 22:39 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/6782557.shtml)
+- 2026-06-29 22:15 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/63501664.shtml)
+- 2026-06-29 22:22 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/56334214366.shtml)
+- 2026-06-29 22:22 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/15641.shtml)
+- 2026-06-29 22:16 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/13962326798.shtml)
+- 2026-06-29 22:22 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/083638410727.shtml)
+- 2026-06-29 22:24 - [如何看待乌空军3架米格-29被摧毁](https://www.share.minike.top/Article/details/630212861.shtml)
+- 2026-06-29 22:24 - [欧洲缘何成为变暖最快的大洲](http://www.share.minike.top/Article/details/31040127.shtml)

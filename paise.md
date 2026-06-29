@@ -1,57 +1,52 @@
-# 神二十三任务新亮点：港人飞天、太空“种稻”、飞船舷窗升级
+# 央行行长潘功胜：将对利率调控机制进行进一步探索和优化
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新社甘肃酒泉5月24日电 题：神二十三任务新亮点：港人飞天、太空“种稻”、飞船舷窗升级 中新社记者 马帅莎 5月24日晚，神舟二十三号载人飞船在酒泉卫星发射中心成功发射。首位来自香港的航天员飞天、太空“种稻”出续集、神舟飞船换上新舷窗……从乘组构成、太空实验，到飞船本身，此次任务亮点纷呈。 乘组阵容实现多个“首次” 神舟二十三号乘组是中国首个由第三批和第四批航天员构成的乘组，
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，2026陆家嘴论坛今日开幕。中国人民银行行长潘功胜表示，为进一步推动货币政策框架向价格型转型，增强短端利率调控的精准性和有效性，人民银行将对利率调控机制进行进一步探索和优化：一方面，在2024年7月设立临时隔夜正/逆回购工具的基础上，完善工具使用机制，并将操作利率调整为7天期逆回购操作利率加、
 
 ## 正文
 
-中新社甘肃酒泉5月24日电 题：神二十三任务新亮点：港人飞天、太空“种稻”、飞船舷窗升级 中新社记者 马帅莎 5月24日晚，神舟二十三号载人飞船在酒泉卫星发射中心成功发射。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，2026陆家嘴论坛今日开幕。
 
-首位来自香港的航天员飞天、太空“种稻”出续集、神舟飞船换上新舷窗……从乘组构成、太空实验，到飞船本身，此次任务亮点纷呈。
+中国人民银行行长潘功胜表示，为进一步推动货币政策框架向价格型转型，增强短端利率调控的精准性和有效性，人民银行将对利率调控机制进行进一步探索和优化：一方面，在2024年7月设立临时隔夜正/逆回购工具的基础上，完善工具使用机制，并将操作利率调整为7天期逆回购操作利率加、减25个基点，区间由70个基点收窄为50个基点。
 
-乘组阵容实现多个“首次” 神舟二十三号乘组是中国首个由第三批和第四批航天员构成的乘组，成员包括航天员朱杨柱、张志远、黎家盈。
+另一方面，进一步丰富公开市场操作工具箱，适时增加隔夜逆回购操作品种，更好地匹配银行体系短期的流动性需求。
 
-其中一名航天员将开展一年期在轨驻留试验，中国人的连续在轨驻留时长有望再次刷新。
-
-乘组指令长是朱杨柱，这是首次由中国第三批航天员担任指令长。
-
-朱杨柱执行过神舟十六号载人飞行任务，是中国首位圆梦太空、开展出舱活动的航天飞行工程师。
-
-张志远和黎家盈均是首次飞天。
-
-载荷专家黎家盈是中国首位来自香港的航天员，也是中国首位执行飞行任务的第四批航天员。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 22:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 22:08 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 22:09 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 22:32 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 22:22 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 22:29 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 22:15 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 22:23 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 22:13 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 22:35 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 22:28 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 22:34 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 22:18 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 22:37 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 22:33 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 22:37 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 22:33 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 22:35 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 22:22 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 22:25 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 22:37 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 22:19 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 22:38 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 22:13 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 22:32 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/428405463.shtml)
-- 2026-06-29 22:27 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.minike.top/Article/details/14907.shtml)
-- 2026-06-29 22:14 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/742624272.shtml)
-- 2026-06-29 22:09 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/34827.shtml)
-- 2026-06-29 22:13 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/173711048.shtml)
-- 2026-06-29 22:26 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/844639076449.shtml)
-- 2026-06-29 22:21 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/43625424.shtml)
-- 2026-06-29 22:09 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/9550937940.shtml)
-- 2026-06-29 22:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/42750.shtml)
-- 2026-06-29 22:09 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/755307046656.shtml)
-- 2026-06-29 22:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/080823340.shtml)
-- 2026-06-29 22:23 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/87302703107.shtml)
-- 2026-06-29 22:20 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/6820815.shtml)
-- 2026-06-29 22:20 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/40595.shtml)
-- 2026-06-29 22:35 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/5082852744.shtml)
+- 2026-06-29 22:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/41213140085.shtml)
+- 2026-06-29 22:30 - [极限挑战第一季](http://www.blog.minike.top/Article/details/9505311589.shtml)
+- 2026-06-29 22:21 - [欧洲缘何成为变暖最快的大洲](http://www.share.kurohicncr.top/Article/details/58906803.shtml)
+- 2026-06-29 22:15 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/0372257.shtml)
+- 2026-06-29 22:39 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/83816987.shtml)
+- 2026-06-29 22:20 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/02702801599.shtml)
+- 2026-06-29 22:16 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/1793586421.shtml)
+- 2026-06-29 22:20 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/08636.shtml)
+- 2026-06-29 22:12 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/93497899.shtml)
+- 2026-06-29 22:22 - [天道](http://www.blog.minike.top/Article/details/53208484.shtml)
+- 2026-06-29 22:30 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/652018.shtml)
+- 2026-06-29 22:28 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/396271516.shtml)
+- 2026-06-29 22:26 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/240426451994.shtml)
+- 2026-06-29 22:28 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/22695771382.shtml)
+- 2026-06-29 22:12 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/74464719789.shtml)

@@ -1,57 +1,55 @@
-# 贾永婕喊“不当台湾人就离开”被怒怼：台湾是中国的，不当中国人请离开
+# 麦记牛奶总经理谢永亮证实3-4月整体业绩下滑20%多
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月24日 22:44 来源：中国新闻网 台北101董事长贾永婕近日在节目中叫嚣“不当台湾人就离开”，相关言论引发岛内舆论争议。然而今年春节期间，她还曾因一句“中国人过年就要大红色”遭“青鸟”群体围剿，如今此番表态再度引发岛内舆论质疑。对此，台湾时事评论员郑村棋直言，台湾是中国的一部分，“不想当中国人的才可以离开”，并批评民进党长期操弄“台独”议题、撕裂社
+针对近期关于品牌团队跑路、总部对加盟商有罚款KPI等一系列传闻，糖水连锁品牌麦记牛奶总经理谢永亮独家对界面新闻表示，是恶意诽谤。 他对界面新闻称，食品安全卫生是核心要素，对于违反食品安全的门店确实有适当处罚，这也是必须手段，同时也是所有连锁品牌的常规管理措施，不存在不恰当之处。 麦记牛奶目前门店数量在1000家左右。谢永亮对界面新闻称，2026年3-4月整体业绩确实下滑20%多
 
 ## 正文
 
-发布时间：2026年05月24日 22:44 来源：中国新闻网 台北101董事长贾永婕近日在节目中叫嚣“不当台湾人就离开”，相关言论引发岛内舆论争议。
+针对近期关于品牌团队跑路、总部对加盟商有罚款KPI等一系列传闻，糖水连锁品牌麦记牛奶总经理谢永亮独家对界面新闻表示，是恶意诽谤。
 
-然而今年春节期间，她还曾因一句“中国人过年就要大红色”遭“青鸟”群体围剿，如今此番表态再度引发岛内舆论质疑。
+他对界面新闻称，食品安全卫生是核心要素，对于违反食品安全的门店确实有适当处罚，这也是必须手段，同时也是所有连锁品牌的常规管理措施，不存在不恰当之处。
 
-对此，台湾时事评论员郑村棋直言，台湾是中国的一部分，“不想当中国人的才可以离开”，并批评民进党长期操弄“台独”议题、撕裂社会。
+麦记牛奶目前门店数量在1000家左右。
 
-台湾时事评论员谢寒冰则痛批赖清德当局惯于“偷换概念”。
+谢永亮对界面新闻称，2026年3-4月整体业绩确实下滑20%多，有淡季和大环境的影响因素。
 
-国民党桃园市议员詹江村更发文质问贾永婕“有什么资格决定谁该离开台湾”，批其越来越“青鸟化”。
-
-台湾网红“馆长”陈之汉也在直播中怒斥“青鸟”，强调“我就在中国，台湾是中国的一部分”。
-
-台湾联合新闻网22日评论指出，从林志玲请辞文策院董事到贾永婕“不要当台湾人就离开”言论，都是民进党长期塑造“敌我意识”的缩影，也让台湾社会愈发撕裂。
-
-(策划/制作：燕新台 君言晚 中新网“燕新台”工作室出品) 责任编辑：【吉翔】
+（界面新闻记者 马越）责任编辑：梁斌 SF055
 
 ## 相关推荐
 
-- 2026-06-29 22:28 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 22:26 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 22:21 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 22:10 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 22:20 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 22:26 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 22:15 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 22:31 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 22:25 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 22:31 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 22:24 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 22:16 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 22:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 22:14 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 22:14 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 22:14 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 22:32 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 22:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 22:18 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 22:21 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 22:36 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 22:25 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 22:16 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 22:39 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 22:27 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 22:25 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:15 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/83857192.shtml)
-- 2026-06-29 22:12 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/55124748.shtml)
-- 2026-06-29 22:27 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/43541.shtml)
-- 2026-06-29 22:29 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/036744204.shtml)
-- 2026-06-29 22:09 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/72920141891.shtml)
-- 2026-06-29 22:17 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/44022.shtml)
-- 2026-06-29 22:29 - [流金岁月](http://www.blog.minike.top/Article/details/36765.shtml)
-- 2026-06-29 22:27 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/4069745855.shtml)
-- 2026-06-29 22:13 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/1702962.shtml)
-- 2026-06-29 22:08 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/88530.shtml)
-- 2026-06-29 22:22 - [啊啊啊](http://www.share.minike.top/Article/details/641978922662.shtml)
-- 2026-06-29 22:28 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/2262393.shtml)
-- 2026-06-29 22:19 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/081811647143.shtml)
-- 2026-06-29 22:35 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/5421390495.shtml)
-- 2026-06-29 22:12 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/23061.shtml)
+- 2026-06-29 22:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/249601327379.shtml)
+- 2026-06-29 22:22 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/331173488.shtml)
+- 2026-06-29 22:37 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/227253403174.shtml)
+- 2026-06-29 22:36 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/912193284078.shtml)
+- 2026-06-29 22:28 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/3870159.shtml)
+- 2026-06-29 22:36 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/831666477330.shtml)
+- 2026-06-29 22:28 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/2213507.shtml)
+- 2026-06-29 22:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/11330.shtml)
+- 2026-06-29 22:33 - [杨德龙：创新药迎来新的发展机遇](https://www.share.kurohicncr.top/Article/details/45655239837.shtml)
+- 2026-06-29 22:30 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/96517088257.shtml)
+- 2026-06-29 22:17 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/55927.shtml)
+- 2026-06-29 22:38 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/58730694.shtml)
+- 2026-06-29 22:15 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/495529.shtml)
+- 2026-06-29 22:39 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/07957.shtml)
+- 2026-06-29 22:24 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/097485715374.shtml)

@@ -1,59 +1,61 @@
-# 中国首个区域性城市足球联赛“东北超”开赛
+# 赋能银发康养 山西银发经济博览会助力产业升级
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新社沈阳5月23日电 (韩宏 杨茜茜)2026年东北地区城市足球联赛(以下简称“东北超”)23日晚在沈阳、长春、哈尔滨、呼和浩特打响揭幕战。作为全国首个区域性城市足球联赛，该赛事旨在以草根足球为纽带，激活东北三省一区文旅体商融合新动能。 “东北超”由辽宁、吉林、黑龙江、内蒙古联合主办，八个城市协同联动，共设34场比赛。当晚，沈阳赛区由沈阳队对阵鸡西队，四个城市现场观赛人数超过
+中新网太原6月16日电 (刘小红)16日，2026山西银发经济博览会新闻发布会在山西省民政厅召开。本届展会聚焦康养产业创新发展、供需对接合作、行业人才培育等方面，依托专业化、规模化展览平台，集聚国内外银发经济优质资源，补齐产业发展短板，激发山西康养产业转型发展新动能。 2026山西银发经济博览会以“银发康养晋享未来”为主题，由山西省银发经济促进会、山西省老龄产业协会联合主办，将
 
 ## 正文
 
-中新社沈阳5月23日电 (韩宏 杨茜茜)2026年东北地区城市足球联赛(以下简称“东北超”)23日晚在沈阳、长春、哈尔滨、呼和浩特打响揭幕战。
+中新网太原6月16日电 (刘小红)16日，2026山西银发经济博览会新闻发布会在山西省民政厅召开。
 
-作为全国首个区域性城市足球联赛，该赛事旨在以草根足球为纽带，激活东北三省一区文旅体商融合新动能。
+本届展会聚焦康养产业创新发展、供需对接合作、行业人才培育等方面，依托专业化、规模化展览平台，集聚国内外银发经济优质资源，补齐产业发展短板，激发山西康养产业转型发展新动能。
 
-“东北超”由辽宁、吉林、黑龙江、内蒙古联合主办，八个城市协同联动，共设34场比赛。
+2026山西银发经济博览会以“银发康养晋享未来”为主题，由山西省银发经济促进会、山西省老龄产业协会联合主办，将于7月17日至19日在太原晋阳湖国际会展中心举办。
 
-当晚，沈阳赛区由沈阳队对阵鸡西队，四个城市现场观赛人数超过10万人次。
+作为中部地区大型银发经济博览会，本届博览会整体展览面积达3万平方米，规划九大特色展区，配套举办20余场主题活动。
 
-本届赛事树立“为城市而战”理念，从各城市数万名报名者中选拔出390名参赛球员，包括学生、快递员、企业职工等各行各业。
+届时，近500家国内外银发经济领域企业将携2000余款前沿科技产品、创新技术、特色服务集中亮相，全方位展示全国银发经济领域的新成果、新业态、新趋势，推动山西银发经济高质量发展。
 
-常规赛每轮各个省区都有一个主场，票价不超过20元(人民币，下同)。
+山西老龄化程度高于全国平均水平。
 
-同时，全部赛事均启用视频助理裁判系统(VAR)，超70%比赛监督具备职业联赛从业资质，超60%裁判员为国家级裁判。
+截至2025年底，全省60岁及以上老年人口达805.9万人，占总人口比重23.54%。
 
-赛场外，四省区联合打造“超游东北”文化IP，辽宁百余家知名旅游景区推出免票优惠，吉林打造精品文旅线路，黑龙江计划开展500场以上促消费活动，内蒙古推出299元文旅一卡通。
+山西省委、省政府聚焦人口老龄化发展形势，将银发经济纳入民生保障与转型发展重点工作，构建养老“事业+产业”协同发展新格局，保障老年群体发展权益。
 
 ## 相关推荐
 
-- 2026-06-29 22:18 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 22:32 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 22:34 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 22:17 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 22:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 22:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 22:29 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 22:26 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 22:14 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 22:09 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 22:24 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 22:20 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 22:28 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 22:15 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 22:38 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 22:29 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 22:38 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 22:41 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 22:41 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 22:36 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 22:14 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 22:23 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 22:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 22:32 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 22:28 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 22:30 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 22:33 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 22:21 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:21 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/293065.shtml)
-- 2026-06-29 22:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/16538.shtml)
-- 2026-06-29 22:12 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/956498535859.shtml)
-- 2026-06-29 22:21 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/4226463912.shtml)
-- 2026-06-29 22:13 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/29499541511.shtml)
-- 2026-06-29 22:15 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.kurohicncr.top/Article/details/42567841176.shtml)
-- 2026-06-29 22:31 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/5076852.shtml)
-- 2026-06-29 22:22 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/971790.shtml)
-- 2026-06-29 22:34 - [逃狱兄弟](https://www.share.minike.top/Article/details/9846766809.shtml)
-- 2026-06-29 22:25 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/9709421.shtml)
-- 2026-06-29 22:15 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.minike.top/Article/details/135129.shtml)
-- 2026-06-29 22:30 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/67559.shtml)
-- 2026-06-29 22:24 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/21365862146.shtml)
-- 2026-06-29 22:09 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/1240251702.shtml)
-- 2026-06-29 22:11 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/7502982409.shtml)
+- 2026-06-29 22:12 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/654539750.shtml)
+- 2026-06-29 22:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/83297.shtml)
+- 2026-06-29 22:31 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.kurohicncr.top/Article/details/2159537.shtml)
+- 2026-06-29 22:19 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/2943555.shtml)
+- 2026-06-29 22:19 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/02665.shtml)
+- 2026-06-29 22:31 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/08812458.shtml)
+- 2026-06-29 22:38 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/463766.shtml)
+- 2026-06-29 22:15 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/3371299.shtml)
+- 2026-06-29 22:23 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/42513791.shtml)
+- 2026-06-29 22:40 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/7059553.shtml)
+- 2026-06-29 22:29 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/5164435.shtml)
+- 2026-06-29 22:20 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/007424.shtml)
+- 2026-06-29 22:25 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/7595458.shtml)
+- 2026-06-29 22:31 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/29657749.shtml)
+- 2026-06-29 22:15 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/195064376213.shtml)

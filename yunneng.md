@@ -1,58 +1,54 @@
-# 开盘：美股周五高开 标普500指数本周有望录得涨幅
+# 意大利监管机构依据欧盟数字法对苹果iCloud服务展开调查
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-北京时间5月22日晚，美股周五高开。尽管市场波动加剧，标普500指数本周仍有望录得涨幅。投资者正在密切关注美伊谈判进展，尽管双方均释放积极信号，但伊朗浓缩铀去留问题和霍尔木兹海峡通行费争议仍是主要障碍。 道指涨148.99点，涨幅为0.30%，报50434.65点；纳指涨99.404点，涨幅为0.38%，报26392.501点；标普500指数涨23.10点，涨幅为0.31%，报
+意大利反垄断监管机构周二表示，已对苹果公司展开调查，以查明其是否遵守了《欧洲数字市场法》规定的互操作性义务。 根据该法规定，苹果必须确保第三方消费者云服务提供商能够与通过苹果iOS和iPadOS操作系统控制的硬件和软件组件有效且免费地互操作，并享有与苹果iCloud服务同等的访问权限。 该机构在声明中表示，他们有证据表明，其他消费者云服务提供商不可能与iCloud处于相同的地位
 
 ## 正文
 
-北京时间5月22日晚，美股周五高开。
+意大利反垄断监管机构周二表示，已对苹果公司展开调查，以查明其是否遵守了《欧洲数字市场法》规定的互操作性义务。
 
-尽管市场波动加剧，标普500指数本周仍有望录得涨幅。
+根据该法规定，苹果必须确保第三方消费者云服务提供商能够与通过苹果iOS和iPadOS操作系统控制的硬件和软件组件有效且免费地互操作，并享有与苹果iCloud服务同等的访问权限。
 
-投资者正在密切关注美伊谈判进展，尽管双方均释放积极信号，但伊朗浓缩铀去留问题和霍尔木兹海峡通行费争议仍是主要障碍。
+该机构在声明中表示，他们有证据表明，其他消费者云服务提供商不可能与iCloud处于相同的地位，因为它们似乎无法访问苹果服务所使用的或提供给苹果的相同组件。
 
-道指涨148.99点，涨幅为0.30%，报50434.65点；纳指涨99.404点，涨幅为0.38%，报26392.501点；标普500指数涨23.10点，涨幅为0.31%，报7468.82点。
+这是意大利监管机构首次根据欧盟《数字市场法》展开调查，该法允许各国监管机构进行初步调查。
 
-本周迄今，标普500指数上涨0.5%，有望录得连续第八周收涨。
+该机构表示，调查结果将提交给欧盟委员会。
 
-这将是自2023年末结束的九周连涨以来最长的周度连涨纪录。
-
-道指本周已上涨1.5%，有望实现四周内第三次周度收涨。
-
-纳斯达克综合指数上涨0.3%，有望在过去八周中第七次周度上涨。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 22:09 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 22:33 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 22:23 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 22:11 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 22:35 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 22:24 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 22:27 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 22:20 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 22:26 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 22:18 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 22:36 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 22:18 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 22:12 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 22:28 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 22:29 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 22:41 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 22:34 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 22:26 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 22:16 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 22:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 22:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 22:34 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 22:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 22:26 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:28 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/9340362.shtml)
-- 2026-06-29 22:25 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/25630994855.shtml)
-- 2026-06-29 22:28 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/117461.shtml)
-- 2026-06-29 22:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/273367.shtml)
-- 2026-06-29 22:11 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/0397923.shtml)
-- 2026-06-29 22:17 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/0417454223.shtml)
-- 2026-06-29 22:34 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/5020116.shtml)
-- 2026-06-29 22:06 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/340593516.shtml)
-- 2026-06-29 22:15 - [送你一朵小红花](https://www.blog.minike.top/Article/details/03855927254.shtml)
-- 2026-06-29 22:21 - [女生学医适合选什么专业](http://www.share.minike.top/Article/details/8889132.shtml)
-- 2026-06-29 22:26 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/3113651.shtml)
-- 2026-06-29 22:06 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/213125.shtml)
-- 2026-06-29 22:28 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/21776816.shtml)
-- 2026-06-29 22:17 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/716100407936.shtml)
-- 2026-06-29 22:28 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/626594.shtml)
+- 2026-06-29 22:32 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/938755.shtml)
+- 2026-06-29 22:40 - [如何看待乌空军3架米格-29被摧毁](http://www.share.minike.top/Article/details/122097.shtml)
+- 2026-06-29 22:19 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/610139.shtml)
+- 2026-06-29 22:30 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/85143.shtml)
+- 2026-06-29 22:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/600075.shtml)
+- 2026-06-29 22:14 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/255556.shtml)
+- 2026-06-29 22:26 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/092636646.shtml)
+- 2026-06-29 22:22 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/3401684310.shtml)
+- 2026-06-29 22:32 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/855880513492.shtml)
+- 2026-06-29 22:17 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.minike.top/Article/details/14268975.shtml)
+- 2026-06-29 22:17 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/318063460726.shtml)
+- 2026-06-29 22:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/05648505.shtml)
+- 2026-06-29 22:27 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/307282400548.shtml)
+- 2026-06-29 22:12 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/821072.shtml)
+- 2026-06-29 22:24 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/788865301875.shtml)

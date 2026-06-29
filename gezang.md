@@ -1,61 +1,56 @@
-# 西藏拉萨：市民游客共享夏日生机
+# （同心·大调研）聚焦文化消费促国内市场建设 民进中央开展2026年度重点考察调研
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-港人飞天，星辰可及美联储新主席宣誓就任 “沃什时代”政策迷雾待解抓科创、强产业，长三角一体化发展再提速你身上穿的T恤，大概率来自这个北方小城美军导弹告急，韩国日本更急？国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？618大战，为何先从手机降价开始？埃及胡夫金字塔如何抗震？国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给
+中新网成都6月17日电 题：聚焦文化消费促国内市场建设 民进中央开展2026年度重点考察调研 中新网记者 钟升 岳依桐 朱贺 “十五五”规划纲要提出“建设强大国内市场，加快构建新发展格局”的战略任务，并提出，完善文化管理体制和生产经营机制，实施积极的文化经济政策，大力发展文化旅游业，以文化赋能经济社会发展。当前，如何进一步扩大文化消费，使其更好发挥建设强大国内市场的重要引擎作用
 
 ## 正文
 
-港人飞天，星辰可及美联储新主席宣誓就任 “沃什时代”政策迷雾待解抓科创、强产业，长三角一体化发展再提速你身上穿的T恤，大概率来自这个北方小城美军导弹告急，韩国日本更急？
+中新网成都6月17日电 题：聚焦文化消费促国内市场建设 民进中央开展2026年度重点考察调研 中新网记者 钟升 岳依桐 朱贺 “十五五”规划纲要提出“建设强大国内市场，加快构建新发展格局”的战略任务，并提出，完善文化管理体制和生产经营机制，实施积极的文化经济政策，大力发展文化旅游业，以文化赋能经济社会发展。
 
-国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？
+当前，如何进一步扩大文化消费，使其更好发挥建设强大国内市场的重要引擎作用，为高质量发展注入新动能？
 
-618大战，为何先从手机降价开始？
+民进中央主席蔡达峰、常务副主席朱永新近期率调研组赴江苏、四川，围绕“扩大文化消费，建设强大国内市场”开展2026年度重点考察调研。
 
-埃及胡夫金字塔如何抗震？
+中共中央统战部、国家发展改革委、文化和旅游部等部门有关同志及相关专家参加调研。
 
-国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！
+蝶变焕新：工业遗存转型，激活文旅消费 当前，文化消费已成为拉动内需、促进就业及塑造城市品牌的重要引擎。
 
-你的股票和黄金，后市怎么走？
+作为文化消费活跃区域，江苏、四川如何创新业态、激活消费潜力？
 
-郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！
+让闲置旧厂房、老厂区“活”起来，成为消费新空间，是多地发力文旅消费的突破口。
 
-建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？
+在江苏，调研组考察无锡、南京等地。
 
 ## 相关推荐
 
-- 2026-06-29 22:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 22:11 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 22:17 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 22:26 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 22:34 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 22:22 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 22:21 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 22:11 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 22:28 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 22:30 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 22:28 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 22:22 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 22:08 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 22:19 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 22:17 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 22:25 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 22:37 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 22:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 22:28 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 22:38 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 22:27 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 22:40 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 22:14 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 22:18 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 22:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:12 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/4031692827.shtml)
-- 2026-06-29 22:23 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/746578969.shtml)
-- 2026-06-29 22:24 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/60873808.shtml)
-- 2026-06-29 22:16 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/603494897.shtml)
-- 2026-06-29 22:20 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/75812062.shtml)
-- 2026-06-29 22:15 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/385166.shtml)
-- 2026-06-29 22:30 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/7067431.shtml)
-- 2026-06-29 22:22 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/7077810277.shtml)
-- 2026-06-29 22:08 - [送你一朵小红花](http://www.blog.minike.top/Article/details/44625910.shtml)
-- 2026-06-29 22:29 - [金刚川](https://www.blog.kurohicncr.top/Article/details/38436462273.shtml)
-- 2026-06-29 22:06 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/4994779710.shtml)
-- 2026-06-29 22:19 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/28692.shtml)
-- 2026-06-29 22:26 - [明星大侦探第四季](http://www.share.minike.top/Article/details/867650757043.shtml)
-- 2026-06-29 22:32 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/5905440.shtml)
-- 2026-06-29 22:21 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/893942738009.shtml)
+- 2026-06-29 22:38 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/2523257.shtml)
+- 2026-06-29 22:34 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/0841887227.shtml)
+- 2026-06-29 22:21 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/27797742.shtml)
+- 2026-06-29 22:29 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/9608483266.shtml)
+- 2026-06-29 22:28 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/0332381001.shtml)
+- 2026-06-29 22:29 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/02936438878.shtml)
+- 2026-06-29 22:16 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/5427396586.shtml)
+- 2026-06-29 22:32 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/58909689282.shtml)
+- 2026-06-29 22:26 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/542054701.shtml)
+- 2026-06-29 22:23 - [女心理师](https://www.share.minike.top/Article/details/43411.shtml)
+- 2026-06-29 22:18 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/027140.shtml)
+- 2026-06-29 22:36 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/49760856.shtml)
+- 2026-06-29 22:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/0063637563.shtml)
+- 2026-06-29 22:26 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/32886283.shtml)
+- 2026-06-29 22:26 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/27851.shtml)

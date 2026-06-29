@@ -1,56 +1,57 @@
-# 长鑫科技“上会决战”！古有孔融让梨今有一明让股，市值3万亿场景下朱一明财富797亿员工人均454万！
+# 资讯｜居民存款暴跌，老百姓的钱都去哪了？
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-来源：国际投行研究报告 A股 · 港股 · 美股 第21周 | 2026年5月19日（周一）— 5月24日（周日） 本报告汇总2026年5月19日—5月24日，中国企业在A股、港股、美股三大市场的IPO最新动态，及长鑫科技5月27日上会前完整专题深度追踪。数据来源于公开资料整理，仅供参考，不构成投资建议。 📈 A股 🇭🇰 港股 🇺🇸 美股 / 其他 本周申购：2只 建达科技 $
+*本文为「三联生活周刊」原创内容文｜邢海洋马斯克的“骗局争议”2026年6月12日，SpaceX 正式纳斯达克上市，马斯克身家短暂突破1万亿美元。当天，2008 年诺贝尔经济学奖得主保罗・克鲁格曼在 Substack 发布专栏文章，标题为《Elon Musk, Human Ponzi Scheme》（埃隆・马斯克：真人版庞氏骗局），引发全球舆论热议。克鲁格曼的核心观点是，投资者
 
 ## 正文
 
-来源：国际投行研究报告 A股 · 港股 · 美股 第21周 | 2026年5月19日（周一）— 5月24日（周日） 本报告汇总2026年5月19日—5月24日，中国企业在A股、港股、美股三大市场的IPO最新动态，及长鑫科技5月27日上会前完整专题深度追踪。
+*本文为「三联生活周刊」原创内容文｜邢海洋马斯克的“骗局争议”2026年6月12日，SpaceX 正式纳斯达克上市，马斯克身家短暂突破1万亿美元。
 
-数据来源于公开资料整理，仅供参考，不构成投资建议。
+当天，2008 年诺贝尔经济学奖得主保罗・克鲁格曼在 Substack 发布专栏文章，标题为《Elon Musk, Human Ponzi Scheme》（埃隆・马斯克：真人版庞氏骗局），引发全球舆论热议。
 
-📈 A股 🇭🇰 港股 🇺🇸 美股 / 其他 本周申购：2只 建达科技 $21.40 · 华控股份 $16.80 重磅看点：长鑫科技5月27日上会，审核委员会将决定年内最重大科创板IPO命运；翰鸿睿芯受理，AI存储赛道IPO密集 本周挂牌：2只 驭势科技 挂牌（L4无人驾驶） 拓璞数控 +67%（5/21） 重要进展：和辉光电A转H聆讯通过；昆仑芯港股保密递表获确认；年内港股募资超1，800亿港元 暂无中概股新上市 SpaceX路演：6月4日全球路演启动 OpenAI：5月22日保密S-1已递交，9月冲击上市 Cerebras首日+68%热度延续 ★ 特别专题：💾 长鑫科技（CXMT）科创板 IPO 最终冲刺深度专题 5月27日上会 · A股史上最大个人股权激励 · 合肥万亿财富效应全解析 · IPO后人均财富测算 本周最重磅事件：上交所正式公告，5月
+克鲁格曼的核心观点是，投资者因相信马斯克 “科技先知” 人设买入旗下公司股票→股价暴涨进一步印证其天才标签→吸引更多新资本入场推高估值，形成叙事驱动的反身性泡沫循环；特斯拉、星链的实际盈利能力，完全无法支撑SpaceX上市后近2万亿美元的天价估值。
 
-上会是A股IPO的最终决战——通过后进入注册、发行、挂牌倒计时，被否则全盘重来。
+偏航的冷藏车据《九派新闻》和《极目新闻》等媒体报道，2025年7月至2026年1月的半年时间里，来自全国10个省市的21辆冷冻肉品货车，原本目的地在南方地区，却全部“偏航”千里开到河南泌阳，随即被当地市场监管局以“涉嫌未经检验检疫”为由查扣。
 
-长鑫科技此前更新了招股书（上会稿），Q1净利润247亿、半年预期500-570亿、估值市场预期最高冲击4万亿，叠加A股史上最大个人股权激励、合肥国资豪赚一个合肥的财富故事，正在以前所未有的速度改写科创板定价历史。
+这场充满蹊跷的执法风波持续发酵、引发全网关注后，终于迎来关键转折。
 
-S.1 公司基本面（更新：上会稿版本） 项目 内容 公司全称 长鑫科技集团股份有限公司（CXMT Corporation） 成立时间 / 总部 2016年，安徽省合肥市经济技术开发区空港工业园兴业大道388号 核心产品 DRAM存储芯片（DDR4/DDR5/LPDDR4X/LPDDR5/5X），覆盖PC/移动/服务器/AI算力全场景 拟上市市场 / 代码 上交所科创板（代码：002170），科创板首单‘预先审阅机制’申报 拟募资金额 295亿元（科创板历史第二，仅次于中芯国际532亿元），发行比例≥10%，底线估值约2，950亿元 募资用途 晶圆产线改造升级75亿元 · DRAM技术升级130亿元 · 前瞻技术研发90亿元 保荐机构 中金公司 + 中信建投（联合保荐） 全球行业地位 中国第一、全球第四大DRAM厂商（Omdia，按产能/出货量/销售额
+河南泌阳县联合调查组发布情况说明，已对县市场监督管理局、县市场监督管理局综合行政执法大队等相关人员采取留置措施，正在审理中。
 
-Q1净利润相当于‘日赚近4亿元’，2026年全年利润有望冲击千亿量级，一举抹平成立以来全部历史亏损366.5亿元。
+社零转负5月社会消费品零售总额同比下降0.6%，增速低于上月0.8个百分点，为2023年以来首次为负。
 
-DRAM均价Q1同比涨幅高达90—95%（TrendForce数据）是核心驱动力。
+其中，汽车类消费大幅下降16.1%（部分口径达22%），成为最大拖累项。
 
 ## 相关推荐
 
-- 2026-06-29 22:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 22:12 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 22:16 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 22:35 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 22:20 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 22:30 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 22:32 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 22:12 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 22:20 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 22:25 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 22:26 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 22:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 22:31 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 22:26 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 22:34 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 22:31 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 22:24 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 22:12 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 22:20 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 22:40 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 22:14 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:18 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/941796.shtml)
-- 2026-06-29 22:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/43056.shtml)
-- 2026-06-29 22:28 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/451430693.shtml)
-- 2026-06-29 22:22 - [记者乘坐无人驾驶汽车去采访](https://www.blog.minike.top/Article/details/033298445.shtml)
-- 2026-06-29 22:13 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/606890538758.shtml)
-- 2026-06-29 22:27 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/8748211432.shtml)
-- 2026-06-29 22:32 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/7269923.shtml)
-- 2026-06-29 22:06 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/788114464215.shtml)
-- 2026-06-29 22:10 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/10026069.shtml)
-- 2026-06-29 22:06 - [王安宇聪明到导演组炸了](https://www.share.kurohicncr.top/Article/details/4570455214.shtml)
-- 2026-06-29 22:20 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/0252701166.shtml)
-- 2026-06-29 22:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/8656127626.shtml)
-- 2026-06-29 22:16 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/4108390763.shtml)
-- 2026-06-29 22:23 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/708506695.shtml)
-- 2026-06-29 22:17 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/73754714.shtml)
+- 2026-06-29 22:30 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/952090585951.shtml)
+- 2026-06-29 22:36 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/87515313014.shtml)
+- 2026-06-29 22:37 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/43870.shtml)
+- 2026-06-29 22:32 - [任泽平：AI浪潮刚刚开始](http://www.blog.minike.top/Article/details/360836.shtml)
+- 2026-06-29 22:33 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/653185.shtml)
+- 2026-06-29 22:36 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/723669.shtml)
+- 2026-06-29 22:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/60570.shtml)
+- 2026-06-29 22:15 - [月亮](http://www.blog.minike.top/Article/details/38182717831.shtml)
+- 2026-06-29 22:22 - [国际清算银行警告AI投资热潮](https://www.blog.kurohicncr.top/Article/details/41001990124.shtml)
+- 2026-06-29 22:17 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/991005273.shtml)
+- 2026-06-29 22:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/01775946250.shtml)
+- 2026-06-29 22:39 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/8211596.shtml)
+- 2026-06-29 22:36 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/5652055.shtml)
+- 2026-06-29 22:19 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/5030804492.shtml)
+- 2026-06-29 22:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/89599.shtml)

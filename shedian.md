@@ -1,56 +1,59 @@
-# 高通领涨AI芯片板块，CPU超级周期重塑算力投资格局
+# 美伊签署备忘录！国际油价跌破80美元，高盛下调油价预期，化工品承压｜大宗风云
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-受AI智能体浪潮驱动CPU需求大爆发的强劲预期影响，美股AI芯片股5月22日多数走高，高通涨近9%，AMD涨超3%，恩智浦、IBM涨超2%，英特尔涨逾1%。此轮涨势标志着半导体投资主线正从GPU单点算力竞赛转向全栈AI基础设施。 高通股价涨幅一度扩大至9%至10%，此前公司确认正重返数据中心CPU市场，并与英伟达协同开发AI集群方案。AMD同样大涨，CEO苏姿丰表示受AI推理和
+来源：华夏时报 本报（chinatimes.net.cn）记者叶青 北京报道 6月16日，国际油价短线跳水。其中，WTI原油期货跌至76.96美元/桶，跌幅3.82%，创3月10日以来新低；布伦特原油期货跌至79.76美元/桶，跌幅3.4%。受此影响，国内化工品种延续弱势行情，LU低硫燃料油主连跌幅超4%，液化气期货跌幅4%，燃料油跌幅3.9%，SC原油、沥青跌幅均超3%。 “
 
 ## 正文
 
-受AI智能体浪潮驱动CPU需求大爆发的强劲预期影响，美股AI芯片股5月22日多数走高，高通涨近9%，AMD涨超3%，恩智浦、IBM涨超2%，英特尔涨逾1%。
+来源：华夏时报 本报（chinatimes.net.cn）记者叶青 北京报道 6月16日，国际油价短线跳水。
 
-此轮涨势标志着半导体投资主线正从GPU单点算力竞赛转向全栈AI基础设施。
+其中，WTI原油期货跌至76.96美元/桶，跌幅3.82%，创3月10日以来新低；布伦特原油期货跌至79.76美元/桶，跌幅3.4%。
 
-高通股价涨幅一度扩大至9%至10%，此前公司确认正重返数据中心CPU市场，并与英伟达协同开发AI集群方案。
+受此影响，国内化工品种延续弱势行情，LU低硫燃料油主连跌幅超4%，液化气期货跌幅4%，燃料油跌幅3.9%，SC原油、沥青跌幅均超3%。
 
-AMD同样大涨，CEO苏姿丰表示受AI推理和智能体AI普及推动，全球CPU需求远超预期，供应持续紧张。
+“6月15日美伊方面对外表态，双方已达成和平协议，将于6月19日正式签署。
 
-随着OpenClaw等AI代理工具爆发式增长，CPU正从配角升级为AI系统的中央调度官，摩根士丹利预测服务器CPU总TAM到2030年或将增至825亿至1100亿美元，未来五年复合增长率有望达38%。
+受该消息冲击，本周开盘原油价格大幅下挫，原油成本回落带动化工品估值同步走弱。
 
-与此同时，光互联和存储芯片也是最大赢家。
+若后续霍尔木兹海峡航运恢复畅通，原油供应有望在2至3个月内快速恢复至战前大致水平。
 
-微软作为AI算力核心买家股价维持坚挺，思科受益于数据中心互联需求上涨约0.40%。
+除此之外，此前受地缘冲突中断的化工品出口业务也有望逐步恢复，供给增量回归的逻辑将持续压制化工品价格走势。
 
-分析指出，AI投资热点正蔓延至CPU、存储、PCB等全链条，AI芯片领导地位正从英伟达一枝独秀向高通、AMD等百花齐放扩散。
+”创元能化研究员母贵煜在接受《华夏时报》记者采访时表示。
 
 ## 相关推荐
 
-- 2026-06-29 22:09 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 22:17 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 22:31 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 22:31 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 22:11 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 22:15 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 22:17 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 22:23 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 22:19 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 22:32 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 22:14 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 22:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 22:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 22:20 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 22:24 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 22:14 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 22:37 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 22:28 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 22:25 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 22:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 22:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 22:13 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 22:30 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:12 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/44106.shtml)
-- 2026-06-29 22:24 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/017033705.shtml)
-- 2026-06-29 22:08 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/0276614131.shtml)
-- 2026-06-29 22:26 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/4541906869.shtml)
-- 2026-06-29 22:10 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/16967107.shtml)
-- 2026-06-29 22:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/50637105114.shtml)
-- 2026-06-29 22:17 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/108749013323.shtml)
-- 2026-06-29 22:29 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/315695091.shtml)
-- 2026-06-29 22:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/83905645497.shtml)
-- 2026-06-29 22:35 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/980468872.shtml)
-- 2026-06-29 22:08 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/558130.shtml)
-- 2026-06-29 22:13 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/937307383400.shtml)
-- 2026-06-29 22:17 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/5570817139.shtml)
-- 2026-06-29 22:23 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/002879427150.shtml)
-- 2026-06-29 22:16 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/706371.shtml)
+- 2026-06-29 22:36 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/992887673.shtml)
+- 2026-06-29 22:29 - [宜宾地震已转移安置225人](https://www.share.kurohicncr.top/Article/details/4952764708.shtml)
+- 2026-06-29 22:37 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/51568954460.shtml)
+- 2026-06-29 22:37 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/863975094.shtml)
+- 2026-06-29 22:29 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/244881819.shtml)
+- 2026-06-29 22:16 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/178624312.shtml)
+- 2026-06-29 22:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/95076285232.shtml)
+- 2026-06-29 22:32 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/676070718365.shtml)
+- 2026-06-29 22:27 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/911684.shtml)
+- 2026-06-29 22:27 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/3497667799.shtml)
+- 2026-06-29 22:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/99117.shtml)
+- 2026-06-29 22:16 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/0918763848.shtml)
+- 2026-06-29 22:30 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/331855510148.shtml)
+- 2026-06-29 22:41 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/51650575.shtml)
+- 2026-06-29 22:13 - [店员光脚踩入盆中清洗土豆](http://www.share.minike.top/Article/details/45402878.shtml)

@@ -1,56 +1,58 @@
-# 公众科学日“盛宴”上新：多维度全方位展示空天地一体化
+# 云南多地将迎强降雨 7州市启动防汛Ⅳ级应急响应
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网北京5月24日电 (记者 孙自法)深空“星探之眼”雷达、“芯心相应”雷达、鹰眼计划、空天灵眸、全息地球、数字地球……中国科学院空天信息创新研究院(空天院)公众科学日活动5月24日“新鲜出炉”，以一场多维度、全方位展示空天地一体化的科普“盛宴”招待社会大众。当天，北京市科技周也同步启幕。 中国科学院空天院党委书记、副院长张兵院士致辞表示，2026年是该院建院70周年，中国空
+中新网昆明6月17日电(王临梓)17日，云南气象部门发布强降雨预报，省防汛抗旱指挥部对云南多地启动防汛Ⅳ级应急响应。 据气象部门预测，受西南季风和低涡切变影响，6月17日夜间至20日，云南中东部、西部边缘、南部边缘将出现强降雨天气，其中，曲靖市、昆明市、楚雄州、丽江市东部、玉溪市、德宏州西北部、怒江州北部有大到暴雨、局部大暴雨。 经综合会商研判，依据《云南省防汛抗旱应急预案》相
 
 ## 正文
 
-中新网北京5月24日电 (记者 孙自法)深空“星探之眼”雷达、“芯心相应”雷达、鹰眼计划、空天灵眸、全息地球、数字地球……中国科学院空天信息创新研究院(空天院)公众科学日活动5月24日“新鲜出炉”，以一场多维度、全方位展示空天地一体化的科普“盛宴”招待社会大众。
+中新网昆明6月17日电(王临梓)17日，云南气象部门发布强降雨预报，省防汛抗旱指挥部对云南多地启动防汛Ⅳ级应急响应。
 
-当天，北京市科技周也同步启幕。
+据气象部门预测，受西南季风和低涡切变影响，6月17日夜间至20日，云南中东部、西部边缘、南部边缘将出现强降雨天气，其中，曲靖市、昆明市、楚雄州、丽江市东部、玉溪市、德宏州西北部、怒江州北部有大到暴雨、局部大暴雨。
 
-中国科学院空天院党委书记、副院长张兵院士致辞表示，2026年是该院建院70周年，中国空天事业的蓬勃发展，离不开一代又一代人的接续奋斗，更需要少年力量接续传承。
+经综合会商研判，依据《云南省防汛抗旱应急预案》相关规定，云南省防汛抗旱指挥部于6月17日12时，对昆明市、曲靖市、玉溪市、楚雄州、德宏州、丽江市、怒江州7个州市启动防汛Ⅳ级应急响应。
 
-该院将持续丰富活动载体、创新展现形式，助力广大公众沉浸式领略智能科技魅力。
+此前，国家防汛抗旱总指挥部已于17日11时对云南启动防汛四级应急响应。
 
-此次公众科学日活动以中国科学院空天院北京新技术园区为引领，统筹联动京外园区及多个站点协同开放，设置大科学装置与展厅参观、空天科普课堂、专题科普讲座、趣味互动体验、科学集市五大特色板块，特别是聚焦低空科技与脑机接口两大前沿热门领域，深度整合科教融合优质资源，广泛吸引公众参与。
+端午假期临近，云南省防汛抗旱指挥部要求，有关州市加大对景区景点、野外露营地、交通干线、水库河道、危旧房屋、城市易涝点、施工工地、民政服务机构等部位的巡查力度，必要时采取关停措施，并提前向高风险区域和关键部位预置抢险救援力量和物资。
 
-活动提供了丰富多彩的沉浸式参观体验，公众可走进科技展厅，追寻科研先辈的奋斗足迹，领略空天科技的辉煌成果；近距离触摸科技创新的脉搏，深入了解生活中的雷达、波知万物、鹰眼计划等科创项目，以及火星车、空天灵眸、全息地球等前沿科研成果；沉浸式学习可持续发展数字地球演示；登上新舟60遥感飞机样机体验航空科技；近距离观摩曾飞跃珠峰的“极目一号”浮空艇。
+云南要求各地严格落实“1262”机制，做好预警叫应和转移避险，包保责任人及时下沉一线，落实老幼病残、单家独户等特殊群体转移避险措施；强降雨期间，相关州市党政主要领导夜间进驻指挥部值守调度，切实保障人民群众生命财产安全。
 
-特色空天课堂上，不仅有智能驾驶、浮空艇和医疗电子等课程，更以项目任务为驱动，鼓励青少年在实践中探索科技、收获成长。
-
-科普讲座既有专家主题报告，也有趣味十足的科普实验展演。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 22:35 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 22:31 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 22:33 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 22:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 22:29 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 22:24 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 22:13 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 22:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 22:12 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 22:40 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 22:19 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 22:38 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 22:24 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 22:31 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 22:41 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 22:20 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 22:31 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 22:40 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 22:15 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 22:35 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 22:20 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 22:32 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 22:16 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:20 - [英法德葡存在什么隐患](https://www.share.minike.top/Article/details/805006023936.shtml)
-- 2026-06-29 22:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/8302887.shtml)
-- 2026-06-29 22:33 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/822274233.shtml)
-- 2026-06-29 22:22 - [我和我的家乡](https://www.blog.minike.top/Article/details/2950721365.shtml)
-- 2026-06-29 22:14 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/5358592178.shtml)
-- 2026-06-29 22:27 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/006529527899.shtml)
-- 2026-06-29 22:24 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/87882.shtml)
-- 2026-06-29 22:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/91388.shtml)
-- 2026-06-29 22:20 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/41969847984.shtml)
-- 2026-06-29 22:11 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/898684611174.shtml)
-- 2026-06-29 22:19 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/6723108.shtml)
-- 2026-06-29 22:29 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/164842.shtml)
-- 2026-06-29 22:19 - [啊啊啊](https://www.blog.minike.top/Article/details/598360519212.shtml)
-- 2026-06-29 22:09 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/113366.shtml)
-- 2026-06-29 22:15 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/95228.shtml)
+- 2026-06-29 22:27 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/408863731322.shtml)
+- 2026-06-29 22:23 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/356859.shtml)
+- 2026-06-29 22:31 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/122832778.shtml)
+- 2026-06-29 22:17 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/12865874.shtml)
+- 2026-06-29 22:32 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/79381.shtml)
+- 2026-06-29 22:22 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/10656.shtml)
+- 2026-06-29 22:21 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/341288713320.shtml)
+- 2026-06-29 22:37 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/896681.shtml)
+- 2026-06-29 22:40 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/22235952637.shtml)
+- 2026-06-29 22:15 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/921117.shtml)
+- 2026-06-29 22:38 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/37676.shtml)
+- 2026-06-29 22:25 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/2531279.shtml)
+- 2026-06-29 22:13 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/034724.shtml)
+- 2026-06-29 22:38 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/32145.shtml)
+- 2026-06-29 22:35 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/9916929408.shtml)

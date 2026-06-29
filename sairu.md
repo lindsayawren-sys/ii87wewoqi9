@@ -1,60 +1,57 @@
-# 中国香港与哈萨克斯坦签署移交逃犯等协定
+# 山西千年壁画，启示何在？
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新社香港5月22日电 香港特区政府保安局局长邓炳强与哈萨克斯坦共和国(简称“哈萨克斯坦”)总检察长Berik Assylov，22日代表香港特别行政区及哈萨克斯坦在香港签署关于移交逃犯、刑事事宜相互法律协助和移交被判刑人的双边协定。 根据香港基本法，在中央人民政府授权下，香港特区政府可与外国就司法互助关系作出适当安排。移交逃犯协定列明香港特区与哈萨克斯坦在移交逃犯的规定，并载
+中新社记者 杨杰英 在中国历史的长卷中，山西是一部记录民族融合的“地下史书”。从魏晋南北朝到宋辽金元，跨越千年，这片农耕与游牧文明交汇的土地，用墓葬壁画无声镌刻了多民族交往交流交融的鲜活历程。近期，中新社“东西问”就此专访山西大学美术学院教授王志俊。 现将访谈实录摘要如下： 中新社记者：在山西墓葬壁画中，哪一类图像最直观体现了多民族共存？如何挑战传统历史叙事？ 王志俊：最具代表
 
 ## 正文
 
-中新社香港5月22日电 香港特区政府保安局局长邓炳强与哈萨克斯坦共和国(简称“哈萨克斯坦”)总检察长Berik Assylov，22日代表香港特别行政区及哈萨克斯坦在香港签署关于移交逃犯、刑事事宜相互法律协助和移交被判刑人的双边协定。
+中新社记者 杨杰英 在中国历史的长卷中，山西是一部记录民族融合的“地下史书”。
 
-根据香港基本法，在中央人民政府授权下，香港特区政府可与外国就司法互助关系作出适当安排。
+从魏晋南北朝到宋辽金元，跨越千年，这片农耕与游牧文明交汇的土地，用墓葬壁画无声镌刻了多民族交往交流交融的鲜活历程。
 
-移交逃犯协定列明香港特区与哈萨克斯坦在移交逃犯的规定，并载列同类国际协定的一般保障条款。
+近期，中新社“东西问”就此专访山西大学美术学院教授王志俊。
 
-香港特区政府与哈萨克斯坦签署关于刑事事宜相互法律协助的协定，载有国际上同类协定的主要条款及保障，所涵盖的协助包括辨认和追寻有关的人、送达文件、取得证据、执行搜查和检取的请求、提供资料，及没收犯罪得益等。
+现将访谈实录摘要如下： 中新社记者：在山西墓葬壁画中，哪一类图像最直观体现了多民族共存？
 
-香港特区政府保安局表示，移交被判刑人协定体现了香港和哈萨克斯坦双方的一个共同信念，就是容许被判刑人返回原居地服刑，免除语言和文化障碍，而其亲友又能更经常探望，有助于他们改过自新。
+如何挑战传统历史叙事？
 
-邓炳强在签署仪式上表示，香港和哈萨克斯坦均致力于通过国际合作打击罪案。
+王志俊：最具代表性的场景，当属山西忻州九原岗北朝壁画墓的墓道壁画。
 
-当日签订的移交逃犯、刑事事宜相互法律协助和移交被判刑人的双边协定，标志两地在司法合作方面迈出重要一步。
+西壁是气势恢宏的《狩猎图》：骑士策马奔腾，弯弓射猎，队伍中可见深目高鼻的中亚人形象与身着鲜卑服饰者共同驰骋，充满草原“尚武”精神。
 
-(完)
+然而，仅一壁之隔的北壁，却绘有一座结构严谨、斗拱清晰的汉式庑殿顶门楼，代表着中原高度的礼制建筑成就。
 
 ## 相关推荐
 
-- 2026-06-29 22:18 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 22:31 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 22:20 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 22:33 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 22:25 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 22:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 22:33 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 22:17 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 22:20 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 22:22 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 22:13 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 22:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 22:25 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 22:15 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 22:27 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 22:19 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 22:36 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 22:34 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 22:30 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 22:26 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 22:33 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 22:39 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 22:40 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 22:27 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 22:32 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/53309.shtml)
-- 2026-06-29 22:25 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/5561974.shtml)
-- 2026-06-29 22:20 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/862699.shtml)
-- 2026-06-29 22:34 - [记者：预计热火将追求小哈达威和康利](https://www.share.kurohicncr.top/Article/details/48555932.shtml)
-- 2026-06-29 22:33 - [返利科技盘中上演“天地板”](http://www.blog.kurohicncr.top/Article/details/798463977904.shtml)
-- 2026-06-29 22:31 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/868055054301.shtml)
-- 2026-06-29 22:28 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/64480363704.shtml)
-- 2026-06-29 22:18 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/5114681.shtml)
-- 2026-06-29 22:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/90360694224.shtml)
-- 2026-06-29 22:25 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/795829145853.shtml)
-- 2026-06-29 22:26 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/021149.shtml)
-- 2026-06-29 22:07 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/4674721.shtml)
-- 2026-06-29 22:15 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/334821174.shtml)
-- 2026-06-29 22:16 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/148561888972.shtml)
-- 2026-06-29 22:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/7177358837.shtml)
+- 2026-06-29 22:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/3215287149.shtml)
+- 2026-06-29 22:14 - [逃狱兄弟](https://www.share.minike.top/Article/details/9967620089.shtml)
+- 2026-06-29 22:15 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/720241606.shtml)
+- 2026-06-29 22:14 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/7094393078.shtml)
+- 2026-06-29 22:34 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/12592.shtml)
+- 2026-06-29 22:24 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/023562716.shtml)
+- 2026-06-29 22:27 - [如何看待乌空军3架米格-29被摧毁](http://www.share.minike.top/Article/details/30133219802.shtml)
+- 2026-06-29 22:24 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/140053787592.shtml)
+- 2026-06-29 22:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/8072333232.shtml)
+- 2026-06-29 22:36 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/985112.shtml)
+- 2026-06-29 22:25 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/69769074.shtml)
+- 2026-06-29 22:15 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/839143.shtml)
+- 2026-06-29 22:13 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/842969480.shtml)
+- 2026-06-29 22:40 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/5251836.shtml)
+- 2026-06-29 22:15 - [天道](https://www.share.kurohicncr.top/Article/details/7082218.shtml)

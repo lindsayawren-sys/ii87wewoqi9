@@ -1,51 +1,58 @@
-# 出发！朱杨柱、张志远、黎家盈三名航天员领命出征
+# 国际油价跳水大跌4%，布油跌破80美元，特朗普称19日前将实现霍尔木兹海峡全面重开
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-5月24日，神舟二十三号载人飞行任务航天员乘组出征仪式在酒泉卫星发射中心问天阁圆梦园广场举行。 朱杨柱、张志远、黎家盈三名航天员领命出征。 (总台央视记者 王刚 李昊)
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日晚，国际油价加速下跌，截至20点35分，纽约原油跌4.05%，报76.23美元/桶；布伦特原油跌4.07%，报79.78美元/桶，跌破80美元大关。 黄金、白银短线上扬，现货黄金报4343.97美元/盎司，日内涨0.81%，现货白银报70.74美元/盎司，日内涨逾1%。 消息面上，据新华社报道，美
 
 ## 正文
 
-5月24日，神舟二十三号载人飞行任务航天员乘组出征仪式在酒泉卫星发射中心问天阁圆梦园广场举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-朱杨柱、张志远、黎家盈三名航天员领命出征。
+6月15日晚，国际油价加速下跌，截至20点35分，纽约原油跌4.05%，报76.23美元/桶；布伦特原油跌4.07%，报79.78美元/桶，跌破80美元大关。
 
-(总台央视记者 王刚 李昊)
+黄金、白银短线上扬，现货黄金报4343.97美元/盎司，日内涨0.81%，现货白银报70.74美元/盎司，日内涨逾1%。
+
+消息面上，据新华社报道，美国总统特朗普16日称，将在19日前实现霍尔木兹海峡全面重开。
+
+伊朗副外长拉万奇当天表示，美国解除对伊朗封锁“已在一定程度上得到落实”。
+
+另据新华社报道，美国总统特朗普16日称，美国和伊朗协议谈判已进入第二阶段，“这应该比第一阶段更容易”。
+
+特朗普表示，美国不会在伊朗投入任何资金。
+
+对他而言“唯一重要的事”是伊朗永远不会拥有核武器，如果伊朗政府企图获取核武器，伊朗将“遭受毁灭性打击”。
 
 ## 相关推荐
 
-- 2026-06-29 22:09 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 22:06 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 22:23 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 22:11 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 22:13 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 22:21 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 22:22 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 22:25 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 22:12 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 22:21 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 22:21 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 22:27 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 22:33 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 22:26 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 22:11 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 22:32 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 22:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 22:26 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 22:22 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 22:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 22:22 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 22:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 22:15 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 22:16 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 22:23 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 22:29 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 22:27 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:19 - [如何看待乌空军3架米格-29被摧毁](http://www.share.minike.top/Article/details/35314.shtml)
-- 2026-06-29 22:25 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/938394.shtml)
-- 2026-06-29 22:27 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/824776230447.shtml)
-- 2026-06-29 22:27 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/3521371801.shtml)
-- 2026-06-29 22:08 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/332669555320.shtml)
-- 2026-06-29 22:13 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/99688533587.shtml)
-- 2026-06-29 22:19 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/630517.shtml)
-- 2026-06-29 22:21 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/11311345.shtml)
-- 2026-06-29 22:14 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/5050757428.shtml)
-- 2026-06-29 22:26 - [世界杯](https://www.blog.kurohicncr.top/Article/details/7740688.shtml)
-- 2026-06-29 22:25 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/69080.shtml)
-- 2026-06-29 22:23 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/6159519514.shtml)
-- 2026-06-29 22:30 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/889352.shtml)
-- 2026-06-29 22:20 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/1564420822.shtml)
-- 2026-06-29 22:33 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.minike.top/Article/details/2012732.shtml)
+- 2026-06-29 22:33 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/673056161.shtml)
+- 2026-06-29 22:17 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/5212644910.shtml)
+- 2026-06-29 22:23 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/8428805575.shtml)
+- 2026-06-29 22:21 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/607199219.shtml)
+- 2026-06-29 22:38 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/595712.shtml)
+- 2026-06-29 22:24 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/1615934.shtml)
+- 2026-06-29 22:31 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/282165478.shtml)
+- 2026-06-29 22:28 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/4196821.shtml)
+- 2026-06-29 22:24 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/915161910.shtml)
+- 2026-06-29 22:20 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/34344.shtml)
+- 2026-06-29 22:32 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/47991828119.shtml)
+- 2026-06-29 22:29 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/0519869684.shtml)
+- 2026-06-29 22:20 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/427890.shtml)
+- 2026-06-29 22:37 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/8135810.shtml)
+- 2026-06-29 22:40 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/100691817609.shtml)

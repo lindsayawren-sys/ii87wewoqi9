@@ -1,57 +1,58 @@
-# 渠道力推，量化私募“平替”火了？公募巨头加速布局，反向“挖角”头部私募……理财经理普及“量化逻辑”
+# 吴清：积极支持上海打造金融创新“试验田”
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：中国基金报 【导读】反向挖角头部私募、囤显卡堆算力、千万级别IT预算，公募量化悄然生变 见习记者 闫军 今年以来，公募量化市场突然火了。 一边是渠道的烈火烹油，银行、券商将其作为量化私募的“平替”大力推销，投资者认购热情高涨，甚至出现“一日售罄”和“限购潮”，有产品限购低至50元；另一边则是基金公司量化策略持续升级迭代，反
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，加快建设上海国际金融中心，是党中央着眼于金融强国和中国式现代化建设全局作出的重大战略部署。证监会将坚决抓好贯彻落实，强化资本市场作用发挥，更好助力增强上海国际金融中心竞争力、影响力。 吴清指
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：中国基金报 【导读】反向挖角头部私募、囤显卡堆算力、千万级别IT预算，公募量化悄然生变 见习记者 闫军 今年以来，公募量化市场突然火了。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-一边是渠道的烈火烹油，银行、券商将其作为量化私募的“平替”大力推销，投资者认购热情高涨，甚至出现“一日售罄”和“限购潮”，有产品限购低至50元；另一边则是基金公司量化策略持续升级迭代，反向从私募“挖角”、升级GPU算力，加速布局量化赛道。
+6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，加快建设上海国际金融中心，是党中央着眼于金融强国和中国式现代化建设全局作出的重大战略部署。
 
-Wind数据显示，截至5月22日，全市场量化基金共有861只，合计规模为5759.64亿元，较年初增长13%。
+证监会将坚决抓好贯彻落实，强化资本市场作用发挥，更好助力增强上海国际金融中心竞争力、影响力。
 
-在公募量化获得资金青睐的同时，规模扩张是否会影响超额表现？
+吴清指出，一是支持上海加快完善金融、能源、金属、航运等期货期权品种布局，着力增强“上海价格”国际影响力。
 
-科技板块单边上涨是否带来拥挤度隐忧？
+平稳推动液化天然气期货期权上市，支持推进电力等基础性、战略性期货品种研发。
 
-基金公司又将如何应对？
+二是推动股债融资、并购重组、机构发展、离岸金融等方面重大改革开放措施在上海先行先试，积极支持上海打造金融创新“试验田”。
 
-私募量化“光环”外溢至公募？
+三是支持上海浦东、北京海淀、广东深圳、江苏苏州、浙江杭州打造首批资本市场科技金融实践样本，促进资本市场更好服务经济高质量发展。
 
-理财经理纷纷普及“量化逻辑” 基金君调查显示，包括银行、券商在内的主要代销渠道，近期都明显增加了公募量化产品的销售比重。
+四是精心筹备召开首届中国资本市场学术年会，发挥好资本市场学会平台作用，努力打造高端智库平台，助力上海国际金融中心软实力提升。
 
 ## 相关推荐
 
-- 2026-06-29 22:17 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 22:23 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 22:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 22:34 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 22:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 22:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 22:33 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 22:35 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 22:14 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 22:10 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 22:33 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 22:36 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 22:35 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 22:12 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 22:13 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 22:24 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 22:29 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 22:12 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 22:39 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 22:34 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 22:23 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 22:34 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 22:17 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:16 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/8225312631.shtml)
-- 2026-06-29 22:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/9148674400.shtml)
-- 2026-06-29 22:33 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/579252.shtml)
-- 2026-06-29 22:07 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/072719.shtml)
-- 2026-06-29 22:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/74966481.shtml)
-- 2026-06-29 22:29 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/6729483.shtml)
-- 2026-06-29 22:34 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/5246924.shtml)
-- 2026-06-29 22:07 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/725148.shtml)
-- 2026-06-29 22:35 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/829885.shtml)
-- 2026-06-29 22:10 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/2622061037.shtml)
-- 2026-06-29 22:08 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/83419989323.shtml)
-- 2026-06-29 22:22 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/75609512096.shtml)
-- 2026-06-29 22:30 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/594795089.shtml)
-- 2026-06-29 22:23 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/7378476.shtml)
-- 2026-06-29 22:35 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/880935628.shtml)
+- 2026-06-29 22:39 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/8249372044.shtml)
+- 2026-06-29 22:33 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/38301351682.shtml)
+- 2026-06-29 22:36 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/65598295997.shtml)
+- 2026-06-29 22:39 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/0555033.shtml)
+- 2026-06-29 22:34 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/988253164933.shtml)
+- 2026-06-29 22:34 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/63891.shtml)
+- 2026-06-29 22:26 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/036409.shtml)
+- 2026-06-29 22:27 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/272341.shtml)
+- 2026-06-29 22:32 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/69450.shtml)
+- 2026-06-29 22:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/8524799583.shtml)
+- 2026-06-29 22:33 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/45507.shtml)
+- 2026-06-29 22:36 - [恋与深空致歉](https://www.share.minike.top/Article/details/8039016.shtml)
+- 2026-06-29 22:32 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/6425644.shtml)
+- 2026-06-29 22:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/88457.shtml)
+- 2026-06-29 22:29 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/5813107.shtml)

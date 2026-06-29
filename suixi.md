@@ -1,61 +1,60 @@
-# 中信建投期货：5月26日能化早报
+# 推动全球治理倡议走深走实 中方聚焦四方面工作
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-橡胶：短期偏弱 周四，国产全乳胶17550/吨，环比上日上涨50元/吨；泰国20号混合胶16970元/吨，环比上日下跌160元/吨。 原料端：泰国胶水报收84泰铢/公斤，环比上日持平；泰国杯胶报收68.0泰铢/公斤，环比上日下跌0.2泰铢/公斤；云南胶水报收16.5元/公斤，环比上日下跌0.1元/公斤；海南胶水报收16.7元/公斤，环比上日持平。 截至2026年5月17日，中国
+中新网6月17日电 国务院新闻办公室17日举行新闻发布会，发布《构建更加公正合理的全球治理体系：中国的理念、倡议与行动》白皮书。中共中央政治局委员、外交部长王毅就中方推动全球治理倡议走深走实介绍四方面工作。 王毅表示，全球治理倡议追求的是国际社会的共同福祉，依靠的是国际社会的共同努力。在上个月召开的“全球治理之友小组”会议上，中方提出了改革完善全球治理九个方向，当时就得到了联合
 
 ## 正文
 
-橡胶：短期偏弱 周四，国产全乳胶17550/吨，环比上日上涨50元/吨；泰国20号混合胶16970元/吨，环比上日下跌160元/吨。
+中新网6月17日电 国务院新闻办公室17日举行新闻发布会，发布《构建更加公正合理的全球治理体系：中国的理念、倡议与行动》白皮书。
 
-原料端：泰国胶水报收84泰铢/公斤，环比上日持平；泰国杯胶报收68.0泰铢/公斤，环比上日下跌0.2泰铢/公斤；云南胶水报收16.5元/公斤，环比上日下跌0.1元/公斤；海南胶水报收16.7元/公斤，环比上日持平。
+中共中央政治局委员、外交部长王毅就中方推动全球治理倡议走深走实介绍四方面工作。
 
-截至2026年5月17日，中国天然橡胶社会库存131.6万吨，环比下降1.1万吨，降幅0.8%。
+王毅表示，全球治理倡议追求的是国际社会的共同福祉，依靠的是国际社会的共同努力。
 
-中国深色胶社会总库存为90.6万吨，降幅1%。
+在上个月召开的“全球治理之友小组”会议上，中方提出了改革完善全球治理九个方向，当时就得到了联合国秘书处和各方的积极响应。
 
-其中青岛现货库存降0.5%；云南降2.4%；越南10降13%；NR库存小计降3.4%。
+下阶段推动全球治理倡议走深走实，离不开大国承担责任，也离不开多边机制发挥作用，更离不开国际社会的共同努力。
 
-中国浅色胶社会总库存为41万吨，环比降0.4%。
+为此，今年中方将聚焦做好四方面工作： 一是重振开放的区域主义。
 
-其中老全乳胶环比降1%，3L环比降6%，RU库存小计增加2.7%。
+今年中国将主办亚太经合组织领导人非正式会议，我们将重温亚太合作初心，围绕贸易、联通、创新、发展打造更多成果，推动构建亚太共同体，为亚太乃至世界的和平与发展注入新动能。
 
-观点：近期产区的天气条件或相对正常，预计割季将按照季节性顺利推进。
+二是要加强新兴领域治理。
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 22:22 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 22:27 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 22:10 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 22:19 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 22:28 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 22:31 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 22:16 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 22:19 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 22:23 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 22:33 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 22:28 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 22:35 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 22:24 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 22:15 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 22:21 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 22:36 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 22:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 22:25 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 22:37 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 22:36 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 22:17 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 22:29 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 22:28 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 22:25 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 22:36 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 22:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 22:21 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 22:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:33 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/2178736.shtml)
-- 2026-06-29 22:10 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/1954268978.shtml)
-- 2026-06-29 22:22 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/305029876.shtml)
-- 2026-06-29 22:21 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/703526.shtml)
-- 2026-06-29 22:22 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/5738517697.shtml)
-- 2026-06-29 22:13 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/41039.shtml)
-- 2026-06-29 22:19 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/6470381331.shtml)
-- 2026-06-29 22:13 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/7311617.shtml)
-- 2026-06-29 22:10 - [起风了](https://www.share.minike.top/Article/details/60839876.shtml)
-- 2026-06-29 22:22 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/66938.shtml)
-- 2026-06-29 22:22 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/01334323.shtml)
-- 2026-06-29 22:33 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/0001334.shtml)
-- 2026-06-29 22:06 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/75667267.shtml)
-- 2026-06-29 22:30 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/901119001369.shtml)
-- 2026-06-29 22:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/642041396849.shtml)
+- 2026-06-29 22:30 - [金刚川](https://www.blog.minike.top/Article/details/048751641.shtml)
+- 2026-06-29 22:39 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/36960.shtml)
+- 2026-06-29 22:17 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/6476498924.shtml)
+- 2026-06-29 22:17 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/0943618991.shtml)
+- 2026-06-29 22:40 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/0772359.shtml)
+- 2026-06-29 22:37 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/39625592474.shtml)
+- 2026-06-29 22:40 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/46621866.shtml)
+- 2026-06-29 22:15 - [网约车出事故平台拒赔称只是中介](https://www.blog.kurohicncr.top/Article/details/723565106.shtml)
+- 2026-06-29 22:35 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/070313.shtml)
+- 2026-06-29 22:28 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/675322078.shtml)
+- 2026-06-29 22:15 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/583265.shtml)
+- 2026-06-29 22:27 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/464175.shtml)
+- 2026-06-29 22:33 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/758632836.shtml)
+- 2026-06-29 22:28 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/87772.shtml)
+- 2026-06-29 22:40 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/6594977.shtml)

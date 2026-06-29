@@ -1,57 +1,56 @@
-# 签约212个项目、逾7万人次赴会 第八届西洽会成果丰硕
+# 印尼中苏拉威西省发生6.7级地震 多地震感明显
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月24日电 (记者 钟旖)第八届中国西部国际投资贸易洽谈会(简称“西洽会”)成果通报会24日在重庆举行。 记者获悉，为期四天的盛会吸引50个国家和地区近1400家企业、机构参展参会，举办产业发展、外商投资、经贸合作、消费促进等活动49场，签约重大项目212个。截至24日10时，吸引7.2万人次入场参展参会、参观消费。 5月21日至24日，西洽会以“新西部、新制造、新
+中新网雅加达6月16日电 印度尼西亚气象、气候和地球物理局通报，当地时间6月16日10时27分，印尼中苏拉威西省帕卢市东南约42公里处发生6.7级地震，震源深度10公里。包括帕卢在内的多个地区震感明显。 该局表示，此次地震暂无引发海啸的风险。地震发生后，当地居民迅速撤离住宅和办公建筑，前往空旷区域避险。出于对余震及潜在海啸风险的担忧，部分沿海居民也主动远离海岸地带。 截至目前，
 
 ## 正文
 
-中新网重庆5月24日电 (记者 钟旖)第八届中国西部国际投资贸易洽谈会(简称“西洽会”)成果通报会24日在重庆举行。
+中新网雅加达6月16日电 印度尼西亚气象、气候和地球物理局通报，当地时间6月16日10时27分，印尼中苏拉威西省帕卢市东南约42公里处发生6.7级地震，震源深度10公里。
 
-记者获悉，为期四天的盛会吸引50个国家和地区近1400家企业、机构参展参会，举办产业发展、外商投资、经贸合作、消费促进等活动49场，签约重大项目212个。
+包括帕卢在内的多个地区震感明显。
 
-截至24日10时，吸引7.2万人次入场参展参会、参观消费。
+该局表示，此次地震暂无引发海啸的风险。
 
-5月21日至24日，西洽会以“新西部、新制造、新服务”为主题，邀请英国担任主宾国，四川省为常设主宾省，韩国京畿道担任主宾城。
+地震发生后，当地居民迅速撤离住宅和办公建筑，前往空旷区域避险。
 
-展览总面积达15万平方米，创新设置综合形象、生产性服务业、产业融合发展、国际和区域合作四大主题展区，打造西部链接全球、展示形象、深化开放的标志性窗口。
+出于对余震及潜在海啸风险的担忧，部分沿海居民也主动远离海岸地带。
 
-第八届西洽会组委会办公室主任，重庆市商务委党组书记、主任章勇武介绍，在四天时间里，来自全球的宾朋以“展”为引、以“会”为媒，在西部“洽”出无限可能，呈现多个突出特点。
+截至目前，印尼官方尚未接到人员伤亡或重大财产损失报告。
 
-其间，国内27个省区市和香港特别行政区、澳门特别行政区以及中国台湾地区、新疆生产建设兵团参展参会。
+有关部门正在持续评估地震造成的影响，并密切监测后续余震情况。
 
-其中，西部12个省区市全部参加，通过“展览+活动”全景展现西部高质量发展成效。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:29 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 22:24 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 22:29 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 22:13 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 22:30 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 22:07 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 22:12 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 22:14 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 22:11 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 22:13 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 22:10 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 22:15 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 22:25 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 22:22 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 22:12 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 22:21 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 22:32 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 22:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 22:34 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 22:35 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 22:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:13 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/3906545.shtml)
-- 2026-06-29 22:20 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/91935831847.shtml)
-- 2026-06-29 22:15 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/764215594423.shtml)
-- 2026-06-29 22:26 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/5458344.shtml)
-- 2026-06-29 22:26 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/817139841.shtml)
-- 2026-06-29 22:06 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/09885169294.shtml)
-- 2026-06-29 22:25 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/105087.shtml)
-- 2026-06-29 22:22 - [温网](https://www.share.kurohicncr.top/Article/details/981349.shtml)
-- 2026-06-29 22:32 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/5344703.shtml)
-- 2026-06-29 22:06 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.kurohicncr.top/Article/details/908630468.shtml)
-- 2026-06-29 22:21 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/9648009.shtml)
-- 2026-06-29 22:06 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/956750410.shtml)
-- 2026-06-29 22:15 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.minike.top/Article/details/7981227.shtml)
-- 2026-06-29 22:07 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/8534443.shtml)
-- 2026-06-29 22:25 - [女生学医适合选什么专业](http://www.blog.minike.top/Article/details/9855433786.shtml)
+- 2026-06-29 22:12 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/6338299735.shtml)
+- 2026-06-29 22:13 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/312705288.shtml)
+- 2026-06-29 22:21 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/1488342.shtml)
+- 2026-06-29 22:39 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/93741017.shtml)
+- 2026-06-29 22:40 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/05177696283.shtml)
+- 2026-06-29 22:26 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/821475183575.shtml)
+- 2026-06-29 22:22 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/6831053183.shtml)
+- 2026-06-29 22:35 - [乌克兰发广告全球征兵](http://www.share.minike.top/Article/details/2504022458.shtml)
+- 2026-06-29 22:39 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/84167789710.shtml)
+- 2026-06-29 22:21 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/639471.shtml)
+- 2026-06-29 22:23 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/5599813.shtml)
+- 2026-06-29 22:38 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/46414701078.shtml)
+- 2026-06-29 22:41 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/797402693046.shtml)
+- 2026-06-29 22:31 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/6690932871.shtml)
+- 2026-06-29 22:37 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/44783.shtml)

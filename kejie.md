@@ -1,61 +1,60 @@
-# 2026北京国际茶业展开幕 促进茶产业交流合作
+# 海南推出21条政策举措强化自然资源要素精准供给
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网北京5月22日电(记者 徐婧)2026北京国际茶业展、2026北京马连道国际茶文化交流会、2026贺州茶宣传推介会(简称“一展两会”)联合推介会22日在北京举办。活动全面展示中国茶产业发展成果，推动茶文化、茶产业、茶科技深度融合。 2012年以来，北京西城和中国茶叶流通协会、全国主要产茶区共同举办系列茶事活动，推动“一展两会”成为传承中华茶文化、展示茶产业发展成果、促进产
+中新网海口6月16日电 (尹建军 黄丹)海南省自然资源和规划厅16日介绍，海南省多部门近日印发《进一步强化自然资源要素精准供给若干政策措施》，围绕空间规划、耕地保护、土地征收、用地审批等8个方面，出台21条具体政策举措，提升自然资源要素保障精准度和实效性。在优化要素保障审批流程方面，海南进一步放权赋能、精简环节。用地预审环节，将省级自然资源和规划部门权限内的用地预审事项，全部授
 
 ## 正文
 
-中新网北京5月22日电(记者 徐婧)2026北京国际茶业展、2026北京马连道国际茶文化交流会、2026贺州茶宣传推介会(简称“一展两会”)联合推介会22日在北京举办。
+中新网海口6月16日电 (尹建军 黄丹)海南省自然资源和规划厅16日介绍，海南省多部门近日印发《进一步强化自然资源要素精准供给若干政策措施》，围绕空间规划、耕地保护、土地征收、用地审批等8个方面，出台21条具体政策举措，提升自然资源要素保障精准度和实效性。
 
-活动全面展示中国茶产业发展成果，推动茶文化、茶产业、茶科技深度融合。
+在优化要素保障审批流程方面，海南进一步放权赋能、精简环节。
 
-2012年以来，北京西城和中国茶叶流通协会、全国主要产茶区共同举办系列茶事活动，推动“一展两会”成为传承中华茶文化、展示茶产业发展成果、促进产销深度融合的重要平台。
+用地预审环节，将省级自然资源和规划部门权限内的用地预审事项，全部授权市县相关部门办理，实现审批权限下沉。
 
-今年，广西贺州作为主宾城市，与西城区全方位促进茶产业交流合作。
+土地征收环节，实行征地前期工作并联开展，取消单独编制土地征收成片开发方案的要求，有效压缩征地周期、减少用地主体投入。
 
-北京市西城区委书记刘东伟介绍，近年来，西城区围绕茶文化、茶产业、茶科技三位一体发展，不断提升马连道地区业态品质，推动传统茶叶批发市场向文化、科技、金融融合发展的现代化街区转型。
+在用地报批环节，精简审查要件，不再开展压覆重要矿产资源、详细规划相关内容审查，大幅缩减申报材料。
 
-马连道特色街区汇聚了全国10多个产茶大省的1500余家茶商，形成了强大的茶产业集群。
+规划许可环节，明确建立零星公共设施项目等三大类项目豁免清单，符合条件项目可免于办理工程规划许可、乡村建设规划许可，切实提升项目落地效率。
 
-本次“一展两会”将持续至5月25日，除联合推介会外，还策划系列活动，形成覆盖展览展示、文化交流、产销对接、消费促进的全链条活动矩阵，为市民游客带来一场可看、可品、可参与的沉浸式茶界盛宴。
+此次新政出台举措，解决存量难题和历史遗留问题。
 
-当天，2026北京国际茶业展在北京展览馆举办，吸引300余家茶企参展，一线品牌占比超80%。
+殡葬设施用地方面，经市县政府认定的殡葬设施用地需求，可纳入国土空间规划统一保障，补齐公共服务配套短板。
 
 ## 相关推荐
 
-- 2026-06-29 22:14 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 22:13 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 22:28 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 22:26 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 22:22 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 22:26 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 22:11 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 22:21 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 22:07 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 22:20 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 22:35 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 22:15 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 22:27 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 22:35 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 22:17 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 22:25 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 22:35 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 22:14 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 22:36 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 22:32 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 22:20 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 22:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 22:31 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 22:25 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 22:21 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 22:18 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 22:42 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 22:21 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 22:26 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/871858856.shtml)
-- 2026-06-29 22:22 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/480630.shtml)
-- 2026-06-29 22:18 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/571849687408.shtml)
-- 2026-06-29 22:20 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/2920755.shtml)
-- 2026-06-29 22:35 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/1061014.shtml)
-- 2026-06-29 22:11 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/3381527.shtml)
-- 2026-06-29 22:13 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/45173995542.shtml)
-- 2026-06-29 22:12 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.kurohicncr.top/Article/details/149120563.shtml)
-- 2026-06-29 22:21 - [东方风云榜直播](http://www.blog.minike.top/Article/details/07318.shtml)
-- 2026-06-29 22:27 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/82171885.shtml)
-- 2026-06-29 22:13 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/69123207781.shtml)
-- 2026-06-29 22:23 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/720647553.shtml)
-- 2026-06-29 22:10 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/70125373258.shtml)
-- 2026-06-29 22:14 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/48653952.shtml)
-- 2026-06-29 22:17 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/08221987.shtml)
+- 2026-06-29 22:16 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/645047179884.shtml)
+- 2026-06-29 22:33 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/835071526.shtml)
+- 2026-06-29 22:28 - [明星大侦探第四季](https://www.share.minike.top/Article/details/40981344312.shtml)
+- 2026-06-29 22:29 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/51727.shtml)
+- 2026-06-29 22:17 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/8317871664.shtml)
+- 2026-06-29 22:14 - [把邻居裸体发群算维权还是侵权](http://www.share.minike.top/Article/details/72662756468.shtml)
+- 2026-06-29 22:28 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/4089228416.shtml)
+- 2026-06-29 22:27 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/2626997077.shtml)
+- 2026-06-29 22:16 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/5165765059.shtml)
+- 2026-06-29 22:35 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/125122212488.shtml)
+- 2026-06-29 22:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/1763611.shtml)
+- 2026-06-29 22:29 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/88358651.shtml)
+- 2026-06-29 22:27 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/9008352529.shtml)
+- 2026-06-29 22:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/843825928730.shtml)
+- 2026-06-29 22:12 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/132902910.shtml)

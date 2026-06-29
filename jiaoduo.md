@@ -1,59 +1,50 @@
-# 广州南沙多举措加快打造国际数港
+# 潘功胜：将授权6家银行利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网广州5月22日电 (记者 王坚)数联湾区智通全球—数据领域国际合作(广州·南沙)专题活动21日在广州举行。活动现场，四大高能级数字产业项目集中签约，精准覆盖跨境基建、数据流通、AI文创、智能网联四大赛道，从底层底座到应用终端全面补齐湾区跨境数据基础设施短板，为粤港澳数据国际合作打造可复制、可推广的产业样板。 活动介绍，广东省、广州市将从不同维度支持南沙推进数据跨境。其中，
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，2026陆家嘴论坛今日开幕。中国人民银行行长潘功胜宣布，为推动外汇市场双向开放，促进在岸和离岸市场融合，助力上海打造人民币资产全球配置中心和风险管理中心，人民银行将授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。未来，人民银行将根据
 
 ## 正文
 
-中新网广州5月22日电 (记者 王坚)数联湾区智通全球—数据领域国际合作(广州·南沙)专题活动21日在广州举行。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，2026陆家嘴论坛今日开幕。
 
-活动现场，四大高能级数字产业项目集中签约，精准覆盖跨境基建、数据流通、AI文创、智能网联四大赛道，从底层底座到应用终端全面补齐湾区跨境数据基础设施短板，为粤港澳数据国际合作打造可复制、可推广的产业样板。
+中国人民银行行长潘功胜宣布，为推动外汇市场双向开放，促进在岸和离岸市场融合，助力上海打造人民币资产全球配置中心和风险管理中心，人民银行将授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。
 
-活动介绍，广东省、广州市将从不同维度支持南沙推进数据跨境。
+未来，人民银行将根据试点情况，进一步推动离岸人民币外汇交易市场发展。
 
-其中，广东支持广州、南沙在跨境规则衔接、可信空间建设、数据资产治理等领域大胆先行先试，为全国数据跨境落地打造南沙样本、广州路径、广东实践；广州凭借国际通信枢纽、千亿数据产业体量、超2.2万家数据企业集聚的完整生态底盘，正全力争创数据领域国际合作试点示范，树立广州范式、湾区标杆。
-
-广州市南沙区委副书记、区长岳阳表示，南沙作为面向世界的重大战略性平台，近年来在国家和省、市的大力支持下，把数据作为联通全球的战略资源，视标准为规则衔接的关键钥匙，明确以数据流通、跨境开放、安全合规为三大主攻方向，聚力建设联通内外的数据枢纽。
-
-活动现场宣布，由南沙区政数局、中科汇智、香港物流及供应链管理应用技术研发中心、广东南方信息安全研究院四方携手，共建跨境贸易可信数据空间及联合实验室，依托区块链搭建自主可控底层架构，破解关、汇、税数据孤岛，建成可用、可信、可控的湾区跨境数据主干网络。
-
-由广东省信息安全测评中心、广州联通、中航云数据三方联手，共建标准化跨境数据流通平台，整合技术、运营、资源优势，筑牢安全防护屏障，规范合规流转路径，为企业数据出海打通主干道。
-
-由三岳数媒(广州)科技有限公司、广州南沙开发建设集团有限公司合作的空间智能AI大模型数字文创中心项目也正式签约，该中心聚焦 AI创作、数字IP、微短剧出海，打通生产—确权—跨境传播全链路，开辟湾区文化数字资产国际化新通道。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 22:23 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 22:32 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 22:33 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 22:12 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 22:10 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 22:21 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 22:33 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 22:06 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 22:08 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 22:22 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 22:34 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 22:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 22:31 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 22:29 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 22:33 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 22:31 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 22:30 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 22:25 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 22:13 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 22:34 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 22:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 22:38 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 22:40 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 22:24 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 22:12 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:11 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/4518294025.shtml)
-- 2026-06-29 22:10 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.minike.top/Article/details/30216.shtml)
-- 2026-06-29 22:20 - [流金岁月](http://www.share.minike.top/Article/details/201908898.shtml)
-- 2026-06-29 22:28 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/7891120.shtml)
-- 2026-06-29 22:32 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/3881966966.shtml)
-- 2026-06-29 22:07 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/08379305.shtml)
-- 2026-06-29 22:26 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/78895214.shtml)
-- 2026-06-29 22:25 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/163231.shtml)
-- 2026-06-29 22:28 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/91482433850.shtml)
-- 2026-06-29 22:32 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/84187089366.shtml)
-- 2026-06-29 22:07 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/724001.shtml)
-- 2026-06-29 22:25 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/850567379.shtml)
-- 2026-06-29 22:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/73498496445.shtml)
-- 2026-06-29 22:24 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/77800821.shtml)
-- 2026-06-29 22:11 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/34373246885.shtml)
+- 2026-06-29 22:21 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/889274059.shtml)
+- 2026-06-29 22:15 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/02703621.shtml)
+- 2026-06-29 22:24 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/452112020261.shtml)
+- 2026-06-29 22:23 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/8435702.shtml)
+- 2026-06-29 22:14 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/3126689.shtml)
+- 2026-06-29 22:26 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/6016230.shtml)
+- 2026-06-29 22:14 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/122241251.shtml)
+- 2026-06-29 22:35 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/509434334941.shtml)
+- 2026-06-29 22:25 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/387831983.shtml)
+- 2026-06-29 22:32 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/9135438.shtml)
+- 2026-06-29 22:18 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/810856580.shtml)
+- 2026-06-29 22:17 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/11456116.shtml)
+- 2026-06-29 22:41 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/869333.shtml)
+- 2026-06-29 22:19 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/9147185954.shtml)
+- 2026-06-29 22:25 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/3714713.shtml)

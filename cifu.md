@@ -1,51 +1,48 @@
-# 海天味业遭GIC Private Limited减持25.43万股 每股作价约31.66港元
+# 外交部：中方一贯反对美方泛化国家安全概念
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，5月19日，GIC Private Limited减持海天味业（03288）25.43万股，每股作价31.6645港元，总金额约为805.23万港元。减持后最新持股数目为3478.09万股，最新持股比例为11.94%。责任编辑：卢昱君
+新华社北京6月17日电(记者马卓言、冯歆然)有报道称，美国商务部推迟了将多家中国公司列入限制性实体名单的计划。外交部发言人林剑17日在例行记者会上就此答问时说，中方一贯反对美方泛化国家安全概念，滥用实体清单等出口管制工具，遏制打压中方企业。美方应停止将经贸科技问题政治化、工具化、武器化。(完)
 
 ## 正文
 
-香港联交所最新资料显示，5月19日，GIC Private Limited减持海天味业（03288）25.43万股，每股作价31.6645港元，总金额约为805.23万港元。
+新华社北京6月17日电(记者马卓言、冯歆然)有报道称，美国商务部推迟了将多家中国公司列入限制性实体名单的计划。
 
-减持后最新持股数目为3478.09万股，最新持股比例为11.94%。
+外交部发言人林剑17日在例行记者会上就此答问时说，中方一贯反对美方泛化国家安全概念，滥用实体清单等出口管制工具，遏制打压中方企业。
 
-责任编辑：卢昱君
+美方应停止将经贸科技问题政治化、工具化、武器化。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:26 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 22:08 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 22:19 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 22:13 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 22:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 22:22 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 22:28 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 22:18 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 22:29 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 22:23 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 22:15 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 22:17 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 22:18 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 22:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 22:08 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 22:32 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 22:34 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 22:15 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 22:18 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 22:40 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 22:16 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 22:32 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 22:17 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 22:29 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 22:34 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:15 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/774455058.shtml)
-- 2026-06-29 22:15 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/2048648559.shtml)
-- 2026-06-29 22:17 - [王鸿薇要求删陆委会百余万特别费](http://www.share.kurohicncr.top/Article/details/119902.shtml)
-- 2026-06-29 22:23 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/865612253.shtml)
-- 2026-06-29 22:08 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/2177152781.shtml)
-- 2026-06-29 22:31 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/871296527.shtml)
-- 2026-06-29 22:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/04003.shtml)
-- 2026-06-29 22:21 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/3030052.shtml)
-- 2026-06-29 22:28 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/6981548.shtml)
-- 2026-06-29 22:13 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/00273.shtml)
-- 2026-06-29 22:22 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/2058140.shtml)
-- 2026-06-29 22:12 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/65805318785.shtml)
-- 2026-06-29 22:30 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/9454352.shtml)
-- 2026-06-29 22:32 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/5249683.shtml)
-- 2026-06-29 22:13 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/42446494.shtml)
+- 2026-06-29 22:23 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/7437146362.shtml)
+- 2026-06-29 22:17 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/363072875.shtml)
+- 2026-06-29 22:14 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/369281961922.shtml)
+- 2026-06-29 22:30 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/476670.shtml)
+- 2026-06-29 22:13 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/92971.shtml)
+- 2026-06-29 22:22 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/01587.shtml)
+- 2026-06-29 22:26 - [我和我的家乡](http://www.share.minike.top/Article/details/8622527.shtml)
+- 2026-06-29 22:21 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/1453602.shtml)
+- 2026-06-29 22:32 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/70451.shtml)
+- 2026-06-29 22:27 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/88646455824.shtml)
+- 2026-06-29 22:19 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/624816.shtml)
+- 2026-06-29 22:15 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/55156271.shtml)
+- 2026-06-29 22:37 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/903551962838.shtml)
+- 2026-06-29 22:37 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/06677317.shtml)
+- 2026-06-29 22:34 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/8613918905.shtml)

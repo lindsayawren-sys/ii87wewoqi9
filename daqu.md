@@ -1,57 +1,54 @@
-# 上海加快培育类脑智能产业
+# 香港西九龙站高铁直达内地站点新增3个 相关车票已发售
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新社上海5月24日电 (记者 郑莹莹)浦江创新论坛——2026类脑智能产业创新发展大会24日在上海举办。会上，上海集中发布一批类脑智能应用场景，涉及建筑、金融、医疗等领域。 上海市科学技术委员会主任骆大进表示，类脑智能是上海布局未来产业的核心赛道。上海已在杨浦区率先打造类脑智能未来产业集聚区，形成覆盖类脑芯片、感知算法、终端应用的全链条产业雏形。 上海首个类脑智能未来产业集聚
+发布时间：2026年06月17日 19:42 来源：中国新闻网 由香港铁路有限公司运营的高速铁路(香港段)7月1日起新增广州北、义乌、福清西三个站点。至此，香港西九龙站直达内地站点增至113个，相关车票于6月17日起发售。 港铁表示，本次新增站点中，广州北站为区域交通枢纽，接驳地铁、城际铁路，临近白云机场与广州融创文旅城；浙江义乌有“世界超市”之称，是知名的小商品集散中心；福建
 
 ## 正文
 
-中新社上海5月24日电 (记者 郑莹莹)浦江创新论坛——2026类脑智能产业创新发展大会24日在上海举办。
+发布时间：2026年06月17日 19:42 来源：中国新闻网 由香港铁路有限公司运营的高速铁路(香港段)7月1日起新增广州北、义乌、福清西三个站点。
 
-会上，上海集中发布一批类脑智能应用场景，涉及建筑、金融、医疗等领域。
+至此，香港西九龙站直达内地站点增至113个，相关车票于6月17日起发售。
 
-上海市科学技术委员会主任骆大进表示，类脑智能是上海布局未来产业的核心赛道。
+港铁表示，本次新增站点中，广州北站为区域交通枢纽，接驳地铁、城际铁路，临近白云机场与广州融创文旅城；浙江义乌有“世界超市”之称，是知名的小商品集散中心；福建福清有灵石山国家森林公园等众多文旅资源。
 
-上海已在杨浦区率先打造类脑智能未来产业集聚区，形成覆盖类脑芯片、感知算法、终端应用的全链条产业雏形。
+港铁将持续优化跨境铁路服务，便利乘客出行。
 
-上海首个类脑智能未来产业集聚区于2025年4月18日在杨浦区长阳创谷启动，目前已吸引34家企业落地。
-
-为何要发展类脑智能？
-
-中国信通院华东分院院长郑忠斌表示，当前大多数计算机设备与AI芯片，在本质上仍采用计算与存储分离的架构，导致海量数据在内存与处理器之间频繁搬运。
-
-类脑智能从底层架构上模仿人脑，有高能效、高扩展性、低时延、在线学习等优势，是突破当前人工智能能效与算力瓶颈的关键路径。
+(记者 孙悦) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 22:12 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 22:26 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 22:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 22:14 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 22:08 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 22:07 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 22:13 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 22:12 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 22:28 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 22:27 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 22:26 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 22:37 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 22:15 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 22:16 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 22:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 22:29 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 22:13 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 22:33 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 22:21 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 22:25 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 22:29 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 22:39 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 22:12 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 22:37 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 22:28 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:11 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/56384.shtml)
-- 2026-06-29 22:20 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/676938216.shtml)
-- 2026-06-29 22:15 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/20012100.shtml)
-- 2026-06-29 22:28 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/52390.shtml)
-- 2026-06-29 22:20 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/90958946060.shtml)
-- 2026-06-29 22:06 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/057907614239.shtml)
-- 2026-06-29 22:27 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/994791.shtml)
-- 2026-06-29 22:19 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/61869715189.shtml)
-- 2026-06-29 22:21 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/02743052029.shtml)
-- 2026-06-29 22:20 - [啊啊啊](http://www.share.minike.top/Article/details/949860.shtml)
-- 2026-06-29 22:30 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/065668.shtml)
-- 2026-06-29 22:30 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/8463765.shtml)
-- 2026-06-29 22:34 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.kurohicncr.top/Article/details/475795263718.shtml)
-- 2026-06-29 22:06 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/9857122542.shtml)
-- 2026-06-29 22:16 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/55343253.shtml)
+- 2026-06-29 22:13 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/7079753.shtml)
+- 2026-06-29 22:19 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/197359231470.shtml)
+- 2026-06-29 22:25 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/329259105374.shtml)
+- 2026-06-29 22:16 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/12190770.shtml)
+- 2026-06-29 22:36 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/075547951778.shtml)
+- 2026-06-29 22:20 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/5489202097.shtml)
+- 2026-06-29 22:23 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/33122743.shtml)
+- 2026-06-29 22:38 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/059956181.shtml)
+- 2026-06-29 22:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/7006052639.shtml)
+- 2026-06-29 22:41 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/393430568667.shtml)
+- 2026-06-29 22:38 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/6573251.shtml)
+- 2026-06-29 22:37 - [李思潼：不会介意大家夸我运气好](https://www.blog.minike.top/Article/details/023601753.shtml)
+- 2026-06-29 22:41 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/46829180.shtml)
+- 2026-06-29 22:27 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/0604683413.shtml)
+- 2026-06-29 22:36 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/580651.shtml)

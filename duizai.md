@@ -1,56 +1,59 @@
-# 重庆探寻超大社区现代化治理新范式：“三不搞”换“一家亲”
+# 粽香传古韵 彩绳系情谊 外国留学生在辽体验端午文化
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月22日电(彭国威 郭虹) 午饭时分，重庆市长寿区菩提街道菩提社区智慧食堂前来用餐的人络绎不绝，丰富的菜品前，大家排队取餐，刷脸支付后就可坐在餐桌前品味美食。 这个投运6个多月的食堂初期由当地社区免费出场地，引入第三方投资打造并进行市场化运营，是长寿区在超大社区治理过程中，用“空间换服务”的一个典型生活场景。 “居民需要提前注册，年满60岁的老人一日三餐都能享受餐补
+中新网沈阳6月17日电(姜月恒)端午节前夕，来自喀麦隆、马达加斯加、叙利亚等13个国家的20余名在辽留学生走进辽宁省文化馆，开启了一场沉浸式体验端午文化之旅。他们了解端午节习俗，学习包粽子、编五彩绳，在指尖互动中感知中国传统节日文化。 “朋友一生一起走，那些日子不再有......”来自喀麦隆的沈阳工业大学留学生洛克一边熟稔地哼唱着在中国学会的旋律，一边认真地学习传统绳结技艺。他
 
 ## 正文
 
-中新网重庆5月22日电(彭国威 郭虹) 午饭时分，重庆市长寿区菩提街道菩提社区智慧食堂前来用餐的人络绎不绝，丰富的菜品前，大家排队取餐，刷脸支付后就可坐在餐桌前品味美食。
+中新网沈阳6月17日电(姜月恒)端午节前夕，来自喀麦隆、马达加斯加、叙利亚等13个国家的20余名在辽留学生走进辽宁省文化馆，开启了一场沉浸式体验端午文化之旅。
 
-这个投运6个多月的食堂初期由当地社区免费出场地，引入第三方投资打造并进行市场化运营，是长寿区在超大社区治理过程中，用“空间换服务”的一个典型生活场景。
+他们了解端午节习俗，学习包粽子、编五彩绳，在指尖互动中感知中国传统节日文化。
 
-“居民需要提前注册，年满60岁的老人一日三餐都能享受餐补。
+“朋友一生一起走，那些日子不再有......”来自喀麦隆的沈阳工业大学留学生洛克一边熟稔地哼唱着在中国学会的旋律，一边认真地学习传统绳结技艺。
 
-”菩提社区党委书记蒲德松告诉中新网记者，为了让“食”惠可持续，社区还多渠道帮助食堂“引流”，现在每天要接待500多人，已有少许盈利，正步入良性健康的发展轨道。
+他目光紧盯辽宁省非物质文化遗产“金氏绳结”第四代传承人金慧娟指尖缠绕的绳结，生怕错过任何一个编织细节，用手指小心翼翼地交叉缠绕。
 
-2025年10月，重庆市委社会工作部聚焦着力破解超大社区治理中的堵点、难点问题，制定《重庆市超大社区治理试点工作方案》，按照“以点带面、逐步推广”的工作思路，综合考量社区人口规模、形态结构、治理难度和居民需求等实际情况，在全市1万户以上的超大社区中，选取4个不同类型的社区开展试点，探索符合超大城市特点和规律的基层治理新路径，让社区居民从“住有所居”到“心有所属”。
+“这次活动让我有很多收获，我了解了五彩绳在中国传统文化中承载着驱散疫祸的期许。
 
-不搞“一刀切”，党建引领推行“分类治”，避免管理“鞭长莫及” “我们辖区以往商住、产业、住宅多元交织，存在社区规模偏大、多种业态混杂、服务半径过长、治理效率不高的现实难题。
+”洛克手持自己亲手编织的五彩绳，言语间满是欣喜。
 
-”长寿区菩提街道党工委委员、组织委员赵青青并不避讳过往的窘状。
+现场认真聆听老师讲解的他，仔细记下了一些传统民俗文化，“葫芦的寓意也让我印象深刻，象征着有福有禄、顺遂吉祥，十分有趣”。
 
-为破解传统混合型社区治理模式瓶颈，长寿区委社会工作部2025年立足实际、统筹谋划，系统推进菩提街道社区建制优化调整工作，以党建引领为核心，根据“精准划分、分类施策、便民高效”原则，通过建制调整将街道7个社区切割、重整为12个社区，精准划分为老旧小区型、产城融合型、单一住宅型、商住混合型四种社区类型，打造“一社一品”特色治理路径。
+与渐入佳境的洛克不同，一旁来自马达加斯加的留学生瑞南看着手中长短错落、缠绕无序的五色彩线，不由得皱紧眉头，显然被难住了。
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 22:07 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 22:16 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 22:13 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 22:35 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 22:10 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 22:18 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 22:28 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 22:18 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 22:21 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 22:12 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 22:15 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 22:31 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 22:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 22:13 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 22:29 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 22:12 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 22:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 22:21 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 22:34 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 22:17 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 22:40 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 22:32 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:25 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/981606173172.shtml)
-- 2026-06-29 22:27 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/48778500.shtml)
-- 2026-06-29 22:06 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/452594.shtml)
-- 2026-06-29 22:31 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/254524683442.shtml)
-- 2026-06-29 22:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/5795585658.shtml)
-- 2026-06-29 22:27 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/624373185462.shtml)
-- 2026-06-29 22:35 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/7931438.shtml)
-- 2026-06-29 22:19 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/7938599.shtml)
-- 2026-06-29 22:30 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/844297163755.shtml)
-- 2026-06-29 22:06 - [起风了](http://www.share.minike.top/Article/details/3978423176.shtml)
-- 2026-06-29 22:06 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/598109718.shtml)
-- 2026-06-29 22:16 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/479538212688.shtml)
-- 2026-06-29 22:28 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/161113365128.shtml)
-- 2026-06-29 22:29 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/64485.shtml)
-- 2026-06-29 22:23 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/07471389.shtml)
+- 2026-06-29 22:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/86273.shtml)
+- 2026-06-29 22:34 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/6336959.shtml)
+- 2026-06-29 22:39 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/64292832310.shtml)
+- 2026-06-29 22:29 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/637841229.shtml)
+- 2026-06-29 22:18 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/10904.shtml)
+- 2026-06-29 22:20 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/779729711319.shtml)
+- 2026-06-29 22:32 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/70592.shtml)
+- 2026-06-29 22:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/855826686889.shtml)
+- 2026-06-29 22:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/705134.shtml)
+- 2026-06-29 22:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/33504381888.shtml)
+- 2026-06-29 22:26 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/7481062361.shtml)
+- 2026-06-29 22:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/14566.shtml)
+- 2026-06-29 22:30 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/956055513.shtml)
+- 2026-06-29 22:34 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/4083339.shtml)
+- 2026-06-29 22:24 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/265162.shtml)

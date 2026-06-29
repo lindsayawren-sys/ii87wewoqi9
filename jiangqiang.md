@@ -1,59 +1,57 @@
-# 易联众（300096）投资者索赔案倒计时六个月
+# 影石创新袁跃曝水军内幕：发一条黑帖仅挣6元，悬赏10万金拖鞋“打蟑螂”
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海久诚律师事务所股票索赔律师许峰提示，易联众（300096）虚假陈述引发的投资者索赔案已经最后六个月诉讼时效倒计时，虽然该案证监会立案后尚未处罚，但时效已所剩不多。（许峰律师专栏） 许峰律师代理的易联众投资者索赔案已多次向厦门市中级人民法院提交立案，目前正在等待法院的下一步安排，同步还在继续推进后续案件的立案工作，还在继续接受
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日消息，影石创新中国区负责人袁跃发布微博称，“一名热心用户在黑水军群里卧底一周，结果发现他们发一条黑帖就挣6块钱，何必呢。” 袁跃在今天稍早的微博中发布长文，表示“影石和友商互诉专利侵权后，我们发现了一批赛博克隆人。”他称，在与某友商互诉专利侵权后，短时间内密集遭遇黑水军有组织攻击，诉讼消息发布后2
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海久诚律师事务所股票索赔律师许峰提示，易联众（300096）虚假陈述引发的投资者索赔案已经最后六个月诉讼时效倒计时，虽然该案证监会立案后尚未处罚，但时效已所剩不多。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-（许峰律师专栏） 许峰律师代理的易联众投资者索赔案已多次向厦门市中级人民法院提交立案，目前正在等待法院的下一步安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+6月17日消息，影石创新中国区负责人袁跃发布微博称，“一名热心用户在黑水军群里卧底一周，结果发现他们发一条黑帖就挣6块钱，何必呢。
 
-2024年5月8日晚，易联众公告收到证监会《立案告知书》，因涉嫌未按规定披露为关联方提供担保等信息披露违法违规，根据《证券法》《行政处罚法》等法律法规，证监会决定对公司立案。
+” 袁跃在今天稍早的微博中发布长文，表示“影石和友商互诉专利侵权后，我们发现了一批赛博克隆人。
 
-2023年11月28日晚，易联众发布关于存在违规担保、违规借款暨公司涉及重大诉讼及仲裁事项的公告，近日，经易联众自查发现，公司存在未履行任何内控审批/董事会/股东大会审议决策程序，为实际控制人/控股股东/时任董事长张曦先生及其关联方提供违规担保，以及张曦先生以公司名义签署违规借款的情形。
+”他称，在与某友商互诉专利侵权后，短时间内密集遭遇黑水军有组织攻击，诉讼消息发布后24小时内，多个平台涌现1490余个异常账号，集中发布内容高度雷同的评论。
 
-该等事项系张曦先生个人行为，公司并未履行相应决策程序批准公司为其相关债务提供担保或批准相关对外借款，公司无签署《借款协议书》《借款合同》《保证合同》及其他担保文件的记录，未发现留存及保管《借款协议书》《借款合同》《保证合同》及相关担保文件，公司账户亦未收到相关借款资金。
+袁跃宣布，即日起，到影石线下门店，即可无门槛领取“正义的6块钱”红包。
 
-专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，在2018年6月14日到2023年11月29日之间买入易联众股票，并且在2023年11月29日后卖出或继续持有股票的投资者，还可提起索赔。
+帮影石抓黑水军，响应互联网“清朗”行动，线上投稿还可能拿价值10万的金拖鞋，并称其为“打蟑螂专用。
 
-（易联众维权入口） （本文由许峰律师供稿，不代表新浪财经立场。
+”他还表示，7月15日前，转关该条微博，抽3位网友分别送出影石Luna Ultra一台。
 
-许峰律师，上海久诚律师事务所主任，2008年起律师执业，执业服务范围涉及虚假陈述、内幕交易、操纵市场等证券欺诈领域索赔代理。
+继2026年3月大疆在国内对影石发起无人机专利侵权诉讼后，两家公司今年6月在海外展开专利诉讼对决。
 
 ## 相关推荐
 
-- 2026-06-29 22:28 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 22:26 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 22:29 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 22:09 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 22:18 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 22:31 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 22:07 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 22:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 22:06 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 22:15 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 22:25 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 22:25 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 22:15 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 22:28 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 22:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 22:40 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 22:16 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 22:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 22:27 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 22:27 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 22:39 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 22:21 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 22:28 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 22:41 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:21 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/82779972.shtml)
-- 2026-06-29 22:20 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/409541375.shtml)
-- 2026-06-29 22:34 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/5834588351.shtml)
-- 2026-06-29 22:12 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/705707795.shtml)
-- 2026-06-29 22:31 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/8960489.shtml)
-- 2026-06-29 22:20 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/792058230.shtml)
-- 2026-06-29 22:23 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/18160.shtml)
-- 2026-06-29 22:12 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/65756980.shtml)
-- 2026-06-29 22:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/96858781.shtml)
-- 2026-06-29 22:07 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/146386779915.shtml)
-- 2026-06-29 22:20 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/3653363.shtml)
-- 2026-06-29 22:12 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/1196638967.shtml)
-- 2026-06-29 22:23 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/41183920509.shtml)
-- 2026-06-29 22:09 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/1677653.shtml)
-- 2026-06-29 22:34 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/5625633.shtml)
+- 2026-06-29 22:19 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/52962.shtml)
+- 2026-06-29 22:24 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/963473789.shtml)
+- 2026-06-29 22:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/1012191574.shtml)
+- 2026-06-29 22:13 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/3476325217.shtml)
+- 2026-06-29 22:18 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.kurohicncr.top/Article/details/66832451.shtml)
+- 2026-06-29 22:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/8346780.shtml)
+- 2026-06-29 22:33 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/96399110.shtml)
+- 2026-06-29 22:38 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/34439815.shtml)
+- 2026-06-29 22:25 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/698879.shtml)
+- 2026-06-29 22:26 - [巴黎区长紧急采购50台中国空调](https://www.share.kurohicncr.top/Article/details/153810.shtml)
+- 2026-06-29 22:40 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/41179.shtml)
+- 2026-06-29 22:31 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/95288094192.shtml)
+- 2026-06-29 22:19 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/09388287937.shtml)
+- 2026-06-29 22:22 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/5705257216.shtml)
+- 2026-06-29 22:25 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/3029213.shtml)

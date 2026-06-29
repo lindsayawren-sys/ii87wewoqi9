@@ -1,56 +1,60 @@
-# 吉利控股公布2025可持续发展“成绩单” 携手中汽协发布首份中国电动汽车出海ESG报告
+# 第九届中德U16青少年足球友谊赛新闻发布会举办
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-5月22日，第26个国际生物多样性日，吉利控股集团(以下简称“吉利控股”)可持续发展论坛在杭州举行。来自政府、行业、国际组织、学术机构及产业链的多方代表围绕可持续发展核心议题，探讨全球化视野下产业发展与和谐共生的新未来。 论坛期间，吉利控股发布2025可持续发展报告，同时宣布成立吉利控股可持续发展顾问委员会，并联合中国汽车工业协会共同启动电动汽车行业可持续发展联合倡议(EVSA
+中新社柏林6月16日电 曼海姆消息：第九届中德U16青少年足球友谊赛新闻发布会16日在德国曼海姆市政厅举办。 中国驻法兰克福总领事黄昳扬表示，中德U16青少年足球友谊赛既是竞技舞台也是成长课堂，为中德青少年理解不同文化、结交新的朋友提供了良好契机。该项赛事也是一项播撒友谊与梦想的“种子工程”，承载着青年之间、城市之间、两国人民之间的相互理解与尊重。总领馆期待参赛的德国青少年在中
 
 ## 正文
 
-5月22日，第26个国际生物多样性日，吉利控股集团(以下简称“吉利控股”)可持续发展论坛在杭州举行。
+中新社柏林6月16日电 曼海姆消息：第九届中德U16青少年足球友谊赛新闻发布会16日在德国曼海姆市政厅举办。
 
-来自政府、行业、国际组织、学术机构及产业链的多方代表围绕可持续发展核心议题，探讨全球化视野下产业发展与和谐共生的新未来。
+中国驻法兰克福总领事黄昳扬表示，中德U16青少年足球友谊赛既是竞技舞台也是成长课堂，为中德青少年理解不同文化、结交新的朋友提供了良好契机。
 
-论坛期间，吉利控股发布2025可持续发展报告，同时宣布成立吉利控股可持续发展顾问委员会，并联合中国汽车工业协会共同启动电动汽车行业可持续发展联合倡议(EVSA)，发布首份《中国电动汽车行业出海ESG核心议题研究报告》，共同推动行业高质量可持续发展。
+该项赛事也是一项播撒友谊与梦想的“种子工程”，承载着青年之间、城市之间、两国人民之间的相互理解与尊重。
 
-凝聚ESG共识，践行领军企业担当 当下，可持续发展已经从环保议题，升维为关乎人类命运共同体与企业长期竞争力的重要课题。
+总领馆期待参赛的德国青少年在中国度过精彩难忘旅程，愿继续发挥桥梁作用，支持赛事越办越好。
 
-吉利控股集团副董事长李东辉表示：“面对时代考卷，吉利控股集团已全面确立向‘自然受益型企业’转型的战略愿景，并以‘2045年实现全链路碳中和’为战略目标，坚定推进企业绿色可持续发展。
+曼海姆市副市长普罗芬表示，该项赛事发端于曼海姆，已成为曼海姆推进对华友好交往、深化双方友城合作的重要纽带。
 
-” 上海市原常务副市长、上海新金融研究院理事长屠光绍，中国企业改革与发展研究会会长、国务院国资委原党委委员兼秘书长彭华岗分别致辞，高度肯定了吉利控股作为中国汽车产业领军企业在可持续领域的长期投入和践行成果，并从宏观治理、企业实践、全球价值等多个维度，解读可持续发展进程中的机遇与方向。
+本届赛事期间还将安排一系列丰富多彩的文化活动。
 
-屠光绍表示，高质量发展的必然要求是可持续发展，企业参与其中不仅是全新使命，也是一个全新竞争赛道。
+他将随团访华，期待见证德中青少年通过足球等活动增进了解、收获友谊。
 
-他认为吉利自身通过践行可持续发展理念，对企业成长、产业升级、社会福祉以及提升中国企业的全球影响力做出了重要贡献。
+曼海姆市愿继续支持赛事举办，推动两国青少年在体育、文化和教育等领域开展更多交流。
 
 ## 相关推荐
 
-- 2026-06-29 22:29 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 22:15 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 22:14 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 22:10 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 22:32 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 22:30 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 22:30 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 22:14 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 22:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 22:17 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 22:27 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 22:36 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 22:16 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 22:41 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 22:19 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 22:16 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 22:30 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 22:13 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 22:25 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 22:33 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 22:22 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 22:17 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 22:28 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 22:17 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:12 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/193499.shtml)
-- 2026-06-29 22:20 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/544762.shtml)
-- 2026-06-29 22:27 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/6784239605.shtml)
-- 2026-06-29 22:13 - [国际清算银行警告AI投资热潮](https://www.blog.kurohicncr.top/Article/details/666814355748.shtml)
-- 2026-06-29 22:24 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/53786466.shtml)
-- 2026-06-29 22:13 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/400700.shtml)
-- 2026-06-29 22:26 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/90628.shtml)
-- 2026-06-29 22:06 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/22260177.shtml)
-- 2026-06-29 22:27 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/87912142783.shtml)
-- 2026-06-29 22:29 - [急先锋](http://www.share.minike.top/Article/details/27255988.shtml)
-- 2026-06-29 22:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/804595676446.shtml)
-- 2026-06-29 22:34 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/0226166365.shtml)
-- 2026-06-29 22:31 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/34233491319.shtml)
-- 2026-06-29 22:25 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/6908530.shtml)
-- 2026-06-29 22:32 - [流金岁月](http://www.blog.minike.top/Article/details/1660416.shtml)
+- 2026-06-29 22:21 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/6891061220.shtml)
+- 2026-06-29 22:22 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/882860.shtml)
+- 2026-06-29 22:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/4089116154.shtml)
+- 2026-06-29 22:21 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/37834482541.shtml)
+- 2026-06-29 22:27 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/895306053.shtml)
+- 2026-06-29 22:29 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/822617269.shtml)
+- 2026-06-29 22:19 - [斗破苍穹](https://www.share.minike.top/Article/details/491423026.shtml)
+- 2026-06-29 22:24 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/1158897184.shtml)
+- 2026-06-29 22:23 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/9473054048.shtml)
+- 2026-06-29 22:20 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/61310.shtml)
+- 2026-06-29 22:14 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/8944831097.shtml)
+- 2026-06-29 22:23 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/714245.shtml)
+- 2026-06-29 22:14 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/4725391872.shtml)
+- 2026-06-29 22:40 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/381344337630.shtml)
+- 2026-06-29 22:15 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/73653337.shtml)

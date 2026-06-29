@@ -1,52 +1,61 @@
-# 万马科技：在具身智能领域，公司与机器人行业相关客户展开合作，相关业务尚处于前期阶段，收入占比较低
+# 报告预计今年全球新能源乘用车销量将突破2300万辆
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-每经AI快讯，有投资者在投资者互动平台提问：贵司的智驾与算力是否有提供给机器人企业配套？万马科技（300698.SZ）5月22日在投资者互动平台表示，在具身智能领域，公司围绕具身智能语料的采集、处理及使用与机器人行业相关客户展开合作。当前相关业务尚处于前期阶段，收入占比较低，敬请广大投资者注意风险，理性投资。（文章来源：每日经济新闻）
+中新社北京6月17日电 (记者 刘文文)彭博新能源财经17日发布的《2026年新能源汽车市场长期展望》(简称“报告”)预计，今年全球新能源乘用车销量将突破2300万辆，较2025年增长11%。 报告预计，2026年新能源汽车在全球乘用车新车销量中的占比将超过四分之一，高于五年前的9%，并将在2035年进一步升至52%。 彭博新能源财经新能源汽车主管亚历山德拉·奥多诺万(Alek
 
 ## 正文
 
-每经AI快讯，有投资者在投资者互动平台提问：贵司的智驾与算力是否有提供给机器人企业配套？
+中新社北京6月17日电 (记者 刘文文)彭博新能源财经17日发布的《2026年新能源汽车市场长期展望》(简称“报告”)预计，今年全球新能源乘用车销量将突破2300万辆，较2025年增长11%。
 
-万马科技（300698.SZ）5月22日在投资者互动平台表示，在具身智能领域，公司围绕具身智能语料的采集、处理及使用与机器人行业相关客户展开合作。
+报告预计，2026年新能源汽车在全球乘用车新车销量中的占比将超过四分之一，高于五年前的9%，并将在2035年进一步升至52%。
 
-当前相关业务尚处于前期阶段，收入占比较低，敬请广大投资者注意风险，理性投资。
+彭博新能源财经新能源汽车主管亚历山德拉·奥多诺万(Aleksandra O’Donovan)表示，尽管全球新能源汽车普及率持续提升，但受美国政策变化和中国市场日趋成熟的影响，各市场的转型步伐正变得愈发不均衡。
 
-（文章来源：每日经济新闻）
+令人鼓舞的是，在车辆经济性改善、电池成本下降以及新兴市场快速普及的推动下，电气化的长期趋势依然稳固。
+
+报告指出，中国仍是全球最大的新能源汽车市场，不仅在全球新能源汽车销量中占据最大份额，其国内新能源汽车普及率也处于领先水平。
+
+目前，新能源汽车已占中国乘用车新车总销量的近三分之二。
+
+报告还指出，尽管新能源汽车销量快速增长，但预计到2047年，新能源乘用车保有量才会超过燃油车。
+
+到2040年，所有汽车细分领域中，燃油车保有量仍将超过10亿辆。
 
 ## 相关推荐
 
-- 2026-06-29 22:15 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 22:17 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 22:29 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 22:15 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 22:31 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 22:11 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 22:21 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 22:12 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 22:13 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 22:08 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 22:29 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 22:18 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 22:06 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 22:24 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 22:38 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 22:13 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 22:28 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 22:38 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 22:32 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 22:39 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 22:17 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 22:17 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 22:20 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 22:18 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 22:21 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 22:17 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 22:32 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 22:36 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 22:33 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:13 - [乔家的儿女](https://www.blog.minike.top/Article/details/99201880.shtml)
-- 2026-06-29 22:30 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/01682.shtml)
-- 2026-06-29 22:20 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/750413528098.shtml)
-- 2026-06-29 22:24 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/50978.shtml)
-- 2026-06-29 22:08 - [85花告别古偶](http://www.share.minike.top/Article/details/096073940.shtml)
-- 2026-06-29 22:29 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/224927812458.shtml)
-- 2026-06-29 22:32 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/185522241.shtml)
-- 2026-06-29 22:27 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/51185.shtml)
-- 2026-06-29 22:24 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/806241.shtml)
-- 2026-06-29 22:28 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/3829356520.shtml)
-- 2026-06-29 22:16 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/9412797002.shtml)
-- 2026-06-29 22:16 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/6373582.shtml)
-- 2026-06-29 22:24 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/5518789204.shtml)
-- 2026-06-29 22:20 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/47043067151.shtml)
-- 2026-06-29 22:06 - [杨德龙：创新药迎来新的发展机遇](http://www.share.minike.top/Article/details/4676792658.shtml)
+- 2026-06-29 22:15 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/261446483.shtml)
+- 2026-06-29 22:21 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/1239990180.shtml)
+- 2026-06-29 22:29 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/43751083.shtml)
+- 2026-06-29 22:33 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/73566802961.shtml)
+- 2026-06-29 22:23 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/08684953.shtml)
+- 2026-06-29 22:25 - [金牌调解](https://www.share.minike.top/Article/details/95687758972.shtml)
+- 2026-06-29 22:27 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/784753742324.shtml)
+- 2026-06-29 22:38 - [宜宾地震已转移安置225人](http://www.share.kurohicncr.top/Article/details/42656368742.shtml)
+- 2026-06-29 22:31 - [美人鱼](https://www.share.minike.top/Article/details/093370475227.shtml)
+- 2026-06-29 22:22 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/826366620.shtml)
+- 2026-06-29 22:16 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/711868534558.shtml)
+- 2026-06-29 22:18 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/4701294.shtml)
+- 2026-06-29 22:19 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/53474165.shtml)
+- 2026-06-29 22:39 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/478201923431.shtml)
+- 2026-06-29 22:14 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/822062.shtml)

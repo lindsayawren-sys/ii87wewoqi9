@@ -1,60 +1,56 @@
-# 国际汽联F4方程式中国锦标赛首次登陆天津
+# 潘功胜：央行授权六家银行在上海开展离岸人民币交易
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-“东北超”开踢，为东北全面振兴注入鲜活动能中国“离境退税2.0”为打造国际化消费环境添动力港人飞天，星辰可及美联储新主席宣誓就任 “沃什时代”政策迷雾待解抓科创、强产业，长三角一体化发展再提速你身上穿的T恤，大概率来自这个北方小城美军导弹告急，韩国日本更急？国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？618大战，为何先从手机降价开始？埃及胡夫
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 来源：财经五月花 文|唐郡 编辑|张威 明确DR001（货币市场隔夜利率）基准利率定位，建立“钱荒”应对工具，为境外央行类机构提供人民币流动性，在上海建立离岸金融体系…… 6月17日，中国人民银行（下称“央行”）行长潘功胜出席2026陆家嘴论坛，并宣布了多项政策举措。 其中，创设境外央行回购工具、在上海开展离岸人民币
 
 ## 正文
 
-“东北超”开踢，为东北全面振兴注入鲜活动能中国“离境退税2.0”为打造国际化消费环境添动力港人飞天，星辰可及美联储新主席宣誓就任 “沃什时代”政策迷雾待解抓科创、强产业，长三角一体化发展再提速你身上穿的T恤，大概率来自这个北方小城美军导弹告急，韩国日本更急？
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 来源：财经五月花 文|唐郡 编辑|张威 明确DR001（货币市场隔夜利率）基准利率定位，建立“钱荒”应对工具，为境外央行类机构提供人民币流动性，在上海建立离岸金融体系…… 6月17日，中国人民银行（下称“央行”）行长潘功胜出席2026陆家嘴论坛，并宣布了多项政策举措。
 
-国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？
+其中，创设境外央行回购工具、在上海开展离岸人民币外汇交易试点、印发《上海国际金融中心发展离岸金融行动方案》等举措，指向金融领域制度型开放和进一步推进人民币国际化进程。
 
-618大战，为何先从手机降价开始？
+潘功胜表示，30多年来，特别是党的十八大以来，中国金融市场逐步从最初以信贷市场为主，发展成为包括股票、债券、货币、黄金、票据、大宗商品、衍生品等各金融子市场协同发展、功能健全、种类完备的现代金融市场体系，有力助推了中国经济稳定增长、转型升级和高质量发展。
 
-埃及胡夫金字塔如何抗震？
+目前，市场深度广度大幅提升，国际地位与影响力实现跨越式提升；发行、交易等市场化机制全面建立；双向开放稳步推进，深度融入全球金融体系。
 
-国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！
+“进一步建设现代化金融市场，是‘十五五’时期的一项重要任务。
 
-你的股票和黄金，后市怎么走？
+站在新的历史起点，中国金融市场将坚持市场化、法治化、国际化的发展方向，持续建设规范、开放、有活力、有韧性的现代化金融市场。
 
-郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！
+”潘功胜说。
 
-建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？
+优化货币市场调控三项举措 论坛现场，潘功胜宣布了三项针对国内货币市场的政策举措。
 
 ## 相关推荐
 
-- 2026-06-29 22:24 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 22:09 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 22:35 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 22:35 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 22:16 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 22:29 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 22:27 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 22:13 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 22:35 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 22:16 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 22:34 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 22:31 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 22:25 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 22:08 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 22:22 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 22:37 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 22:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 22:36 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 22:22 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 22:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 22:23 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 22:40 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 22:40 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 22:33 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:22 - [沙丘](https://www.share.kurohicncr.top/Article/details/745549214335.shtml)
-- 2026-06-29 22:31 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/96854821190.shtml)
-- 2026-06-29 22:31 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/5287372307.shtml)
-- 2026-06-29 22:35 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/571686892.shtml)
-- 2026-06-29 22:32 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/04428913206.shtml)
-- 2026-06-29 22:12 - [请回答王牌2019](https://www.share.minike.top/Article/details/4519387.shtml)
-- 2026-06-29 22:35 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/813920018211.shtml)
-- 2026-06-29 22:13 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.kurohicncr.top/Article/details/66950449.shtml)
-- 2026-06-29 22:12 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/5690532471.shtml)
-- 2026-06-29 22:32 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/407423224.shtml)
-- 2026-06-29 22:35 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/691354946.shtml)
-- 2026-06-29 22:13 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/47123920.shtml)
-- 2026-06-29 22:23 - [温网](http://www.share.minike.top/Article/details/16892.shtml)
-- 2026-06-29 22:33 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/05537.shtml)
-- 2026-06-29 22:24 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/249428390.shtml)
+- 2026-06-29 22:26 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/83450149956.shtml)
+- 2026-06-29 22:19 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/162872331825.shtml)
+- 2026-06-29 22:29 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/47718695146.shtml)
+- 2026-06-29 22:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/90105252.shtml)
+- 2026-06-29 22:38 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/9857436576.shtml)
+- 2026-06-29 22:37 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/273619943205.shtml)
+- 2026-06-29 22:30 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.minike.top/Article/details/71848689896.shtml)
+- 2026-06-29 22:12 - [恋与深空致歉](https://www.share.minike.top/Article/details/6864260.shtml)
+- 2026-06-29 22:37 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/3936405.shtml)
+- 2026-06-29 22:22 - [一见倾心](http://www.blog.minike.top/Article/details/9615986.shtml)
+- 2026-06-29 22:20 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/7393990588.shtml)
+- 2026-06-29 22:34 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/390121827156.shtml)
+- 2026-06-29 22:40 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/9252112816.shtml)
+- 2026-06-29 22:40 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/697114316.shtml)
+- 2026-06-29 22:29 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/65919715.shtml)

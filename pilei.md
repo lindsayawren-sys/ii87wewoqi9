@@ -1,57 +1,61 @@
-# 云英谷港股IPO：三年累亏7.7亿 毛利率仅13% 武平系独揽基石 高估值倒挂下的国产显示驱动破局路
+# 杜宗民《尘旅心声》作品研讨会在京举行 以个体书写回应新时代
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：喜乐 2026年5月，全球第五、中国大陆第一的智能手机AMOLED显示驱动芯片设计企业云英谷科技，正式启动港股全球发售。依托全栈自研技术、稳定的头部面板客户资源，公司在全球显示驱动芯片市场占据重要席位。然而，在这份光鲜之下，公司仍面临核心AMOLED芯片毛利率仅6.4%、
+中新网北京6月17日电 (记者 应妮)由中国诗歌学会主办的“以个体书写回应新时代——杜宗民《尘旅心声》作品研讨会”16日在中国现代文学馆举行。该诗集由人民日报出版社推出，收录作者诗作900多首，是其多年行走与沉思的结晶。 中国作家协会原副主席、诗歌委员会主任吉狄马加以研讨会主题为切入点指出，今天的诗人若以古典诗歌形式书写当下，必须在诗歌中灌注新的内容。他强调，诗歌贵在真情实感，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京6月17日电 (记者 应妮)由中国诗歌学会主办的“以个体书写回应新时代——杜宗民《尘旅心声》作品研讨会”16日在中国现代文学馆举行。
 
-出品：新浪财经上市公司研究院 作者：喜乐 2026年5月，全球第五、中国大陆第一的智能手机AMOLED显示驱动芯片设计企业云英谷科技，正式启动港股全球发售。
+该诗集由人民日报出版社推出，收录作者诗作900多首，是其多年行走与沉思的结晶。
 
-依托全栈自研技术、稳定的头部面板客户资源，公司在全球显示驱动芯片市场占据重要席位。
+中国作家协会原副主席、诗歌委员会主任吉狄马加以研讨会主题为切入点指出，今天的诗人若以古典诗歌形式书写当下，必须在诗歌中灌注新的内容。
 
-然而，在这份光鲜之下，公司仍面临核心AMOLED芯片毛利率仅6.4%、三年累亏7.7亿元、客户与供应商高度集中等压力尚未缓解，叠加基石投资者高度关联武平、发行估值倒挂、市销率高于同业等争议，云英谷的后市表现仍充满挑战。
+他强调，诗歌贵在真情实感，映照个人的心路历程。
 
-云英谷是一家全球领先的AMOLED显示驱动芯片设计企业。
+“杜甫的诗千年后仍让人爱不释手，正是其中藏着深沉的个人情感与强烈的故事性，把读者真正拽进那个时代。
 
-公司致力于为消费电子品牌公司提供可靠及高性能的显示驱动方案。
+”他表示，《尘旅心声》既有家国情怀也有个人经验，包括大量日常生活经验和体悟。
 
-公司采用Fabless业务模式，通过与核心行业伙伴如晶圆代工厂、OSAT公司及显示面板制造商的战略合作，确立领先地位，并最终提升终端用户的显示体验。
+“你的诗，就是在回应这个时代。
 
-根据弗若斯特沙利文的资料，按2025年收入计，公司是全球第五大、中国大陆第一大智能手机AMOLED显示驱动芯片设计企业，在中国大陆厂商中稳居首位。
+” 中国诗歌学会会长王山认为，《尘旅心声》是一部扎根生活、观照时代、赓续文脉、情真意笃的优质作品集，而深入生活、扎根现实是其最突出的特质。
 
 ## 相关推荐
 
-- 2026-06-29 22:09 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 22:08 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 22:17 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 22:13 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 22:35 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 22:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 22:06 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 22:27 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 22:23 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 22:11 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 22:25 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 22:37 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 22:21 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 22:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 22:34 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 22:29 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 22:16 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 22:20 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 22:34 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 22:31 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 22:15 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 22:20 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 22:13 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 22:21 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 22:27 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 22:32 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/535892.shtml)
-- 2026-06-29 22:06 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/98001296981.shtml)
-- 2026-06-29 22:16 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/4638809424.shtml)
-- 2026-06-29 22:27 - [返利科技盘中上演“天地板”](https://www.share.kurohicncr.top/Article/details/1531413.shtml)
-- 2026-06-29 22:28 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/9523911.shtml)
-- 2026-06-29 22:20 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/06815610126.shtml)
-- 2026-06-29 22:22 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/47046.shtml)
-- 2026-06-29 22:34 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/1237028.shtml)
-- 2026-06-29 22:27 - [啊啊啊](https://www.blog.minike.top/Article/details/94423965058.shtml)
-- 2026-06-29 22:13 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/78837798.shtml)
-- 2026-06-29 22:28 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/07099.shtml)
-- 2026-06-29 22:14 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/58382957.shtml)
-- 2026-06-29 22:13 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/16085219257.shtml)
-- 2026-06-29 22:21 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/1246900257.shtml)
-- 2026-06-29 22:08 - [乌克兰发广告全球征兵](https://www.blog.kurohicncr.top/Article/details/9456523.shtml)
+- 2026-06-29 22:21 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/458588162.shtml)
+- 2026-06-29 22:15 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/58826759482.shtml)
+- 2026-06-29 22:29 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/0391015.shtml)
+- 2026-06-29 22:12 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/547695979.shtml)
+- 2026-06-29 22:33 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/231523512512.shtml)
+- 2026-06-29 22:38 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/1379016072.shtml)
+- 2026-06-29 22:27 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/88600833.shtml)
+- 2026-06-29 22:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/343638764715.shtml)
+- 2026-06-29 22:24 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/40536644.shtml)
+- 2026-06-29 22:41 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/23314410.shtml)
+- 2026-06-29 22:35 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/3392083814.shtml)
+- 2026-06-29 22:26 - [乌克兰发广告全球征兵](https://www.share.minike.top/Article/details/945311913338.shtml)
+- 2026-06-29 22:23 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/046940.shtml)
+- 2026-06-29 22:28 - [山东发布山洪灾害气象预警](http://www.share.minike.top/Article/details/811665598472.shtml)
+- 2026-06-29 22:21 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/1537737641.shtml)

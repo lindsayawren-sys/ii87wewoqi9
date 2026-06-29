@@ -1,48 +1,58 @@
-# 05月22日炭黑7840.00元/吨 90天上涨3.16%
+# 数字人民币国际运营中心与首批26家金融机构签直接参与者服务协议
 
-> 更新时间：2026-06-29 22:36:02 UTC+8
+> 更新时间：2026-06-29 22:42:02 UTC+8
 
 ## 摘要
 
-炭黑05月22日最新价格7840.00元/吨，最近90天上涨3.16%。相关生产商有：黑猫股份(002068)龙星科技(002442)永东股份(002753)山西焦化(600740)金能科技(603113)等。
+中新社上海6月16日电 (高志苗)2026中国国际金融展16日在上海开幕，数字人民币国际运营中心与首批26家金融机构同步签署直接参与者服务协议。服务协议上线后数字人民币国际运营中心业务可覆盖中国香港、中国澳门、新加坡、老挝、泰国、阿联酋、卡塔尔、巴西等国家和地区。2025年，中国人民银行数字货币研究所下属机构整合为数字人民币运营管理中心和国际运营中心，承担数字人民币金融基础设施
 
 ## 正文
 
-炭黑05月22日最新价格7840.00元/吨，最近90天上涨3.16%。
+中新社上海6月16日电 (高志苗)2026中国国际金融展16日在上海开幕，数字人民币国际运营中心与首批26家金融机构同步签署直接参与者服务协议。
 
-相关生产商有：黑猫股份(002068)龙星科技(002442)永东股份(002753)山西焦化(600740)金能科技(603113)等。
+服务协议上线后数字人民币国际运营中心业务可覆盖中国香港、中国澳门、新加坡、老挝、泰国、阿联酋、卡塔尔、巴西等国家和地区。
+
+2025年，中国人民银行数字货币研究所下属机构整合为数字人民币运营管理中心和国际运营中心，承担数字人民币金融基础设施运营单位的职能，支持构建国内国际双循环的“两翼”格局。
+
+其中，数字人民币国际运营中心负责数字人民币跨境基础设施建设和运营，服务跨境和离岸体系建设。
+
+2026年，随着数字人民币计量框架调整和基础设施体系整体架构升级，数字人民币跨境数字支付平台、区块链服务平台、数字资产平台等三大业务平台也随之升级为“数币达”(Cross-border e-CNY Transfer Services，简称 CBETS)跨境结算综合服务平台，并启动品牌化运作。
+
+境外参与者可通过香港接入点一点接入，便捷开通多项业务。
+
+据介绍，CBETS参与者可依托CBETS的系统能力为客户提供低成本、多元化和安全高效的跨境数字支付服务，助力跨境贸易和投融资便利化与金融高水平对外开放。
+
+未来，数字人民币国际运营中心将立足职能定位和上海的区位优势，继续推进参与者扩员和能力建设，不断提升国际化服务水平。
 
 ## 相关推荐
 
-- 2026-06-29 22:29 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 22:34 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 22:32 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 22:16 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 22:16 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 22:13 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 22:27 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 22:20 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 22:21 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 22:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 22:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 22:21 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 22:31 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 22:11 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 22:36 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 22:16 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 22:18 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 22:18 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 22:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 22:29 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 22:20 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 22:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 22:22 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 22:31 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 22:20 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 22:38 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [巴西10号球衣是天才传承史](http://www.blog.minike.top/Article/details/54378.shtml)
-- 2026-06-29 22:30 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/27729048.shtml)
-- 2026-06-29 22:13 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/9331541367.shtml)
-- 2026-06-29 22:18 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/82078370.shtml)
-- 2026-06-29 22:11 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/2401271490.shtml)
-- 2026-06-29 22:26 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/147545352.shtml)
-- 2026-06-29 22:19 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/94071625287.shtml)
-- 2026-06-29 22:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/24289681909.shtml)
-- 2026-06-29 22:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/36729106.shtml)
-- 2026-06-29 22:16 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/237467.shtml)
-- 2026-06-29 22:11 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/42180414.shtml)
-- 2026-06-29 22:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/91548786775.shtml)
-- 2026-06-29 22:14 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/25150390.shtml)
-- 2026-06-29 22:07 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/047871645.shtml)
-- 2026-06-29 22:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/0449928.shtml)
+- 2026-06-29 22:18 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/6954269945.shtml)
+- 2026-06-29 22:24 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/16812282.shtml)
+- 2026-06-29 22:38 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/425701275.shtml)
+- 2026-06-29 22:22 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/41529851.shtml)
+- 2026-06-29 22:12 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/3877276188.shtml)
+- 2026-06-29 22:17 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/1897029.shtml)
+- 2026-06-29 22:40 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/0115305916.shtml)
+- 2026-06-29 22:16 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/2196794.shtml)
+- 2026-06-29 22:38 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/62078.shtml)
+- 2026-06-29 22:36 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/8510022385.shtml)
+- 2026-06-29 22:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/334672.shtml)
+- 2026-06-29 22:33 - [任泽平：AI浪潮刚刚开始](http://www.share.minike.top/Article/details/04361414415.shtml)
+- 2026-06-29 22:38 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/569574242.shtml)
+- 2026-06-29 22:14 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/0689668.shtml)
+- 2026-06-29 22:35 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/456405489.shtml)
