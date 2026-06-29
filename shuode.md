@@ -1,61 +1,56 @@
-# 第七届上海创新创业青年50人论坛进高校 三大扶持计划助力青年创业
+# 77岁夏伯渝保持锻炼 力争完成“7+2”极限挑战
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-中新网上海5月11日电 (杨海燕)5月10日，第七届上海创新创业青年50人论坛在上海中心启幕。同日下午，论坛设立的思源致远·创赢未来“AI+”科创嘉年华分会场在上海交通大学闵行校区学生中心举行。一系列聚焦高校青年创新创业的重磅举措集中发布。 “这次分会场给初创团队提供了很好的交流和扩大影响力的机会，还有投资人展示了充足的投资意愿。”来自上海交通大学海洋学院大二学生、“05后”创
+中新网北京6月8日电 “我年龄这么大，所以必须要加倍努力，保持住现在的状态，才能完成梦想。”6日，中国首位依靠双腿假肢登顶珠峰的登山者夏伯渝分享了他未来的登山计划，即力争完成征服“7+2”(七大洲最高山峰+南北两极)的极限挑战。 1975年，身为中国登山队队员的夏伯渝在登珠峰时冻伤双小腿导致截肢。2018年5月14日，他在69岁第五次挑战登顶珠峰时成功。 今年已经77岁的夏伯渝
 
 ## 正文
 
-中新网上海5月11日电 (杨海燕)5月10日，第七届上海创新创业青年50人论坛在上海中心启幕。
+中新网北京6月8日电 “我年龄这么大，所以必须要加倍努力，保持住现在的状态，才能完成梦想。
 
-同日下午，论坛设立的思源致远·创赢未来“AI+”科创嘉年华分会场在上海交通大学闵行校区学生中心举行。
+”6日，中国首位依靠双腿假肢登顶珠峰的登山者夏伯渝分享了他未来的登山计划，即力争完成征服“7+2”(七大洲最高山峰+南北两极)的极限挑战。
 
-一系列聚焦高校青年创新创业的重磅举措集中发布。
+1975年，身为中国登山队队员的夏伯渝在登珠峰时冻伤双小腿导致截肢。
 
-“这次分会场给初创团队提供了很好的交流和扩大影响力的机会，还有投资人展示了充足的投资意愿。
+2018年5月14日，他在69岁第五次挑战登顶珠峰时成功。
 
-”来自上海交通大学海洋学院大二学生、“05后”创业团队成员王可弈在接受采访时这样说。
+今年已经77岁的夏伯渝表示，自己在“7+2”中已经登过了厄尔布鲁士、阿空加瓜、乞力马扎罗以及珠峰，剩下的几个准备在最近一、两年之内完成，自己每天都在锻炼身体，为登顶作准备。
 
-谈及青年创业的期待，王可弈表示，目前人工智能、智能医疗等新赛道汇聚了最多青年创业人才，结合这些赛道算力与数据需求高、迭代快速的特点，他建议上海进一步降低初创团队获得算力、搭建服务器的成本，进一步提高政府、事业单位、国央企掌握的行业数据开放程度，并多开展类似的交流活动，降低跨行业创业团队沟通门槛。
+除夏伯渝之外，在6日于北京举办的2026搜狐极限探索者大会上还汇聚了国内外百余位顶尖极限探索者，涵盖高山攀登、水域探索、荒野远征、翼装飞行、极地科考等领域，他们一同分享了真实的挑战历程以及对极限探索的理解。
 
-对于未来，王可弈有更多设想，一方面，希望在人才公寓申请、落户政策指导等生活保障上给予青年创业者更多倾斜，解决后顾之忧；另一方面，创业基地应发挥桥梁作用，帮助初创团队精准对接上海本土产业链上下游资源，开放更多商业应用场景。
+中国登山协会副主席、中国登山队队长王勇峰强调了敬畏自然与安全第一的原则。
 
-“这样青年能安心在上海扎根打拼，上海也能借此留住核心人才，收获源源不断的创新活力，真正实现共生共赢。
+他直言，登顶不是全部，安全回来才是完成攀登，真正的探索精神不仅包含勇往直前的勇气，也包括懂得适时慢下来、果断撤退的智慧。
 
 ## 相关推荐
 
-- 2026-06-29 18:26 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 18:36 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 18:19 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 18:41 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 18:16 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 18:20 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 18:29 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 18:22 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 18:26 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 18:38 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 18:15 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 18:20 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 18:14 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 18:19 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 18:30 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 18:44 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 18:41 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 18:38 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 18:31 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 18:47 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 18:40 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 18:33 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 18:44 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 18:45 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 18:23 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:21 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/80286214231.shtml)
-- 2026-06-29 18:30 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/365755.shtml)
-- 2026-06-29 18:21 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/8342717549.shtml)
-- 2026-06-29 18:41 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/453625950.shtml)
-- 2026-06-29 18:34 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/357734.shtml)
-- 2026-06-29 18:23 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/87683142329.shtml)
-- 2026-06-29 18:20 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/6594684.shtml)
-- 2026-06-29 18:27 - [毒液2](https://www.blog.minike.top/Article/details/806090.shtml)
-- 2026-06-29 18:12 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.kurohicncr.top/Article/details/8198433.shtml)
-- 2026-06-29 18:34 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/4671045.shtml)
-- 2026-06-29 18:14 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/024412309.shtml)
-- 2026-06-29 18:33 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/441098.shtml)
-- 2026-06-29 18:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/148440477.shtml)
-- 2026-06-29 18:24 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/709115791162.shtml)
-- 2026-06-29 18:40 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/673285.shtml)
+- 2026-06-29 18:33 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/83315100303.shtml)
+- 2026-06-29 18:39 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/619264398786.shtml)
+- 2026-06-29 18:32 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.kurohicncr.top/Article/details/6216978.shtml)
+- 2026-06-29 18:25 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/3064086533.shtml)
+- 2026-06-29 18:39 - [机器人学校开学了](http://www.share.minike.top/Article/details/616006.shtml)
+- 2026-06-29 18:22 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/8812154326.shtml)
+- 2026-06-29 18:36 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/87003396.shtml)
+- 2026-06-29 18:22 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/17786430.shtml)
+- 2026-06-29 18:29 - [流金岁月](http://www.share.kurohicncr.top/Article/details/7390256.shtml)
+- 2026-06-29 18:30 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/3868219.shtml)
+- 2026-06-29 18:21 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/83859429.shtml)
+- 2026-06-29 18:39 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/1177304747.shtml)
+- 2026-06-29 18:45 - [官方通报一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/20410.shtml)
+- 2026-06-29 18:45 - [首个靠AI躺赢的国家](https://www.blog.minike.top/Article/details/884916.shtml)
+- 2026-06-29 18:46 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/89968754582.shtml)

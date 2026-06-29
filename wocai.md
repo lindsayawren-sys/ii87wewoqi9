@@ -1,58 +1,58 @@
-# 韩国综合股价指数收盘上涨4.32% 创历史最高收盘点位
+# 重磅规划出炉！城市更新将给生活带来这些改变
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-韩国综合股价指数收盘上涨4.32%，创历史最高收盘点位。 韩国股市周一再创新高，芯片制造商在人工智能（AI）乐观情绪推动下延续涨势，同时美国同业股价上涨以及乐观的经济数据也提振人气。 韩国综合股价指数因大幅上涨，一度触发交易限制机制。 权重股中三星电子上涨6.3%，SK海力士上涨11.51%。这两档芯片制造商股价均创下新高。 韩国周一公布的贸易数据显示，5月1-10日，韩国出口
+近日，国务院正式印发公布了《城市更新“十五五”规划》，对标创新、宜居、美丽、韧性、文明、智慧的现代化人民城市建设目标，部署了6方面重点任务和14项重大工程和行动。 6方面重点任务包括营造高品质城市生活空间、推动城市发展绿色低碳转型、增强城市安全韧性等。 重大工程和行动涉及“好房子”建设、城镇老旧小区改造、完整社区建设、老旧街区厂区改造提升、市政基础设施提升等。 “十五五”期间的
 
 ## 正文
 
-韩国综合股价指数收盘上涨4.32%，创历史最高收盘点位。
+近日，国务院正式印发公布了《城市更新“十五五”规划》，对标创新、宜居、美丽、韧性、文明、智慧的现代化人民城市建设目标，部署了6方面重点任务和14项重大工程和行动。
 
-韩国股市周一再创新高，芯片制造商在人工智能（AI）乐观情绪推动下延续涨势，同时美国同业股价上涨以及乐观的经济数据也提振人气。
+6方面重点任务包括营造高品质城市生活空间、推动城市发展绿色低碳转型、增强城市安全韧性等。
 
-韩国综合股价指数因大幅上涨，一度触发交易限制机制。
+重大工程和行动涉及“好房子”建设、城镇老旧小区改造、完整社区建设、老旧街区厂区改造提升、市政基础设施提升等。
 
-权重股中三星电子上涨6.3%，SK海力士上涨11.51%。
+“十五五”期间的城市更新，将给居民生活带来哪些切实改变？
 
-这两档芯片制造商股价均创下新高。
+这么多的城市、这么多的工程，城市更新的钱从哪里来？
 
-韩国周一公布的贸易数据显示，5月1-10日，韩国出口同比增长43.7%，主要得益于芯片销售额激增150%。
+未来我国城市发展有哪些趋势？
 
-韩国财长称，与主要国家相比，韩国综合股价指数就估值水平而言仍处于低位。
+住房城乡建设部： 推进好房子等“四好”建设 8日上午，国务院新闻办公室举行政策例行吹风会，住房城乡建设部、国家发展改革委、财政部、自然资源部的相关负责人，对规划和大家关心的问题进行了进一步解读。
 
-摩根大通的分析师表示，韩国综合指数最高可能达到10000点。
+城市更新将给我们的生活带来哪些改变？
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 18:33 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 18:18 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 18:30 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 18:22 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 18:27 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 18:26 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 18:33 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 18:16 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 18:37 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 18:18 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 18:21 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 18:43 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 18:45 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 18:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 18:34 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 18:31 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 18:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 18:27 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 18:37 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 18:24 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 18:42 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 18:43 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 18:31 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:30 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/6175561763.shtml)
-- 2026-06-29 18:19 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/1247744681.shtml)
-- 2026-06-29 18:28 - [女生每天戴耳机18小时突发耳聋](https://www.share.kurohicncr.top/Article/details/061473447.shtml)
-- 2026-06-29 18:40 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/75557754.shtml)
-- 2026-06-29 18:15 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/19495.shtml)
-- 2026-06-29 18:31 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/017967543258.shtml)
-- 2026-06-29 18:35 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/543252.shtml)
-- 2026-06-29 18:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/00214881474.shtml)
-- 2026-06-29 18:22 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/07295640.shtml)
-- 2026-06-29 18:30 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/273683.shtml)
-- 2026-06-29 18:20 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/66406393.shtml)
-- 2026-06-29 18:23 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/524803.shtml)
-- 2026-06-29 18:21 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/915219146.shtml)
-- 2026-06-29 18:41 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/42542048.shtml)
-- 2026-06-29 18:25 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/0858951273.shtml)
+- 2026-06-29 18:24 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/61516499.shtml)
+- 2026-06-29 18:29 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/8160420.shtml)
+- 2026-06-29 18:31 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/953118510053.shtml)
+- 2026-06-29 18:18 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/89591660.shtml)
+- 2026-06-29 18:28 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/6811622.shtml)
+- 2026-06-29 18:26 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/040909719691.shtml)
+- 2026-06-29 18:20 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.kurohicncr.top/Article/details/68251826193.shtml)
+- 2026-06-29 18:46 - [许建琼任湖南省检察院副检察长](http://www.share.minike.top/Article/details/551321261060.shtml)
+- 2026-06-29 18:18 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/534839.shtml)
+- 2026-06-29 18:45 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/28279.shtml)
+- 2026-06-29 18:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/331917.shtml)
+- 2026-06-29 18:39 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/99310506468.shtml)
+- 2026-06-29 18:34 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/68540326.shtml)
+- 2026-06-29 18:41 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/323515.shtml)
+- 2026-06-29 18:33 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/48932.shtml)

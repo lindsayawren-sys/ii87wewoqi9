@@ -1,58 +1,59 @@
-# 陕西宝鸡：江海之上造 “宝桥”
+# 迈威尔科技与Flex将加入标普500指数
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-中新网陕西宝鸡5月9日电 题：陕西宝鸡：江海之上造“宝桥” 作者 张远 孙婕婷 “只要桥的质量好，我们的方案改多少次都可以，安全的桥才算‘宝桥’。”参建过港珠澳大桥、主持完成南京长江三桥钢塔柱工程的宝桥集团副总工程师李军平，常把这句话挂在嘴边。 2004年，国内还没有一座钢塔桥，39岁的李军平接到了一项重任——南京长江三桥钢塔柱施工项目。 那是元月，宝鸡天寒地冻，气温一直在零度
+标普道琼斯指数公司宣布，芯片制造商迈威尔科技与电子制造服务商Flex将被纳入标普500指数，相关调整将于6月22日周一美股开盘前正式生效。与此同时，金宝汤公司与泳池用品批发商Pool Corp将被移出该指数。 消息公布后，两家公司股价在盘后交易中大幅上涨。迈威尔科技涨幅约6%至7%，Flex涨幅约4%。市场分析认为，纳入标普500指数意味着两家公司股票将获得更广泛的投资者群体覆
 
 ## 正文
 
-中新网陕西宝鸡5月9日电 题：陕西宝鸡：江海之上造“宝桥” 作者 张远 孙婕婷 “只要桥的质量好，我们的方案改多少次都可以，安全的桥才算‘宝桥’。
+标普道琼斯指数公司宣布，芯片制造商迈威尔科技与电子制造服务商Flex将被纳入标普500指数，相关调整将于6月22日周一美股开盘前正式生效。
 
-”参建过港珠澳大桥、主持完成南京长江三桥钢塔柱工程的宝桥集团副总工程师李军平，常把这句话挂在嘴边。
+与此同时，金宝汤公司与泳池用品批发商Pool Corp将被移出该指数。
 
-2004年，国内还没有一座钢塔桥，39岁的李军平接到了一项重任——南京长江三桥钢塔柱施工项目。
+消息公布后，两家公司股价在盘后交易中大幅上涨。
 
-那是元月，宝鸡天寒地冻，气温一直在零度上下，可李军平心里特别热乎。
+迈威尔科技涨幅约6%至7%，Flex涨幅约4%。
 
-能用自己的专业给国家造桥，他觉得特别自豪。
+市场分析认为，纳入标普500指数意味着两家公司股票将获得更广泛的投资者群体覆盖，包括追踪该指数的被动型基金以及投资范围受限的主动管理基金，这对公司股票流动性与估值均有实质意义。
 
-“这么大的断面，以前真没见过，专家们都特别关注，电话一个接一个。
+迈威尔科技专注于高速网络连接芯片及定制化AI半导体设计，是人工智能数据中心基础设施建设的重要受益者。
 
-”他听了铁道科学研究院专家的建议，翻遍了国外相关资料，还是没摸到核心技术的门道。
+该公司市值已攀升至约2300亿美元，远超标普500指数220亿美元的最低市值要求。
 
-于是他白天推敲方案，晚上熬夜查资料，一有空就拉着团队研讨难点，稿纸写了一张又一张，反复对比、不停优化，终于敲定了钢塔最稳妥的制作方案。
+此前在台北国际电脑展上，英伟达首席执行官黄仁勋曾公开表示迈威尔科技有望成为“下一个万亿美元企业”。
 
 ## 相关推荐
 
-- 2026-06-29 18:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 18:40 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 18:18 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 18:39 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 18:24 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 18:29 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 18:27 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 18:36 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 18:39 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 18:22 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 18:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 18:29 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 18:43 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 18:45 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 18:21 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 18:19 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 18:36 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 18:20 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 18:18 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 18:34 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 18:44 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 18:25 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 18:19 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 18:40 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 18:40 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:39 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/0445657810.shtml)
-- 2026-06-29 18:31 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/25617580.shtml)
-- 2026-06-29 18:23 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/715965.shtml)
-- 2026-06-29 18:15 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/881469621.shtml)
-- 2026-06-29 18:38 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/090547779875.shtml)
-- 2026-06-29 18:40 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/439985659.shtml)
-- 2026-06-29 18:16 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/57857202534.shtml)
-- 2026-06-29 18:32 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/647962.shtml)
-- 2026-06-29 18:29 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/78085766.shtml)
-- 2026-06-29 18:37 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/427213269.shtml)
-- 2026-06-29 18:13 - [当地回应林区违规放羊遭豹啃食](http://www.blog.minike.top/Article/details/0067281163.shtml)
-- 2026-06-29 18:16 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/12848.shtml)
-- 2026-06-29 18:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/36148.shtml)
-- 2026-06-29 18:27 - [沉睡花园](https://www.blog.minike.top/Article/details/527009254.shtml)
-- 2026-06-29 18:17 - [范志毅看好日本淘汰巴西](https://www.share.minike.top/Article/details/49472361.shtml)
+- 2026-06-29 18:40 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/477635.shtml)
+- 2026-06-29 18:47 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/680760.shtml)
+- 2026-06-29 18:20 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/18440926735.shtml)
+- 2026-06-29 18:36 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.minike.top/Article/details/01693743199.shtml)
+- 2026-06-29 18:22 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/753552.shtml)
+- 2026-06-29 18:40 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/3470322595.shtml)
+- 2026-06-29 18:22 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/0791674.shtml)
+- 2026-06-29 18:38 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.kurohicncr.top/Article/details/054493354603.shtml)
+- 2026-06-29 18:26 - [恋与深空各大应用商店评分](http://www.share.kurohicncr.top/Article/details/63092658.shtml)
+- 2026-06-29 18:29 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/997802522146.shtml)
+- 2026-06-29 18:36 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/781289290238.shtml)
+- 2026-06-29 18:19 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/927343057.shtml)
+- 2026-06-29 18:28 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/461087027987.shtml)
+- 2026-06-29 18:39 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/71672559182.shtml)
+- 2026-06-29 18:18 - [周生如故](http://www.share.kurohicncr.top/Article/details/76209542.shtml)

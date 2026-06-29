@@ -1,45 +1,59 @@
-# 存储概念早盘集体高开 XL二南方海力士涨超23%澜起科技涨超14%
+# 被追觅关联方质押2.47亿股！嘉美包装紧急回应！
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-存储概念股早盘集体高开，截至发稿，XL二南方海力士（07709）上涨23.57%，报96.98港元；澜起科技（06809）上涨14.32%，报429.40港元；兆易创新（03986）上涨7.34%，报526港元；南方两倍做多三星电子（07747）上涨7.95%，报150港元。责任编辑：卢昱君
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！嘉美包装回应控股股东质押股份：系合规担保措施，并非实控人自身融资需求。 嘉美包装（002969）6月8日晚间披露公告，就控股股东苏州逐越鸿智科技发展合伙企业（有限合伙）（以下简称“逐越鸿智”）的股份质押情况进行说明。公告显示，本次质押为逐越鸿智此前取得公司控制权过程中，应兴业银行并购贷款风控要求而实施的合规
 
 ## 正文
 
-存储概念股早盘集体高开，截至发稿，XL二南方海力士（07709）上涨23.57%，报96.98港元；澜起科技（06809）上涨14.32%，报429.40港元；兆易创新（03986）上涨7.34%，报526港元；南方两倍做多三星电子（07747）上涨7.95%，报150港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-责任编辑：卢昱君
+嘉美包装回应控股股东质押股份：系合规担保措施，并非实控人自身融资需求。
+
+嘉美包装（002969）6月8日晚间披露公告，就控股股东苏州逐越鸿智科技发展合伙企业（有限合伙）（以下简称“逐越鸿智”）的股份质押情况进行说明。
+
+公告显示，本次质押为逐越鸿智此前取得公司控制权过程中，应兴业银行并购贷款风控要求而实施的合规担保措施。
+
+逐越鸿智由追觅科技创始人俞浩控制。
+
+稍早前，该公司通过协议转让、要约收购等方式，共计获得嘉美包装4.94亿股，持股比例45.01%，收购成本约为22亿元。
+
+今日，嘉美包装“一”字跌停，股价报15.11元/股，最新市值为166亿元。
+
+根据公告，为保障上市公司控制权稳定，逐越鸿智前期已就本次交易作出承诺，“本企业通过本次交易取得的上市公司股份中，用于自筹资金支付本次交易对价所质押股份的数量不超过通过本次交易取得股份数量的50%，其余通过本次交易取得的上市公司股份在本次交易完成后的36个月内不进行质押。
 
 ## 相关推荐
 
-- 2026-06-29 18:20 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 18:20 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 18:35 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 18:41 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 18:35 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 18:25 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 18:23 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 18:28 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 18:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 18:24 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 18:21 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 18:23 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 18:24 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 18:28 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 18:22 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 18:42 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 18:31 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 18:19 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 18:39 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 18:32 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 18:47 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 18:23 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 18:21 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 18:36 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:34 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/02879594.shtml)
-- 2026-06-29 18:14 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/3400846.shtml)
-- 2026-06-29 18:16 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/1692574.shtml)
-- 2026-06-29 18:34 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/895887843552.shtml)
-- 2026-06-29 18:16 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/375032.shtml)
-- 2026-06-29 18:32 - [乔家的儿女](https://www.blog.minike.top/Article/details/273563.shtml)
-- 2026-06-29 18:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/86312596229.shtml)
-- 2026-06-29 18:24 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/663470.shtml)
-- 2026-06-29 18:36 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/0083845981.shtml)
-- 2026-06-29 18:27 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/381666337058.shtml)
-- 2026-06-29 18:13 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/180411374071.shtml)
-- 2026-06-29 18:36 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/37725202532.shtml)
-- 2026-06-29 18:14 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/18052809369.shtml)
-- 2026-06-29 18:31 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/63735969.shtml)
-- 2026-06-29 18:41 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/60630148.shtml)
+- 2026-06-29 18:41 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/4273658512.shtml)
+- 2026-06-29 18:23 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/144264.shtml)
+- 2026-06-29 18:46 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/607596143.shtml)
+- 2026-06-29 18:36 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/478346943.shtml)
+- 2026-06-29 18:19 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/1475574.shtml)
+- 2026-06-29 18:27 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/71594011677.shtml)
+- 2026-06-29 18:43 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/339379259581.shtml)
+- 2026-06-29 18:35 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/65346175.shtml)
+- 2026-06-29 18:34 - [网红小徐直播时突遇地震](https://www.blog.minike.top/Article/details/459579.shtml)
+- 2026-06-29 18:29 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/875430371609.shtml)
+- 2026-06-29 18:22 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/03499.shtml)
+- 2026-06-29 18:33 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/98104833168.shtml)
+- 2026-06-29 18:35 - [医药生物行业今日涨5.91%](http://www.share.minike.top/Article/details/913488126.shtml)
+- 2026-06-29 18:31 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/538715330367.shtml)
+- 2026-06-29 18:40 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/715074.shtml)

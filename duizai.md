@@ -1,48 +1,58 @@
-# 新生支付被罚66万元：未落实收单银行结算账户管理制度规定等
+# 15台国产工程机械从广西北部湾港启航 驶向阿曼
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-5月9日金融一线消息，中国人民银行海南省分行行政处罚决定信息公示表显示，新生支付有限公司因未落实收单银行结算账户管理制度规定，未按照规定开展客户尽职调查，未按照规定报告可疑交易，受到警告，通报批评，并被罚款66万元。 责任编辑：曹睿潼
+中新网钦州6月9日电 (李浩宇 黄荣冠 玉升辰)广西北部湾国际港务集团9日介绍，近日“芙蓉松”轮从北部湾港钦州港区大榄坪作业区北1号泊位启航，驶向阿曼杜克姆，船内装载了“中国智造”三一重工生产的一批挖掘机、装载机、正面吊等工程机械。这也是三一重工首次在北部湾港开展装载业务作业。 本次作业共装载15台工程机械。其中，全地面起重机单件自重达66吨，约等于3个满载的20尺集装箱的总重
 
 ## 正文
 
-5月9日金融一线消息，中国人民银行海南省分行行政处罚决定信息公示表显示，新生支付有限公司因未落实收单银行结算账户管理制度规定，未按照规定开展客户尽职调查，未按照规定报告可疑交易，受到警告，通报批评，并被罚款66万元。
+中新网钦州6月9日电 (李浩宇 黄荣冠 玉升辰)广西北部湾国际港务集团9日介绍，近日“芙蓉松”轮从北部湾港钦州港区大榄坪作业区北1号泊位启航，驶向阿曼杜克姆，船内装载了“中国智造”三一重工生产的一批挖掘机、装载机、正面吊等工程机械。
 
-责任编辑：曹睿潼
+这也是三一重工首次在北部湾港开展装载业务作业。
+
+本次作业共装载15台工程机械。
+
+其中，全地面起重机单件自重达66吨，约等于3个满载的20尺集装箱的总重量。
+
+设备外形体积约196.8立方米，相当于6个20英尺标准集装箱的容量。
+
+为了高标准、零差错地完成本次作业任务，北部湾港钦州港区作业团队针对性优化升级专用吊装工属具，精准适配超大件设备作业需求，从源头筑牢安全生产防线。
+
+针对设备易损精密部件，作业团队提前完成专业化防护处理，有效规避吊装、航行过程中的剐蹭、磨损风险。
+
+此次吊装环节采用双吊机协同作业模式，由资深操作人员规范精准完成起落、对位作业，稳稳把控吊装精度，杜绝设备倾斜、碰撞等安全隐患。
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 18:27 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 18:38 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 18:19 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 18:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 18:12 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 18:23 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 18:35 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 18:27 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 18:22 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 18:17 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 18:31 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 18:38 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 18:15 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 18:34 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 18:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 18:39 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 18:47 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 18:29 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 18:46 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 18:18 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 18:46 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 18:19 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 18:27 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 18:41 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 18:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:20 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/419079950595.shtml)
-- 2026-06-29 18:12 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/6083686230.shtml)
-- 2026-06-29 18:37 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/007766731616.shtml)
-- 2026-06-29 18:20 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/84573.shtml)
-- 2026-06-29 18:22 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/20977311746.shtml)
-- 2026-06-29 18:18 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/268235389.shtml)
-- 2026-06-29 18:38 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/5140128121.shtml)
-- 2026-06-29 18:25 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/623564.shtml)
-- 2026-06-29 18:37 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/7738473748.shtml)
-- 2026-06-29 18:16 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/421095.shtml)
-- 2026-06-29 18:33 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/49609658807.shtml)
-- 2026-06-29 18:29 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/852254284.shtml)
-- 2026-06-29 18:23 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/47038096469.shtml)
-- 2026-06-29 18:23 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/396863426.shtml)
-- 2026-06-29 18:37 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/8842386838.shtml)
+- 2026-06-29 18:18 - [时光音乐会](https://www.share.minike.top/Article/details/35515.shtml)
+- 2026-06-29 18:22 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/213595614564.shtml)
+- 2026-06-29 18:19 - [货车司机雨中帮交警挪树获表扬](https://www.share.minike.top/Article/details/978269880881.shtml)
+- 2026-06-29 18:42 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/879753456.shtml)
+- 2026-06-29 18:46 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/7895876.shtml)
+- 2026-06-29 18:38 - [叠纸](http://www.share.minike.top/Article/details/5785868.shtml)
+- 2026-06-29 18:29 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/15122798.shtml)
+- 2026-06-29 18:20 - [速度与激情9](http://www.blog.minike.top/Article/details/9698629.shtml)
+- 2026-06-29 18:31 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/98475.shtml)
+- 2026-06-29 18:26 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/59943104486.shtml)
+- 2026-06-29 18:34 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/55825215433.shtml)
+- 2026-06-29 18:37 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/07819.shtml)
+- 2026-06-29 18:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/527384026.shtml)
+- 2026-06-29 18:44 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/008170.shtml)
+- 2026-06-29 18:38 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/0435860228.shtml)

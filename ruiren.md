@@ -1,57 +1,57 @@
-# 英媒：高市背离日本战后和平主义立场 民众抗议持续升温
+# 【西部基金】大盘虹吸效应依旧显著，微盘股震荡下跌
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-中新网5月9日电 据英国广播公司(BBC)8日报道，自2025年10月上台以来，日本首相高市早苗大幅偏离日本战后奉行的和平主义立场，其修宪扩军的系列动向，引发日本民众广泛担忧和警惕，相关抗议活动正不断扩大。 文章开头描绘了日本民众举行集会活动的一幕。文章称，在东京街头一角，大雨之中聚集的民众却越来越多，他们手持被雨淋湿的标语牌等，上面写着几个醒目的大字：“反对战争”。 报道指出
+（来源：西部证券研究发展中心）指数周度表现：近一周，微盘股指数收益率（-1.13%），业绩表现在38个宽基指数中排名第14。近一月，微盘股指数收益率（-10.57%），业绩表现在38个宽基指数中排名第38。近一季，微盘股指数收益率（-9.2%），业绩表现在38个宽基指数中排名第37。近一年，微盘股指数收益率（43.32%），在38个宽基指数中排名第15。微盘基金：本周，微盘股基
 
 ## 正文
 
-中新网5月9日电 据英国广播公司(BBC)8日报道，自2025年10月上台以来，日本首相高市早苗大幅偏离日本战后奉行的和平主义立场，其修宪扩军的系列动向，引发日本民众广泛担忧和警惕，相关抗议活动正不断扩大。
+（来源：西部证券研究发展中心）指数周度表现：近一周，微盘股指数收益率（-1.13%），业绩表现在38个宽基指数中排名第14。
 
-文章开头描绘了日本民众举行集会活动的一幕。
+近一月，微盘股指数收益率（-10.57%），业绩表现在38个宽基指数中排名第38。
 
-文章称，在东京街头一角，大雨之中聚集的民众却越来越多，他们手持被雨淋湿的标语牌等，上面写着几个醒目的大字：“反对战争”。
+近一季，微盘股指数收益率（-9.2%），业绩表现在38个宽基指数中排名第37。
 
-报道指出，这股情绪在日本正越来越强烈，该国目前正出现数十年来规模最大的反战抗议活动。
+近一年，微盘股指数收益率（43.32%），在38个宽基指数中排名第15。
 
-文章称，高市早苗意欲强推修宪，悍然解禁杀伤性武器出口，触动了日本民众的神经。
+微盘基金：本周，微盘股基金-复制指数类中，收益率最高为诺安多策略A（-0.36%），最低为富荣福耀A（-1.63%）；微盘股基金-哑铃配置类中，收益率最高为财通稳裕回报A（0.27%），最低为华夏新锦绣A（-2.58%）；微盘股基金-择时类中，收益率最高为益民核心增长、民生加银专精特新智选A（1.02%），最低为格林伯锐A（-8.61%）；微盘股基金-观察池中，收益率最高为金元顺安元启（-0.27%），最低为宝盈新锐A（-0.96%）。
 
-报道关注到，此次集会现场不乏二三十岁的青年群体参与其中。
+扩散指数观察：微盘扩散指数目前处于开仓阈值以下，左侧阈值法于周中触发看多信号。
 
-一位30多岁的日本人对政府批评道，“我很愤怒，这些改变竟然没有好好听取我们民众的意见就做出了。
+左侧阈值法于2026.06.01由空翻多，右侧阈值法于2026.04.22由多翻空，双均线法于2026.05.25由多翻空。
 
-”还有一位年长的男性表示，必须守护宪法第九条。
+风险指标观察：截至2026年06月05日，微盘股指数成分股总市值中位数为22.54亿元，处于2000年以来的历史77.07%分位数；微盘股指数成分股pb中位数为2.33，处于近五年历史41.25%分位数；本周微盘股指数整体法换手率为2.35%，处于2000年以来的历史76.3%分位数；本周大盘股、中盘股、小盘股的成交占比依次为54.50%、30.14%、15.36%，微盘股成交占比0.73%；沪深300整体法pb/微盘股指数整体法pb的比值为0.66，处于2014年以来历史分位数70.01%。
 
 ## 相关推荐
 
-- 2026-06-29 18:40 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 18:20 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 18:38 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 18:30 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 18:18 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 18:36 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 18:26 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 18:29 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 18:16 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 18:35 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 18:30 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 18:23 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 18:30 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 18:31 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 18:39 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 18:24 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 18:23 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 18:38 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 18:32 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 18:24 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 18:18 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 18:19 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:23 - [一生一世](http://www.share.kurohicncr.top/Article/details/280646.shtml)
-- 2026-06-29 18:25 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/614884922.shtml)
-- 2026-06-29 18:38 - [普京承认俄出现燃料危机](http://www.blog.minike.top/Article/details/74586723946.shtml)
-- 2026-06-29 18:33 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/5140861158.shtml)
-- 2026-06-29 18:21 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/324299119673.shtml)
-- 2026-06-29 18:35 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/78429051978.shtml)
-- 2026-06-29 18:39 - [7款高价创新药有望降价](https://www.share.kurohicncr.top/Article/details/696724628472.shtml)
-- 2026-06-29 18:12 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/9284615021.shtml)
-- 2026-06-29 18:39 - [章若楠包场白敬亭特立独行](https://www.blog.kurohicncr.top/Article/details/75230.shtml)
-- 2026-06-29 18:34 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/6240813.shtml)
-- 2026-06-29 18:16 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/88263677.shtml)
-- 2026-06-29 18:24 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/0204527.shtml)
-- 2026-06-29 18:14 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/903134.shtml)
-- 2026-06-29 18:36 - [人形机器人](https://www.blog.kurohicncr.top/Article/details/74874238.shtml)
-- 2026-06-29 18:24 - [勇敢的心第二部](https://www.share.minike.top/Article/details/8773305592.shtml)
+- 2026-06-29 18:39 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/6735479342.shtml)
+- 2026-06-29 18:24 - [医药生物行业今日涨5.91%](https://www.share.kurohicncr.top/Article/details/2187337485.shtml)
+- 2026-06-29 18:33 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/2805453.shtml)
+- 2026-06-29 18:24 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/119588822.shtml)
+- 2026-06-29 18:27 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/40495738624.shtml)
+- 2026-06-29 18:18 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/193230.shtml)
+- 2026-06-29 18:29 - [乔家的儿女](https://www.share.minike.top/Article/details/857467959713.shtml)
+- 2026-06-29 18:24 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/95089809827.shtml)
+- 2026-06-29 18:19 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/6101495380.shtml)
+- 2026-06-29 18:19 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/496289.shtml)
+- 2026-06-29 18:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/10527.shtml)
+- 2026-06-29 18:24 - [扬名立万](http://www.share.kurohicncr.top/Article/details/366153156.shtml)
+- 2026-06-29 18:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/89692.shtml)
+- 2026-06-29 18:45 - [和周杰伦在演唱会合唱了](http://www.blog.kurohicncr.top/Article/details/1876418.shtml)
+- 2026-06-29 18:42 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/97856651.shtml)

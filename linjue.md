@@ -1,45 +1,59 @@
-# 俄总统助理表示：美总统特使或于近期访俄讨论乌克兰问题
+# APEC成员经济体代表在香港共研“廉洁促繁荣”
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 13:14 来源：央视新闻 责任编辑：【王祎】
+中新社香港6月9日电 (记者 刘玥晴)国家监察委员会与香港廉政公署(简称“廉署”)9日在香港合办亚太经合组织(APEC)“廉洁促繁荣”研讨会，来自APEC成员经济体、国际组织与机构的150余位代表参会，围绕廉洁治理促进繁荣发展、构建务实合作网络等议题展开讨论。 中共中央纪律检查委员会副书记、国家监察委员会副主任傅奎致开幕辞时表示，今年是中国“十五五”开局之年，亦是亚太经合组织“
 
 ## 正文
 
-发布时间：2026年05月11日 13:14 来源：央视新闻 责任编辑：【王祎】
+中新社香港6月9日电 (记者 刘玥晴)国家监察委员会与香港廉政公署(简称“廉署”)9日在香港合办亚太经合组织(APEC)“廉洁促繁荣”研讨会，来自APEC成员经济体、国际组织与机构的150余位代表参会，围绕廉洁治理促进繁荣发展、构建务实合作网络等议题展开讨论。
+
+中共中央纪律检查委员会副书记、国家监察委员会副主任傅奎致开幕辞时表示，今年是中国“十五五”开局之年，亦是亚太经合组织“中国年”，中国是亚太经合组织积极的参与者、贡献者，将继续与各方一道，秉持腐败零容忍态度，充分发挥廉洁的保障促进作用，深化反腐败司法执法合作，推动实现“建设亚太共同体，促进共同繁荣”的愿景，让更多发展成果惠及亚太人民。
+
+香港廉政专员胡英明说，各方踊跃参与此次研讨会，展现出共同打击贪污、推动发展的决心。
+
+香港的反贪模式是执法、预防和教育三管齐下，享誉国际，廉署日后将凭借“狮子山精神”，秉持诚信理念，继续为这座城市构建信任、稳定和持久的繁荣发展。
+
+香港特区政府律政司司长林定国强调，香港是国际金融、贸易和航运中心，以廉洁、法治闻名。
+
+虽然每个经济体都要根据各自情况寻找方法以宣扬廉洁，但经济体之间分享知识和经验至关重要。
+
+香港期望与各经济体，共同在永不停步的廉洁路上携手并进。
+
+当天研讨会设多个专题讨论环节，议题包括“强化诚信以缔造美好生活”“构建稳健的廉洁金融系统”“推动廉洁的跨境投资及贸易”。
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 18:20 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 18:35 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 18:35 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 18:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 18:34 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 18:34 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 18:27 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 18:14 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 18:18 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 18:25 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 18:40 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 18:19 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 18:36 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 18:45 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 18:20 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 18:38 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 18:22 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 18:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 18:34 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 18:38 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 18:24 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 18:25 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 18:22 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 18:46 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 18:46 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:39 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/43794.shtml)
-- 2026-06-29 18:26 - [NBA交易](http://www.blog.minike.top/Article/details/015523139100.shtml)
-- 2026-06-29 18:18 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.minike.top/Article/details/503571976210.shtml)
-- 2026-06-29 18:27 - [大马同意延长马航370残骸搜寻工作](https://www.blog.minike.top/Article/details/8024316280.shtml)
-- 2026-06-29 18:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/179771583800.shtml)
-- 2026-06-29 18:24 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/336449248.shtml)
-- 2026-06-29 18:26 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/7414671.shtml)
-- 2026-06-29 18:13 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/7963716745.shtml)
-- 2026-06-29 18:27 - [中方向委方追加1亿元援助](https://www.blog.minike.top/Article/details/19299267589.shtml)
-- 2026-06-29 18:28 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/04934.shtml)
-- 2026-06-29 18:20 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/9736323.shtml)
-- 2026-06-29 18:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/52036730.shtml)
-- 2026-06-29 18:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/821726325723.shtml)
-- 2026-06-29 18:26 - [逆天祖国人](http://www.share.minike.top/Article/details/742333216.shtml)
-- 2026-06-29 18:31 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/64127668.shtml)
+- 2026-06-29 18:33 - [大马同意延长马航370残骸搜寻工作](http://www.blog.minike.top/Article/details/699251.shtml)
+- 2026-06-29 18:34 - [王楚钦开门红](http://www.blog.minike.top/Article/details/351802.shtml)
+- 2026-06-29 18:31 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/90804456.shtml)
+- 2026-06-29 18:20 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/642841183827.shtml)
+- 2026-06-29 18:24 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/3436833797.shtml)
+- 2026-06-29 18:27 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/9560856612.shtml)
+- 2026-06-29 18:24 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/05489999774.shtml)
+- 2026-06-29 18:47 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/8156550080.shtml)
+- 2026-06-29 18:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/5764210967.shtml)
+- 2026-06-29 18:40 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/42534.shtml)
+- 2026-06-29 18:18 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/82825266.shtml)
+- 2026-06-29 18:37 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/88413.shtml)
+- 2026-06-29 18:36 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/604955865748.shtml)
+- 2026-06-29 18:46 - [V8](https://www.share.minike.top/Article/details/10254566341.shtml)
+- 2026-06-29 18:24 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/524247.shtml)

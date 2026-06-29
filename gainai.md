@@ -1,56 +1,61 @@
-# 他信出狱，女儿佩通坦拥抱迎接 泰国政坛进入“洗牌”时刻？
+# 吃喝板块继续走弱，华宝基金食品饮料ETF（515710）跌超1%！机构喊话：下半年业绩上行通道或将开启
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-中新网5月11日电 (甘甜)当地时间11日上午(以下均为当地时间)，泰国前总理他信·西那瓦获假释，从曼谷空炳中央监狱出狱。 7时40分左右，76岁的他信身穿简单白衬衫，走出监狱大门，与他的女儿、前总理佩通坦等家人紧紧相拥。 数百名支持者和政治盟友，早早在监狱外等候。在他信获释时，他们高呼“我们爱他信”。他信和家人对在场“红衫军”的支持表示感谢，并向泰国国旗致敬。 7时56分左右
+吃喝板块今日（6月8日）继续走弱。反映吃喝板块整体走势的食品饮料ETF华宝（515710）开盘短暂拉升后震荡下行，截至发稿，场内价格跌1.01%。 成份股方面，大众品跌幅居前，部分白酒龙头亦表现不佳。截至发稿，技源集团、山西汾酒双双跌超3%，泸州老窖、盐津铺子、养元饮品等多股跌超2%。 中信证券指出，短期看，在“反内卷”政策持续推进、宏观经济逐步修复的背景下，白酒行业有望迎来产
 
 ## 正文
 
-中新网5月11日电 (甘甜)当地时间11日上午(以下均为当地时间)，泰国前总理他信·西那瓦获假释，从曼谷空炳中央监狱出狱。
+吃喝板块今日（6月8日）继续走弱。
 
-7时40分左右，76岁的他信身穿简单白衬衫，走出监狱大门，与他的女儿、前总理佩通坦等家人紧紧相拥。
+反映吃喝板块整体走势的食品饮料ETF华宝（515710）开盘短暂拉升后震荡下行，截至发稿，场内价格跌1.01%。
 
-数百名支持者和政治盟友，早早在监狱外等候。
+成份股方面，大众品跌幅居前，部分白酒龙头亦表现不佳。
 
-在他信获释时，他们高呼“我们爱他信”。
+截至发稿，技源集团、山西汾酒双双跌超3%，泸州老窖、盐津铺子、养元饮品等多股跌超2%。
 
-他信和家人对在场“红衫军”的支持表示感谢，并向泰国国旗致敬。
+中信证券指出，短期看，在“反内卷”政策持续推进、宏观经济逐步修复的背景下，白酒行业有望迎来产业底部的温和复苏。
 
-7时56分左右，他信乘车离开监狱。
+对于高端白酒而言，茅台批价本质上反映的是渠道信心、终端需求与资产属性的综合变化；随着价格竞争趋缓、企业盈利改善、消费信心修复以及高端商务和礼赠场景边际回暖，茅台批价有望从底部区间逐步企稳回升。
 
-前路等待他的，或许是一个“变数丛生”的泰国政坛。
+其同时表示，若后续PPI、工业利润和核心城市资产价格继续改善，批价修复不仅将成为行业景气回暖的领先信号，也有望带动白酒板块从库存消化阶段进入更明确的复苏通道。
 
-两度出任总理 5月11日，泰国餐厅厨师柴德杰特意请了一天假，赶到曼谷空炳中央监狱外迎接他信。
+从估值方面来看，吃喝板块当前仍处估值低位。
 
 ## 相关推荐
 
-- 2026-06-29 18:40 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 18:30 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 18:27 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 18:20 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 18:39 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 18:17 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 18:25 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 18:15 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 18:26 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 18:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 18:35 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 18:33 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 18:26 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 18:27 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 18:47 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 18:26 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 18:21 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 18:29 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 18:35 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 18:46 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 18:24 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 18:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 18:30 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 18:36 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 18:27 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:37 - [赵今麦时隔五年再演李诗情](http://www.share.kurohicncr.top/Article/details/1923845207.shtml)
-- 2026-06-29 18:25 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/34357349817.shtml)
-- 2026-06-29 18:18 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/1585584139.shtml)
-- 2026-06-29 18:29 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/400481995.shtml)
-- 2026-06-29 18:20 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/284708506.shtml)
-- 2026-06-29 18:30 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/879208522742.shtml)
-- 2026-06-29 18:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/53461.shtml)
-- 2026-06-29 18:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/6362122.shtml)
-- 2026-06-29 18:34 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/0049048964.shtml)
-- 2026-06-29 18:22 - [机器人学校开学了](https://www.blog.kurohicncr.top/Article/details/620410815.shtml)
-- 2026-06-29 18:39 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/865765.shtml)
-- 2026-06-29 18:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/275702.shtml)
-- 2026-06-29 18:13 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/2916009.shtml)
-- 2026-06-29 18:30 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/4949185641.shtml)
-- 2026-06-29 18:17 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/656480.shtml)
+- 2026-06-29 18:41 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/9210404465.shtml)
+- 2026-06-29 18:47 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/1792325.shtml)
+- 2026-06-29 18:29 - [爱很美味](http://www.blog.minike.top/Article/details/20641.shtml)
+- 2026-06-29 18:34 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/7309564.shtml)
+- 2026-06-29 18:39 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/62572357626.shtml)
+- 2026-06-29 18:44 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/76425.shtml)
+- 2026-06-29 18:42 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/846999401.shtml)
+- 2026-06-29 18:35 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/0738996.shtml)
+- 2026-06-29 18:45 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.minike.top/Article/details/475776019673.shtml)
+- 2026-06-29 18:27 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/582562246.shtml)
+- 2026-06-29 18:19 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/482615532390.shtml)
+- 2026-06-29 18:29 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/87234.shtml)
+- 2026-06-29 18:18 - [许建琼任湖南省检察院副检察长](http://www.blog.kurohicncr.top/Article/details/357181916040.shtml)
+- 2026-06-29 18:38 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/51212932.shtml)
+- 2026-06-29 18:25 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/73212140432.shtml)

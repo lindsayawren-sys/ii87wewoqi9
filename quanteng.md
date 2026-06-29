@@ -1,50 +1,51 @@
-# 母亲节：官兵唱响一封动人家书
+# 印尼基准股指大涨超5% 国有银行领涨
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 17:51 来源：中国新闻网 歌曲《家书》以军旅生涯为叙事主线，用质朴真挚的歌词，勾勒出军人从十八岁告别家乡入伍，到多年戍守边疆的人生历程。歌曲道尽军人离别父母、亏欠妻儿的心底牵挂，诉说着家国两难全的无奈与愧疚。一身戎装、一枚勋章，承载着青春与奉献，诠释了军人舍小家为大家、坚守边疆、守护人民安康的使命担当。(作者：姚天宝 陶用 宋哲 张振等）
+印尼基准股指创一年多来最大涨幅，此前由于担心政府政策不确定性、可投资性以及印尼盾贬值，当地股票被严重超卖。 雅加达综合指数一度涨5.3%，创2025年4月以来最大涨幅。 国有银行领涨，印尼议会副议长Sufmi Dasco Ahmad称，考虑到当前市场暴跌，已就国有银行回购股份的可能性进行了讨论。责任编辑：王永生
 
 ## 正文
 
-发布时间：2026年05月09日 17:51 来源：中国新闻网 歌曲《家书》以军旅生涯为叙事主线，用质朴真挚的歌词，勾勒出军人从十八岁告别家乡入伍，到多年戍守边疆的人生历程。
+印尼基准股指创一年多来最大涨幅，此前由于担心政府政策不确定性、可投资性以及印尼盾贬值，当地股票被严重超卖。
 
-歌曲道尽军人离别父母、亏欠妻儿的心底牵挂，诉说着家国两难全的无奈与愧疚。
+雅加达综合指数一度涨5.3%，创2025年4月以来最大涨幅。
 
-一身戎装、一枚勋章，承载着青春与奉献，诠释了军人舍小家为大家、坚守边疆、守护人民安康的使命担当。
+国有银行领涨，印尼议会副议长Sufmi Dasco Ahmad称，考虑到当前市场暴跌，已就国有银行回购股份的可能性进行了讨论。
 
-(作者：姚天宝 陶用 宋哲 张振等） 责任编辑：【魏聪聪】
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 18:22 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 18:25 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 18:21 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 18:18 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 18:25 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 18:16 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 18:33 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 18:29 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 18:13 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 18:17 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 18:32 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 18:34 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 18:25 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 18:26 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 18:26 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 18:23 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 18:37 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 18:42 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 18:24 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 18:20 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 18:30 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 18:28 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 18:47 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 18:37 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 18:36 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/235177.shtml)
-- 2026-06-29 18:23 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/1764078685.shtml)
-- 2026-06-29 18:20 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/45253727.shtml)
-- 2026-06-29 18:35 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/7040957783.shtml)
-- 2026-06-29 18:25 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/6977668.shtml)
-- 2026-06-29 18:32 - [逃狱兄弟](http://www.blog.minike.top/Article/details/785596.shtml)
-- 2026-06-29 18:26 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.kurohicncr.top/Article/details/2910033.shtml)
-- 2026-06-29 18:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/889804394949.shtml)
-- 2026-06-29 18:20 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/62289.shtml)
-- 2026-06-29 18:32 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/271914629533.shtml)
-- 2026-06-29 18:37 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/6367483686.shtml)
-- 2026-06-29 18:35 - [我和我的家乡](http://www.blog.minike.top/Article/details/3610641.shtml)
-- 2026-06-29 18:14 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/549243466.shtml)
-- 2026-06-29 18:34 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/84738.shtml)
-- 2026-06-29 18:31 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/251219098916.shtml)
+- 2026-06-29 18:48 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/79831242.shtml)
+- 2026-06-29 18:25 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/605994.shtml)
+- 2026-06-29 18:18 - [起风了](https://www.blog.minike.top/Article/details/65632.shtml)
+- 2026-06-29 18:28 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/291557.shtml)
+- 2026-06-29 18:18 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/11902321468.shtml)
+- 2026-06-29 18:39 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/9156476540.shtml)
+- 2026-06-29 18:21 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/2068666392.shtml)
+- 2026-06-29 18:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/92690.shtml)
+- 2026-06-29 18:23 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/63900129395.shtml)
+- 2026-06-29 18:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/07710307.shtml)
+- 2026-06-29 18:32 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/2925657.shtml)
+- 2026-06-29 18:28 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/55305457.shtml)
+- 2026-06-29 18:39 - [毛朝晖任湖南省农业农村厅厅长](http://www.blog.minike.top/Article/details/6543764.shtml)
+- 2026-06-29 18:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/2980026.shtml)
+- 2026-06-29 18:20 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/6467008.shtml)

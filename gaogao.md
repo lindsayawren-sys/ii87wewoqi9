@@ -1,56 +1,56 @@
-# 粤港澳大湾区仲裁协作机制文件首次研讨会在南沙召开
+# 摩根士丹利策略师：上周五的市场抛售“终归是健康的”
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-中新网广州5月9日电 (方伟彬 叶亮)广州仲裁委员会9日发布消息，粤港澳大湾区仲裁联盟(以下简称“联盟”)协作机制文件首次研讨会日前在广州南沙的联盟秘书处顺利举办。 会议聚焦区域仲裁协作机制设计，对《粤港澳大湾区仲裁示范规则》等三份核心机制文件的征求意见稿进行了深入探讨，旨在助力粤港澳大湾区仲裁一体化发展。 据悉，本次会议采用线上线下相结合的方式，吸引了粤港澳三地十余家仲裁及相
+8000点。 这是摩根士丹利策略师迈克·威尔逊为标普500指数设定的目标价。即使经历了周五的猛烈抛售，这一预期也未曾动摇。 该基准指数上周收于7383.74点。按照威尔逊的目标价计算，这意味著到今年年底该指数还将上涨逾8%。 威尔逊周一写道：“市场很少会像3月份低点以来那样呈直线上涨。在我们看来，如果这轮牛市要延续到年底，那么回调是在所难免的，而且终归是健康的。” 威尔逊曾成功
 
 ## 正文
 
-中新网广州5月9日电 (方伟彬 叶亮)广州仲裁委员会9日发布消息，粤港澳大湾区仲裁联盟(以下简称“联盟”)协作机制文件首次研讨会日前在广州南沙的联盟秘书处顺利举办。
+8000点。
 
-会议聚焦区域仲裁协作机制设计，对《粤港澳大湾区仲裁示范规则》等三份核心机制文件的征求意见稿进行了深入探讨，旨在助力粤港澳大湾区仲裁一体化发展。
+这是摩根士丹利策略师迈克·威尔逊为标普500指数设定的目标价。
 
-据悉，本次会议采用线上线下相结合的方式，吸引了粤港澳三地十余家仲裁及相关机构派员参与，并邀请广东省司法厅及高校法学专家列席指导。
+即使经历了周五的猛烈抛售，这一预期也未曾动摇。
 
-与会代表围绕联盟协作机制、规则条款、程序衔接以及人才共享等关键议题展开讨论，达成广泛共识，为完善大湾区仲裁协作体系、提升跨境纠纷解决效能奠定了坚实基础。
+该基准指数上周收于7383.74点。
 
-粤港澳大湾区仲裁联盟是由粤港澳三地仲裁机构共同发起成立的区域性协作组织，致力于推动三地仲裁规则、服务标准与实践经验的互联互通，为大湾区商事主体提供高效、便捷、专业的争议解决服务。
+按照威尔逊的目标价计算，这意味著到今年年底该指数还将上涨逾8%。
 
-下一步，联盟将梳理汇总会议意见，加快推进协作机制文件修订，持续深化三地仲裁务实协作，努力打造具有全球影响力的湾区仲裁品牌，为大湾区的高质量发展提供优质仲裁服务保障。
+威尔逊周一写道：“市场很少会像3月份低点以来那样呈直线上涨。
 
-(完)
+在我们看来，如果这轮牛市要延续到年底，那么回调是在所难免的，而且终归是健康的。
+
+” 威尔逊曾成功预测2022年的股市大跌。
 
 ## 相关推荐
 
-- 2026-06-29 18:18 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 18:38 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 18:14 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 18:37 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 18:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 18:34 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 18:41 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 18:13 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 18:22 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 18:19 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 18:34 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 18:16 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 18:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 18:27 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 18:30 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 18:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 18:45 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 18:36 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 18:24 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 18:46 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 18:21 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 18:46 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/578111426.shtml)
-- 2026-06-29 18:14 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/073686695.shtml)
-- 2026-06-29 18:32 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/321706996.shtml)
-- 2026-06-29 18:36 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/00059895814.shtml)
-- 2026-06-29 18:38 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/46686.shtml)
-- 2026-06-29 18:24 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/3223190157.shtml)
-- 2026-06-29 18:22 - [断骨增高灰产拉一人提成1.5万元](https://www.share.kurohicncr.top/Article/details/547130.shtml)
-- 2026-06-29 18:26 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/964494743.shtml)
-- 2026-06-29 18:29 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/568222.shtml)
-- 2026-06-29 18:16 - [波兰创该国高温纪录](https://www.share.minike.top/Article/details/34503.shtml)
-- 2026-06-29 18:38 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/845519.shtml)
-- 2026-06-29 18:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/29011498772.shtml)
-- 2026-06-29 18:34 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/94965324.shtml)
-- 2026-06-29 18:26 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/4230975.shtml)
-- 2026-06-29 18:16 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/48111293.shtml)
+- 2026-06-29 18:28 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/5534922.shtml)
+- 2026-06-29 18:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/76823743.shtml)
+- 2026-06-29 18:41 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/197972284.shtml)
+- 2026-06-29 18:25 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/25566.shtml)
+- 2026-06-29 18:21 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/355182160.shtml)
+- 2026-06-29 18:19 - [和周杰伦在演唱会合唱了](https://www.blog.minike.top/Article/details/30050.shtml)
+- 2026-06-29 18:27 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/22228.shtml)
+- 2026-06-29 18:44 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/3596568383.shtml)
+- 2026-06-29 18:37 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/11317.shtml)
+- 2026-06-29 18:36 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/31056.shtml)
+- 2026-06-29 18:24 - [流金岁月](https://www.blog.minike.top/Article/details/4863004544.shtml)
+- 2026-06-29 18:28 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.minike.top/Article/details/479830771.shtml)
+- 2026-06-29 18:20 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/4416400.shtml)
+- 2026-06-29 18:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/15566005954.shtml)
+- 2026-06-29 18:25 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/9898921.shtml)

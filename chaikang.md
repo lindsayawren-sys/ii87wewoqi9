@@ -1,52 +1,59 @@
-# 中国企业自主研制的无人车全链路补能体系发布 可实现自动充电
+# 寿光农商行1200万股股权流拍，起拍价为1.40元/股
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 10:28 来源：中国新闻网 5月8日，面向无人驾驶领域的全链路自动充电与无人运营体系“来电岛1号”在山东青岛发布。该体系通过充电机器人、泊车机器人与AI智能体的融合技术架构，实现无人驾驶车辆从泊车、补能到运维的全流程无人化闭环，为无人驾驶产业规模化落地提供系统性的解决方案。 该体系中，多车型通用的自动充电机器人大幅压缩设备成本，打破了自动补能
+来源：泰山财经 记者：林俊洁 泰山财经记者从阿里司法拍卖平台获悉，6月8日上午10时，山东寿光农村商业银行股份有限公司（下称“寿光农商行”）1221万股股权一拍正式结束，起拍价1709.40万元，折合每股1.40元，较评估价减少4.11%。本次股权拍卖的全程无竞买人报名，最终宣告流拍。 根据股权评估报告，本次拍卖标的为山东锦绣前程装饰工程有限公司（下称“锦绣前程装饰公司”）所持
 
 ## 正文
 
-发布时间：2026年05月09日 10:28 来源：中国新闻网 5月8日，面向无人驾驶领域的全链路自动充电与无人运营体系“来电岛1号”在山东青岛发布。
+来源：泰山财经 记者：林俊洁 泰山财经记者从阿里司法拍卖平台获悉，6月8日上午10时，山东寿光农村商业银行股份有限公司（下称“寿光农商行”）1221万股股权一拍正式结束，起拍价1709.40万元，折合每股1.40元，较评估价减少4.11%。
 
-该体系通过充电机器人、泊车机器人与AI智能体的融合技术架构，实现无人驾驶车辆从泊车、补能到运维的全流程无人化闭环，为无人驾驶产业规模化落地提供系统性的解决方案。
+本次股权拍卖的全程无竞买人报名，最终宣告流拍。
 
-该体系中，多车型通用的自动充电机器人大幅压缩设备成本，打破了自动补能设备规模化应用的价格壁垒；自动泊车机器人将单车存取时间大幅缩减，显著提升了高频密集停车场景的适配性；基于海量充电数据打造的AI智能体，可实现电池安全风险提前预警与车网互动智能调度，有效降低无人车运营能耗成本。
+根据股权评估报告，本次拍卖标的为山东锦绣前程装饰工程有限公司（下称“锦绣前程装饰公司”）所持有的寿光农商行1221万股股权，单股评估价值1.46元，标的整体评估总价1782.66万元，股权评估基准日为2025年12月31日。
 
-特来电副总裁、首席科学家穆晓鹏表示，通过来电岛，可以将无人车的充电无人化，摆脱现在人工插枪的模式，同时通过自动泊车和自动充电的体系，让无人车的运营效率提升30%。
+拍卖期间，该标的累计吸引600人次围观、8名意向用户设置竞拍提醒，但始终无人提交报名信息，未产生有效竞价。
 
-(王禹 制作 刘鹏） 责任编辑：【罗攀】
+这并非寿光农商行股权拍卖首次流拍。
+
+2025年7月，山东金信实业有限公司持有的寿光农商行全部1765.24万股股权首次登上拍卖平台，标的每股评估价1.81元，起拍价2556.1万元，因无人出价流拍。
+
+同年12月，该笔股权开启二次拍卖，起拍价下调至2224.21万元，折合每股1.26元，最终由兰陵县国资旗下兰陵新思想产业投资有限公司底价接盘。
+
+寿光农商行成立于2009年3月，是在原寿光市农村信用合作联社基础上改制组建的地方性金融机构，目前法定代表人为孙山明，注册资本为18.45亿元。
 
 ## 相关推荐
 
-- 2026-06-29 18:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 18:34 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 18:36 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 18:28 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 18:27 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 18:24 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 18:28 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 18:21 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 18:37 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 18:16 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 18:30 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 18:33 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 18:45 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 18:22 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 18:28 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 18:39 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 18:23 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 18:36 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 18:20 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 18:24 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 18:45 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 18:19 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 18:26 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 18:37 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 18:34 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:34 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/60014878325.shtml)
-- 2026-06-29 18:17 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/530126512.shtml)
-- 2026-06-29 18:26 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/99990179778.shtml)
-- 2026-06-29 18:22 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/94867634874.shtml)
-- 2026-06-29 18:18 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/8688840595.shtml)
-- 2026-06-29 18:30 - [扬名立万](https://www.share.minike.top/Article/details/176701007698.shtml)
-- 2026-06-29 18:27 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/72045469.shtml)
-- 2026-06-29 18:16 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/160719976748.shtml)
-- 2026-06-29 18:26 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/490607533.shtml)
-- 2026-06-29 18:40 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/18934744171.shtml)
-- 2026-06-29 18:36 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/6290668462.shtml)
-- 2026-06-29 18:30 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/14363969.shtml)
-- 2026-06-29 18:13 - [TOP Prada](http://www.blog.minike.top/Article/details/358430917.shtml)
-- 2026-06-29 18:20 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/054891127.shtml)
-- 2026-06-29 18:34 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/995479598912.shtml)
+- 2026-06-29 18:27 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/08510384.shtml)
+- 2026-06-29 18:43 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/1611996.shtml)
+- 2026-06-29 18:47 - [金牌调解](https://www.blog.minike.top/Article/details/68637165.shtml)
+- 2026-06-29 18:30 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/92468163610.shtml)
+- 2026-06-29 18:47 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/588228790384.shtml)
+- 2026-06-29 18:42 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.minike.top/Article/details/11776.shtml)
+- 2026-06-29 18:21 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/739806.shtml)
+- 2026-06-29 18:34 - [A股割裂行情有变化了吗](https://www.blog.kurohicncr.top/Article/details/12873.shtml)
+- 2026-06-29 18:38 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/2381378534.shtml)
+- 2026-06-29 18:33 - [南昌市委书记调整](http://www.share.kurohicncr.top/Article/details/2673486.shtml)
+- 2026-06-29 18:33 - [逃狱兄弟](https://www.blog.minike.top/Article/details/18401387224.shtml)
+- 2026-06-29 18:20 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.kurohicncr.top/Article/details/73141.shtml)
+- 2026-06-29 18:24 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/772355.shtml)
+- 2026-06-29 18:47 - [爱很美味](https://www.share.minike.top/Article/details/30473.shtml)
+- 2026-06-29 18:19 - [依法管制阻遏日方军事化危险动向](https://www.share.kurohicncr.top/Article/details/45939024.shtml)

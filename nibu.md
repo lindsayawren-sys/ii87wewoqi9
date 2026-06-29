@@ -1,59 +1,59 @@
-# “开盒”网暴等犯罪被惩治 谁在贩卖你的个人信息？
+# 香港6月中小企业收益展望动向指数改善
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-最高法发布典型案例，“开盒”网暴、倒卖学历学籍信息等犯罪被惩治—— 谁在贩卖你的个人信息(法治聚焦) 数字经济高速发展，对个人信息的收集、分析、使用已涉及公民日常工作、生活的方方面面，随之而来的是日益突出的个人信息泄露问题。实践中，部分政企、平台对信息数据管理不善，敏感个人信息遭窃取、泄露、贩卖，甚至催生“职业窃密人”。 犯罪分子利用非法获取的个人信息精准实施诈骗、敲诈勒索、“
+中新社香港6月9日电 香港特区政府统计处9日公布的中小企业业务状况按月统计调查结果显示，中小企业业务收益的现时动向指数从2026年4月的44点，上升至同年5月的44.4点，而6月的业务收益展望动向指数为47.2点。按行业分析，一些统计调查涵盖的行业的业务收益现时动向指数于5月较4月上升，特别是饮食业、物流业及零售业。 进出口贸易业新订单的现时动向指数从4月的46.1点轻微下降至
 
 ## 正文
 
-最高法发布典型案例，“开盒”网暴、倒卖学历学籍信息等犯罪被惩治—— 谁在贩卖你的个人信息(法治聚焦) 数字经济高速发展，对个人信息的收集、分析、使用已涉及公民日常工作、生活的方方面面，随之而来的是日益突出的个人信息泄露问题。
+中新社香港6月9日电 香港特区政府统计处9日公布的中小企业业务状况按月统计调查结果显示，中小企业业务收益的现时动向指数从2026年4月的44点，上升至同年5月的44.4点，而6月的业务收益展望动向指数为47.2点。
 
-实践中，部分政企、平台对信息数据管理不善，敏感个人信息遭窃取、泄露、贩卖，甚至催生“职业窃密人”。
+按行业分析，一些统计调查涵盖的行业的业务收益现时动向指数于5月较4月上升，特别是饮食业、物流业及零售业。
 
-犯罪分子利用非法获取的个人信息精准实施诈骗、敲诈勒索、“开盒”等违法犯罪，形成侵犯公民个人信息犯罪黑灰产业链，严重侵害公民人身、财产安全，也严重危害公共安全和社会秩序。
+进出口贸易业新订单的现时动向指数从4月的46.1点轻微下降至5月的46点，而6月的新订单展望动向指数为47.8点。
 
-侵犯公民个人信息犯罪有哪些新特点、新趋势？
+特区政府发言人表示，5月中小企业的营商气氛大致稳定。
 
-如何斩断个人信息泄露源头？
+未来，香港强韧的经济增长前景应会为本地营商气氛提供支持，但中东冲突的变数仍是影响营商气氛的不确定因素。
 
-5月8日，最高人民法院发布5起依法惩治侵犯公民个人信息犯罪及关联犯罪典型案例，依法严惩“开盒”网暴、窃取患者隐私等犯罪行为，筑牢清朗网络空间法治防线。
+中小型企业业务状况按月统计调查旨在于最短时间内就中小企的短期业务状况提供快捷参考。
 
-医院请的软件公司成“内鬼”，窃取287万余条个人信息 个人信息泄露的源头，是黑灰产业链的开端。
+特区政府统计处根据该统计调查收集的意见，编制一套动向指数，包括现时与展望动向指数。
 
-在一起案例中，某医院聘请博某软件公司负责开发、维护网上挂号系统，没想到对方竟是“窃密人”。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:17 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 18:21 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 18:26 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 18:42 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 18:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 18:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 18:40 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 18:25 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 18:27 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 18:35 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 18:25 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 18:16 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 18:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 18:22 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 18:48 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 18:46 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 18:28 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 18:27 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 18:24 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 18:34 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 18:23 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 18:37 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 18:43 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 18:26 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 18:39 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 18:45 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:17 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/358422.shtml)
-- 2026-06-29 18:14 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/225696128098.shtml)
-- 2026-06-29 18:24 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/345736820449.shtml)
-- 2026-06-29 18:41 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/6247212.shtml)
-- 2026-06-29 18:17 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/944179.shtml)
-- 2026-06-29 18:37 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/623227.shtml)
-- 2026-06-29 18:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/33501.shtml)
-- 2026-06-29 18:16 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/4201518.shtml)
-- 2026-06-29 18:33 - [普京承认俄出现燃料危机](http://www.share.kurohicncr.top/Article/details/8171639903.shtml)
-- 2026-06-29 18:23 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/173624232652.shtml)
-- 2026-06-29 18:26 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/01720.shtml)
-- 2026-06-29 18:24 - [博主：AI泡沫必须破灭](https://www.share.kurohicncr.top/Article/details/507016419.shtml)
-- 2026-06-29 18:12 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/77859.shtml)
-- 2026-06-29 18:29 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.kurohicncr.top/Article/details/955037916901.shtml)
-- 2026-06-29 18:20 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.kurohicncr.top/Article/details/955798363.shtml)
+- 2026-06-29 18:27 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/173456.shtml)
+- 2026-06-29 18:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/596561014292.shtml)
+- 2026-06-29 18:22 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/25771499206.shtml)
+- 2026-06-29 18:31 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/590871526748.shtml)
+- 2026-06-29 18:28 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/248503914.shtml)
+- 2026-06-29 18:42 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/026909.shtml)
+- 2026-06-29 18:47 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/64560043.shtml)
+- 2026-06-29 18:46 - [流金岁月](http://www.share.kurohicncr.top/Article/details/84418136820.shtml)
+- 2026-06-29 18:40 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/344556896.shtml)
+- 2026-06-29 18:21 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/106719875279.shtml)
+- 2026-06-29 18:36 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/3084566479.shtml)
+- 2026-06-29 18:33 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/027159743060.shtml)
+- 2026-06-29 18:45 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/5487699.shtml)
+- 2026-06-29 18:34 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/05431574151.shtml)
+- 2026-06-29 18:47 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/888280090526.shtml)

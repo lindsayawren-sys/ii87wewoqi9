@@ -1,57 +1,59 @@
-# 招商银行青岛分行被罚38.36万元：违反金融统计相关规定等
+# 酒价内参6月9日价格发布：水晶剑南春下跌2元
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-5月9日金融一线消息，中国人民银行青岛市分行行政处罚决定信息公示表显示，招商银行股份有限公司青岛分行因违反金融统计相关规定，违反人民币流通管理规定，违反反假货币业务管理规定，金融机构违反信用信息采集、提供、查询及相关管理规定，未按照规定开展客户尽职调查，受到警告并被罚款38.36万元。 序号 当事人名称（姓名、职务） 行政处罚决定书文号 违法行为类型 行政处罚内容 作出行政处罚
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月9日整体再度明显走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9895元，较昨日大幅下跌23元，重返9900元下方。市场在前三日连续明显回升后步入回调，终端交投情绪偏谨慎，核心单品的涨跌分化显著。 今日11大白酒单品三涨八跌，输家占据绝对优势。上涨方面，国窖1573涨幅居前，上涨5元/
 
 ## 正文
 
-5月9日金融一线消息，中国人民银行青岛市分行行政处罚决定信息公示表显示，招商银行股份有限公司青岛分行因违反金融统计相关规定，违反人民币流通管理规定，违反反假货币业务管理规定，金融机构违反信用信息采集、提供、查询及相关管理规定，未按照规定开展客户尽职调查，受到警告并被罚款38.36万元。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月9日整体再度明显走弱。
 
-序号 当事人名称（姓名、职务） 行政处罚决定书文号 违法行为类型 行政处罚内容 作出行政处罚决定机关名称 作出行政处罚决定日期 公示期限 备注 1 招商银行股份有限公司青岛分行 中国人民银行青岛市分行行政处罚决定书（青银罚决字〔2026〕3号） 1．违反金融统计相关规定。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9895元，较昨日大幅下跌23元，重返9900元下方。
 
-2．违反人民币流通管理规定。
+市场在前三日连续明显回升后步入回调，终端交投情绪偏谨慎，核心单品的涨跌分化显著。
 
-3．违反反假货币业务管理规定。
+今日11大白酒单品三涨八跌，输家占据绝对优势。
 
-4．金融机构违反信用信息采集、提供、查询及相关管理规定。
+上涨方面，国窖1573涨幅居前，上涨5元/瓶，终结此前五连阴，但价格仍囿于月内次低位；青花郎上涨3元/瓶收获二连涨；飞天茅台上涨2元/瓶，四连阳后价格升至月内次高位。
 
-5．未按照规定开展客户尽职调查。
+下跌方面，五粮液普五八代、古井贡古20与习酒君品均下跌6元/瓶，其中普五八代再度失守810元，古井贡古20回吐前一日全部涨幅，习酒君品连续两日回落，价格快速下探创月内新低，近一个月其价格中枢持续下移；精品茅台下跌5元/瓶，此前三连阳的强劲涨势告终；洋河梦之蓝M6+下跌3元/瓶，平月内次低价位；青花汾20下跌3元/瓶，回落至370元下方；五粮液1618与水晶剑南春均下跌2元/瓶，其中前者创下月内最低价纪录。
 
-警告、处罚款38.36万元 中国人民银行青岛市分行 2026年4月30日 3年 责任编辑：曹睿潼
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台（5月16日上调至2359元/瓶），这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 18:33 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 18:25 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 18:35 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 18:28 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 18:32 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 18:13 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 18:18 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 18:40 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 18:24 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 18:24 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 18:32 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 18:28 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 18:21 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 18:23 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 18:29 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 18:47 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 18:19 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 18:46 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 18:40 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 18:24 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 18:39 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 18:39 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 18:27 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 18:21 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 18:28 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 18:38 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:37 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/776380.shtml)
-- 2026-06-29 18:19 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/89072018686.shtml)
-- 2026-06-29 18:12 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/479784184.shtml)
-- 2026-06-29 18:13 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/32806202205.shtml)
-- 2026-06-29 18:13 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/1629564644.shtml)
-- 2026-06-29 18:16 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/477719519985.shtml)
-- 2026-06-29 18:23 - [95后小伙突然确诊癌症 医生提醒](https://www.share.kurohicncr.top/Article/details/052957.shtml)
-- 2026-06-29 18:28 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/90073981572.shtml)
-- 2026-06-29 18:24 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/006768.shtml)
-- 2026-06-29 18:21 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/355843762205.shtml)
-- 2026-06-29 18:27 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/180610.shtml)
-- 2026-06-29 18:41 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/69332380616.shtml)
-- 2026-06-29 18:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/002764053.shtml)
-- 2026-06-29 18:31 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/47564346414.shtml)
-- 2026-06-29 18:27 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/08528.shtml)
+- 2026-06-29 18:25 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/362222681.shtml)
+- 2026-06-29 18:33 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/7549539.shtml)
+- 2026-06-29 18:45 - [普京建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/3706830444.shtml)
+- 2026-06-29 18:31 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/90317.shtml)
+- 2026-06-29 18:19 - [机器人学校开学了](http://www.blog.minike.top/Article/details/465578704854.shtml)
+- 2026-06-29 18:26 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/78413284384.shtml)
+- 2026-06-29 18:31 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/957120.shtml)
+- 2026-06-29 18:33 - [日本偶像龟梨和也宣布结婚](http://www.share.kurohicncr.top/Article/details/762769.shtml)
+- 2026-06-29 18:31 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/75733.shtml)
+- 2026-06-29 18:46 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/8157956249.shtml)
+- 2026-06-29 18:44 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.kurohicncr.top/Article/details/96900.shtml)
+- 2026-06-29 18:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/532442519052.shtml)
+- 2026-06-29 18:27 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/2789351.shtml)
+- 2026-06-29 18:21 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/94806572.shtml)
+- 2026-06-29 18:47 - [首个靠AI躺赢的国家](http://www.share.minike.top/Article/details/859908.shtml)

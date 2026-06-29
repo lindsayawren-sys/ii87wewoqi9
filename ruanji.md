@@ -1,57 +1,56 @@
-# 油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？
+# 长城基金陶曙斌：短期调整不改主线逻辑，看好电池行业周期向上
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-来源：汇通网 汇通财经APP讯——周一（5月11日），亚欧时段，国际油价走出大幅高开之后冲高回落走势，特朗普释放对伊朗大幅不满情绪，国际油价大幅高开，但随后市场继续保持乐观情绪，亚洲股市整体上涨，油价走出冲高回落。 当地时间5月10日，美国总统特朗普在其社交平台“真实社交”上发布内容称，自己刚刚读完了伊朗方面那些所谓“代表”发来的答复，他对这份答复很不满意，直言“这份回应完全让
+经历了一轮从狂热到冷静的周期洗礼后，电池板块从去年起已悄然回归投资者视野。尽管近期出现回调，但拉长时间看，Wind数据显示，截至2026年6月2日，中证电池主题指数近一年涨幅已超97%，远超同期沪深300指数27.98%的表现。（指数过往业绩不代表其未来表现，不等于产品实际收益，市场有风险，投资需谨慎。） 行情背后，是电池供需格局优化、新技术迭代与商业化进程提速的多重共振。在此
 
 ## 正文
 
-来源：汇通网 汇通财经APP讯——周一（5月11日），亚欧时段，国际油价走出大幅高开之后冲高回落走势，特朗普释放对伊朗大幅不满情绪，国际油价大幅高开，但随后市场继续保持乐观情绪，亚洲股市整体上涨，油价走出冲高回落。
+经历了一轮从狂热到冷静的周期洗礼后，电池板块从去年起已悄然回归投资者视野。
 
-当地时间5月10日，美国总统特朗普在其社交平台“真实社交”上发布内容称，自己刚刚读完了伊朗方面那些所谓“代表”发来的答复，他对这份答复很不满意，直言“这份回应完全让人无法接受”。
+尽管近期出现回调，但拉长时间看，Wind数据显示，截至2026年6月2日，中证电池主题指数近一年涨幅已超97%，远超同期沪深300指数27.98%的表现。
 
-特朗普同时指责伊朗伊斯兰共和国成立47年来，一直在“拖延”“戏弄”美国及其他国家，并重批前总统奥巴马和拜登的对伊政策，称奥巴马是“冤大头”，拜登的表现更糟。
+（指数过往业绩不代表其未来表现，不等于产品实际收益，市场有风险，投资需谨慎。
 
-市场目前仍然集体押注和谈前景，于是大的利空消息所产生的资产回撤都成了资本市场的买点。
+） 行情背后，是电池供需格局优化、新技术迭代与商业化进程提速的多重共振。
 
-近期交火与海上博弈雷声大雨点小 地缘对峙的升级已体现在近期持续升温的军事冲突中。
+在此背景下，长城基金顺势发行了长城中证电池主题指数基金（A类：027486；C类：027487），助力投资者把握电池产业成长红利。
 
-自2月28日美以联合发动军事打击以来，伊朗及其武装盟友已通过无人机实施数百次跨境打击。
+拟任基金经理陶曙斌认为，当前电池行业已迈入业绩释放潜力充足、下游需求高景气、技术迭代加速落地的关键拐点，行业中长期向上成长的逻辑清晰。
 
-近期，卡塔尔周边海域一艘商船遭无人机袭击引发火情，阿联酋、科威特相继通报无人机非法闯入领空，阿联酋击落两架无人机并指认伊朗为袭击源头。
+陶曙斌分析指出，从需求端看，“动储双驱”的发展格局在持续强化。
 
-海上封锁与反封锁的博弈同样激烈，美军自4月13日起对伊朗港口实施封锁，累计拦截61艘民用商船，本月上旬还精准打击了两艘试图突破封锁的伊朗油轮； 伊朗则长期封锁霍尔木兹海峡，并警告任何针对其船舶的袭击都将招致对美军基地及敌方舰船的饱和式反击。
+一方面，动力电池领域正经历增长逻辑的切换。
 
 ## 相关推荐
 
-- 2026-06-29 18:21 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 18:13 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 18:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 18:23 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 18:27 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 18:28 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 18:31 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 18:37 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 18:30 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 18:21 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 18:15 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 18:29 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 18:45 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 18:28 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 18:36 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 18:34 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 18:47 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 18:22 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 18:35 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 18:41 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 18:31 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:28 - [起风了](http://www.blog.kurohicncr.top/Article/details/60351307660.shtml)
-- 2026-06-29 18:33 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/31740.shtml)
-- 2026-06-29 18:36 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/16271523427.shtml)
-- 2026-06-29 18:36 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/20017.shtml)
-- 2026-06-29 18:17 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/55105699734.shtml)
-- 2026-06-29 18:30 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/081549.shtml)
-- 2026-06-29 18:21 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.minike.top/Article/details/98366786.shtml)
-- 2026-06-29 18:13 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/9663578404.shtml)
-- 2026-06-29 18:38 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/8400562.shtml)
-- 2026-06-29 18:40 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/001855894.shtml)
-- 2026-06-29 18:29 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/953008986740.shtml)
-- 2026-06-29 18:17 - [四川达州发生一起交通事故致2死](http://www.blog.kurohicncr.top/Article/details/20154507783.shtml)
-- 2026-06-29 18:30 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/0517624665.shtml)
-- 2026-06-29 18:30 - [断骨增高灰产拉一人提成1.5万元](http://www.share.kurohicncr.top/Article/details/299674985350.shtml)
-- 2026-06-29 18:32 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/082244507706.shtml)
+- 2026-06-29 18:26 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/12258529.shtml)
+- 2026-06-29 18:43 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/6464452975.shtml)
+- 2026-06-29 18:34 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/528996960980.shtml)
+- 2026-06-29 18:37 - [沙特外交大臣将访华](https://www.blog.minike.top/Article/details/286917422647.shtml)
+- 2026-06-29 18:29 - [张杰我九岁就跟你了](http://www.blog.minike.top/Article/details/786643820431.shtml)
+- 2026-06-29 18:41 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/910970896.shtml)
+- 2026-06-29 18:38 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/1926373.shtml)
+- 2026-06-29 18:33 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/81119223.shtml)
+- 2026-06-29 18:31 - [当家电外通风口出现鸟窝](http://www.share.minike.top/Article/details/582591275085.shtml)
+- 2026-06-29 18:33 - [上海小区惊现鳄鱼](http://www.blog.minike.top/Article/details/82230324.shtml)
+- 2026-06-29 18:40 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/850168605835.shtml)
+- 2026-06-29 18:26 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/837617.shtml)
+- 2026-06-29 18:37 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/816176.shtml)
+- 2026-06-29 18:29 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/845002.shtml)
+- 2026-06-29 18:25 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.kurohicncr.top/Article/details/20463.shtml)

@@ -1,60 +1,60 @@
-# 中小银行再掀“降息”潮，存款利率下行趋势延续
+# Hudson Pacific Properties宣布2026年第二季度优先股股息
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-又一轮银行存款利率下调潮悄然来临。5月以来，多家中小银行密集发布公告，下调人民币存款产品利率，调整范围覆盖通知存款、定期存款等主要品种 。 5月11日起，西安高陵阳光村镇银行调整人民币储蓄存款挂牌利率。调整后，该行定期存款三个月、半年期、一年期、二年期、三年期、五年期利率分别为1.10%、1.30%、1.60%、1.65%、1.80%、1.80%。与2025年12月相比，一年期
+Hudson Pacific Properties， Inc． 近日宣布，其董事会已批准对公司4.750%的C系列累积优先股派发2026年第二季度股息。此次股息为每股0.296875美元，按年计算相当于每股1.1875美元。该股息将于2026年6月29日支付，股权登记日为2026年6月18日。 C系列优先股是Hudson Pacific Properties于2021年11月发
 
 ## 正文
 
-又一轮银行存款利率下调潮悄然来临。
+Hudson Pacific Properties， Inc． 近日宣布，其董事会已批准对公司4.750%的C系列累积优先股派发2026年第二季度股息。
 
-5月以来，多家中小银行密集发布公告，下调人民币存款产品利率，调整范围覆盖通知存款、定期存款等主要品种 。
+此次股息为每股0.296875美元，按年计算相当于每股1.1875美元。
 
-5月11日起，西安高陵阳光村镇银行调整人民币储蓄存款挂牌利率。
+该股息将于2026年6月29日支付，股权登记日为2026年6月18日。
 
-调整后，该行定期存款三个月、半年期、一年期、二年期、三年期、五年期利率分别为1.10%、1.30%、1.60%、1.65%、1.80%、1.80%。
+C系列优先股是Hudson Pacific Properties于2021年11月发行的累积优先股，共计1600万股，附有240万股的超额配售权，清算优先权为每股25美元。
 
-与2025年12月相比，一年期存款利率下降15个基点，五年期下降5个基点。
+该优先股在股息分配和清算权利上优先于公司普通股，具有累积特征，即任何未支付的股息将累积并必须在未来支付。
 
-值得关注的是，该行通知存款调整幅度更为明显——一天通知存款利率降至0.55%，较此前下降40个基点；七天通知存款利率降至0.85%，降幅达50个基点 。
+股息按季度支付，通常在每年3月、6月、9月和12月的最后一天或前后发放。
 
-湖南三湘银行近日发布公告表示，该行计划于5月8日对人民币存款产品利率进行调整。
+根据首次赎回条款，该公司最早可于2026年11月16日以每股25美元的清算优先权价格加上任何应计未付股息赎回这些优先股。
 
-其中，三年定期存款、一天通知存款分别为1.95%、0.60%，相比2025年5月公示的存款利率分别下降了10BP、20BP。
+按当前股价计算，该优先股的前瞻股息收益率约为8.19%，而其交易价格较每股25美元的清算优先权存在约38%的折价。
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 18:38 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 18:21 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 18:32 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 18:16 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 18:29 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 18:22 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 18:33 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 18:30 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 18:25 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 18:16 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 18:20 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 18:39 - [永远有话聊的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 18:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 18:21 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 18:32 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 18:28 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 18:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 18:25 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 18:33 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 18:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 18:24 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 18:19 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 18:31 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 18:19 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-29 18:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 18:44 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 18:21 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:16 - [勇敢的心第二部](http://www.share.minike.top/Article/details/827098.shtml)
-- 2026-06-29 18:24 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/990157911.shtml)
-- 2026-06-29 18:24 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/679170.shtml)
-- 2026-06-29 18:36 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/92927352.shtml)
-- 2026-06-29 18:13 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/096678.shtml)
-- 2026-06-29 18:41 - [一见倾心](http://www.blog.minike.top/Article/details/64626.shtml)
-- 2026-06-29 18:26 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/864658317.shtml)
-- 2026-06-29 18:18 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.blog.kurohicncr.top/Article/details/225681545903.shtml)
-- 2026-06-29 18:12 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/02102.shtml)
-- 2026-06-29 18:33 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/029319.shtml)
-- 2026-06-29 18:40 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/730450556849.shtml)
-- 2026-06-29 18:36 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/106440932.shtml)
-- 2026-06-29 18:25 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/2916592933.shtml)
-- 2026-06-29 18:24 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/1803661.shtml)
-- 2026-06-29 18:18 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/7160386871.shtml)
+- 2026-06-29 18:22 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/4672310.shtml)
+- 2026-06-29 18:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/664516.shtml)
+- 2026-06-29 18:32 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/947700.shtml)
+- 2026-06-29 18:47 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/335804.shtml)
+- 2026-06-29 18:25 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/2175588.shtml)
+- 2026-06-29 18:43 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/234266.shtml)
+- 2026-06-29 18:33 - [普京承认俄出现燃料危机](https://www.share.minike.top/Article/details/403097339322.shtml)
+- 2026-06-29 18:24 - [极限挑战第一季](http://www.blog.minike.top/Article/details/355557163.shtml)
+- 2026-06-29 18:38 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/06323263.shtml)
+- 2026-06-29 18:45 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/6852735115.shtml)
+- 2026-06-29 18:19 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/1036056.shtml)
+- 2026-06-29 18:33 - [世界杯在中国观看最多的比赛](https://www.share.kurohicncr.top/Article/details/85958.shtml)
+- 2026-06-29 18:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/27963233.shtml)
+- 2026-06-29 18:21 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/8898706431.shtml)
+- 2026-06-29 18:32 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/58636176708.shtml)

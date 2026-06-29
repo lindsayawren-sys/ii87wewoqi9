@@ -1,57 +1,48 @@
-# 叙利亚选定海上区块，与雪佛龙合作开发首个深水油气项目
+# 拾光纪·中朝两党两国最高领导人会谈，有这些关键词
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-叙利亚石油公司周一表示，叙利亚已敲定一处海上勘探区块，将与美国能源巨头雪佛龙以及卡塔尔UCC控股集团合作，开发本国首个深水油气勘探项目。 此举是叙利亚新政府一系列举措的一部分：在内战与制裁持续多年、能源产业遭受重创后，叙利亚正全面吸引外资入局本国能源行业。 叙利亚国有石油公司（SPC）称，公司已联合雪佛龙与卡塔尔UCC控股集团，完成海上油气区块选址划定，为今年夏季敲定正式合同、
+当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。中朝两党两国最高领导人会谈，这些关键词值得关注，一支视频了解。
 
 ## 正文
 
-叙利亚石油公司周一表示，叙利亚已敲定一处海上勘探区块，将与美国能源巨头雪佛龙以及卡塔尔UCC控股集团合作，开发本国首个深水油气勘探项目。
+当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。
 
-此举是叙利亚新政府一系列举措的一部分：在内战与制裁持续多年、能源产业遭受重创后，叙利亚正全面吸引外资入局本国能源行业。
-
-叙利亚国有石油公司（SPC）称，公司已联合雪佛龙与卡塔尔UCC控股集团，完成海上油气区块选址划定，为今年夏季敲定正式合同、启动技术作业铺平道路。
-
-今年2月，雪佛龙已与叙利亚石油公司、UCC控股集团签署初步协议，拟对叙利亚海域海上油气勘探潜力进行评估，这也标志着雪佛龙正式入局叙利亚东地中海海上油气领域。
-
-雪佛龙目前已在以色列近海运营大型利维坦天然气田，该气田也是以色列规模最大的能源资产。
-
-责任编辑：江学思
+中朝两党两国最高领导人会谈，这些关键词值得关注，一支视频了解。
 
 ## 相关推荐
 
-- 2026-06-29 18:22 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 18:12 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 18:30 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 18:37 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 18:34 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 18:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 18:15 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 18:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 18:35 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 18:26 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 18:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 18:14 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 18:26 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 18:23 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 18:17 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 18:45 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 18:18 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 18:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 18:42 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 18:40 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 18:24 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 18:44 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 18:30 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 18:22 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 18:26 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 18:26 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 18:26 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 18:29 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 18:18 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:22 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/46699738.shtml)
-- 2026-06-29 18:13 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/475813098.shtml)
-- 2026-06-29 18:27 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/179173928.shtml)
-- 2026-06-29 18:22 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/014154.shtml)
-- 2026-06-29 18:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/92265235858.shtml)
-- 2026-06-29 18:30 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/5490757.shtml)
-- 2026-06-29 18:36 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/1353207.shtml)
-- 2026-06-29 18:26 - [未成年少女长期吸毒导致卧床不起](https://www.blog.minike.top/Article/details/9377277.shtml)
-- 2026-06-29 18:40 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/65132.shtml)
-- 2026-06-29 18:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/769145072205.shtml)
-- 2026-06-29 18:15 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.blog.kurohicncr.top/Article/details/060426.shtml)
-- 2026-06-29 18:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/68808680666.shtml)
-- 2026-06-29 18:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/02957428.shtml)
-- 2026-06-29 18:12 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/1457248118.shtml)
-- 2026-06-29 18:24 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/963887395.shtml)
+- 2026-06-29 18:36 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/380899976944.shtml)
+- 2026-06-29 18:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/7726238.shtml)
+- 2026-06-29 18:27 - [美人鱼](https://www.blog.minike.top/Article/details/61484665.shtml)
+- 2026-06-29 18:24 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/08499.shtml)
+- 2026-06-29 18:22 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/099733.shtml)
+- 2026-06-29 18:21 - [NBA交易](https://www.share.kurohicncr.top/Article/details/148966452719.shtml)
+- 2026-06-29 18:29 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/25562146.shtml)
+- 2026-06-29 18:26 - [税务总局披露5起合规申报个税案例](http://www.share.kurohicncr.top/Article/details/937170.shtml)
+- 2026-06-29 18:31 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/042688754266.shtml)
+- 2026-06-29 18:30 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/35386354.shtml)
+- 2026-06-29 18:18 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/047249.shtml)
+- 2026-06-29 18:33 - [机器人学校开学了](http://www.share.minike.top/Article/details/4323811910.shtml)
+- 2026-06-29 18:38 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/16657606749.shtml)
+- 2026-06-29 18:36 - [德国医生在没有空调的手术室工作](https://www.share.minike.top/Article/details/461856960.shtml)
+- 2026-06-29 18:24 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/7267404.shtml)

@@ -1,58 +1,61 @@
-# 贵州茅台业绩会：回应是否会再次提价，自营与经销商并非竞争关系
+# 西北民歌《尕连手》走红 古老花儿唱出最潮音
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 茅台市场化改革正在深入。 “i茅台”等一系列市场化改革举措，正推动贵州茅台（600519.SH）的渠道模式发生变化。在5月11日举行的业绩说明会上，贵州茅台党委副书记、代总经理王莉回应了投资者关注茅台是否在合适时间再次提价的问题，并表示茅台自营渠道与经销商之间并非竞争和替代关系。中国白酒行业存量竞争与马太效应特点日益明显
+发布时间：2026年06月09日 07:55 来源：中国新闻网 近日，融合传统民歌底蕴与现代音乐风格的作品《尕连手》刷屏全网，魔性的节奏与原汁原味的西北风情碰撞出强烈火花，不仅让这首民歌成为新晋“洗脑神曲”，更让“中国花儿之乡”甘肃临夏再次走进全国观众的视野。 对此，歌曲《尕连手》原创作者、甘肃临夏州康乐县音乐人、国家级非遗代表性项目花儿(莲花山花儿会)县级代表性传承人段兴华受
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 茅台市场化改革正在深入。
+发布时间：2026年06月09日 07:55 来源：中国新闻网 近日，融合传统民歌底蕴与现代音乐风格的作品《尕连手》刷屏全网，魔性的节奏与原汁原味的西北风情碰撞出强烈火花，不仅让这首民歌成为新晋“洗脑神曲”，更让“中国花儿之乡”甘肃临夏再次走进全国观众的视野。
 
-“i茅台”等一系列市场化改革举措，正推动贵州茅台（600519.SH）的渠道模式发生变化。
+对此，歌曲《尕连手》原创作者、甘肃临夏州康乐县音乐人、国家级非遗代表性项目花儿(莲花山花儿会)县级代表性传承人段兴华受邀在兰州开展专题讲座，围绕古老“花儿”的艺术魅力和“老歌新唱”路径，探讨“花儿”如何在守正与创新之间，凝聚起跨越民族与地域的文化认同。
 
-在5月11日举行的业绩说明会上，贵州茅台党委副书记、代总经理王莉回应了投资者关注茅台是否在合适时间再次提价的问题，并表示茅台自营渠道与经销商之间并非竞争和替代关系。
+【同期】观众 陈媛媛 能在现场听到段兴华老师唱的花儿，我感觉到非常舒服，能感受到我们民间音乐的一种魅力。
 
-中国白酒行业存量竞争与马太效应特点日益明显，传统渠道模式正面临深刻变革。
+【同期】观众 蒲峰 (花儿)它扎根于民间，扎根于生活，它有鲜活的生命力。
 
-随着茅台市场化改革的推进，茅台市场价格也不断回升，2026年3月20日，贵州茅台发布公告，宣布自2026年3月31日起，飞天53%vol 500ml贵州茅台酒（2026）销售合同价由1169元/瓶调整为1269元/瓶，自营体系零售价由1499元/瓶调整为1539元/瓶。
+随着人们的这个开发挖掘，以及人们对这个认知的不断提高，对传统的这些非遗的这个深入的了解，还有人的这个文化生活质量和水平的提高，它是他一定会越来越受到欢迎的。
 
-近期记者注意到，茅台市场批价保持稳中有升，原箱价格稳定在1680元/瓶左右，套利空间再次拉大。
+【同期】甘肃音乐人段兴华 这改编很好啊，改编非常好。
 
-业绩会上，针对投资者的提问，王莉表示，茅台已建立了“随行就市、相对平稳”的自营体系零售价格动态调整机制，并已对贵州茅台酒全产品自营体系零售价格完成首次价格调整。
+我知道它可能会通过综艺会火一下，但没想到这么火。
 
-未来茅台将继续按照“随行就市、相对平稳”的原则，动态监测市场供需变化、消费趋势、渠道库存及终端动销情况，结合不同产品、不同区域的差异进行科学分析和充分研判，努力构建基于供需适配、量价平衡，以市场需求为驱动的动态市场价格调整机制。
+什么守正创新呢，就是先守正再创新啊。
 
 ## 相关推荐
 
-- 2026-06-29 18:41 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 18:16 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 18:25 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 18:14 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-29 18:21 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 18:13 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 18:14 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 18:21 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 18:21 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 18:13 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 18:26 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 18:36 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 18:28 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 18:40 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 18:19 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 18:33 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 18:43 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 18:23 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 18:42 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 18:47 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 18:47 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 18:43 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 18:18 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 18:24 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 18:21 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 18:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 18:26 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:41 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/25971.shtml)
-- 2026-06-29 18:15 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/86605894497.shtml)
-- 2026-06-29 18:30 - [王俊凯命名方式](http://www.share.kurohicncr.top/Article/details/946698939.shtml)
-- 2026-06-29 18:27 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/62187850143.shtml)
-- 2026-06-29 18:29 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/241100.shtml)
-- 2026-06-29 18:39 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/16649197.shtml)
-- 2026-06-29 18:26 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/030518045364.shtml)
-- 2026-06-29 18:28 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/82877913575.shtml)
-- 2026-06-29 18:31 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/936286.shtml)
-- 2026-06-29 18:17 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/57883997177.shtml)
-- 2026-06-29 18:16 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/27651.shtml)
-- 2026-06-29 18:23 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/371500.shtml)
-- 2026-06-29 18:32 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/95103634.shtml)
-- 2026-06-29 18:18 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/3666387.shtml)
-- 2026-06-29 18:19 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/541341.shtml)
+- 2026-06-29 18:31 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/8671356436.shtml)
+- 2026-06-29 18:27 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/545518641504.shtml)
+- 2026-06-29 18:44 - [挪威王储妃长子2次强奸被判4年](http://www.blog.minike.top/Article/details/699865197.shtml)
+- 2026-06-29 18:31 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/962612754.shtml)
+- 2026-06-29 18:23 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/292626341811.shtml)
+- 2026-06-29 18:25 - [未成年少女长期吸毒导致卧床不起](http://www.share.minike.top/Article/details/00381682.shtml)
+- 2026-06-29 18:43 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/371504430119.shtml)
+- 2026-06-29 18:25 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/39298071424.shtml)
+- 2026-06-29 18:19 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/69870.shtml)
+- 2026-06-29 18:24 - [小娘惹](http://www.share.minike.top/Article/details/9158868.shtml)
+- 2026-06-29 18:25 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/62846.shtml)
+- 2026-06-29 18:41 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/405477.shtml)
+- 2026-06-29 18:34 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/038740272.shtml)
+- 2026-06-29 18:41 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/78248009.shtml)
+- 2026-06-29 18:38 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/188045446221.shtml)

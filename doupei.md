@@ -1,56 +1,59 @@
-# 海德股份(000567)被预处罚，股民索赔可期
+# 以色列国防军称打击伊朗军事目标
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年4月29日，海南海德资本管理股份有限公司（简称：海德股份（维权），代码：000567）发布《关于公司及相关人员收到行政处罚事先告知书的公告》。 经中国证监会海南监管局查明，海德股份、王广西涉嫌违法的事实如下：2021年3月，海德股份开展不良资产收购
+中新社北京6月8日电 综合消息：以色列国防军当地时间8日凌晨发表声明说，以色列对伊朗西部和中部的军事目标发起空袭，以报复伊朗7日晚对以色列北部的导弹袭击。 据《以色列时报》报道，伊朗德黑兰、大不里士、伊斯法罕等地均传出了爆炸声，伊朗关闭了首都德黑兰伊玛目霍梅尼国际机场。 据伊朗伊斯兰共和国通讯社报道，8日凌晨4时43分和4时45分，德黑兰西部不同地点至少传出两次爆炸声。有消息称
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京6月8日电 综合消息：以色列国防军当地时间8日凌晨发表声明说，以色列对伊朗西部和中部的军事目标发起空袭，以报复伊朗7日晚对以色列北部的导弹袭击。
 
-2026年4月29日，海南海德资本管理股份有限公司（简称：海德股份（维权），代码：000567）发布《关于公司及相关人员收到行政处罚事先告知书的公告》。
+据《以色列时报》报道，伊朗德黑兰、大不里士、伊斯法罕等地均传出了爆炸声，伊朗关闭了首都德黑兰伊玛目霍梅尼国际机场。
 
-经中国证监会海南监管局查明，海德股份、王广西涉嫌违法的事实如下：2021年3月，海德股份开展不良资产收购重组业务，海德股份及其子公司海徳资产管理有限公 司陆续向交易对手方支付收购价款。
+据伊朗伊斯兰共和国通讯社报道，8日凌晨4时43分和4时45分，德黑兰西部不同地点至少传出两次爆炸声。
 
-2021年4月，海德股份交易对手方将收购价款中的8.84亿元代 海德股份关联方海南新海基投资有限公司偿还借款。
+有消息称，梅赫拉巴德机场遭到打击。
 
-上述行为构成资金占用。
+报道称，德黑兰消防部门和急救中心已进入戒备状态。
 
-海德股份2021年末、2022年末、2023年末、2024年6月30日资金占用余额均为8.84亿元，分别占当期定期报告记载净资产的18.65%、17.04%、16.08%、16.69%，未在相应定期报告中披露前述资金占用情况。
+伊朗7日22时左右向以色列北部发射了约10枚导弹，以回应以色列当天早些时候对黎巴嫩首都贝鲁特南郊的袭击。
 
-海德股份在2024年年度报告中披露了上述资金占用情况。
+此次袭击未直接造成以色列人员伤亡，所有导弹均被拦截或落至空旷地带。
 
-截至2025年4月，上述占用资金及相应利息已全部归还。
+伊朗武装部队哈塔姆安比亚中央司令部司令当晚发表声明，警告以色列不要再对黎南部发起袭击。
 
 ## 相关推荐
 
-- 2026-06-29 18:12 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 18:12 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 18:25 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 18:19 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 18:26 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 18:26 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 18:39 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 18:39 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 18:13 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 18:21 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 18:46 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 18:18 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 18:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 18:47 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 18:47 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 18:35 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 18:30 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 18:31 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 18:27 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 18:26 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 18:36 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 18:39 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 18:39 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:20 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.kurohicncr.top/Article/details/9222589.shtml)
-- 2026-06-29 18:27 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/6225627508.shtml)
-- 2026-06-29 18:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/36435497.shtml)
-- 2026-06-29 18:25 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/683340458046.shtml)
-- 2026-06-29 18:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/380398667.shtml)
-- 2026-06-29 18:13 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/71354.shtml)
-- 2026-06-29 18:25 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/061244781402.shtml)
-- 2026-06-29 18:31 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/297744189660.shtml)
-- 2026-06-29 18:30 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/3170168.shtml)
-- 2026-06-29 18:28 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/82814422882.shtml)
-- 2026-06-29 18:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/7640418.shtml)
-- 2026-06-29 18:28 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/012028.shtml)
-- 2026-06-29 18:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/2685827.shtml)
-- 2026-06-29 18:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/49070670942.shtml)
-- 2026-06-29 18:27 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/1644721810.shtml)
+- 2026-06-29 18:47 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/59761.shtml)
+- 2026-06-29 18:41 - [美人鱼](https://www.share.kurohicncr.top/Article/details/85591208386.shtml)
+- 2026-06-29 18:32 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/211886.shtml)
+- 2026-06-29 18:33 - [一生一世](https://www.blog.kurohicncr.top/Article/details/668624255.shtml)
+- 2026-06-29 18:47 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/52835.shtml)
+- 2026-06-29 18:28 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/955268.shtml)
+- 2026-06-29 18:19 - [刘扬任湖南省副省长](http://www.blog.minike.top/Article/details/66733.shtml)
+- 2026-06-29 18:37 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/915038.shtml)
+- 2026-06-29 18:24 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/708019.shtml)
+- 2026-06-29 18:40 - [挪威王储妃长子2次强奸被判4年](https://www.share.minike.top/Article/details/43765025664.shtml)
+- 2026-06-29 18:30 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/07522579.shtml)
+- 2026-06-29 18:30 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/2812849.shtml)
+- 2026-06-29 18:43 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/81400813.shtml)
+- 2026-06-29 18:35 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/219298030.shtml)
+- 2026-06-29 18:40 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/87235419834.shtml)

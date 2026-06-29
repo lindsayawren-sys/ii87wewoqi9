@@ -1,59 +1,57 @@
-# 网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”
+# 新浪财经李兀：中国企业正在从参与走向共建，从跟随走向引领
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-营业网点是商业银行经营的最小细胞，也是直接触达客户、创造价值的核心战场，其竞争力直接关系到银行经营效益的高低和可持续发展能力的强弱。 近年来，业内讨论最多的是银行营业网点的“消失”，但对于以国有银行、股份行为代表的全国性商业银行而言，网点的关停并非简单意义上的单向缩减，而是“有退有进”的布局优化，甚至半数全国性上市商业银行的网点不降反升，与行业整体格局形成鲜明对比。 第一财经根
+联想集团 X FIFA国际足联《AI世界杯》纪录片专场观影沙龙于6月8日在北京举办，新浪财经总编辑李兀出席并致辞。 李兀介绍，即将开赛的美加墨世界杯，是历史上首次大规模、深度融入 AI 技术的世界杯。“从赛事运营、裁判辅助、观赛体验，到内容传播、数据服务，科技正在以前所未有的方式，重新定义顶级体育赛事的运行逻辑。” 他表示，这不仅是足球运动的进步，更是全球数字化浪潮下产业升级、
 
 ## 正文
 
-营业网点是商业银行经营的最小细胞，也是直接触达客户、创造价值的核心战场，其竞争力直接关系到银行经营效益的高低和可持续发展能力的强弱。
+联想集团 X FIFA国际足联《AI世界杯》纪录片专场观影沙龙于6月8日在北京举办，新浪财经总编辑李兀出席并致辞。
 
-近年来，业内讨论最多的是银行营业网点的“消失”，但对于以国有银行、股份行为代表的全国性商业银行而言，网点的关停并非简单意义上的单向缩减，而是“有退有进”的布局优化，甚至半数全国性上市商业银行的网点不降反升，与行业整体格局形成鲜明对比。
+李兀介绍，即将开赛的美加墨世界杯，是历史上首次大规模、深度融入 AI 技术的世界杯。
 
-第一财经根据上市银行年报统计，2025年，国有行、上市股份行拥有机构数量89507个，与2024年相比仅减少256个，在其庞大的机构数量面前，该细微变化几乎可以忽略不计。
+“从赛事运营、裁判辅助、观赛体验，到内容传播、数据服务，科技正在以前所未有的方式，重新定义顶级体育赛事的运行逻辑。
 
-而且总数之下，半数全国性商业银行的机构数量有所增加，尤其是农业银行的基层网点数量已连增三年。
+” 他表示，这不仅是足球运动的进步，更是全球数字化浪潮下产业升级、技术落地与生态重构的缩影。
 
-从年报来看，大行网点的增量主要来自于下沉县乡镇等市场，或是升级特色场景等。
+谈及中国科技力量出海，李兀说道：“如今中国方案、中国技术、中国企业，正在从参与走向共建，从跟随走向引领。
 
-一边是关停低效网点，一边是区域下沉，这场“加减法”背后，大型商业银行正从“铺摊子”转向“精耕细作”。
+” 他特别提到本届世界杯官方技术合作伙伴联想，企业凭借全域 AI 能力、全球化服务能力与大型赛事支撑经验服务赛场，向世界展现出中国科技稳定、可靠、专业的特质。
 
-全国性商业银行机构数近9万个 第一财经根据上市银行年报统计，2025年，六大行合计机构数量76092个，相比2023年减少了208个。
+在他看来，这既是企业全球化发展的实践，也是中国产业实力、服务能力与品牌信心的集中展现。
 
-其中，工商银行、建设银行、中国银行、邮储银行的机构总数均有所缩减，但基层网点数量下降的仅有建设银行、中国银行和邮储银行。
+“这部纪录片记录的不只是一个项目、一段历程，更是中国科技企业走向世界舞台、服务全球顶级 IP 的真实样本。
 
 ## 相关推荐
 
-- 2026-06-29 18:27 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 18:33 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 18:23 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 18:13 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 18:28 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 18:25 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 18:37 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 18:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 18:27 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 18:14 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 18:19 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 18:23 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 18:41 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 18:31 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 18:30 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 18:34 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 18:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 18:33 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 18:28 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 18:41 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 18:35 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 18:30 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 18:21 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 18:21 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:22 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/5030120.shtml)
-- 2026-06-29 18:19 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/0392535703.shtml)
-- 2026-06-29 18:15 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/52359064.shtml)
-- 2026-06-29 18:14 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/9193874667.shtml)
-- 2026-06-29 18:26 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/514050759.shtml)
-- 2026-06-29 18:40 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/16574637713.shtml)
-- 2026-06-29 18:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/2712172.shtml)
-- 2026-06-29 18:21 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.kurohicncr.top/Article/details/170944628.shtml)
-- 2026-06-29 18:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/31249415.shtml)
-- 2026-06-29 18:21 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/85582354826.shtml)
-- 2026-06-29 18:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/0330776.shtml)
-- 2026-06-29 18:26 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/071987557.shtml)
-- 2026-06-29 18:40 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.kurohicncr.top/Article/details/6120971230.shtml)
-- 2026-06-29 18:18 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/8454519.shtml)
-- 2026-06-29 18:41 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/293635.shtml)
+- 2026-06-29 18:41 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/78801111711.shtml)
+- 2026-06-29 18:32 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/489407724707.shtml)
+- 2026-06-29 18:21 - [起风了](http://www.blog.minike.top/Article/details/56022527825.shtml)
+- 2026-06-29 18:42 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/52011128.shtml)
+- 2026-06-29 18:26 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/31954801793.shtml)
+- 2026-06-29 18:30 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/7489695840.shtml)
+- 2026-06-29 18:32 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/30358815019.shtml)
+- 2026-06-29 18:38 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/9398039558.shtml)
+- 2026-06-29 18:19 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/22927057.shtml)
+- 2026-06-29 18:36 - [勇敢的心第二部](https://www.share.minike.top/Article/details/580154730449.shtml)
+- 2026-06-29 18:20 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/892899793.shtml)
+- 2026-06-29 18:42 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/34716830.shtml)
+- 2026-06-29 18:29 - [朱必达辞去湖南人大常委会委员职务](http://www.share.minike.top/Article/details/41710419424.shtml)
+- 2026-06-29 18:18 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/93725825687.shtml)
+- 2026-06-29 18:39 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/921885993.shtml)

@@ -1,56 +1,60 @@
-# 央行：继续实施好适度宽松的货币政策 坚决守住不发生系统性金融风险的底线
+# 退市不免责！海越能源（600387）股民索赔案已有终审胜诉
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-2026年第一季度中国货币政策执行报告 内容摘要 今年以来，在以习近平同志为核心的党中央坚强领导下，国民经济起步有力，主要指标好于预期，彰显强大韧性和活力。一季度国内生产总值（GDP）同比增长5%。中国人民银行坚持以习近平新时代中国特色社会主义思想为指导，坚决落实党中央、国务院决策部署，继续实施适度宽松的货币政策，发挥存量政策与增量政策集成效应，强化逆周期和跨周期调节，为经济持
+上海久诚律师事务所股票索赔律师许峰提示，2026年5月，浙江省高级人民法院已经驳回海越能源（600387）针对投资者的上诉，维持投资者一审胜诉判决，投资者索赔案获得终审胜诉。（许峰律师专栏） 许峰律师提示，海越能源虽然已经退市，但不影响投资者索赔推进，退市不会让其对投资者的虚假陈述赔偿责任免责。 许峰律师代理的海越能源投资者索赔案已提交法院立案，前期代理部分投资者调解获赔，律师
 
 ## 正文
 
-2026年第一季度中国货币政策执行报告 内容摘要 今年以来，在以习近平同志为核心的党中央坚强领导下，国民经济起步有力，主要指标好于预期，彰显强大韧性和活力。
+上海久诚律师事务所股票索赔律师许峰提示，2026年5月，浙江省高级人民法院已经驳回海越能源（600387）针对投资者的上诉，维持投资者一审胜诉判决，投资者索赔案获得终审胜诉。
 
-一季度国内生产总值（GDP）同比增长5%。
+（许峰律师专栏） 许峰律师提示，海越能源虽然已经退市，但不影响投资者索赔推进，退市不会让其对投资者的虚假陈述赔偿责任免责。
 
-中国人民银行坚持以习近平新时代中国特色社会主义思想为指导，坚决落实党中央、国务院决策部署，继续实施适度宽松的货币政策，发挥存量政策与增量政策集成效应，强化逆周期和跨周期调节，为经济持续向好向优创造适宜的货币金融环境。
+许峰律师代理的海越能源投资者索赔案已提交法院立案，前期代理部分投资者调解获赔，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-一是保持社会融资条件处于宽松状态，金融总量合理增长。
+2025年4月16日，海越能源公告收到证监会《行政处罚决定书》。
 
-综合运用逆回购、中期借贷便利、国债买卖操作等多种货币政策工具，保持流动性充裕。
+经查明，当事人存在以下违法事实： 1、海越能源未按规定披露控股股东非经营性资金占用 案涉期间，铜川汇能鑫能源有限公司（以下简称汇能鑫）持有海越能源19.21%的股份，高鑫金控持有汇能鑫100%的股份。
 
-引导金融机构信贷均衡投放，充分满足实体经济有效信贷需求。
+汇能鑫仅是高鑫金控用于管理控制海越能源的持股平台，相关事务由高鑫金控管控，在经营管理、财务管理、人员管理、行政管理、办公场所等方面无独立性。
 
-二是推动社会综合融资成本低位运行。
+案涉期间高鑫金控实际管控海越能源，是海越能源控股股东。
 
-下调结构性货币政策工具利率0.25个百分点，持续释放贷款市场报价利率（LPR）改革效能，有效发挥存款利率市场化调整机制作用。
+2021年至2022年期间，在控股股东高鑫金控的组织、指使下，海越能源及下属企业通过向供应商预付货款的形式，将公司资金转出，用于控股股东及其控制的公司使用。
 
 ## 相关推荐
 
-- 2026-06-29 18:38 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 18:41 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 18:41 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 18:21 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 18:31 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 18:16 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 18:18 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 18:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 18:23 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 18:40 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 18:22 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 18:42 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 18:44 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 18:28 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 18:37 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 18:19 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 18:35 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 18:34 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 18:19 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 18:26 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 18:31 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 18:44 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 18:27 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 18:38 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:41 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/298616637427.shtml)
-- 2026-06-29 18:38 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/500200.shtml)
-- 2026-06-29 18:33 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/196250.shtml)
-- 2026-06-29 18:17 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/393600657882.shtml)
-- 2026-06-29 18:35 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/8315770.shtml)
-- 2026-06-29 18:14 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/57057.shtml)
-- 2026-06-29 18:15 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/615041605941.shtml)
-- 2026-06-29 18:36 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/59767912.shtml)
-- 2026-06-29 18:13 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/2277645.shtml)
-- 2026-06-29 18:20 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/28100740852.shtml)
-- 2026-06-29 18:22 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/13439289.shtml)
-- 2026-06-29 18:14 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/308745874.shtml)
-- 2026-06-29 18:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/3845165144.shtml)
-- 2026-06-29 18:12 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/736149470.shtml)
-- 2026-06-29 18:38 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/62728.shtml)
+- 2026-06-29 18:43 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/68670537579.shtml)
+- 2026-06-29 18:44 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.kurohicncr.top/Article/details/425342524.shtml)
+- 2026-06-29 18:34 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/343072823.shtml)
+- 2026-06-29 18:35 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/034506323.shtml)
+- 2026-06-29 18:32 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/751288.shtml)
+- 2026-06-29 18:37 - [许建琼任湖南省检察院副检察长](http://www.share.kurohicncr.top/Article/details/605313.shtml)
+- 2026-06-29 18:19 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/4251085059.shtml)
+- 2026-06-29 18:41 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/68153091.shtml)
+- 2026-06-29 18:38 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/53763193307.shtml)
+- 2026-06-29 18:20 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/8530126458.shtml)
+- 2026-06-29 18:31 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/88696962149.shtml)
+- 2026-06-29 18:30 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/2581155081.shtml)
+- 2026-06-29 18:37 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/60505.shtml)
+- 2026-06-29 18:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/27507.shtml)
+- 2026-06-29 18:33 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/856199163490.shtml)

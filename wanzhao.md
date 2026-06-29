@@ -1,56 +1,57 @@
-# 早盘：美股涨跌不一 标普指数再创盘中新高
+# 美国股市：纳斯达克100指数创逾一周最大涨幅 芯片股带动美股回升
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-北京时间5月11日晚，美股周一早盘涨跌不一，标普500指数再创盘中历史新高。投资者正为本周即将公布的4月消费者价格指数和零售销售报告等关键经济数据做准备。特朗普拒绝伊朗提议后油价攀升。 道指涨103.13点，涨幅为0.21%，报49712.29点；纳指跌27.55点，跌幅为0.10%，报26219.53点；标普500指数涨8.58点，涨幅为0.12%，报7407.51点。 市场
+标普500指数周一上涨，收复上周部分跌幅，芯片股大涨，同时投资者评估中东紧张局势缓和的影响。 标普500指数上涨0.3%。上周五，强劲就业数据推动市场提高对美联储加息的预期，导致该指数大跌 纳斯达克100指数上涨1.6%，创逾一周来最大涨幅，主要受半导体板块带动 费城半导体指数上涨5.6%；美光科技上涨近10%，博通上涨2.8% 英特尔上涨11%，创5月8日以来最大单日涨幅，此
 
 ## 正文
 
-北京时间5月11日晚，美股周一早盘涨跌不一，标普500指数再创盘中历史新高。
+标普500指数周一上涨，收复上周部分跌幅，芯片股大涨，同时投资者评估中东紧张局势缓和的影响。
 
-投资者正为本周即将公布的4月消费者价格指数和零售销售报告等关键经济数据做准备。
+标普500指数上涨0.3%。
 
-特朗普拒绝伊朗提议后油价攀升。
+上周五，强劲就业数据推动市场提高对美联储加息的预期，导致该指数大跌 纳斯达克100指数上涨1.6%，创逾一周来最大涨幅，主要受半导体板块带动 费城半导体指数上涨5.6%；美光科技上涨近10%，博通上涨2.8% 英特尔上涨11%，创5月8日以来最大单日涨幅，此前The Information报道称，谷歌将2028年逾300万颗专用AI芯片订单交给英特尔 但美股尾盘回吐部分涨幅，市场广度依然疲弱，彭博汇编数据显示，标普500指数成分股中逾320只下跌，仅180余只上涨 11个行业板块中有8个收跌，公用事业、房地产和原材料板块跌幅居前。
 
-道指涨103.13点，涨幅为0.21%，报49712.29点；纳指跌27.55点，跌幅为0.10%，报26219.53点；标普500指数涨8.58点，涨幅为0.12%，报7407.51点。
+等权重标普500指数基本持平，显示除芯片股外市场整体表现偏弱。
 
-市场情绪受到中东局势不确定性的压制——美国总统特朗普周末拒绝了伊朗的和平提议回应，称其“完全不可接受”，此举推动油价上涨约3%，能源成本的攀升给股市带来额外压力。
+债券交易员预计，本周公布的通胀数据将显示消费者价格显著上涨，从而进一步加大美联储加息压力。
 
-本周市场的核心焦点是将于周二公布的4月CPI数据。
+美国消费者价格数据将于周三公布;美联储官员已进入6月17日利率决议前的静默期。
 
-经济学家预计CPI同比涨幅将从3月的3.3%升至3.7%，环比上涨0.6%；核心CPI预计同比上涨2.7%、环比上涨0.3%。
+“逢低买入资金回归，但仅收复了上周五行情调整的一部分，”Navellier & Associates首席投资官Louis Navellier表示。
 
-若通胀数据高于预期，可能进一步压缩市场对美联储年内降息的押注。
+“伊朗局势仍是主要地缘政治风险”。
 
 ## 相关推荐
 
-- 2026-06-29 18:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 18:29 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 18:27 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 18:31 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 18:33 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 18:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 18:23 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 18:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-29 18:16 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 18:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 18:29 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 18:20 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 18:18 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 18:37 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 18:41 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 18:42 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 18:31 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 18:37 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 18:19 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 18:37 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 18:34 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:12 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/185394165761.shtml)
-- 2026-06-29 18:38 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/389488.shtml)
-- 2026-06-29 18:34 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/95188707222.shtml)
-- 2026-06-29 18:28 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/7939105.shtml)
-- 2026-06-29 18:33 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/47926036.shtml)
-- 2026-06-29 18:38 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/16709603815.shtml)
-- 2026-06-29 18:34 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/87141853242.shtml)
-- 2026-06-29 18:32 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/3572985649.shtml)
-- 2026-06-29 18:17 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/16174083175.shtml)
-- 2026-06-29 18:36 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/359235.shtml)
-- 2026-06-29 18:23 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/7184009934.shtml)
-- 2026-06-29 18:41 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/5023930769.shtml)
-- 2026-06-29 18:22 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/054022793078.shtml)
-- 2026-06-29 18:25 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/2088333005.shtml)
-- 2026-06-29 18:25 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/57026398.shtml)
+- 2026-06-29 18:20 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/18113169783.shtml)
+- 2026-06-29 18:21 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/033613791.shtml)
+- 2026-06-29 18:25 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.minike.top/Article/details/1133610956.shtml)
+- 2026-06-29 18:28 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/13393302122.shtml)
+- 2026-06-29 18:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/67220.shtml)
+- 2026-06-29 18:36 - [娜扎搂着我的腰和我合照](https://www.share.kurohicncr.top/Article/details/3527710311.shtml)
+- 2026-06-29 18:21 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/529999368863.shtml)
+- 2026-06-29 18:46 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.kurohicncr.top/Article/details/0016972918.shtml)
+- 2026-06-29 18:21 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/228497976.shtml)
+- 2026-06-29 18:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/78168350800.shtml)
+- 2026-06-29 18:31 - [海口塔吊事故处罚结果公布](https://www.blog.kurohicncr.top/Article/details/588356959823.shtml)
+- 2026-06-29 18:45 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/27358.shtml)
+- 2026-06-29 18:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/423431195734.shtml)
+- 2026-06-29 18:28 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/03112.shtml)
+- 2026-06-29 18:39 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/2204625.shtml)

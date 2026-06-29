@@ -1,57 +1,50 @@
-# 西班牙发现一例汉坦病毒疑似病例
+# B站关联公司成被执行人
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-中新社北京5月9日电 马德里消息：西班牙卫生官员8日表示，一名来自西班牙东南部阿利坎特省的32岁女子出现了与汉坦病毒感染相符的症状，目前正在对其进行检测。 据路透社报道，西班牙卫生国务秘书哈维尔·帕迪利亚说，该女子曾与在“洪迪厄斯”号邮轮上发病后于南非去世的患者乘坐同一航班，座位在那名患者后方两排，但双方“接触时间很短”。 目前，该女子“出现了轻微呼吸道症状”，正被转运至阿利坎
+中新网6月9日电(吴家驹)中国执行信息公开网显示，近日，B站关联公司上海幻电信息科技有限公司新增一条被执行人信息，执行标的16万余元，立案时间为2026年6月5日，执行法院为上海市杨浦区人民法院。 天眼查网站显示，上海幻电信息科技有限公司成立于2013年5月，注册资本约1099.35万元，法定代表人为徐逸，现由陈睿(持股52.303%)、徐逸(44.3079%)、李旎(3.38
 
 ## 正文
 
-中新社北京5月9日电 马德里消息：西班牙卫生官员8日表示，一名来自西班牙东南部阿利坎特省的32岁女子出现了与汉坦病毒感染相符的症状，目前正在对其进行检测。
+中新网6月9日电(吴家驹)中国执行信息公开网显示，近日，B站关联公司上海幻电信息科技有限公司新增一条被执行人信息，执行标的16万余元，立案时间为2026年6月5日，执行法院为上海市杨浦区人民法院。
 
-据路透社报道，西班牙卫生国务秘书哈维尔·帕迪利亚说，该女子曾与在“洪迪厄斯”号邮轮上发病后于南非去世的患者乘坐同一航班，座位在那名患者后方两排，但双方“接触时间很短”。
+天眼查网站显示，上海幻电信息科技有限公司成立于2013年5月，注册资本约1099.35万元，法定代表人为徐逸，现由陈睿(持股52.303%)、徐逸(44.3079%)、李旎(3.389%)共同持股。
 
-目前，该女子“出现了轻微呼吸道症状”，正被转运至阿利坎特市的一家医院接受检测，预计24小时至48小时内可得到结果。
-
-当地卫生部门正在追踪这名女子过去几天内接触过的人员。
-
-另据西班牙埃菲社、《国家报》报道，“洪迪厄斯”号预计10日中午抵达西班牙特内里费岛附近，当局正积极筹备应对工作。
-
-报道称，邮轮将抛锚停泊，不会靠岸，船上乘客坐接驳艇前往港口，随后再坐接驳车前往机场。
-
-西班牙当局正在协调希望接回本国公民(或联合接回)的外国飞机抵达事宜。
-
-如果任何国家未能为其公民提供运输服务，由于该船属于荷兰船籍，根据海事法规定，相关责任将由荷兰承担。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:36 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 18:25 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 18:32 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 18:32 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 18:17 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 18:14 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 18:38 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 18:23 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 18:39 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 18:23 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 18:12 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 18:28 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 18:21 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 18:36 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 18:18 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 18:19 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 18:19 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 18:28 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 18:37 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 18:46 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 18:44 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 18:21 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 18:21 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 18:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 18:40 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:16 - [税务总局披露5起合规申报个税案例](http://www.share.kurohicncr.top/Article/details/0585792753.shtml)
-- 2026-06-29 18:27 - [挪威王储妃长子2次强奸被判4年](https://www.share.kurohicncr.top/Article/details/3455795397.shtml)
-- 2026-06-29 18:22 - [业内：全球市场迎来结构性投资窗口](https://www.blog.minike.top/Article/details/7589268384.shtml)
-- 2026-06-29 18:36 - [扬名立万](http://www.share.minike.top/Article/details/602498.shtml)
-- 2026-06-29 18:34 - [德国医生在没有空调的手术室工作](http://www.share.kurohicncr.top/Article/details/1778117.shtml)
-- 2026-06-29 18:27 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/76873455480.shtml)
-- 2026-06-29 18:29 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/8847670185.shtml)
-- 2026-06-29 18:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/7095056.shtml)
-- 2026-06-29 18:27 - [当地回应林区违规放羊遭豹啃食](http://www.share.kurohicncr.top/Article/details/7947775.shtml)
-- 2026-06-29 18:33 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/72139.shtml)
-- 2026-06-29 18:38 - [TOP Prada](http://www.blog.minike.top/Article/details/648999266524.shtml)
-- 2026-06-29 18:14 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/0073466.shtml)
-- 2026-06-29 18:37 - [7款高价创新药有望降价](https://www.share.kurohicncr.top/Article/details/99096748833.shtml)
-- 2026-06-29 18:23 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/9506468213.shtml)
-- 2026-06-29 18:35 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/637550.shtml)
+- 2026-06-29 18:22 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/8853741905.shtml)
+- 2026-06-29 18:35 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/68450.shtml)
+- 2026-06-29 18:34 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/7359722171.shtml)
+- 2026-06-29 18:31 - [天价门票抬高美加墨世界杯观赛门槛](http://www.share.minike.top/Article/details/038126637.shtml)
+- 2026-06-29 18:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/1236246.shtml)
+- 2026-06-29 18:34 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/189066719.shtml)
+- 2026-06-29 18:21 - [王曼昱被突如其来的话筒逗笑了](https://www.share.minike.top/Article/details/3311025276.shtml)
+- 2026-06-29 18:33 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/68805589.shtml)
+- 2026-06-29 18:25 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/20289361.shtml)
+- 2026-06-29 18:24 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/78798690.shtml)
+- 2026-06-29 18:29 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/480939.shtml)
+- 2026-06-29 18:23 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/661923604.shtml)
+- 2026-06-29 18:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/2727699464.shtml)
+- 2026-06-29 18:23 - [世界杯预测史上最不吃压力之物](https://www.share.minike.top/Article/details/90340882.shtml)
+- 2026-06-29 18:31 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/2485495993.shtml)

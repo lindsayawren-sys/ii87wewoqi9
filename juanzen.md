@@ -1,56 +1,56 @@
-# 特朗普对德国心存不满令欧盟推动贸易协议蒙阴
+# 泰森食品任命Wes Morris为首席运营官
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-特朗普与德国总理默茨之间的裂痕正使欧盟在新的关税生效前完成与美国贸易协议的努力变得更加复杂。 据知情人士透露，由于对德国总理批评伊朗战争一事仍心存不满，这位美国总统周四不愿推迟其威胁对欧洲汽车和卡车征收的25%关税。 这位不具名人士透露了这些非公开讨论内容，并补充道，这令欧洲高级官员感到焦虑，担心若未能在特朗普设定的7月4日新截止日期前达成贸易协议，可能会引发恶性循环。尽管官员
+泰森食品公司日前宣布，任命Wes Morris为首席运营官，自6月15日起正式生效。Morris将全面负责公司旗下各业务板块，涵盖鸡肉、牛肉、猪肉、预制食品及国际业务。现任首席运营官Devin Cole将同日退休。 Morris在泰森食品拥有超过20年的从业经验，此前曾担任预制食品及家禽业务总裁。他最早于1999年加入泰森食品，历任多个领导职务，包括消费品集团副总裁及预制食品运
 
 ## 正文
 
-特朗普与德国总理默茨之间的裂痕正使欧盟在新的关税生效前完成与美国贸易协议的努力变得更加复杂。
+泰森食品公司日前宣布，任命Wes Morris为首席运营官，自6月15日起正式生效。
 
-据知情人士透露，由于对德国总理批评伊朗战争一事仍心存不满，这位美国总统周四不愿推迟其威胁对欧洲汽车和卡车征收的25%关税。
+Morris将全面负责公司旗下各业务板块，涵盖鸡肉、牛肉、猪肉、预制食品及国际业务。
 
-这位不具名人士透露了这些非公开讨论内容，并补充道，这令欧洲高级官员感到焦虑，担心若未能在特朗普设定的7月4日新截止日期前达成贸易协议，可能会引发恶性循环。
+现任首席运营官Devin Cole将同日退休。
 
-尽管官员们表示有信心能在该期限前完成工作，但这近两个月的窗口期也意味着特朗普的个人不满可能再次浮出水面。
+Morris在泰森食品拥有超过20年的从业经验，此前曾担任预制食品及家禽业务总裁。
 
-这一情况再次提醒人们，对特朗普而言，所有政策问题都是相互交织且带有个人色彩的。
+他最早于1999年加入泰森食品，历任多个领导职务，包括消费品集团副总裁及预制食品运营总裁，直至2017年退休。
 
-从实际角度看，特朗普对默茨的愤怒与美欧贸易协议毫无关系。
+退休后，他曾于2018年至2019年担任Simmons Foods首席财务官，并于2020年至2023年期间以顾问身份继续为泰森食品的家禽业务提供咨询服务。
 
-但在特朗普的世界里，一切都息息相关。
+泰森食品候任总裁兼首席执行官表示，Wes Morris在公司核心业务板块的运营执行方面拥有显赫过往战绩，他对公司运营的深刻理解，将在公司持续提升整体业绩的过程中发挥至关重要的作用。
 
-目前，双方已达成一种脆弱的缓和局面。
+Morris本人则表示，能够在这一关键时刻回归感到非常振奋，公司已打下坚实的基础，他将致力于强化运营纪律，推动公司持续推进战略重点、落实增长计划。
 
 ## 相关推荐
 
-- 2026-06-29 18:41 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 18:39 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 18:29 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 18:29 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 18:26 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 18:30 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 18:24 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 18:29 - [永远有话聊的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 18:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 18:31 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 18:18 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 18:23 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 18:34 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 18:19 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 18:38 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 18:19 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 18:45 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 18:26 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 18:31 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 18:20 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:14 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/787723048262.shtml)
-- 2026-06-29 18:29 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/7147351.shtml)
-- 2026-06-29 18:31 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/083302567725.shtml)
-- 2026-06-29 18:21 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/9532007372.shtml)
-- 2026-06-29 18:40 - [存储三巨头被告了](http://www.share.minike.top/Article/details/69239893.shtml)
-- 2026-06-29 18:32 - [许建琼任湖南省检察院副检察长](http://www.blog.minike.top/Article/details/10800915051.shtml)
-- 2026-06-29 18:12 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.kurohicncr.top/Article/details/812001.shtml)
-- 2026-06-29 18:14 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.minike.top/Article/details/878748.shtml)
-- 2026-06-29 18:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/619349559.shtml)
-- 2026-06-29 18:14 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/56385.shtml)
-- 2026-06-29 18:29 - [周生如故](http://www.share.minike.top/Article/details/813848528528.shtml)
-- 2026-06-29 18:28 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/26906998.shtml)
-- 2026-06-29 18:20 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/80204859873.shtml)
-- 2026-06-29 18:28 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/16641224025.shtml)
-- 2026-06-29 18:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/53512.shtml)
+- 2026-06-29 18:38 - [NBA交易](https://www.share.kurohicncr.top/Article/details/951261385.shtml)
+- 2026-06-29 18:46 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/02836.shtml)
+- 2026-06-29 18:19 - [机器人学校开学了](http://www.blog.minike.top/Article/details/242584.shtml)
+- 2026-06-29 18:21 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/22861563489.shtml)
+- 2026-06-29 18:38 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/0345878.shtml)
+- 2026-06-29 18:41 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/64169638.shtml)
+- 2026-06-29 18:44 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/85775043482.shtml)
+- 2026-06-29 18:31 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/59587.shtml)
+- 2026-06-29 18:41 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/40496365342.shtml)
+- 2026-06-29 18:19 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.kurohicncr.top/Article/details/0134231761.shtml)
+- 2026-06-29 18:26 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/686348.shtml)
+- 2026-06-29 18:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/717850.shtml)
+- 2026-06-29 18:46 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/321620.shtml)
+- 2026-06-29 18:41 - [逆天祖国人](http://www.share.minike.top/Article/details/12674762.shtml)
+- 2026-06-29 18:46 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/748021.shtml)

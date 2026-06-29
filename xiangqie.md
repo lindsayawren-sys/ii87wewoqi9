@@ -1,44 +1,49 @@
-# A股强势突破，创逾10年新高，科技成长板块领涨全场！| 华宝基金3A日报（2026.5.11）
+# 华勤技术获大摩增持约70.19万股 每股作价约92.58港元
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-责任编辑：杨红卜
+香港联交所最新资料显示，6月3日，大摩增持华勤技术（03296）70.1926万股，每股作价92.5825港元。增持后最新持股数目约为439.62万股，最新持股比例为6.52%。责任编辑：卢昱君
 
 ## 正文
 
-责任编辑：杨红卜
+香港联交所最新资料显示，6月3日，大摩增持华勤技术（03296）70.1926万股，每股作价92.5825港元。
+
+增持后最新持股数目约为439.62万股，最新持股比例为6.52%。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:37 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 18:37 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 18:34 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 18:33 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 18:14 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 18:18 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 18:15 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 18:13 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 18:38 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 18:39 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 18:27 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 18:39 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 18:23 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 18:43 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 18:22 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 18:36 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 18:46 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 18:29 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 18:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 18:23 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 18:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 18:44 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 18:20 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 18:41 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 18:46 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:41 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/391404.shtml)
-- 2026-06-29 18:36 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/0295832643.shtml)
-- 2026-06-29 18:38 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.minike.top/Article/details/952116.shtml)
-- 2026-06-29 18:34 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/035809931390.shtml)
-- 2026-06-29 18:12 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/31835.shtml)
-- 2026-06-29 18:32 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/55170.shtml)
-- 2026-06-29 18:14 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/612892.shtml)
-- 2026-06-29 18:14 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/564821.shtml)
-- 2026-06-29 18:25 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/5790514713.shtml)
-- 2026-06-29 18:16 - [挪威王储妃长子两次强奸获刑](http://www.share.minike.top/Article/details/79220095.shtml)
-- 2026-06-29 18:32 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/40312659771.shtml)
-- 2026-06-29 18:16 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/303400105.shtml)
-- 2026-06-29 18:19 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/25971.shtml)
-- 2026-06-29 18:24 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/378338.shtml)
-- 2026-06-29 18:36 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/3681700282.shtml)
+- 2026-06-29 18:20 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/9224530278.shtml)
+- 2026-06-29 18:37 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/77433444.shtml)
+- 2026-06-29 18:27 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/874610275.shtml)
+- 2026-06-29 18:20 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/929454389895.shtml)
+- 2026-06-29 18:42 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/86702340888.shtml)
+- 2026-06-29 18:21 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/181188391.shtml)
+- 2026-06-29 18:30 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/755874019.shtml)
+- 2026-06-29 18:29 - [毒液2](https://www.blog.minike.top/Article/details/1809135782.shtml)
+- 2026-06-29 18:26 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/58252384602.shtml)
+- 2026-06-29 18:45 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/752994.shtml)
+- 2026-06-29 18:34 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/83843760288.shtml)
+- 2026-06-29 18:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/541604597.shtml)
+- 2026-06-29 18:28 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.kurohicncr.top/Article/details/86856787851.shtml)
+- 2026-06-29 18:48 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/26302345235.shtml)
+- 2026-06-29 18:34 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.minike.top/Article/details/9223241.shtml)

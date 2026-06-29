@@ -1,57 +1,56 @@
-# 小摩：比亚迪股份给予“增持”评级 目标价120港元
+# A股周二缩量反弹 沪指重返4000点
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-小摩发布研报称，与比亚迪股份（01211）的电话会议有三大新增正面惊喜，分别是国内销量指引超预期、海外销量上升空间、新车型带动盈利明显改善。目标价120港元，给予“增持”评级。 报告指，比亚迪管理层目前指引今年国内销量为350万至400万辆，即同比增0-14%，视中国市场竞争态势而定。高于小摩的350万辆、同比持平预测。虽然指引区间较宽，但该行认为这显示管理层对北京车展推出的搭
+中新社北京6月9日电 (记者 陈康亮)中国A股9日(周二)缩量反弹，主要股指均涨逾1%。其中，上证指数高开高走，收盘重新站上4000点之上；创业板指涨近4%。 截至当天收盘，上证指数报4010点，涨幅为1.28%；深证成指报15268点，涨幅为3.02%；创业板指报3961点，涨3.93%。沪深两市成交总额约26403亿元人民币，较上一个交易日缩量约1524亿元人民币。 陕西巨
 
 ## 正文
 
-小摩发布研报称，与比亚迪股份（01211）的电话会议有三大新增正面惊喜，分别是国内销量指引超预期、海外销量上升空间、新车型带动盈利明显改善。
+中新社北京6月9日电 (记者 陈康亮)中国A股9日(周二)缩量反弹，主要股指均涨逾1%。
 
-目标价120港元，给予“增持”评级。
+其中，上证指数高开高走，收盘重新站上4000点之上；创业板指涨近4%。
 
-报告指，比亚迪管理层目前指引今年国内销量为350万至400万辆，即同比增0-14%，视中国市场竞争态势而定。
+截至当天收盘，上证指数报4010点，涨幅为1.28%；深证成指报15268点，涨幅为3.02%；创业板指报3961点，涨3.93%。
 
-高于小摩的350万辆、同比持平预测。
+沪深两市成交总额约26403亿元人民币，较上一个交易日缩量约1524亿元人民币。
 
-虽然指引区间较宽，但该行认为这显示管理层对北京车展推出的搭载超快充技术的新车型订单表现信心增强。
+陕西巨丰投资资讯有限责任公司投资顾问总监郭一鸣表示，当天A股反弹的核心驱动力来自科技板块的集体爆发。
 
-海外市场方面，虽然比亚迪重申150万辆销量目标，同比增50%，但管理层指出因需求强劲，有潜在上调空间，尤其在近期油价上涨之后。
+半导体产业链成为市场做多核心主线，相关细分赛道多点开花，展现出较强的板块活跃度。
 
-管理层进一步强调，公司自有的八艘船舶已准备就绪，将支持这一目标。
+A股主要股指与科技板块的同步上涨是多重利好共振的结果。
 
-报告指，比亚迪新款搭载闪充技术的车型带动国内业务盈利能力改善，这一点投资者可能尚未充分认知。
+其中，隔夜美股科技股率先反弹，伊朗宣布结束对以色列的军事行动，相关因素均为行情修复提供了支撑。
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 18:32 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 18:21 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 18:12 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 18:13 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 18:31 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 18:31 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 18:35 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 18:16 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 18:21 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 18:27 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 18:42 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 18:19 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 18:28 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 18:25 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 18:32 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 18:41 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 18:24 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 18:39 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 18:31 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 18:41 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:31 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/07978.shtml)
-- 2026-06-29 18:34 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/0901960.shtml)
-- 2026-06-29 18:16 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/767318890713.shtml)
-- 2026-06-29 18:40 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/9861711844.shtml)
-- 2026-06-29 18:35 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/14531330.shtml)
-- 2026-06-29 18:22 - [金牌调解](https://www.blog.minike.top/Article/details/748857805.shtml)
-- 2026-06-29 18:13 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/33108082.shtml)
-- 2026-06-29 18:37 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/748524435.shtml)
-- 2026-06-29 18:41 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/349979176.shtml)
-- 2026-06-29 18:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/49561.shtml)
-- 2026-06-29 18:12 - [依法管制阻遏日方军事化危险动向](https://www.share.minike.top/Article/details/290396899135.shtml)
-- 2026-06-29 18:30 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/13896.shtml)
-- 2026-06-29 18:12 - [V8](http://www.blog.minike.top/Article/details/662138644.shtml)
-- 2026-06-29 18:13 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/09881479743.shtml)
-- 2026-06-29 18:26 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/97661259.shtml)
+- 2026-06-29 18:35 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/526625213.shtml)
+- 2026-06-29 18:35 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/04806614738.shtml)
+- 2026-06-29 18:30 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/48376.shtml)
+- 2026-06-29 18:37 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/4233640496.shtml)
+- 2026-06-29 18:37 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/295676579133.shtml)
+- 2026-06-29 18:29 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/1109039593.shtml)
+- 2026-06-29 18:26 - [未成年少女长期吸毒导致卧床不起](http://www.share.kurohicncr.top/Article/details/122657222104.shtml)
+- 2026-06-29 18:45 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/669374.shtml)
+- 2026-06-29 18:48 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/17809530060.shtml)
+- 2026-06-29 18:27 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/0924590468.shtml)
+- 2026-06-29 18:18 - [机器人学校开学了](https://www.blog.kurohicncr.top/Article/details/91114644.shtml)
+- 2026-06-29 18:35 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/693114.shtml)
+- 2026-06-29 18:47 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/59826795671.shtml)
+- 2026-06-29 18:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/38800578333.shtml)
+- 2026-06-29 18:35 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/2892229446.shtml)

@@ -1,58 +1,50 @@
-# 豹街连双城 交融聚同心——果洛州·西宁城北双城联动母亲节专场活动举行
+# “数爱无疆”数字公益故事展播 | 我的马拉松｜跑在你身边
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-原标题：【民族团结在行动】豹街连双城 交融聚同心——果洛州·西宁城北双城联动母亲节专场活动举行 5月10日晚，“豹街连河源·史诗润河湟”果洛州·西宁城北双城联动母亲节专场大型民族民俗巡游表演活动，在“雪豹之都第一街·豹街”隆重举行。本次活动由果洛藏族自治州与西宁市城北区联合主办，立足铸牢中华民族共同体意识，以“双城联动”为重要载体，着力推动精品旅游线路共建、农畜产品产销对接、非
+发布时间：2026年06月09日 18:09 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。 2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由新华社推送的“我的马拉松｜
 
 ## 正文
 
-原标题：【民族团结在行动】豹街连双城 交融聚同心——果洛州·西宁城北双城联动母亲节专场活动举行 5月10日晚，“豹街连河源·史诗润河湟”果洛州·西宁城北双城联动母亲节专场大型民族民俗巡游表演活动，在“雪豹之都第一街·豹街”隆重举行。
+发布时间：2026年06月09日 18:09 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。
 
-本次活动由果洛藏族自治州与西宁市城北区联合主办，立足铸牢中华民族共同体意识，以“双城联动”为重要载体，着力推动精品旅游线路共建、农畜产品产销对接、非遗文化联动展演、体育赛事协同举办、文旅品牌联合推广等领域深化合作，推动各民族在文化交融中凝心聚力，携手融入全省“一芯一环多带”生态旅游发展新格局，谱写跨区域携手共进、各民族同心筑梦的新篇章。
+2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由新华社推送的“我的马拉松｜跑在你身边”作品入选。
 
-活动当晚，果洛州和西宁市城北区两地领导登台互赠特色吉祥物，雪豹是两地共有的生态名片——果洛拥有黄河源头最大的连片雪豹栖息地，城北区则打造了“雪豹之都第一街·豹街”，同根同源的雪豹情缘，让这次吉祥物互赠成为双城缘分的最佳定格，更传递出同饮一江水、亲如一家人的血脉深情，彰显了两地各族群众守望相助、共生共荣的深厚情谊。
-
-随后的巡游表演精彩纷呈，果洛州带来的《果洛霓裳》《高原土风·盛世欢舞》《格萨尔王》《欢腾的卓巴》等文艺精品次第登场，尽显高原儿女的豪迈气魄与雪域秘境的独特风情。
-
-城北区原创的《丁香花开迎客来》《彩陶印记》《豹启新程》《西宁北》依次登台，铺展出一幅河湟文化的绚烂长卷。
-
-两地文艺作品相映成趣，推动着各民族文化在交流中传承、在交融中共进。
-
-果洛西宁民族中学学子带来的合唱《格桑花》《少年》及青海省三江源民族中学表演的蒙藏合舞《趣浪城北·源起三江》，更以青春之名奏响民族团结的昂扬强音，生动展现各族青少年交往交流交融良好风貌。
-
-古典舞《寸草念春晖》在母亲节温情登场、致敬伟大母爱，民俗表演《龙腾狮跃耀华章》及中国舞《盛世中国》压轴亮相，引得全场沸腾，多民族艺术在这流光溢彩的夜晚交相辉映，共同奏响了高原大地各民族交往交流交融、同心筑梦、共创繁荣的华彩乐章。
+责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 18:38 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 18:29 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 18:35 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 18:37 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 18:41 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 18:18 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 18:13 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 18:21 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 18:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 18:40 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 18:12 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 18:40 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 18:20 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 18:36 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 18:21 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 18:36 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 18:40 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 18:36 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 18:18 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 18:30 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 18:26 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 18:42 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 18:28 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 18:21 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 18:38 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 18:18 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:22 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/08345401.shtml)
-- 2026-06-29 18:14 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/580535917111.shtml)
-- 2026-06-29 18:41 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/360297073.shtml)
-- 2026-06-29 18:27 - [学者：建设性战略稳定重塑中美关系](https://www.share.minike.top/Article/details/726880320982.shtml)
-- 2026-06-29 18:14 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/73239635.shtml)
-- 2026-06-29 18:30 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/93970.shtml)
-- 2026-06-29 18:19 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/4721183531.shtml)
-- 2026-06-29 18:26 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/83202884443.shtml)
-- 2026-06-29 18:23 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/9625682.shtml)
-- 2026-06-29 18:14 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/973152.shtml)
-- 2026-06-29 18:38 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/54373417.shtml)
-- 2026-06-29 18:22 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/17290121635.shtml)
-- 2026-06-29 18:31 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.minike.top/Article/details/441562166.shtml)
-- 2026-06-29 18:15 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/303908738001.shtml)
-- 2026-06-29 18:14 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/2545483.shtml)
+- 2026-06-29 18:29 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/36538101.shtml)
+- 2026-06-29 18:46 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.kurohicncr.top/Article/details/543619.shtml)
+- 2026-06-29 18:19 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/677233416056.shtml)
+- 2026-06-29 18:45 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/683004829.shtml)
+- 2026-06-29 18:45 - [和周杰伦在演唱会合唱了](http://www.share.minike.top/Article/details/72460552330.shtml)
+- 2026-06-29 18:35 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/26526.shtml)
+- 2026-06-29 18:31 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/12486488304.shtml)
+- 2026-06-29 18:48 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/015533.shtml)
+- 2026-06-29 18:44 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/19435199.shtml)
+- 2026-06-29 18:32 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/501999952.shtml)
+- 2026-06-29 18:25 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/42339000843.shtml)
+- 2026-06-29 18:39 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/879599.shtml)
+- 2026-06-29 18:25 - [叠纸](http://www.share.kurohicncr.top/Article/details/652446751.shtml)
+- 2026-06-29 18:30 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/38814540.shtml)
+- 2026-06-29 18:46 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/9322622722.shtml)

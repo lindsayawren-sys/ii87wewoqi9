@@ -1,58 +1,56 @@
-# 4月中国CPI同比涨1.2% 汽油和黄金饰品价格变动较大
+# 告别泡泡玛特、老铺黄金，广发基金吴远怡在管广发价值核心混合“风格漂移”
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-中新社北京5月11日电 (记者 王恩博)中国国家统计局11日公布，受国际原油价格变动和假期出行需求增加影响，4月份中国居民消费价格指数(CPI)同比上涨1.2%，比上月扩大0.2个百分点；扣除食品和能源价格的核心CPI同比上涨1.2%，保持温和回升。国家统计局城市司首席统计师董莉娟表示，4月份CPI中，工业消费品价格同比上涨3.5%，涨幅比上月扩大1.3个百分点，影响CPI同比
+来源：财报星球 原标题：告别泡泡玛特、老铺黄金，广发基金吴远怡在管基金“风格漂移” 卸任百亿规模基金产品，广发基金吴远怡在管基金仍面临合规考验。 6月3日，广发基金发布了一则人事公告，号称“爆款捕手”的吴远怡在同日卸任了广发成长领航一年持有、广发创新升级以及广发小盘成长3只产品的基金经理职务。 这位曾经的百亿主动权益基金经理，因为提前押中泡泡玛特、老铺黄金等爆款标的而声名鹊起。
 
 ## 正文
 
-中新社北京5月11日电 (记者 王恩博)中国国家统计局11日公布，受国际原油价格变动和假期出行需求增加影响，4月份中国居民消费价格指数(CPI)同比上涨1.2%，比上月扩大0.2个百分点；扣除食品和能源价格的核心CPI同比上涨1.2%，保持温和回升。
+来源：财报星球 原标题：告别泡泡玛特、老铺黄金，广发基金吴远怡在管基金“风格漂移” 卸任百亿规模基金产品，广发基金吴远怡在管基金仍面临合规考验。
 
-国家统计局城市司首席统计师董莉娟表示，4月份CPI中，工业消费品价格同比上涨3.5%，涨幅比上月扩大1.3个百分点，影响CPI同比上涨约1.06个百分点。
+6月3日，广发基金发布了一则人事公告，号称“爆款捕手”的吴远怡在同日卸任了广发成长领航一年持有、广发创新升级以及广发小盘成长3只产品的基金经理职务。
 
-受国际大宗商品价格波动影响，国内汽油和黄金饰品价格变动较大，其中汽油价格涨幅扩大至19.3%；黄金饰品价格涨幅回落至46.9%。
+这位曾经的百亿主动权益基金经理，因为提前押中泡泡玛特、老铺黄金等爆款标的而声名鹊起。
 
-4月份，服务价格同比涨幅扩大至0.9%，影响CPI同比上涨约0.44个百分点。
+如今，收缩战线的吴远怡如何再出发？
 
-其中，出行服务价格涨幅有所扩大，上涨3.7%。
+卸任押中“爆款”的基金产品 在公募江湖，吴远怡的崛起路径极具辨识度。
 
-食品价格由上月上涨0.3%转为下降1.6%。
+这位拥有理学硕士学位的基金经理，曾任职于申银万国证券研究所、惠理基金（香港）及中国人寿资产，2020年加入广发基金。
 
-食品中，猪肉价格下降15.2%，降幅比上月扩大3.7个百分点。
+其真正的“封神之作”无疑是广发成长领航一年持有。
 
-从环比看，4月份，中国CPI由上月下降0.7%转为上涨0.3%，高于季节性水平0.4个百分点，主要受能源和出行服务价格上涨影响。
+截至2026年6月初，吴远怡在该产品的任职回报高达181.69%，同类平均为31.02%，在同期6700余只同类产品中排名第122位。
 
 ## 相关推荐
 
-- 2026-06-29 18:23 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 18:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 18:33 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 18:19 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 18:15 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 18:26 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 18:24 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 18:36 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 18:13 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 18:30 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 18:21 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 18:36 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 18:29 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 18:20 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 18:21 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 18:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 18:43 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 18:32 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 18:27 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 18:36 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 18:24 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 18:22 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:20 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/15229047.shtml)
-- 2026-06-29 18:16 - [TOP Prada](https://www.share.minike.top/Article/details/214009.shtml)
-- 2026-06-29 18:29 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/793374.shtml)
-- 2026-06-29 18:34 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/25804943287.shtml)
-- 2026-06-29 18:20 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/227627559.shtml)
-- 2026-06-29 18:23 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/89537.shtml)
-- 2026-06-29 18:20 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/035561.shtml)
-- 2026-06-29 18:34 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/470167916.shtml)
-- 2026-06-29 18:14 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/26484.shtml)
-- 2026-06-29 18:23 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/70991466184.shtml)
-- 2026-06-29 18:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/42870.shtml)
-- 2026-06-29 18:32 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/243149167.shtml)
-- 2026-06-29 18:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/333224.shtml)
-- 2026-06-29 18:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/3362161739.shtml)
-- 2026-06-29 18:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/587787758.shtml)
+- 2026-06-29 18:34 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/441112.shtml)
+- 2026-06-29 18:38 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/3378554.shtml)
+- 2026-06-29 18:36 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/11612.shtml)
+- 2026-06-29 18:42 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/9902949.shtml)
+- 2026-06-29 18:28 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/77789228.shtml)
+- 2026-06-29 18:45 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/862573.shtml)
+- 2026-06-29 18:33 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/04150.shtml)
+- 2026-06-29 18:26 - [明星大侦探第四季](https://www.share.minike.top/Article/details/725356.shtml)
+- 2026-06-29 18:33 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/48246848.shtml)
+- 2026-06-29 18:47 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/270044387.shtml)
+- 2026-06-29 18:24 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/98880232665.shtml)
+- 2026-06-29 18:38 - [金牌调解](https://www.share.minike.top/Article/details/4050298798.shtml)
+- 2026-06-29 18:23 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/71181.shtml)
+- 2026-06-29 18:27 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/49306556.shtml)
+- 2026-06-29 18:37 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/140820903.shtml)

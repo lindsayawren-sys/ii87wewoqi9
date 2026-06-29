@@ -1,56 +1,53 @@
-# Mhmarkets迈汇:金价重返四千七百关口
+# 韩国股指期货隔夜大幅反弹 涨幅达5.4%
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-5月11日，国际黄金市场近期展现出企稳回升的迹象，现货金价在经历两周回调后重新站上每盎司4700美元上方，周五金价上涨0.65%至4716美元附近，白银亦同步走强超过2%。Mhmarkets迈汇表示，黄金重返4700关口反映出多头力量阶段性回归，市场对前期回调的恐慌情绪逐步消化。该机构分析称，本轮反弹的支撑来自宏观因素与机构配置需求的共振，贵金属作为跨周期资产的中长期投资逻辑依
+过去两个交易日的风险冲击行情已基本收尾，亚洲各地投资者有望迎来期待已久的喘息时机。美股回归常态走势也起到助力作用。受市场多方利好言论及持续传出的投资消息提振，科技股大幅反弹。人工智能领域融资活动持续推进，亚马逊发行了史上规模最大的加元债券。英伟达黄仁勋与韩企签署多项合作协议，加之韩国国民年金基金推动韩元走强，韩国股指期货隔夜大幅反弹，涨幅达 5.4%。责任编辑：王永生
 
 ## 正文
 
-5月11日，国际黄金市场近期展现出企稳回升的迹象，现货金价在经历两周回调后重新站上每盎司4700美元上方，周五金价上涨0.65%至4716美元附近，白银亦同步走强超过2%。
+过去两个交易日的风险冲击行情已基本收尾，亚洲各地投资者有望迎来期待已久的喘息时机。
 
-Mhmarkets迈汇表示，黄金重返4700关口反映出多头力量阶段性回归，市场对前期回调的恐慌情绪逐步消化。
+美股回归常态走势也起到助力作用。
 
-该机构分析称，本轮反弹的支撑来自宏观因素与机构配置需求的共振，贵金属作为跨周期资产的中长期投资逻辑依然完整。
+受市场多方利好言论及持续传出的投资消息提振，科技股大幅反弹。
 
-宏观环境方面，美联储基准利率在3.5%至3.75%区间维持稳定，中东冲突推升的能源价格使得通胀压力难以快速回落，市场对年内降息的预期明显降温。
+人工智能领域融资活动持续推进，亚马逊发行了史上规模最大的加元债券。
 
-Mhmarkets迈汇认为，分化的联储与不确定的政策路径使得降息时点尚难确认，但实际利率长期回落趋势并未改变。
+英伟达黄仁勋与韩企签署多项合作协议，加之韩国国民年金基金推动韩元走强，韩国股指期货隔夜大幅反弹，涨幅达 5.4%。
 
-该机构判断，央行储备多元化、美元体系演化与避险需求构成金价中枢上移的核心逻辑，机构客户在调整后的区间下沿配置力度有所抬升。
-
-技术层面看，黄金日线突破短期均线压制后多头排列重新形成，MACD动能转正，KDJ自超卖区域明显上行，显示空头力量阶段性释放完毕。
-
-机构层面亦关注到，全球央行的购金节奏并未中断，亚洲实物金需求保持稳健，ETF持仓数据的边际变化、印度与中东婚庆季实物需求以及COMEX期金交割比率，亦是观察资金面真实态度的关键观察窗口。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 18:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 18:32 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 18:27 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 18:20 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 18:30 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 18:26 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 18:14 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 18:28 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 18:32 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 18:16 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 18:24 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 18:20 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 18:39 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 18:38 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 18:39 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 18:40 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 18:29 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 18:38 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 18:42 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 18:22 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 18:21 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:15 - [周生如故](https://www.share.minike.top/Article/details/3041492591.shtml)
-- 2026-06-29 18:20 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/009727703133.shtml)
-- 2026-06-29 18:14 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.minike.top/Article/details/341088.shtml)
-- 2026-06-29 18:36 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/30449163.shtml)
-- 2026-06-29 18:29 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.minike.top/Article/details/025507010769.shtml)
-- 2026-06-29 18:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/25739185.shtml)
-- 2026-06-29 18:32 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/184126645.shtml)
-- 2026-06-29 18:40 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/50584500.shtml)
-- 2026-06-29 18:34 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/316000119.shtml)
-- 2026-06-29 18:14 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/4158696.shtml)
-- 2026-06-29 18:19 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/021540467617.shtml)
-- 2026-06-29 18:18 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/44097.shtml)
-- 2026-06-29 18:18 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/4983666969.shtml)
-- 2026-06-29 18:41 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/157885027343.shtml)
-- 2026-06-29 18:16 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/5606873.shtml)
+- 2026-06-29 18:45 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/9799910.shtml)
+- 2026-06-29 18:25 - [主力抛售电子和通信板块](https://www.share.minike.top/Article/details/981055941009.shtml)
+- 2026-06-29 18:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/78200142292.shtml)
+- 2026-06-29 18:29 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/773926972608.shtml)
+- 2026-06-29 18:47 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/0143072792.shtml)
+- 2026-06-29 18:32 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/78253897.shtml)
+- 2026-06-29 18:18 - [这一刀 会很帅](https://www.share.minike.top/Article/details/6299429.shtml)
+- 2026-06-29 18:35 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/55731.shtml)
+- 2026-06-29 18:47 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/50424.shtml)
+- 2026-06-29 18:46 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/66906658095.shtml)
+- 2026-06-29 18:44 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/0098406.shtml)
+- 2026-06-29 18:27 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/91595.shtml)
+- 2026-06-29 18:20 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/840225255.shtml)
+- 2026-06-29 18:36 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/732737.shtml)
+- 2026-06-29 18:22 - [一生一世](http://www.share.kurohicncr.top/Article/details/28605055.shtml)

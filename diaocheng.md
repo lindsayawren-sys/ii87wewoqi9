@@ -1,50 +1,59 @@
-# 任天堂将上调Switch 2价格 预计其销量将下滑
+# 对话陶冬与胡捷：美联储换帅，沃什时代如何搅动全球盘面？（全文）
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-中新网5月9日电(吴家驹)据外媒报道，受内存芯片短缺等因素影响，任天堂预计其旗舰游戏机Switch 2的销量将下滑，因此将上调该产品的零售价。 任天堂周五表示，预计在截至2027年3月31日的财年内，Switch 2的销量将达到1650万台，较刚刚结束的上一财年1986万台的销量有所下降。与此同时，任天堂对本财年的预测远低于分析师的预期。 任天堂表示，从9月1日起，Switch
+美联储迎来新任主席沃什，其政策取向与过往路线出现显著分歧，成为当下全球金融市场热议的核心话题。美联储人事更迭与政策转向，深刻牵动着全球资本、利率、大宗商品及股市走向。 6月7日，思投社创始人、财经媒体人@思投社董小姐与经济学家陶冬和美联储前高级经济学家、上海交通大学上海高级金融学院教授胡捷进行微博连麦，围绕沃什的施政思路展开深度解读。 两位嘉宾对比了沃什与鲍威尔等前任美联储主席
 
 ## 正文
 
-中新网5月9日电(吴家驹)据外媒报道，受内存芯片短缺等因素影响，任天堂预计其旗舰游戏机Switch 2的销量将下滑，因此将上调该产品的零售价。
+美联储迎来新任主席沃什，其政策取向与过往路线出现显著分歧，成为当下全球金融市场热议的核心话题。
 
-任天堂周五表示，预计在截至2027年3月31日的财年内，Switch 2的销量将达到1650万台，较刚刚结束的上一财年1986万台的销量有所下降。
+美联储人事更迭与政策转向，深刻牵动着全球资本、利率、大宗商品及股市走向。
 
-与此同时，任天堂对本财年的预测远低于分析师的预期。
+6月7日，思投社创始人、财经媒体人@思投社董小姐与经济学家陶冬和美联储前高级经济学家、上海交通大学上海高级金融学院教授胡捷进行微博连麦，围绕沃什的施政思路展开深度解读。
 
-任天堂表示，从9月1日起，Switch 2在美国的价格将从449.99美元上调至499.99美元；从5月25日起，Switch 2在日本的价格将从49980日元上调至59980日元；Switch 2在加拿大、欧洲等地的价格也将上调。
+两位嘉宾对比了沃什与鲍威尔等前任美联储主席的政策差异，剖析其 “缩表 + 降息” 的组合策略逻辑，结合美国非农就业、通胀数据以及中东地缘局势，研判当前美联储政策落地的现实阻力与施展空间。
 
-(完)
+同时，还探讨了货币政策调整对美股、全球科技板块、贵金属市场的传导影响，并分析了大型企业集中 IPO 带来的流动性压力，以及美国 K 型经济、中期选举等潜在变量。
+
+以下为连麦实录： 主持人： OK，非常欢迎大家一起来关注我们最近市场上特别热门的一个话题，好像市场上最关注的一个话题之一了，就是美联储最新的这个动作。
+
+所以我们今天的这个直播安排的是比较及时的，主要讨论的就是美联储最近的一些变化，包括美联储换帅了之后，大家非常关注的新任主席沃什，那么他的一些政策的取向。
+
+那么我们今天非常荣幸的邀请到了两位专家，来跟大家提供一些启发和一些思路。
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 18:33 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 18:31 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 18:29 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 18:16 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 18:26 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 18:24 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 18:23 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 18:40 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 18:24 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 18:32 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 18:36 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 18:21 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 18:18 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 18:38 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 18:29 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 18:24 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 18:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 18:34 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 18:39 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 18:37 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 18:26 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 18:35 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:31 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/88761417.shtml)
-- 2026-06-29 18:27 - [中方向委方追加1亿元援助](http://www.share.minike.top/Article/details/76503268064.shtml)
-- 2026-06-29 18:31 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/6637775461.shtml)
-- 2026-06-29 18:18 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/440154324.shtml)
-- 2026-06-29 18:13 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/864471.shtml)
-- 2026-06-29 18:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/500002119709.shtml)
-- 2026-06-29 18:25 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/350248.shtml)
-- 2026-06-29 18:18 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/673071236693.shtml)
-- 2026-06-29 18:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/9787301305.shtml)
-- 2026-06-29 18:20 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/24738856.shtml)
-- 2026-06-29 18:12 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/1799993721.shtml)
-- 2026-06-29 18:35 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/02420821009.shtml)
-- 2026-06-29 18:40 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/946686.shtml)
-- 2026-06-29 18:31 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/6774611600.shtml)
-- 2026-06-29 18:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/43525745.shtml)
+- 2026-06-29 18:47 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/249468873489.shtml)
+- 2026-06-29 18:40 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/342045799.shtml)
+- 2026-06-29 18:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/865225234476.shtml)
+- 2026-06-29 18:47 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/7846674.shtml)
+- 2026-06-29 18:35 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/1351049045.shtml)
+- 2026-06-29 18:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/43059347.shtml)
+- 2026-06-29 18:40 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/825939486609.shtml)
+- 2026-06-29 18:31 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/1591283474.shtml)
+- 2026-06-29 18:23 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/94745204.shtml)
+- 2026-06-29 18:29 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.kurohicncr.top/Article/details/6770126.shtml)
+- 2026-06-29 18:34 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/611867.shtml)
+- 2026-06-29 18:20 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/1361049263.shtml)
+- 2026-06-29 18:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/51956.shtml)
+- 2026-06-29 18:45 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/641342449.shtml)
+- 2026-06-29 18:26 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/312642795761.shtml)

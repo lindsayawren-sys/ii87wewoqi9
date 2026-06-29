@@ -1,47 +1,56 @@
-# 5月11日央行开展5亿元7天期逆回购操作
+# 中国2026年4月份稀土永磁铁出口量同比上涨95.16%
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-中新网5月11日电 据中国人民银行网站消息，2026年5月11日中国人民银行以固定利率、数量招标方式开展了5亿元7天期逆回购操作，全额满足了一级交易商需求。具体情况如下：
+北京（亚洲金属）2026-06-09 2026年4月份中国稀土永磁铁出口量5,126.30公吨，去年同期为2,626.73公吨，上月为5,238.26公吨，同比上涨95.16%，环比下跌2.14%。2026年4月份中国稀土永磁铁出口额288,593,576.00美元，去年同期为114,888,040.00美元，上月为282,612,136.00美元，同比上涨151.20%，环比
 
 ## 正文
 
-中新网5月11日电 据中国人民银行网站消息，2026年5月11日中国人民银行以固定利率、数量招标方式开展了5亿元7天期逆回购操作，全额满足了一级交易商需求。
+北京（亚洲金属）2026-06-09 2026年4月份中国稀土永磁铁出口量5,126.30公吨，去年同期为2,626.73公吨，上月为5,238.26公吨，同比上涨95.16%，环比下跌2.14%。
 
-具体情况如下：
+2026年4月份中国稀土永磁铁出口额288,593,576.00美元，去年同期为114,888,040.00美元，上月为282,612,136.00美元，同比上涨151.20%，环比上涨2.12%。
+
+出口均价56,296.66美元/公吨，去年同期为43,738.05美元/公吨，上月为53,951.53美元/公吨。
+
+2026年1-4月，中国累计出口稀土永磁铁21,127.12公吨，去年同期为17,892.70公吨，同比上涨18.08%。
+
+中国过去13个月稀土永磁铁出口数量中国过去13个月稀土永磁铁出口均价2026年4月，中国稀土永磁铁前三大出口目的国为德国、韩国和美国。
+
+中国向德国出口稀土永磁铁1,012.65公吨，去年同期为511.62公吨，上月为1,122.42公吨，同比上涨97.93%，环比下跌9.78%。
+
+出口均价50,278.09美元/公吨，去年同期为43,579.26美元/公吨，上月为48,969.09美元/公吨，同比上涨15.37%，环比上涨2.67%。
+
+中国向韩国出口稀土永磁铁599.53公吨，去年同期为156.44公吨，上月为604.74公吨，同比上涨283.24%，环比下跌0.86%。
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 18:20 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 18:20 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 18:29 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 18:26 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 18:13 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 18:12 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 18:40 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 18:19 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 18:26 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 18:19 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 18:29 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 18:41 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 18:24 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 18:41 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 18:35 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 18:28 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 18:22 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 18:41 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 18:30 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 18:44 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 18:28 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 18:28 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/0529876348.shtml)
-- 2026-06-29 18:37 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/48176038039.shtml)
-- 2026-06-29 18:13 - [请回答王牌2019](https://www.blog.minike.top/Article/details/86665.shtml)
-- 2026-06-29 18:20 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/37254878.shtml)
-- 2026-06-29 18:24 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/8695049.shtml)
-- 2026-06-29 18:23 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/91440.shtml)
-- 2026-06-29 18:33 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/58544034.shtml)
-- 2026-06-29 18:30 - [扬名立万](https://www.blog.minike.top/Article/details/303068.shtml)
-- 2026-06-29 18:23 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/0315260993.shtml)
-- 2026-06-29 18:16 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/3175802960.shtml)
-- 2026-06-29 18:15 - [小鹏MONAL03预售定档7月2日](https://www.blog.kurohicncr.top/Article/details/09603123.shtml)
-- 2026-06-29 18:25 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/42303871.shtml)
-- 2026-06-29 18:33 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/1848957649.shtml)
-- 2026-06-29 18:35 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/4958777933.shtml)
-- 2026-06-29 18:22 - [葛军透露高考出题思路](http://www.share.minike.top/Article/details/262283.shtml)
+- 2026-06-29 18:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/33711923.shtml)
+- 2026-06-29 18:19 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/655273838857.shtml)
+- 2026-06-29 18:42 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/62483731.shtml)
+- 2026-06-29 18:31 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/245354.shtml)
+- 2026-06-29 18:25 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/00974.shtml)
+- 2026-06-29 18:46 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/2392925657.shtml)
+- 2026-06-29 18:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/768884876450.shtml)
+- 2026-06-29 18:37 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.minike.top/Article/details/439887242.shtml)
+- 2026-06-29 18:31 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/62853.shtml)
+- 2026-06-29 18:34 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/777073056988.shtml)
+- 2026-06-29 18:27 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/265006.shtml)
+- 2026-06-29 18:37 - [斗破苍穹](https://www.share.minike.top/Article/details/27463487.shtml)
+- 2026-06-29 18:23 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/130087067169.shtml)
+- 2026-06-29 18:47 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/33045806626.shtml)
+- 2026-06-29 18:40 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/34590832589.shtml)

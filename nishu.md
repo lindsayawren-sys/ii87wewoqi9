@@ -1,57 +1,56 @@
-# Wedbush：财报季为AI怀疑论者敲响“警钟”，英伟达财报在即
+# Nurix与罗氏达成23亿美元合作，股价飙升24%
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-投行Wedbush表示，本轮财报季为那些在场外观望AI革命的科技怀疑论者敲响了“警钟”，而英伟达即将发布的第一季度财报有望成为科技股的又一催化剂。 Wedbush分析师指出，近期多家科技公司的财报已清晰表明，企业级AI支出正在加速而非放缓。Palantir第一季度营收同比增长85%，创下上市以来最快增速，并上调全年指引至76.5亿美元；Datadog首次实现单季营收破10亿美元
+生物科技公司Nurix Therapeutics股价在盘前交易中大幅上涨约24%，此前该公司宣布与制药巨头罗氏达成一项全球合作协议，共同开发和商业化用于治疗癌症及自身免疫性疾病的蛋白降解剂bexobrutideg。 根据协议条款，Nurix将获得7亿美元的预付现金，并有资格获得最高达23亿美元的开发、监管及销售里程碑付款。在美国市场，双方将平分利润与亏损，并共同进行商业化推广；
 
 ## 正文
 
-投行Wedbush表示，本轮财报季为那些在场外观望AI革命的科技怀疑论者敲响了“警钟”，而英伟达即将发布的第一季度财报有望成为科技股的又一催化剂。
+生物科技公司Nurix Therapeutics股价在盘前交易中大幅上涨约24%，此前该公司宣布与制药巨头罗氏达成一项全球合作协议，共同开发和商业化用于治疗癌症及自身免疫性疾病的蛋白降解剂bexobrutideg。
 
-Wedbush分析师指出，近期多家科技公司的财报已清晰表明，企业级AI支出正在加速而非放缓。
+根据协议条款，Nurix将获得7亿美元的预付现金，并有资格获得最高达23亿美元的开发、监管及销售里程碑付款。
 
-Palantir第一季度营收同比增长85%，创下上市以来最快增速，并上调全年指引至76.5亿美元；Datadog首次实现单季营收破10亿美元，股价单日暴涨28%；Twilio也录得三年来最高增速。
+在美国市场，双方将平分利润与亏损，并共同进行商业化推广；在美国以外地区，罗氏将负责商业化，Nurix则可获得低至百分之十几的销售分成。
 
-这些业绩印证了AI正从概念走向实质性收入贡献。
+双方将按照Nurix承担40%、罗氏承担60%的比例分担开发成本。
 
-分析师强调，此前市场担忧Anthropic、OpenAI等大模型公司会“掏空”传统企业软件市场，形成了所谓的“AI幽灵交易”抛售潮。
+Bexobrutideg是一款口服、可穿透血脑屏障的高选择性BTK蛋白降解剂。
 
-但Salesforce、ServiceNow等软件巨头的实际表现表明，拥有企业分销渠道和垂直工作流的平台公司仍具有护城河。
+与传统BTK抑制剂仅阻断激酶活性不同，这款药物通过利用人体自身的蛋白质降解系统，能够彻底清除细胞内的BTK蛋白，从而消除其激酶活性和支架信号功能。
 
-每1美元投入英伟达芯片，可在科技生态中产生8至10美元的乘数效应。
+这一机制使其对已产生耐药突变的患者仍保持活性，在早期临床研究中，该药在慢性淋巴细胞白血病患者中展现出较高的总缓解率，包括那些对现有BTK抑制剂产生耐药的患者。
 
-市场目光现已聚焦于英伟达预计下周发布的2026财年第一季度财报。
+罗氏首席医学官兼全球产品开发负责人表示：“我们相信bexobrutideg代表着在对抗复杂血癌及其他疾病方面的重大飞跃。
 
 ## 相关推荐
 
-- 2026-06-29 18:22 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 18:18 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 18:30 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 18:25 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 18:32 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 18:29 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 18:23 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 18:20 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 18:24 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 18:36 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 18:23 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 18:19 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 18:27 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 18:18 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 18:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 18:35 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 18:41 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 18:43 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 18:23 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 18:37 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 18:23 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:38 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/4769997087.shtml)
-- 2026-06-29 18:23 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/85497082370.shtml)
-- 2026-06-29 18:41 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/33670591714.shtml)
-- 2026-06-29 18:28 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/92078.shtml)
-- 2026-06-29 18:35 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/27477.shtml)
-- 2026-06-29 18:19 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/8342813035.shtml)
-- 2026-06-29 18:18 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/51457386529.shtml)
-- 2026-06-29 18:18 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/74638093536.shtml)
-- 2026-06-29 18:36 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/80768603.shtml)
-- 2026-06-29 18:13 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/339834562910.shtml)
-- 2026-06-29 18:26 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/59683.shtml)
-- 2026-06-29 18:41 - [7款高价创新药有望降价](https://www.blog.kurohicncr.top/Article/details/7060451.shtml)
-- 2026-06-29 18:38 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/491608398243.shtml)
-- 2026-06-29 18:30 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/27869062609.shtml)
-- 2026-06-29 18:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/9321928.shtml)
+- 2026-06-29 18:35 - [女心理师](http://www.blog.minike.top/Article/details/08281772.shtml)
+- 2026-06-29 18:19 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/15067375.shtml)
+- 2026-06-29 18:31 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/85737414.shtml)
+- 2026-06-29 18:43 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/812649.shtml)
+- 2026-06-29 18:25 - [娜扎搂着我的腰和我合照](http://www.share.minike.top/Article/details/8597884803.shtml)
+- 2026-06-29 18:33 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/56532449779.shtml)
+- 2026-06-29 18:41 - [人形机器人](http://www.share.minike.top/Article/details/2853781.shtml)
+- 2026-06-29 18:32 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/42646006231.shtml)
+- 2026-06-29 18:45 - [张杰我九岁就跟你了](http://www.blog.kurohicncr.top/Article/details/5603794.shtml)
+- 2026-06-29 18:37 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/02350464450.shtml)
+- 2026-06-29 18:27 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/6249381.shtml)
+- 2026-06-29 18:46 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/55916.shtml)
+- 2026-06-29 18:26 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/383745141.shtml)
+- 2026-06-29 18:44 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/385630923.shtml)
+- 2026-06-29 18:32 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/7453092927.shtml)

@@ -1,58 +1,58 @@
-# 奋斗华章丨平凡亦有光 奋斗即力量
+# SpaceX影响力加深，xAI更换Grok训练负责人
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-五月的风，裹挟着劳动的滚烫与青春的赤诚，吹遍华夏大地。 当五一劳动节的实干荣光，邂逅朝气蓬勃的青春力量，“奋斗”二字便有了最生动的注脚：它藏在各行各业的坚守里，藏在无数人逐梦的征程上，更藏在每一位平凡劳动者、青年追光者的步履之下，是千千万万奋斗者共同的精神底色。 奋斗从无边界，纵跨山海，亦能破难前行。 来自大连团队研发的中国深海绞车，从南海的碧波奔赴北极的冰原，直面极寒考验，在
+一份内部备忘录显示，埃隆·马斯克旗下的人工智能公司xAI已从SpaceX的星链卫星互联网部门调入一名高管，由其负责Grok聊天机器人的模型训练团队。 新上任的是杰克·加拉贝迪安，他自2021年起在SpaceX担任星链项目工程师。加入xAI后，他将接管“人类数据团队”，该团队由数百名各领域专家组成，负责从金融到科学等专业方向对Grok进行训练。此前负责该团队的是年轻工程师迭戈·帕
 
 ## 正文
 
-五月的风，裹挟着劳动的滚烫与青春的赤诚，吹遍华夏大地。
+一份内部备忘录显示，埃隆·马斯克旗下的人工智能公司xAI已从SpaceX的星链卫星互联网部门调入一名高管，由其负责Grok聊天机器人的模型训练团队。
 
-当五一劳动节的实干荣光，邂逅朝气蓬勃的青春力量，“奋斗”二字便有了最生动的注脚：它藏在各行各业的坚守里，藏在无数人逐梦的征程上，更藏在每一位平凡劳动者、青年追光者的步履之下，是千千万万奋斗者共同的精神底色。
+新上任的是杰克·加拉贝迪安，他自2021年起在SpaceX担任星链项目工程师。
 
-奋斗从无边界，纵跨山海，亦能破难前行。
+加入xAI后，他将接管“人类数据团队”，该团队由数百名各领域专家组成，负责从金融到科学等专业方向对Grok进行训练。
 
-来自大连团队研发的中国深海绞车，从南海的碧波奔赴北极的冰原，直面极寒考验，在千里冰封中坚守使命，用硬核科技丈量深海与极地的距离，这是中国智造的奋斗底色。
+此前负责该团队的是年轻工程师迭戈·帕西尼，他于2023年高中毕业后因赢得xAI黑客马拉松而受到马斯克赏识。
 
-在宁波舟山港――世界第一大港，“急诊医生”与团队24小时待命，指尖磨泡仍坚守岗位，抢修航船、保障全球供应链畅通稳定，用坚守诠释“劳动创造价值”的真谛，让巨轮鸣笛远航，成为奋斗最动人的旋律。
+此次人事调整是xAI近期管理层大换血的最新一环。
 
-奋斗从不设限，无关年龄，皆可奔赴热爱。
+自2026年2月SpaceX完成对xAI的收购以来，马斯克正将其商业帝国的核心人马全面注入这家AI公司。
 
-在上海的科技前沿，一群平均不到35岁的青年科研者，扎根核电基地，啃下第四代核能“世界难题”，以青春热血攻克一个又一个技术壁垒，让全球首座第四代核电站落地生根，彰显青年一代的硬核担当。
+此前，SpaceX公司总裁格温妮·肖特韦尔已开始督导xAI运营，前星链高管迈克尔·尼科尔斯出任xAI总裁，SpaceX首席财务官布雷特·约翰森则同时督管xAI的财务运营。
 
-重庆32岁教授郭子文深耕“智造重庆”一线，以青年学者的锐气，织就空天地海一体化数字网络，用智慧为城市发展注入新动能，让青春在科技创新中绽放光彩。
+xAI正面临严峻挑战。
 
 ## 相关推荐
 
-- 2026-06-29 18:36 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 18:30 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 18:28 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 18:31 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 18:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 18:12 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 18:34 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 18:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 18:40 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 18:28 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 18:39 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 18:38 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 18:34 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 18:23 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 18:30 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 18:43 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 18:28 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 18:24 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 18:45 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 18:40 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 18:42 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 18:20 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 18:27 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 18:34 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:32 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/97794379.shtml)
-- 2026-06-29 18:36 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/84655.shtml)
-- 2026-06-29 18:13 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/66097928.shtml)
-- 2026-06-29 18:28 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/97801568.shtml)
-- 2026-06-29 18:12 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/269719.shtml)
-- 2026-06-29 18:18 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/6328597196.shtml)
-- 2026-06-29 18:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/882013079918.shtml)
-- 2026-06-29 18:16 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/7237197701.shtml)
-- 2026-06-29 18:20 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/84717915987.shtml)
-- 2026-06-29 18:25 - [起风了](http://www.blog.minike.top/Article/details/327208248694.shtml)
-- 2026-06-29 18:31 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/2344116964.shtml)
-- 2026-06-29 18:17 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/216168.shtml)
-- 2026-06-29 18:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/83216043578.shtml)
-- 2026-06-29 18:26 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/00442957515.shtml)
-- 2026-06-29 18:23 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/021196.shtml)
+- 2026-06-29 18:26 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/032709776088.shtml)
+- 2026-06-29 18:33 - [葛军透露高考出题思路](https://www.share.kurohicncr.top/Article/details/3355321.shtml)
+- 2026-06-29 18:32 - [斗破苍穹](http://www.share.minike.top/Article/details/67838535.shtml)
+- 2026-06-29 18:44 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/4960886276.shtml)
+- 2026-06-29 18:33 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/621512.shtml)
+- 2026-06-29 18:36 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.minike.top/Article/details/0981945061.shtml)
+- 2026-06-29 18:38 - [业内：全球市场迎来结构性投资窗口](https://www.blog.kurohicncr.top/Article/details/5469286.shtml)
+- 2026-06-29 18:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/27367092.shtml)
+- 2026-06-29 18:45 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/54665.shtml)
+- 2026-06-29 18:45 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/2270316447.shtml)
+- 2026-06-29 18:20 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/624163750420.shtml)
+- 2026-06-29 18:29 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/32443.shtml)
+- 2026-06-29 18:38 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/2148800020.shtml)
+- 2026-06-29 18:41 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/262282.shtml)
+- 2026-06-29 18:24 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/1495094.shtml)

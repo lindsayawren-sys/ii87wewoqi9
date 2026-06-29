@@ -1,58 +1,57 @@
-# “AI硅光芯片第一股”创始人：三次抉择见证科创与城市共生
+# 煤矿安监政策仍较严，供需矛盾或凸显
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-中新社上海5月10日电 题：“AI硅光芯片第一股”创始人：三次抉择见证科创与城市共生 作者 范宇斌 上海曦智科技股份有限公司董事长沈亦晨10日在第七届上海创新创业青年50人论坛上接受中新社采访时表示，创业路上的每一次取舍，皆坚守科创初心，而上海包容优质的科创生态，为硬核科技创业者筑牢发展底气。 曦智科技4月28日在港交所主板挂牌上市，成为全球“AI硅光芯片第一股”。沈亦晨用三个
+华闻期货 沪证监许可【2016】38号 今日期货市场涨跌互现 黑色板块中，焦炭与焦煤分别下跌6.66%、3.99%。有色板块中，碳酸锂上涨3.45%，多晶硅下跌3.55%。能化板块中，燃料油与BR橡胶分别下跌4.18%、3.79%。农产品板块中，生猪与鸡蛋均上涨1.36%。 01、焦煤 行情回顾 今日焦煤期货受陕西省煤矿保供预期增强的影响，价格大幅下跌，主力2609合约最大跌幅
 
 ## 正文
 
-中新社上海5月10日电 题：“AI硅光芯片第一股”创始人：三次抉择见证科创与城市共生 作者 范宇斌 上海曦智科技股份有限公司董事长沈亦晨10日在第七届上海创新创业青年50人论坛上接受中新社采访时表示，创业路上的每一次取舍，皆坚守科创初心，而上海包容优质的科创生态，为硬核科技创业者筑牢发展底气。
+华闻期货 沪证监许可【2016】38号 今日期货市场涨跌互现 黑色板块中，焦炭与焦煤分别下跌6.66%、3.99%。
 
-曦智科技4月28日在港交所主板挂牌上市，成为全球“AI硅光芯片第一股”。
+有色板块中，碳酸锂上涨3.45%，多晶硅下跌3.55%。
 
-沈亦晨用三个“选择”诠释一个主题：从实验室到上海，城市与青年的赋能与反哺。
+能化板块中，燃料油与BR橡胶分别下跌4.18%、3.79%。
 
-第一个选择，是告别学术舒适区，深耕硬核科创产业。
+农产品板块中，生猪与鸡蛋均上涨1.36%。
 
-毕业于麻省理工学院的沈亦晨，始终秉持“科技需创造实用价值”的初心。
+01、焦煤 行情回顾 今日焦煤期货受陕西省煤矿保供预期增强的影响，价格大幅下跌，主力2609合约最大跌幅到达跌停板8%的水平。
 
-博士期间，他深耕纳米光学领域，最初探索太阳能电板应用方向，却遭遇材料易变质的技术瓶颈。
+研究所 波动逻辑 焦煤大幅下跌原因： （1）煤矿保供预期增强。
 
-后续他发现硅光技术可大幅提升AI计算能效与速率，果断锁定这一赛道。
+据财联社6月8日消息，陕西省发改委发布了关于做好2026迎峰度夏能源保供工作的通知。
 
-2016年博士毕业，他放弃大厂与高校的安稳机会，毅然投身创业，跳出学术研究的确定性，直面产业落地的挑战，立志让前沿技术赋能实体产业。
+通知要求煤炭企业在安全前提下依法合规释放先进产能，做到应产尽产，稳产增产。
 
 ## 相关推荐
 
-- 2026-06-29 18:34 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 18:35 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 18:24 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 18:36 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 18:39 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 18:33 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 18:37 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 18:24 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 18:13 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 18:39 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 18:14 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 18:32 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 18:43 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 18:35 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 18:36 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 18:24 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 18:18 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 18:36 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 18:18 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 18:47 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 18:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 18:43 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 18:24 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:22 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/85412060784.shtml)
-- 2026-06-29 18:13 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/525514177.shtml)
-- 2026-06-29 18:22 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/80904813.shtml)
-- 2026-06-29 18:40 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/89579996001.shtml)
-- 2026-06-29 18:23 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/705670.shtml)
-- 2026-06-29 18:18 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/538137155.shtml)
-- 2026-06-29 18:25 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/7735119.shtml)
-- 2026-06-29 18:40 - [流金岁月](http://www.share.minike.top/Article/details/1844000450.shtml)
-- 2026-06-29 18:13 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/7440945.shtml)
-- 2026-06-29 18:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/63035119.shtml)
-- 2026-06-29 18:13 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/053964760390.shtml)
-- 2026-06-29 18:34 - [世界杯在中国观看最多的比赛](https://www.blog.minike.top/Article/details/024695103552.shtml)
-- 2026-06-29 18:23 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/9138117702.shtml)
-- 2026-06-29 18:20 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/71178.shtml)
-- 2026-06-29 18:36 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/537000862.shtml)
+- 2026-06-29 18:31 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/96441692.shtml)
+- 2026-06-29 18:42 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/00728.shtml)
+- 2026-06-29 18:21 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/54109.shtml)
+- 2026-06-29 18:41 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/171490740997.shtml)
+- 2026-06-29 18:44 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/338777885.shtml)
+- 2026-06-29 18:37 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/723494138143.shtml)
+- 2026-06-29 18:21 - [挪威王储妃长子两次强奸获刑](http://www.blog.minike.top/Article/details/0400615.shtml)
+- 2026-06-29 18:46 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/07504251278.shtml)
+- 2026-06-29 18:25 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/38067438.shtml)
+- 2026-06-29 18:24 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/887667880061.shtml)
+- 2026-06-29 18:19 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/886683839393.shtml)
+- 2026-06-29 18:44 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/9049355.shtml)
+- 2026-06-29 18:35 - [逆天祖国人](http://www.share.minike.top/Article/details/0139938835.shtml)
+- 2026-06-29 18:36 - [挪威王储妃长子两次强奸获刑](http://www.blog.minike.top/Article/details/9058838.shtml)
+- 2026-06-29 18:30 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/5664029.shtml)

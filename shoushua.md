@@ -1,61 +1,58 @@
-# CPI保持温和回升、PPI涨幅扩大——透视4月份物价数据
+# 国家数据局：培育一批数据标注龙头企业、独角兽企业、瞪羚企业，壮大数据标注产业
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-新华社北京5月11日电 题：CPI保持温和回升、PPI涨幅扩大——透视4月份物价数据 新华社记者黄垚、王雨萧 国家统计局11日发布数据显示，4月份，全国居民消费价格指数(CPI)同比上涨1.2%，扣除食品和能源价格的核心CPI同比上涨1.2%。工业生产者出厂价格指数(PPI)同比上涨2.8%，涨幅比上月有所扩大。 4月份，CPI同比保持温和回升，涨幅比上月扩大0.2个百分点。具
+6月8日消息，国家数据局印发《关于推进行业高质量数据集建设行动的实施方案》。方案提出，持续推动数据标注先行先试。指导首批七个承担数据标注先行先试任务的城市，持续做强做深数据标注产业。面向创新能力强、发展基础好、产业特色优的地区，梯次布局一批数据标注创新试验区。有序引导具备条件的地区因地制宜开展试验区建设，促进数据标注产业链上下游紧密协同，形成产业集聚效应。培育一批数据标注龙头企
 
 ## 正文
 
-新华社北京5月11日电 题：CPI保持温和回升、PPI涨幅扩大——透视4月份物价数据 新华社记者黄垚、王雨萧 国家统计局11日发布数据显示，4月份，全国居民消费价格指数(CPI)同比上涨1.2%，扣除食品和能源价格的核心CPI同比上涨1.2%。
+6月8日消息，国家数据局印发《关于推进行业高质量数据集建设行动的实施方案》。
 
-工业生产者出厂价格指数(PPI)同比上涨2.8%，涨幅比上月有所扩大。
+方案提出，持续推动数据标注先行先试。
 
-4月份，CPI同比保持温和回升，涨幅比上月扩大0.2个百分点。
+指导首批七个承担数据标注先行先试任务的城市，持续做强做深数据标注产业。
 
-具体来看，非食品价格同比上涨1.8%，消费品价格上涨1.4%，服务价格上涨0.9%。
+面向创新能力强、发展基础好、产业特色优的地区，梯次布局一批数据标注创新试验区。
 
-国家统计局城市司首席统计师董莉娟说，工业消费品价格同比上涨3.5%，涨幅比上月扩大1.3个百分点。
+有序引导具备条件的地区因地制宜开展试验区建设，促进数据标注产业链上下游紧密协同，形成产业集聚效应。
 
-受国际大宗商品价格波动影响，国内汽油和黄金饰品价格变动较大，其中汽油价格涨幅扩大至19.3%，黄金饰品价格涨幅回落至46.9%。
+培育一批数据标注龙头企业、独角兽企业、瞪羚企业，壮大数据标注产业。
 
-从环比看，CPI由上月下降0.7%转为上涨0.3%，高于季节性水平0.4个百分点。
-
-“受国际原油价格波动影响，国内能源价格环比上涨5.7%，其中汽油价格上涨12.6%。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 18:26 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 18:38 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 18:28 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 18:18 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 18:20 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 18:36 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 18:17 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 18:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 18:35 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 18:22 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 18:15 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 18:13 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 18:25 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 18:27 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 18:20 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 18:44 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 18:33 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 18:32 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 18:37 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 18:34 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 18:35 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 18:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 18:45 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 18:31 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 18:25 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 18:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 18:45 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 18:26 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 18:40 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:27 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/86723801.shtml)
-- 2026-06-29 18:28 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/605498279.shtml)
-- 2026-06-29 18:29 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/81713796040.shtml)
-- 2026-06-29 18:12 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/16333.shtml)
-- 2026-06-29 18:27 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/924817191990.shtml)
-- 2026-06-29 18:37 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/16037.shtml)
-- 2026-06-29 18:28 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/425456857.shtml)
-- 2026-06-29 18:12 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/89417454410.shtml)
-- 2026-06-29 18:41 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/73958.shtml)
-- 2026-06-29 18:17 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/2515963.shtml)
-- 2026-06-29 18:27 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/64082230.shtml)
-- 2026-06-29 18:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/64494075978.shtml)
-- 2026-06-29 18:21 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/40556648.shtml)
-- 2026-06-29 18:16 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.minike.top/Article/details/03846699.shtml)
-- 2026-06-29 18:24 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/632068216571.shtml)
+- 2026-06-29 18:35 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/013987.shtml)
+- 2026-06-29 18:34 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/89335.shtml)
+- 2026-06-29 18:42 - [啊啊啊](http://www.blog.minike.top/Article/details/18775352.shtml)
+- 2026-06-29 18:39 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/227352315.shtml)
+- 2026-06-29 18:26 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/3025275.shtml)
+- 2026-06-29 18:37 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/5408564.shtml)
+- 2026-06-29 18:26 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/564921.shtml)
+- 2026-06-29 18:33 - [扩军害了世界杯吗](http://www.share.minike.top/Article/details/62379237977.shtml)
+- 2026-06-29 18:46 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/9984647657.shtml)
+- 2026-06-29 18:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/03497.shtml)
+- 2026-06-29 18:34 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/207643981.shtml)
+- 2026-06-29 18:47 - [扩军害了世界杯吗](https://www.blog.kurohicncr.top/Article/details/349759897.shtml)
+- 2026-06-29 18:30 - [女心理师](http://www.blog.kurohicncr.top/Article/details/582310364.shtml)
+- 2026-06-29 18:27 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/90450.shtml)
+- 2026-06-29 18:32 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/16828.shtml)

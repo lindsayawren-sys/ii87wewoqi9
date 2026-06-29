@@ -1,56 +1,59 @@
-# 一键连接或成一键失守 国安机关揭露蓝牙设备背后的窃密陷阱
+# 新华社评论员：把中朝传统友谊传承好发扬好
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-在科技飞速发展的当下，无线耳机、智能手表、无线键盘等蓝牙设备凭借“一键连接”带来的便捷优势，已广泛应用于日常工作和生活。然而，这些提升效率的“神器”，可能潜藏安全风险。不法分子可能利用蓝牙技术漏洞，非法获取个人信息甚至实施窃密行为，威胁公民隐私与国家秘密安全。主动连接变被动失守 蓝牙连接的“配对提示”背后，信号广播、协议认证等环节若存在漏洞，就有可能被别有用心之人进行针对性攻击
+新华社北京6月8日电 题：把中朝传统友谊传承好发扬好 新华社评论员 在赴平壤对朝鲜民主主义人民共和国进行国事访问之际，中共中央总书记、国家主席习近平在朝鲜《劳动新闻》发表题为《继往开来、砥砺同行 续写中朝传统友谊崭新篇章》的署名文章。习近平总书记深情回顾中朝传统友谊，全面总结中朝关系发展的经验启迪，从战略高度把握中朝关系，为推动两国关系与时俱进、得到更大发展指明方向。 岁月共磨
 
 ## 正文
 
-在科技飞速发展的当下，无线耳机、智能手表、无线键盘等蓝牙设备凭借“一键连接”带来的便捷优势，已广泛应用于日常工作和生活。
+新华社北京6月8日电 题：把中朝传统友谊传承好发扬好 新华社评论员 在赴平壤对朝鲜民主主义人民共和国进行国事访问之际，中共中央总书记、国家主席习近平在朝鲜《劳动新闻》发表题为《继往开来、砥砺同行 续写中朝传统友谊崭新篇章》的署名文章。
 
-然而，这些提升效率的“神器”，可能潜藏安全风险。
+习近平总书记深情回顾中朝传统友谊，全面总结中朝关系发展的经验启迪，从战略高度把握中朝关系，为推动两国关系与时俱进、得到更大发展指明方向。
 
-不法分子可能利用蓝牙技术漏洞，非法获取个人信息甚至实施窃密行为，威胁公民隐私与国家秘密安全。
+岁月共磨砺，烈火见真金。
 
-主动连接变被动失守 蓝牙连接的“配对提示”背后，信号广播、协议认证等环节若存在漏洞，就有可能被别有用心之人进行针对性攻击，远程窃听通话内容、获取设备定位、掌握个人信息，造成数据信息泄露。
+中朝两国是守望相助、命运与共的社会主义友好邻邦。
 
-——静默监听。
+中朝传统友谊是两党两国和两国人民共同的宝贵财富。
 
-部分设备存在未修复的固件漏洞，攻击者能针对性对其实施静默强制配对，并在数秒内实现近距离接管音频播放、利用麦克风进行环境窃听等行为。
+无论时代如何变迁、国际形势如何变化，中朝传统友谊始终牢不可破、历久弥坚，不断焕发蓬勃生机活力。
 
-——数据窃取。
+今年是中朝建交77周年，也是《中朝友好合作互助条约》签订65周年。
 
-部分智能设备使用直接工作配对模式，不认证指令来源。
+回顾中朝关系发展历程，习近平总书记深刻指出：最高层战略引领是中朝关系的最大优势，社会主义共同理想是中朝关系的鲜明底色，命运与共的传统友谊是中朝关系的深厚根基，高水平战略协作是中朝关系的时代内涵。
 
 ## 相关推荐
 
-- 2026-06-29 18:14 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 18:38 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 18:23 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 18:14 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 18:20 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 18:15 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 18:39 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 18:29 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 18:33 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 18:21 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 18:36 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 18:46 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 18:37 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 18:47 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 18:29 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 18:34 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 18:33 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 18:46 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 18:22 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 18:46 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 18:32 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 18:32 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 18:34 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:27 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/2479497225.shtml)
-- 2026-06-29 18:21 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/00085.shtml)
-- 2026-06-29 18:41 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.minike.top/Article/details/24274319.shtml)
-- 2026-06-29 18:29 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/90132349.shtml)
-- 2026-06-29 18:40 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/877101.shtml)
-- 2026-06-29 18:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/9819796.shtml)
-- 2026-06-29 18:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/8284101391.shtml)
-- 2026-06-29 18:14 - [刘扬任湖南省副省长](http://www.blog.minike.top/Article/details/3310312.shtml)
-- 2026-06-29 18:34 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/388404.shtml)
-- 2026-06-29 18:34 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/07324.shtml)
-- 2026-06-29 18:28 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/83406695.shtml)
-- 2026-06-29 18:40 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/34364.shtml)
-- 2026-06-29 18:41 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/677637.shtml)
-- 2026-06-29 18:18 - [T1 KC](http://www.share.kurohicncr.top/Article/details/5333504309.shtml)
-- 2026-06-29 18:23 - [扫黑风暴](http://www.share.minike.top/Article/details/288272627.shtml)
+- 2026-06-29 18:18 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/76710.shtml)
+- 2026-06-29 18:18 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/43538.shtml)
+- 2026-06-29 18:24 - [美人鱼](https://www.blog.minike.top/Article/details/71548591.shtml)
+- 2026-06-29 18:34 - [叠纸客服回应恋与深空新角色争议](http://www.blog.kurohicncr.top/Article/details/61102863311.shtml)
+- 2026-06-29 18:42 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/01566702087.shtml)
+- 2026-06-29 18:38 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/83531821.shtml)
+- 2026-06-29 18:34 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/66814.shtml)
+- 2026-06-29 18:29 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/578729741.shtml)
+- 2026-06-29 18:44 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/22492.shtml)
+- 2026-06-29 18:33 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/4053028.shtml)
+- 2026-06-29 18:36 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/664799404437.shtml)
+- 2026-06-29 18:29 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/00525021.shtml)
+- 2026-06-29 18:35 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/473367737747.shtml)
+- 2026-06-29 18:43 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/798079530369.shtml)
+- 2026-06-29 18:46 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/358034403889.shtml)

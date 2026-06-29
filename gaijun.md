@@ -1,58 +1,58 @@
-# 事关熊猫金币投资消费，中国金币发布风险提示
+# 焦点访谈｜从水下到太空 我国海洋观测实现质的飞跃
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-5月9日金融一线消息，中国金币集团有限公司发布《关于熊猫金币投资消费有关事宜的风险提示》。提示称，熊猫金币于1982年首次发行，历经不断升级发展，始终致力于服务广大集藏投资者。2013年免税政策实施以来，熊猫金币因其法定货币属性及投资收藏双重价值，广受消费者青睐。截至目前，中国金币集团有限公司已与16家商业银行及309家授权经销商就熊猫币业务建立合作关系，全国回购网点达181个
+央视网消息(焦点访谈)：6月8日是第18个世界海洋日，也是我国第19个全国海洋宣传日。中国拥有总长约3.2万公里的海岸线，海域辽阔，接近陆地领土面积的三分之一。推进中国式现代化，必须高效开发利用海洋，推动海洋经济高质量发展，走出一条具有中国特色的向海图强之路。那么，该如何守护好我们身边的这片蔚蓝、向海图强，推动海洋经济高质量发展呢？周智是海南大学珊瑚礁保护团队核心成员，从事珊瑚
 
 ## 正文
 
-5月9日金融一线消息，中国金币集团有限公司发布《关于熊猫金币投资消费有关事宜的风险提示》。
+央视网消息(焦点访谈)：6月8日是第18个世界海洋日，也是我国第19个全国海洋宣传日。
 
-提示称，熊猫金币于1982年首次发行，历经不断升级发展，始终致力于服务广大集藏投资者。
+中国拥有总长约3.2万公里的海岸线，海域辽阔，接近陆地领土面积的三分之一。
 
-2013年免税政策实施以来，熊猫金币因其法定货币属性及投资收藏双重价值，广受消费者青睐。
+推进中国式现代化，必须高效开发利用海洋，推动海洋经济高质量发展，走出一条具有中国特色的向海图强之路。
 
-截至目前，中国金币集团有限公司已与16家商业银行及309家授权经销商就熊猫币业务建立合作关系，全国回购网点达181个，切实为广大消费者提供了规范便捷的投资变现渠道。
+那么，该如何守护好我们身边的这片蔚蓝、向海图强，推动海洋经济高质量发展呢？
 
-近期，黄金价格持续波动，黄金市场热度攀升，违规经营及金融活动有所抬头，甚至有部分市场主体以中国人民银行和中国金币集团有限公司名义开展违规经营活动。
+周智是海南大学珊瑚礁保护团队核心成员，从事珊瑚礁保护和研究10多年。
 
-相关监管部门进一步加强对黄金市场的合规审查与风险防控，明确划定企业黄金业务禁止性行为边界。
+2025年开始，周智博士和他的团队在三亚珊瑚礁国家级自然保护区，有了一整套对珊瑚礁生态系统全方位实时监测的网络。
 
-为切实保护集藏投资者利益，结合熊猫金币业务实际，现就有关风险事宜提示如下： 一、中国金币集团有限公司与商业银行、中国金币特许零售商、熊猫普制金币授权经销商的合作关系仅限于合规现货购销业务，合作范围严格限制为实物现货交易，不涉及任何超出该范围的金融业务或变相经营活动。
+今天潜水的任务不仅要记录珊瑚礁的恢复情况，也要对这套监测系统进行日常维护。
 
-二、中国金币集团有限公司未授权且严禁任何合作机构开展以下熊猫金币交易业务：（一）诱导消费者不提取实物，变相开展黄金委托理财、代客投资等类金融业务；（二）预定价交易、杠杆交易、延期交易等变相类期货业务；（三）以托管、租赁、回购等为名义，向客户作出保底收益、刚性兑付、固定收益回报等违规承诺；（四）其他违反国家监管规定及行业规范的变相违规金融活动。
+2025年，周智团队负责的“三亚珊瑚礁生态研究所科研基地”同时挂牌成为“海南珊瑚礁监测科技创新平台”。
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 18:37 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 18:30 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 18:30 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 18:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 18:33 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 18:16 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 18:24 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 18:12 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 18:19 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 18:12 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 18:29 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 18:32 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 18:38 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 18:26 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 18:45 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 18:30 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 18:25 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 18:35 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 18:28 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 18:45 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 18:44 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 18:29 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 18:47 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:36 - [逃狱兄弟](http://www.share.minike.top/Article/details/67164144.shtml)
-- 2026-06-29 18:38 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.minike.top/Article/details/2034576.shtml)
-- 2026-06-29 18:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/852344579.shtml)
-- 2026-06-29 18:14 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/4034254.shtml)
-- 2026-06-29 18:21 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/040307887.shtml)
-- 2026-06-29 18:24 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/6688202.shtml)
-- 2026-06-29 18:34 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/470887.shtml)
-- 2026-06-29 18:35 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/526631794.shtml)
-- 2026-06-29 18:23 - [学者：建设性战略稳定重塑中美关系](http://www.share.kurohicncr.top/Article/details/200730028736.shtml)
-- 2026-06-29 18:23 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/955868.shtml)
-- 2026-06-29 18:20 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/36919845128.shtml)
-- 2026-06-29 18:24 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/74265426.shtml)
-- 2026-06-29 18:16 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/593266736.shtml)
-- 2026-06-29 18:40 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/072727212172.shtml)
-- 2026-06-29 18:41 - [逆天祖国人](https://www.blog.minike.top/Article/details/800009846.shtml)
+- 2026-06-29 18:34 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/573970551.shtml)
+- 2026-06-29 18:24 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/96875672.shtml)
+- 2026-06-29 18:25 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/024240231.shtml)
+- 2026-06-29 18:27 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/53032860.shtml)
+- 2026-06-29 18:38 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/2868820.shtml)
+- 2026-06-29 18:24 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/524632.shtml)
+- 2026-06-29 18:34 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/91325617.shtml)
+- 2026-06-29 18:38 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/0482497.shtml)
+- 2026-06-29 18:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/99994.shtml)
+- 2026-06-29 18:45 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/310766991.shtml)
+- 2026-06-29 18:44 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/937289340.shtml)
+- 2026-06-29 18:35 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/745499754468.shtml)
+- 2026-06-29 18:19 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/548216.shtml)
+- 2026-06-29 18:23 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/6279582816.shtml)
+- 2026-06-29 18:46 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/382766752.shtml)

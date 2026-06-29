@@ -1,56 +1,61 @@
-# “广东服务”何以亮剑争锋？
+# （粤港澳大湾区）中国企业“走出去”NQI·ESG双平台首批合作伙伴在穗签约
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-今年5月10日是第十个中国品牌日。走过十年，中国品牌日见证了品牌价值与产业软实力的重要性日益深入人心，也捕捉到新征程开局之际吹来的“品牌新风”。 2026年，“服务品牌”成为最受大众关注的热词之一。从习近平总书记强调培育更多“中国服务”品牌，努力开创服务业高质量发展新局面，到政府工作报告提出健全服务业国家标准，培育“中国服务”品牌，再到国家发展改革委明确提出用好中国品牌日平台强
+中新社广州6月8日电 (记者 王坚)粤港澳大湾区(广州南沙)检验检测认证产业高质量发展交流活动8日在广州南沙举办。活动现场，中国企业“走出去”NQI(国家质量基础设施)·ESG(环境、社会和公司治理)双平台首批合作伙伴进行签约。据南沙区政府介绍，此次活动通过产业推介、现场签约、政企对接等环节，展示南沙在检验检测认证领域的综合优势与发展前景。目前，南沙累计吸引超3000家港澳企业
 
 ## 正文
 
-今年5月10日是第十个中国品牌日。
+中新社广州6月8日电 (记者 王坚)粤港澳大湾区(广州南沙)检验检测认证产业高质量发展交流活动8日在广州南沙举办。
 
-走过十年，中国品牌日见证了品牌价值与产业软实力的重要性日益深入人心，也捕捉到新征程开局之际吹来的“品牌新风”。
+活动现场，中国企业“走出去”NQI(国家质量基础设施)·ESG(环境、社会和公司治理)双平台首批合作伙伴进行签约。
 
-2026年，“服务品牌”成为最受大众关注的热词之一。
+据南沙区政府介绍，此次活动通过产业推介、现场签约、政企对接等环节，展示南沙在检验检测认证领域的综合优势与发展前景。
 
-从习近平总书记强调培育更多“中国服务”品牌，努力开创服务业高质量发展新局面，到政府工作报告提出健全服务业国家标准，培育“中国服务”品牌，再到国家发展改革委明确提出用好中国品牌日平台强化“中国服务”塑造，一系列部署彰显了国家全力推进服务品牌建设、助力服务业扩能提质的坚定决心。
+目前，南沙累计吸引超3000家港澳企业、超1.1万名港澳居民在南沙发展；在规则衔接领域，南沙积极推进粤港澳检测认证互通互认，辖区企业累计发布25项“湾区标准”。
 
-最新数据显示，2026年一季度，我国服务业增加值达20.6万亿元，同比增长5.2%，占国内生产总值比重61.7%，对经济增长的贡献率达63.2%。
+南沙区副区长杨帆表示，南沙将持续落实质量强区扶持政策，优化产业发展生态，搭建“检测+认证+标准+合规”全链条服务体系，推动检验检测产业与先进制造、跨境贸易、现代农业等业态深度融合。
 
-服务业赋能中国经济从“大而全”到“精且深”的时代浪潮已不可抵挡地涌来。
+据悉，中国企业“走出去”NQI·ESG双平台由南沙开发建设集团、南沙科金控股集团联合中国企业“走出去”综合服务中心牵头打造。
 
-马年首个工作日，广东率先提出擦亮“广东制造”“广东服务”双品牌。
+该平台立足南沙对外开放门户优势，融合NQI质量基础设施与ESG绿色合规两大服务体系。
 
-在中国品牌日当天，广东启动2026年“广东服务”提升推广行动，抢跑培育“中国服务”品牌新赛道。
+南沙区政府表示，中国企业“走出去”NQI·ESG双平台将聚焦外贸企业出海痛点，一站式提供检测认证、碳核查、ESG评价等全链条服务，助力企业化解绿色贸易壁垒。
 
 ## 相关推荐
 
-- 2026-06-29 18:34 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 18:25 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 18:27 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 18:23 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 18:38 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 18:25 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 18:27 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 18:41 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 18:29 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 18:18 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 18:31 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 18:39 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 18:38 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 18:38 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 18:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 18:23 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 18:36 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 18:45 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 18:30 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 18:41 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 18:31 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 18:41 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 18:23 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 18:27 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 18:40 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:12 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/2546845.shtml)
-- 2026-06-29 18:35 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.minike.top/Article/details/602213047395.shtml)
-- 2026-06-29 18:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/422403271581.shtml)
-- 2026-06-29 18:12 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/53775027.shtml)
-- 2026-06-29 18:25 - [税务总局披露5起合规申报个税案例](http://www.share.minike.top/Article/details/097793333828.shtml)
-- 2026-06-29 18:41 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/2765197710.shtml)
-- 2026-06-29 18:33 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/432767268847.shtml)
-- 2026-06-29 18:35 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/195675276.shtml)
-- 2026-06-29 18:28 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/07698.shtml)
-- 2026-06-29 18:29 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/049867.shtml)
-- 2026-06-29 18:40 - [金刚川](https://www.share.kurohicncr.top/Article/details/178101.shtml)
-- 2026-06-29 18:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/3262359028.shtml)
-- 2026-06-29 18:41 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/0199758.shtml)
-- 2026-06-29 18:15 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/59010.shtml)
-- 2026-06-29 18:16 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/83508264632.shtml)
+- 2026-06-29 18:47 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/25907.shtml)
+- 2026-06-29 18:43 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/53202.shtml)
+- 2026-06-29 18:33 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/9398401.shtml)
+- 2026-06-29 18:36 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/03509906341.shtml)
+- 2026-06-29 18:40 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/32862.shtml)
+- 2026-06-29 18:32 - [挪威王储妃长子2次强奸被判4年](http://www.share.minike.top/Article/details/988433139.shtml)
+- 2026-06-29 18:27 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/4575655.shtml)
+- 2026-06-29 18:18 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/444206826044.shtml)
+- 2026-06-29 18:44 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/656987.shtml)
+- 2026-06-29 18:23 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/78844.shtml)
+- 2026-06-29 18:22 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/496523095812.shtml)
+- 2026-06-29 18:31 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/5077004.shtml)
+- 2026-06-29 18:28 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/116102902322.shtml)
+- 2026-06-29 18:47 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/92002591.shtml)
+- 2026-06-29 18:19 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/6466731.shtml)

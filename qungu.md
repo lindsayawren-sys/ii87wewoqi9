@@ -1,61 +1,53 @@
-# 重庆：国内首部长江题材幻境杂技剧开启常态化驻演
+# “十五五”现代化应急体系这样建设
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-价格腰斩！今年小龙虾为何这么便宜？她带着500万美元，义无反顾回国英伟达重金押注光连接，AI的下一战场或在光纤住进“全李酒店”“又庭酒店”，能索赔吗？岛内学者：赖清德媚日到无耻无骨无格，是台湾悲哀《目瑙纵歌》爆火，这位80后北京音乐人有更大的计划为何刘涛是妈祖文化全球推广大使？香港何时能加入RCEP？还想用“双标定价”收割中国市场？国际足联该看看这些前车之鉴今年首轮高温过程来袭
+国务院日前印发《现代化应急体系建设“十五五”规划》，对“十五五”时期安全生产、防灾减灾救灾等工作作出部署。 规划安排了五大类共17项重点工程，部署了深化应急管理改革创新、推动构建大安全大应急格局，突出风险源头管控、加快治理模式向事前预防转型，优化应急力量布局、提升大灾巨灾应对处置能力，强化全要素支撑、健全重特大突发事件处置保障体系，夯实基层应急基础、提高全社会防灾避险能力等五方
 
 ## 正文
 
-价格腰斩！
+国务院日前印发《现代化应急体系建设“十五五”规划》，对“十五五”时期安全生产、防灾减灾救灾等工作作出部署。
 
-今年小龙虾为何这么便宜？
+规划安排了五大类共17项重点工程，部署了深化应急管理改革创新、推动构建大安全大应急格局，突出风险源头管控、加快治理模式向事前预防转型，优化应急力量布局、提升大灾巨灾应对处置能力，强化全要素支撑、健全重特大突发事件处置保障体系，夯实基层应急基础、提高全社会防灾避险能力等五方面重点任务。
 
-她带着500万美元，义无反顾回国英伟达重金押注光连接，AI的下一战场或在光纤住进“全李酒店”“又庭酒店”，能索赔吗？
+规划提出，到2030年，我国应急管理体系和能力现代化建设取得明显进展，以事前预防为主的治理模式有效建立。
 
-岛内学者：赖清德媚日到无耻无骨无格，是台湾悲哀《目瑙纵歌》爆火，这位80后北京音乐人有更大的计划为何刘涛是妈祖文化全球推广大使？
-
-香港何时能加入RCEP？
-
-还想用“双标定价”收割中国市场？
-
-国际足联该看看这些前车之鉴今年首轮高温过程来袭，之后要一直热下去了吗？
-
-一纸侨批寄深情 《给阿嬷的情书》出圈带来何种启示？
+记者：黄韬铭 海报制作：黄韬铭 新华社国内部出品
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 18:32 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 18:38 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 18:35 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 18:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 18:28 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 18:19 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 18:30 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 18:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 18:19 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 18:14 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 18:15 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 18:34 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 18:40 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 18:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 18:46 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 18:28 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 18:27 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 18:27 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 18:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 18:45 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 18:44 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 18:18 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 18:43 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 18:36 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 18:29 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 18:27 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 18:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 18:27 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 18:19 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:41 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/17595.shtml)
-- 2026-06-29 18:36 - [T1 KC](https://www.share.kurohicncr.top/Article/details/11310135.shtml)
-- 2026-06-29 18:14 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/056738656900.shtml)
-- 2026-06-29 18:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/9135427.shtml)
-- 2026-06-29 18:14 - [货车司机雨中帮交警挪树获表扬](http://www.share.minike.top/Article/details/49159441979.shtml)
-- 2026-06-29 18:33 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/24191.shtml)
-- 2026-06-29 18:24 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/2188980.shtml)
-- 2026-06-29 18:19 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/5870070938.shtml)
-- 2026-06-29 18:22 - [永远有话聊的原因](http://www.share.minike.top/Article/details/926214111586.shtml)
-- 2026-06-29 18:41 - [papi酱在救赎窦文涛](http://www.share.kurohicncr.top/Article/details/69506321973.shtml)
-- 2026-06-29 18:37 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/7481565448.shtml)
-- 2026-06-29 18:32 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/68520387271.shtml)
-- 2026-06-29 18:25 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/7038451.shtml)
-- 2026-06-29 18:38 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.minike.top/Article/details/02690166497.shtml)
-- 2026-06-29 18:36 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/84993644002.shtml)
+- 2026-06-29 18:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/26953.shtml)
+- 2026-06-29 18:45 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/466750311.shtml)
+- 2026-06-29 18:30 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/75025800002.shtml)
+- 2026-06-29 18:32 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/9403691.shtml)
+- 2026-06-29 18:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/650279.shtml)
+- 2026-06-29 18:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/71890.shtml)
+- 2026-06-29 18:45 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/473415839.shtml)
+- 2026-06-29 18:41 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/9475444672.shtml)
+- 2026-06-29 18:20 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.kurohicncr.top/Article/details/793148843.shtml)
+- 2026-06-29 18:30 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/560922587.shtml)
+- 2026-06-29 18:24 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/43204.shtml)
+- 2026-06-29 18:24 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/04876279.shtml)
+- 2026-06-29 18:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/729676142.shtml)
+- 2026-06-29 18:30 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/236543543.shtml)
+- 2026-06-29 18:35 - [人类对空调和其他家电有多双标](http://www.share.minike.top/Article/details/98953.shtml)

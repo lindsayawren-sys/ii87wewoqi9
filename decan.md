@@ -1,58 +1,57 @@
-# 宗馥莉罢免销售负责人，部分非生产业务将外包
+# ETF日报：市场波动加大环境下，煤炭企业较高股息率，为股价提供坚实估值安全垫，关注煤炭ETF
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 赵晓娟 界面新闻编辑 | 牙韩翔 娃哈哈和宏胜饮料在去年经历一系列人事波动后，今年再次迎来核心部门人员的变动。 5月11日，界面新闻获得的一份宏胜饮料集团发布的组织架构调整及人员任免通知。其中一个重点是：将营销中心划归总裁统筹直管；营销中心总监兼销售公司总经理吴汀燕被免职。宏胜饮料集团的总裁即为宗馥莉。 同时，对销售公司内设科室整合重组，组成两大科室：商超特通
+今日A股市场大幅下跌。上证指数失守4000点关口，下跌1.70%报收3959.34点；深证成指重挫3.22%，报收14821.19点。两市成交共计2.82万亿元，较前一交易日有所缩量。盘面上下跌个股近4600家，各大板块几乎悉数下跌，仅工程机械、石油天然气等板块逆势上涨，贵金属、半导体等行业则领跌。消息面上，美国5月超预期强劲的非农就业数据引发市场对美联储年内不再降息的担忧，全
 
 ## 正文
 
-界面新闻记者 | 赵晓娟 界面新闻编辑 | 牙韩翔 娃哈哈和宏胜饮料在去年经历一系列人事波动后，今年再次迎来核心部门人员的变动。
+今日A股市场大幅下跌。
 
-5月11日，界面新闻获得的一份宏胜饮料集团发布的组织架构调整及人员任免通知。
+上证指数失守4000点关口，下跌1.70%报收3959.34点；深证成指重挫3.22%，报收14821.19点。
 
-其中一个重点是：将营销中心划归总裁统筹直管；营销中心总监兼销售公司总经理吴汀燕被免职。
+两市成交共计2.82万亿元，较前一交易日有所缩量。
 
-宏胜饮料集团的总裁即为宗馥莉。
+盘面上下跌个股近4600家，各大板块几乎悉数下跌，仅工程机械、石油天然气等板块逆势上涨，贵金属、半导体等行业则领跌。
 
-同时，对销售公司内设科室整合重组，组成两大科室：商超特通管理科和渠道管理科，新科室承接原有全部业务职能。
+消息面上，美国5月超预期强劲的非农就业数据引发市场对美联储年内不再降息的担忧，全球股市普遍大跌。
 
-简单说，宏胜饮料集团和娃哈哈品牌的“营销中心”更像是管理和运营体系，“销售公司”则是具体承接经销商、渠道和回款的实体公司，两者是前后台的关系。
+此前拥挤度极高的AI、半导体行业均被抛售，而贵金属等无收益资产也因高息及强美元出现明显回吐。
 
-此外，宏胜饮料还宣布了这些科室的相关负责人及相关人士变动。
+短期流动性扰动加大市场波动，中期来看AI产业链叙事尚未改变、景气度仍高，科技有望继续成为主线，投资者可考虑逢低布局。
 
-其中大部分人员都是升职，而只有吴汀燕和吴潘潘（原计划中心生产管理科科长）被免职。
+同时也建议关注红利、贵金属等资产分散风险，维持攻守兼备的投资框架。
 
 ## 相关推荐
 
-- 2026-06-29 18:23 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 18:27 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 18:35 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 18:12 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 18:21 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 18:16 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 18:37 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 18:25 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 18:24 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 18:16 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 18:14 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 18:29 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 18:39 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 18:46 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 18:22 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 18:34 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 18:19 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 18:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 18:35 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 18:27 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 18:41 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 18:23 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 18:20 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:16 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/012968349460.shtml)
-- 2026-06-29 18:30 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/510473925996.shtml)
-- 2026-06-29 18:16 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/27854349467.shtml)
-- 2026-06-29 18:15 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/8654010.shtml)
-- 2026-06-29 18:21 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/20434.shtml)
-- 2026-06-29 18:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/566876504.shtml)
-- 2026-06-29 18:37 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/1667058923.shtml)
-- 2026-06-29 18:27 - [周生如故](http://www.share.kurohicncr.top/Article/details/29331170267.shtml)
-- 2026-06-29 18:28 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/360494562.shtml)
-- 2026-06-29 18:25 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/593534705345.shtml)
-- 2026-06-29 18:28 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/5446703941.shtml)
-- 2026-06-29 18:13 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/5925387.shtml)
-- 2026-06-29 18:30 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.kurohicncr.top/Article/details/40207966688.shtml)
-- 2026-06-29 18:37 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/1767349.shtml)
-- 2026-06-29 18:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/344666753.shtml)
+- 2026-06-29 18:31 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/0586797656.shtml)
+- 2026-06-29 18:40 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/25806.shtml)
+- 2026-06-29 18:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/903571.shtml)
+- 2026-06-29 18:20 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/826509551.shtml)
+- 2026-06-29 18:33 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/081787652503.shtml)
+- 2026-06-29 18:22 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/196665723.shtml)
+- 2026-06-29 18:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/6765668428.shtml)
+- 2026-06-29 18:45 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/0550906.shtml)
+- 2026-06-29 18:40 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/2954071.shtml)
+- 2026-06-29 18:34 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/717440.shtml)
+- 2026-06-29 18:37 - [和周杰伦在演唱会合唱了](http://www.blog.kurohicncr.top/Article/details/4375612799.shtml)
+- 2026-06-29 18:36 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/7739263.shtml)
+- 2026-06-29 18:25 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/30096087719.shtml)
+- 2026-06-29 18:40 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/42523507.shtml)
+- 2026-06-29 18:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/81081296.shtml)

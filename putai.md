@@ -1,57 +1,56 @@
-# 国际观察：中塔携手构建更加紧密的命运共同体
+# 董路谈足球小将第1000场比赛：“中国足球什么都不缺，只缺胜利”
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-应国家主席习近平邀请，塔吉克斯坦总统埃莫马利·拉赫蒙将于5月11日至14日对中国进行国事访问。在当前国际与地区形势复杂演变的背景下，此次访问将为中塔深化全方位合作、构建更加紧密的命运共同体注入强劲动力，也将为地区和平稳定与共同繁荣作出新的贡献。山水相连、唇齿相依、命运与共。自1992年建交以来，中塔关系走过了不平凡的历程。两国始终本着相互尊重、平等相待、互利共赢的原则，推动双边
+中新网圣保罗6月9日电 题：董路谈足球小将第1000场比赛：“中国足球什么都不缺，只缺胜利” 中新网记者 林春茵 “中国足球什么都不缺，只缺胜利。”中国足球小将项目创始人董路8日晚间在巴西圣保罗瓜鲁柳斯国际机场接受中新网记者采访时说。 当天23时许，在欧洲赛事荷兰杯闯入四强的中国足球小将U17、U16混编队从荷兰飞抵圣保罗，即将开启“巴西中国文化年国际青少年足球邀请赛暨比亚迪×
 
 ## 正文
 
-应国家主席习近平邀请，塔吉克斯坦总统埃莫马利·拉赫蒙将于5月11日至14日对中国进行国事访问。
+中新网圣保罗6月9日电 题：董路谈足球小将第1000场比赛：“中国足球什么都不缺，只缺胜利” 中新网记者 林春茵 “中国足球什么都不缺，只缺胜利。
 
-在当前国际与地区形势复杂演变的背景下，此次访问将为中塔深化全方位合作、构建更加紧密的命运共同体注入强劲动力，也将为地区和平稳定与共同繁荣作出新的贡献。
+”中国足球小将项目创始人董路8日晚间在巴西圣保罗瓜鲁柳斯国际机场接受中新网记者采访时说。
 
-山水相连、唇齿相依、命运与共。
+当天23时许，在欧洲赛事荷兰杯闯入四强的中国足球小将U17、U16混编队从荷兰飞抵圣保罗，即将开启“巴西中国文化年国际青少年足球邀请赛暨比亚迪×中国足球小将世界挑战赛·巴西站”征程。
 
-自1992年建交以来，中塔关系走过了不平凡的历程。
+作为中巴文化年重点体育人文交流活动，此次活动由巴西文化部支持，美洲国际大学生体育联合会与巴西大学生体育联合会发起，巴西中国友好协会与中复体育共同执行。
 
-两国始终本着相互尊重、平等相待、互利共赢的原则，推动双边关系实现了从战略伙伴到全面战略伙伴、再到新时代全面战略合作伙伴的历史性跨越。
+据巴西中国友好协会常务副会长刘伟介绍，此行球队将先后对阵圣保罗、帕尔梅拉斯、桑托斯、伊图阿诺、巴伊亚和维多利亚等巴西传统足球俱乐部青训梯队。
 
-特别是近年来，在习近平主席和拉赫蒙总统的战略引领下，中塔政治互信日益牢固，在涉及彼此核心利益和重大关切问题上始终相互坚定支持，朝着命运与共的目标笃定前行。
+在此期间训练交流并参访比亚迪巴西工厂、博物馆等。
 
-两国关系的成熟稳定和蓬勃发展，已成为邻国之间友好交往的典范。
+6月22日，球队转赴墨西哥继续两场比赛，现场观摩美加墨世界杯。
 
-经贸合作是中塔关系的“压舱石”和“推进器”。
+当晚，经过10余个小时长途飞行的球员神态轻松。
 
 ## 相关推荐
 
-- 2026-06-29 18:14 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 18:15 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 18:29 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 18:28 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 18:29 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 18:13 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 18:40 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 18:40 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 18:23 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 18:31 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 18:31 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 18:18 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 18:21 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 18:42 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 18:35 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 18:41 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 18:41 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 18:33 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 18:44 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 18:30 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 18:42 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:38 - [伊朗足球队将启程回国](http://www.blog.kurohicncr.top/Article/details/127530.shtml)
-- 2026-06-29 18:30 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/28134829927.shtml)
-- 2026-06-29 18:28 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/909068157.shtml)
-- 2026-06-29 18:32 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/50066882.shtml)
-- 2026-06-29 18:35 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/58336303.shtml)
-- 2026-06-29 18:19 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/72102.shtml)
-- 2026-06-29 18:16 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/836790.shtml)
-- 2026-06-29 18:34 - [挪威王储妃长子2次强奸被判4年](http://www.blog.minike.top/Article/details/6583047.shtml)
-- 2026-06-29 18:39 - [外交部谈对日出口管制措施](https://www.blog.kurohicncr.top/Article/details/061299276548.shtml)
-- 2026-06-29 18:26 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/588150909.shtml)
-- 2026-06-29 18:37 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/973388160526.shtml)
-- 2026-06-29 18:26 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/8033232.shtml)
-- 2026-06-29 18:36 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/8209773.shtml)
-- 2026-06-29 18:25 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/377870.shtml)
-- 2026-06-29 18:39 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/124116727855.shtml)
+- 2026-06-29 18:36 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/3298814255.shtml)
+- 2026-06-29 18:20 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/12428892.shtml)
+- 2026-06-29 18:38 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/440512180.shtml)
+- 2026-06-29 18:46 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.minike.top/Article/details/069943.shtml)
+- 2026-06-29 18:20 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/21699905298.shtml)
+- 2026-06-29 18:28 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/085476980506.shtml)
+- 2026-06-29 18:32 - [沙特外交大臣将访华](http://www.blog.kurohicncr.top/Article/details/94112.shtml)
+- 2026-06-29 18:37 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/79789.shtml)
+- 2026-06-29 18:23 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/05590.shtml)
+- 2026-06-29 18:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/4561862.shtml)
+- 2026-06-29 18:41 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/0387706.shtml)
+- 2026-06-29 18:34 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/38054163.shtml)
+- 2026-06-29 18:23 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/435989247151.shtml)
+- 2026-06-29 18:26 - [机器人学校开学了](http://www.share.kurohicncr.top/Article/details/34154705.shtml)
+- 2026-06-29 18:25 - [医药生物行业今日涨5.91%](https://www.blog.minike.top/Article/details/5291531505.shtml)

@@ -1,60 +1,57 @@
-# 科创50指数时隔六年创新高，半导体板块业绩大爆发
+# 罚没千万，难逃ST！派瑞股份“栽了”
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-科创50指数自“9·24” 行情以来累计上涨165% 时隔六年，科创板迎来里程碑时刻。5月11日，科创50指数（000688.SH）盘中最高触及1727.30点，收盘报1716.69点，涨幅4.65%，一举突破2020年7月22日创下的1726.19点的历史纪录。截至当日，科创50指数自“9·24”行情以来累计上涨165%，50只个股总市值合计6万亿元。 佰维存储（688525
+曾经备受市场关注的大功率半导体概念股派瑞股份（维权）（300831），如今因一则财务造假的罚单站上了风口浪尖。2026年6月7日晚间，该公司一纸公告揭开了其通过篡改单据“平滑业绩”的内幕。 随着行政处罚事先告知书的落地，针对受损投资者的索赔维权通道也正式开启。 为“平滑业绩”篡改验收单 根据陕西证监局下发的《行政处罚事先告知书》，派瑞股份的财务造假手法并不复杂，但性质较为恶劣，
 
 ## 正文
 
-科创50指数自“9·24” 行情以来累计上涨165% 时隔六年，科创板迎来里程碑时刻。
+曾经备受市场关注的大功率半导体概念股派瑞股份（维权）（300831），如今因一则财务造假的罚单站上了风口浪尖。
 
-5月11日，科创50指数（000688.SH）盘中最高触及1727.30点，收盘报1716.69点，涨幅4.65%，一举突破2020年7月22日创下的1726.19点的历史纪录。
+2026年6月7日晚间，该公司一纸公告揭开了其通过篡改单据“平滑业绩”的内幕。
 
-截至当日，科创50指数自“9·24”行情以来累计上涨165%，50只个股总市值合计6万亿元。
+随着行政处罚事先告知书的落地，针对受损投资者的索赔维权通道也正式开启。
 
-佰维存储（688525.SH）、澜起科技（688008.SH）、拓荆科技（688072.SH）等8只成份股股价在本月创出历史新高，半导体产业链全线爆发成为科创50指数突破的核心驱动力。
+为“平滑业绩”篡改验收单 根据陕西证监局下发的《行政处罚事先告知书》，派瑞股份的财务造假手法并不复杂，但性质较为恶劣，公司通过人为篡改商品验收单据。
 
-这些企业覆盖GPU、存储芯片、半导体设备等关键领域，其股价的强势表现映射出中国科技产业在AI浪潮和国产替代双重驱动下的发展机遇。
+调查显示，为了平滑公司业绩波动，派瑞股份将本应在2024年确认的部分收入，通过篡改验收单据的方式延迟到了2025年确认。
 
-数据显示，科创50成份股2026年一季度整体业绩呈现整体增长态势，尤其是在半导体产业链的存储芯片、设备、GPU赛道，多家龙头企业营收和净利润较2021年同期增长数倍甚至数十倍，扎实的业绩增长是资金看多科技股的核心因素。
+具体来看，2024年虚减营业收入2271.50万元，虚减利润总额1711.73万元，分别占披露金额的11.84%和26.18%。
 
-科创50指数刷新高点，半导体龙头引领 5月11日，科创50指数早盘高开高走，盘中一度涨超5%至1727.30点，最终收盘报1716.69点，涨幅4.65%。
+公司将这笔钱挪到了2025年，导致该期虚增营业收入2271.50万元，虚增利润总额1711.73万元，占披露金额的比例高达26.87%和50.02% 。
 
-这一收盘价不仅突破了2020年创下的1726.19点高点，也标志着科创板历经近6年发展，终于迎来了高光时刻。
+这种操作，虽然表面上平滑了业绩曲线，但严重误导了投资者，存在虚假陈述。
 
 ## 相关推荐
 
-- 2026-06-29 18:33 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 18:32 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 18:38 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 18:33 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 18:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 18:37 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 18:26 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 18:17 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 18:22 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 18:41 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 18:30 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 18:41 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 18:37 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 18:15 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 18:41 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 18:47 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 18:24 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 18:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 18:43 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 18:36 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 18:35 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 18:47 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 18:42 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 18:37 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 18:25 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:16 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/015029791099.shtml)
-- 2026-06-29 18:37 - [AG 宫斗](http://www.blog.minike.top/Article/details/52179843.shtml)
-- 2026-06-29 18:19 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/38342689730.shtml)
-- 2026-06-29 18:40 - [中国战机大片上新](https://www.share.minike.top/Article/details/74117.shtml)
-- 2026-06-29 18:32 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/3420661.shtml)
-- 2026-06-29 18:32 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/758310959663.shtml)
-- 2026-06-29 18:23 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/682464261.shtml)
-- 2026-06-29 18:40 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/574158516106.shtml)
-- 2026-06-29 18:38 - [毛朝晖任湖南省农业农村厅厅长](http://www.blog.kurohicncr.top/Article/details/075905.shtml)
-- 2026-06-29 18:27 - [四川达州发生一起交通事故致2死](https://www.blog.minike.top/Article/details/312426150.shtml)
-- 2026-06-29 18:32 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/452650832894.shtml)
-- 2026-06-29 18:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/063730.shtml)
-- 2026-06-29 18:13 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/85436.shtml)
-- 2026-06-29 18:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/95352731.shtml)
-- 2026-06-29 18:13 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/78465563.shtml)
+- 2026-06-29 18:20 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/306835.shtml)
+- 2026-06-29 18:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/9376167.shtml)
+- 2026-06-29 18:34 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/48508237.shtml)
+- 2026-06-29 18:19 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/58526.shtml)
+- 2026-06-29 18:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/58340003520.shtml)
+- 2026-06-29 18:30 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/9834815580.shtml)
+- 2026-06-29 18:47 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/9089169.shtml)
+- 2026-06-29 18:44 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/9132249.shtml)
+- 2026-06-29 18:27 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/787121.shtml)
+- 2026-06-29 18:29 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/12672842169.shtml)
+- 2026-06-29 18:43 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/152469204693.shtml)
+- 2026-06-29 18:23 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/980019.shtml)
+- 2026-06-29 18:25 - [绘画区你赢了](https://www.share.minike.top/Article/details/14937596158.shtml)
+- 2026-06-29 18:28 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/83145998.shtml)
+- 2026-06-29 18:47 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/28195.shtml)

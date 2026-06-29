@@ -1,56 +1,50 @@
-# 天舟十号“送货”清单公布 41项实验物资将抵达中国空间站
+# 外交部：望欧方与中方相向而行推动经贸合作
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-今天(11日)，天舟十号货运飞船在海南文昌航天发射场成功发射升空。本次任务随飞船上行的物资涵盖实验载荷、实验单元及样品、实验耗材等共67件，总重量约768公斤。这批物资送达中国空间站后，将及时转运安置，后续将依托空间站实验设施，分批开展空间生命科学与生物技术、微重力物理科学、空间应用新技术、空间天文与地球科学等领域的41项在轨科学实验项目。构建太空胚胎研究链条 为深空探索筑牢生
+新华社北京6月8日电(记者马卓言、董雪)就欧盟日前推动相关国家减少所谓“对华依赖”，外交部发言人林剑8日在例行记者会上答问时表示，中方已多次阐明，中欧在产业链供应链上深度交融、相互依存，是经济全球化和市场作用的结果，符合双方企业的利益。中欧经贸关系不是你输我赢的零和博弈，完全可以相互成就、互利共赢。中方对解决中欧经贸分歧的态度是开放积极的，希望欧方与中方相向而行，通过对话协商解
 
 ## 正文
 
-今天(11日)，天舟十号货运飞船在海南文昌航天发射场成功发射升空。
+新华社北京6月8日电(记者马卓言、董雪)就欧盟日前推动相关国家减少所谓“对华依赖”，外交部发言人林剑8日在例行记者会上答问时表示，中方已多次阐明，中欧在产业链供应链上深度交融、相互依存，是经济全球化和市场作用的结果，符合双方企业的利益。
 
-本次任务随飞船上行的物资涵盖实验载荷、实验单元及样品、实验耗材等共67件，总重量约768公斤。
+中欧经贸关系不是你输我赢的零和博弈，完全可以相互成就、互利共赢。
 
-这批物资送达中国空间站后，将及时转运安置，后续将依托空间站实验设施，分批开展空间生命科学与生物技术、微重力物理科学、空间应用新技术、空间天文与地球科学等领域的41项在轨科学实验项目。
+中方对解决中欧经贸分歧的态度是开放积极的，希望欧方与中方相向而行，通过对话协商解决问题，推动中欧经贸合作更好地造福双方企业与民众。
 
-构建太空胚胎研究链条 为深空探索筑牢生命保障 随着天舟十号上行，我国空间应用系统将搭建起覆盖低等脊椎动物到高等哺乳动物的完整太空胚胎研究链条，通过多项核心实验，破解太空环境对生命孕育影响的密码，为人类长期驻留太空提供关键生命保障。
-
-随着人类太空探索的脚步不断延伸，在空间环境中能不能孕育生命成为大家关注的焦点。
-
-天舟十号任务将搭建起一套完整的太空胚胎研究体系，稳步推进系统性“空间胚胎发育”研究。
-
-本次任务中将重点开展5项空间生命科学实验，主要研究太空环境如何损伤哺乳动物早期胚胎、失重环境下骨骼丢失和心肌变化的调控机制、空间环境下人类“人工胚胎”的构建与发育等关键问题。
-
-这些研究与太空探索息息相关，未来人类若想长期驻留太空甚至实现星际移民，必须解决太空环境下的生殖和健康保障问题。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:34 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 18:30 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 18:22 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 18:28 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 18:38 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 18:13 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 18:36 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 18:24 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 18:27 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 18:37 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 18:32 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 18:31 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 18:30 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 18:46 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 18:18 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 18:46 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 18:27 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 18:26 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 18:40 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 18:45 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 18:21 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 18:32 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:23 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/41064262606.shtml)
-- 2026-06-29 18:37 - [港股爆发 美团百度阿里等集体大涨](http://www.share.minike.top/Article/details/140593763.shtml)
-- 2026-06-29 18:40 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/382790.shtml)
-- 2026-06-29 18:30 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/9982981965.shtml)
-- 2026-06-29 18:23 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/5213233.shtml)
-- 2026-06-29 18:36 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/069850.shtml)
-- 2026-06-29 18:23 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/44808343.shtml)
-- 2026-06-29 18:19 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/75508897.shtml)
-- 2026-06-29 18:36 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/46611710404.shtml)
-- 2026-06-29 18:35 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/855314017.shtml)
-- 2026-06-29 18:33 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/11979144081.shtml)
-- 2026-06-29 18:16 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/8139399367.shtml)
-- 2026-06-29 18:16 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/5589280.shtml)
-- 2026-06-29 18:13 - [流金岁月](http://www.share.kurohicncr.top/Article/details/896616662566.shtml)
-- 2026-06-29 18:14 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/1196304767.shtml)
+- 2026-06-29 18:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/274463.shtml)
+- 2026-06-29 18:30 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/96554798.shtml)
+- 2026-06-29 18:39 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/174511600717.shtml)
+- 2026-06-29 18:43 - [逃狱兄弟](http://www.blog.minike.top/Article/details/3236122.shtml)
+- 2026-06-29 18:45 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/19057.shtml)
+- 2026-06-29 18:38 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/02655.shtml)
+- 2026-06-29 18:37 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/784810619619.shtml)
+- 2026-06-29 18:26 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/3659117.shtml)
+- 2026-06-29 18:43 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/389053.shtml)
+- 2026-06-29 18:21 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/773403280167.shtml)
+- 2026-06-29 18:45 - [扬名立万](https://www.share.minike.top/Article/details/0179763551.shtml)
+- 2026-06-29 18:37 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/65053162000.shtml)
+- 2026-06-29 18:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/46803533420.shtml)
+- 2026-06-29 18:47 - [95后小伙突然确诊癌症 医生提醒](https://www.share.kurohicncr.top/Article/details/6454765270.shtml)
+- 2026-06-29 18:42 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/0734572.shtml)

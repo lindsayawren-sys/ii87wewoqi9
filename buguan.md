@@ -1,57 +1,60 @@
-# 市场监管总局通报42批次食品抽检不合格情况
+# 习近平出席金正恩举行的欢迎仪式
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-中新网5月9日电 据国家市场监督管理总局网站消息，近期，市场监管总局组织食品安全监督抽检2166批次样品，检出42批次样品不合格。对抽检发现的不合格食品，有关省级市场监管部门已组织开展核查处置。 监督抽检不合格食品具体情况如下： (一)蒙森薯业(经营者为内蒙古蒙森农业科技股份有限公司)在淘宝(手机APP)销售的、标称内蒙古蒙森农业科技股份有限公司生产的马铃薯粉条，其中铝的残留量
+中新社平壤6月8日电 当地时间6月8日中午，朝鲜劳动党总书记、国务委员长金正恩在平壤金日成广场为中共中央总书记、国家主席习近平举行盛大欢迎仪式。 金日成广场正中悬挂着中朝两党两国最高领导人巨幅肖像，两旁以中朝双语书写的“朝中友谊万古长青”“牢不可破的朝中友谊团结万岁”标语格外醒目。两国国旗迎风飘展，欢迎人群兴高采烈、翘首以盼。 习近平和夫人彭丽媛乘车抵达时，马队骑兵列队迎接，军
 
 ## 正文
 
-中新网5月9日电 据国家市场监督管理总局网站消息，近期，市场监管总局组织食品安全监督抽检2166批次样品，检出42批次样品不合格。
+中新社平壤6月8日电 当地时间6月8日中午，朝鲜劳动党总书记、国务委员长金正恩在平壤金日成广场为中共中央总书记、国家主席习近平举行盛大欢迎仪式。
 
-对抽检发现的不合格食品，有关省级市场监管部门已组织开展核查处置。
+金日成广场正中悬挂着中朝两党两国最高领导人巨幅肖像，两旁以中朝双语书写的“朝中友谊万古长青”“牢不可破的朝中友谊团结万岁”标语格外醒目。
 
-监督抽检不合格食品具体情况如下： (一)蒙森薯业(经营者为内蒙古蒙森农业科技股份有限公司)在淘宝(手机APP)销售的、标称内蒙古蒙森农业科技股份有限公司生产的马铃薯粉条，其中铝的残留量(干样品，以Al计)符合食品安全国家标准规定，但不符合产品标签标示要求。
+两国国旗迎风飘展，欢迎人群兴高采烈、翘首以盼。
 
-(二)Un糖糖家(经营者为广东省阳江市阳东区美味坊电商行)在抖音(手机APP)销售的、标称广东省东莞市中堂镇镇寻味园食品有限公司生产的白胡椒粒，其中苋菜红、柠檬黄、日落黄检验值不符合食品安全国家标准规定。
+习近平和夫人彭丽媛乘车抵达时，马队骑兵列队迎接，军乐团奏欢迎曲。
 
-经广东省市场监管局核实，不存在广东省东莞市中堂镇镇寻味园食品有限公司，该批次产品实际是经营者自行通过拼多多购买后销售的。
+金正恩和夫人李雪主在广场迎接。
 
-(三)江苏省南京市江宁区汪瑜调味品店销售的红薯粉丝，其中亮蓝、苋菜红、日落黄、柠檬黄检验值不符合食品安全国家标准规定。
+习近平夫妇和金正恩夫妇分别同对方陪同人员握手致意。
 
-(四)四川省成都市郫都区鑫忠诚冷冻食品销售中心销售的、标称安徽省阜阳金厨房食品科技有限公司生产的梅菜扣肉，其中诱惑红、日落黄检验值不符合食品安全国家标准规定。
+两党两国最高领导人共同登上检阅台，军乐团奏中朝两国国歌，鸣放礼炮21响。
 
-(五)铭思源肉制品官方旗舰店(经营者为河南优多多食品有限公司)在京东商城(网店)销售的、标称河南多多优品食品科技有限公司生产的韩式冷鲜肠，其中诱惑红检验值不符合食品安全国家标准规定。
+习近平在金正恩陪同下，检阅朝鲜人民军三军仪仗队，仪仗队员用朝语高呼“祝习近平同志身体健康”。
 
 ## 相关推荐
 
-- 2026-06-29 18:40 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 18:40 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 18:28 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 18:34 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 18:29 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 18:35 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 18:30 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 18:33 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 18:20 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 18:24 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 18:35 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 18:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 18:37 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 18:26 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 18:25 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 18:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 18:41 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 18:29 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 18:38 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 18:43 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 18:20 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 18:27 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 18:41 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 18:47 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 18:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:24 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/31875860334.shtml)
-- 2026-06-29 18:41 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/83465628799.shtml)
-- 2026-06-29 18:16 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/90620925235.shtml)
-- 2026-06-29 18:19 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/177292092.shtml)
-- 2026-06-29 18:24 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/17482564846.shtml)
-- 2026-06-29 18:35 - [勇敢的心第二部](https://www.share.minike.top/Article/details/36011.shtml)
-- 2026-06-29 18:29 - [王俊凯命名方式](https://www.share.minike.top/Article/details/3936068.shtml)
-- 2026-06-29 18:34 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/614051093742.shtml)
-- 2026-06-29 18:27 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/159202.shtml)
-- 2026-06-29 18:24 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/069775245630.shtml)
-- 2026-06-29 18:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/794488978.shtml)
-- 2026-06-29 18:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/05628.shtml)
-- 2026-06-29 18:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/711570934176.shtml)
-- 2026-06-29 18:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/5324297595.shtml)
-- 2026-06-29 18:21 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/51987465662.shtml)
+- 2026-06-29 18:32 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/4904426.shtml)
+- 2026-06-29 18:46 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/18142700.shtml)
+- 2026-06-29 18:43 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/6940181220.shtml)
+- 2026-06-29 18:32 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/5662629.shtml)
+- 2026-06-29 18:29 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/65692250.shtml)
+- 2026-06-29 18:19 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/9391283.shtml)
+- 2026-06-29 18:44 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/869063150.shtml)
+- 2026-06-29 18:39 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/34997990.shtml)
+- 2026-06-29 18:33 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/01594193.shtml)
+- 2026-06-29 18:42 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/71029028727.shtml)
+- 2026-06-29 18:21 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/90405.shtml)
+- 2026-06-29 18:40 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/11301807.shtml)
+- 2026-06-29 18:21 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/26260372307.shtml)
+- 2026-06-29 18:18 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/846573327636.shtml)
+- 2026-06-29 18:43 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/42018002768.shtml)

@@ -1,53 +1,57 @@
-# 重庆黔江发生一起交通事故致2死6伤
+# 国信证券：深耕绿色金融 赋能低碳转型
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-中新网5月10日电 据“平安黔江”官方微博消息，重庆市公安局黔江区分局5月10日发布警情通报称，2026年5月10日13时40分许，黔江区城东街道谭家湾十字路口发生一起交通事故。何某(女，57岁)驾小轿车行至该路段时，因操作不当，与车辆及行人发生碰撞，致2人死亡、6人受伤。接警后，民警迅速赶赴现场处置，将伤者送医救治。目前，已排除何某酒驾嫌疑，事故正在进一步调查处理中。 警方提
+绿色发展是高质量发展的底色。绿色金融作为推动产业升级、守护生态底色的关键力量，正持续为高质量发展注入澎湃动能。作为资本市场的参与者，国信证券坚守金融服务实体经济本源，把公司自身发展与国家战略紧密结合，践行绿色发展理念，持续加大绿色领域投入，以实际行动为绿色发展提供强劲动力，为实体经济低碳转型提供坚实金融支撑。 截至2026年一季度末，国信证券累计完成29单绿色金融股权融资项目，
 
 ## 正文
 
-中新网5月10日电 据“平安黔江”官方微博消息，重庆市公安局黔江区分局5月10日发布警情通报称，2026年5月10日13时40分许，黔江区城东街道谭家湾十字路口发生一起交通事故。
+绿色发展是高质量发展的底色。
 
-何某(女，57岁)驾小轿车行至该路段时，因操作不当，与车辆及行人发生碰撞，致2人死亡、6人受伤。
+绿色金融作为推动产业升级、守护生态底色的关键力量，正持续为高质量发展注入澎湃动能。
 
-接警后，民警迅速赶赴现场处置，将伤者送医救治。
+作为资本市场的参与者，国信证券坚守金融服务实体经济本源，把公司自身发展与国家战略紧密结合，践行绿色发展理念，持续加大绿色领域投入，以实际行动为绿色发展提供强劲动力，为实体经济低碳转型提供坚实金融支撑。
 
-目前，已排除何某酒驾嫌疑，事故正在进一步调查处理中。
+截至2026年一季度末，国信证券累计完成29单绿色金融股权融资项目，融资规模超520亿元；发行绿色（含碳中和）债券124只，承销规模约459亿元。
 
-警方提醒：广大驾驶人应养成良好的驾驶习惯，严格遵守交通安全法规，提高安全意识。
+根据中国证券业协会发布的《2026年一季度证券公司债券（含企业债券）承销业务专项统计》，国信证券子公司国信资管绿色债券（含资产证券化产品）承销规模位列行业第二，产品家数位列行业第六。
+
+全链条专业服务 浇灌绿色产业沃土 国信证券基于自身多元化的金融产品与服务，在绿色融资、绿色投资、碳金融等领域深化创新，强化绿色项目全流程服务，提升资源配置效率，助力重点行业低碳转型，打造具有特色的综合化绿色金融服务体系，持续推动绿色金融发展。
+
+隆基绿能作为全球光伏行业的龙头企业，在单晶硅片与组件领域保持领先地位。
+
+从初创企业到行业龙头的发展过程中，资金活水是关键支撑。
 
 ## 相关推荐
 
-- 2026-06-29 18:25 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 18:18 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 18:33 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 18:27 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 18:30 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 18:38 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 18:16 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 18:27 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 18:30 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 18:12 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 18:32 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 18:15 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 18:35 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 18:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 18:38 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 18:38 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 18:45 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 18:40 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 18:19 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 18:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 18:33 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 18:43 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 18:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 18:31 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:37 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/782180327.shtml)
-- 2026-06-29 18:12 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/702193991185.shtml)
-- 2026-06-29 18:38 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/59788109.shtml)
-- 2026-06-29 18:16 - [谢依霖夸杨幂靠谱](https://www.blog.minike.top/Article/details/71019128.shtml)
-- 2026-06-29 18:12 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/0429142.shtml)
-- 2026-06-29 18:34 - [小鹏MONAL03预售定档7月2日](https://www.share.kurohicncr.top/Article/details/779972.shtml)
-- 2026-06-29 18:21 - [T1零封KC MSI](http://www.share.minike.top/Article/details/86215.shtml)
-- 2026-06-29 18:25 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/01077.shtml)
-- 2026-06-29 18:38 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/428936.shtml)
-- 2026-06-29 18:26 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/88747429535.shtml)
-- 2026-06-29 18:40 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/978358339.shtml)
-- 2026-06-29 18:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/698566977.shtml)
-- 2026-06-29 18:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/7815504633.shtml)
-- 2026-06-29 18:27 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/821336242327.shtml)
-- 2026-06-29 18:34 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/18710.shtml)
+- 2026-06-29 18:41 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/6037895398.shtml)
+- 2026-06-29 18:21 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/414519.shtml)
+- 2026-06-29 18:21 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/12738.shtml)
+- 2026-06-29 18:40 - [世界杯在中国观看最多的比赛](http://www.share.minike.top/Article/details/28537602.shtml)
+- 2026-06-29 18:43 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/52982.shtml)
+- 2026-06-29 18:33 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/07052.shtml)
+- 2026-06-29 18:37 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/521132404018.shtml)
+- 2026-06-29 18:34 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/402717771253.shtml)
+- 2026-06-29 18:44 - [绘画区你赢了](http://www.blog.minike.top/Article/details/22060340270.shtml)
+- 2026-06-29 18:32 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/945767843.shtml)
+- 2026-06-29 18:20 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.kurohicncr.top/Article/details/93574.shtml)
+- 2026-06-29 18:31 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/367970.shtml)
+- 2026-06-29 18:31 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/052759849745.shtml)
+- 2026-06-29 18:33 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/670142.shtml)
+- 2026-06-29 18:27 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/19113734.shtml)

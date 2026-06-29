@@ -1,53 +1,60 @@
-# 伊朗驻华大使：有国家在试图挑拨离间伊中关系
+# 特海国际盘中飙升近30% 翻台率及经营利润率已显著回升
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 19:49 来源：中国新闻网 5月8日，伊朗驻华大使馆召开新闻发布会，伊朗驻华大使法兹里在会上回应了近日中国船只在霍尔木兹海峡遇袭的传闻。法兹里表示，伊朗绝不会向朋友开火，有国家试图以这样的方式来削弱伊中外长会晤的成果。 据中国外交部发布会消息，传闻相关遇袭船只系马绍尔群岛籍非中国船只，船上有中国籍的船员。(记者 谢龙飞 制作 王雪尔） 责任编
+特海国际（09658）盘中飙升近30%，截至发稿，涨幅回落，股价上涨5.02%，现报10.68港元，成交额6992.02万港元。 特海国际近日发布第一季度业绩，实现营收2.26亿美元，同比增长14.2%；期内溢利为405.3万美元，同比下滑65.88%。经营溢利为0.14亿美元，同比增长70.7%。特海国际财务总监兼董事会秘书瞿骢表示，剔除汇率波动这个非经营性因素后，一季度公司
 
 ## 正文
 
-发布时间：2026年05月09日 19:49 来源：中国新闻网 5月8日，伊朗驻华大使馆召开新闻发布会，伊朗驻华大使法兹里在会上回应了近日中国船只在霍尔木兹海峡遇袭的传闻。
+特海国际（09658）盘中飙升近30%，截至发稿，涨幅回落，股价上涨5.02%，现报10.68港元，成交额6992.02万港元。
 
-法兹里表示，伊朗绝不会向朋友开火，有国家试图以这样的方式来削弱伊中外长会晤的成果。
+特海国际近日发布第一季度业绩，实现营收2.26亿美元，同比增长14.2%；期内溢利为405.3万美元，同比下滑65.88%。
 
-据中国外交部发布会消息，传闻相关遇袭船只系马绍尔群岛籍非中国船只，船上有中国籍的船员。
+经营溢利为0.14亿美元，同比增长70.7%。
 
-(记者 谢龙飞 制作 王雪尔） 责任编辑：【卢岩】
+特海国际财务总监兼董事会秘书瞿骢表示，剔除汇率波动这个非经营性因素后，一季度公司实际业务盈利水平实现增长。
+
+浦银国际指出，特海国际2025年以“让利顾客，让利员工”为宗旨进行了深度战略调整，导致2025年客单价承压、费用率同比攀升、经营利润率同比大幅下降。
+
+经过一年的调整，公司26年一季度不仅翻台率同比上升，经营利润率在经营杠杆的帮助下也同比显著回升。
+
+这意味着公司在2026年一季度已基本走出调整期，并开始释放业绩。
+
+公司估值在过去12个月已回调至较低水平，性价比再次凸显，市场关注度有望逐步回升。
 
 ## 相关推荐
 
-- 2026-06-29 18:36 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 18:23 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 18:28 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 18:26 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 18:12 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 18:36 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 18:41 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 18:15 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 18:35 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 18:30 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 18:33 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 18:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 18:28 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 18:12 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 18:17 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 18:42 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 18:35 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 18:22 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 18:28 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 18:23 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 18:38 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 18:29 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 18:31 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 18:21 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 18:31 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 18:36 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 18:32 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 18:24 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 18:34 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:38 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/40706384906.shtml)
-- 2026-06-29 18:18 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/009066773100.shtml)
-- 2026-06-29 18:12 - [天柱山回应网红打卡树枝被砍](http://www.blog.kurohicncr.top/Article/details/392259201.shtml)
-- 2026-06-29 18:26 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/03346.shtml)
-- 2026-06-29 18:17 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/6950024799.shtml)
-- 2026-06-29 18:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/51293956.shtml)
-- 2026-06-29 18:29 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/67065547.shtml)
-- 2026-06-29 18:26 - [朱必达辞去湖南人大常委会委员职务](http://www.share.kurohicncr.top/Article/details/18317573216.shtml)
-- 2026-06-29 18:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/88187.shtml)
-- 2026-06-29 18:14 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/453821227489.shtml)
-- 2026-06-29 18:40 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/58597101.shtml)
-- 2026-06-29 18:12 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/824221128499.shtml)
-- 2026-06-29 18:40 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/097482.shtml)
-- 2026-06-29 18:22 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/66187178201.shtml)
-- 2026-06-29 18:19 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/333213140.shtml)
+- 2026-06-29 18:18 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/0491772.shtml)
+- 2026-06-29 18:21 - [花万元相亲对象是50元雇的演员](https://www.share.minike.top/Article/details/865536594.shtml)
+- 2026-06-29 18:38 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/5145162483.shtml)
+- 2026-06-29 18:46 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/906234292.shtml)
+- 2026-06-29 18:18 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/9656038.shtml)
+- 2026-06-29 18:30 - [人形机器人](http://www.share.minike.top/Article/details/966306497.shtml)
+- 2026-06-29 18:43 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/5182399.shtml)
+- 2026-06-29 18:34 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/732761.shtml)
+- 2026-06-29 18:22 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/0561369610.shtml)
+- 2026-06-29 18:34 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/32716.shtml)
+- 2026-06-29 18:22 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/339755.shtml)
+- 2026-06-29 18:23 - [女心理师](https://www.share.minike.top/Article/details/2005457.shtml)
+- 2026-06-29 18:44 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/66568.shtml)
+- 2026-06-29 18:19 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/939824.shtml)
+- 2026-06-29 18:19 - [普京建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/055452.shtml)

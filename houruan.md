@@ -1,58 +1,60 @@
-# 郑州银行再一次不分红
+# 长江有色：9日铅价下跌 期市成交活跃持仓高位现货观望
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-来源：看懂经济 银行分红，看起来是利润分配，背后其实是一家银行在经营压力、资本补充和股东回报之间做出的选择。 最近两个区域银行的案例，放在一起看，很有对照意义。 前不久，甘肃银行2025年分红方案引发关注：全年归母净利润不足6亿元，却拟派发现金股息约17.78亿元，分红金额约为当年归母净利润的3倍多。 另一边，郑州银行给出了完全不同的答案。 根据郑州银行2025年年报，该行不进
+长江有色金属网 今日沪期铅走势：今日沪期铅下跌，沪铅主力合约2607开盘报16300元/吨，高点报16335元/吨，低点报16055元/吨，结算价16160元/吨，收盘16170元/吨，跌幅为1.25%。 今日ccmn铅价统计，今日ccmn长江综合1#铅价报16030-16130元/吨，均价16080元，较前一日价格下跌220元；广东现货市场1#铅价报16035-16135元/
 
 ## 正文
 
-来源：看懂经济 银行分红，看起来是利润分配，背后其实是一家银行在经营压力、资本补充和股东回报之间做出的选择。
+长江有色金属网 今日沪期铅走势：今日沪期铅下跌，沪铅主力合约2607开盘报16300元/吨，高点报16335元/吨，低点报16055元/吨，结算价16160元/吨，收盘16170元/吨，跌幅为1.25%。
 
-最近两个区域银行的案例，放在一起看，很有对照意义。
+今日ccmn铅价统计，今日ccmn长江综合1#铅价报16030-16130元/吨，均价16080元，较前一日价格下跌220元；广东现货市场1#铅价报16035-16135元/吨，均价16085元，较前一日价格下跌225元。
 
-前不久，甘肃银行2025年分红方案引发关注：全年归母净利润不足6亿元，却拟派发现金股息约17.78亿元，分红金额约为当年归母净利润的3倍多。
+今日现货铅市场报价在15925-16135元/吨之间，对比沪期铅2606合约贴水170-升水40元/吨，沪期铅2607合约贴水165-升水45元/吨。
 
-另一边，郑州银行给出了完全不同的答案。
+宏观面影响因素：金属市场集体承压！
 
-根据郑州银行2025年年报，该行不进行现金分红，不送红股，不进行资本公积转增股份。
+多重利空共振下估值显著走弱。
 
-这也意味着，在2024年恢复一笔象征性分红之后，郑州银行的现金分红再次停摆。
+美联储加息预期飙升，美元高位运行、美债收益率居高不下，叠加美股走弱压制风险偏好，大宗商品整体估值承压。
 
-两家银行的案例放在一起看，很有意思。
+5 月汽车、储能等铅酸电池核心下游需求疲软，叠加高温天气影响开工，刚需采购进一步收缩，本交易日铅价震荡大幅下跌。
 
-甘肃银行和郑州银行都不是处在高增长、高盈利的舒适区。
+供需及产业链现状 铅原料供需格局分化，产业链矛盾凸显。
 
 ## 相关推荐
 
-- 2026-06-29 18:38 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 18:37 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 18:21 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 18:36 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 18:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 18:29 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 18:27 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 18:24 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 18:12 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 18:35 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 18:23 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 18:35 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 18:29 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 18:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 18:44 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 18:24 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 18:39 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 18:46 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 18:21 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 18:29 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 18:36 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 18:40 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 18:41 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 18:26 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 18:33 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 18:25 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:21 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/44328352.shtml)
-- 2026-06-29 18:21 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/320069.shtml)
-- 2026-06-29 18:28 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/77603480905.shtml)
-- 2026-06-29 18:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/674361070355.shtml)
-- 2026-06-29 18:24 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/02838215.shtml)
-- 2026-06-29 18:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/8370179.shtml)
-- 2026-06-29 18:15 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/28688013083.shtml)
-- 2026-06-29 18:17 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/1539993.shtml)
-- 2026-06-29 18:34 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/4615154063.shtml)
-- 2026-06-29 18:24 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/710861.shtml)
-- 2026-06-29 18:19 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/519218.shtml)
-- 2026-06-29 18:40 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/95074.shtml)
-- 2026-06-29 18:34 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/595172039991.shtml)
-- 2026-06-29 18:31 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.kurohicncr.top/Article/details/58718.shtml)
-- 2026-06-29 18:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/791615158.shtml)
+- 2026-06-29 18:33 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/4511442154.shtml)
+- 2026-06-29 18:23 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.kurohicncr.top/Article/details/01689931.shtml)
+- 2026-06-29 18:47 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/43542.shtml)
+- 2026-06-29 18:26 - [学者：建设性战略稳定重塑中美关系](https://www.share.minike.top/Article/details/0171626873.shtml)
+- 2026-06-29 18:19 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/08864179095.shtml)
+- 2026-06-29 18:19 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/99387718.shtml)
+- 2026-06-29 18:39 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/6355123104.shtml)
+- 2026-06-29 18:36 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/49288.shtml)
+- 2026-06-29 18:36 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/928421.shtml)
+- 2026-06-29 18:36 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/5850283474.shtml)
+- 2026-06-29 18:22 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/69245923.shtml)
+- 2026-06-29 18:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/88216993.shtml)
+- 2026-06-29 18:20 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/0817310732.shtml)
+- 2026-06-29 18:38 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/45622419637.shtml)
+- 2026-06-29 18:22 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/687673.shtml)

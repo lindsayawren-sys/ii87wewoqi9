@@ -1,61 +1,58 @@
-# AI投资的下半场机会在哪？创业板人工智能ETF华宝（159363）基金经理干货分享
+# 9国官员参加中国-阿拉伯文化交流研修班
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-（来源：ETF万亿指数） 近日，在朝阳永续向日葵聚会上，华宝基金指数研发投资部基金经理曹旭辰分享了一个很有意思的判断： AI产业已经从“算力有没有”阶段，逐渐进入“应用怎么落地”的深度博弈阶段。 过去两年，市场对AI最大的共识，是GPU、光模块、服务器、电力等“卖铲人”环节的高景气；而未来真正拉开差距的，可能不再是谁拥有更多算力，而是谁能把AI真正变成产品、用户和现金流。 从这
+中新社北京6月8日电 (纪嘉欣)“中国-阿拉伯文化交流研修班”结业典礼8日在北京举行。 在两周的学习实践中，来自约旦、伊拉克、突尼斯等9个国家的30位政府官员及专家学者，通过理论学习、实践课程、实地考察等方式，沉浸式体验中国文化。 结业仪式上，学员们用课程中学到的中文，依次介绍自己的姓名、国籍、职业和兴趣爱好。毛里塔尼亚文化部专员穆罕默德·马哈茂德朗诵了自己创作的诗歌《北京颂》
 
 ## 正文
 
-（来源：ETF万亿指数） 近日，在朝阳永续向日葵聚会上，华宝基金指数研发投资部基金经理曹旭辰分享了一个很有意思的判断： AI产业已经从“算力有没有”阶段，逐渐进入“应用怎么落地”的深度博弈阶段。
+中新社北京6月8日电 (纪嘉欣)“中国-阿拉伯文化交流研修班”结业典礼8日在北京举行。
 
-过去两年，市场对AI最大的共识，是GPU、光模块、服务器、电力等“卖铲人”环节的高景气；而未来真正拉开差距的，可能不再是谁拥有更多算力，而是谁能把AI真正变成产品、用户和现金流。
+在两周的学习实践中，来自约旦、伊拉克、突尼斯等9个国家的30位政府官员及专家学者，通过理论学习、实践课程、实地考察等方式，沉浸式体验中国文化。
 
-从这个角度看，AI产业正在经历一次典型的科技周期迁移。
+结业仪式上，学员们用课程中学到的中文，依次介绍自己的姓名、国籍、职业和兴趣爱好。
 
-前半程，硬件定义产业；后半程，应用决定赢家。
+毛里塔尼亚文化部专员穆罕默德·马哈茂德朗诵了自己创作的诗歌《北京颂》，一句“北京如梦映心田，胜境人间美若仙”赢得阵阵掌声。
 
-而这，也是本轮AI行情最值得重视的变化。
+突尼斯文化部副司长萨利姆·杜迪什分享了在中国研修期间的见闻与思考。
 
-01 算力：仍然是AI时代最确定的主线 曹旭辰在分享中提到，过去三年，GPU是整个半导体产业“最锋利的剑”。
+“我们参观了许多名胜古迹，亲身体验了皮影戏和中国画，领略了底蕴深厚、源远流长的中国文化。
 
-从A100、H100，到GB200、未来的Rubin架构，英伟达几乎以一年一次的大迭代节奏推动AI基础设施升级。
+我会把所学所见带回去，向更多人分享我看到的中国发展成就。
 
-本轮AI与过去互联网最大的不同，在于大模型能力提升，本质上仍然依赖“堆算力”。
+”沙特阿拉伯红海电影基金会项目负责人阿努丝·萨达尤自学生时代便开始学习中文，此次来到中国，她很高兴能够近距离感受中国文化。
 
 ## 相关推荐
 
-- 2026-06-29 18:33 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 18:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 18:24 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 18:35 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 18:39 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 18:24 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 18:33 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 18:37 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 18:35 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 18:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-29 18:15 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 18:38 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 18:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 18:22 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 18:21 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 18:29 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 18:27 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 18:39 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 18:18 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 18:39 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 18:44 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 18:35 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 18:33 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 18:22 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 18:21 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 18:34 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 18:30 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:19 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/9709924784.shtml)
-- 2026-06-29 18:37 - [河南高院审委会原委员曲海滨被查](https://www.share.minike.top/Article/details/441117797607.shtml)
-- 2026-06-29 18:37 - [青春环游记第三季](http://www.blog.minike.top/Article/details/06234533.shtml)
-- 2026-06-29 18:41 - [啊啊啊](https://www.share.minike.top/Article/details/0997105.shtml)
-- 2026-06-29 18:40 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/0547845211.shtml)
-- 2026-06-29 18:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/455797.shtml)
-- 2026-06-29 18:19 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/9090800426.shtml)
-- 2026-06-29 18:35 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/17671394238.shtml)
-- 2026-06-29 18:36 - [T1 KC](https://www.share.minike.top/Article/details/8987891687.shtml)
-- 2026-06-29 18:24 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/384902645.shtml)
-- 2026-06-29 18:16 - [歼-15型舰载机为何被歼-15T替代](http://www.blog.minike.top/Article/details/1286662813.shtml)
-- 2026-06-29 18:19 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/6648592.shtml)
-- 2026-06-29 18:14 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/542012565.shtml)
-- 2026-06-29 18:19 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/626875803.shtml)
-- 2026-06-29 18:21 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/65329382029.shtml)
+- 2026-06-29 18:36 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/3729215769.shtml)
+- 2026-06-29 18:18 - [一生一世](https://www.share.minike.top/Article/details/716194037.shtml)
+- 2026-06-29 18:35 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/719839038.shtml)
+- 2026-06-29 18:26 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/14434309.shtml)
+- 2026-06-29 18:41 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/16126.shtml)
+- 2026-06-29 18:20 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.kurohicncr.top/Article/details/5009413.shtml)
+- 2026-06-29 18:35 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/35092792.shtml)
+- 2026-06-29 18:26 - [张杰我九岁就跟你了](https://www.blog.kurohicncr.top/Article/details/215791008.shtml)
+- 2026-06-29 18:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/44857.shtml)
+- 2026-06-29 18:34 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/590876383.shtml)
+- 2026-06-29 18:31 - [沙特外交大臣将访华](https://www.blog.kurohicncr.top/Article/details/95482284579.shtml)
+- 2026-06-29 18:41 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/32050168.shtml)
+- 2026-06-29 18:29 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/563059297.shtml)
+- 2026-06-29 18:45 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/54359086.shtml)
+- 2026-06-29 18:46 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/539944.shtml)

@@ -1,57 +1,59 @@
-# 涉及上海绿捷校园餐事件 五起招投标领域系统整治典型案例公布
+# 青春华章 丝路逐光丨兰州城关供电青年的“双向奔赴”：铸电网匠心守护一城光亮
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-市场监管总局今天（9日）公布五起招标投标领域系统整治典型案例。 一、上海市市场监管局查处上海绿捷实业发展有限公司违反招标投标法吊销营业执照案 2025年11月22日，上海市市场监管局对上海绿捷实业发展有限公司（下称绿捷公司）严重违反《中华人民共和国招标投标法》的行为，依法作出吊销营业执照的行政处罚。 2025年9月，上海绿捷校园餐事件引起社会广泛关注，上海市委、市政府高度重视迅
+西北角·中国甘肃网记者 任磊 夜幕低垂，兰州市城关区的万家灯火渐次亮起。对于国网兰州供电公司城关分公司团支部31名青年员工来说，这温暖的光亮，既是他们守护的目标，也是他们成长的见证。 这支平均年龄不到35岁的青年团队，曾获甘肃省“五四红旗团支部”等荣誉称号。他们扎根省会核心城区，在一次次保电攻坚、一项项为民服务中，擦亮了“磨砺·坚韧”的青年成长品牌。6月7日，由中央网信办网络传
 
 ## 正文
 
-市场监管总局今天（9日）公布五起招标投标领域系统整治典型案例。
+西北角·中国甘肃网记者 任磊 夜幕低垂，兰州市城关区的万家灯火渐次亮起。
 
-一、上海市市场监管局查处上海绿捷实业发展有限公司违反招标投标法吊销营业执照案 2025年11月22日，上海市市场监管局对上海绿捷实业发展有限公司（下称绿捷公司）严重违反《中华人民共和国招标投标法》的行为，依法作出吊销营业执照的行政处罚。
+对于国网兰州供电公司城关分公司团支部31名青年员工来说，这温暖的光亮，既是他们守护的目标，也是他们成长的见证。
 
-2025年9月，上海绿捷校园餐事件引起社会广泛关注，上海市委、市政府高度重视迅速部署，统筹多部门协同联动，依法开展全面调查。
+这支平均年龄不到35岁的青年团队，曾获甘肃省“五四红旗团支部”等荣誉称号。
 
-上海市市场监管局根据公安部门侦查绿捷公司涉嫌串通投标犯罪的线索，对绿捷公司立案调查。
+他们扎根省会核心城区，在一次次保电攻坚、一项项为民服务中，擦亮了“磨砺·坚韧”的青年成长品牌。
 
-经查，绿捷公司为取得校园餐供应项目，组织5家餐饮企业作为陪标公司，共同参与项目竞标，在2025年7月至2025年9月间，非法获取86个校园餐供应项目。
+6月7日，由中央网信办网络传播局指导，甘肃省委网信办、甘肃省教育厅、共青团甘肃省委联合主办，中国互联网发展基金会提供特别支持，河西学院、张掖市委网信办、中国甘肃网共同承办的“青春华章·丝路逐光”网络主题活动采访团对其进行了专题采访。
 
-在投标过程中，上述5家陪标公司的标书费用均由绿捷公司支付，其中3家公司的标书材料由绿捷公司制作，2家公司的投标受委托人由绿捷公司指定的人员担任。
+三网融合解民忧城关区人口密集，24.67万户用电客户、25.93亿千瓦时年供电量，让保电与服务重任压在青年肩头。
 
-绿捷公司上述行为违反了《中华人民共和国招标投标法》第三十二条第一款的规定，构成投标人相互串通投标的违法行为。
+供区内老年群体多、用电诉求杂，对供电服务提出了更高要求。
 
-经主管部门上海市教育委员会认定，绿捷公司实施的串标行为属于“情节特别严重”情形。
+如何让服务更有温度？
 
 ## 相关推荐
 
-- 2026-06-29 18:33 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 18:34 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 18:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 18:15 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 18:32 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 18:41 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 18:19 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 18:21 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 18:30 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 18:16 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 18:15 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 18:35 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 18:34 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 18:47 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 18:32 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 18:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 18:35 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 18:20 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 18:25 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 18:33 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 18:36 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 18:31 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 18:37 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 18:46 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/66848774503.shtml)
-- 2026-06-29 18:19 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/74762515.shtml)
-- 2026-06-29 18:36 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/52429972176.shtml)
-- 2026-06-29 18:17 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/47427975934.shtml)
-- 2026-06-29 18:13 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/36884288.shtml)
-- 2026-06-29 18:24 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/79550406457.shtml)
-- 2026-06-29 18:30 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/8878721801.shtml)
-- 2026-06-29 18:32 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.minike.top/Article/details/302052926.shtml)
-- 2026-06-29 18:17 - [T1 KC](https://www.blog.minike.top/Article/details/12481.shtml)
-- 2026-06-29 18:27 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/436897939765.shtml)
-- 2026-06-29 18:38 - [中方向委方追加1亿元援助](http://www.share.kurohicncr.top/Article/details/2675295221.shtml)
-- 2026-06-29 18:28 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/9676427.shtml)
-- 2026-06-29 18:18 - [沙丘](http://www.blog.minike.top/Article/details/25016724.shtml)
-- 2026-06-29 18:31 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/16118.shtml)
-- 2026-06-29 18:40 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/0589606286.shtml)
+- 2026-06-29 18:41 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/98766.shtml)
+- 2026-06-29 18:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/42748.shtml)
+- 2026-06-29 18:47 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/34551.shtml)
+- 2026-06-29 18:37 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/1897463552.shtml)
+- 2026-06-29 18:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/86911210.shtml)
+- 2026-06-29 18:27 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/7902774.shtml)
+- 2026-06-29 18:43 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/86236861929.shtml)
+- 2026-06-29 18:20 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/558881250.shtml)
+- 2026-06-29 18:37 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/14335.shtml)
+- 2026-06-29 18:41 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/933659.shtml)
+- 2026-06-29 18:47 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/752670749020.shtml)
+- 2026-06-29 18:41 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/7195383.shtml)
+- 2026-06-29 18:24 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/64657618.shtml)
+- 2026-06-29 18:28 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/68690923.shtml)
+- 2026-06-29 18:31 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/933995050974.shtml)

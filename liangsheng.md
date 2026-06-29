@@ -1,57 +1,57 @@
-# 多空分歧加剧：D-Wave Quantum Q1财报前瞻，分析师看好机构看空
+# 厄尔尼诺推高用电负荷，电力ETF华泰柏瑞（561560）6月首周累计吸金超2.3亿元
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-D-Wave Quantum将于5月12日周二美股盘前发布2026年第一季度财报。尽管华尔街普遍看好量子计算的长期前景，但量化模型却发出了强烈的“卖出”信号，市场正密切关注其创纪录的订单积压能否转化为实际营收。 预期数据与机构观点 市场普遍预期该公司一季度营收将大幅回落，普遍预期在419万至500万美元之间，较去年同期的1500万美元大幅下滑。这一显著差异源于去年同期的收入包含
+厄尔尼诺效应叠加用电高增速，电力供需格局偏紧。尽管上周电力板块有所调整，但资金对板块关注度不减。Wind及交易所数据显示，电力ETF华泰柏瑞（561560）6月首周连续5个交易日获得资金净流入、累计吸金2.31亿元，同期日均成交额达2.43亿元，较5月放量62%。在资金的踊跃布局下，该基金最新规模超34亿元，基金份额达23.79亿份、创下历史新高。 极端天气推升用电负荷。世界气
 
 ## 正文
 
-D-Wave Quantum将于5月12日周二美股盘前发布2026年第一季度财报。
+厄尔尼诺效应叠加用电高增速，电力供需格局偏紧。
 
-尽管华尔街普遍看好量子计算的长期前景，但量化模型却发出了强烈的“卖出”信号，市场正密切关注其创纪录的订单积压能否转化为实际营收。
+尽管上周电力板块有所调整，但资金对板块关注度不减。
 
-预期数据与机构观点 市场普遍预期该公司一季度营收将大幅回落，普遍预期在419万至500万美元之间，较去年同期的1500万美元大幅下滑。
+Wind及交易所数据显示，电力ETF华泰柏瑞（561560）6月首周连续5个交易日获得资金净流入、累计吸金2.31亿元，同期日均成交额达2.43亿元，较5月放量62%。
 
-这一显著差异源于去年同期的收入包含了向高性能计算中心出售系统的首笔大单，而此类系统销售通常需要多季度安装周期才能确认收入。
+在资金的踊跃布局下，该基金最新规模超34亿元，基金份额达23.79亿份、创下历史新高。
 
-每股亏损预计扩大至0.08至0.10美元，去年同期亏损为0.02美元。
+极端天气推升用电负荷。
 
-尽管财报预期疲软，华尔街16位分析师中有14位维持“买入”评级，平均目标价约36.91美元，暗示63.5%的上行空间。
+世界气象组织预测，2026年6月至8月出现厄尔尼诺事件的概率高达80%。
 
-看多派主要押注其商业订单的爆发式增长。
+国家发改委预测，今年夏季全国最高用电负荷可能达16亿千瓦，比去年激增9000万千瓦。
 
-管理层在第四季度电话会上透露，仅2026年1月新增订单量已超越2025年全年总和。
+国家电网测算，其经营区今夏最大用电负荷将超13亿千瓦，同比增长约6%。
 
 ## 相关推荐
 
-- 2026-06-29 18:32 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 18:28 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 18:20 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 18:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 18:24 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 18:19 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 18:28 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 18:32 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 18:16 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 18:21 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 18:33 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 18:22 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 18:27 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 18:23 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 18:36 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 18:21 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 18:46 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 18:45 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 18:37 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 18:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 18:21 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 18:20 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:40 - [王曼昱被突如其来的话筒逗笑了](http://www.share.minike.top/Article/details/005489244.shtml)
-- 2026-06-29 18:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/949427377.shtml)
-- 2026-06-29 18:35 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/29946701375.shtml)
-- 2026-06-29 18:35 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/649094050085.shtml)
-- 2026-06-29 18:21 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/531258033.shtml)
-- 2026-06-29 18:21 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/828785773.shtml)
-- 2026-06-29 18:25 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/9197143.shtml)
-- 2026-06-29 18:23 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/463893973903.shtml)
-- 2026-06-29 18:28 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/401768055.shtml)
-- 2026-06-29 18:31 - [7款高价创新药有望降价](https://www.blog.kurohicncr.top/Article/details/8669078.shtml)
-- 2026-06-29 18:22 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/994213.shtml)
-- 2026-06-29 18:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/258271344.shtml)
-- 2026-06-29 18:23 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/117381.shtml)
-- 2026-06-29 18:14 - [王安宇尊重田曦薇的一切选择](http://www.share.kurohicncr.top/Article/details/21956004326.shtml)
-- 2026-06-29 18:13 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/435596558256.shtml)
+- 2026-06-29 18:25 - [章若楠包场白敬亭特立独行](https://www.blog.minike.top/Article/details/987580088478.shtml)
+- 2026-06-29 18:34 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/80788.shtml)
+- 2026-06-29 18:40 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/11759624322.shtml)
+- 2026-06-29 18:39 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/59877701383.shtml)
+- 2026-06-29 18:23 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/3021662825.shtml)
+- 2026-06-29 18:25 - [沙丘](https://www.share.kurohicncr.top/Article/details/3185731517.shtml)
+- 2026-06-29 18:33 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/38409766.shtml)
+- 2026-06-29 18:42 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/05304.shtml)
+- 2026-06-29 18:43 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/68937766.shtml)
+- 2026-06-29 18:47 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/9626000589.shtml)
+- 2026-06-29 18:29 - [逆天祖国人](http://www.share.minike.top/Article/details/10846.shtml)
+- 2026-06-29 18:44 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/390874086100.shtml)
+- 2026-06-29 18:20 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/1811592939.shtml)
+- 2026-06-29 18:45 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/9933219.shtml)
+- 2026-06-29 18:47 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/439363231.shtml)

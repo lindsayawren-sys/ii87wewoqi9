@@ -1,59 +1,50 @@
-# 小雨智造乔忠良：年出货10万台是具身智能决赛圈的门票
+# 摩根大通上调10年期美债收益率预期至4.70%
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-中新网北京5月9日电(左雨晴) “年出货10万台是具身智能决赛圈的门票。”小雨智造创始人、CEO 乔忠良近日表示，当前具身智能行业的痛点在于缺乏超级爆品，“iPhone时刻”还未到来。 业内普遍认为，2026年是具身智能应用元年与人形机器人量产元年，具身智能驱动的工业机器人产业变革正迎来落地拐点。 “年出货5000到1万台，是进入第一梯队的必要条件，年出货10万台，基本就锁定决
+摩根大通策略师在一份6月6日发布的报告中建议，做空美债、做多德债。杰伊・巴里（ Jay Barry ）等策略师在报告中表示：“我们目前预计，2年期和10年期美债收益率将分别升至4.20%和4.70%，较此前预测分别上调30个基点和20个基点。”过去一年美国经济增长稳健，劳动力市场趋于稳定，市场开始质疑当前货币政策立场是否真正具备紧缩效果。“叠加期限溢价回归常态，我们认为货币市场
 
 ## 正文
 
-中新网北京5月9日电(左雨晴) “年出货10万台是具身智能决赛圈的门票。
+摩根大通策略师在一份6月6日发布的报告中建议，做空美债、做多德债。
 
-”小雨智造创始人、CEO 乔忠良近日表示，当前具身智能行业的痛点在于缺乏超级爆品，“iPhone时刻”还未到来。
+杰伊・巴里（ Jay Barry ）等策略师在报告中表示：“我们目前预计，2年期和10年期美债收益率将分别升至4.20%和4.70%，较此前预测分别上调30个基点和20个基点。
 
-业内普遍认为，2026年是具身智能应用元年与人形机器人量产元年，具身智能驱动的工业机器人产业变革正迎来落地拐点。
+”过去一年美国经济增长稳健，劳动力市场趋于稳定，市场开始质疑当前货币政策立场是否真正具备紧缩效果。
 
-“年出货5000到1万台，是进入第一梯队的必要条件，年出货10万台，基本就锁定决赛圈的门票。
+“叠加期限溢价回归常态，我们认为货币市场收益率曲线仍将维持陡峭形态。
 
-”乔忠良认为，通向通用具身智能的路，必然由一线的生产场景来铺就，工业落地路线有机会做出真正的超级爆品。
-
-近日，小雨智造宣布完成数亿元 B+ 轮融资，本轮融资由北汽产投、复星锐正和建发新兴三家新进投资方联合投资，老股东华业天成、贵州科创天使基金共同跟投，滴滴、小米联合创始人黎万强持续追加投资，庚辛资本作为独家财务顾问并进行投资。
-
-继B轮华业天成领投后，小雨智造投资方阵营已横跨消费电子、汽车、船舶、建筑四大产业门类，工业具身智能的产业生态版图进一步成型。
-
-(完)
+”责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 18:40 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 18:39 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 18:37 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 18:23 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 18:12 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 18:14 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 18:41 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 18:16 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 18:17 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 18:26 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 18:40 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 18:15 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 18:29 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 18:23 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 18:30 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 18:18 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 18:34 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 18:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 18:26 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 18:39 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 18:42 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 18:40 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 18:43 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:37 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/423004647471.shtml)
-- 2026-06-29 18:15 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/38883.shtml)
-- 2026-06-29 18:32 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/09571664127.shtml)
-- 2026-06-29 18:33 - [千与千寻](http://www.share.minike.top/Article/details/019957.shtml)
-- 2026-06-29 18:16 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/250836648.shtml)
-- 2026-06-29 18:33 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/14924.shtml)
-- 2026-06-29 18:14 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/8649847861.shtml)
-- 2026-06-29 18:26 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.minike.top/Article/details/9876710.shtml)
-- 2026-06-29 18:20 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/261662.shtml)
-- 2026-06-29 18:27 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/289226605.shtml)
-- 2026-06-29 18:18 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/259376213.shtml)
-- 2026-06-29 18:29 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/93547614586.shtml)
-- 2026-06-29 18:25 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.kurohicncr.top/Article/details/50532.shtml)
-- 2026-06-29 18:26 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/20714.shtml)
-- 2026-06-29 18:28 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/999147.shtml)
+- 2026-06-29 18:18 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/168056977882.shtml)
+- 2026-06-29 18:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/5471111088.shtml)
+- 2026-06-29 18:18 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/3350531047.shtml)
+- 2026-06-29 18:45 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/320461092.shtml)
+- 2026-06-29 18:38 - [税务总局披露5起合规申报个税案例](https://www.share.minike.top/Article/details/0762622.shtml)
+- 2026-06-29 18:31 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.kurohicncr.top/Article/details/70620.shtml)
+- 2026-06-29 18:39 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.kurohicncr.top/Article/details/827547616.shtml)
+- 2026-06-29 18:20 - [当家电外通风口出现鸟窝](https://www.blog.kurohicncr.top/Article/details/047897.shtml)
+- 2026-06-29 18:27 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/16114.shtml)
+- 2026-06-29 18:23 - [官媒首曝六代机？大V解读](http://www.blog.minike.top/Article/details/181545616963.shtml)
+- 2026-06-29 18:33 - [医药生物行业今日涨5.91%](http://www.blog.kurohicncr.top/Article/details/42379643.shtml)
+- 2026-06-29 18:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/82888.shtml)
+- 2026-06-29 18:18 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/5707255274.shtml)
+- 2026-06-29 18:23 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/44149039002.shtml)
+- 2026-06-29 18:33 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/2356810521.shtml)

@@ -1,61 +1,61 @@
-# 工商银行全新推出“工盈研选”品牌 博时多只优质产品入选
+# 从太湖到天山 一位援疆医生的“无憾”青春
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:02 UTC+8
 
 ## 摘要
 
-近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。 “工盈研选”从客户能理解、基层易营销的角度，定制“收益、回撤”等量化标准，提出权益仓位建议，与合作机构共同建设维护系列产品池。首期推出“安盈”“智盈”两个产品系列，精准
+3年来，江苏共组织252名优秀医疗人才赴克州开展多种形式的医疗援疆。 不惑之年，江苏无锡市中医医院骨伤科(创伤正骨科)副主任医师殷铭告别江南，跨越万里山河，奔赴新疆克孜勒苏柯尔克孜自治州阿合奇县开启援疆征程。 初到阿合奇县，广袤的土地、澄澈的蓝天、连绵的雪山、壮美的风光让殷铭感到震撼，但很快他就沉下心来投入临床工作。 语言不通成为他开展工作的第一道难题，殷铭开始主动学习日常民族
 
 ## 正文
 
-近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。
+3年来，江苏共组织252名优秀医疗人才赴克州开展多种形式的医疗援疆。
 
-“工盈研选”从客户能理解、基层易营销的角度，定制“收益、回撤”等量化标准，提出权益仓位建议，与合作机构共同建设维护系列产品池。
+不惑之年，江苏无锡市中医医院骨伤科(创伤正骨科)副主任医师殷铭告别江南，跨越万里山河，奔赴新疆克孜勒苏柯尔克孜自治州阿合奇县开启援疆征程。
 
-首期推出“安盈”“智盈”两个产品系列，精准匹配不同客户投资需求。
+初到阿合奇县，广袤的土地、澄澈的蓝天、连绵的雪山、壮美的风光让殷铭感到震撼，但很快他就沉下心来投入临床工作。
 
-其中“安盈”系列聚焦固收、固收+产品，通过严控回撤风险，力争助力客户资产稳健增长。
+语言不通成为他开展工作的第一道难题，殷铭开始主动学习日常民族用语，努力克服沟通障碍，倾听群众诉求；当地各族同胞也格外淳朴热忱，每逢殷铭面露困惑，便主动放慢语速、辅以肢体语言，尽力配合沟通。
 
-智盈系列则精选权益指数及指数增强产品，力争为追求收益弹性的客户提供进攻性工具。
+阿合奇县地广人稀、医疗资源匮乏、专业人才短缺。
 
-经过层层精选，博时基金旗下博时恒泰债券基金成功入选“安盈”系列，博时恒生高股息ETF联接基金、博时恒生科技ETF联接基金双双入选“智盈”系列。
+来到这里后，殷铭与各族医护人员同心共进、并肩作战。
 
-基金2026年一季报显示，过去一年（2025/4/1-2026/3/31），博时恒泰债券基金A类、C类收益率分别为6.09%、5.72%，同期业绩比较基准收益率为0.95%。
+一方面，他主动分享骨科诊疗经验、手术技巧、临床思路，传授专业知识；另一方面，他虚心向当地医护学习，深耕本土诊疗特点，了解群众生活习惯与心理诉求，学习贴合当地群众的沟通方式，因地制宜地优化诊疗服务，让医疗救治更为人性化。
 
-基金2026年一季报显示，过去一年（2025/4/1-2026/3/31），博时恒生高股息ETF联接A类、C类收益率均为23.14%，同期业绩比较基准收益率为20.00%。
+援疆期间，殷铭坚持坐诊骨科专家门诊、主持病房诊疗，全年接诊患者约500人次，主刀骨折创伤手术，完成院内会诊及疑难病例讨论数十人次。
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 18:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 18:29 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 18:26 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 18:31 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 18:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 18:14 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 18:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 18:19 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 18:36 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 18:16 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 18:30 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 18:26 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 18:16 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 18:31 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 18:25 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 18:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 18:30 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 18:20 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 18:21 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 18:44 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 18:21 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 18:31 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 18:18 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 18:25 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 18:40 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 18:23 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 18:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 18:24 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 18:22 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:15 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/155454176.shtml)
-- 2026-06-29 18:21 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.minike.top/Article/details/6369356025.shtml)
-- 2026-06-29 18:33 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/3247321.shtml)
-- 2026-06-29 18:17 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/87495.shtml)
-- 2026-06-29 18:17 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/3609303.shtml)
-- 2026-06-29 18:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/1019171.shtml)
-- 2026-06-29 18:24 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/516998125.shtml)
-- 2026-06-29 18:20 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/239912853485.shtml)
-- 2026-06-29 18:35 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/22215823223.shtml)
-- 2026-06-29 18:22 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/051813.shtml)
-- 2026-06-29 18:41 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/452936.shtml)
-- 2026-06-29 18:41 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/598887746.shtml)
-- 2026-06-29 18:13 - [流金岁月](http://www.share.kurohicncr.top/Article/details/07551.shtml)
-- 2026-06-29 18:21 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/9039904.shtml)
-- 2026-06-29 18:33 - [沙特外交大臣将访华](https://www.blog.kurohicncr.top/Article/details/33502191662.shtml)
+- 2026-06-29 18:30 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/260439.shtml)
+- 2026-06-29 18:36 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/9137509.shtml)
+- 2026-06-29 18:33 - [叠纸客服回应恋与深空新角色争议](http://www.blog.kurohicncr.top/Article/details/148393428.shtml)
+- 2026-06-29 18:46 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/403652.shtml)
+- 2026-06-29 18:18 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/99429871997.shtml)
+- 2026-06-29 18:35 - [毒液2](https://www.blog.kurohicncr.top/Article/details/78446242.shtml)
+- 2026-06-29 18:47 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/1928589286.shtml)
+- 2026-06-29 18:18 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/5577913.shtml)
+- 2026-06-29 18:19 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/489155.shtml)
+- 2026-06-29 18:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/751197038464.shtml)
+- 2026-06-29 18:23 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/923344144.shtml)
+- 2026-06-29 18:42 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/05169459.shtml)
+- 2026-06-29 18:43 - [王曼昱被突如其来的话筒逗笑了](https://www.share.minike.top/Article/details/17109056508.shtml)
+- 2026-06-29 18:38 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/0589100873.shtml)
+- 2026-06-29 18:40 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/550564489330.shtml)

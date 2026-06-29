@@ -1,59 +1,61 @@
-# “探索一号”科考船抵达广州 取得多项重要科学发现
+# 国家网信办、市场监管总局联合印发《网络测评活动规范》
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-5月10日，“探索一号”科考船搭载“奋斗者”号载人潜水器顺利抵达广州，圆满完成“全球深渊探索计划”太平洋穿越科考航次暨首次中国-智利阿塔卡马海沟载人深潜联合科考航次。这是我国深海科技力量持续挺进全球深渊、深化国际海洋科技合作的重要实践，也是积极参与全球海洋治理、推动构建海洋命运共同体的又一标志性成果。 本航次由中国科学院深海科学与工程研究所“深海科学与智能技术”全国重点实验室牵
+中新网6月8日电 据“网信中国”微信公众号8日消息，近日，国家网信办、市场监管总局联合印发《网络测评活动规范》(以下简称《规范》)。国家网信办有关负责人表示，《规范》旨在规范网络测评活动，维护公平市场竞争秩序，保护公民、法人和其他组织合法权益。近年来，网络测评快速兴起，测评类经营主体通过开展测试、对比分析数据、引用专业检测结果或者表达使用感受等方式，发布测试过程与评价结果，为消
 
 ## 正文
 
-5月10日，“探索一号”科考船搭载“奋斗者”号载人潜水器顺利抵达广州，圆满完成“全球深渊探索计划”太平洋穿越科考航次暨首次中国-智利阿塔卡马海沟载人深潜联合科考航次。
+中新网6月8日电 据“网信中国”微信公众号8日消息，近日，国家网信办、市场监管总局联合印发《网络测评活动规范》(以下简称《规范》)。
 
-这是我国深海科技力量持续挺进全球深渊、深化国际海洋科技合作的重要实践，也是积极参与全球海洋治理、推动构建海洋命运共同体的又一标志性成果。
+国家网信办有关负责人表示，《规范》旨在规范网络测评活动，维护公平市场竞争秩序，保护公民、法人和其他组织合法权益。
 
-本航次由中国科学院深海科学与工程研究所“深海科学与智能技术”全国重点实验室牵头组织，于2025年12月6日自三亚启航，历时156天，总航程超过4万公里，相当于绕地球赤道一周。
+近年来，网络测评快速兴起，测评类经营主体通过开展测试、对比分析数据、引用专业检测结果或者表达使用感受等方式，发布测试过程与评价结果，为消费者购物提供参考。
 
-来自中国、智利、德国、丹麦、加拿大、西班牙等6个国家的83名科考队员共同参与。
+但一些网络测评存在夸大宣传、只评不测、商测一体等问题，不仅影响消费者信任度和购物体验，也扰乱市场环境。
 
-科考队员分别来自智利千年海洋研究所、南丹麦大学国家深渊研究中心、德国亥姆霍兹极地与海洋研究中心等9家国外科研机构，以及海南省深海技术创新中心等7家国内科研机构。
+出台《规范》，是推动网络测评活动健康发展的需要，也是优化营商网络环境、维护企业合法权益的需要。
 
-航次聚焦阿塔卡马海沟与穆绍海沟，围绕深渊生物多样性、化能生态系统、深部流体活动和板块俯冲机制等重大前沿科学问题开展系统调查研究。
+《规范》明确，从事网络测评活动，应当遵守法律、行政法规和国家有关规定，遵循商业道德、公序良俗，坚持客观、公正、全面、准确原则。
 
-航次期间，“奋斗者”号共完成63个潜次，其中50次下潜深度超过6000米，获取了大量生物、地质标本以及高清水下影像资料，为深渊地质、生命与环境多学科交叉研究奠定了坚实基础。
+《规范》要求，从事网络测评活动，涉及对产品功能、性能等项目测试，应当委托具有法定检验检测资质许可的检验检测机构按照相关标准以及技术规范开展测试。
 
-本航次取得多项重要科学发现。
+对食品开展检验检测的，测试方应当具备相应资质，不得使用非标方法，不得测评无国家标准检验方法的项目。
 
 ## 相关推荐
 
-- 2026-06-29 18:15 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 18:40 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 18:16 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 18:22 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 18:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 18:13 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 18:19 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 18:20 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 18:41 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 18:37 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 18:26 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 18:14 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 18:32 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 18:25 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 18:34 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 18:44 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 18:27 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 18:32 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 18:37 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 18:45 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 18:29 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 18:27 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 18:20 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 18:39 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 18:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 18:43 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 18:35 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 18:46 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:17 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/899521067734.shtml)
-- 2026-06-29 18:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/605740456460.shtml)
-- 2026-06-29 18:12 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/598200358.shtml)
-- 2026-06-29 18:21 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/214411.shtml)
-- 2026-06-29 18:21 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/746172636147.shtml)
-- 2026-06-29 18:34 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/242459692793.shtml)
-- 2026-06-29 18:24 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/3058441471.shtml)
-- 2026-06-29 18:40 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/134446.shtml)
-- 2026-06-29 18:16 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/23448.shtml)
-- 2026-06-29 18:14 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/4421431.shtml)
-- 2026-06-29 18:31 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/713684404882.shtml)
-- 2026-06-29 18:38 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/3991616.shtml)
-- 2026-06-29 18:41 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/04999022.shtml)
-- 2026-06-29 18:17 - [95后小伙突然确诊癌症 医生提醒](https://www.share.kurohicncr.top/Article/details/73478.shtml)
-- 2026-06-29 18:39 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/94585.shtml)
+- 2026-06-29 18:45 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/888604.shtml)
+- 2026-06-29 18:36 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/15230.shtml)
+- 2026-06-29 18:36 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/1088097.shtml)
+- 2026-06-29 18:29 - [女生每天戴耳机18小时突发耳聋](http://www.blog.kurohicncr.top/Article/details/06780988.shtml)
+- 2026-06-29 18:18 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/095659576.shtml)
+- 2026-06-29 18:46 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/5279862937.shtml)
+- 2026-06-29 18:35 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/648650706871.shtml)
+- 2026-06-29 18:19 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/948274710615.shtml)
+- 2026-06-29 18:36 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/13766.shtml)
+- 2026-06-29 18:25 - [V8](http://www.blog.kurohicncr.top/Article/details/2640713306.shtml)
+- 2026-06-29 18:42 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/39487247965.shtml)
+- 2026-06-29 18:37 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/650650043.shtml)
+- 2026-06-29 18:22 - [一生一世](http://www.blog.kurohicncr.top/Article/details/6606592957.shtml)
+- 2026-06-29 18:33 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/7402595.shtml)
+- 2026-06-29 18:45 - [税务总局披露5起合规申报个税案例](https://www.blog.minike.top/Article/details/643874608334.shtml)

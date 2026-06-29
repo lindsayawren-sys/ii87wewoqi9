@@ -1,58 +1,50 @@
-# 日本推进设立“国家情报局” 妄图给军国主义阴魂再造“血肉”
+# 摩根士丹利：美元涨势能否持续取决于美联储利率路径
 
-> 更新时间：2026-06-29 18:42:02 UTC+8
+> 更新时间：2026-06-29 18:48:03 UTC+8
 
 ## 摘要
 
-资讯很有料｜日本推进设立“国家情报局” 妄图给军国主义阴魂再造“血肉” 长期以来，日本并未认真反省二战侵略罪行，反而借助靖国神社供奉的二战战犯牌位和被篡改的历史教科书，为军国主义阴魂提供庇护。高市早苗内阁上台以来，日本军国主义似有加速复活之势。 近期，日本政府正加快推进“国家情报局”相关法案的审议，这凸显出高市内阁妄图为军国主义阴魂重塑“血肉”。一旦“新型军国主义”成势，恐将再
+摩根士丹利策略师David Adams、Andrew Watrous和Molly Nickolin等人在周一报告中写道，美股表现优于全球其他地区股票支持美元走强的观点，但若要涨势持续，美国利差需要朝着有利于美元的方向发展。 “‘美国例外论’日益成为市场共识，这正在引发围绕美元前景的讨论，”他们表示，“只有在美国利差也扩大的情况下，美股跑赢全球其他地区股票才会带来美元走强” “结
 
 ## 正文
 
-资讯很有料｜日本推进设立“国家情报局” 妄图给军国主义阴魂再造“血肉” 长期以来，日本并未认真反省二战侵略罪行，反而借助靖国神社供奉的二战战犯牌位和被篡改的历史教科书，为军国主义阴魂提供庇护。
+摩根士丹利策略师David Adams、Andrew Watrous和Molly Nickolin等人在周一报告中写道，美股表现优于全球其他地区股票支持美元走强的观点，但若要涨势持续，美国利差需要朝着有利于美元的方向发展。
 
-高市早苗内阁上台以来，日本军国主义似有加速复活之势。
+“‘美国例外论’日益成为市场共识，这正在引发围绕美元前景的讨论，”他们表示，“只有在美国利差也扩大的情况下，美股跑赢全球其他地区股票才会带来美元走强” “结果是，美联储前景将决定美元下一阶段走势，”他们写道，“如果美联储不加息，美元涨势很可能已经过头” 彭博美元即期指数上周五创两个多月来最佳单日表现，当时强劲的劳动力市场报告促使交易员认为美联储在今年底前加息的概率为100%。
 
-近期，日本政府正加快推进“国家情报局”相关法案的审议，这凸显出高市内阁妄图为军国主义阴魂重塑“血肉”。
+该指数自美国2月底打击伊朗以来上涨约2%。
 
-一旦“新型军国主义”成势，恐将再次为祸人间。
+“我们维持这样的观点：6月的联邦公开市场委员会（FOMC）会议对于美元前景以及为步入夏季的外汇市场奠定整体基调都将至关重要，”策略师写道。
 
-日本推动情报体系重构 军国主义阴魂再次“睁眼”5月8日，高市早苗内阁推动的设立“国家情报局”相关法案在日本参议院全体会议进入审议阶段。
-
-该法案已于4月23日在众议院全体会议上通过。
-
-由于支持法案的各党派在参议院也拥有过半数席位，其很可能在本届国会内完成立法程序。
-
-根据日本《读卖新闻》7日的报道，政府消息人士透露，高市内阁最早将在今年夏天成立约700人规模的“国家情报局”，并在此之后扩大编制。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 18:25 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 18:40 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 18:33 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 18:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 18:40 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 18:28 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 18:34 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 18:24 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 18:33 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 18:20 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 18:19 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 18:30 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 18:38 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 18:18 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 18:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 18:42 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 18:36 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 18:33 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 18:39 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 18:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 18:23 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/9741646161.shtml)
-- 2026-06-29 18:41 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/53985.shtml)
-- 2026-06-29 18:18 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/9502685503.shtml)
-- 2026-06-29 18:31 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/0607471.shtml)
-- 2026-06-29 18:20 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/4138432827.shtml)
-- 2026-06-29 18:19 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/8370688.shtml)
-- 2026-06-29 18:30 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/26409509100.shtml)
-- 2026-06-29 18:34 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/970171323062.shtml)
-- 2026-06-29 18:32 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/414006929.shtml)
-- 2026-06-29 18:21 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.minike.top/Article/details/7079065088.shtml)
-- 2026-06-29 18:19 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/392619930924.shtml)
-- 2026-06-29 18:19 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/8454743.shtml)
-- 2026-06-29 18:30 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/552848296.shtml)
-- 2026-06-29 18:19 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/919320781042.shtml)
-- 2026-06-29 18:15 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/5591460.shtml)
+- 2026-06-29 18:43 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/3186866.shtml)
+- 2026-06-29 18:24 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/424649.shtml)
+- 2026-06-29 18:23 - [急先锋](https://www.share.kurohicncr.top/Article/details/68968.shtml)
+- 2026-06-29 18:40 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/02243.shtml)
+- 2026-06-29 18:19 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/134883256.shtml)
+- 2026-06-29 18:23 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/4966536284.shtml)
+- 2026-06-29 18:26 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/8975403.shtml)
+- 2026-06-29 18:40 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/19253557331.shtml)
+- 2026-06-29 18:19 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/619914797148.shtml)
+- 2026-06-29 18:46 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/92447.shtml)
+- 2026-06-29 18:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/43479734.shtml)
+- 2026-06-29 18:22 - [流金岁月](http://www.share.kurohicncr.top/Article/details/4526239900.shtml)
+- 2026-06-29 18:19 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/6580040.shtml)
+- 2026-06-29 18:32 - [《贺子珍》](https://www.share.minike.top/Article/details/3511716662.shtml)
+- 2026-06-29 18:35 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/751996374.shtml)
