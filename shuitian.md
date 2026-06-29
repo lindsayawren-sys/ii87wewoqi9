@@ -1,47 +1,57 @@
-# 中国选手赵一程打破男子速度攀岩世界纪录
+# 东西问｜赵树坤：东西方如何携手迈向“数字包容”新图景？
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-新华社江苏吴江5月10日电(记者王沁鸥、王恒志)在10日结束的2026年攀岩世界杯吴江站中，中国选手赵一程在半决赛中以4秒54的成绩创造男子速度攀岩世界纪录，并最终夺冠。原纪录是由他自己此前在第六届亚洲沙滩运动会上创造的4秒58。
+中新社成都6月14日电 题：东西方如何携手迈向“数字包容”新图景？ 作者 赵树坤 西南政法大学人权研究院教授、《人权法学》副主编 包容和包容性是联合国《全球数字契约》、欧盟《数字十年政策计划》等文本中的高频词。中国在快速推进数字建设的同时，始终关注“数字包容”议题。 “数字包容”源于对数字鸿沟的回应。早期主要关注网络接入、设备拥有和信息获取的差距等问题。在中国，这些问题进一步与
 
 ## 正文
 
-新华社江苏吴江5月10日电(记者王沁鸥、王恒志)在10日结束的2026年攀岩世界杯吴江站中，中国选手赵一程在半决赛中以4秒54的成绩创造男子速度攀岩世界纪录，并最终夺冠。
+中新社成都6月14日电 题：东西方如何携手迈向“数字包容”新图景？
 
-原纪录是由他自己此前在第六届亚洲沙滩运动会上创造的4秒58。
+作者 赵树坤 西南政法大学人权研究院教授、《人权法学》副主编 包容和包容性是联合国《全球数字契约》、欧盟《数字十年政策计划》等文本中的高频词。
+
+中国在快速推进数字建设的同时，始终关注“数字包容”议题。
+
+“数字包容”源于对数字鸿沟的回应。
+
+早期主要关注网络接入、设备拥有和信息获取的差距等问题。
+
+在中国，这些问题进一步与城乡、区域以及老年人、残障人士、妇女儿童等特定群体的数字机会平等联系在一起。
+
+随着各领域数字化的发展，这些问题被进一步扩展为接入、使用、服务和发展机会的综合公平。
+
+中国正在通过基础设施建设、产品适配、场景嵌入和能力支持，将“数字包容”实体化。
 
 ## 相关推荐
 
-- 2026-06-29 20:53 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 21:01 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 20:54 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 20:52 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 20:39 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 20:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 20:57 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 20:42 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 21:04 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 20:36 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 20:45 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 20:40 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 20:44 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 20:44 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 21:11 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 21:11 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 20:44 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 20:42 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 21:11 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 20:43 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 20:44 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 20:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 20:42 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 20:44 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:46 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/39072620574.shtml)
-- 2026-06-29 20:57 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/7960882.shtml)
-- 2026-06-29 20:56 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/768709635.shtml)
-- 2026-06-29 20:39 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/1981247428.shtml)
-- 2026-06-29 20:52 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/5880677.shtml)
-- 2026-06-29 20:45 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/525092333.shtml)
-- 2026-06-29 21:05 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/307837.shtml)
-- 2026-06-29 20:50 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/89547394.shtml)
-- 2026-06-29 20:57 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/578034948432.shtml)
-- 2026-06-29 20:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/282524433055.shtml)
-- 2026-06-29 20:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/8050001608.shtml)
-- 2026-06-29 21:02 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/2124253.shtml)
-- 2026-06-29 20:59 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/65884430.shtml)
-- 2026-06-29 20:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/612166122892.shtml)
-- 2026-06-29 20:38 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/3660196.shtml)
+- 2026-06-29 21:11 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/215558663377.shtml)
+- 2026-06-29 21:06 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/13005.shtml)
+- 2026-06-29 21:10 - [一生一世](http://www.blog.kurohicncr.top/Article/details/752216068.shtml)
+- 2026-06-29 20:58 - [一汽大众黄金超混技术来袭](http://www.share.kurohicncr.top/Article/details/802939484085.shtml)
+- 2026-06-29 20:54 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/12498.shtml)
+- 2026-06-29 21:05 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.minike.top/Article/details/6997806.shtml)
+- 2026-06-29 21:08 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/731277503849.shtml)
+- 2026-06-29 21:04 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/38476729.shtml)
+- 2026-06-29 21:11 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/963325383744.shtml)
+- 2026-06-29 20:58 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/483233.shtml)
+- 2026-06-29 21:07 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/89493.shtml)
+- 2026-06-29 21:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/22308904720.shtml)
+- 2026-06-29 21:04 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/29689.shtml)
+- 2026-06-29 21:07 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/501993.shtml)
+- 2026-06-29 21:09 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/9109083286.shtml)

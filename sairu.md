@@ -1,50 +1,60 @@
-# 三星电子、SK海力士股价屡创新高 “含韩”ETF业绩与规模双升
+# 沃伦参议员致信特朗普，质询政府是否计划上调社保法定退休年龄
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-人民财讯5月11日电，受韩国半导体龙头三星电子、SK海力士股价屡创新高提振，A股及港股市场布局韩股半导体赛道的相关基金产品，年内持续获得资金集中追捧，成为市场热门配置标的。 其中，中韩半导体ETF华泰柏瑞作为A股首只可投资于韩国股票市场的ETF，因当前QDII额度稀缺、板块投资情绪居高不下，持续出现溢价，年内涨幅达98.76%，近乎实现翻倍收益。新晋纳入南向ETF通的南方东英富
+核心要点 马萨诸塞州民主党联邦参议员伊丽莎白・沃伦要求特朗普政府澄清其对于上调社保退休年龄的立场。 周日晚间，沃伦致信特朗普总统，援引美国社会保障局最新受托人报告数据。报告最新预测显示，用于发放养老金的社保信托基金将在 2032 年末耗尽，距今仅剩六年多时间；如果国会议员届时未出台补救法案，养老金仅能发放原有标准的 78%。 沃伦在信中写道：“共和党历来屡次尝试提高退休年龄、推
 
 ## 正文
 
-人民财讯5月11日电，受韩国半导体龙头三星电子、SK海力士股价屡创新高提振，A股及港股市场布局韩股半导体赛道的相关基金产品，年内持续获得资金集中追捧，成为市场热门配置标的。
+核心要点 马萨诸塞州民主党联邦参议员伊丽莎白・沃伦要求特朗普政府澄清其对于上调社保退休年龄的立场。
 
-其中，中韩半导体ETF华泰柏瑞作为A股首只可投资于韩国股票市场的ETF，因当前QDII额度稀缺、板块投资情绪居高不下，持续出现溢价，年内涨幅达98.76%，近乎实现翻倍收益。
+周日晚间，沃伦致信特朗普总统，援引美国社会保障局最新受托人报告数据。
 
-新晋纳入南向ETF通的南方东英富时香港韩国科技+指数ETF（简称“南方港韩科技”），于5月6日正式“入通”，首日行情大幅异动，涨幅一度突破100%，盘中最高触及19.96港元。
+报告最新预测显示，用于发放养老金的社保信托基金将在 2032 年末耗尽，距今仅剩六年多时间；如果国会议员届时未出台补救法案，养老金仅能发放原有标准的 78%。
 
-港股杠杆类韩国半导体ETF的表现同样亮眼，南方东英2倍做多SK海力士ETF（简称“XL二南方海力士”）、南方东英2倍做多三星电子ETF（简称“XL二南三星”）年内涨幅均突破3倍，产品关注度与规模同步走高。
+沃伦在信中写道：“共和党历来屡次尝试提高退休年龄、推动社保私有化或是削减养老金福利。
 
-责任编辑：吴思楠
+如今部分国会共和党议员提出，上调退休年龄、对养老金实施收入核查是解决社保资金缺口的‘良方’。
+
+” 多位专家表示，调整社保领取年龄门槛，本质等同于削减退休人员福利。
+
+白宫暂未就沃伦的信函对外作出回应。
+
+上周有媒体问及本届政府社保改革规划，包括是否考虑上调退休年龄时，白宫发言人莉兹・休斯顿通过邮件表态：“特朗普总统将始终维护并强化社保体系。
 
 ## 相关推荐
 
-- 2026-06-29 21:05 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 21:03 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 21:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 20:44 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 20:59 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 20:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 20:51 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 21:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 21:04 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 20:59 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 20:47 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 21:06 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 20:48 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 20:53 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 21:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 21:02 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 21:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 21:02 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 20:58 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 20:55 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 20:49 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 21:08 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 20:57 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 20:45 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/69268656459.shtml)
-- 2026-06-29 20:39 - [爱很美味](https://www.share.kurohicncr.top/Article/details/267204217527.shtml)
-- 2026-06-29 20:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/82876.shtml)
-- 2026-06-29 20:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/32846732.shtml)
-- 2026-06-29 20:52 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/207520.shtml)
-- 2026-06-29 20:40 - [巴西10号球衣是天才传承史](http://www.blog.minike.top/Article/details/9138326636.shtml)
-- 2026-06-29 20:58 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/420683049.shtml)
-- 2026-06-29 21:00 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/15714385.shtml)
-- 2026-06-29 20:41 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/527650.shtml)
-- 2026-06-29 21:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/996529965.shtml)
-- 2026-06-29 20:55 - [TOP Prada](https://www.blog.minike.top/Article/details/987645957198.shtml)
-- 2026-06-29 20:43 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/549821.shtml)
-- 2026-06-29 20:59 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/16815674930.shtml)
-- 2026-06-29 20:42 - [斛珠夫人](http://www.blog.minike.top/Article/details/94951436010.shtml)
-- 2026-06-29 20:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/492911926.shtml)
+- 2026-06-29 21:10 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/222339.shtml)
+- 2026-06-29 21:01 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/01096577987.shtml)
+- 2026-06-29 20:43 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/3886900318.shtml)
+- 2026-06-29 20:53 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/75720.shtml)
+- 2026-06-29 20:55 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/766026.shtml)
+- 2026-06-29 20:55 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/839084.shtml)
+- 2026-06-29 21:08 - [起风了](http://www.share.minike.top/Article/details/62711317.shtml)
+- 2026-06-29 20:50 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/2692011.shtml)
+- 2026-06-29 21:08 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/029025.shtml)
+- 2026-06-29 20:56 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/709551142276.shtml)
+- 2026-06-29 20:55 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/505971350574.shtml)
+- 2026-06-29 21:01 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/8075684.shtml)
+- 2026-06-29 20:59 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/780127119.shtml)
+- 2026-06-29 20:44 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/909926038.shtml)
+- 2026-06-29 21:00 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/46170.shtml)

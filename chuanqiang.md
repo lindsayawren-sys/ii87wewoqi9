@@ -1,56 +1,51 @@
-# 可回收火箭首飞潮来袭+SpaceX大动作！华宝基金军工ETF（512810）周线六连阳，商业航天权重近80%成最强引擎
+# 上海：截至一季度末科技创新和技术改造贷款签约金额1490亿元
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-5月8日，商业航天概念逆市爆发，带动军工板块持续走高！高人气军工ETF华宝（512810）放量收涨2.03%，日线五连阳！全天成交8187万元，较上日激增逾57%。本周，512810场内累涨5.29%跑赢大市，周线豪取六连阳。 军工ETF华宝（512810）80只成份股中66股收红，航天发展涨停封板，中科星图收涨近8%，中国卫星涨6． 41%，航天电子、航天南湖、中国卫通等多股
+6月15日金融一线消息，近日，人民银行上海总部、市发展改革委、市财政局、市经济信息化委、市科委、市住房城乡建设管理委、市交通委、市农业农村委、市水务局、市应急管理局、市国资委等十一部门联合召开上海市科技创新和技术改造贷款工作推进会。 会议指出，自科技创新和技术改造再贷款政策实施以来，人民银行上海总部与上海市相关部门紧密合作，引导在沪金融机构加强名单内企业和项目的融资对接，推动信
 
 ## 正文
 
-5月8日，商业航天概念逆市爆发，带动军工板块持续走高！
+6月15日金融一线消息，近日，人民银行上海总部、市发展改革委、市财政局、市经济信息化委、市科委、市住房城乡建设管理委、市交通委、市农业农村委、市水务局、市应急管理局、市国资委等十一部门联合召开上海市科技创新和技术改造贷款工作推进会。
 
-高人气军工ETF华宝（512810）放量收涨2.03%，日线五连阳！
+会议指出，自科技创新和技术改造再贷款政策实施以来，人民银行上海总部与上海市相关部门紧密合作，引导在沪金融机构加强名单内企业和项目的融资对接，推动信贷落地投放，政策实施取得阶段性成效。
 
-全天成交8187万元，较上日激增逾57%。
+截至2026年一季度末，上海市科技创新和技术改造贷款签约金额1490亿元，贷款余额676亿元，较上年同期翻了一番。
 
-本周，512810场内累涨5.29%跑赢大市，周线豪取六连阳。
-
-军工ETF华宝（512810）80只成份股中66股收红，航天发展涨停封板，中科星图收涨近8%，中国卫星涨6． 41%，航天电子、航天南湖、中国卫通等多股涨超5%。
-
-据iFinD数据，截至4月末，军工ETF华宝（512810）紧密跟踪的中证军工指数覆盖59只商业航天概念股，权重占比合计达78.83%。
-
-从行情驱动来看，近期商业航天领域催化剂持续增多。
-
-国内，二季度有望开启可回收火箭首飞潮。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 20:48 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 20:43 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 20:58 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 20:44 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 20:46 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 20:36 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 20:43 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 20:55 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 20:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 20:51 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 20:51 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 20:47 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 20:42 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 20:48 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 20:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 20:58 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 20:42 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 20:58 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 20:48 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 20:56 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 20:53 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 21:10 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 20:49 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:42 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/182162.shtml)
-- 2026-06-29 21:00 - [网红小徐直播时突遇地震](http://www.blog.kurohicncr.top/Article/details/136601945.shtml)
-- 2026-06-29 20:48 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/322336616.shtml)
-- 2026-06-29 20:40 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/9388262.shtml)
-- 2026-06-29 20:52 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/03721419693.shtml)
-- 2026-06-29 21:01 - [天柱山回应网红打卡树枝被砍](http://www.blog.kurohicncr.top/Article/details/311289499.shtml)
-- 2026-06-29 21:04 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/90317.shtml)
-- 2026-06-29 21:04 - [杨德龙：创新药迎来新的发展机遇](https://www.share.kurohicncr.top/Article/details/5381647530.shtml)
-- 2026-06-29 20:59 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/320749354.shtml)
-- 2026-06-29 20:40 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/639550093267.shtml)
-- 2026-06-29 20:38 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/43719699.shtml)
-- 2026-06-29 21:05 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/619022566.shtml)
-- 2026-06-29 21:02 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/334609618643.shtml)
-- 2026-06-29 20:38 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/42879091.shtml)
-- 2026-06-29 20:57 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/63858134.shtml)
+- 2026-06-29 21:01 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/119215565164.shtml)
+- 2026-06-29 21:07 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/915720.shtml)
+- 2026-06-29 21:00 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/09168836.shtml)
+- 2026-06-29 21:07 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/42360.shtml)
+- 2026-06-29 21:00 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/9352442.shtml)
+- 2026-06-29 20:59 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/1426380.shtml)
+- 2026-06-29 20:45 - [男子40度高温下骑行严重晒伤](https://www.share.minike.top/Article/details/63166994.shtml)
+- 2026-06-29 20:56 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/31113563.shtml)
+- 2026-06-29 21:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/4963935059.shtml)
+- 2026-06-29 20:55 - [厨房装空调还是装冷烟机](https://www.share.kurohicncr.top/Article/details/104259.shtml)
+- 2026-06-29 21:04 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/88491139.shtml)
+- 2026-06-29 20:53 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/601414058877.shtml)
+- 2026-06-29 21:02 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/00629.shtml)
+- 2026-06-29 20:56 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/700078.shtml)
+- 2026-06-29 20:52 - [起风了](https://www.blog.minike.top/Article/details/852722.shtml)

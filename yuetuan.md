@@ -1,57 +1,44 @@
-# 金花股份再曝资金占用，投资者索赔通道开启
+# 玖龙纸业获若干银行提供20亿元的贷款
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月，金花股份因再曝关联方资金占用及内控重大缺陷，不仅领受了监管层的行政监管与纪律处分，股价更是陷入了连续跌停的困境。 4月10日，金花股份公告收到陕西证监局《行政监管措施决定书》。经查，公司在2025年期间，通过预付天然气采购款、原材料及包材采购款等方式，
+玖龙纸业（02689）公布，玖龙纸业（控股）有限公司（作为借款人），与若干银行（作为贷款人）订立贷款协议，于2026年6月获提供人民币20亿的贷款。责任编辑：卢昱君
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+玖龙纸业（02689）公布，玖龙纸业（控股）有限公司（作为借款人），与若干银行（作为贷款人）订立贷款协议，于2026年6月获提供人民币20亿的贷款。
 
-4月，金花股份因再曝关联方资金占用及内控重大缺陷，不仅领受了监管层的行政监管与纪律处分，股价更是陷入了连续跌停的困境。
-
-4月10日，金花股份公告收到陕西证监局《行政监管措施决定书》。
-
-经查，公司在2025年期间，通过预付天然气采购款、原材料及包材采购款等方式，资金流入关联方或替关联方偿还债务，再次构成关联方期间资金占用行为，涉及金额高达3956.89万元。
-
-基于此，陕西证监局对公司采取责令改正措施，并对董事长邢雅江、总经理韩卓军等核心高管出具警示函。
-
-4月28日，金花股份披露2025年年度报告，其审计机构信永中和会计师事务所对公司财务报告内部控制出具了“否定意见”。
-
-审计机构明确指出：公司在2025年再次发生资金占用事项，表明其在关联交易决策、资金管理、信息披露等方面存在内部控制重大缺陷。
-
-根据相关规定，公司股票于4月29日停牌一天，4月30日复牌后股票简称由“金花股份”变更为“ST金花（维权）”。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:42 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 20:44 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 20:58 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 20:56 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 20:45 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 20:49 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 20:55 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 20:59 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 20:37 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 20:53 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 20:41 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 21:03 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 21:09 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 20:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 20:51 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 21:03 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 20:54 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 20:43 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 21:04 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 21:04 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 20:43 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:40 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/527673042.shtml)
-- 2026-06-29 20:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/761271.shtml)
-- 2026-06-29 20:41 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/732574.shtml)
-- 2026-06-29 20:43 - [林逸向方筱然求婚了](http://www.blog.kurohicncr.top/Article/details/488062096.shtml)
-- 2026-06-29 20:49 - [金鹰奖第二阶段投票明日开启](https://www.share.minike.top/Article/details/59512.shtml)
-- 2026-06-29 20:49 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/53903508406.shtml)
-- 2026-06-29 20:48 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/4839387854.shtml)
-- 2026-06-29 21:04 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/636584658.shtml)
-- 2026-06-29 20:58 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/535933467.shtml)
-- 2026-06-29 20:54 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/637355401.shtml)
-- 2026-06-29 21:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/5919180857.shtml)
-- 2026-06-29 20:56 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/4779164018.shtml)
-- 2026-06-29 20:55 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/34049693.shtml)
-- 2026-06-29 20:59 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.minike.top/Article/details/917149.shtml)
-- 2026-06-29 21:03 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/794268866946.shtml)
+- 2026-06-29 20:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/13701.shtml)
+- 2026-06-29 21:04 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/35461850997.shtml)
+- 2026-06-29 21:05 - [第一炉香](https://www.blog.minike.top/Article/details/713990.shtml)
+- 2026-06-29 20:46 - [啊啊啊](http://www.share.minike.top/Article/details/59873.shtml)
+- 2026-06-29 20:53 - [RAY评乘风2026总决赛](https://www.blog.minike.top/Article/details/480756.shtml)
+- 2026-06-29 20:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/81395170.shtml)
+- 2026-06-29 21:11 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/9360022.shtml)
+- 2026-06-29 20:52 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/82498788.shtml)
+- 2026-06-29 21:08 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/970297582118.shtml)
+- 2026-06-29 21:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/70847389325.shtml)
+- 2026-06-29 20:54 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/34886210.shtml)
+- 2026-06-29 20:47 - [店员光脚踩入盆中清洗土豆](http://www.share.kurohicncr.top/Article/details/650951454038.shtml)
+- 2026-06-29 20:53 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/938944629630.shtml)
+- 2026-06-29 21:06 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/088904.shtml)
+- 2026-06-29 21:05 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/780443.shtml)

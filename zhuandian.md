@@ -1,56 +1,59 @@
-# 酒价内参5月11日价格发布：精品茅台下跌2元
+# 广州刑拘涉诈嫌疑人同比升67.4% 拦截挽损超4.5亿元
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月11日整体继续回暖。如果主要单品各取一瓶整体打包售卖，今日总售价为9955元，较昨日上涨11元，创下近12天以来最高。市场连续两日走强，终端交投情绪保持活跃，核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨五跌一平，涨跌结构均
+中新网广州6月15日电 (方伟彬 刘金华 张梦彦)广州市公安局新闻中心15日通报：面对电诈手法迭代加快、跨境化隐蔽性增强的新态势，广州警方联合金融、通信、互联网等行业部门，聚焦“打、防、管、控、治、宣”全链条治理，2026年以来实现全市诈骗及关联犯罪警情、案件同比分别下降13.6%、18.2%，破案数、刑拘数同比分别上升141.9%、67.4%的“两降两升”，为群众拦截挽损超4
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月11日整体继续回暖。
+中新网广州6月15日电 (方伟彬 刘金华 张梦彦)广州市公安局新闻中心15日通报：面对电诈手法迭代加快、跨境化隐蔽性增强的新态势，广州警方联合金融、通信、互联网等行业部门，聚焦“打、防、管、控、治、宣”全链条治理，2026年以来实现全市诈骗及关联犯罪警情、案件同比分别下降13.6%、18.2%，破案数、刑拘数同比分别上升141.9%、67.4%的“两降两升”，为群众拦截挽损超4.5亿元。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9955元，较昨日上涨11元，创下近12天以来最高。
+利剑出鞘：刑拘8200余人，攻坚黑灰产全链条。
 
-市场连续两日走强，终端交投情绪保持活跃，核心单品涨跌分化依然显著。
+打击是最直接有效的手段。
 
-今日白酒市场11大单品五涨五跌一平，涨跌结构均衡。
+广州警方保持高压严打，重点攻坚非法买卖“两卡”、网络账号及引流推广、“跑分”洗钱等上下游黑灰产，今年已开展4批次专项攻坚，刑拘涉诈嫌疑人8200余名。
 
-上涨方面，古井贡古20与青花郎涨幅居前，均上涨5元/瓶，双双收获二连阳。
+今年5月，警方依托群众举报在广州番禺打掉一假借招工为幌子的涉诈团伙——该团伙在招聘平台发布信息，诱导应聘者实名办理第三方支付账户后转售境外诈骗集团用于资金流转，现场抓获18人，主要成员已被依法刑拘。
 
-前者价格连续两日快速回弹，重回月内高位550元关口，后者创下近一月最高价格，近期该酒品在700元关口附近波动较为剧烈；习酒君品上涨4元/瓶；国窖1573上涨3元/瓶；五粮液1618上涨1元/瓶。
+智慧赋能：上门劝阻19.3万人次，避免损失3.1亿元。
 
-下跌方面，茅台系飞天茅台与精品茅台均下跌2元/瓶；青花汾20、洋河梦之蓝M6+及水晶剑南春均下跌1元/瓶。
+以防为先，广州警方依托大数据模型深化预警劝阻与资金拦截：累计上门见面劝阻19.3万人次，阻断潜在案件3400余起，避免损失3.1亿元；全量警情快速止付机制已为1900余名受害群众追回8200余万元；针对线下交现金、黄金等新型手法，创新快速拦截机制，劝阻1100余人停止交易，现场拦截现金6000余万元、黄金3.7千克，整体拦截成功率超90%。
 
-五粮液普五八代的价格环比保持不变。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:52 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 20:39 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 20:59 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 21:01 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 20:37 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 20:38 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 21:01 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 20:38 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 20:45 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 20:38 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 21:07 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 21:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 21:04 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 20:49 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 20:54 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 21:02 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 20:42 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 20:45 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 21:09 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 21:07 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 20:53 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 20:55 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 20:48 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:39 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/9885091.shtml)
-- 2026-06-29 20:44 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/9247195.shtml)
-- 2026-06-29 20:41 - [网友晒14年前支教影像等来学生评论](http://www.blog.kurohicncr.top/Article/details/46929665.shtml)
-- 2026-06-29 21:02 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.minike.top/Article/details/14673.shtml)
-- 2026-06-29 20:51 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/50831.shtml)
-- 2026-06-29 20:38 - [存储三巨头被告了](https://www.share.minike.top/Article/details/238940.shtml)
-- 2026-06-29 20:46 - [85花告别古偶](http://www.blog.minike.top/Article/details/28263561823.shtml)
-- 2026-06-29 21:00 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/60946.shtml)
-- 2026-06-29 21:03 - [厨房装空调还是装冷烟机](https://www.share.minike.top/Article/details/7363089.shtml)
-- 2026-06-29 20:58 - [送你一朵小红花](http://www.share.minike.top/Article/details/35104135251.shtml)
-- 2026-06-29 20:40 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/50129075172.shtml)
-- 2026-06-29 20:43 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/9263654.shtml)
-- 2026-06-29 20:43 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/97931296186.shtml)
-- 2026-06-29 20:56 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/990050408552.shtml)
-- 2026-06-29 20:48 - [青春环游记第三季](https://www.share.minike.top/Article/details/0188521.shtml)
+- 2026-06-29 21:04 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/5411181.shtml)
+- 2026-06-29 21:10 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/337497558044.shtml)
+- 2026-06-29 20:49 - [千与千寻](https://www.share.minike.top/Article/details/9628985874.shtml)
+- 2026-06-29 21:08 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/13524250321.shtml)
+- 2026-06-29 20:48 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/4523522.shtml)
+- 2026-06-29 20:49 - [周杰伦千禧年就有小卡了](http://www.share.kurohicncr.top/Article/details/86995085602.shtml)
+- 2026-06-29 21:09 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/4113915700.shtml)
+- 2026-06-29 21:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/7783071.shtml)
+- 2026-06-29 20:47 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/42134.shtml)
+- 2026-06-29 21:00 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/28965.shtml)
+- 2026-06-29 21:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/06092887266.shtml)
+- 2026-06-29 20:52 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/933801.shtml)
+- 2026-06-29 20:46 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/757534435.shtml)
+- 2026-06-29 21:04 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.minike.top/Article/details/441938.shtml)
+- 2026-06-29 21:11 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/373293.shtml)

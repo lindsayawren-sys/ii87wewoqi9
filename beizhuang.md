@@ -1,57 +1,60 @@
-# 菲律宾众议院通过副总统莎拉·杜特尔特弹劾案
+# 各地推动人才下乡 助力乡村振兴
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-中新社马尼拉5月11日电(记者 张兴龙)菲律宾众议院11日通过针对副总统莎拉·杜特尔特的弹劾案，该案后续将递交菲律宾参议院审理。 在菲众议院当天举行的全体会议上，257名众议员投下赞成票，25人反对，9人弃权。表决结果超过菲律宾宪法规定的三分之一众议员支持门槛。 菲众议院对莎拉的指控包括涉嫌滥用机密资金、财产申报不实以及策划暗杀等。 根据程序，菲参议院将在接收到弹劾案后组成弹劾
+央视网消息(新闻联播)：乡村振兴，人才先行。“十五五”规划纲要提出，激励各类人才下乡服务和创业就业。各地不断推出一系列举措，吸引青年入乡发展、回乡创业就业，为乡村振兴注入新活力。 浙江湖州安吉的缫舍村，这个创业团队20多位年轻人研发的无人机远销海外。团队负责人张羽泽是上海人，过去他常常来安吉进行无人机测试，这里不仅有试飞场地，还有创业免息贷款等政策，于是他决定把研发基地搬到这里
 
 ## 正文
 
-中新社马尼拉5月11日电(记者 张兴龙)菲律宾众议院11日通过针对副总统莎拉·杜特尔特的弹劾案，该案后续将递交菲律宾参议院审理。
+央视网消息(新闻联播)：乡村振兴，人才先行。
 
-在菲众议院当天举行的全体会议上，257名众议员投下赞成票，25人反对，9人弃权。
+“十五五”规划纲要提出，激励各类人才下乡服务和创业就业。
 
-表决结果超过菲律宾宪法规定的三分之一众议员支持门槛。
+各地不断推出一系列举措，吸引青年入乡发展、回乡创业就业，为乡村振兴注入新活力。
 
-菲众议院对莎拉的指控包括涉嫌滥用机密资金、财产申报不实以及策划暗杀等。
+浙江湖州安吉的缫舍村，这个创业团队20多位年轻人研发的无人机远销海外。
 
-根据程序，菲参议院将在接收到弹劾案后组成弹劾法庭审理此案。
+团队负责人张羽泽是上海人，过去他常常来安吉进行无人机测试，这里不仅有试飞场地，还有创业免息贷款等政策，于是他决定把研发基地搬到这里。
 
-若最终获得超过三分之二参议员支持，莎拉将被解除副总统职务，并终身不得担任公职。
+分布在湖州乡村的实践站点，能为创业人员提供创业孵化、技能培训、生活配套等服务，吸引了大批来自城市的“新农人”“农创客”。
 
-菲律宾副总统办公室在弹劾案通过后表示，莎拉的律师团队已做好准备，在参议院弹劾审判中为其辩护。
+目前，湖州已有入乡青创项目2300多个。
 
-当天，在菲众议院进行弹劾表决前，菲参议院发生高层人事变动。
+福建南平出台了《“回家乡来、助乡村兴”行动实施方案》，组建了10个返乡创业青年联盟，通过政府提供创业资金支持、开展创业帮带等措施，吸引年轻人返回家乡，助力乡村振兴。
 
 ## 相关推荐
 
-- 2026-06-29 21:02 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 20:56 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 20:51 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 20:36 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 20:41 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-29 20:45 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 20:54 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 20:52 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 20:42 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 21:00 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 20:52 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 21:08 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 20:53 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 20:48 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 21:08 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 21:02 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 20:45 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 20:54 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 20:51 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 20:45 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 21:10 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 20:49 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 21:01 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 21:11 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 20:55 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:55 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/11951823.shtml)
-- 2026-06-29 20:52 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/079549779.shtml)
-- 2026-06-29 20:53 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.kurohicncr.top/Article/details/15701866962.shtml)
-- 2026-06-29 20:44 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/2501642921.shtml)
-- 2026-06-29 20:43 - [大学专业未来如何洗牌](http://www.blog.minike.top/Article/details/661873332.shtml)
-- 2026-06-29 20:59 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/0821874854.shtml)
-- 2026-06-29 21:05 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/072072.shtml)
-- 2026-06-29 21:03 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/6969538.shtml)
-- 2026-06-29 20:40 - [王楚钦称抽签结果出来心情不好](http://www.blog.kurohicncr.top/Article/details/242042016.shtml)
-- 2026-06-29 20:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/422008.shtml)
-- 2026-06-29 20:58 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/3510247.shtml)
-- 2026-06-29 21:05 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/48985430.shtml)
-- 2026-06-29 20:59 - [扬名立万](http://www.blog.minike.top/Article/details/49789997426.shtml)
-- 2026-06-29 20:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/07319007100.shtml)
-- 2026-06-29 20:36 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/203110814.shtml)
+- 2026-06-29 20:42 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/1607641.shtml)
+- 2026-06-29 21:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/2136320.shtml)
+- 2026-06-29 21:01 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.minike.top/Article/details/2456717.shtml)
+- 2026-06-29 20:50 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/00528.shtml)
+- 2026-06-29 21:02 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/154641155164.shtml)
+- 2026-06-29 20:43 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/477264.shtml)
+- 2026-06-29 21:03 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/8952974.shtml)
+- 2026-06-29 20:51 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/47861857.shtml)
+- 2026-06-29 20:43 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/5877095.shtml)
+- 2026-06-29 20:55 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/35630307117.shtml)
+- 2026-06-29 21:00 - [郑钦文谈再战西尼亚科娃](https://www.blog.kurohicncr.top/Article/details/398700793837.shtml)
+- 2026-06-29 20:42 - [我和我的家乡](https://www.share.minike.top/Article/details/7079215.shtml)
+- 2026-06-29 20:57 - [扫黑风暴](http://www.blog.minike.top/Article/details/122672.shtml)
+- 2026-06-29 21:05 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/23600551.shtml)
+- 2026-06-29 20:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/48952771.shtml)

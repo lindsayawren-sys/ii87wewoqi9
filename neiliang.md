@@ -1,56 +1,59 @@
-# 北京市教委国际组织人才培养专项启动
+# 剑指“第一”造假、数据注水！新规如何堵住广告“文字游戏”漏洞？
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-中新网北京5月9日电 2026年北京市教委国际组织人才培养专项启动仪式9日在首都经济贸易大学举行。该专项在京试点面向北京地区部分高校在校学生，坚持“精品化、模块化、协同化”培养模式，健全高校协同共建的课程与实践培训机制，力争形成具有首都特色的国际组织人才系统化培养长效机制。 项目由北京市教育委员会统筹，首都经济贸易大学、北京外国语大学、中国传媒大学、中央财经大学、外交学院等五所
+广告是广大经营主体参与市场竞争的重要手段之一。近年来，部分经营者以明显量身定制的研究报告，甚至是虚假实验数据等作为依据，在广告宣传中进行“萝卜坑式引证”；有的商家使用添加各种定语后的“首创”“第一”等噱头或者口号；还有的在广告中采用“大字吸睛、小字免责”等手段，着力突出商品或服务卖点的同时，显著弱化可能影响消费者购买决策的不利信息。针对此类乱象，市场监管总局日前发布了《广告引证
 
 ## 正文
 
-中新网北京5月9日电 2026年北京市教委国际组织人才培养专项启动仪式9日在首都经济贸易大学举行。
+广告是广大经营主体参与市场竞争的重要手段之一。
 
-该专项在京试点面向北京地区部分高校在校学生，坚持“精品化、模块化、协同化”培养模式，健全高校协同共建的课程与实践培训机制，力争形成具有首都特色的国际组织人才系统化培养长效机制。
+近年来，部分经营者以明显量身定制的研究报告，甚至是虚假实验数据等作为依据，在广告宣传中进行“萝卜坑式引证”；有的商家使用添加各种定语后的“首创”“第一”等噱头或者口号；还有的在广告中采用“大字吸睛、小字免责”等手段，着力突出商品或服务卖点的同时，显著弱化可能影响消费者购买决策的不利信息。
 
-项目由北京市教育委员会统筹，首都经济贸易大学、北京外国语大学、中国传媒大学、中央财经大学、外交学院等五所高校共同承办，立足国际组织人才培养输送工作需要，提升在京高校学生全球胜任力与国际竞争力，加快培育政治素质过硬、外语水平扎实、通晓国际规则、具备优秀跨文化沟通与实践能力的高素质复合型后备人才，搭建市级国际组织人才培养平台，健全北京市国际组织人才选拔、培养、推送和储备工作体系。
+针对此类乱象，市场监管总局日前发布了《广告引证内容执法指南》，剑指其中的各种乱象。
 
-专项首批学员来自全市24所试点高校。
+新规具体将从哪些方面改善广告市场环境？
 
-学员应参加全球治理与国际组织体系、国际规则与多边治理机制、国际组织运行与公共事务管理、国际经贸合作与全球经济治理、跨文化沟通与国际领导力共五个模块的培训和考核，合格者颁发结业证书。
+“某某地区、某某时段、某某品类——销量第一！
 
-各模块课程由核心课程，实践课程，高端讲座三类构成。
+”这样的广告词，你熟悉吗？
 
-北京市委教育工委副书记、市教委主任李奕出席活动时指出，国际组织作为全球公共事务治理、国际规则制定、多边沟通协作的重要平台，已经成为中国参与全球竞争、彰显大国担当、维护国家利益的重要阵地。
+过去，不少商家以为，在“第一”前面堆上一长串限定词就能绕开监管。
 
-北京市委市政府高度重视国际组织引育落户、人才培养工作，培养一批真正理解国际组织运行逻辑、具备国际视野、专业能力和跨文化沟通能力的青年人才，是新时代首都高等教育服务国家战略的重要任务。
+但这次发布的《广告引证内容执法指南》直接戳破了这种“定语游戏”。
 
 ## 相关推荐
 
-- 2026-06-29 20:49 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 21:02 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 20:58 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 21:00 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 20:44 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 21:02 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 20:58 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 21:01 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 21:00 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 20:36 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 21:07 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 20:47 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 20:43 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 21:10 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 20:46 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 20:56 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 20:48 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 20:59 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 20:43 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 21:07 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 20:54 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 21:11 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 20:50 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:54 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/619817635.shtml)
-- 2026-06-29 20:53 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/939126489.shtml)
-- 2026-06-29 20:58 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/92082349482.shtml)
-- 2026-06-29 20:49 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/021169.shtml)
-- 2026-06-29 20:39 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.minike.top/Article/details/7925369238.shtml)
-- 2026-06-29 20:52 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/62668.shtml)
-- 2026-06-29 20:57 - [一生一世](https://www.share.kurohicncr.top/Article/details/31124653.shtml)
-- 2026-06-29 20:41 - [韩文体部对韩足协开展审计 查出局原因](http://www.share.minike.top/Article/details/961590791.shtml)
-- 2026-06-29 21:03 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/50398.shtml)
-- 2026-06-29 20:44 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/45190389972.shtml)
-- 2026-06-29 20:37 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/3894317.shtml)
-- 2026-06-29 20:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/902071264.shtml)
-- 2026-06-29 20:53 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/111736864022.shtml)
-- 2026-06-29 20:47 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/14151.shtml)
-- 2026-06-29 20:51 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/7722908.shtml)
+- 2026-06-29 21:05 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/204605172.shtml)
+- 2026-06-29 20:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/622962025100.shtml)
+- 2026-06-29 20:59 - [恋与深空客服的回应](http://www.blog.minike.top/Article/details/578829827.shtml)
+- 2026-06-29 21:09 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/81716477.shtml)
+- 2026-06-29 20:55 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/00971909658.shtml)
+- 2026-06-29 20:57 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/012646.shtml)
+- 2026-06-29 20:51 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/40047246.shtml)
+- 2026-06-29 21:02 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/590623.shtml)
+- 2026-06-29 21:07 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/91650259520.shtml)
+- 2026-06-29 20:53 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/6837352.shtml)
+- 2026-06-29 20:45 - [东方风云榜直播](https://www.share.minike.top/Article/details/66086.shtml)
+- 2026-06-29 21:02 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/3232517.shtml)
+- 2026-06-29 20:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/2778289.shtml)
+- 2026-06-29 21:02 - [东方风云榜直播](https://www.blog.minike.top/Article/details/03925991393.shtml)
+- 2026-06-29 20:43 - [新官上任三把火](http://www.blog.minike.top/Article/details/358678636977.shtml)

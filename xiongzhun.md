@@ -1,54 +1,60 @@
-# 2026世界杯美加墨三国将分别举办开幕式
+# 湖南一银行前职员职务侵占500万元，牵出案中案：被前女友诈骗197万元，协助行骗的闺蜜被判刑
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-国际足联5月8日宣布，2026年世界杯举办国墨西哥、加拿大和美国将分别举办开幕式。 国际足联主席因凡蒂诺表示：“从墨西哥城开始，接下来是多伦多和洛杉矶，这些开幕式将音乐、文化和足球融为一体，既体现了每个国家的独特性，也展现了本届赛事所代表的团结精神……这将是开启一场全球盛会的有力方式。” 美加墨世界杯将于6月11日开幕，揭幕战是墨西哥队对阵南非队，比赛将在墨西哥城举行。国际足联
+来源：三湘都市报 前女友王花（化名）突然联系，还自称遇到“清宫手术后遗症”“父亲患癌治病”“自身罹患绝症”“驾车肇事赔偿”等一系列“麻烦”，某银行前职员文名（化名）竟利用职务便利，侵占银行资金500万元。俗话说，拔出萝卜带出泥，这个案子中的幕后推手也难逃法网。6月13日，记者从长沙市雨花区人民法院获悉，曾帮王花伪造“绝症”诊断书的闺蜜周怜（化名）因诈骗罪获刑。 闺蜜行骗，她帮忙
 
 ## 正文
 
-国际足联5月8日宣布，2026年世界杯举办国墨西哥、加拿大和美国将分别举办开幕式。
+来源：三湘都市报 前女友王花（化名）突然联系，还自称遇到“清宫手术后遗症”“父亲患癌治病”“自身罹患绝症”“驾车肇事赔偿”等一系列“麻烦”，某银行前职员文名（化名）竟利用职务便利，侵占银行资金500万元。
 
-国际足联主席因凡蒂诺表示：“从墨西哥城开始，接下来是多伦多和洛杉矶，这些开幕式将音乐、文化和足球融为一体，既体现了每个国家的独特性，也展现了本届赛事所代表的团结精神……这将是开启一场全球盛会的有力方式。
+俗话说，拔出萝卜带出泥，这个案子中的幕后推手也难逃法网。
 
-” 美加墨世界杯将于6月11日开幕，揭幕战是墨西哥队对阵南非队，比赛将在墨西哥城举行。
+6月13日，记者从长沙市雨花区人民法院获悉，曾帮王花伪造“绝症”诊断书的闺蜜周怜（化名）因诈骗罪获刑。
 
-国际足联在声明中说，比赛开始前90分钟，墨西哥将以一场“史无前例的开幕式拉开这场地球上最盛大演出的序幕”。
+闺蜜行骗，她帮忙伪造“绝症”诊断书 周怜与王花是多年牌友。
 
-加拿大将于6月12日在多伦多举办开幕式，之后加拿大队将迎战波黑队。
+2020年底，王花与文名经人介绍相识相恋。
 
-美国将于6月12日在洛杉矶举行开幕式，之后美国队将迎来与巴拉圭队的小组赛。
+恋爱期间，王花刻意隐瞒自己与他人恋爱生子的事实，分手后持续以各种虚假理由向文名索要钱财，实施长期诈骗。
 
-美加墨世界杯将于6月11日至7月19日在美国、加拿大、墨西哥的16座城市举行，这是首次有48支球队参赛的世界杯，比赛场次也大幅增加至104场。
+为稳固骗局、持续骗取文名的信任，王花急需一份“重磅证据”来博取对方同情，逼迫对方自愿充当“ATM机”。
+
+为帮好友“解困”，周怜主动牵线搭桥，联系某文印店，花费800元为王花伪造了一份子宫内膜癌诊断书。
 
 ## 相关推荐
 
-- 2026-06-29 20:44 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 21:05 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 20:36 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 20:52 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 20:46 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 20:59 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 20:38 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 21:03 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 20:45 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 20:51 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 20:46 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 20:53 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 20:50 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 20:42 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 21:09 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 21:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 20:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 21:11 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 20:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 20:59 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 21:01 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 20:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 21:03 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 21:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:59 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/1665777.shtml)
-- 2026-06-29 20:38 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/14087999.shtml)
-- 2026-06-29 20:56 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/37010.shtml)
-- 2026-06-29 20:44 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/9303090928.shtml)
-- 2026-06-29 20:55 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/7335756411.shtml)
-- 2026-06-29 20:55 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/81237815.shtml)
-- 2026-06-29 20:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/4476001504.shtml)
-- 2026-06-29 20:53 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/53911146746.shtml)
-- 2026-06-29 20:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/915483.shtml)
-- 2026-06-29 20:56 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/12019.shtml)
-- 2026-06-29 20:42 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/14364121.shtml)
-- 2026-06-29 20:59 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/05185891.shtml)
-- 2026-06-29 20:59 - [急先锋](https://www.share.minike.top/Article/details/647088746168.shtml)
-- 2026-06-29 20:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/26207881801.shtml)
-- 2026-06-29 20:45 - [急先锋](https://www.blog.minike.top/Article/details/2210525512.shtml)
+- 2026-06-29 21:09 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/8785305728.shtml)
+- 2026-06-29 21:04 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/317731367025.shtml)
+- 2026-06-29 20:55 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.minike.top/Article/details/1015280.shtml)
+- 2026-06-29 20:50 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/42283.shtml)
+- 2026-06-29 21:03 - [大学专业未来如何洗牌](https://www.share.minike.top/Article/details/12602615068.shtml)
+- 2026-06-29 21:01 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/806736895494.shtml)
+- 2026-06-29 21:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/52592.shtml)
+- 2026-06-29 20:55 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/09339160316.shtml)
+- 2026-06-29 20:50 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/032247465.shtml)
+- 2026-06-29 21:00 - [郑钦文谈再战西尼亚科娃](http://www.share.minike.top/Article/details/1814504.shtml)
+- 2026-06-29 21:11 - [扬名立万](https://www.share.minike.top/Article/details/72172433890.shtml)
+- 2026-06-29 20:55 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/13371.shtml)
+- 2026-06-29 20:42 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/267333.shtml)
+- 2026-06-29 20:43 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/7068883.shtml)
+- 2026-06-29 20:46 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/366230822.shtml)

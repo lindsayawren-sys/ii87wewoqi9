@@ -1,59 +1,53 @@
-# 东方电气盘中涨超5% 华泰证券维持“买入”评级
+# 河南郑州：唢呐奏响百鸟朝凤 声声祝福送别毕业生
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-东方电气（01072）早盘一度涨超5%，截至发稿，股价上涨3.18%，现报38.24港元，成交额3.56亿港元。 4月30日，东方电气和某北美客户在东方汽轮机厂举行自主燃机出海正式签约仪式；签约体量为10台50MWG50自主燃机，为合作项目一期。据悉，董事会同意东方汽轮机开展自主燃机核心产能提升建设项目，预期2028年初，自主G50产能达到20-30台自主燃机产能。 华泰证券认
+发布时间：2026年06月15日 13:37 来源：中国新闻网 近日，河南郑州一高校毕业典礼惊喜不断。现场有学子用唢呐演奏《百鸟朝凤》，激昂的旋律让全场沸腾。乐曲寓意吉祥、饱含美好祝愿，铿锵乐声也彰显着青年朝气。愿每位毕业生带着这份祝福勇敢前行，展翅奔赴属于自己的璀璨前程。(作者：曹想） 责任编辑：【魏聪聪】
 
 ## 正文
 
-东方电气（01072）早盘一度涨超5%，截至发稿，股价上涨3.18%，现报38.24港元，成交额3.56亿港元。
+发布时间：2026年06月15日 13:37 来源：中国新闻网 近日，河南郑州一高校毕业典礼惊喜不断。
 
-4月30日，东方电气和某北美客户在东方汽轮机厂举行自主燃机出海正式签约仪式；签约体量为10台50MWG50自主燃机，为合作项目一期。
+现场有学子用唢呐演奏《百鸟朝凤》，激昂的旋律让全场沸腾。
 
-据悉，董事会同意东方汽轮机开展自主燃机核心产能提升建设项目，预期2028年初，自主G50产能达到20-30台自主燃机产能。
+乐曲寓意吉祥、饱含美好祝愿，铿锵乐声也彰显着青年朝气。
 
-华泰证券认为，当前全球燃气轮机排产紧张的背景下，东方电气有望充分受益，看好未来海外订单逐渐落地贡献利润弹性。
+愿每位毕业生带着这份祝福勇敢前行，展翅奔赴属于自己的璀璨前程。
 
-2025年2月，公司发布未来三年股东回报规划，明确在2024年分红比例基础上，2025-2027年分红比例将逐年增长至少1pp。
-
-给予公司A/H 股维持“买入”评级。
-
-责任编辑：卢昱君
+(作者：曹想） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 20:40 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 20:39 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 21:02 - [林逸向方筱然求婚了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 20:45 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 20:58 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 20:48 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 20:36 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 20:44 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 20:46 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 21:00 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 20:56 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 20:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 20:42 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 20:50 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 20:47 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 20:56 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 20:50 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 21:11 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 20:58 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 21:05 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 20:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 20:57 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 20:54 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 21:02 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 21:03 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 20:50 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 21:00 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 20:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:59 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/16815288.shtml)
-- 2026-06-29 21:04 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/02888528.shtml)
-- 2026-06-29 20:54 - [东方风云榜直播](http://www.share.minike.top/Article/details/501738428154.shtml)
-- 2026-06-29 20:41 - [新官上任三把火](http://www.share.minike.top/Article/details/169273.shtml)
-- 2026-06-29 21:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/89273112994.shtml)
-- 2026-06-29 20:45 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/84585.shtml)
-- 2026-06-29 20:57 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/4779909599.shtml)
-- 2026-06-29 20:54 - [白玉兰答谢宴合影](https://www.blog.kurohicncr.top/Article/details/247231.shtml)
-- 2026-06-29 21:04 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/237596939.shtml)
-- 2026-06-29 20:53 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/964493.shtml)
-- 2026-06-29 20:39 - [急先锋](http://www.blog.kurohicncr.top/Article/details/430253.shtml)
-- 2026-06-29 20:37 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/3504745.shtml)
-- 2026-06-29 21:01 - [流金岁月](http://www.share.minike.top/Article/details/112122711.shtml)
-- 2026-06-29 20:55 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/18533572.shtml)
-- 2026-06-29 20:46 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/569771.shtml)
+- 2026-06-29 20:52 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/6792881.shtml)
+- 2026-06-29 21:05 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/483270310.shtml)
+- 2026-06-29 21:05 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/47767979427.shtml)
+- 2026-06-29 20:43 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/58148123603.shtml)
+- 2026-06-29 21:10 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/065399968.shtml)
+- 2026-06-29 21:02 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/04209870284.shtml)
+- 2026-06-29 21:04 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/89677847.shtml)
+- 2026-06-29 21:03 - [LPL第三赛段赛制公布](http://www.blog.kurohicncr.top/Article/details/173065241.shtml)
+- 2026-06-29 20:56 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/76242825236.shtml)
+- 2026-06-29 20:47 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/67236946.shtml)
+- 2026-06-29 20:52 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/0133224422.shtml)
+- 2026-06-29 21:05 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/5816712.shtml)
+- 2026-06-29 21:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/131376374119.shtml)
+- 2026-06-29 21:01 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.minike.top/Article/details/816611.shtml)
+- 2026-06-29 20:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/1261257483.shtml)

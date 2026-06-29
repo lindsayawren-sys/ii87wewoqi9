@@ -1,60 +1,61 @@
-# 刷牙后立即漱口等于白刷？医生建议
+# “感知吉林”2026中俄文化交流系列活动在长春启动
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-原标题：刷牙后立即漱口等于白刷？ 医生：功效型牙膏建议刷完15至30分钟后再漱口 每天早晚认真刷牙，刷完马上用清水漱干净——这是多数人多年来的刷牙习惯。但最近，一则“刷牙后马上漱口，可能一直在‘无效刷牙’”的新闻，颠覆了不少人的认知。对此，南京同仁医院口腔牙周专科主治医师朱奕名在接受记者采访时表示，对于含氟牙膏、抗敏感牙膏等功效型牙膏而言，刷牙后立刻漱口，确实可能效果不佳，但对
+中新网长春6月13日电 (记者 郭佳)“感知吉林”2026中俄文化交流系列活动13日在长春启动。该系列活动涵盖体育赛事、艺术交流、非遗体验、乡村研学等板块，将持续至今年12月。 当天，“攀越山海 岩续友谊”——中俄青少年攀岩交流活动在长春理工大学举行，近50名中俄青少年以攀岩为媒互动交流，也为这场为期约半年的系列活动拉开序幕。 活动现场，高耸的攀岩墙成为联结彼此友谊的纽带。中俄
 
 ## 正文
 
-原标题：刷牙后立即漱口等于白刷？
+中新网长春6月13日电 (记者 郭佳)“感知吉林”2026中俄文化交流系列活动13日在长春启动。
 
-医生：功效型牙膏建议刷完15至30分钟后再漱口 每天早晚认真刷牙，刷完马上用清水漱干净——这是多数人多年来的刷牙习惯。
+该系列活动涵盖体育赛事、艺术交流、非遗体验、乡村研学等板块，将持续至今年12月。
 
-但最近，一则“刷牙后马上漱口，可能一直在‘无效刷牙’”的新闻，颠覆了不少人的认知。
+当天，“攀越山海 岩续友谊”——中俄青少年攀岩交流活动在长春理工大学举行，近50名中俄青少年以攀岩为媒互动交流，也为这场为期约半年的系列活动拉开序幕。
 
-对此，南京同仁医院口腔牙周专科主治医师朱奕名在接受记者采访时表示，对于含氟牙膏、抗敏感牙膏等功效型牙膏而言，刷牙后立刻漱口，确实可能效果不佳，但对于普通牙膏来说，并不需要在口腔内特别“停留”。
+活动现场，高耸的攀岩墙成为联结彼此友谊的纽带。
 
-扬子晚报/紫牛新闻记者 许倩倩“对于功效型牙膏，特别是含氟牙膏，为了防龋，我们一般会建议刷完牙后不要立即漱口，如果泡沫太多，可以先吐掉一些，等待15~30分钟之后再正常漱口（不漱口也可以）。
+中俄青少年混合编组，在教练指导下相互鼓励、切磋技艺。
 
-”朱奕名解释说，这样才能让牙膏里的氟化物等有效成分充分附着在牙齿表面，形成保护层，增强牙齿抗龋能力。
+每当选手成功登顶，现场便响起阵阵掌声与欢呼，氛围热烈融洽。
 
-“当然，如果实在觉得嘴里黏糊糊的，可以含一小口水轻轻吐掉，但千万别反复用力漱口，否则就可能把刚刚筑起的‘保护层’也冲走了。
+俄罗斯滨海边疆区体育文化和运动管理局体育和后备人才管理处处长格拉乔夫·尤里·亚历山大洛维奇表示，近年来，滨海边疆区与吉林省在经贸、人文领域交往密切，此次俄罗斯青少年到访吉林，也为他们了解中国打开了新窗口。
 
-” 朱奕名介绍，此前有一项涵盖2000多名青少年的研究数据显示，和刷完立即漱口的人相比，刷完不立即漱口的人，平均患龋率降低了约9%。
+据了解，后续还将开展多场特色活动：在长白山举办“长白论剑”第二届中俄青少年武术交流活动；在珲春举办第二届中俄青少年足球赛；在延吉开展俄罗斯青年舞蹈交流活动；在舒兰举办中俄文化交流周；在双阳组织第二届中俄采摘交流活动。
 
 ## 相关推荐
 
-- 2026-06-29 20:51 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 20:59 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 20:47 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 20:52 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 20:42 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 20:57 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 21:02 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 20:57 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 20:46 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 21:05 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-29 20:46 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 20:51 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 21:04 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 20:41 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 20:55 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 21:04 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 20:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 21:11 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 21:04 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 21:12 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 20:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 20:54 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 20:58 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 21:02 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 20:47 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 20:54 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 21:05 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 21:11 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 21:12 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:49 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/73798461132.shtml)
-- 2026-06-29 20:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/3499532357.shtml)
-- 2026-06-29 20:46 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/540931971.shtml)
-- 2026-06-29 20:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/119356193461.shtml)
-- 2026-06-29 20:43 - [85花告别古偶](https://www.share.minike.top/Article/details/19707053187.shtml)
-- 2026-06-29 20:55 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/313004953296.shtml)
-- 2026-06-29 20:43 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/7745189492.shtml)
-- 2026-06-29 21:03 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/566892041728.shtml)
-- 2026-06-29 20:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/12042.shtml)
-- 2026-06-29 20:56 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/748254969477.shtml)
-- 2026-06-29 20:56 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/5573205.shtml)
-- 2026-06-29 20:40 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/43997.shtml)
-- 2026-06-29 20:44 - [急先锋](https://www.share.minike.top/Article/details/3148587283.shtml)
-- 2026-06-29 21:02 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/155185252.shtml)
-- 2026-06-29 20:48 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/02120962.shtml)
+- 2026-06-29 20:43 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/617207480596.shtml)
+- 2026-06-29 21:09 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/2459709236.shtml)
+- 2026-06-29 21:09 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/515838960.shtml)
+- 2026-06-29 20:58 - [周生如故](https://www.blog.kurohicncr.top/Article/details/40583013113.shtml)
+- 2026-06-29 21:02 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/31090821816.shtml)
+- 2026-06-29 21:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/37843.shtml)
+- 2026-06-29 20:46 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/4531787183.shtml)
+- 2026-06-29 20:55 - [网约车出事故平台拒赔称只是中介](http://www.blog.minike.top/Article/details/96210591008.shtml)
+- 2026-06-29 21:00 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/973959.shtml)
+- 2026-06-29 20:47 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/67008.shtml)
+- 2026-06-29 20:43 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/9558223594.shtml)
+- 2026-06-29 20:44 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/98669179417.shtml)
+- 2026-06-29 21:03 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/04504.shtml)
+- 2026-06-29 21:10 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/5897623513.shtml)
+- 2026-06-29 20:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/65569666950.shtml)

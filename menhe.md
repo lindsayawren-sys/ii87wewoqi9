@@ -1,59 +1,58 @@
-# 中信银行：赵元新副行长任职资格获核准
+# 日月谭天丨岛内积极响应十项涉台新政落地，这才是两岸双向奔赴的样子
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-5月11日金融一线消息，中信银行公告，近日收到国家金融监督管理总局批复，已核准赵元新本行副行长的任职资格。赵元新自2026年5月7日起正式就任本行副行长。 简历显示，赵元新，男，1974 年 2 月出生，自 2026 年 3 月起担任中信银行党委委员，2025 年 11 月起任总行授信执行部总经理。于 2014 年 8 月至 2025 年 11 月历任南昌、苏州、上海分行党委书
+第十八届海峡论坛正在福建厦门火热进行。作为本届论坛一大亮点，十项促进两岸交流合作的政策措施对接签约会日前成功举行。大陆企业与来自台湾多地的企业和商协会进行签约，采购台湾台东、云林、南投等县市的凤梨释迦、文旦柚、茶叶等特色农渔产品。这一喜讯传到岛内，这两天引发热烈反响。因民进党当局设限而没能到现场参会的台东县县长饶庆铃、国民党屏东县党部主任委员苏清泉专门以视频方式向大陆致谢并表示
 
 ## 正文
 
-5月11日金融一线消息，中信银行公告，近日收到国家金融监督管理总局批复，已核准赵元新本行副行长的任职资格。
+第十八届海峡论坛正在福建厦门火热进行。
 
-赵元新自2026年5月7日起正式就任本行副行长。
+作为本届论坛一大亮点，十项促进两岸交流合作的政策措施对接签约会日前成功举行。
 
-简历显示，赵元新，男，1974 年 2 月出生，自 2026 年 3 月起担任中信银行党委委员，2025 年 11 月起任总行授信执行部总经理。
+大陆企业与来自台湾多地的企业和商协会进行签约，采购台湾台东、云林、南投等县市的凤梨释迦、文旦柚、茶叶等特色农渔产品。
 
-于 2014 年 8 月至 2025 年 11 月历任南昌、苏州、上海分行党委书记、行长。
+这一喜讯传到岛内，这两天引发热烈反响。
 
-2005 年 7 月至 2014 年 8 月历任苏州分行行长助理、党委委员、副行长，南昌分行党委书记、行长（一级分行副行长级）。
+因民进党当局设限而没能到现场参会的台东县县长饶庆铃、国民党屏东县党部主任委员苏清泉专门以视频方式向大陆致谢并表示，农渔产品承载着台湾许多家庭的生计和地方产业的希望，签约会对台湾农渔民是莫大的鼓励。
 
-赵元新拥有 29 年中国银行业从业经验，湖南财经学院经济学学士，经济师。
+在谭主看来，十项涉台新政落地的背后，既承载大陆对同胞的善意诚意，也离不开岛内民众渴望两岸交流交往交融的积极响应，这才是两岸同胞双向奔赴的样子。
 
-责任编辑：李琳琳
+新政落地开花 台湾农渔民迎来“及时雨” 《旺报》、中时新闻网等多家台湾媒体援引国务院台办主任宋涛在签约会上的致辞称，此次签约采购台湾特色农渔产品，并连接两岸果园千家万户，落实十项措施已取得积极进展和阶段性的成果。
+
+岛内学者张钧凯表示，此次签约打开了台湾农产品进入拓展大陆市场的新阶段。
 
 ## 相关推荐
 
-- 2026-06-29 20:56 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 20:46 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 20:53 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 20:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 20:38 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 20:45 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 20:48 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 20:39 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 21:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 21:04 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 20:41 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 20:52 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 20:42 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 20:47 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 21:04 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 20:48 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 20:53 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 20:57 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 20:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 20:43 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 20:51 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 20:52 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 20:45 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 20:49 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 21:01 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 20:54 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 21:03 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:49 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/23447112.shtml)
-- 2026-06-29 20:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/47991639.shtml)
-- 2026-06-29 20:36 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/343938.shtml)
-- 2026-06-29 20:37 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/907640257251.shtml)
-- 2026-06-29 21:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/005056381.shtml)
-- 2026-06-29 20:54 - [这一刀 会很帅](https://www.share.minike.top/Article/details/79794.shtml)
-- 2026-06-29 20:50 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/533914459.shtml)
-- 2026-06-29 20:58 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/67227325122.shtml)
-- 2026-06-29 20:41 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/945237900983.shtml)
-- 2026-06-29 20:44 - [刘冰任河南南阳市代市长](https://www.share.kurohicncr.top/Article/details/507725.shtml)
-- 2026-06-29 20:51 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/24706.shtml)
-- 2026-06-29 20:53 - [周生如故](http://www.blog.kurohicncr.top/Article/details/22452.shtml)
-- 2026-06-29 21:05 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.kurohicncr.top/Article/details/866237118.shtml)
-- 2026-06-29 21:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/8640896.shtml)
-- 2026-06-29 21:01 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/5874605.shtml)
+- 2026-06-29 21:02 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/788858622006.shtml)
+- 2026-06-29 20:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/121880196.shtml)
+- 2026-06-29 20:48 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/5981415286.shtml)
+- 2026-06-29 20:44 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/187083.shtml)
+- 2026-06-29 20:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/0341597.shtml)
+- 2026-06-29 20:57 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/611605.shtml)
+- 2026-06-29 20:43 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/7677263.shtml)
+- 2026-06-29 21:09 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.minike.top/Article/details/76642619567.shtml)
+- 2026-06-29 20:51 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/12719766540.shtml)
+- 2026-06-29 21:08 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/5190641.shtml)
+- 2026-06-29 20:59 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/8605492.shtml)
+- 2026-06-29 20:47 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/5767391502.shtml)
+- 2026-06-29 20:59 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/484117.shtml)
+- 2026-06-29 21:03 - [锐评白玉兰提名片段](https://www.blog.minike.top/Article/details/17027598253.shtml)
+- 2026-06-29 20:43 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/252086441105.shtml)

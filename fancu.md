@@ -1,52 +1,43 @@
-# 英特尔、AMD、美光科技有望延续涨势并再创新高
+# 联合国秘书长欢迎美伊就和平协议达成一致
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-半导体股在盘前交易中上涨，有望延续涨势，此前多只芯片股在上周五收于纪录高位。最新一轮上涨主要受到投资者对人工智能基础设施建设持续热情的推动。 这波半导体股涨势也蔓延至亚洲市场：亚洲芯片股飙升至历史新高，延续全球科技股涨势。 部分盘前表现突出的个股包括：英特尔涨6.9%，美光科技涨3.3%，AMD涨2.5%，高通涨1.7%。责任编辑：刘明亮
+发布时间：2026年06月15日 13:48 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-半导体股在盘前交易中上涨，有望延续涨势，此前多只芯片股在上周五收于纪录高位。
-
-最新一轮上涨主要受到投资者对人工智能基础设施建设持续热情的推动。
-
-这波半导体股涨势也蔓延至亚洲市场：亚洲芯片股飙升至历史新高，延续全球科技股涨势。
-
-部分盘前表现突出的个股包括：英特尔涨6.9%，美光科技涨3.3%，AMD涨2.5%，高通涨1.7%。
-
-责任编辑：刘明亮
+发布时间：2026年06月15日 13:48 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 20:49 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 20:54 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 20:37 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 20:46 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 20:37 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 20:46 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 20:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 20:49 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 20:37 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 20:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 21:03 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 20:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 21:03 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 20:56 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 20:45 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 20:46 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 20:47 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 20:42 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 20:46 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 20:42 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 21:06 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 21:01 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 20:56 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:50 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/37025749.shtml)
-- 2026-06-29 20:55 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/68805142.shtml)
-- 2026-06-29 20:45 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/74211885.shtml)
-- 2026-06-29 20:43 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/33351453.shtml)
-- 2026-06-29 20:38 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/66067847038.shtml)
-- 2026-06-29 20:36 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/764423280.shtml)
-- 2026-06-29 20:46 - [金牌调解](https://www.share.minike.top/Article/details/92658511.shtml)
-- 2026-06-29 20:39 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/2181064239.shtml)
-- 2026-06-29 20:44 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/78305900.shtml)
-- 2026-06-29 20:44 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/0401520.shtml)
-- 2026-06-29 20:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/0073827.shtml)
-- 2026-06-29 20:59 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/7140349866.shtml)
-- 2026-06-29 20:41 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/079733156307.shtml)
-- 2026-06-29 20:51 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/01215549.shtml)
-- 2026-06-29 20:55 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/638840553572.shtml)
+- 2026-06-29 21:06 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/214177172252.shtml)
+- 2026-06-29 20:42 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/9897249.shtml)
+- 2026-06-29 20:48 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/958565.shtml)
+- 2026-06-29 20:44 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/824730136081.shtml)
+- 2026-06-29 20:50 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/78810695.shtml)
+- 2026-06-29 20:48 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.kurohicncr.top/Article/details/94431681.shtml)
+- 2026-06-29 20:47 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/5808485.shtml)
+- 2026-06-29 20:47 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/36239.shtml)
+- 2026-06-29 20:57 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/51823084.shtml)
+- 2026-06-29 20:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/1821834519.shtml)
+- 2026-06-29 20:59 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/1343496.shtml)
+- 2026-06-29 20:44 - [女心理师](http://www.blog.kurohicncr.top/Article/details/27180868548.shtml)
+- 2026-06-29 21:01 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/90315905.shtml)
+- 2026-06-29 21:07 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/104763997.shtml)
+- 2026-06-29 20:50 - [海清4次陪跑白玉兰](https://www.blog.kurohicncr.top/Article/details/556566651.shtml)

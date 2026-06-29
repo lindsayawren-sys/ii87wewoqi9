@@ -1,49 +1,53 @@
-# 光大期货0511热点追踪：鸡蛋06跳空高开 反转终于来了？
+# 鸿海与施耐德电气宣布战略合作 加速下一代AI数据中心发展
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-专题：光大期货热点追踪视频合集 0511热点追踪：鸡蛋06跳空高开，反转终于来了？责任编辑：李铁民
+鸿海在一份声明中宣布与施耐德电气展开战略合作，共同打造并推动下一代AI数据中心的发展与规模化应用。 双方将共同开发AI数据中心的参考架构。 双方合作生产将于今年稍晚开始。 双方也将探索闭环式能源最佳化、模组化电力与冷却系统，以及标准化设计框架等创新解决方案。责任编辑：江学思
 
 ## 正文
 
-专题：光大期货热点追踪视频合集 0511热点追踪：鸡蛋06跳空高开，反转终于来了？
+鸿海在一份声明中宣布与施耐德电气展开战略合作，共同打造并推动下一代AI数据中心的发展与规模化应用。
 
-责任编辑：李铁民
+双方将共同开发AI数据中心的参考架构。
+
+双方合作生产将于今年稍晚开始。
+
+双方也将探索闭环式能源最佳化、模组化电力与冷却系统，以及标准化设计框架等创新解决方案。
+
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 20:41 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 20:58 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 20:46 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 21:02 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 20:48 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 20:50 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 20:48 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 20:51 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 20:41 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 20:46 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 20:44 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 20:49 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 20:51 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 20:40 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 21:00 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 20:57 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 20:55 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 21:01 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 21:07 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 20:49 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 20:53 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 20:47 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 21:06 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 20:56 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 21:06 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 21:08 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 20:51 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 21:01 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:00 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.kurohicncr.top/Article/details/543052099.shtml)
-- 2026-06-29 20:52 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/75712.shtml)
-- 2026-06-29 20:37 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/38607601.shtml)
-- 2026-06-29 20:56 - [韩文体部对韩足协开展审计 查出局原因](http://www.share.minike.top/Article/details/115387116.shtml)
-- 2026-06-29 20:37 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/3477516.shtml)
-- 2026-06-29 20:54 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/257732733.shtml)
-- 2026-06-29 21:03 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/49704.shtml)
-- 2026-06-29 20:45 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/893426959666.shtml)
-- 2026-06-29 21:03 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/0908837856.shtml)
-- 2026-06-29 20:46 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/033407774766.shtml)
-- 2026-06-29 21:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/68074643.shtml)
-- 2026-06-29 20:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/749463.shtml)
-- 2026-06-29 20:40 - [乔家的儿女](https://www.share.minike.top/Article/details/16364086451.shtml)
-- 2026-06-29 20:48 - [RAY评乘风2026总决赛](http://www.share.kurohicncr.top/Article/details/538005.shtml)
-- 2026-06-29 20:52 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/619317.shtml)
+- 2026-06-29 20:53 - [世界杯高票价为何没劝退球迷](http://www.share.minike.top/Article/details/77497661385.shtml)
+- 2026-06-29 21:00 - [王楚钦开门红](https://www.blog.minike.top/Article/details/02587317.shtml)
+- 2026-06-29 21:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/91683.shtml)
+- 2026-06-29 21:06 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/3803332.shtml)
+- 2026-06-29 20:45 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/3237102751.shtml)
+- 2026-06-29 20:51 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/524020.shtml)
+- 2026-06-29 20:44 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/39470.shtml)
+- 2026-06-29 20:53 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/687750610.shtml)
+- 2026-06-29 20:54 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/443606374230.shtml)
+- 2026-06-29 21:04 - [扫黑风暴](https://www.blog.minike.top/Article/details/64857133.shtml)
+- 2026-06-29 20:47 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/11255.shtml)
+- 2026-06-29 21:07 - [多人将马路护栏当球网打羽毛球](http://www.blog.kurohicncr.top/Article/details/176225345969.shtml)
+- 2026-06-29 20:50 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/33403.shtml)
+- 2026-06-29 21:02 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/51146.shtml)
+- 2026-06-29 21:09 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/737160133.shtml)

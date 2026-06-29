@@ -1,61 +1,57 @@
-# 提前发红包，工行、农行近900亿分红 就在本周
+# A股黄金股集体上涨，金饰克价重返1300元
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-工行、农行、瑞丰银行本周内派息 银行分红即将进入落地期，工商银行、农业银行、瑞丰银行将在本周进行A股派息，总额接近900亿元。其中，工行、农行派息日较上年提前了两个多月。 根据年报中披露的分红方案，A股42家上市银行除郑州银行再次不分红外，其余41家银行2025年度累计分红金额接近6500亿元。其中，14家分红率在30%以上，沪农商行以34.07%分红率居首。 不过，截至5月1
+6月15日早盘，A股、港股黄金股大幅度上涨！ A股黄金板块集体上涨，截至发稿，Wind贵金属指数大涨超5%，板块内个股盛龙股份、招金黄金涨停，赤峰黄金涨幅超6%，紫金矿业、山金国际、晓程科技等涨幅超4%。 港股紫金黄金国际大涨超10%，紫金矿业大涨超8%，招金矿业涨超7%，中国黄金国际、潼关黄金涨超7%，灵宝黄金、赤峰黄金涨超6%，山东黄金涨超2%，珠峰黄金、集海黄金跟涨。 据
 
 ## 正文
 
-工行、农行、瑞丰银行本周内派息 银行分红即将进入落地期，工商银行、农业银行、瑞丰银行将在本周进行A股派息，总额接近900亿元。
+6月15日早盘，A股、港股黄金股大幅度上涨！
 
-其中，工行、农行派息日较上年提前了两个多月。
+A股黄金板块集体上涨，截至发稿，Wind贵金属指数大涨超5%，板块内个股盛龙股份、招金黄金涨停，赤峰黄金涨幅超6%，紫金矿业、山金国际、晓程科技等涨幅超4%。
 
-根据年报中披露的分红方案，A股42家上市银行除郑州银行再次不分红外，其余41家银行2025年度累计分红金额接近6500亿元。
+港股紫金黄金国际大涨超10%，紫金矿业大涨超8%，招金矿业涨超7%，中国黄金国际、潼关黄金涨超7%，灵宝黄金、赤峰黄金涨超6%，山东黄金涨超2%，珠峰黄金、集海黄金跟涨。
 
-其中，14家分红率在30%以上，沪农商行以34.07%分红率居首。
+据新华社报道，美国与伊朗达成临时和平协议，6月15日，现货黄金震荡走高，日内涨2.72%，站上4300美元/盎司。
 
-不过，截至5月11日，今年内仅13家上市银行股价上涨，青岛银行、成都银行、宁波银行表现靠前；浦发银行、兴业银行、农业银行跌幅最大。
+国内金饰克价今日也随之上涨。
 
-按照最新收盘价计算，上市银行目前股息率最高超过6%，最低不足3%，分化明显。
+周生生足金首饰克价1306元，较前一日1274元涨了32元；老凤祥今日足金首饰克价1290元，较前一日1271元涨了19元；老庙黄金足金首饰克价1299元，较前一日1271元涨了28元。
 
-尽管去年年报和今年一季报传递出不少业绩企稳的信号，但资产质量风险和资本补充压力仍对分红形成一定压制。
+中信期货报告称，美伊和谈短期地缘缓和信号已足够驱动市场对紧缩预期的修正，分母端改善直接利好对利率敏感的有色板块估值修复。
 
-有机构人士判断，高分红投资价值将进一步集中体现于拨备水平较为扎实的国有大行和优质中小银行。
+华福证券指出，中长期而言，全球关税政策和地缘政治不确定性背景下，避险和滞涨交易仍是黄金交易的核心，长期配置价值不改。
 
 ## 相关推荐
 
-- 2026-06-29 21:03 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 20:45 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 20:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 20:49 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 20:59 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 20:41 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 20:58 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 21:00 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 20:43 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 20:50 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 20:46 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 20:51 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 20:58 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 20:52 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 20:41 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 21:02 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 20:48 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 21:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 21:07 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 20:46 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 20:53 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 21:05 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 20:53 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 21:10 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 20:49 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 20:46 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:57 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/5437173322.shtml)
-- 2026-06-29 20:52 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.minike.top/Article/details/698621157.shtml)
-- 2026-06-29 21:01 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/816932.shtml)
-- 2026-06-29 20:39 - [刘冰任河南南阳市代市长](http://www.share.minike.top/Article/details/18245168.shtml)
-- 2026-06-29 20:47 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/826817.shtml)
-- 2026-06-29 20:56 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/52947720.shtml)
-- 2026-06-29 20:50 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/432849955.shtml)
-- 2026-06-29 20:48 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/0447876023.shtml)
-- 2026-06-29 20:47 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/926135481535.shtml)
-- 2026-06-29 21:00 - [葛军透露高考出题思路](https://www.share.minike.top/Article/details/7714532883.shtml)
-- 2026-06-29 21:05 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/55930.shtml)
-- 2026-06-29 20:42 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/6298911.shtml)
-- 2026-06-29 20:45 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/93394876.shtml)
-- 2026-06-29 20:54 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/723102594.shtml)
-- 2026-06-29 20:54 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/827419620.shtml)
+- 2026-06-29 20:55 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/603306254392.shtml)
+- 2026-06-29 20:46 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/871365441.shtml)
+- 2026-06-29 20:53 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/39177024.shtml)
+- 2026-06-29 20:45 - [大学专业未来如何洗牌](http://www.blog.kurohicncr.top/Article/details/116192.shtml)
+- 2026-06-29 21:11 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/7080538561.shtml)
+- 2026-06-29 20:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/1664359.shtml)
+- 2026-06-29 21:00 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/96554036515.shtml)
+- 2026-06-29 20:47 - [恋与深空回应争议](https://www.share.minike.top/Article/details/118435315340.shtml)
+- 2026-06-29 20:49 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/1741698545.shtml)
+- 2026-06-29 21:09 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/518867957644.shtml)
+- 2026-06-29 20:45 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/513654.shtml)
+- 2026-06-29 20:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/789714700.shtml)
+- 2026-06-29 20:52 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.minike.top/Article/details/44558.shtml)
+- 2026-06-29 21:08 - [东方风云榜直播](https://www.blog.minike.top/Article/details/925240943442.shtml)
+- 2026-06-29 21:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/9873485098.shtml)

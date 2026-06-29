@@ -1,54 +1,58 @@
-# 商务部新闻发言人就中美经贸磋商有关问题答记者问
+# 海外华媒侨领探访重庆荣昌：一座未来可期的繁荣昌盛之城
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-央视网消息：据商务部网站消息，5月10日，商务部新闻发言人就中美经贸磋商有关问题答记者问。 有记者问：近期有消息称，中美双方将很快举行下一轮经贸磋商，请问商务部是否有最新消息？ 答：经中美双方商定，中共中央政治局委员、国务院副总理何立峰将于5月12日—13日率团赴韩国与美方举行经贸磋商。双方将以两国元首釜山会晤及历次通话重要共识为引领，就彼此关心的经贸问题开展磋商。责任编辑：李
+中新网重庆6月15日电 (梁钦卿)“2026海外华媒侨领川渝行——聚焦成渝地区双城经济圈建设”联合参访活动15日在重庆荣昌区举行推介座谈会，20余家海外主流华文媒体、10余位知名侨领参加活动。 荣昌是成渝地区双城经济圈的重要节点城市，自唐代置昌元县，明代定名“荣昌”，寓意繁荣昌盛。作为国家畜牧科技城，荣昌猪、荣昌卤鹅享誉西南；拥有荣昌陶、夏布、折扇三大国家级非遗，是一座产业兴旺
 
 ## 正文
 
-央视网消息：据商务部网站消息，5月10日，商务部新闻发言人就中美经贸磋商有关问题答记者问。
+中新网重庆6月15日电 (梁钦卿)“2026海外华媒侨领川渝行——聚焦成渝地区双城经济圈建设”联合参访活动15日在重庆荣昌区举行推介座谈会，20余家海外主流华文媒体、10余位知名侨领参加活动。
 
-有记者问：近期有消息称，中美双方将很快举行下一轮经贸磋商，请问商务部是否有最新消息？
+荣昌是成渝地区双城经济圈的重要节点城市，自唐代置昌元县，明代定名“荣昌”，寓意繁荣昌盛。
 
-答：经中美双方商定，中共中央政治局委员、国务院副总理何立峰将于5月12日—13日率团赴韩国与美方举行经贸磋商。
+作为国家畜牧科技城，荣昌猪、荣昌卤鹅享誉西南；拥有荣昌陶、夏布、折扇三大国家级非遗，是一座产业兴旺、文脉绵长、宜居宜游的渝西门户城市。
 
-双方将以两国元首釜山会晤及历次通话重要共识为引领，就彼此关心的经贸问题开展磋商。
+“荣昌的明天，必将是未来可期的繁荣昌盛之城。
 
-责任编辑：李桐
+”中共重庆市荣昌区委书记万容介绍，当前，正推动荣昌从区域节点城市向成渝极核城市跨越，“五城共建”是核心支撑。
+
+畜牧科技城，以培育畜牧新质生产力为引领，构建畜牧全链条产业生态，打造标志性名片；现代制造城，围绕“33X”产业集群提质增效，筑牢实业基底；非遗文化城，让千年非遗成为城市鲜明标识，厚植文化根脉；智慧品质城，以数字更新与城市建设绘就现代化都市图景，提升都市颜值；一生友好城，构建全生命周期服务体系，传递城市温度，让荣昌成为人人向往的宜居之地。
+
+中国新闻社重庆分社社长胡钟艺表示，荣昌作为连接成渝两地的“桥头堡”城市，不仅拥有独特的区位优势，更在产业协同、科技创新、文旅融合、营商环境优化等方面展现出强劲活力和巨大潜力。
+
+海外华文媒体长期扎根侨社、融通中外，是连接中国与世界的重要桥梁；各位侨领侨商，胸怀家国、联通四海，是推动中外经贸合作与人文交流的中坚力量。
 
 ## 相关推荐
 
-- 2026-06-29 20:41 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 20:41 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 20:43 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 20:36 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 21:02 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 21:04 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 20:41 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 20:39 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 21:00 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 21:05 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 20:48 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 20:47 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 21:04 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 20:45 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 20:43 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 21:01 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 20:50 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 21:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 20:48 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 20:59 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 20:54 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 21:07 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 20:57 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 21:11 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 21:11 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 20:56 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:50 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/89560888.shtml)
-- 2026-06-29 20:43 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/3904386.shtml)
-- 2026-06-29 20:36 - [任泽平：AI浪潮刚刚开始](https://www.blog.minike.top/Article/details/6147014299.shtml)
-- 2026-06-29 20:40 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/041821284.shtml)
-- 2026-06-29 20:52 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.kurohicncr.top/Article/details/481018.shtml)
-- 2026-06-29 20:47 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/8783631.shtml)
-- 2026-06-29 20:46 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/998496.shtml)
-- 2026-06-29 21:03 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/072754818387.shtml)
-- 2026-06-29 21:01 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/23468323.shtml)
-- 2026-06-29 20:53 - [王楚钦开门红](https://www.share.minike.top/Article/details/1489537448.shtml)
-- 2026-06-29 20:58 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/54317725432.shtml)
-- 2026-06-29 21:02 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/21830.shtml)
-- 2026-06-29 20:43 - [C罗10球7球对垫底队](https://www.blog.minike.top/Article/details/18257.shtml)
-- 2026-06-29 20:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/5570160703.shtml)
-- 2026-06-29 20:53 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/135401577284.shtml)
+- 2026-06-29 21:08 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/160958767.shtml)
+- 2026-06-29 20:42 - [国际清算银行警告AI投资热潮](http://www.share.kurohicncr.top/Article/details/689374.shtml)
+- 2026-06-29 21:03 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/397661108.shtml)
+- 2026-06-29 20:52 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/38943309.shtml)
+- 2026-06-29 20:57 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/2018248472.shtml)
+- 2026-06-29 21:03 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/308429154.shtml)
+- 2026-06-29 20:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/35172.shtml)
+- 2026-06-29 21:03 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/875652583521.shtml)
+- 2026-06-29 21:05 - [恋与深空致歉](http://www.blog.minike.top/Article/details/3519438025.shtml)
+- 2026-06-29 20:51 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/3459758.shtml)
+- 2026-06-29 20:42 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/17800178.shtml)
+- 2026-06-29 21:02 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/673863.shtml)
+- 2026-06-29 21:07 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/6355564989.shtml)
+- 2026-06-29 21:06 - [女心理师](https://www.share.kurohicncr.top/Article/details/99090192.shtml)
+- 2026-06-29 21:04 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/82561.shtml)

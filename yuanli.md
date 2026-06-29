@@ -1,56 +1,61 @@
-# 鸡蛋：现货价格大幅上涨 近月合约走势
+# 国产摩托车跑出315.82公里时速 搭载正向自研发动机
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-广发期货研究 证监许可【2011】1292号 刘珂 Z0016336 | 2026年5月11日 星期一 行情导读：今日鸡蛋期货近月合约大涨，合约2606涨超4%，合约2607上涨超2%，整体价格走势偏强。 （一）周末蛋价大幅上涨，近月向现货靠拢需求 上周末国内鸡蛋现货价格迎来大幅跳涨行情，主产区主流出厂报价站稳4.3-4.5元/斤区间，环比上周五大涨0.3–0.4元/斤，销区市
+中新网上饶6月15日电 (王剑)15日，一场国产摩托车极速测试在中交上饶汽车综合试验场完成，国产车型春风动力V4 SR-RR跑出315.82km/h的最高时速。春风动力对外宣传称，该车型搭载的国产发动机，从核心零部件到系统集成均为正向自主研发。 当日，国家摩托车质量检验检测中心(重庆)高级工程师李宝峰在试验场宣布，春风动力V4 SR-RR实测极速达到315.82公里/小时。测试
 
 ## 正文
 
-广发期货研究 证监许可【2011】1292号 刘珂 Z0016336 | 2026年5月11日 星期一 行情导读：今日鸡蛋期货近月合约大涨，合约2606涨超4%，合约2607上涨超2%，整体价格走势偏强。
+中新网上饶6月15日电 (王剑)15日，一场国产摩托车极速测试在中交上饶汽车综合试验场完成，国产车型春风动力V4 SR-RR跑出315.82km/h的最高时速。
 
-（一）周末蛋价大幅上涨，近月向现货靠拢需求 上周末国内鸡蛋现货价格迎来大幅跳涨行情，主产区主流出厂报价站稳4.3-4.5元/斤区间，环比上周五大涨0.3–0.4元/斤，销区市场同步跟涨。
+春风动力对外宣传称，该车型搭载的国产发动机，从核心零部件到系统集成均为正向自主研发。
 
-当前市场供给端新开产蛋鸡增量补充不足，市场现货流通货源整体偏紧，部分主产区甚至出现贸易商抢货补库现象，进一步助推周末蛋价集中拉涨。
+当日，国家摩托车质量检验检测中心(重庆)高级工程师李宝峰在试验场宣布，春风动力V4 SR-RR实测极速达到315.82公里/小时。
 
-往年惯例五一节后现货多步入季节性回落通道，而今年行情淡季不淡、超预期走强。
+测试现场，浙江省杭州市国立公证处全程驻场监督、录像存证。
 
-目前产区库存、中间流通环节库存双双处于低位，货源偏紧格局凸显，缺货矛盾持续显性化，贸易商逢低补库意愿强烈，对现货价格形成坚实支撑。
+春风动力当日对外介绍称，本次极速挑战车辆V4 SR-RR为量产前置工程样车，未做专项赛事化改装。
 
-期货盘面方面，鸡蛋近月 06、07 合约当前运行在3600-3700元/500kg区间，相较于现货呈现深度贴水格局。
+V4 SR-RR搭载自主研发的V4水冷四缸发动机，最高转速为15000转，最大功率157千瓦(超210马力)，整车干重控制在180公斤左右。
 
-截至5月8日，市场主力活跃合约基差已扩大至680元/500kg，攀升至近年同期高位水平。
+该发动机相关专利已超过40项，从核心零部件到系统集成均为正向自主研发。
 
-期现价差大幅走阔、期货盘面严重低估现货基本面，随着交割月逐步临近，基差收敛逻辑增强，盘面存在较强的向上估值修复动力，也支撑近月合约走势持续偏强。
+“今天驾驶春风动力 V4 SR-RR在赛道测试，车速突破300公里/小时十分轻松。
 
 ## 相关推荐
 
-- 2026-06-29 20:46 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 20:38 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 20:49 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 20:50 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 20:40 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 20:59 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 21:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 20:57 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 20:52 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 20:36 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 21:10 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 20:51 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 20:43 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 21:04 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 20:45 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 21:07 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 20:47 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 21:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 21:05 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 20:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 20:49 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 20:45 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 21:09 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 21:10 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 21:02 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/678372.shtml)
-- 2026-06-29 20:36 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/4568258941.shtml)
-- 2026-06-29 20:45 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/0449853390.shtml)
-- 2026-06-29 21:00 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/1798266559.shtml)
-- 2026-06-29 20:58 - [多人将马路护栏当球网打羽毛球](http://www.blog.kurohicncr.top/Article/details/7659384333.shtml)
-- 2026-06-29 21:03 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/8621913790.shtml)
-- 2026-06-29 20:56 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/263118762.shtml)
-- 2026-06-29 21:01 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/9056598.shtml)
-- 2026-06-29 21:00 - [田曦薇没招了](http://www.share.minike.top/Article/details/86582.shtml)
-- 2026-06-29 20:52 - [世界杯高票价为何没劝退球迷](https://www.blog.kurohicncr.top/Article/details/7906157.shtml)
-- 2026-06-29 20:47 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/91231214.shtml)
-- 2026-06-29 21:00 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/3913184615.shtml)
-- 2026-06-29 20:50 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/557056847435.shtml)
-- 2026-06-29 20:39 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/84812095.shtml)
-- 2026-06-29 21:05 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/413858.shtml)
+- 2026-06-29 21:00 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/93362.shtml)
+- 2026-06-29 21:06 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/24259589.shtml)
+- 2026-06-29 20:46 - [斗破苍穹](https://www.share.minike.top/Article/details/393265413975.shtml)
+- 2026-06-29 21:05 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/64786792561.shtml)
+- 2026-06-29 20:44 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/1816604.shtml)
+- 2026-06-29 20:57 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/8568781.shtml)
+- 2026-06-29 20:59 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/63176.shtml)
+- 2026-06-29 21:06 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/393329498645.shtml)
+- 2026-06-29 20:57 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/38514303039.shtml)
+- 2026-06-29 21:00 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/129263720675.shtml)
+- 2026-06-29 20:43 - [温网](https://www.share.kurohicncr.top/Article/details/7188172876.shtml)
+- 2026-06-29 21:09 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.minike.top/Article/details/149754759366.shtml)
+- 2026-06-29 21:11 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/73454023813.shtml)
+- 2026-06-29 20:42 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/877802.shtml)
+- 2026-06-29 21:04 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/504870.shtml)

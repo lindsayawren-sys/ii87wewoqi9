@@ -1,61 +1,56 @@
-# 广州推出人工智能场景交易平台 首批49个真实场景订单发布
+# （文化中国行）倾力守护传承 中国文化遗产保护硕果累累
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-中新网广州5月10日电 (记者 许青青)广州海珠区人工智能场景交易平台9日正式上线，首批发布49个场景订单，意向金额超1300万元。 据介绍，该平台由海珠区政府集中打造，旨在高效链接全国AI供需资源，推动场景订单精准对接。该平台设置场景机会订单(全国)、场景能力库(全国)、投资机会、超级场景等功能板块，预计到今年年底，平台累计上架订单超400个，入驻AI能力企业超1500家。
+中新社武汉6月13日电 (记者 应妮)6月13日是2026年文化和自然遗产日。从国务院确定2006年起每年6月的第二个星期六为中国“文化遗产日”，2017年起进一步调整设立为“文化和自然遗产日”，至今已走过20年。 中国国家文物局13日在武汉发布了一系列成果：廊桥保护三年行动有力改善了全国2193座廊桥保护传承状况；第四次全国文物普查正收尾冲刺；考古中国重大项目与中华文明探源工
 
 ## 正文
 
-中新网广州5月10日电 (记者 许青青)广州海珠区人工智能场景交易平台9日正式上线，首批发布49个场景订单，意向金额超1300万元。
+中新社武汉6月13日电 (记者 应妮)6月13日是2026年文化和自然遗产日。
 
-据介绍，该平台由海珠区政府集中打造，旨在高效链接全国AI供需资源，推动场景订单精准对接。
+从国务院确定2006年起每年6月的第二个星期六为中国“文化遗产日”，2017年起进一步调整设立为“文化和自然遗产日”，至今已走过20年。
 
-该平台设置场景机会订单(全国)、场景能力库(全国)、投资机会、超级场景等功能板块，预计到今年年底，平台累计上架订单超400个，入驻AI能力企业超1500家。
+中国国家文物局13日在武汉发布了一系列成果：廊桥保护三年行动有力改善了全国2193座廊桥保护传承状况；第四次全国文物普查正收尾冲刺；考古中国重大项目与中华文明探源工程并辔前行；全国备案博物馆达7188家，五年累计接待观众超过40亿人次；遥感卫星文物001星蓄势待发…… 成果背后是人的付出与努力，正如今年文化和自然遗产日的主题“文物属于人民 服务人民”。
 
-当日首批发布的49个场景订单全部来自真实主体，市场侧占比达73%，覆盖智能制造、文旅消费、金融安全等核心赛道。
+当选2026年度“文物安全守护人”的强巴次仁坚守高原石窟30余年。
 
-其中超60%的场景已明确预算区间(3万至500万元)并配套量化指标：如牙套AI质检要求“缺陷检出率≥99%、设计周期缩短40%”。
+作为西藏自治区阿里地区札达县皮央和东嘎遗址文保员，这位78岁的老人认为“守住皮央石窟，就是守住我们的家”，只要还走得动，他就要继续守下去。
 
-其中，海珠区本地企业广东循证滋补生命科技有限公司一次性释放6大真实AI场景需求，覆盖“研产销服”全链路——从基于古籍药典的AI新品研发、AIGC内容生产平台，到工厂视觉质检、全渠道智能客服，再到私域营销自动化与包装合规智能审核，预算明确3万至30万元。
+甘肃省张掖市肃南裕固族自治县第四次全国文物普查的一线队员郎雪勇和队友们被称为“马背上的文物普查队”。
 
-该企业相关研发负责人表示：“之前找技术合作全靠朋友介绍，选择少、效率低，也不清楚AI到底能做到哪一步。
+由于肃南县地处祁连山腹地，地形复杂，许多区域车辆无法到达，只能依靠马匹驮运设备和物资，深入高山深谷、悬崖绝壁及无人区进行文物调查，风餐露宿是常态。
 
-现在AI发展太快，我们希望通过这个平台，可以把真实需求亮出来，快速找到靠谱的技术团队，实实在在把AI落地到业务里”。
+郎雪勇说，“文物普查是为历史摸底、为文化遗产建库。
 
 ## 相关推荐
 
-- 2026-06-29 20:50 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 20:41 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 20:39 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 20:51 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 20:45 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 21:01 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 20:55 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 20:40 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 21:03 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 20:41 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 20:45 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 20:53 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 20:46 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 20:55 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 20:39 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 21:02 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 20:58 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 21:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 20:56 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 20:58 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 20:46 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 21:00 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 21:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 20:59 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 21:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:46 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/991589838.shtml)
-- 2026-06-29 20:47 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/8768077813.shtml)
-- 2026-06-29 21:01 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/15774.shtml)
-- 2026-06-29 20:45 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/25256992.shtml)
-- 2026-06-29 20:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/20570309730.shtml)
-- 2026-06-29 20:49 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/99007.shtml)
-- 2026-06-29 20:45 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/6850634.shtml)
-- 2026-06-29 20:50 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/97040.shtml)
-- 2026-06-29 21:01 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/801242609175.shtml)
-- 2026-06-29 20:39 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/92925598.shtml)
-- 2026-06-29 20:46 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/64992543.shtml)
-- 2026-06-29 20:54 - [王楚钦称抽签结果出来心情不好](https://www.share.minike.top/Article/details/46001041686.shtml)
-- 2026-06-29 20:43 - [85花告别古偶](http://www.share.minike.top/Article/details/81042416.shtml)
-- 2026-06-29 20:59 - [东方风云榜](https://www.share.minike.top/Article/details/08382458.shtml)
-- 2026-06-29 20:54 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/1017492.shtml)
+- 2026-06-29 20:59 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/22489706.shtml)
+- 2026-06-29 20:59 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/866039.shtml)
+- 2026-06-29 20:51 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/057453.shtml)
+- 2026-06-29 21:07 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/793443331.shtml)
+- 2026-06-29 20:58 - [天气热脾气都变差了](https://www.share.minike.top/Article/details/776552.shtml)
+- 2026-06-29 21:11 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/85060.shtml)
+- 2026-06-29 21:07 - [英法德葡存在什么隐患](https://www.blog.kurohicncr.top/Article/details/930306035.shtml)
+- 2026-06-29 21:00 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/670726209455.shtml)
+- 2026-06-29 20:51 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/4527834.shtml)
+- 2026-06-29 20:59 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/760193.shtml)
+- 2026-06-29 20:45 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/34542173865.shtml)
+- 2026-06-29 21:07 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/9013942.shtml)
+- 2026-06-29 20:57 - [每天通勤往返3h的感觉](https://www.share.minike.top/Article/details/4914256734.shtml)
+- 2026-06-29 20:47 - [C罗10球7球对垫底队](https://www.share.minike.top/Article/details/8566248.shtml)
+- 2026-06-29 21:12 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/8290378.shtml)

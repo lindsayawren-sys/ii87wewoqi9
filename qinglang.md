@@ -1,60 +1,59 @@
-# 岛内学者：赖清德媚日到无耻无骨无格，是台湾悲哀
+# 欧洲央行管委Nagel：加息后利率仍处于中性区间
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-中新网5月9日电 (燕新台)“台湾媚日者虽不乏其人，然如赖清德这般媚日至极，令台湾诸多抗日先烈及后人无语问苍天。”9日，台湾时事评论员黎建南在接受中新网“燕新台”工作室专访时，就赖清德跪拜日本人八田与一一事如此评论道。赖清德“偷渡式”窜访返台后，于8日特意前往他曾担任市长的台南，其目的竟是为了跪拜一名日本人。 综合“中时新闻网”、《联合报》等多家台媒报道，当日，赖清德现身台南乌
+欧洲央行管委Joachim Nagel表示，周四加息25个基点后，欧元区利率仍处于“总体中性”区间。 这位德国央行行长周一讲话时表示：“因此，目前的货币政策基本立场既没有对经济造成压力，也没有阻碍促进经济增长的结构性措施。” 他还表示： “即使霍尔木兹海峡在不久的将来重新开放航运，石油供应也需要数月时间才能恢复正常。鉴于该地区的一些生产设施已经受损或停运，而且正在储备减少，更是
 
 ## 正文
 
-中新网5月9日电 (燕新台)“台湾媚日者虽不乏其人，然如赖清德这般媚日至极，令台湾诸多抗日先烈及后人无语问苍天。
+欧洲央行管委Joachim Nagel表示，周四加息25个基点后，欧元区利率仍处于“总体中性”区间。
 
-”9日，台湾时事评论员黎建南在接受中新网“燕新台”工作室专访时，就赖清德跪拜日本人八田与一一事如此评论道。
+这位德国央行行长周一讲话时表示：“因此，目前的货币政策基本立场既没有对经济造成压力，也没有阻碍促进经济增长的结构性措施。
 
-赖清德“偷渡式”窜访返台后，于8日特意前往他曾担任市长的台南，其目的竟是为了跪拜一名日本人。
+” 他还表示： “即使霍尔木兹海峡在不久的将来重新开放航运，石油供应也需要数月时间才能恢复正常。
 
-综合“中时新闻网”、《联合报》等多家台媒报道，当日，赖清德现身台南乌山头水库，参加八田与一(日本殖民台湾时期为殖民者建造水利工程的日本人)纪念活动。
+鉴于该地区的一些生产设施已经受损或停运，而且正在储备减少，更是需要时间才能恢复” “此外，一旦降低能源价格的财政政策措施到期，价格压力可能会再次上升。
 
-赖清德在公开发言时将八田与一描述成“自己人”“一家人”。
+” “货币政策并非应对短期供给冲击，我们不能袖手旁观，坐等事态发展。
 
-他在跪拜后，还停下脚步与在场日本人寒暄，许多日本人对其高喊“赖桑”。
+” “未来几个月，高昂的能源成本可能会越来越明显地反映在消费者价格中。
 
-报道称，日本前首相安倍晋三遗孀安倍昭惠也在场。
+目前也不能排除第二轮效应的可能性。
 
-安倍晋三曾公然鼓吹所谓“台湾有事，就是日本有事”的涉台错误言论。
+” “目前高工资要求进一步推高物价的风险较低。
 
 ## 相关推荐
 
-- 2026-06-29 20:53 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 20:43 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 21:02 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 20:58 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 20:53 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 21:06 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 21:05 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 20:42 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 20:39 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 20:44 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 20:37 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 20:57 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 20:39 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 20:39 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 20:49 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 20:51 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 20:44 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 21:07 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 20:58 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 20:43 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 20:45 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 20:50 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 20:55 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 21:06 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 21:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 20:46 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 21:01 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:55 - [法生态部长反对装空调却自己吹空调](http://www.blog.kurohicncr.top/Article/details/909933133715.shtml)
-- 2026-06-29 20:52 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/9626791.shtml)
-- 2026-06-29 20:50 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/154004.shtml)
-- 2026-06-29 20:48 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/698688799.shtml)
-- 2026-06-29 20:42 - [乔家的儿女](http://www.blog.minike.top/Article/details/396380000509.shtml)
-- 2026-06-29 20:55 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/69969236.shtml)
-- 2026-06-29 20:58 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/64006888.shtml)
-- 2026-06-29 20:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/7900871.shtml)
-- 2026-06-29 20:56 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/475519.shtml)
-- 2026-06-29 20:58 - [C罗10球7球对垫底队](http://www.blog.minike.top/Article/details/756365.shtml)
-- 2026-06-29 20:36 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/22974835416.shtml)
-- 2026-06-29 20:43 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/74019.shtml)
-- 2026-06-29 20:44 - [男子40度高温下骑行严重晒伤](http://www.blog.kurohicncr.top/Article/details/439629120.shtml)
-- 2026-06-29 21:05 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/8495659.shtml)
-- 2026-06-29 20:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/2759599166.shtml)
+- 2026-06-29 20:48 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/441689892.shtml)
+- 2026-06-29 20:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/4509263756.shtml)
+- 2026-06-29 21:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/67840782.shtml)
+- 2026-06-29 20:47 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/5618056962.shtml)
+- 2026-06-29 20:45 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/79934.shtml)
+- 2026-06-29 20:42 - [网友晒14年前支教影像等来学生评论](https://www.blog.kurohicncr.top/Article/details/158439854490.shtml)
+- 2026-06-29 20:44 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/457653.shtml)
+- 2026-06-29 20:56 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/086406667.shtml)
+- 2026-06-29 20:45 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/5645940.shtml)
+- 2026-06-29 20:59 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/238127327188.shtml)
+- 2026-06-29 20:47 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/21549.shtml)
+- 2026-06-29 20:53 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/968211292262.shtml)
+- 2026-06-29 21:06 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/60534691560.shtml)
+- 2026-06-29 20:59 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/333160425270.shtml)
+- 2026-06-29 20:48 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.minike.top/Article/details/00351.shtml)

@@ -1,61 +1,52 @@
-# 今年新能源汽车零部件领域有无新客户？隆源股份业绩说明会回应：洽谈中
+# 暴雨黄色预警持续 交通运输部维持强降雨三级防御响应
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-记者|文多 编辑|杨翼 5月11日，隆源股份（BJ920055，股价39.05元，市值26.55亿元）披露了经整理后的2025年年度报告业绩说明会（5月7日举行）交流内容。 对于隆源股份，投资者较为关注公司新能源业务布局、核心竞争力、毛利率波动原因、海外市场等议题。其中，新能源业务成为隆源股份与投资者交流的一大焦点。 财报显示，2025年，新能源三电系统零部件收入占隆源股份汽车
+中新网6月14日电 据交通运输部微信公众号消息，中央气象台6月14日6时继续发布暴雨黄色预警，交通运输部维持强降雨三级防御响应： 据气象部门预报，预计6月14日8时至15日8时，广东大部、广西中部和南部、福建中南部、江西南部、云南东部和西北部及内蒙古东部、吉林西部、辽宁西部等地有大到暴雨，其中，广东中北部和东部沿海、广西东部、福建西南部等地的部分地区有大暴雨，广东东部沿海局地有
 
 ## 正文
 
-记者|文多 编辑|杨翼 5月11日，隆源股份（BJ920055，股价39.05元，市值26.55亿元）披露了经整理后的2025年年度报告业绩说明会（5月7日举行）交流内容。
+中新网6月14日电 据交通运输部微信公众号消息，中央气象台6月14日6时继续发布暴雨黄色预警，交通运输部维持强降雨三级防御响应： 据气象部门预报，预计6月14日8时至15日8时，广东大部、广西中部和南部、福建中南部、江西南部、云南东部和西北部及内蒙古东部、吉林西部、辽宁西部等地有大到暴雨，其中，广东中北部和东部沿海、广西东部、福建西南部等地的部分地区有大暴雨，广东东部沿海局地有特大暴雨(250～280毫米)；上述部分地区伴有短时强降水(最大小时降雨量30～50毫米，局地可超过90毫米)，局地有雷暴大风等强对流天气。
 
-对于隆源股份，投资者较为关注公司新能源业务布局、核心竞争力、毛利率波动原因、海外市场等议题。
+6月14日，交通运输部视频调度广东、广西、福建、江西、云南、内蒙古、吉林、辽宁省(区)交通运输主管部门和广东、广西海事局，要求保持高度警惕，紧盯强降雨密集地区和连续降雨高风险区域，加强调度，完善工作机制，压实各方责任，督促“响应、巡查、管控”主动防御措施落实，坚决防范遏制重特大事故发生。
 
-其中，新能源业务成为隆源股份与投资者交流的一大焦点。
+要切实做好连续降雨防范应对工作，落实排查、巡查措施，确保力量预置、主动管控到位。
 
-财报显示，2025年，新能源三电系统零部件收入占隆源股份汽车类零部件业务收入的比例进一步提升，达到38.32%；2026年第一季度，隆源股份营业收入同比增长15.71%至2.67亿元，归母净利润同比增长22.61%至3508.91万元，新能源三电系统业务成为拉动整体业绩增长的核心动力。
-
-因此，隆源股份这部分业务也是投资者关注的焦点。
-
-据隆源股份方面介绍，公司新能源业务以新能源汽车电控系统、电驱系统零部件为核心，产品涵盖电控系统OBC（车载充电机）箱体、车载电源集成产品箱体、端盖等。
-
-隆源股份还称，公司OBC箱体关键性能指标已超越国际标准、客户标准。
-
-在客户资源方面，隆源股份介绍称，新能源三电系统零部件直接供货的整车制造厂商主要为零跑汽车，并通过富特科技间接供货蔚来、小米等主流汽车品牌。
+交通运输部将根据暴雨预警变化，及时调整防御响应等级。
 
 ## 相关推荐
 
-- 2026-06-29 20:47 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 20:51 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 20:42 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 20:43 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 20:49 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 20:53 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 20:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 20:55 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 20:44 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 20:52 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 20:46 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 20:43 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 21:00 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 20:54 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 20:46 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 20:54 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 20:49 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 21:00 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 20:42 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 21:08 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 20:59 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 20:52 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 21:02 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 20:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 20:43 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 20:43 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 20:45 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 20:55 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 21:02 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:48 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/42253640078.shtml)
-- 2026-06-29 20:49 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/7884890420.shtml)
-- 2026-06-29 20:58 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/79535.shtml)
-- 2026-06-29 20:37 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/762518235.shtml)
-- 2026-06-29 20:50 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/1092889.shtml)
-- 2026-06-29 20:51 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/3167663526.shtml)
-- 2026-06-29 20:40 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/70422.shtml)
-- 2026-06-29 20:48 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/40121369474.shtml)
-- 2026-06-29 20:49 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/88620128.shtml)
-- 2026-06-29 20:49 - [TI2026参赛战队出炉](https://www.blog.kurohicncr.top/Article/details/911138.shtml)
-- 2026-06-29 20:49 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/15146598.shtml)
-- 2026-06-29 20:41 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/513175032.shtml)
-- 2026-06-29 20:55 - [郑钦文谈再战西尼亚科娃](http://www.share.kurohicncr.top/Article/details/99547.shtml)
-- 2026-06-29 20:44 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/606249942.shtml)
-- 2026-06-29 20:46 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/29962645329.shtml)
+- 2026-06-29 20:55 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/777815763.shtml)
+- 2026-06-29 20:52 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/3998422.shtml)
+- 2026-06-29 21:02 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/905159434157.shtml)
+- 2026-06-29 20:53 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/732942024.shtml)
+- 2026-06-29 21:00 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/5719122.shtml)
+- 2026-06-29 20:43 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/55663.shtml)
+- 2026-06-29 21:00 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/1760102.shtml)
+- 2026-06-29 21:05 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/555347.shtml)
+- 2026-06-29 21:07 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/613543893.shtml)
+- 2026-06-29 20:48 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/251155.shtml)
+- 2026-06-29 20:58 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/1544411254.shtml)
+- 2026-06-29 20:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/595417.shtml)
+- 2026-06-29 21:09 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/948471622693.shtml)
+- 2026-06-29 20:42 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/583148.shtml)
+- 2026-06-29 21:08 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.kurohicncr.top/Article/details/54330240871.shtml)

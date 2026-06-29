@@ -1,61 +1,61 @@
-# 515投资者保护|华夏基金B站“硬核”科普视频播放超165万！3期短视频讲透金融知识
+# （活力中国调研行）跨界人才聚力未来产业 北京创新创业活力持续释放
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。华夏基金B站《金融“硬核”知识科普系列短视频》参选“最具影响力投教项目优秀案例”类别。>>活动详情 据悉，B站《金融“硬核”知识科普系列短视频》项目针对个人投资者在宏观经济运行和基础金融工具认知上的盲区，制作并发布了3期“硬核”系列金融科普短视频。项
+中新社北京6月14日电 题：跨界人才聚力未来产业 北京创新创业活力持续释放 中新社记者 杜燕 李梦 贾天勇 人工智能快速发展，机器人进入工厂、仓库和商场，大模型成为创业者的新工具。一批既懂技术、又懂产业，还能推动成果落地的复合型人才也正在北京涌现。 在北京银河通用机器人有限公司展厅里，人形机器人熟练地从货架上抓取商品；在北京星动纪元科技有限公司测试区，智能机器人正在模拟快递分拣
 
 ## 正文
 
-专题：515投资者保护！
+中新社北京6月14日电 题：跨界人才聚力未来产业 北京创新创业活力持续释放 中新社记者 杜燕 李梦 贾天勇 人工智能快速发展，机器人进入工厂、仓库和商场，大模型成为创业者的新工具。
 
-新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
+一批既懂技术、又懂产业，还能推动成果落地的复合型人才也正在北京涌现。
 
-华夏基金B站《金融“硬核”知识科普系列短视频》参选“最具影响力投教项目优秀案例”类别。
+在北京银河通用机器人有限公司展厅里，人形机器人熟练地从货架上抓取商品；在北京星动纪元科技有限公司测试区，智能机器人正在模拟快递分拣作业。
 
->>活动详情 据悉，B站《金融“硬核”知识科普系列短视频》项目针对个人投资者在宏观经济运行和基础金融工具认知上的盲区，制作并发布了3期“硬核”系列金融科普短视频。
+具身智能技术正加速走向真实场景。
 
-项目依托B站平台传播，旨在用通俗直观的表达方式降低金融知识门槛，帮助投资者建立清晰、客观的投资分析框架。
+“我们不是在实验室里做机器人，而是在真实快递场景里打磨产品。
 
-入围的3期视频从宏观体系到具体工具，构建了完整的知识闭环： 宏观层面：《如何读懂金融指标》。
+”星动纪元联合创始人席悦近日在北京受访时表示，研发机器人不仅需要掌握人工智能技术和大模型能力，还要理解物流、制造、零售等行业运行规律，知道用户真正需要解决什么问题。
 
-重点科普了M2、社融、MLF、LPR及十年期国债收益率等核心宏观数据，使投资者具备独立跟踪市场资金面、理解货币政策导向的能力。
+机器人走进真实场景，对人才培养模式也提出新挑战。
 
-中观层面：《一口气带你了解中国的金融机构》。
+在北京中关村学院，学生不仅接触前沿科研课题，也参与产业实践和创新创业探索。
 
 ## 相关推荐
 
-- 2026-06-29 20:57 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 21:00 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 20:41 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 20:58 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 21:02 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 20:46 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 20:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 20:44 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 20:48 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 20:59 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 20:41 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 21:04 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 20:43 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 20:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 20:55 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 20:50 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 20:42 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 20:44 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 21:01 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 20:45 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 21:05 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 20:56 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 20:58 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 20:50 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 21:03 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 20:52 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 20:46 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 20:42 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 20:45 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 21:05 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:42 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/759313856.shtml)
-- 2026-06-29 20:56 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/387256010421.shtml)
-- 2026-06-29 21:01 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/252734252.shtml)
-- 2026-06-29 20:49 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/028477.shtml)
-- 2026-06-29 20:55 - [美人鱼](https://www.share.kurohicncr.top/Article/details/65307808697.shtml)
-- 2026-06-29 21:04 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/40875969533.shtml)
-- 2026-06-29 20:48 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/48715086163.shtml)
-- 2026-06-29 21:00 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/9578477423.shtml)
-- 2026-06-29 20:54 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/9895092221.shtml)
-- 2026-06-29 20:52 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/3214628.shtml)
-- 2026-06-29 20:36 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/236140202.shtml)
-- 2026-06-29 20:37 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/523189102792.shtml)
-- 2026-06-29 20:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/521273.shtml)
-- 2026-06-29 20:53 - [C罗10球7球对垫底队](https://www.blog.minike.top/Article/details/72534090.shtml)
-- 2026-06-29 21:00 - [爱很美味](https://www.share.kurohicncr.top/Article/details/515610083164.shtml)
+- 2026-06-29 20:52 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/257320825443.shtml)
+- 2026-06-29 20:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/568010.shtml)
+- 2026-06-29 20:54 - [福建海警位金门附近海域常态执法巡查](http://www.share.minike.top/Article/details/941270.shtml)
+- 2026-06-29 20:58 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/450084.shtml)
+- 2026-06-29 20:48 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/1442110023.shtml)
+- 2026-06-29 21:02 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/528594090541.shtml)
+- 2026-06-29 20:55 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/73962869.shtml)
+- 2026-06-29 20:44 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/8535848206.shtml)
+- 2026-06-29 20:59 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/345034418.shtml)
+- 2026-06-29 20:59 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/806900.shtml)
+- 2026-06-29 20:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/81772440.shtml)
+- 2026-06-29 21:02 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/0902815730.shtml)
+- 2026-06-29 20:47 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/09867.shtml)
+- 2026-06-29 20:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/9504274.shtml)
+- 2026-06-29 20:46 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/4856551295.shtml)

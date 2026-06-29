@@ -1,57 +1,57 @@
-# 亏损不断扩大，摩根大通牵头银团收紧对KKR私人信贷基金授信额度
+# 专家：戒烟能够有效降低小细胞肺癌的发病风险
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-核心要点 在资产管理公司 KKR 宣布出资 3 亿美元救助旗下陷入困境基金的数日之前，由摩根大通牵头的银行财团，已缩减对这支 KKR 共管私人信贷基金的风险敞口。 该基金主体FS KKR Capital Corp． 周一发布公告称：KKR 将向基金注入1.5 亿美元股权资金，同时再拿出1.5 亿美元，从寻求退出的投资者手中回购股份。 基金将上述举措称作 “战略价值提升行动”。
+中新网广州6月15日电 (记者 蔡敏婕)每年6月15日为“世界呼吸日”。“85%的肺癌发病与吸烟相关，其中小细胞肺癌和吸烟的关联性最高。”中山大学附属肿瘤医院肺癌首席专家龙浩表示，戒烟能够有效降低小细胞肺癌发病风险，即便戒烟多年，患病风险也会持续下降。因此，控烟成为预防该疾病最直接、最有效的手段。肺癌是我国恶性肿瘤中发病率、死亡率双第一的“头号癌症杀手”，主要分为非小细胞肺癌与
 
 ## 正文
 
-核心要点 在资产管理公司 KKR 宣布出资 3 亿美元救助旗下陷入困境基金的数日之前，由摩根大通牵头的银行财团，已缩减对这支 KKR 共管私人信贷基金的风险敞口。
+中新网广州6月15日电 (记者 蔡敏婕)每年6月15日为“世界呼吸日”。
 
-该基金主体FS KKR Capital Corp． 周一发布公告称：KKR 将向基金注入1.5 亿美元股权资金，同时再拿出1.5 亿美元，从寻求退出的投资者手中回购股份。
+“85%的肺癌发病与吸烟相关，其中小细胞肺癌和吸烟的关联性最高。
 
-基金将上述举措称作 “战略价值提升行动”。
+”中山大学附属肿瘤医院肺癌首席专家龙浩表示，戒烟能够有效降低小细胞肺癌发病风险，即便戒烟多年，患病风险也会持续下降。
 
-而在此之前，摩根大通牵头的银行财团已于 5 月 8 日将其信贷额度削减 6.48 亿美元、降幅约 14%，调整后授信规模降至40.5 亿美元 。
+因此，控烟成为预防该疾病最直接、最有效的手段。
 
-备案文件显示，部分贷款机构选择直接退出，而非继续承诺授信。
+肺癌是我国恶性肿瘤中发病率、死亡率双第一的“头号癌症杀手”，主要分为非小细胞肺癌与小细胞肺癌两大类型。
 
-这支由 KKR 与另类资管公司 Future Standard 联合运营、股票代码FSK的基金，已成为私人信贷行业风险暴露最典型的标的之一。
+其中小细胞肺癌占肺癌总数约15%，虽占比不高，却因恶性程度高、肿瘤进展快、侵袭性强、易发生远处转移尤其是脑转移，成为肺癌中威胁极大的分型。
 
-其股价过去一年暴跌近五成，目前较基金净资产价值（NAV） 深度折价交易。
+从时间曲线来看，烟草消耗量和肺癌发病率呈明显正相关。
 
-今年 3 月，受投资组合压力持续攀升影响，穆迪将 FSK 评级下调至垃圾级。
+欧美20世纪50年代推行禁烟运动，国民吸烟率下降，20年后当地肺癌发病率逐步趋缓、下降，也直观印证了吸烟对肺部健康的危害。
 
 ## 相关推荐
 
-- 2026-06-29 21:05 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 20:48 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 20:38 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 20:39 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 20:40 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 20:45 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 20:52 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 21:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 20:50 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 20:56 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 20:43 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 20:58 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 21:07 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 20:56 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 20:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 21:10 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 21:10 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 21:00 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 20:51 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 20:51 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 21:03 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 20:59 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:51 - [李思潼：不会介意大家夸我运气好](https://www.share.kurohicncr.top/Article/details/9737651.shtml)
-- 2026-06-29 20:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/538021.shtml)
-- 2026-06-29 21:05 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/747894781.shtml)
-- 2026-06-29 21:03 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/163062042.shtml)
-- 2026-06-29 20:51 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.minike.top/Article/details/991491446.shtml)
-- 2026-06-29 21:05 - [北京市发布雷电黄色预警](https://www.share.kurohicncr.top/Article/details/53206849.shtml)
-- 2026-06-29 20:57 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/07749.shtml)
-- 2026-06-29 20:41 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/3099670627.shtml)
-- 2026-06-29 20:43 - [新官上任三把火](http://www.share.minike.top/Article/details/4852516657.shtml)
-- 2026-06-29 20:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/0828588078.shtml)
-- 2026-06-29 21:01 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/18321307340.shtml)
-- 2026-06-29 21:00 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/6707002.shtml)
-- 2026-06-29 21:02 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/908687.shtml)
-- 2026-06-29 21:03 - [白玉兰答谢宴合影](https://www.blog.kurohicncr.top/Article/details/10351117614.shtml)
-- 2026-06-29 20:50 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/836827.shtml)
+- 2026-06-29 21:10 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/35882.shtml)
+- 2026-06-29 21:06 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/704477679.shtml)
+- 2026-06-29 20:43 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/3417146.shtml)
+- 2026-06-29 20:43 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/83079590.shtml)
+- 2026-06-29 21:03 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/2559770.shtml)
+- 2026-06-29 20:45 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/335979389.shtml)
+- 2026-06-29 20:54 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/38628.shtml)
+- 2026-06-29 21:05 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/2047790.shtml)
+- 2026-06-29 21:08 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/4105350.shtml)
+- 2026-06-29 20:52 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/20901958286.shtml)
+- 2026-06-29 20:50 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/12209.shtml)
+- 2026-06-29 21:06 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/23711.shtml)
+- 2026-06-29 21:01 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/80027879858.shtml)
+- 2026-06-29 20:51 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/775476057.shtml)
+- 2026-06-29 20:48 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/910615331206.shtml)

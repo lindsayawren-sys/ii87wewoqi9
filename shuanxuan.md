@@ -1,57 +1,59 @@
-# 中国首条深水油气装备工艺管线智能生产线建设完成
+# 全国党建工作座谈会在京召开
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-中新社天津5月10日电 (记者 周亚强 王君妍)记者10日从海洋石油工程股份有限公司(简称“海油工程”)获悉，中国首条深水油气装备工艺管线智能生产线在海油工程珠海深水装备制造基地建设完成，进入调试阶段。 据悉，生产线创新应用中国首创“生产管控系统+智能运输系统+AI视觉边界判定”融合技术，对推动中国深水海洋油气装备制造智能化发展具有重要意义。 工艺管线被称为海洋油气资源开发设施
+原标题：全国党建工作座谈会在京召开 蔡奇出席并讲话 李希出席 新华社北京6月15日电 全国党建工作座谈会15日在京召开，中共中央政治局常委、中央书记处书记蔡奇出席会议并讲话，中共中央政治局常委、中央纪律检查委员会书记李希出席会议。 会议认为，党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一
 
 ## 正文
 
-中新社天津5月10日电 (记者 周亚强 王君妍)记者10日从海洋石油工程股份有限公司(简称“海油工程”)获悉，中国首条深水油气装备工艺管线智能生产线在海油工程珠海深水装备制造基地建设完成，进入调试阶段。
+原标题：全国党建工作座谈会在京召开 蔡奇出席并讲话 李希出席 新华社北京6月15日电 全国党建工作座谈会15日在京召开，中共中央政治局常委、中央书记处书记蔡奇出席会议并讲话，中共中央政治局常委、中央纪律检查委员会书记李希出席会议。
 
-据悉，生产线创新应用中国首创“生产管控系统+智能运输系统+AI视觉边界判定”融合技术，对推动中国深水海洋油气装备制造智能化发展具有重要意义。
+会议认为，党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一系列新理念新思想新战略，形成习近平党建思想。
 
-工艺管线被称为海洋油气资源开发设施的“大动脉”，是海洋油气开发的核心基础设施，承担设施生产过程中油、水、介质流体等输送功能。
+习近平党建思想是习近平新时代中国特色社会主义思想的重要组成部分，为发展马克思主义建党学说作出重大原创性贡献，对强党强国具有重大现实意义和长远指导意义。
 
-特别是深水区域油气设施需要长期在高压、高温、强腐蚀等极端工况下稳定运行，对工艺管线可靠性、作业人员专业素质以及工艺方案周密性提出了更为苛刻的要求。
+会议指出，习近平党建思想是加强新时代党的建设的根本遵循。
 
-海油工程深水油气装备工艺管线智能生产线项目负责人李玉明介绍，该生产线由MES生产管控系统、组焊一体智能系统、AI智能视觉识别系统和AGV智能运输系统等模块构成，打通除锈喷码、物流运输、智能组对与自适应焊接等作业环节，覆盖3类材质，8种管径、多类型管件的“下料-组对-焊接”一体化智能生产全流程。
+这一思想鲜明提出坚持党的领导是中国特色社会主义最本质的特征，坚持党中央集中统一领导，坚持全面从严治党，坚持不忘初心、牢记使命，坚持以党的政治建设为统领，坚持用党的创新理论凝心铸魂，坚持锤炼坚强党性，坚持健全上下贯通、执行有力的组织体系，坚持建设堪当民族复兴重任的高素质干部队伍，坚持推进作风建设常态化长效化，坚持用严明的纪律管全党治全党，坚持一体推进不敢腐不能腐不想腐，坚持制度治党、依规治党，坚持落实管党治党政治责任，内涵丰富、体系严密。
 
-面对深水油气装备工艺管线规格差异大、材质多样性、工艺类型杂等行业难题，项目团队联合中国先进智能装备制造企业，历时两年时间，攻克智能化生产设备和软件支持系统融合互联难题，实现工单柔性排产、生产线一键执行、远程化无障碍集控等生产全流程智能化。
+这一思想源自于马克思主义科学理论，植根于中华优秀传统文化，孕育于新时代全面从严治党的伟大实践，具有坚实的实践基础和深厚的理论渊源。
 
-海油工程相关负责人介绍，近年来，海油工程坚持自主创新与智能升级双轮驱动，先后投用中国首批自主研发海洋工程柔性制造智能焊接机器人设备系统、首条海洋油气装备智能化涂装生产线，全面打通深水油气装备工艺管线智能建造全流程，系统形成从智能设计、柔性制造到精准涂装的一体化自主可控能力。
+这一思想彰显了坚定的理想信念、高度的历史主动、鲜明的问题导向、强烈的使命担当、深厚的为民情怀、科学的思想方法，明体达用、体用贯通，具有鲜明的理论品格。
 
-(完)
+这一思想贯通历史、现实和未来，将随着新时代党的建设实践发展而不断丰富和发展。
 
 ## 相关推荐
 
-- 2026-06-29 20:41 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 20:55 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 21:00 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 20:48 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 20:46 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 20:58 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 20:59 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 20:59 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 20:37 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 20:51 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 20:45 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 21:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 20:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 20:42 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 20:42 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 21:05 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 20:46 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 20:54 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 20:54 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 21:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 20:50 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 21:00 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 21:06 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 20:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:45 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/097660518.shtml)
-- 2026-06-29 21:00 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/2989933607.shtml)
-- 2026-06-29 21:01 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/742143.shtml)
-- 2026-06-29 20:55 - [这一刀 会很帅](http://www.share.minike.top/Article/details/863637466599.shtml)
-- 2026-06-29 21:03 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/17401991148.shtml)
-- 2026-06-29 20:53 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/073944083496.shtml)
-- 2026-06-29 20:56 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/3216055.shtml)
-- 2026-06-29 21:03 - [乌克兰发广告全球征兵](http://www.share.minike.top/Article/details/747320837517.shtml)
-- 2026-06-29 20:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/40921317.shtml)
-- 2026-06-29 20:52 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/0848831.shtml)
-- 2026-06-29 20:57 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/92971353.shtml)
-- 2026-06-29 21:04 - [RAY评乘风2026总决赛](http://www.blog.minike.top/Article/details/417514.shtml)
-- 2026-06-29 20:41 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/1629244.shtml)
-- 2026-06-29 20:54 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/678860529418.shtml)
-- 2026-06-29 20:51 - [欧洲极端高温如何影响家电股](http://www.share.minike.top/Article/details/056680195.shtml)
+- 2026-06-29 21:04 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/651461718893.shtml)
+- 2026-06-29 20:46 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/5730918.shtml)
+- 2026-06-29 20:56 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/22471156.shtml)
+- 2026-06-29 20:46 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/696764.shtml)
+- 2026-06-29 20:48 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/788158.shtml)
+- 2026-06-29 20:51 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/35804.shtml)
+- 2026-06-29 20:42 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/64182.shtml)
+- 2026-06-29 21:08 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/974019952.shtml)
+- 2026-06-29 21:09 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/203747.shtml)
+- 2026-06-29 20:51 - [《贺子珍》](http://www.blog.minike.top/Article/details/94799569.shtml)
+- 2026-06-29 20:42 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/04840.shtml)
+- 2026-06-29 21:04 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/5110391.shtml)
+- 2026-06-29 20:58 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/16948271.shtml)
+- 2026-06-29 20:59 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/0004704163.shtml)
+- 2026-06-29 21:10 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/784313941.shtml)

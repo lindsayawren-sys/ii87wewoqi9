@@ -1,52 +1,60 @@
-# 公交车已然不用人开？智驾企业：L4级自动驾驶巴士已落地20余城
+# 中国—巴基斯坦智库论坛召开
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 22:06 来源：中国新闻网 第二十八届北京科博会于5月8日至10日在国家会议中心举办。在本届科博会上，一款名叫MOGOBUS的L4级自动驾驶公交车亮相展台。据蘑菇车联副总裁赵仁杰介绍，该款自动驾驶巴士采取“前装量产+视觉感知与激光雷达融合”的技术路线，深度融合自动驾驶域、智能座舱域及整车底盘域，配备固态激光雷达、毫米波雷达、超声波雷达以及环视
+中新网北京6月15日电 (记者 李京泽)中国社会科学院亚太与全球战略研究院近日在北京举办以“新时代·新机遇·新挑战：深化中巴全方位合作、构建中巴命运共同体”为主题的中国—巴基斯坦智库论坛，来自巴基斯坦伊斯兰堡战略研究所的代表及国内相关研究机构、智库和高校的专家学者参加了论坛。 中国社会科学院亚太与全球战略研究院副院长陈新表示，智库交流是增进两国人民相互理解、夯实民意基础的重要途
 
 ## 正文
 
-发布时间：2026年05月09日 22:06 来源：中国新闻网 第二十八届北京科博会于5月8日至10日在国家会议中心举办。
+中新网北京6月15日电 (记者 李京泽)中国社会科学院亚太与全球战略研究院近日在北京举办以“新时代·新机遇·新挑战：深化中巴全方位合作、构建中巴命运共同体”为主题的中国—巴基斯坦智库论坛，来自巴基斯坦伊斯兰堡战略研究所的代表及国内相关研究机构、智库和高校的专家学者参加了论坛。
 
-在本届科博会上，一款名叫MOGOBUS的L4级自动驾驶公交车亮相展台。
+中国社会科学院亚太与全球战略研究院副院长陈新表示，智库交流是增进两国人民相互理解、夯实民意基础的重要途径，能够为中巴全天候战略合作伙伴关系注入持久思想动力，期待通过本次论坛凝聚更多共识，为两国政府决策提供有益参考，推动中巴全方位合作不断走深走实。
 
-据蘑菇车联副总裁赵仁杰介绍，该款自动驾驶巴士采取“前装量产+视觉感知与激光雷达融合”的技术路线，深度融合自动驾驶域、智能座舱域及整车底盘域，配备固态激光雷达、毫米波雷达、超声波雷达以及环视摄像头组成的多传感器融合感知方案，实现了360度无盲区环境感知，可对复杂路况、大客流场景进行精准预判与安全决策。
+巴基斯坦驻华使馆副馆长艾扎兹·汗表示，新时代的中巴关系既迎来新机遇也面临新挑战。
 
-目前，自动驾驶巴士MOGOBUS已在国内20余个城市落地，服务超20万人次，行驶里程突破500万公里。
+中巴两国需要在数字经济技术、绿色能源与气候变化、互联互通和贸易等三个关键领域开展进一步合作。
 
-据介绍，L4级自动驾驶车辆可以在划定的园区、公交专线、特定城市道路等专属运行区域内，自主完成起步、行驶、避让障碍物、变道、刹车停靠等全部驾驶操作，全程无需人类驾驶员接管。
+同时，中巴关系也需直面地缘政治不确定性、经济差距以及非传统安全威胁等挑战。
 
-(谢龙飞 卢晓娜 陈杭马倩倩 制作 王佳琪) 责任编辑：【卢岩】
+中国外交部亚洲司陈伟参赞表示，长期以来中巴两国学者为促进中巴相互了解、友好合作以及学术交流发挥了重要作用。
+
+他对智库间交流提出三点建议：一是把牢方向，坚定不移深化中巴关系。
+
+二是多出实招，切实推进两国务实合作。
 
 ## 相关推荐
 
-- 2026-06-29 20:48 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 20:52 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 20:39 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 20:52 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 21:02 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 20:54 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 20:48 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 20:51 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 20:50 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 21:05 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 20:50 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 21:09 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 20:47 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 20:48 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 20:58 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 20:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 20:59 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 20:54 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 21:09 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 20:54 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 20:58 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 21:06 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 21:10 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 20:44 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:58 - [起风了](https://www.blog.kurohicncr.top/Article/details/2140324.shtml)
-- 2026-06-29 20:49 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/069213206347.shtml)
-- 2026-06-29 20:42 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/26218989560.shtml)
-- 2026-06-29 21:00 - [毒液2](https://www.share.kurohicncr.top/Article/details/691700530492.shtml)
-- 2026-06-29 20:40 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/253989792.shtml)
-- 2026-06-29 20:51 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/778581.shtml)
-- 2026-06-29 20:36 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/44243867619.shtml)
-- 2026-06-29 20:58 - [急先锋](http://www.blog.minike.top/Article/details/13938970835.shtml)
-- 2026-06-29 20:58 - [恋与深空7天掉粉超50万](https://www.blog.minike.top/Article/details/25089863.shtml)
-- 2026-06-29 20:38 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/74328.shtml)
-- 2026-06-29 21:04 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/924307459624.shtml)
-- 2026-06-29 20:59 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/493031262.shtml)
-- 2026-06-29 21:00 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/13649.shtml)
-- 2026-06-29 20:41 - [林逸向方筱然求婚了](http://www.blog.minike.top/Article/details/435030506831.shtml)
-- 2026-06-29 20:53 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/6687177378.shtml)
+- 2026-06-29 21:02 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/69496100646.shtml)
+- 2026-06-29 20:51 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/855488648544.shtml)
+- 2026-06-29 20:49 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/261757.shtml)
+- 2026-06-29 20:48 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/9494246646.shtml)
+- 2026-06-29 21:00 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/12575.shtml)
+- 2026-06-29 20:43 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/33434371898.shtml)
+- 2026-06-29 20:42 - [广东水利防汛Ⅳ级应急响应结束](https://www.share.minike.top/Article/details/22435.shtml)
+- 2026-06-29 21:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/187245.shtml)
+- 2026-06-29 21:07 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/7404848030.shtml)
+- 2026-06-29 20:59 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/448299525885.shtml)
+- 2026-06-29 20:52 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/60282373.shtml)
+- 2026-06-29 20:52 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.kurohicncr.top/Article/details/86651566.shtml)
+- 2026-06-29 20:56 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/74525.shtml)
+- 2026-06-29 20:58 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/348236137578.shtml)
+- 2026-06-29 21:06 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/872315276463.shtml)

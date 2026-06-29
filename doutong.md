@@ -1,59 +1,57 @@
-# 人民币需求升温 境外货币当局动用的双边本币互换协议余额创两年新高
+# （文化中国行）千年丝路故城焕生机 “夜游”圈粉中外客
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-中东冲突引发全球金融市场波动后，境外货币当局使用了更多与中国央行签署的双边本币互换协议以获得资金，这显示人民币成为稳定全球流动性环境的力量之一。 根据中国央行周一发布的货币政策执行报告的数据计算，一季度境外货币当局动用的双边本币互换协议金额达174亿元人民币，为三年以来最大单季增幅；余额为1116亿元人民币，为2024年一季度末以来最高，并接近1171亿元的历史高位。 双边本币
+中新社新疆吐鲁番6月14日电 题：千年丝路故城焕生机 “夜游”圈粉中外客 作者 苟继鹏 夜晚的交河故城，展现出与白昼截然不同的魅力。近日，在新疆吐鲁番市交河故城内，游客们循着光影，汇聚起来欣赏一场名为《交河之夜》的原声实景音乐会。 “我们从2016年起推出‘夜游交河’文旅融合项目，音乐会历经多年打磨全新升级，以故城残垣为舞台，打造沉浸式夜间实景演艺，唤醒沉睡千年的交河文明。”交
 
 ## 正文
 
-中东冲突引发全球金融市场波动后，境外货币当局使用了更多与中国央行签署的双边本币互换协议以获得资金，这显示人民币成为稳定全球流动性环境的力量之一。
+中新社新疆吐鲁番6月14日电 题：千年丝路故城焕生机 “夜游”圈粉中外客 作者 苟继鹏 夜晚的交河故城，展现出与白昼截然不同的魅力。
 
-根据中国央行周一发布的货币政策执行报告的数据计算，一季度境外货币当局动用的双边本币互换协议金额达174亿元人民币，为三年以来最大单季增幅；余额为1116亿元人民币，为2024年一季度末以来最高，并接近1171亿元的历史高位。
+近日，在新疆吐鲁番市交河故城内，游客们循着光影，汇聚起来欣赏一场名为《交河之夜》的原声实景音乐会。
 
-双边本币互换协议是两个货币当局之间的一种应急短期流动性支持机制，在危机时可为双边贸易结算或金融市场提供资金，并减少对美元的依赖。
+“我们从2016年起推出‘夜游交河’文旅融合项目，音乐会历经多年打磨全新升级，以故城残垣为舞台，打造沉浸式夜间实景演艺，唤醒沉睡千年的交河文明。
 
-伊朗冲突爆发后，正有更多国家寻求双边流动性安排，以避免对本国金融环境造成冲击。
+”交河故城文物管理所所长王建东接受中新社采访时说。
 
-根据国内媒体4月初报道，人民币跨境支付系统（CIPS）单日处理交易额突破万亿元关口，达1.22万亿元，交易笔数近4.2万笔，创下历史新高。
+寂静的夜空下，长笛、热瓦普与萨塔尔等乐器的声音悠扬响起，身着古代僧侣服饰的演员，以深情的散文诗朗诵拉开序幕。
 
-另据中国央行数据，截止2025年末，中国央行与32个国家和地区的中央银行或货币当局签署了双边本币互换协议，总额达4.52万亿元人民币。
+意大利艺术家、策展人阿莱西亚当晚体验了“夜游交河”。
 
-责任编辑：于健 SF069
+“当夜幕降临，置身于星空之下和断壁残垣之中，这种剥离现代喧嚣的静谧感，让我感到一种前所未有的平静；同时宏大而苍凉的历史景象与夜幕下的星空相结合，营造出一种超脱现实的静谧与壮美。
+
+”她说，希望更多人能够亲临此地，感受这份魅力。
 
 ## 相关推荐
 
-- 2026-06-29 20:38 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 20:43 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 20:45 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 20:40 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 20:47 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 20:48 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 20:44 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 20:46 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 20:58 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 20:58 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 20:58 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 20:36 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 21:02 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 20:42 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 20:47 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 20:57 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 21:10 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 21:10 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 20:50 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 21:02 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 20:58 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 21:00 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 20:55 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 20:55 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 21:09 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 21:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:38 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/0503353.shtml)
-- 2026-06-29 20:45 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/60063163149.shtml)
-- 2026-06-29 20:44 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/04207268.shtml)
-- 2026-06-29 20:50 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/99330085.shtml)
-- 2026-06-29 20:54 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/980937.shtml)
-- 2026-06-29 20:41 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/919005739.shtml)
-- 2026-06-29 20:39 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/2514694810.shtml)
-- 2026-06-29 21:03 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/3791126007.shtml)
-- 2026-06-29 21:00 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/2212341.shtml)
-- 2026-06-29 20:52 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/747845.shtml)
-- 2026-06-29 20:36 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/027625617008.shtml)
-- 2026-06-29 21:01 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/412699766898.shtml)
-- 2026-06-29 20:50 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/593556424.shtml)
-- 2026-06-29 20:43 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/550627741.shtml)
-- 2026-06-29 21:00 - [华工科技龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/87409635040.shtml)
+- 2026-06-29 20:45 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/36683803.shtml)
+- 2026-06-29 21:10 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/80513948.shtml)
+- 2026-06-29 20:48 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/833178627450.shtml)
+- 2026-06-29 20:59 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.minike.top/Article/details/166146195.shtml)
+- 2026-06-29 20:57 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/4076785.shtml)
+- 2026-06-29 21:00 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/08050585388.shtml)
+- 2026-06-29 21:08 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/81192703029.shtml)
+- 2026-06-29 20:58 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/04589.shtml)
+- 2026-06-29 21:09 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/032824183623.shtml)
+- 2026-06-29 20:55 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/69499.shtml)
+- 2026-06-29 21:12 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/70344208.shtml)
+- 2026-06-29 21:07 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/12358568.shtml)
+- 2026-06-29 21:08 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/412241.shtml)
+- 2026-06-29 20:54 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/23918948568.shtml)
+- 2026-06-29 20:44 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/1343237754.shtml)

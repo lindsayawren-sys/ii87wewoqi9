@@ -1,59 +1,61 @@
-# 易方达财富启动投顾业务客户维护费全额让利
+# 路威酩轩与顶尖职业运动员联合出资新基金，入股运动休闲服饰品牌
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-5月11日上午，易方达财富“e钱包”的投顾客户李先生收到了一条短信提醒，让他颇感“惊喜”。李先生选用易方达财富投顾服务，平台已将他参与投顾策略底层基金产生的3649.29元客户维护费，全部给到他的账户——这是易方达财富启动投顾客户维护费全额让利后，收到款项的其中一位投顾投资者。 所谓客户维护费，是基金管理人在投资者购买基金后，从向投资者收取的基金管理费中，按约定比例支付给销售机
+体育明星达克・普雷斯科特、泰瑞斯・哈利伯顿均为该基金合伙人，本次向 Rhoback 投资近 5000 万美元 内容速览 由路威酩轩（LVMH）及 200 余名职业运动员出资成立的 Champ 基金完成首笔投资，收购运动休闲品牌 Rhoback 少数股权。 一家获时尚巨头路威酩轩（LVMH，股价上涨 1.88%）与 200 多名职业运动员支持的全新基金宣布完成首笔投资，入股美国运
 
 ## 正文
 
-5月11日上午，易方达财富“e钱包”的投顾客户李先生收到了一条短信提醒，让他颇感“惊喜”。
+体育明星达克・普雷斯科特、泰瑞斯・哈利伯顿均为该基金合伙人，本次向 Rhoback 投资近 5000 万美元 内容速览 由路威酩轩（LVMH）及 200 余名职业运动员出资成立的 Champ 基金完成首笔投资，收购运动休闲品牌 Rhoback 少数股权。
 
-李先生选用易方达财富投顾服务，平台已将他参与投顾策略底层基金产生的3649.29元客户维护费，全部给到他的账户——这是易方达财富启动投顾客户维护费全额让利后，收到款项的其中一位投顾投资者。
+一家获时尚巨头路威酩轩（LVMH，股价上涨 1.88%）与 200 多名职业运动员支持的全新基金宣布完成首笔投资，入股美国运动休闲服饰品牌。
 
-所谓客户维护费，是基金管理人在投资者购买基金后，从向投资者收取的基金管理费中，按约定比例支付给销售机构的一笔用于基金销售和客户服务费用，业内俗称“尾随佣金”。
+知情人士透露，这支名为 Champ（全称 Champion Athlete Managing Partner，冠军运动员管理合伙人）的基金联合其余数家投资方，合计向 Rhoback 投入近 5000 万美元。
 
-易方达财富此次将投顾业务中配置底层基金时按约定从基金管理人处收取的尾随佣金全额让利给投资者，意味着投顾业务中所产生的销售佣金将“归零”，易方达财富只收取投顾服务费。
+该运动服饰品牌标志性元素是小狗 logo，主打速干 Polo 衫。
 
-易方达财富基于“买方立场”，本次让利的范围覆盖其自有平台展业以来截至2026年3月31日，投资者授权易方达财富提供投顾服务的策略底层基金产生的所有尾随佣金。
+Champ 基金于今年 4 月正式成立，目标募资 5 亿美元，用于投资热度较高的消费品牌。
 
-此举是易方达财富践行普惠金融，积极响应落实基金销售费用新规的具体实践。
+众多美国知名体育明星均参与出资，包括篮球球星泰瑞斯・哈利伯顿、橄榄球明星达克・普雷斯科特与贾马尔・蔡斯、女子职业篮球联赛球员卡梅伦・布林克，以及棒球强打迈克・特劳特。
 
-2025年12月31日，中国证监会发布的《公开募集证券投资基金销售费用管理规定》明确，基金销售机构同时开展基金投资顾问业务的，应当坚持投资者利益优先、最优价格执行原则，对基金投资顾问业务形成的保有量，不得收取客户维护费，切实防范利益冲突。
+与传统付费代言模式不同，运动员自行投入自有资金参与项目投资。
 
-因法规设置12个月的过渡期，易方达财富此举提前落实法规要求，切实让利投资者。
+出于自身收益考量，他们会利用自身知名度与海量社交粉丝，为基金投资的品牌进行宣传推广。
 
 ## 相关推荐
 
-- 2026-06-29 20:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 20:57 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 20:45 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 21:05 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 20:37 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 20:39 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 20:51 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 20:48 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 20:45 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 20:59 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 20:54 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 20:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 20:54 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 21:03 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 20:59 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 20:52 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 20:47 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 21:11 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 21:09 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 20:53 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 20:43 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 20:57 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 20:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 20:55 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 21:06 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 20:45 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 21:00 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 20:47 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/05181549497.shtml)
-- 2026-06-29 20:55 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/67190.shtml)
-- 2026-06-29 20:49 - [逃狱兄弟](http://www.blog.minike.top/Article/details/210892725.shtml)
-- 2026-06-29 20:44 - [TOP Prada](http://www.share.minike.top/Article/details/03078.shtml)
-- 2026-06-29 21:02 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/525414209391.shtml)
-- 2026-06-29 21:04 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/45395650245.shtml)
-- 2026-06-29 21:00 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/43641042.shtml)
-- 2026-06-29 20:41 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/147479723253.shtml)
-- 2026-06-29 20:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/91937.shtml)
-- 2026-06-29 20:59 - [请回答王牌2019](https://www.share.minike.top/Article/details/31613.shtml)
-- 2026-06-29 21:02 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/7325090.shtml)
-- 2026-06-29 20:52 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/083810048365.shtml)
-- 2026-06-29 20:58 - [金刚川](https://www.share.minike.top/Article/details/225858233250.shtml)
-- 2026-06-29 20:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/81753745.shtml)
-- 2026-06-29 20:49 - [爱很美味](https://www.share.kurohicncr.top/Article/details/683734231.shtml)
+- 2026-06-29 20:52 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/37902.shtml)
+- 2026-06-29 20:44 - [乔家的儿女](http://www.blog.minike.top/Article/details/2696180.shtml)
+- 2026-06-29 21:07 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/46007696.shtml)
+- 2026-06-29 20:49 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/14573325.shtml)
+- 2026-06-29 20:55 - [英法德葡存在什么隐患](http://www.share.minike.top/Article/details/17901.shtml)
+- 2026-06-29 20:46 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/51403.shtml)
+- 2026-06-29 21:08 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/2443509.shtml)
+- 2026-06-29 21:06 - [温网](https://www.blog.kurohicncr.top/Article/details/67365200.shtml)
+- 2026-06-29 20:59 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/679519035.shtml)
+- 2026-06-29 20:48 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/76938188583.shtml)
+- 2026-06-29 21:06 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/74044.shtml)
+- 2026-06-29 20:52 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/108593.shtml)
+- 2026-06-29 20:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/627642.shtml)
+- 2026-06-29 21:11 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/9823379.shtml)
+- 2026-06-29 21:04 - [乔家的儿女](https://www.share.minike.top/Article/details/067321.shtml)

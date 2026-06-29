@@ -1,58 +1,58 @@
-# 零跑汽车午前涨超4% 机构预计公司2026年销量102万辆
+# 抓泥鳅打麻糍 六十余名新加坡华侨走进浙江遂昌
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-零跑汽车（09863）午前涨超4%，截至发稿，股价上涨4.48%，现报49.94港元，成交额3.41亿港元。 5月8日，全球汽车巨头Stellantis宣布与零跑汽车扩大战略合作，零跑的技术架构将首次应用于欧宝品牌全新纯电SUV，双方位于西班牙的工厂将进行联合生产。此次的战略合作还涉及到提升和整合产能、降低成本以及联合采购等方面。2023年10月，Stellantis通过收购零
+中新网丽水6月15日电(胡丰盛 刘岚)“这里的山水风光很美，以后有机会我还要来，到别的乡村看看。”近日，在浙江省丽水市遂昌县西畈乡举淤口村，新加坡华侨黄山兴奋不已。 6月6日至16日，六十余名新加坡华侨研学团队走进遂昌田间地头、穿梭乡村小院、体验特色农事活动，在乡村烟火中沉浸式感受浙西南文化与中华传统韵味。 稻田旁的泥塘里，孩子们卷起裤腿、赤脚踩进泥浆，弯腰追逐滑溜的泥鳅，惊呼
 
 ## 正文
 
-零跑汽车（09863）午前涨超4%，截至发稿，股价上涨4.48%，现报49.94港元，成交额3.41亿港元。
+中新网丽水6月15日电(胡丰盛 刘岚)“这里的山水风光很美，以后有机会我还要来，到别的乡村看看。
 
-5月8日，全球汽车巨头Stellantis宣布与零跑汽车扩大战略合作，零跑的技术架构将首次应用于欧宝品牌全新纯电SUV，双方位于西班牙的工厂将进行联合生产。
+”近日，在浙江省丽水市遂昌县西畈乡举淤口村，新加坡华侨黄山兴奋不已。
 
-此次的战略合作还涉及到提升和整合产能、降低成本以及联合采购等方面。
+6月6日至16日，六十余名新加坡华侨研学团队走进遂昌田间地头、穿梭乡村小院、体验特色农事活动，在乡村烟火中沉浸式感受浙西南文化与中华传统韵味。
 
-2023年10月，Stellantis通过收购零跑汽车约21%的股份，成为其单一最大股东。
+稻田旁的泥塘里，孩子们卷起裤腿、赤脚踩进泥浆，弯腰追逐滑溜的泥鳅，惊呼声和欢笑声此起彼伏。
 
-Stellantis在双方合资的“零跑国际”持股51%，并拥有在大中华区以外市场独家销售和制造零跑产品的权利。
+“我觉得抓泥鳅非常有意思，以前从来没有见过泥鳅，来到这里以后觉得特别新奇。
 
-华创证券近期指出，公司今年新车周期强劲，3月上市小型SUVA10、4月上市大型SUVD19，并规划6-7月上市A05及首款MPVD99。
+”黄山说。
 
-其中新车型A10、D19产品力强、定价超预期、上市后热度高，延续零跑高性价比的产品策略。
+石臼边，大家轮流抡起木槌，在反复捶打中将热气腾腾的糯米变成软糯筋道的麻糍；石磨缓缓转动，雪白的豆浆顺着磨盘流出，豆香四溢。
 
-随新车型上市，公司产品矩阵将进一步完善，为后续销量增长提供强劲支撑。
+这些古老的手艺活，让远道而来的游客们亲身触摸到乡村的烟火日常。
 
 ## 相关推荐
 
-- 2026-06-29 20:45 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 20:36 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 20:54 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 20:53 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 20:37 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 20:49 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 20:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 20:44 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 20:38 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 20:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 20:51 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 20:51 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 20:51 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 20:53 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 21:02 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 21:01 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 21:04 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 20:44 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 21:09 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 21:12 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 20:59 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 20:57 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 21:07 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 20:57 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:45 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/091784099666.shtml)
-- 2026-06-29 20:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/035513357.shtml)
-- 2026-06-29 20:42 - [法生态部长反对装空调却自己吹空调](https://www.blog.kurohicncr.top/Article/details/645480843625.shtml)
-- 2026-06-29 20:46 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.kurohicncr.top/Article/details/293324664.shtml)
-- 2026-06-29 21:02 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.minike.top/Article/details/54157.shtml)
-- 2026-06-29 21:01 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/048897282587.shtml)
-- 2026-06-29 20:44 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/083513538020.shtml)
-- 2026-06-29 20:43 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/00937.shtml)
-- 2026-06-29 21:02 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/686223225239.shtml)
-- 2026-06-29 20:58 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/47475.shtml)
-- 2026-06-29 20:51 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/9827880.shtml)
-- 2026-06-29 20:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/0389810053.shtml)
-- 2026-06-29 20:59 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/861915.shtml)
-- 2026-06-29 20:53 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/6822731544.shtml)
-- 2026-06-29 21:04 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/68709095272.shtml)
+- 2026-06-29 21:02 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/719079064689.shtml)
+- 2026-06-29 20:59 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/44912301581.shtml)
+- 2026-06-29 21:05 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/494882914.shtml)
+- 2026-06-29 20:44 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/49991420592.shtml)
+- 2026-06-29 21:03 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.kurohicncr.top/Article/details/87871041.shtml)
+- 2026-06-29 21:05 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/8761576684.shtml)
+- 2026-06-29 21:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/51657184.shtml)
+- 2026-06-29 20:53 - [女心理师](https://www.share.kurohicncr.top/Article/details/68016967409.shtml)
+- 2026-06-29 20:55 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/21037253.shtml)
+- 2026-06-29 20:44 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/8155952.shtml)
+- 2026-06-29 21:08 - [任泽平：AI浪潮刚刚开始](https://www.share.minike.top/Article/details/7357201.shtml)
+- 2026-06-29 20:55 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/20867.shtml)
+- 2026-06-29 20:56 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/65385.shtml)
+- 2026-06-29 20:55 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/728849.shtml)
+- 2026-06-29 21:01 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/1281076851.shtml)

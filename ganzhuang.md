@@ -1,46 +1,57 @@
-# 广发证券：首次覆盖给予绿城中国“买入”评级 合理价值14.20港元
+# 孩子买的“爱豆”演唱会门票能退款吗
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-广发证券发布研报称，预计绿城中国（03900）26-28年归母净利润分别为15亿元、20亿元、33亿元，当前市值对应25年权益销售PS仅0.2x，市场对公司未来利润水平预测及过去两年经营管理变化存在较大预期差。基于悲观情景测算，公司NAV为316亿元，给予绿城中国合理价值14.20港元/股，首次覆盖给予“买入”评级。责任编辑：卢昱君
+随着粉丝经济与演艺经济深度融合，部分未成年人在追星过程中出现非理性消费现象，由此引发的网络服务合同纠纷日益增多。北京互联网法院综合审判三庭(少年法庭)法官毛春联认为，此类纠纷不仅关系未成年人合法权益的保护，也触及平台经营规范、行业健康发展及未成年人网络空间治理等多重议题。近日，北京互联网法院审结一起涉未成年人购买演唱会门票退款的网络服务合同纠纷，认定未成年人与票务平台订立的、超
 
 ## 正文
 
-广发证券发布研报称，预计绿城中国（03900）26-28年归母净利润分别为15亿元、20亿元、33亿元，当前市值对应25年权益销售PS仅0.2x，市场对公司未来利润水平预测及过去两年经营管理变化存在较大预期差。
+随着粉丝经济与演艺经济深度融合，部分未成年人在追星过程中出现非理性消费现象，由此引发的网络服务合同纠纷日益增多。
 
-基于悲观情景测算，公司NAV为316亿元，给予绿城中国合理价值14.20港元/股，首次覆盖给予“买入”评级。
+北京互联网法院综合审判三庭(少年法庭)法官毛春联认为，此类纠纷不仅关系未成年人合法权益的保护，也触及平台经营规范、行业健康发展及未成年人网络空间治理等多重议题。
 
-责任编辑：卢昱君
+近日，北京互联网法院审结一起涉未成年人购买演唱会门票退款的网络服务合同纠纷，认定未成年人与票务平台订立的、超出其年龄与智力范围的购票合同属于效力待定合同。
+
+在法定代理人明确拒绝追认的情况下，该合同不产生法律效力，平台不得仅依据合同条款拒绝退款。
+
+法院认为，该案原告的监护人未能充分履行监护职责，被告作为专业票务平台也未严格落实未成年人保护措施，双方均存在过错，判决合同无效，平台退还部分购票款。
+
+二次购票退款被拒引纠纷 原告小禾是一名初中生，因喜爱某明星，在未经监护人同意的情况下，使用母亲手机号注册的票务账号购买了两张演唱会门票，所填的观演人信息均为自己。
+
+因同行人行程变动，小禾先就该订单申请退票退款，随后重新购买了一张供自己单独观演的门票。
+
+不久后，小禾收到学业考试安排通知，得知考试时间与演出时间冲突。
 
 ## 相关推荐
 
-- 2026-06-29 20:40 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-29 21:05 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 20:36 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 20:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 20:44 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 20:46 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 20:49 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 20:58 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 20:55 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 20:43 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 21:01 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 21:00 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 20:57 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 21:00 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 20:58 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 21:01 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 20:55 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 20:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 20:54 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 20:48 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 21:09 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/3332517.shtml)
-- 2026-06-29 21:04 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/058882009.shtml)
-- 2026-06-29 20:36 - [回顾世界杯争议事件](http://www.blog.minike.top/Article/details/82096.shtml)
-- 2026-06-29 20:57 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/16650.shtml)
-- 2026-06-29 20:49 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/52800547155.shtml)
-- 2026-06-29 20:37 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/30710.shtml)
-- 2026-06-29 21:05 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.kurohicncr.top/Article/details/166407534354.shtml)
-- 2026-06-29 20:37 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/127595.shtml)
-- 2026-06-29 20:40 - [TTG KSG](https://www.share.minike.top/Article/details/674541035.shtml)
-- 2026-06-29 20:55 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/713897.shtml)
-- 2026-06-29 21:00 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/067801884908.shtml)
-- 2026-06-29 20:36 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/392311669258.shtml)
-- 2026-06-29 20:45 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/727314874697.shtml)
-- 2026-06-29 21:01 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/1084326344.shtml)
-- 2026-06-29 20:50 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/9665903.shtml)
+- 2026-06-29 20:48 - [我们的少年时代2](http://www.blog.minike.top/Article/details/26110.shtml)
+- 2026-06-29 20:53 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/7220792.shtml)
+- 2026-06-29 20:53 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/731409.shtml)
+- 2026-06-29 20:47 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/6661927.shtml)
+- 2026-06-29 21:11 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/793878779003.shtml)
+- 2026-06-29 21:03 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/562466635.shtml)
+- 2026-06-29 20:52 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/9884263319.shtml)
+- 2026-06-29 20:51 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/11601.shtml)
+- 2026-06-29 20:50 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/1595806280.shtml)
+- 2026-06-29 20:55 - [男子40度高温下骑行严重晒伤](http://www.share.minike.top/Article/details/432872691763.shtml)
+- 2026-06-29 20:58 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/0402167.shtml)
+- 2026-06-29 20:56 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/168682220512.shtml)
+- 2026-06-29 20:47 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/6174317174.shtml)
+- 2026-06-29 21:10 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/921338767.shtml)
+- 2026-06-29 20:53 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/69828958595.shtml)

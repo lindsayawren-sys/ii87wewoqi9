@@ -1,58 +1,42 @@
-# 快手拟拆分可灵AI融资：200亿美元估值“阳谋”与资本大逃杀
+# 科技赋能文旅：外籍友人在北京沉浸式体验非遗
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-2026年5月，一则消息在资本市场上掀起了不小的波澜：快手科技正计划将其旗下视频生成大模型业务“可灵AI”（Kling）进行分拆独立，并以约200亿美元估值展开Pre-IPO轮融资，融资规模预计高达20亿美元，腾讯等资本方有望参与其中。 这是一条看似简单的资本运作新闻，但其背后涉及的市值逻辑、产业竞争、估值体系重构以及AI赛道的发展路径，却可谓一石激起千层浪。要知道，截至消息传
+发布时间：2026年06月15日 10:52 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-2026年5月，一则消息在资本市场上掀起了不小的波澜：快手科技正计划将其旗下视频生成大模型业务“可灵AI”（Kling）进行分拆独立，并以约200亿美元估值展开Pre-IPO轮融资，融资规模预计高达20亿美元，腾讯等资本方有望参与其中。
-
-这是一条看似简单的资本运作新闻，但其背后涉及的市值逻辑、产业竞争、估值体系重构以及AI赛道的发展路径，却可谓一石激起千层浪。
-
-要知道，截至消息传出时，快手在港股市场的整体市值尚不足290亿美元，而可灵AI这一块尚处于“烧钱”阶段、在母公司总营收中占比尚不足1%的新业务，其单主体估值竟然已逼近母公司总市值的70%。
-
-消息传出后，快手股价应声高开近10%，报56.7港元。
-
-市场立即用脚投了票，但狂欢背后，这场“拆分之谜”却包含着更深层的故事。
-
-何谓拆分的真正动因？
-
-200亿美元的估值是泡沫还是新定价逻辑的序曲？
-
-可灵的“单飞”又将如何重塑中国AI视频生成的竞争格局？
+发布时间：2026年06月15日 10:52 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 20:58 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 20:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 20:53 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 20:57 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 20:48 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 20:56 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 20:47 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 21:01 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 20:58 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 20:58 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 20:54 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 21:03 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 20:43 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 20:45 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 20:57 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 20:55 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 20:46 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 20:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 20:51 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 20:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 20:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 20:50 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:56 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/389595.shtml)
-- 2026-06-29 21:02 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/794071.shtml)
-- 2026-06-29 20:59 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/78767440750.shtml)
-- 2026-06-29 20:44 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/08613237.shtml)
-- 2026-06-29 20:50 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/0763676905.shtml)
-- 2026-06-29 20:42 - [Ella回应SHE何时合体](http://www.share.minike.top/Article/details/24229.shtml)
-- 2026-06-29 20:41 - [记者暗访养老机构消防安全](https://www.blog.minike.top/Article/details/105507.shtml)
-- 2026-06-29 20:49 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/72771.shtml)
-- 2026-06-29 20:45 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/298101695432.shtml)
-- 2026-06-29 20:52 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/051942597290.shtml)
-- 2026-06-29 20:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/10157669.shtml)
-- 2026-06-29 20:50 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/081589.shtml)
-- 2026-06-29 20:56 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/10127650371.shtml)
-- 2026-06-29 20:42 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/714576.shtml)
-- 2026-06-29 20:44 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/111503.shtml)
+- 2026-06-29 20:46 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/04413.shtml)
+- 2026-06-29 20:42 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/5467486.shtml)
+- 2026-06-29 20:47 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/05698889038.shtml)
+- 2026-06-29 21:05 - [周杰伦演唱会含星量](http://www.share.kurohicncr.top/Article/details/85606361431.shtml)
+- 2026-06-29 20:54 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/70562706.shtml)
+- 2026-06-29 20:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/7192534492.shtml)
+- 2026-06-29 20:49 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.minike.top/Article/details/787212053.shtml)
+- 2026-06-29 20:44 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/390017449.shtml)
+- 2026-06-29 20:51 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/9647519698.shtml)
+- 2026-06-29 20:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/197525.shtml)
+- 2026-06-29 21:11 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/28785.shtml)
+- 2026-06-29 20:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/27252654.shtml)
+- 2026-06-29 21:09 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/762857601.shtml)
+- 2026-06-29 20:44 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/64900714.shtml)
+- 2026-06-29 21:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/78579.shtml)

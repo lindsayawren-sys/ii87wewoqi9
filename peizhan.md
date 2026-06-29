@@ -1,46 +1,59 @@
-# 你还记得他们吗？汶川地震15位跳伞勇士5000米高空生死盲跳
+# 跨越海峡 相向而行（观沧海）
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 08:41 来源：中国新闻网 责任编辑：【韦俊龙】
+夏日暖风拂过海峡，带来了熟悉的乡音与亲情。第十八届海峡论坛如约而至，延续“扩大民间交流、深化融合发展”主题，两岸各界同胞再次相聚福建，共赴四大板块58项活动的两岸民间交流盛会。 这场海峡两岸规模最大、范围最广、影响最深的民间交流盛会，坚持“民间性、草根性、广泛性”定位。历经十八届，一届届论坛、一场场活动，化作两岸同胞交流交往交心的广阔平台，让两岸同胞厚植情谊、增进福祉，越走越近
 
 ## 正文
 
-发布时间：2026年05月12日 08:41 来源：中国新闻网 责任编辑：【韦俊龙】
+夏日暖风拂过海峡，带来了熟悉的乡音与亲情。
+
+第十八届海峡论坛如约而至，延续“扩大民间交流、深化融合发展”主题，两岸各界同胞再次相聚福建，共赴四大板块58项活动的两岸民间交流盛会。
+
+这场海峡两岸规模最大、范围最广、影响最深的民间交流盛会，坚持“民间性、草根性、广泛性”定位。
+
+历经十八届，一届届论坛、一场场活动，化作两岸同胞交流交往交心的广阔平台，让两岸同胞厚植情谊、增进福祉，越走越近、越走越亲。
+
+跨越海峡，话桑梓、叙乡情。
+
+在本届论坛的“海峡百姓论坛”上，“百谱归宗”仪式让众多两岸同胞为之动容。
+
+两岸同宗族代表互证族谱、互赠家书，泛黄纸页上，记录的是两岸同胞血脉中共同的根。
+
+“寻根，是我们刻在骨子里的情分；血脉，是再远也隔不断的牵挂。
 
 ## 相关推荐
 
-- 2026-06-29 20:39 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 20:57 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 20:45 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 20:42 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 20:58 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 21:00 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 20:56 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 20:57 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 20:48 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 20:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 20:58 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 20:53 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 21:01 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 20:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 20:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 20:44 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 20:42 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 20:47 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 20:48 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 20:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 21:06 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 21:06 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 20:49 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 20:43 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 20:54 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 20:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 21:06 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/323963986114.shtml)
-- 2026-06-29 20:48 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/45942105821.shtml)
-- 2026-06-29 20:42 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/731022.shtml)
-- 2026-06-29 21:02 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/9543395771.shtml)
-- 2026-06-29 20:55 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/638407582447.shtml)
-- 2026-06-29 20:40 - [炽夏](https://www.share.minike.top/Article/details/34747.shtml)
-- 2026-06-29 20:55 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/7613584334.shtml)
-- 2026-06-29 20:50 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/16445237.shtml)
-- 2026-06-29 20:57 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/3627216.shtml)
-- 2026-06-29 20:48 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/70178576076.shtml)
-- 2026-06-29 20:40 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/8113518.shtml)
-- 2026-06-29 21:04 - [央行首次3000亿元隔夜逆回购操作](http://www.share.minike.top/Article/details/3646405.shtml)
-- 2026-06-29 20:58 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/31803556.shtml)
-- 2026-06-29 21:03 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/91357600079.shtml)
-- 2026-06-29 20:47 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.kurohicncr.top/Article/details/155977175.shtml)
+- 2026-06-29 20:48 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/68916.shtml)
+- 2026-06-29 21:08 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/82389887.shtml)
+- 2026-06-29 21:06 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/01694.shtml)
+- 2026-06-29 20:42 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/9757387101.shtml)
+- 2026-06-29 21:09 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/92248945554.shtml)
+- 2026-06-29 20:42 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/68226374.shtml)
+- 2026-06-29 21:06 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/025233082232.shtml)
+- 2026-06-29 20:44 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/92858493.shtml)
+- 2026-06-29 21:03 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/7422640189.shtml)
+- 2026-06-29 20:57 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/685388755296.shtml)
+- 2026-06-29 20:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/94514233.shtml)
+- 2026-06-29 21:00 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/82557480698.shtml)
+- 2026-06-29 20:53 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/755722990788.shtml)
+- 2026-06-29 21:03 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/488733.shtml)
+- 2026-06-29 21:10 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/61816.shtml)

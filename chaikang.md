@@ -1,59 +1,57 @@
-# 两年巨亏30亿，昆仑万维豪赌AI的执念为何如此深？
+# “存款搬家”最新进展？业内人士：真实存在但并非大规模迁移
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：翠鸟资本 昆仑万维（维权）董事长兼总经理方汉（图片来源于互联网） 文|翠鸟资本 赶在年报季的尾巴，昆仑万维（300418.SZ）交出了一份令市场五味杂陈的成绩单。 财报数据显示，公司2025年营业收入达81.98亿元，归母净亏损为15.93亿元，扣非归母净亏损为17.25亿元。 这已经是昆仑万维连续第
+21世纪经济报道记者 曹媛 2026年，市场对“存款搬家”的讨论热度依旧不减，多家机构判断今年将迎来大量长期定期存款的集中“到期潮”，年内到期定存规模可达30万亿元至70余万亿元，资金是否会大规模“撤离”银行体系？ 近日，多位一线人士给出了不同判断：“存款搬家”真实存在，但并非大规模迁移。那么，几十万亿元居民存款究竟流向何方？低利率时代，低风险偏好的居民储蓄又该如何安放？ “存
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+21世纪经济报道记者 曹媛 2026年，市场对“存款搬家”的讨论热度依旧不减，多家机构判断今年将迎来大量长期定期存款的集中“到期潮”，年内到期定存规模可达30万亿元至70余万亿元，资金是否会大规模“撤离”银行体系？
 
-来源：翠鸟资本 昆仑万维（维权）董事长兼总经理方汉（图片来源于互联网） 文|翠鸟资本 赶在年报季的尾巴，昆仑万维（300418.SZ）交出了一份令市场五味杂陈的成绩单。
+近日，多位一线人士给出了不同判断：“存款搬家”真实存在，但并非大规模迁移。
 
-财报数据显示，公司2025年营业收入达81.98亿元，归母净亏损为15.93亿元，扣非归母净亏损为17.25亿元。
+那么，几十万亿元居民存款究竟流向何方？
 
-这已经是昆仑万维连续第二年陷入巨额亏损的泥潭。
+低利率时代，低风险偏好的居民储蓄又该如何安放？
 
-昆仑万维在AI战略之下延续着2024年以来的大幅亏损。
+“存款搬家”真实存在，但并非大规模迁移 回顾银行存款市场，2023-2024年大量城商行、农商行及民营银行发行的三年期、五年期长期定存利率普遍处于3%-4%的高位，国有大行、头部股份行利率相对偏低但也处在相对高点，而当前新增定存利率已回落至1.5%-2%区间，悬殊的收益差让市场普遍预判，存款到期后将迎来集中外流，即出现所谓的“存款搬家”现象。
 
-在刚刚过去的2026年第一季度，昆仑万维这一亏损态势并未得到有效遏制，甚至同比亏损规模继续扩大，单季归母净利润-8.87亿元。
+“‘存款搬家’现象并不明显，这一点和市场年初时的判断不一致。
 
-曾几何时，昆仑万维是资本市场眼中的“出海之王”与“游戏巨头”。
+”在近日由21世纪经济报道、广东粤港澳大湾区研究院主办的2026湾区财富大会上，招银理财业务总监、多资产投资部总经理袁尧表示，“从二季度的数据来看，这个现象没有发生，或者说发生的规模比较小。
 
-然而，自从董事长方汉喊出“All in AGI与AIGC”的口号，并高调宣称要做“AI现实主义者”以来，这家老牌互联网企业的命运似乎就与一场巨大的豪赌绑定了。
+” 平安理财混合投资部总经理唐沪军肯定了“存款搬家”现象的存在，他认为这并非突发事件，而是自2025年下半年起行业对该现象的讨论热度持续上升，“2025年7月份居民存款单月减少了1.1万亿元，同期非银机构的存款增加了2.14万亿元，去年10月份和今年4月居民存款更是出现明显回落。
 
 ## 相关推荐
 
-- 2026-06-29 20:47 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 20:56 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 20:51 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 20:42 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 20:58 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 20:36 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 20:49 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 20:39 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 20:47 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 20:52 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 20:54 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 20:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 20:43 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 20:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 21:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 21:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 21:05 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 20:56 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 20:59 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 20:59 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 21:11 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 20:42 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 21:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 20:43 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:05 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/907407868.shtml)
-- 2026-06-29 20:43 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/53612331.shtml)
-- 2026-06-29 20:58 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/47536.shtml)
-- 2026-06-29 20:56 - [多人将马路护栏当球网打羽毛球](http://www.blog.kurohicncr.top/Article/details/74059828.shtml)
-- 2026-06-29 20:41 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/754242343.shtml)
-- 2026-06-29 21:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/547181328857.shtml)
-- 2026-06-29 20:43 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/798441723.shtml)
-- 2026-06-29 20:54 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/714183.shtml)
-- 2026-06-29 20:46 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/266653.shtml)
-- 2026-06-29 20:51 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/865532629390.shtml)
-- 2026-06-29 20:59 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/1379382200.shtml)
-- 2026-06-29 20:50 - [世界杯高票价为何没劝退球迷](https://www.blog.minike.top/Article/details/8431668.shtml)
-- 2026-06-29 20:58 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/699525079679.shtml)
-- 2026-06-29 20:49 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/3611398794.shtml)
-- 2026-06-29 20:59 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/54051.shtml)
+- 2026-06-29 20:58 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/56129326559.shtml)
+- 2026-06-29 20:47 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/84703608.shtml)
+- 2026-06-29 20:52 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/24044.shtml)
+- 2026-06-29 20:42 - [扫黑风暴](http://www.blog.minike.top/Article/details/51880.shtml)
+- 2026-06-29 21:01 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/2079321850.shtml)
+- 2026-06-29 21:05 - [T1零封KC MSI](https://www.share.minike.top/Article/details/073296.shtml)
+- 2026-06-29 20:56 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/63194.shtml)
+- 2026-06-29 20:46 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/678962.shtml)
+- 2026-06-29 21:08 - [急先锋](https://www.share.minike.top/Article/details/0434849879.shtml)
+- 2026-06-29 20:58 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/368398.shtml)
+- 2026-06-29 21:09 - [大学专业未来如何洗牌](http://www.blog.kurohicncr.top/Article/details/9625846.shtml)
+- 2026-06-29 21:01 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/843433054.shtml)
+- 2026-06-29 20:53 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/17735.shtml)
+- 2026-06-29 20:48 - [斛珠夫人](https://www.share.minike.top/Article/details/158106571.shtml)
+- 2026-06-29 20:42 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/529311623.shtml)

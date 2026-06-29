@@ -1,56 +1,56 @@
-# 中船防务午后涨逾5% 机构指周期景气上行船厂盈利能力改善
+# “没什么大用但好玩” 这家杂货铺专卖平价商品
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-中船防务（00317）盘中涨超6%，截至发稿，股价上涨4.93%，现报16.38港元，成交额6774.94万港元。 5月9日，工信部发布的数据显示，2026年一季度，中国造船完工量、新接订单量、手持订单量三大核心指标全球领先，造船效率、全产业链能力、绿色转型均取得显著成效。截至3月底，中国造船手持订单量达32230万载重吨，同比增长43.6%，占全球市场份额高达69.8%。目前
+商品多为“美丽废物” 主打“止手痒止嘴痒止心痒” 平价商品“挠痒点”这家杂货铺的另类生意经 “一堆普普通通、没什么大用的东西，可你就是忍不住想买。”这是年轻买家对 “止痒商店” 的评价。这家名为 “止痒商店” 的杂货铺，总能让年轻人心甘情愿地掏腰包。 如今，各大购物中心里遍布着各类连锁杂货铺，但“止痒商店” 偏偏不走寻常路。不同于那些越来越相似的货架、越来越雷同的文创、越来越千
 
 ## 正文
 
-中船防务（00317）盘中涨超6%，截至发稿，股价上涨4.93%，现报16.38港元，成交额6774.94万港元。
+商品多为“美丽废物” 主打“止手痒止嘴痒止心痒” 平价商品“挠痒点”这家杂货铺的另类生意经 “一堆普普通通、没什么大用的东西，可你就是忍不住想买。
 
-5月9日，工信部发布的数据显示，2026年一季度，中国造船完工量、新接订单量、手持订单量三大核心指标全球领先，造船效率、全产业链能力、绿色转型均取得显著成效。
+”这是年轻买家对 “止痒商店” 的评价。
 
-截至3月底，中国造船手持订单量达32230万载重吨，同比增长43.6%，占全球市场份额高达69.8%。
+这家名为 “止痒商店” 的杂货铺，总能让年轻人心甘情愿地掏腰包。
 
-目前，部分大型船厂的生产订单已排期至三年以后。
+如今，各大购物中心里遍布着各类连锁杂货铺，但“止痒商店” 偏偏不走寻常路。
 
-值得注意的是，中船防务一季度归母净利润同比增长115%。
+不同于那些越来越相似的货架、越来越雷同的文创、越来越千篇一律的陈列，它拒绝复制，而是汇集起各式所谓能“止痒”的商品，营造出一种让人 “心痒” 的购物氛围，那些被称为 “互联网嘴替” 的小东西，总让人忍不住想带回家。
 
-业绩显著增长主要系主建船型建造周期进一步压降，产品毛利同比增加；联营企业经营业绩显著提升，公司确认投资收益同比大幅增加。
+“‘止痒商店’怎么止痒？
 
-浙商证券指出，周期景气上行，多船型下单需求上行，船厂盈利能力改善。
+”“究竟什么东西能止痒？
 
-责任编辑：卢昱君
+” 带着这份好奇，我们走进了“止痒商店”。
 
 ## 相关推荐
 
-- 2026-06-29 20:45 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 20:57 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 20:48 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 20:55 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 21:02 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 21:05 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 20:49 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 21:00 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 20:58 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 20:49 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 20:50 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 21:10 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 21:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 21:03 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 20:57 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 21:06 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 20:55 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 21:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 21:04 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 20:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:41 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/039181627633.shtml)
-- 2026-06-29 20:59 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/99093417338.shtml)
-- 2026-06-29 20:40 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/431158761613.shtml)
-- 2026-06-29 21:04 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/3565259.shtml)
-- 2026-06-29 20:49 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/54805.shtml)
-- 2026-06-29 20:46 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/911672845699.shtml)
-- 2026-06-29 20:48 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/788435911802.shtml)
-- 2026-06-29 20:55 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/70483.shtml)
-- 2026-06-29 20:50 - [女心理师](https://www.blog.minike.top/Article/details/2778349.shtml)
-- 2026-06-29 20:57 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/61967669789.shtml)
-- 2026-06-29 20:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/09919385610.shtml)
-- 2026-06-29 20:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/2865452830.shtml)
-- 2026-06-29 21:00 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/794727969813.shtml)
-- 2026-06-29 20:50 - [毒液2](https://www.share.minike.top/Article/details/42435674110.shtml)
-- 2026-06-29 20:43 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.kurohicncr.top/Article/details/919189.shtml)
+- 2026-06-29 21:03 - [一诺变着花样秀新驾照](https://www.share.kurohicncr.top/Article/details/5486375667.shtml)
+- 2026-06-29 20:47 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/3203548718.shtml)
+- 2026-06-29 21:08 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.kurohicncr.top/Article/details/813819044.shtml)
+- 2026-06-29 20:43 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/83661.shtml)
+- 2026-06-29 21:04 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/90399.shtml)
+- 2026-06-29 20:53 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/4202707432.shtml)
+- 2026-06-29 20:43 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/51082471.shtml)
+- 2026-06-29 21:09 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/91469.shtml)
+- 2026-06-29 20:48 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/47735477177.shtml)
+- 2026-06-29 20:49 - [韩国队主帅遭极端网友死亡威胁](http://www.share.kurohicncr.top/Article/details/1542775.shtml)
+- 2026-06-29 21:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/322749.shtml)
+- 2026-06-29 20:57 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/128714027887.shtml)
+- 2026-06-29 20:51 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/92271.shtml)
+- 2026-06-29 20:49 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/513121.shtml)
+- 2026-06-29 21:03 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/526644930.shtml)

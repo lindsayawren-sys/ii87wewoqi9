@@ -1,58 +1,57 @@
-# 联邦通信委员会专员致信迪士尼：当局正发起审查行动
+# 酒价内参6月15日价格发布：洋河梦之蓝M6+小幅下跌1元/瓶
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-核心摘要 联邦通信委员会（FCC）专员安娜・戈麦斯（Anna Gomez）指责特朗普政府对美国广播公司（ABC）发起 “持续且有组织的审查行动”。 联邦通信委员会专员安娜・戈麦斯在致迪士尼（ABC 母公司）首席执行官乔希・达马罗（Josh D’Amaro）的信中表示，ABC 已成为特朗普政府 “持续、有组织的审查与管控行动” 的受害者。 戈麦斯在周一发送给达马罗的信中写道，由共
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月15日整体显著回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9945元，较昨日大幅上涨39元，连续两日回升后创下23天以来最高。市场在前期低位震荡后明显修复，终端交投情绪回暖，今日除洋河梦之蓝M6+与水晶剑南春微跌外，其余品种均
 
 ## 正文
 
-核心摘要 联邦通信委员会（FCC）专员安娜・戈麦斯（Anna Gomez）指责特朗普政府对美国广播公司（ABC）发起 “持续且有组织的审查行动”。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月15日整体显著回升。
 
-联邦通信委员会专员安娜・戈麦斯在致迪士尼（ABC 母公司）首席执行官乔希・达马罗（Josh D’Amaro）的信中表示，ABC 已成为特朗普政府 “持续、有组织的审查与管控行动” 的受害者。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9945元，较昨日大幅上涨39元，连续两日回升后创下23天以来最高。
 
-戈麦斯在周一发送给达马罗的信中写道，由共和党人布伦丹・卡尔（Brendan Carr）担任主席的联邦通信委员会已被 “武器化”，旨在向 “自由独立的媒体及所有新闻机构施压，迫使其屈服”。
+市场在前期低位震荡后明显修复，终端交投情绪回暖，今日除洋河梦之蓝M6+与水晶剑南春微跌外，其余品种均上涨或持平，带动总价进一步向9950元一线逼近。
 
-《华尔街曰报》已查阅此信。
+今日11大白酒单品八涨两跌一平，赢家占据绝对优势。
 
-作为委员会中唯一的民主党专员，戈麦斯一直公开批评卡尔的多项举措，她指控这些举措旨在出于政治目的向广播公司施压。
+上涨方面，古井贡古20涨幅居前，上涨8元/瓶，价格升至进入六月以来次高位；青花郎上涨7元/瓶，重新登上700元关口，创进入六月以来最高；精品茅台上涨6元/瓶，且成交量明显放大；国窖1573与习酒君品均上涨5元/瓶，其中前者连续两日反弹，重返890元关口，后者连续两日修复，平近半个月最高价格纪录；五粮液普五八代与青花汾20均上涨4元/瓶；飞天茅台上涨2元/瓶，终结此前四连阴。
 
-这封信发出之际，卡尔领导的联邦通信委员会已对迪士尼及 ABC 发起多项调查，其中包括脱口秀节目《观点》（The View）是否应继续享有新闻节目豁免权。
+下跌方面，洋河梦之蓝M6+与水晶剑南春均小幅下跌1元/瓶。
 
-上周，ABC 向联邦通信委员会表示，对《观点》的调查是在 “压制特朗普政府不喜欢的政治言论”。
+五粮液1618价格环比保持不变，仍平近一月最低价纪录。
 
-戈麦斯告知达马罗，这些调查与事件，加上联邦通信委员会重启对 ABC 在 2024 年大选辩论（时任候选人特朗普与对手卡玛拉・哈里斯对决）中内容审核的投诉，“并非一系列偶然的监管行为”。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 20:46 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 21:00 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 21:05 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 20:42 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 20:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 20:50 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 20:49 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 21:00 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 20:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 20:36 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 21:02 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 20:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 21:09 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 21:09 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 21:11 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 21:04 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 21:00 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 21:06 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 20:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 20:45 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 20:47 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 20:50 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 20:48 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:39 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/17408936.shtml)
-- 2026-06-29 20:54 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/0760614.shtml)
-- 2026-06-29 21:05 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/725653.shtml)
-- 2026-06-29 20:43 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/42943036.shtml)
-- 2026-06-29 20:44 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/756821.shtml)
-- 2026-06-29 20:56 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/70579.shtml)
-- 2026-06-29 20:44 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/43342233.shtml)
-- 2026-06-29 21:03 - [小娘惹](https://www.blog.minike.top/Article/details/338282817222.shtml)
-- 2026-06-29 20:45 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/848779826.shtml)
-- 2026-06-29 20:39 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/0411357.shtml)
-- 2026-06-29 20:49 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/4066892.shtml)
-- 2026-06-29 20:40 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/837243.shtml)
-- 2026-06-29 20:40 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/2671604.shtml)
-- 2026-06-29 20:58 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/0341736.shtml)
-- 2026-06-29 20:57 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/4853625947.shtml)
+- 2026-06-29 21:10 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/7951003001.shtml)
+- 2026-06-29 21:03 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.kurohicncr.top/Article/details/50346175.shtml)
+- 2026-06-29 21:08 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/069309536.shtml)
+- 2026-06-29 21:11 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/64115474246.shtml)
+- 2026-06-29 21:10 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.kurohicncr.top/Article/details/02888304.shtml)
+- 2026-06-29 21:10 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/84757460493.shtml)
+- 2026-06-29 20:53 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/123350117.shtml)
+- 2026-06-29 20:59 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/7323130.shtml)
+- 2026-06-29 20:57 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/011898620.shtml)
+- 2026-06-29 20:58 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/7229173.shtml)
+- 2026-06-29 21:10 - [厨房装空调还是装冷烟机](https://www.share.kurohicncr.top/Article/details/579374435772.shtml)
+- 2026-06-29 20:56 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/305587863074.shtml)
+- 2026-06-29 20:51 - [扫黑风暴](http://www.share.minike.top/Article/details/7103118819.shtml)
+- 2026-06-29 20:58 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/3273503651.shtml)
+- 2026-06-29 20:54 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/837502528.shtml)

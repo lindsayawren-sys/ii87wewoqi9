@@ -1,49 +1,59 @@
-# 霍尔木兹海峡受阻世界喊“痛” 专家：负面影响可能长时间持续
+# （美加墨世界杯）五星巴西战平摩洛哥 圣保罗球迷仍充满信心
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 14:15 来源：中国新闻网 一场远在中东的战事，给全世界带来诸多挑战。近日，新加坡南洋理工大学拉惹勒南国际研究院学术副院长李明江在接受采访时指出，霍尔木兹海峡紧张局势已对新加坡经济体造成负面影响，包括能源价格、物价上涨，老百姓日常开支成本增加等等，甚至可能在较长的时间内，还会继续看到这些负面影响的存在。(观海潮工作室 记者 林士杰) 责任编辑
+中新社巴西圣保罗6月14日电 (记者 林春茵)当地时间6月13日晚间，部分巴西球迷聚集在巴西圣保罗足球博物馆，共同观战2026年美加墨世界杯巴西队首场比赛。 当天进行的世界杯C组首轮比赛中，五冠王巴西队最终与非洲劲旅摩洛哥队1比1战平，获得本届世界杯首个积分。对于渴望时隔24年再次捧起大力神杯的巴西球迷而言，美加墨世界杯之旅刚刚开始。 在最新一期国际足联排名榜上，曾5次夺冠的巴
 
 ## 正文
 
-发布时间：2026年05月11日 14:15 来源：中国新闻网 一场远在中东的战事，给全世界带来诸多挑战。
+中新社巴西圣保罗6月14日电 (记者 林春茵)当地时间6月13日晚间，部分巴西球迷聚集在巴西圣保罗足球博物馆，共同观战2026年美加墨世界杯巴西队首场比赛。
 
-近日，新加坡南洋理工大学拉惹勒南国际研究院学术副院长李明江在接受采访时指出，霍尔木兹海峡紧张局势已对新加坡经济体造成负面影响，包括能源价格、物价上涨，老百姓日常开支成本增加等等，甚至可能在较长的时间内，还会继续看到这些负面影响的存在。
+当天进行的世界杯C组首轮比赛中，五冠王巴西队最终与非洲劲旅摩洛哥队1比1战平，获得本届世界杯首个积分。
 
-(观海潮工作室 记者 林士杰) 责任编辑：【李季】
+对于渴望时隔24年再次捧起大力神杯的巴西球迷而言，美加墨世界杯之旅刚刚开始。
+
+在最新一期国际足联排名榜上，曾5次夺冠的巴西队位居第6位，摩洛哥队居于第7位。
+
+摩洛哥队是2022年卡塔尔世界杯的超级黑马，该队淘汰葡萄牙队打入四强。
+
+当晚，圣保罗足球博物馆彩旗飘飘，正在展出上百件球迷收藏的球服。
+
+室外投影屏前放置着足球造型的椅子，可供球迷躺着看球。
+
+家住圣保罗帕卡恩布社区的阿尔梅达一家五口早早入场。
 
 ## 相关推荐
 
-- 2026-06-29 20:54 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 20:53 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 20:54 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 20:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 20:36 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 20:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 20:59 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 21:05 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 20:40 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 20:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 21:03 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 20:56 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 20:51 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 21:00 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 20:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 21:08 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 21:01 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 20:44 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 20:54 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 21:00 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 21:08 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 20:58 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 20:54 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 21:10 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 21:04 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 21:07 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/644566723582.shtml)
-- 2026-06-29 20:48 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/289008977.shtml)
-- 2026-06-29 20:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/710845357.shtml)
-- 2026-06-29 20:38 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/16256917.shtml)
-- 2026-06-29 20:57 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/28757743708.shtml)
-- 2026-06-29 21:04 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/073037439.shtml)
-- 2026-06-29 20:42 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.kurohicncr.top/Article/details/935911978614.shtml)
-- 2026-06-29 20:49 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/6171777.shtml)
-- 2026-06-29 20:59 - [刘冰任河南南阳市代市长](http://www.blog.kurohicncr.top/Article/details/0763542.shtml)
-- 2026-06-29 20:39 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/124600.shtml)
-- 2026-06-29 20:39 - [扬名立万](https://www.blog.minike.top/Article/details/23782.shtml)
-- 2026-06-29 20:39 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/03892435606.shtml)
-- 2026-06-29 20:48 - [北京发布地质灾害气象风险蓝色预警](https://www.share.kurohicncr.top/Article/details/71497121010.shtml)
-- 2026-06-29 20:58 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/569071395.shtml)
-- 2026-06-29 20:54 - [温网](https://www.blog.kurohicncr.top/Article/details/61107895954.shtml)
+- 2026-06-29 20:45 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/871575134.shtml)
+- 2026-06-29 20:43 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/68295697583.shtml)
+- 2026-06-29 20:45 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/96527.shtml)
+- 2026-06-29 20:51 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/61695.shtml)
+- 2026-06-29 20:57 - [TOP Prada](https://www.share.minike.top/Article/details/60797696.shtml)
+- 2026-06-29 20:57 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/1641008.shtml)
+- 2026-06-29 21:00 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/754964269588.shtml)
+- 2026-06-29 21:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/1857811901.shtml)
+- 2026-06-29 21:04 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/64534869015.shtml)
+- 2026-06-29 21:01 - [网约车出事故平台拒赔称只是中介](http://www.blog.minike.top/Article/details/460601.shtml)
+- 2026-06-29 20:55 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/447559287130.shtml)
+- 2026-06-29 20:48 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/714040.shtml)
+- 2026-06-29 20:49 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/2623233465.shtml)
+- 2026-06-29 21:05 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/64893883.shtml)
+- 2026-06-29 20:51 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.kurohicncr.top/Article/details/778248608368.shtml)

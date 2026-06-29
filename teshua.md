@@ -1,61 +1,58 @@
-# “一带一路”医药法规研究中心在天津外国语大学揭牌
+# 两天内4名驻冲绳美军士兵涉嫌违法被逮捕
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-中新网天津5月10日电 (记者 周亚强)“一带一路”医药法规研究中心10日在天津外国语大学揭牌。该中心将搭建跨学科、跨领域平台，聚焦相关国家医药政策与法规标准研究，为推动构建人类卫生健康共同体提供智力支持。 当天，以“上合新程 津彩启航”为主题的天津外国语大学第九届国际文化节暨高招咨询会在马场道校区开幕。来自俄罗斯、哈萨克斯坦、吉尔吉斯斯坦、白俄罗斯、埃及等19个国家和地区的3
+中新网东京6月14日电 据日媒报道，继13日两名驻冲绳美军士兵因涉嫌酒驾被捕后，冲绳县警方14日又逮捕两名分别涉嫌故意伤人和私闯民宅的美军士兵。 据《冲绳时报》报道，14日凌晨，一名美军士兵在冲绳县那霸市一家餐饮店殴打一名男性店员，导致其头部受伤；另一名士兵14日上午无正当理由就闯入冲绳县冲绳市一栋公寓。两名美军士兵均被警方当场逮捕。 据日本共同社报道，日本冲绳县警方13日以涉
 
 ## 正文
 
-中新网天津5月10日电 (记者 周亚强)“一带一路”医药法规研究中心10日在天津外国语大学揭牌。
+中新网东京6月14日电 据日媒报道，继13日两名驻冲绳美军士兵因涉嫌酒驾被捕后，冲绳县警方14日又逮捕两名分别涉嫌故意伤人和私闯民宅的美军士兵。
 
-该中心将搭建跨学科、跨领域平台，聚焦相关国家医药政策与法规标准研究，为推动构建人类卫生健康共同体提供智力支持。
+据《冲绳时报》报道，14日凌晨，一名美军士兵在冲绳县那霸市一家餐饮店殴打一名男性店员，导致其头部受伤；另一名士兵14日上午无正当理由就闯入冲绳县冲绳市一栋公寓。
 
-当天，以“上合新程 津彩启航”为主题的天津外国语大学第九届国际文化节暨高招咨询会在马场道校区开幕。
+两名美军士兵均被警方当场逮捕。
 
-来自俄罗斯、哈萨克斯坦、吉尔吉斯斯坦、白俄罗斯、埃及等19个国家和地区的300余名外籍师生，与各界代表、市民及中小学生共同参与。
+据日本共同社报道，日本冲绳县警方13日以涉嫌酒后驾驶为由，逮捕了两名驻冲绳美军士兵。
 
-中国教育国际交流协会会长刘利民在开幕致辞中表示，希望中外青年积极互动，既做本民族文化的传承者、弘扬者，也做文明交流的推动者，共同搭建语言互通、理解互信、文明共建之桥。
+当地警方当天凌晨在巡逻中发现两起涉嫌酒后驾驶的案件。
 
-天津外国语大学党委书记、校长李迎迎介绍，学校已与50多个国家的400余所高校和机构建立长期合作，将持续深化国际中文教育和多元文化交流。
+经呼气酒精检测，两名美军士兵体内酒精含量均超法定标准，被当场逮捕。
 
-除研究中心揭牌外，《天津再出发》中英俄多语种出版项目同步启动；天外“皂角”系列文创正式发布。
+但两人均否认相关指控。
 
-中外学生还表演了舞狮、大提琴五重奏、多国歌舞及太极养生杖等节目。
+长期以来，驻日美军犯罪事件频发，其中不乏杀人、强奸、抢劫等恶性案件。
 
 ## 相关推荐
 
-- 2026-06-29 20:45 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 20:56 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 20:41 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 20:43 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 20:53 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 20:55 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 20:56 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 21:02 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 20:59 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 20:37 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 20:39 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 21:03 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 20:57 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 20:40 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 20:55 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 20:57 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 20:44 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 21:03 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 20:46 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 21:03 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 20:58 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 21:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 21:03 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 21:07 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 20:42 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 20:48 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 20:42 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:04 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/89422967247.shtml)
-- 2026-06-29 20:48 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/3954943155.shtml)
-- 2026-06-29 20:46 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/5160385853.shtml)
-- 2026-06-29 20:54 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/7263053695.shtml)
-- 2026-06-29 20:54 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/50506945304.shtml)
-- 2026-06-29 21:05 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.kurohicncr.top/Article/details/74114.shtml)
-- 2026-06-29 20:57 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/1397508.shtml)
-- 2026-06-29 20:39 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/38970034967.shtml)
-- 2026-06-29 20:42 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/101774001350.shtml)
-- 2026-06-29 20:44 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/15124714986.shtml)
-- 2026-06-29 20:44 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/859129098.shtml)
-- 2026-06-29 20:44 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/767799.shtml)
-- 2026-06-29 21:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/2612784191.shtml)
-- 2026-06-29 21:02 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/169602.shtml)
-- 2026-06-29 20:37 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/90850.shtml)
+- 2026-06-29 20:42 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/0639056.shtml)
+- 2026-06-29 20:51 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.minike.top/Article/details/13897.shtml)
+- 2026-06-29 20:47 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/265088614.shtml)
+- 2026-06-29 20:47 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/18838457.shtml)
+- 2026-06-29 21:07 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/372035111.shtml)
+- 2026-06-29 21:07 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/33491294.shtml)
+- 2026-06-29 21:05 - [时光音乐会](http://www.blog.minike.top/Article/details/855039464.shtml)
+- 2026-06-29 20:59 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/515394993784.shtml)
+- 2026-06-29 20:56 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/376058432.shtml)
+- 2026-06-29 21:07 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/73981639604.shtml)
+- 2026-06-29 20:50 - [极限挑战第一季](http://www.share.minike.top/Article/details/72842821451.shtml)
+- 2026-06-29 21:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/54197581558.shtml)
+- 2026-06-29 20:46 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/64109139.shtml)
+- 2026-06-29 20:45 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/7073546408.shtml)
+- 2026-06-29 20:51 - [东方风云榜直播](http://www.share.minike.top/Article/details/73676369.shtml)

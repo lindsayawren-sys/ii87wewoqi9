@@ -1,58 +1,61 @@
-# 酒店“逢假就涨” 多重约束缘何管不住“任性定价”？
+# 在卢作孚实业报国的原点，“侨”见人文之城北碚
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-酒店“逢假就涨”，平时183元一晚的房间涨到826元 多重约束缘何管不住“任性定价”？ “平时183元一晚的酒店，‘五一’假期最高涨到了826元，提前一个月预订都得花510元。”“五一”假期前，为了避开酒店涨价高峰，游客张晓提前近一个月预订了山东青岛知名景点附近的一家酒店，即便如此，预订价也比非节假日的平日价高出近2倍，而入住当天的实时价格，更是较平时翻了3倍多。 今年“五一”
+中新网重庆6月14日电 题：在卢作孚实业报国的原点，“侨”见人文之城北碚 作者 梁钦卿 6月12日至13日，“2026海外华媒侨领川渝行——聚焦成渝地区双城经济圈建设”联合参访活动走进重庆市北碚区。20余家海外主流华文媒体代表和10余位知名侨领走访缙云山、卢作孚纪念馆、西部(重庆)科学城北碚园区等地，在山水人文间感受北碚生态之美、文化之韵与创新活力。 北碚是重庆中心城区的重要组
 
 ## 正文
 
-酒店“逢假就涨”，平时183元一晚的房间涨到826元 多重约束缘何管不住“任性定价”？
+中新网重庆6月14日电 题：在卢作孚实业报国的原点，“侨”见人文之城北碚 作者 梁钦卿 6月12日至13日，“2026海外华媒侨领川渝行——聚焦成渝地区双城经济圈建设”联合参访活动走进重庆市北碚区。
 
-“平时183元一晚的酒店，‘五一’假期最高涨到了826元，提前一个月预订都得花510元。
+20余家海外主流华文媒体代表和10余位知名侨领走访缙云山、卢作孚纪念馆、西部(重庆)科学城北碚园区等地，在山水人文间感受北碚生态之美、文化之韵与创新活力。
 
-”“五一”假期前，为了避开酒店涨价高峰，游客张晓提前近一个月预订了山东青岛知名景点附近的一家酒店，即便如此，预订价也比非节假日的平日价高出近2倍，而入住当天的实时价格，更是较平时翻了3倍多。
+北碚是重庆中心城区的重要组成部分，北接四川省广安市，南联两江新区与西部科学城重庆高新区两大城市中央活力区，是辐射川东北地区的枢纽和桥梁，肩负着“重庆中心城区北部门户”的重要使命。
 
-今年“五一”假期，国内出行热度持续攀升。
+回望北碚历史，这片山水沃土是爱国实业家卢作孚先生躬身乡建、实业报国的初心原点。
 
-数据显示，“五一”假期，重点平台全国跨省游客数量规模同比增长7.6%，带动相应酒店住宿消费同比增长18%，连住2个及以上城市酒店的订单量同比增加121%。
+20世纪40年代，卢作孚两度远赴美国与加拿大，主动联络北美华人侨商社团、旅美华人工商界领袖，依托海外侨胞深耕当地政商圈层的人脉资源，定制建造大中型客货轮。
 
-出行热情高涨的同时，也有不少消费者反映假期酒店价格涨幅“太过离谱”。
+新中国成立后，这些轮船悉数投入长江航运、物资运输之中。
 
-“我预订时对比了周边同一档次的酒店，价格基本都在400元～800元之间。
+北碚早期的对外开放，就是一场侨心聚力、侨力兴邦的生动实践。
 
-”张晓告诉记者，自己每次假期出行，总会遇到酒店价格“逢假必涨”的情况。
+卢作孚与海外侨胞守望相助、家国同心的故事，是北碚跨越百年不变的侨脉底色。
 
 ## 相关推荐
 
-- 2026-06-29 20:47 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 20:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 20:38 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 20:48 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 20:44 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 20:59 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 20:41 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 20:52 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 20:57 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 20:55 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 20:59 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 20:37 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 21:00 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 20:42 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 21:07 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 21:04 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 21:04 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 20:53 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 21:09 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 20:51 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 21:02 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 21:05 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 20:54 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 20:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 20:47 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 20:52 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 21:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:39 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/135047736559.shtml)
-- 2026-06-29 20:58 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/006622.shtml)
-- 2026-06-29 20:51 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/1508741.shtml)
-- 2026-06-29 21:04 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.minike.top/Article/details/424482496.shtml)
-- 2026-06-29 20:52 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/4042640.shtml)
-- 2026-06-29 20:39 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/00232.shtml)
-- 2026-06-29 21:00 - [郑钦文谈再战西尼亚科娃](https://www.share.minike.top/Article/details/2429119.shtml)
-- 2026-06-29 20:44 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/8206141.shtml)
-- 2026-06-29 20:43 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.minike.top/Article/details/786377559669.shtml)
-- 2026-06-29 20:53 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/45649334515.shtml)
-- 2026-06-29 20:51 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/458679.shtml)
-- 2026-06-29 20:43 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.minike.top/Article/details/993078694.shtml)
-- 2026-06-29 20:59 - [金刚川](http://www.share.minike.top/Article/details/72106.shtml)
-- 2026-06-29 21:01 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/7556518425.shtml)
-- 2026-06-29 20:43 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.kurohicncr.top/Article/details/818909712.shtml)
+- 2026-06-29 20:44 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/575905285.shtml)
+- 2026-06-29 21:04 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/74492.shtml)
+- 2026-06-29 21:09 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/38178.shtml)
+- 2026-06-29 20:50 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/45368.shtml)
+- 2026-06-29 20:55 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/72278208.shtml)
+- 2026-06-29 20:59 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/632231147.shtml)
+- 2026-06-29 21:00 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/96792431.shtml)
+- 2026-06-29 20:42 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/029509113.shtml)
+- 2026-06-29 20:46 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/25732914.shtml)
+- 2026-06-29 21:08 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/00256990.shtml)
+- 2026-06-29 21:01 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/780533.shtml)
+- 2026-06-29 20:42 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/952571181.shtml)
+- 2026-06-29 21:05 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.kurohicncr.top/Article/details/7377562109.shtml)
+- 2026-06-29 20:49 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/0084547.shtml)
+- 2026-06-29 20:46 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/36367.shtml)

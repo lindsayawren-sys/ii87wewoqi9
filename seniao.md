@@ -1,58 +1,56 @@
-# 监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？
+# 塔吉克斯坦记者代表团抵达新疆开展交流活动
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-来源：投资者网-思维财经 近年来，以共享单车起家的哈啰（Hello Inc．）在下沉市场狂飙突进。然而，这家官网及公司名称中频频挂着“普惠”二字的企业，近年来却因在多地违规超量投放单车而频繁遭遇监管部门的处罚与约谈。 比线下主业更引人瞩目的，或是其隐藏在哈啰App深处的金融信贷业务“哈啰臻有钱”。近期，包括《重庆晨报》在内，多家媒体对其进行了跟踪报道。报道称据消费者反馈，哈啰臻
+发布时间：2026年06月14日 12:53 来源：中国新闻网 6月12日，塔吉克斯坦记者代表团一行9人抵达新疆乌鲁木齐市开展实地参访交流。本次代表团涵盖塔吉克斯坦“亚洲快讯”、“阿维斯塔”通讯社、CMT电视台等多家主流媒体，包含通讯社信息部主任、资深记者等骨干采编人员。代表团通过走访、体验等活动，切身感受新疆经济发展活力、深厚文化底蕴、民族团结风貌与社会稳定成果。 12日上午
 
 ## 正文
 
-来源：投资者网-思维财经 近年来，以共享单车起家的哈啰（Hello Inc．）在下沉市场狂飙突进。
+发布时间：2026年06月14日 12:53 来源：中国新闻网 6月12日，塔吉克斯坦记者代表团一行9人抵达新疆乌鲁木齐市开展实地参访交流。
 
-然而，这家官网及公司名称中频频挂着“普惠”二字的企业，近年来却因在多地违规超量投放单车而频繁遭遇监管部门的处罚与约谈。
+本次代表团涵盖塔吉克斯坦“亚洲快讯”、“阿维斯塔”通讯社、CMT电视台等多家主流媒体，包含通讯社信息部主任、资深记者等骨干采编人员。
 
-比线下主业更引人瞩目的，或是其隐藏在哈啰App深处的金融信贷业务“哈啰臻有钱”。
+代表团通过走访、体验等活动，切身感受新疆经济发展活力、深厚文化底蕴、民族团结风貌与社会稳定成果。
 
-近期，包括《重庆晨报》在内，多家媒体对其进行了跟踪报道。
+12日上午，代表团走进新疆师范大学温泉校区，体验中华传统文化，与外教、留学生深入座谈交流。
 
-报道称据消费者反馈，哈啰臻有钱存在利用费率障眼法收取直逼36%红线的高息，并伴随有“爆通讯录”等外包暴力催收现象。
+随后，代表团先后走访新奇康药业、铁建重工、新疆软件园等企业，实地观摩新疆生物医药、高端装备制造、数字科创产业的发展成果，了解当地产业创新与转型升级态势。
 
-随着2025年、2026年多项助贷新规及《金融产品网络营销管理办法》的相继落地，哈啰臻有钱长期依赖的“流量强行转化”与“息费拆分”模式正面临穿透式监管的严厉审视。
+据悉，此次代表团还将走进新疆维吾尔自治区成立70周年主题成就展等文化展区，以及吐鲁番新城西门村、交河故城等乡村与文旅点位，让记者们能从多角度读懂真实、立体的新疆。
 
-在合规压力与市场舆情的双重夹击下，哈啰臻有钱此前这种游走在灰色边缘的金融业务，或正被迫迎来一场伤筋动骨的全面重构。
-
-01 频繁违规与主业承压：哈啰业务版图中的“隐秘角落” 官网显示，作为国内头部的出行平台，哈啰目前的业务构成主要分为三大板块，以哈啰单车、哈啰助力车为代表的共享出行服务，以顺风车、打车为主的网约车服务，以及涵盖租电动车、小哈换电等在内的本地生活服务。
+(左丹丹) 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 20:54 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 20:48 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 20:57 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 20:40 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 20:57 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 20:39 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 20:57 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 20:52 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 20:49 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 20:44 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 20:48 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 21:05 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 20:45 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 21:09 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 21:01 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 20:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 20:58 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 20:44 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 20:56 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 20:48 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 21:10 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 21:01 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 21:08 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 21:01 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:56 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/2778428.shtml)
-- 2026-06-29 20:52 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/88928.shtml)
-- 2026-06-29 20:45 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/67060468.shtml)
-- 2026-06-29 20:59 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/91419.shtml)
-- 2026-06-29 20:55 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/888839658.shtml)
-- 2026-06-29 20:52 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/66347.shtml)
-- 2026-06-29 21:01 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/66812.shtml)
-- 2026-06-29 21:02 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/26629597.shtml)
-- 2026-06-29 20:37 - [TTG KSG](https://www.share.minike.top/Article/details/06328768.shtml)
-- 2026-06-29 21:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/37142147.shtml)
-- 2026-06-29 20:48 - [葛军透露高考出题思路](https://www.share.minike.top/Article/details/08856.shtml)
-- 2026-06-29 20:46 - [金牌调解](https://www.share.kurohicncr.top/Article/details/08305551.shtml)
-- 2026-06-29 21:01 - [扬名立万](http://www.blog.minike.top/Article/details/57424170757.shtml)
-- 2026-06-29 20:49 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/892317880141.shtml)
-- 2026-06-29 20:56 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/75947188259.shtml)
+- 2026-06-29 21:09 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/328455039534.shtml)
+- 2026-06-29 20:58 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/6981311056.shtml)
+- 2026-06-29 20:49 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/875438298059.shtml)
+- 2026-06-29 21:01 - [小娘惹](https://www.share.kurohicncr.top/Article/details/063812.shtml)
+- 2026-06-29 20:57 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/176812816445.shtml)
+- 2026-06-29 20:59 - [锐评T1零封KC](http://www.share.minike.top/Article/details/096869467.shtml)
+- 2026-06-29 21:11 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/013225647504.shtml)
+- 2026-06-29 21:00 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/4005440626.shtml)
+- 2026-06-29 21:11 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/8750918928.shtml)
+- 2026-06-29 20:48 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/4266001.shtml)
+- 2026-06-29 20:58 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/335073726.shtml)
+- 2026-06-29 20:42 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/11855.shtml)
+- 2026-06-29 20:48 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/19058231399.shtml)
+- 2026-06-29 21:07 - [巴西10号球衣是天才传承史](https://www.blog.kurohicncr.top/Article/details/15318057.shtml)
+- 2026-06-29 20:48 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/6843609169.shtml)

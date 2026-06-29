@@ -1,57 +1,61 @@
-# A股融资余额创历史新高，这些行业和个股被显著加仓
+# 恒大汽车，劝退许家印旧将
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！上周A股市场走强，Wind数据显示，截至5月8日，A股两融余额报28025.01亿元，其中融资余额报27823.22亿元，均创历史新高。上周A股市场融资余额增加867.43亿元。 具体来看，上周的3个交易日融资余额均出现增加，其中，5月6日A股融资余额增加411.65亿元，5月7日增加296亿元，5月8日增
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：地产K线 文/乐居财经 曾树佳 恒大汽车的肖恩，被撤了。 近日，恒大汽车宣布，因业务调整，肖恩已按公司大股东的建议，辞任执行董事、董事会董事长。 两年前，作为恒大跨界的干将，刘永灼、秦立永两人，就已卸任了恒大汽车执行董事。 此次肖恩撤出后，在恒大汽车的董事会成员中，已没有了许家印的旧臣。 恒大汽车的当
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-上周A股市场走强，Wind数据显示，截至5月8日，A股两融余额报28025.01亿元，其中融资余额报27823.22亿元，均创历史新高。
+来源：地产K线 文/乐居财经 曾树佳 恒大汽车的肖恩，被撤了。
 
-上周A股市场融资余额增加867.43亿元。
+近日，恒大汽车宣布，因业务调整，肖恩已按公司大股东的建议，辞任执行董事、董事会董事长。
 
-具体来看，上周的3个交易日融资余额均出现增加，其中，5月6日A股融资余额增加411.65亿元，5月7日增加296亿元，5月8日增加159.78亿元。
+两年前，作为恒大跨界的干将，刘永灼、秦立永两人，就已卸任了恒大汽车执行董事。
 
-从行业情况来看，上周申万一级31个行业中有30个行业融资余额增加，电子、通信、机械设备行业融资净买入金额居前，分别为284.99亿元、73.48亿元、66.13亿元，科技板块融资余额大幅增加。
+此次肖恩撤出后，在恒大汽车的董事会成员中，已没有了许家印的旧臣。
 
-仅有纺织服饰行业出现融资净卖出，金额为0.31亿元。
+恒大汽车的当务之急，是在今年9月末实现复牌，保住上市主体。
 
-上周行业融资余额变动情况 从个股情况来看，上周融资客对257只股票加仓金额超1亿元，加仓居前的10只股票分别为中国平安、东山精密、澜起科技、海光信息、寒武纪、新易盛、立讯精密、大族激光、光迅科技、蓝色光标，分别净买入27.39亿元、24.04亿元、22.63亿元、20.96亿元、20.30亿元、18.38亿元、13.84亿元、12.01亿元、9.58亿元、9.20亿元，多数为科技股。
+但以眼下的情况看，在仅剩三个多月的时间内，它要完成审计、补发财报，并找到“白武士”证明业务可持续性，难度较大。
 
-从市场表现看，上周融资客加仓居前十的股票全线上涨，科技股涨幅更大，涨幅最大的光迅科技涨逾25%。
+老将退场 肖恩在卸任恒大汽车董事长的同时，他也不再是提名委员会主席、薪酬委员会及企业管制委员会的成员。
 
 ## 相关推荐
 
-- 2026-06-29 20:37 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 21:01 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 20:53 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 20:59 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 20:53 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 20:42 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 20:38 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 20:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 20:50 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 21:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 20:37 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 20:43 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 21:00 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 21:00 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 21:10 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 20:44 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 20:58 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 20:47 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 20:59 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 20:52 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 20:57 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 20:54 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 21:01 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 21:00 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 20:44 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 20:58 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:53 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/772259410078.shtml)
-- 2026-06-29 20:45 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/4121449226.shtml)
-- 2026-06-29 20:37 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/36969320.shtml)
-- 2026-06-29 20:48 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/697994059.shtml)
-- 2026-06-29 21:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/074973.shtml)
-- 2026-06-29 20:46 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/698232.shtml)
-- 2026-06-29 20:36 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/09529783.shtml)
-- 2026-06-29 20:40 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/507662562.shtml)
-- 2026-06-29 20:51 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/714926541850.shtml)
-- 2026-06-29 20:58 - [LPL第三赛段赛制公布](https://www.share.kurohicncr.top/Article/details/7880983255.shtml)
-- 2026-06-29 20:50 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/29050.shtml)
-- 2026-06-29 20:44 - [TTG KSG](http://www.share.kurohicncr.top/Article/details/027728383.shtml)
-- 2026-06-29 21:03 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/358417560.shtml)
-- 2026-06-29 20:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/9836078858.shtml)
-- 2026-06-29 20:39 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/30514823023.shtml)
+- 2026-06-29 21:07 - [福建海警位金门附近海域常态执法巡查](https://www.blog.minike.top/Article/details/2022485871.shtml)
+- 2026-06-29 20:42 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/599590.shtml)
+- 2026-06-29 20:59 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/49732516.shtml)
+- 2026-06-29 20:56 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/21135318709.shtml)
+- 2026-06-29 20:58 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/2315374197.shtml)
+- 2026-06-29 20:52 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/1059654648.shtml)
+- 2026-06-29 20:51 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/25594716.shtml)
+- 2026-06-29 20:58 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/6313461.shtml)
+- 2026-06-29 20:56 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/602485607.shtml)
+- 2026-06-29 20:54 - [炽夏](https://www.blog.kurohicncr.top/Article/details/13101489275.shtml)
+- 2026-06-29 21:04 - [AG 宫斗](https://www.share.minike.top/Article/details/27734685.shtml)
+- 2026-06-29 21:00 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/88354.shtml)
+- 2026-06-29 20:44 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/656531114209.shtml)
+- 2026-06-29 20:58 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/70171964889.shtml)
+- 2026-06-29 21:07 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/6960522250.shtml)

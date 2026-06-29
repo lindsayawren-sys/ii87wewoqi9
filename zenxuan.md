@@ -1,56 +1,57 @@
-# 美国制裁三家中国公司 外交部回应
+# 联邦贸易委员会重拳整治汽车经销商“隐形收费”，乱象依旧屡禁不止
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-（原标题：美国制裁三家中国公司，外交部回应） 人民财讯5月11日电，5月11日，外交部发言人郭嘉昆主持例行记者会。法新社记者提问，美国制裁了三家中国公司，指控其协助伊朗。考虑到美国总统特朗普将于本周访华，请问中方对此有何评论？郭嘉昆表示，中方坚决反对没有国际法依据、未经联合国安理会授权的非法单边制裁。我们一贯要求中国企业依法依规开展业务，将坚定维护本国企业的正当权益。关于伊朗局
+购车消费者动辄被收取数千美元不透明杂费，汽车行业仍在变通规避监管 内容速览 美国联邦贸易委员会（FTC）即将对违规汽车经销商开展执法整治，打击线上虚假折扣宣传与隐形收费行为。 美国联邦贸易委员会此前向 200 余家汽车经销商下发警示通知，要求停止在线上发布带有虚假折扣、暗藏数千美元隐形杂费的车辆报价广告。 但并非所有经销商都落实了监管要求。 多家协助消费者和经销商议价的服务机构
 
 ## 正文
 
-（原标题：美国制裁三家中国公司，外交部回应） 人民财讯5月11日电，5月11日，外交部发言人郭嘉昆主持例行记者会。
+购车消费者动辄被收取数千美元不透明杂费，汽车行业仍在变通规避监管 内容速览 美国联邦贸易委员会（FTC）即将对违规汽车经销商开展执法整治，打击线上虚假折扣宣传与隐形收费行为。
 
-法新社记者提问，美国制裁了三家中国公司，指控其协助伊朗。
+美国联邦贸易委员会此前向 200 余家汽车经销商下发警示通知，要求停止在线上发布带有虚假折扣、暗藏数千美元隐形杂费的车辆报价广告。
 
-考虑到美国总统特朗普将于本周访华，请问中方对此有何评论？
+但并非所有经销商都落实了监管要求。
 
-郭嘉昆表示，中方坚决反对没有国际法依据、未经联合国安理会授权的非法单边制裁。
+多家协助消费者和经销商议价的服务机构反馈，行业内定价不透明的现象依旧普遍。
 
-我们一贯要求中国企业依法依规开展业务，将坚定维护本国企业的正当权益。
+总部位于芝加哥的购车辅助平台 CoPilot 统计了去年 12 月至今年 4 月协助完成的 500 笔汽车交易，其中 59% 的订单包含线上标价未标注的可选择性杂费。
 
-关于伊朗局势，郭嘉昆指出，中方已经多次表明了严正立场，当务之急是全力避免战端重启，而不是借战事恶意关联抹黑他国。
+CoPilot 联合创始人兼产品主管米凯拉・贝克表示：“消费者线上看到的标价，大多并不是最终能把车开回家的实际总价。
 
-责任编辑：刘万里 SF014
+” 该调研主要针对二手车市场，但贝克称，即便在联邦贸易委员会下发警示后，同款套路在新车销售中也十分泛滥。
+
+另一购车服务平台 CarEdge 分析了超一万家新车、二手车经销商的报价单，发现近四成商家线上标价与分项列明的实际成交价存在明显价差。
 
 ## 相关推荐
 
-- 2026-06-29 20:57 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 21:00 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 20:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 21:00 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 20:52 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 20:50 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 20:39 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 20:53 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 21:05 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 20:58 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 21:01 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 20:57 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 21:00 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 20:55 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 20:54 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 20:59 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 20:58 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 20:50 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 20:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 21:03 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 20:47 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 21:04 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 21:06 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:47 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/938277700.shtml)
-- 2026-06-29 20:59 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/04309532257.shtml)
-- 2026-06-29 20:55 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/93744192.shtml)
-- 2026-06-29 20:52 - [济南航空航天全面起势](https://www.share.kurohicncr.top/Article/details/829541.shtml)
-- 2026-06-29 21:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/02753.shtml)
-- 2026-06-29 20:47 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/18884.shtml)
-- 2026-06-29 20:53 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/46077748.shtml)
-- 2026-06-29 21:04 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/24844708.shtml)
-- 2026-06-29 20:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/272180240022.shtml)
-- 2026-06-29 20:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/558875383960.shtml)
-- 2026-06-29 20:49 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/8981269.shtml)
-- 2026-06-29 20:59 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/57461959.shtml)
-- 2026-06-29 20:55 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/0349364512.shtml)
-- 2026-06-29 20:56 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/0431968645.shtml)
-- 2026-06-29 20:49 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/596371935.shtml)
+- 2026-06-29 20:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/974788205757.shtml)
+- 2026-06-29 21:00 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/95400.shtml)
+- 2026-06-29 21:04 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/916549466.shtml)
+- 2026-06-29 21:09 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/75341117425.shtml)
+- 2026-06-29 21:02 - [港股爆发 美团百度阿里等集体大涨](http://www.share.minike.top/Article/details/07393903529.shtml)
+- 2026-06-29 21:00 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/80964389.shtml)
+- 2026-06-29 21:00 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/9819826109.shtml)
+- 2026-06-29 20:43 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/740298996979.shtml)
+- 2026-06-29 20:42 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/70850.shtml)
+- 2026-06-29 20:58 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/96844.shtml)
+- 2026-06-29 20:50 - [我和我的家乡](https://www.blog.minike.top/Article/details/67574109635.shtml)
+- 2026-06-29 21:01 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/27112376.shtml)
+- 2026-06-29 21:08 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.minike.top/Article/details/4297553.shtml)
+- 2026-06-29 20:52 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/93365537754.shtml)
+- 2026-06-29 20:45 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/892182.shtml)

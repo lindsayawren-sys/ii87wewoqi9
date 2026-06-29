@@ -1,56 +1,49 @@
-# 中国新增高端聚苯乙烯规模化产能 为光学材料供应链提供新选择
+# 习近平党建思想鲜明提出“十四个坚持”
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-中新社广西钦州5月10日电 (张广权)5月10日，中国石油天然气股份有限公司广西石化分公司完全自主研发的光学级聚苯乙烯产品GPPS-550N实现量产。此举意味着全球光学材料供应链上，新增一个具备稳定量产能力、自主工艺和柔性生产特点的中国供应来源。高品质聚苯乙烯GPPS-550N产品具有高透光率、高热稳定性等突出性能，主要面向LED显示器、导光板、高端包装及家电等领域，技术指标达
+全国党建工作座谈会15日在京召开。 会议认为，党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一系列新理念新思想新战略，形成习近平党建思想。习近平党建思想是习近平新时代中国特色社会主义思想的重要组成部分，为发展马克思主义建党学说作出重大原创性贡献，对强党强国具有重大现实意义和长远指导意义。
 
 ## 正文
 
-中新社广西钦州5月10日电 (张广权)5月10日，中国石油天然气股份有限公司广西石化分公司完全自主研发的光学级聚苯乙烯产品GPPS-550N实现量产。
+全国党建工作座谈会15日在京召开。
 
-此举意味着全球光学材料供应链上，新增一个具备稳定量产能力、自主工艺和柔性生产特点的中国供应来源。
+会议认为，党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一系列新理念新思想新战略，形成习近平党建思想。
 
-高品质聚苯乙烯GPPS-550N产品具有高透光率、高热稳定性等突出性能，主要面向LED显示器、导光板、高端包装及家电等领域，技术指标达到国际同类产品先进水平。
+习近平党建思想是习近平新时代中国特色社会主义思想的重要组成部分，为发展马克思主义建党学说作出重大原创性贡献，对强党强国具有重大现实意义和长远指导意义。
 
-此产品产自该公司的30万吨/年聚苯乙烯装置，可实现通用级与高抗冲级多牌号柔性切换。
-
-本次光学级聚苯乙烯产品量产，标志着广西石化在高品质化工新材料领域具备了从自主研发到规模化、定制化生产的完整能力。
-
-随着产能逐步释放，这家中国企业将进入光学级聚苯乙烯的常态化供应阶段。
-
-该公司30万吨/年聚苯乙烯装置负责人许佳表示，在全球光电显示产业对高透光、高稳定材料需求持续上升的背景下，新增这一规模化产能，为国际采购方提供了更多元的供应选择，也有助于提升高端聚苯乙烯材料的全球供应链韧性。
-
-业内人士分析，随着光电显示产业对材料性能要求持续提升，具备稳定量产能力的高端聚苯乙烯供应商在全球市场中的战略价值将日益凸显。
+会议指出，习近平党建思想是加强新时代党的建设的根本遵循。
 
 ## 相关推荐
 
-- 2026-06-29 20:42 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 20:39 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 20:59 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 20:42 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 20:55 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 20:49 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 20:40 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 21:00 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 20:50 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 20:50 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 20:54 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 20:58 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 20:44 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 20:42 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 21:07 - [大学专业未来如何洗牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 20:49 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 20:42 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 20:43 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 20:50 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 20:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 20:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:40 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/7032441178.shtml)
-- 2026-06-29 20:53 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.kurohicncr.top/Article/details/08272.shtml)
-- 2026-06-29 21:00 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/84500705647.shtml)
-- 2026-06-29 21:04 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/061381564.shtml)
-- 2026-06-29 20:44 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/5526467846.shtml)
-- 2026-06-29 21:00 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/88531176.shtml)
-- 2026-06-29 20:36 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/6026555.shtml)
-- 2026-06-29 20:55 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/116020291485.shtml)
-- 2026-06-29 20:51 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/04570.shtml)
-- 2026-06-29 20:46 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/78062.shtml)
-- 2026-06-29 20:52 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/791037032.shtml)
-- 2026-06-29 20:55 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/4874912254.shtml)
-- 2026-06-29 20:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/7047627733.shtml)
-- 2026-06-29 21:01 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.kurohicncr.top/Article/details/987525592649.shtml)
-- 2026-06-29 20:37 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/360749842.shtml)
+- 2026-06-29 20:52 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/49420644932.shtml)
+- 2026-06-29 21:00 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/5733338364.shtml)
+- 2026-06-29 21:03 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/942433599976.shtml)
+- 2026-06-29 20:57 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/95391774949.shtml)
+- 2026-06-29 20:42 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/229160.shtml)
+- 2026-06-29 20:59 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/2067456004.shtml)
+- 2026-06-29 21:04 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/2998553968.shtml)
+- 2026-06-29 20:52 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/3577296.shtml)
+- 2026-06-29 20:56 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/84149769.shtml)
+- 2026-06-29 21:06 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/381320.shtml)
+- 2026-06-29 20:51 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/239556950051.shtml)
+- 2026-06-29 20:42 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/3477795.shtml)
+- 2026-06-29 21:07 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/21432065.shtml)
+- 2026-06-29 21:07 - [明星大侦探第四季](http://www.share.minike.top/Article/details/233427.shtml)
+- 2026-06-29 20:46 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/559975394.shtml)

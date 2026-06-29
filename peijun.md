@@ -1,56 +1,60 @@
-# 华泰期货：中美元首会晤在即 贵金属价格反弹
+# 巴基斯坦、黎巴嫩、沙特回应美伊达成协议
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 师橙 市场分析 地缘方面，外交部发言人宣布：应国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。习近平主席将同特朗普总统就事关中美关系以及世界和平与发展的重大问题深入交换意见。美伊方面，谈判陷入僵局。美国总统特朗普表示，目前美国同伊朗的停火协议仍然
+【环球网报道 记者 姜蔼玲】据法新社等外媒15日报道，巴基斯坦、黎巴嫩和沙特阿拉伯分别就美国和伊朗14日宣布达成停战谅解备忘录作出回应。 据报道，巴基斯坦总理夏巴兹将美国与伊朗达成协议称为“迈向和平的历史性一步”。他表示，“今天，世界见证了迈向和平的历史性一步。经历战争的黑暗之后，和平的太阳已经升起。” 黎巴嫩总统奥恩表示，希望美伊达成协议能为以色列与黎真主党之间的战争划上“最
 
 ## 正文
 
-来源：华泰期货 作者： 师橙 市场分析 地缘方面，外交部发言人宣布：应国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。
+【环球网报道 记者 姜蔼玲】据法新社等外媒15日报道，巴基斯坦、黎巴嫩和沙特阿拉伯分别就美国和伊朗14日宣布达成停战谅解备忘录作出回应。
 
-这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。
+据报道，巴基斯坦总理夏巴兹将美国与伊朗达成协议称为“迈向和平的历史性一步”。
 
-习近平主席将同特朗普总统就事关中美关系以及世界和平与发展的重大问题深入交换意见。
+他表示，“今天，世界见证了迈向和平的历史性一步。
 
-美伊方面，谈判陷入僵局。
+经历战争的黑暗之后，和平的太阳已经升起。
 
-美国总统特朗普表示，目前美国同伊朗的停火协议仍然有效，但“极其脆弱”，正处于“岌岌可危”的状态。
+” 黎巴嫩总统奥恩表示，希望美伊达成协议能为以色列与黎真主党之间的战争划上“最终句号”。
 
-特朗普称，美国方案的核心是“伊朗绝不能拥有核武器”，然而伊朗在回复里并没有作出这样的承诺。
+沙特外交部在一份声明中表示，沙特欢迎美伊达成协议，以结束军事行动并重启和平谈判。
 
-特朗普尚未决定是否重启疏导霍尔木兹海峡通行的“自由计划”。
+声明同时提到，一项持久和平协议应“充分考虑地区各国的安全利益，并坚持不干涉他国内政的原则”。
 
-伊朗外交部表示，谈判优先事项是结束战争、解除制裁及封锁等问题，浓缩铀等问题将在适当时候作出决定。
+此前，据伊朗媒体15日报道，伊朗最高国家安全委员会当天凌晨发表声明，正式确认伊美停战谅解备忘录达成。
 
 ## 相关推荐
 
-- 2026-06-29 20:53 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 20:45 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 21:01 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 20:45 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 20:47 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 20:38 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 20:44 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 20:58 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 20:37 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 20:44 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 20:58 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 21:01 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 20:42 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 20:47 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 20:56 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 20:49 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 21:03 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 20:47 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 20:46 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 21:10 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 21:11 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 20:45 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 21:11 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 21:02 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:43 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/92918.shtml)
-- 2026-06-29 20:45 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/25041838045.shtml)
-- 2026-06-29 20:52 - [无畏为自己的猫正名了](http://www.blog.kurohicncr.top/Article/details/57782265.shtml)
-- 2026-06-29 20:36 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/041645825.shtml)
-- 2026-06-29 20:44 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/126544227402.shtml)
-- 2026-06-29 21:04 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.minike.top/Article/details/644229.shtml)
-- 2026-06-29 20:47 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/617038204928.shtml)
-- 2026-06-29 20:42 - [LPL第三赛段赛制公布](https://www.blog.kurohicncr.top/Article/details/55035959.shtml)
-- 2026-06-29 20:59 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/9451708551.shtml)
-- 2026-06-29 20:50 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/77119228.shtml)
-- 2026-06-29 20:43 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.kurohicncr.top/Article/details/6153041.shtml)
-- 2026-06-29 20:52 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/5981610821.shtml)
-- 2026-06-29 21:04 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/58498808454.shtml)
-- 2026-06-29 20:56 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/733747154.shtml)
-- 2026-06-29 20:37 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.minike.top/Article/details/37166891356.shtml)
+- 2026-06-29 20:44 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/6186742148.shtml)
+- 2026-06-29 21:02 - [女生学医适合选什么专业](http://www.blog.kurohicncr.top/Article/details/45325862474.shtml)
+- 2026-06-29 20:48 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/72868165.shtml)
+- 2026-06-29 21:11 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/549942706724.shtml)
+- 2026-06-29 20:54 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/98069.shtml)
+- 2026-06-29 20:53 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/78409365.shtml)
+- 2026-06-29 20:55 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/15700311.shtml)
+- 2026-06-29 21:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/068170189.shtml)
+- 2026-06-29 20:42 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/5584174403.shtml)
+- 2026-06-29 20:54 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/577430989994.shtml)
+- 2026-06-29 21:06 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/5581324472.shtml)
+- 2026-06-29 21:06 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/09055.shtml)
+- 2026-06-29 20:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/6971352.shtml)
+- 2026-06-29 20:56 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/131336061190.shtml)
+- 2026-06-29 20:50 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/585697787938.shtml)

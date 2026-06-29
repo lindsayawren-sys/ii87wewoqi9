@@ -1,57 +1,59 @@
-# 宁夏银川：母亲节催热“陪伴经济”温情消费成主流
+# 李强同越南总理黎明兴通电话
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-中新网银川5月10日电 题：宁夏银川：母亲节催热“陪伴经济”温情消费成主流 中新网记者 于晶 清晨八点，宁夏银川兴庆区一家花店内，店主王雯雯迎来了当天的第一位顾客。一位二十出头的年轻人专程为母亲选购了一束特别的“奖杯花”，金色奖杯造型的花座簇拥着盛放的芍药，附言写道：“我的妈妈是永远的冠军。” 5月10日恰逢母亲节，又值周末，银川街头巷尾氤氲着感恩与温情。一束定制花束、一张手写
+中新社北京6月15日电 6月15日上午，中国国务院总理李强应约同越南总理黎明兴通电话。 李强表示，今年4月，习近平总书记、国家主席同访华的苏林总书记、国家主席举行会晤，就构建更高水平具有战略意义的中越命运共同体达成重要共识。近段时期，两国各部门各地方加紧推进访问成果落实，取得积极进展。中越有着深厚传统友谊。中方始终将越南视为周边外交的优先方向，愿同越方一道遵循两党两国最高领导人
 
 ## 正文
 
-中新网银川5月10日电 题：宁夏银川：母亲节催热“陪伴经济”温情消费成主流 中新网记者 于晶 清晨八点，宁夏银川兴庆区一家花店内，店主王雯雯迎来了当天的第一位顾客。
+中新社北京6月15日电 6月15日上午，中国国务院总理李强应约同越南总理黎明兴通电话。
 
-一位二十出头的年轻人专程为母亲选购了一束特别的“奖杯花”，金色奖杯造型的花座簇拥着盛放的芍药，附言写道：“我的妈妈是永远的冠军。
+李强表示，今年4月，习近平总书记、国家主席同访华的苏林总书记、国家主席举行会晤，就构建更高水平具有战略意义的中越命运共同体达成重要共识。
 
-” 5月10日恰逢母亲节，又值周末，银川街头巷尾氤氲着感恩与温情。
+近段时期，两国各部门各地方加紧推进访问成果落实，取得积极进展。
 
-一束定制花束、一张手写卡片、一场陪伴出游、一席三代同堂家宴，如今的人们正褪去刻板仪式，以通透柔软、走心暖心的方式向母亲告白。
+中越有着深厚传统友谊。
 
-大数据亦折射出节日热度。
+中方始终将越南视为周边外交的优先方向，愿同越方一道遵循两党两国最高领导人战略引领，加强团结互信，拓展互利合作，更好促进两国共同发展繁荣。
 
-百度指数显示，近七天“母亲节”搜索量同比大涨268%，年轻人成为今年母亲节孝心消费与情感表达的主力。
+李强指出，中方愿同越方深入对接发展战略，推动两国贸易不断扩面提质，推进基础设施互联互通，加快跨境经济合作区建设，拓展能源矿产、数字经济、人工智能、金融等领域合作，实现更高水平互利共赢。
 
-相较于以往“礼重情方重”的传统观念，当下的孝心表达更重本心、更看心意，以母亲的真切欢喜为出发点。
+双方要共同办好“中越旅游合作年”等活动，落实“小而美”民生项目，妥善管控海上分歧，夯实两国友好民意基础。
 
-花店店主王雯雯感触颇深，店内这款创意奖杯花销量较去年激增三倍，超过半数的顾客都会额外索要素色卡片，亲手写下祝福。
+当前全球单边主义、保护主义抬头，中方愿同越方加强在联合国、世贸组织等多边机制协调配合，相互支持办好今明两年的亚太经合组织领导人非正式会议，推动建设开放型亚太经济，维护自由贸易和经济全球化。
 
 ## 相关推荐
 
-- 2026-06-29 20:53 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 20:40 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 21:04 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 20:53 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 20:40 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 20:37 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-29 21:04 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 20:51 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 20:50 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 20:54 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 20:40 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 21:10 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 20:55 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 20:49 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 20:49 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 20:59 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 20:49 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 20:51 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 20:59 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 21:04 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 20:57 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 20:47 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 20:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 21:11 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:40 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/7349555.shtml)
-- 2026-06-29 20:58 - [北京发布地质灾害气象风险蓝色预警](https://www.share.minike.top/Article/details/84561673.shtml)
-- 2026-06-29 20:53 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/244667275463.shtml)
-- 2026-06-29 20:50 - [毒液2](http://www.share.minike.top/Article/details/283859726757.shtml)
-- 2026-06-29 21:02 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/11685546.shtml)
-- 2026-06-29 20:41 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/177358.shtml)
-- 2026-06-29 20:41 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/79278815410.shtml)
-- 2026-06-29 21:02 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/03355.shtml)
-- 2026-06-29 20:46 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/6796616398.shtml)
-- 2026-06-29 21:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/57390407.shtml)
-- 2026-06-29 20:42 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/560338.shtml)
-- 2026-06-29 20:50 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/75071907951.shtml)
-- 2026-06-29 20:55 - [第一炉香](http://www.blog.minike.top/Article/details/53483.shtml)
-- 2026-06-29 20:41 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/681295050.shtml)
-- 2026-06-29 20:52 - [2026全国田径冠军赛江苏队4金收官](https://www.blog.kurohicncr.top/Article/details/07481.shtml)
+- 2026-06-29 20:58 - [一生一世](https://www.share.kurohicncr.top/Article/details/0517891211.shtml)
+- 2026-06-29 21:05 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/38053.shtml)
+- 2026-06-29 21:00 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/161830.shtml)
+- 2026-06-29 20:48 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/754263635.shtml)
+- 2026-06-29 21:11 - [CORTIS 小牌大耍](https://www.blog.kurohicncr.top/Article/details/723529411.shtml)
+- 2026-06-29 20:59 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/80977395677.shtml)
+- 2026-06-29 21:10 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/71890594356.shtml)
+- 2026-06-29 21:01 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/8925791.shtml)
+- 2026-06-29 20:46 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/43457026.shtml)
+- 2026-06-29 20:48 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/4999539259.shtml)
+- 2026-06-29 21:11 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.kurohicncr.top/Article/details/628629.shtml)
+- 2026-06-29 20:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/39325210.shtml)
+- 2026-06-29 21:03 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.kurohicncr.top/Article/details/785041.shtml)
+- 2026-06-29 21:04 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/9021300790.shtml)
+- 2026-06-29 20:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/2720328.shtml)

@@ -1,60 +1,58 @@
-# 十大机构看后市：A股赚钱效应正在质变，除了算力 还能买什么？看好这两条思路
+# 2026年欧洲国际防务展在巴黎开幕
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周只有3个交易日，A股三大指数周线全部上涨。其中，上证指数、深证成指、创业板指分别累计上涨1.65%、3.02%和3.24%，平均股价累计上涨4.66%，整体赚钱效应较好。后市将如何发展？看看机构怎么说。 中信证券最新策略：宏观博弈型资金会阶段性退潮，潜在入场者观望，配置型资金逢高减仓 越临近美伊和谈与特
+中新社巴黎6月15日电 (记者 李洋)2026年欧洲国际防务展当地时间15日在法国巴黎开幕。受当前地缘政治形势影响，该展会受到外界越来越多的关注。 据展会主办方介绍，作为防务领域最重要的专业展会之一，今年的展会共有来自68个国家的2600多家企业参展，预计前来观展的专业人士约有5万人。法国国防部在防务展上展示无人机、导弹、自行火炮等军事装备，有军事人员在现场讲解。多家中国企业参
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社巴黎6月15日电 (记者 李洋)2026年欧洲国际防务展当地时间15日在法国巴黎开幕。
 
-本周只有3个交易日，A股三大指数周线全部上涨。
+受当前地缘政治形势影响，该展会受到外界越来越多的关注。
 
-其中，上证指数、深证成指、创业板指分别累计上涨1.65%、3.02%和3.24%，平均股价累计上涨4.66%，整体赚钱效应较好。
+据展会主办方介绍，作为防务领域最重要的专业展会之一，今年的展会共有来自68个国家的2600多家企业参展，预计前来观展的专业人士约有5万人。
 
-后市将如何发展？
+法国国防部在防务展上展示无人机、导弹、自行火炮等军事装备，有军事人员在现场讲解。
 
-看看机构怎么说。
+多家中国企业参加展会，展示的装备包括反无人机系统、雷达装备及防护用具等。
 
-中信证券最新策略：宏观博弈型资金会阶段性退潮，潜在入场者观望，配置型资金逢高减仓 越临近美伊和谈与特朗普访华，供需分析越趋于“跛脚”，宏观假设会阶段性缺位。
+法国国防部长沃特兰当天参观展会，观摩现场演练环节。
 
-宏观博弈型资金会阶段性退潮，潜在入场者观望，配置型资金逢高减仓；存量资金的高切低特征会比较明显，低位上涨是行为结果而非信号。
+她通过社交媒体表示，在国际形势面临新挑战的背景下，该展会能够让众多国家的业界人士相聚交流，构建合作关系。
 
-美伊和谈与特朗普访华都是风偏趋于顶点的事件，在既有结构行情趋势不断加强的背景下，主动降波是更好选择。
+她还同时肯定该展会在展示法国工业能力方面的重要作用。
 
 ## 相关推荐
 
-- 2026-06-29 20:54 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 21:03 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 20:51 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 21:03 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 21:00 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 20:55 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 20:37 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 20:48 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 20:57 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 20:59 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 21:05 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 20:55 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 20:48 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 20:53 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 20:45 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 20:58 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 20:50 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 20:49 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 20:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 20:50 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 20:54 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 20:56 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 21:05 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 20:44 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 20:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 20:54 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:01 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/52157744417.shtml)
-- 2026-06-29 20:53 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/931387.shtml)
-- 2026-06-29 21:03 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/386960.shtml)
-- 2026-06-29 21:03 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/6596117.shtml)
-- 2026-06-29 20:54 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/274996040146.shtml)
-- 2026-06-29 20:57 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/96512539.shtml)
-- 2026-06-29 20:49 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/29007403432.shtml)
-- 2026-06-29 20:46 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/451893179783.shtml)
-- 2026-06-29 20:46 - [媒体评恋与深空用“引狼入室”台词](http://www.share.kurohicncr.top/Article/details/02716.shtml)
-- 2026-06-29 20:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/454142.shtml)
-- 2026-06-29 20:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/025687288237.shtml)
-- 2026-06-29 21:02 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/960065072640.shtml)
-- 2026-06-29 20:59 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/0360318.shtml)
-- 2026-06-29 20:38 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/102650845039.shtml)
-- 2026-06-29 20:51 - [温网](http://www.blog.kurohicncr.top/Article/details/723416842836.shtml)
+- 2026-06-29 20:44 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/774911557.shtml)
+- 2026-06-29 20:59 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/02853981.shtml)
+- 2026-06-29 21:06 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.minike.top/Article/details/80136482444.shtml)
+- 2026-06-29 21:11 - [教育部高校学生资助热线7月1日开通](http://www.share.minike.top/Article/details/229150700701.shtml)
+- 2026-06-29 20:43 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.kurohicncr.top/Article/details/7671549467.shtml)
+- 2026-06-29 21:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/04345779.shtml)
+- 2026-06-29 20:59 - [斗破苍穹](https://www.blog.minike.top/Article/details/47161942275.shtml)
+- 2026-06-29 20:47 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/26366875608.shtml)
+- 2026-06-29 20:51 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/1919216105.shtml)
+- 2026-06-29 20:54 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/4811395.shtml)
+- 2026-06-29 20:44 - [每天通勤往返3h的感觉](http://www.share.minike.top/Article/details/362558490694.shtml)
+- 2026-06-29 20:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/3170763929.shtml)
+- 2026-06-29 21:06 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/29942.shtml)
+- 2026-06-29 21:06 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/486414485.shtml)
+- 2026-06-29 20:53 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/44372799.shtml)

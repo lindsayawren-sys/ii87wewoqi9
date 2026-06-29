@@ -1,56 +1,59 @@
-# 刘涛演妈祖火遍两岸 蒙曼：因为我们有共同的历史认同
+# 浦江中国复牌后涨超55% 获微盟集团董事会主席孙涛勇折让提现金要约
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 10:47 来源：中国新闻网 5月11日，第三届海峡两岸中华文化峰会在京开幕。谈及近期多位演员因扮演历史人物火遍两岸，中央民族大学教授蒙曼接受记者采访时表示，“中华民族是一个崇尚英雄的民族，您所说的这些演员他们“翻红”，是因为他们扮演的是我们的民族英雄。比方说他们扮演郑成功、比方说她们扮演妈祖，对不对？这其实就说明我们有共同的历史认同，这些历史
+浦江中国（01417）复牌后一度涨超60%，截至发稿，股价上涨55.08%，现报2.90港元，成交额1716.68万港元。 浦江中国及要约人Yomi.sun Holding Limited联合公布，于2026年6月15日，要约人与出售股东订立买卖协议，以总代价1.156亿港元向出售股东收购合共 2.23亿股股份，相当于于本联合公告日期本公司已发行股本总额的约55.03%；以及L
 
 ## 正文
 
-发布时间：2026年05月12日 10:47 来源：中国新闻网 5月11日，第三届海峡两岸中华文化峰会在京开幕。
+浦江中国（01417）复牌后一度涨超60%，截至发稿，股价上涨55.08%，现报2.90港元，成交额1716.68万港元。
 
-谈及近期多位演员因扮演历史人物火遍两岸，中央民族大学教授蒙曼接受记者采访时表示，“中华民族是一个崇尚英雄的民族，您所说的这些演员他们“翻红”，是因为他们扮演的是我们的民族英雄。
+浦江中国及要约人Yomi.sun Holding Limited联合公布，于2026年6月15日，要约人与出售股东订立买卖协议，以总代价1.156亿港元向出售股东收购合共 2.23亿股股份，相当于于本联合公告日期本公司已发行股本总额的约55.03%；以及Lucky Yang Limited与出售股东订立买卖协议，以总代价4007.11万港元向出售股东收购7728万股股份，相当于于本联合公告日期本公司已发行股本总额的约19.08%。
 
-比方说他们扮演郑成功、比方说她们扮演妈祖，对不对？
+根据收购守则规则26.1，要约人须就本公司已发行股本中所有股份（不包括要约人及其一致行动人士已拥有及/或同意将予收购的股份）提出强制性无条件现金要约。
 
-这其实就说明我们有共同的历史认同，这些历史人物其实深深根植于老百姓的心中。
+每股要约股份要约价现金0.519港元，较2026年6月12日在联交所所报收市价每股1.870港元折让约72.25%。
 
-如果扮演得好，我们都认为他和他所扮演那个角色是合一的，所以我们才能把对这个角色的感情、对这个历史人物的感情，寄托在这样的艺人身上”。
+孙涛勇先生为要约人的唯一董事，也是要约人的最终实益拥有人。
 
-(范思忆 刘子衿 制作 王雪茵） 责任编辑：【李季】
+孙先生亦为Weimob Inc．的创始人，Weimob Inc．是一家在开曼群岛注册成立的有限公司，并在香港联合交易所上市（02013）。
+
+孙先生目前担任Weimob Inc．董事会主席、执行董事兼首席执行官。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:48 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 20:56 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 20:40 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 20:43 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 20:53 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 20:39 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 20:52 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 20:44 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 20:56 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 20:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 21:01 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 21:01 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 20:43 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 21:02 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 20:56 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 20:52 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 20:47 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 21:11 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 21:09 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 20:54 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 20:50 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 21:06 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 21:08 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 21:04 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 20:57 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 20:50 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 20:42 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:38 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/8850405.shtml)
-- 2026-06-29 20:50 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.minike.top/Article/details/09263.shtml)
-- 2026-06-29 20:56 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/29922.shtml)
-- 2026-06-29 20:52 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/8143859263.shtml)
-- 2026-06-29 20:50 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/652975.shtml)
-- 2026-06-29 20:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/59828253608.shtml)
-- 2026-06-29 20:52 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.minike.top/Article/details/09937552.shtml)
-- 2026-06-29 20:59 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/9924282.shtml)
-- 2026-06-29 20:41 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/37430.shtml)
-- 2026-06-29 20:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/96309801325.shtml)
-- 2026-06-29 20:55 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/972967.shtml)
-- 2026-06-29 20:54 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/5090932298.shtml)
-- 2026-06-29 20:38 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/03571537.shtml)
-- 2026-06-29 20:44 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/76584772.shtml)
-- 2026-06-29 20:40 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/044858198437.shtml)
+- 2026-06-29 20:44 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/106253673.shtml)
+- 2026-06-29 20:43 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/799349491.shtml)
+- 2026-06-29 21:01 - [济南航空航天全面起势](http://www.blog.kurohicncr.top/Article/details/716540433535.shtml)
+- 2026-06-29 21:01 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/7528494.shtml)
+- 2026-06-29 21:02 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/75379294519.shtml)
+- 2026-06-29 21:04 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/88837768853.shtml)
+- 2026-06-29 21:09 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.kurohicncr.top/Article/details/9528254.shtml)
+- 2026-06-29 21:11 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/745281678.shtml)
+- 2026-06-29 21:02 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/0820384.shtml)
+- 2026-06-29 20:55 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/5502927937.shtml)
+- 2026-06-29 21:11 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/149931625850.shtml)
+- 2026-06-29 21:10 - [大学专业未来如何洗牌](https://www.share.minike.top/Article/details/1559127.shtml)
+- 2026-06-29 20:52 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/0318025.shtml)
+- 2026-06-29 20:51 - [林逸向方筱然求婚了](https://www.blog.minike.top/Article/details/57416320.shtml)
+- 2026-06-29 20:59 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/071556215.shtml)

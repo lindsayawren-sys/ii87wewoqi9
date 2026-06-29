@@ -1,61 +1,56 @@
-# 武汉大学就OPPO母亲节文案发声：极不认同文案的价值倾向
+# 蚂蚁集团内测AI版支付宝！AI应用商业化具备广阔空间！软件开发ETF华宝（159036）盘中猛拉3.7%
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-【相关阅读】段永平谈“OPPO文案翻车”一事：确实不合适 OPPO手机余某团队“母亲节”广告文案引争议，武大文院：余某曾为敝院学生，我们极不认同此文案内容 来源：中国新闻社 近日，OPPO发布的母亲节活动文案引发争议。 武汉大学文学院5月10日发布声明称，知悉网络所传某手机企业余某团队近日“母亲节”宣传文案引发社会批评，武汉大学文学院极感诧异和震惊。 声明称，余某曾为敝院学生。
+今日（6月15日）软件开发方向表现活跃，直击AI应用前沿的——软件开发ETF华宝（159036）场内涨幅盘中上探3.75%，现涨1.98%，冲击日线2连阳！ 成份股方面，安博通领涨超16%，赛意信息、中科江南、赢时胜涨逾8%，鼎捷数智涨超7%，天阳科技、指南针、艾融软件等个股跟涨。 消息面上，Anthropic最强模型被禁，智谱国产新模型全量开放，业内看好国产模型价值重估。美国
 
 ## 正文
 
-【相关阅读】段永平谈“OPPO文案翻车”一事：确实不合适 OPPO手机余某团队“母亲节”广告文案引争议，武大文院：余某曾为敝院学生，我们极不认同此文案内容 来源：中国新闻社 近日，OPPO发布的母亲节活动文案引发争议。
+今日（6月15日）软件开发方向表现活跃，直击AI应用前沿的——软件开发ETF华宝（159036）场内涨幅盘中上探3.75%，现涨1.98%，冲击日线2连阳！
 
-武汉大学文学院5月10日发布声明称，知悉网络所传某手机企业余某团队近日“母亲节”宣传文案引发社会批评，武汉大学文学院极感诧异和震惊。
+成份股方面，安博通领涨超16%，赛意信息、中科江南、赢时胜涨逾8%，鼎捷数智涨超7%，天阳科技、指南针、艾融软件等个股跟涨。
 
-声明称，余某曾为敝院学生。
+消息面上，Anthropic最强模型被禁，智谱国产新模型全量开放，业内看好国产模型价值重估。
 
-其在校期间，思想端正，以护助公交车上受伤的耄耋老人而获师生赞誉。
+美国政府以国家安全为由发布出口管制指令，要求暂停所有外国公民访问Anthropic最强模型Fable5和Mythos5。
 
-但此次其职场团队所策划文案，严重牴牾敝院一以贯之的立德树人育人理念。
+智谱旗下国产大模型GLM-5.2面向GLM Coding Plan全量用户开放。
 
-我们极不认同此文案之内容，尤其不认同其中的戏说玩梗噱头、话语渲染和流露出的价值倾向。
+业内人士认为，在海外闭源前沿模型访问不确定性上升的背景下，国产开源模型的可用性、稳定性和开发者生态价值正在被重估。
 
-武汉大学文学院一直坚持以中华优秀传统文化和人类先进文化培育学子，严守和推扬“学为君子”的教育品格，砥砺师生正学以闻，肩负国家使命，弘扬先进文化，以平实、担当和坚守报效社会，服务人民。
+据悉，蚂蚁集团正在秘密测试AI版支付宝，腾讯旗下微信、阿里千问、字节豆包等均在加速构建各自AI生态，大厂纷纷加速AI应用落地。
 
-深愿余校友以自诚勇气，过则勿惮改，善对社会批评，与企业一道肩负起社会责任。
+中国银河证券指出，随着国内大模型的持续迭代与落地，AI应用商业化具备广阔发展空间，相关企业有望受益于需求上升带来的新增量，建议关注大模型厂商。
 
 ## 相关推荐
 
-- 2026-06-29 20:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 20:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 20:41 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 21:02 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 20:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 20:39 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 21:02 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 20:46 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 20:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 21:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 20:46 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 20:37 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 21:01 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 20:51 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 20:37 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 21:02 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 20:51 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 21:11 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 20:54 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 21:01 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 21:00 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 21:06 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 21:11 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 21:09 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 20:44 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/7065182364.shtml)
-- 2026-06-29 20:49 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/026433.shtml)
-- 2026-06-29 20:57 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/5478123736.shtml)
-- 2026-06-29 21:03 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/88180317.shtml)
-- 2026-06-29 20:37 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/49570085849.shtml)
-- 2026-06-29 21:01 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/502407.shtml)
-- 2026-06-29 20:55 - [教育部高校学生资助热线7月1日开通](http://www.share.kurohicncr.top/Article/details/93917394.shtml)
-- 2026-06-29 20:40 - [欧洲极端高温如何影响家电股](http://www.share.kurohicncr.top/Article/details/710399.shtml)
-- 2026-06-29 20:59 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/12763416525.shtml)
-- 2026-06-29 20:54 - [田曦薇没招了](https://www.blog.minike.top/Article/details/392626825.shtml)
-- 2026-06-29 20:38 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/231975.shtml)
-- 2026-06-29 20:43 - [极限挑战第一季](http://www.blog.minike.top/Article/details/8209858.shtml)
-- 2026-06-29 21:02 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/406474870130.shtml)
-- 2026-06-29 21:04 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/61624.shtml)
-- 2026-06-29 20:52 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/68291.shtml)
+- 2026-06-29 20:56 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/13822863288.shtml)
+- 2026-06-29 20:50 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/14738.shtml)
+- 2026-06-29 20:48 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/12434940722.shtml)
+- 2026-06-29 20:46 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/77134.shtml)
+- 2026-06-29 20:42 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/39801874768.shtml)
+- 2026-06-29 20:46 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/82091.shtml)
+- 2026-06-29 21:01 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/5543131.shtml)
+- 2026-06-29 21:03 - [女生学医适合选什么专业](https://www.share.kurohicncr.top/Article/details/2070016276.shtml)
+- 2026-06-29 20:44 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/6419562952.shtml)
+- 2026-06-29 20:45 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/2750786.shtml)
+- 2026-06-29 20:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/986855944382.shtml)
+- 2026-06-29 21:03 - [急先锋](https://www.share.minike.top/Article/details/640017594160.shtml)
+- 2026-06-29 20:55 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/414695608987.shtml)
+- 2026-06-29 20:56 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/89205146.shtml)
+- 2026-06-29 20:43 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/323087562.shtml)

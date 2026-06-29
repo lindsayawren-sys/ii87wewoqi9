@@ -1,59 +1,56 @@
-# 城堡证券：对美联储和市场构成“真正风险”的是通胀
+# 巴西两架直升机相撞致6死 美国歌手奥利弗·特里遇难
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-城堡证券表示，在人工智能带动的资本开支热潮提振经济前景之际，通胀而非增长已成为市场的主要风险。 该行欧洲、中东和非洲固定收益销售主管Nohshad Shah在给客户的报告中写道，更宽松的金融环境、人工智能投资以及更稳健的劳动力市场增加了近期油价上涨向更广泛价格压力传导的风险，这“才是美联储和市场面临的真正风险”。 “我一直认为‘市场普遍低估了通胀尾部风险’，而现在这种情况比以往
+中新网6月15日电 据英国《卫报》报道，当地时间14日上午，巴西里约热内卢发生两架直升机空中相撞事故，造成6人遇难。 里约热内卢消防局表示，两架直升机在空中相撞后坠毁，机上无人生还。其中一架直升机坠毁在一家汽车经销店内，并致现场车辆起火，目前火势已被扑灭。 报道指出，遇难者中5人来自同一架直升机，其中包括美国歌手奥利弗·特里(Oliver Tree)、阿根廷网红Gaspi、一名
 
 ## 正文
 
-城堡证券表示，在人工智能带动的资本开支热潮提振经济前景之际，通胀而非增长已成为市场的主要风险。
+中新网6月15日电 据英国《卫报》报道，当地时间14日上午，巴西里约热内卢发生两架直升机空中相撞事故，造成6人遇难。
 
-该行欧洲、中东和非洲固定收益销售主管Nohshad Shah在给客户的报告中写道，更宽松的金融环境、人工智能投资以及更稳健的劳动力市场增加了近期油价上涨向更广泛价格压力传导的风险，这“才是美联储和市场面临的真正风险”。
+里约热内卢消防局表示，两架直升机在空中相撞后坠毁，机上无人生还。
 
-“我一直认为‘市场普遍低估了通胀尾部风险’，而现在这种情况比以往更加明显，”Shah写道。
+其中一架直升机坠毁在一家汽车经销店内，并致现场车辆起火，目前火势已被扑灭。
 
-与中东冲突爆发前相比，现在金融环境更加宽松，而短期通胀预期已上升。
+报道指出，遇难者中5人来自同一架直升机，其中包括美国歌手奥利弗·特里(Oliver Tree)、阿根廷网红Gaspi、一名巴西音乐制作人和一名阿根廷导演。
 
-Shah表示，人工智能正越来越被视为经济增长引擎，而非颠覆性威胁。
+报道称，奥利弗·特里当时正在南美洲巡演。
 
-半导体与软件股的一月期相关性已转为正值，表明市场预期已从将人工智能视为“替代性力量”，转向将其视为推动更强增长的催化剂。
+据报道，现年32岁的奥利弗·特里在流媒体平台Spotify上每月听众数超过1100万，热门歌曲播放量超过7亿次。
 
-尽管伊朗冲突近期再度升级，Shah认为霍尔木兹海峡有较大可能重新开放，美国总统特朗普希望尽快摆脱冲突，其本周访华也可能有助于加速达成解决方案。
-
-责任编辑：丁文武
+目前，事故原因正在调查中。
 
 ## 相关推荐
 
-- 2026-06-29 20:54 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 20:42 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 20:58 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 21:00 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 20:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 21:02 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 20:50 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 20:45 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 20:36 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 20:47 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 21:00 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 20:40 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 20:44 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 21:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 20:45 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 20:55 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 20:44 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 21:04 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 21:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 21:04 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 21:11 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 21:10 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 20:42 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 20:59 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 20:58 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:50 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/495050.shtml)
-- 2026-06-29 21:03 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/73024204.shtml)
-- 2026-06-29 20:52 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/9946166928.shtml)
-- 2026-06-29 21:02 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/28641717.shtml)
-- 2026-06-29 21:01 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/99918.shtml)
-- 2026-06-29 20:59 - [啊啊啊](https://www.share.minike.top/Article/details/979682.shtml)
-- 2026-06-29 21:05 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/7080295.shtml)
-- 2026-06-29 20:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/8117747.shtml)
-- 2026-06-29 20:56 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/17993.shtml)
-- 2026-06-29 20:41 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/69352073850.shtml)
-- 2026-06-29 20:53 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.kurohicncr.top/Article/details/94373807040.shtml)
-- 2026-06-29 20:47 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/430000494.shtml)
-- 2026-06-29 21:01 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/425547341095.shtml)
-- 2026-06-29 21:01 - [请回答王牌2019](http://www.share.minike.top/Article/details/87289375.shtml)
-- 2026-06-29 20:48 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/646909101.shtml)
+- 2026-06-29 21:02 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/930497595539.shtml)
+- 2026-06-29 21:09 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/469031.shtml)
+- 2026-06-29 21:01 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.minike.top/Article/details/1226393.shtml)
+- 2026-06-29 21:11 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/05623001.shtml)
+- 2026-06-29 20:44 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/98891433.shtml)
+- 2026-06-29 20:45 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/49664447.shtml)
+- 2026-06-29 20:47 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/33279398326.shtml)
+- 2026-06-29 20:43 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/1243101.shtml)
+- 2026-06-29 21:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/9587392254.shtml)
+- 2026-06-29 20:48 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/372758609539.shtml)
+- 2026-06-29 20:57 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.minike.top/Article/details/034513449.shtml)
+- 2026-06-29 21:06 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.minike.top/Article/details/7467212.shtml)
+- 2026-06-29 21:09 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/2030359.shtml)
+- 2026-06-29 20:55 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.minike.top/Article/details/37945597743.shtml)
+- 2026-06-29 20:53 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/43628192706.shtml)

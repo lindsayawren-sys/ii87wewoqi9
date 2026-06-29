@@ -1,58 +1,48 @@
-# 高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！
+# 黑龙江大庆：非遗赋能文旅融合 点亮草原风情
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-文/高晓烜 高市早苗又在搞事。 环球网援引日本《读卖新闻》、全日本新闻网5月9日报道，日本政府计划在2027年末之前新成立“对外情报厅”，加强对外国的间谍活动。针对日方所谓“情报改革”，中国国际问题研究院亚太研究所特聘研究员项昊宇认为，历史上日本军国主义对外扩张始终都是情报先行，从甲午战争前对中国的全面情报渗透，到二战期间“特高课”的所作所为，这些都印证了情报集权跟军事扩张之间
+发布时间：2026年06月14日 22:48 来源：中国新闻网 以非遗传文脉，以文旅促振兴。6月13日，2026年“文化和自然遗产日”黑龙江省非遗宣传展示展演主会场活动在阿木塔景区盛装启幕。活动紧扣“非遗，让生活更美好”主题，依托草原独特文化禀赋，通过实景民俗演绎、精品非遗展演、沉浸式体验、传统民俗竞技等多元形式，让千年草原非遗走出殿堂、融入生活，以鲜活文化动能赋能文旅高质量发
 
 ## 正文
 
-文/高晓烜 高市早苗又在搞事。
+发布时间：2026年06月14日 22:48 来源：中国新闻网 以非遗传文脉，以文旅促振兴。
 
-环球网援引日本《读卖新闻》、全日本新闻网5月9日报道，日本政府计划在2027年末之前新成立“对外情报厅”，加强对外国的间谍活动。
+6月13日，2026年“文化和自然遗产日”黑龙江省非遗宣传展示展演主会场活动在阿木塔景区盛装启幕。
 
-针对日方所谓“情报改革”，中国国际问题研究院亚太研究所特聘研究员项昊宇认为，历史上日本军国主义对外扩张始终都是情报先行，从甲午战争前对中国的全面情报渗透，到二战期间“特高课”的所作所为，这些都印证了情报集权跟军事扩张之间存在着直接的关联。
+活动紧扣“非遗，让生活更美好”主题，依托草原独特文化禀赋，通过实景民俗演绎、精品非遗展演、沉浸式体验、传统民俗竞技等多元形式，让千年草原非遗走出殿堂、融入生活，以鲜活文化动能赋能文旅高质量发展。
 
-高市为何要建日版“中情局”？
-
-与“国家情报局”区别在哪4月23日，“国家情报局”相关法案在日本众议院全体会议上经表决通过。
-
-根据该法案，日本拟构建以“国家情报会议”为核心、“国家情报局”为执行机构的情报体系，负责统筹安全保障、反恐等领域的情报活动以及涉外国间谍的“对外情报活动”。
-
-自民党籍参议员松川泪5月8日在国会上声称日本政府需要像美国中央情报局、英国秘密情报局那样的专业对外情报机构，她敦促高市早苗尽快成立“对外情报厅”。
-
-日本“国家情报局”与“对外情报厅”有何不同？
+田德雨 李德洋 刘宝平 王明 黑龙江大庆报道 责任编辑：【曲克】
 
 ## 相关推荐
 
-- 2026-06-29 20:43 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 20:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 20:56 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 20:51 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 20:49 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 20:47 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 20:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 20:39 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 20:38 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 20:53 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 20:56 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 20:38 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 20:48 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 20:43 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 21:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 20:54 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 20:55 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 21:04 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 20:44 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 21:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 21:04 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 20:49 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:40 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/5444586.shtml)
-- 2026-06-29 20:47 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/97653707.shtml)
-- 2026-06-29 20:56 - [委内瑞拉发生余震](https://www.share.minike.top/Article/details/875524631.shtml)
-- 2026-06-29 20:56 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/1127997.shtml)
-- 2026-06-29 20:44 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/73904009.shtml)
-- 2026-06-29 20:39 - [东方风云榜](http://www.share.minike.top/Article/details/6938490.shtml)
-- 2026-06-29 20:40 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/60352.shtml)
-- 2026-06-29 20:59 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/7786657234.shtml)
-- 2026-06-29 20:46 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/54880.shtml)
-- 2026-06-29 20:59 - [流金岁月](http://www.blog.minike.top/Article/details/979953232989.shtml)
-- 2026-06-29 20:51 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/171825070.shtml)
-- 2026-06-29 20:48 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/312038.shtml)
-- 2026-06-29 20:46 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/3676683470.shtml)
-- 2026-06-29 20:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/31326192084.shtml)
-- 2026-06-29 20:54 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/3084530258.shtml)
+- 2026-06-29 21:10 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/076031114086.shtml)
+- 2026-06-29 21:09 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/33423.shtml)
+- 2026-06-29 20:51 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/07394609238.shtml)
+- 2026-06-29 20:45 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/936520323222.shtml)
+- 2026-06-29 20:58 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/32517414545.shtml)
+- 2026-06-29 21:00 - [东宫女主是不是顶级恋爱脑](https://www.blog.minike.top/Article/details/350031.shtml)
+- 2026-06-29 21:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/78692.shtml)
+- 2026-06-29 20:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/6296726981.shtml)
+- 2026-06-29 20:42 - [流金岁月](https://www.blog.minike.top/Article/details/0708964.shtml)
+- 2026-06-29 20:47 - [半导体和股市为何没让韩国人起飞](http://www.share.kurohicncr.top/Article/details/98029303114.shtml)
+- 2026-06-29 20:53 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/862793798.shtml)
+- 2026-06-29 20:47 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/53617986.shtml)
+- 2026-06-29 21:09 - [刘冰任河南南阳市代市长](https://www.share.kurohicncr.top/Article/details/748309022180.shtml)
+- 2026-06-29 21:01 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/616784788702.shtml)
+- 2026-06-29 20:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/411109027.shtml)

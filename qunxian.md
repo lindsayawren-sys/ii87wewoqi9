@@ -1,56 +1,56 @@
-# 英矽智能早盘涨超4% 近日与Google Cloud合作加速药物发现进程
+# 调仓信号？“公募一哥”张坤，持续新动作！
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-英矽智能（03696）早盘涨超4%，截至发稿，股价上涨4.28%，现报67.05港元，成交额1.04亿港元。 据英矽智能官微消息，近日，公司宣布与Google Cloud合作，旨在加速其药物发现进程。通过此次合作，英矽智能将结合自有Pharma.AI平台，利用Google Cloud可扩展的计算基础设施与先进AI能力，提升药物发现流程的速度与效率。 英矽智能计划在其产品体系中集
+文章来源：中新经纬 近日，广深铁路发布公告，易方达基金经理张坤在管规模最大的易方达蓝筹精选，成为该公司的第五大股东。根据过往公告，这是易方达蓝筹精选首次买入这只个股，并首次成为其前十大股东。 易方达蓝筹精选5月底增聘的基金经理杨思亮曾经持续重仓广深铁路。在业绩承压的情况下，易方达蓝筹精选的调仓幅度依然较小，此番买入广深铁路并增聘基金经理，是否意味着会发生改变？ 新搭档曾重仓广深
 
 ## 正文
 
-英矽智能（03696）早盘涨超4%，截至发稿，股价上涨4.28%，现报67.05港元，成交额1.04亿港元。
+文章来源：中新经纬 近日，广深铁路发布公告，易方达基金经理张坤在管规模最大的易方达蓝筹精选，成为该公司的第五大股东。
 
-据英矽智能官微消息，近日，公司宣布与Google Cloud合作，旨在加速其药物发现进程。
+根据过往公告，这是易方达蓝筹精选首次买入这只个股，并首次成为其前十大股东。
 
-通过此次合作，英矽智能将结合自有Pharma.AI平台，利用Google Cloud可扩展的计算基础设施与先进AI能力，提升药物发现流程的速度与效率。
+易方达蓝筹精选5月底增聘的基金经理杨思亮曾经持续重仓广深铁路。
 
-英矽智能计划在其产品体系中集成Gemini Enterprise Agent Platform及Google Gemini系列模型。
+在业绩承压的情况下，易方达蓝筹精选的调仓幅度依然较小，此番买入广深铁路并增聘基金经理，是否意味着会发生改变？
 
-其中包括将Gemini与英矽智能最新工具PandaClaw结相合，进一步增强靶点发现与核心研发流程。
+新搭档曾重仓广深铁路 6月8日，广深铁路发布的公司前十大股东持股情况的公告显示，易方达蓝筹精选持有公司5000万股股票，持股比例约0.71%。
 
-此次合作亦有望加速英矽智能内部AI智能体工具的开发，并支持其更广泛的药物开发项目推进。
+这份持股数据的股权登记日为2026年6月5日。
 
-责任编辑：卢昱君
+今年5月初，广深铁路公布过2026年4月29日登记在册的前十大股东，当时还没有易方达蓝筹精选的身影。
+
+易方达蓝筹精选2025年年报中披露的全部持股明细、2026年一季报中披露的前十大重仓股，均没有广深铁路。
 
 ## 相关推荐
 
-- 2026-06-29 20:43 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 20:43 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 21:00 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 20:51 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 21:01 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 20:39 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 20:54 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 20:43 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 20:57 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 20:37 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 20:55 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 20:57 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 20:43 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 20:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 20:53 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 20:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 20:43 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 21:08 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 20:55 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 21:07 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 21:11 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 21:02 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:40 - [女生学医适合选什么专业](http://www.blog.kurohicncr.top/Article/details/14562.shtml)
-- 2026-06-29 20:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/25628.shtml)
-- 2026-06-29 20:36 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/924599858.shtml)
-- 2026-06-29 20:43 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/90764189.shtml)
-- 2026-06-29 20:59 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/89199182060.shtml)
-- 2026-06-29 20:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/1074078.shtml)
-- 2026-06-29 20:44 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/874269482.shtml)
-- 2026-06-29 20:46 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/088270198.shtml)
-- 2026-06-29 20:47 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/709021799.shtml)
-- 2026-06-29 20:58 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/09930710647.shtml)
-- 2026-06-29 21:01 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/969918517183.shtml)
-- 2026-06-29 21:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/532113421.shtml)
-- 2026-06-29 20:46 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/333292192.shtml)
-- 2026-06-29 20:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/53584489.shtml)
-- 2026-06-29 21:04 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/083043.shtml)
+- 2026-06-29 21:09 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/44978.shtml)
+- 2026-06-29 20:52 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/104976.shtml)
+- 2026-06-29 21:09 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/186107804748.shtml)
+- 2026-06-29 21:02 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/01483085.shtml)
+- 2026-06-29 21:06 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/756548127.shtml)
+- 2026-06-29 21:03 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/202329884.shtml)
+- 2026-06-29 20:56 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/79038705.shtml)
+- 2026-06-29 20:45 - [王安宇聪明到导演组炸了](https://www.blog.minike.top/Article/details/94265816.shtml)
+- 2026-06-29 20:45 - [金刚川](https://www.blog.kurohicncr.top/Article/details/136447.shtml)
+- 2026-06-29 20:54 - [男子40度高温下骑行严重晒伤](https://www.share.minike.top/Article/details/270118.shtml)
+- 2026-06-29 20:45 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/2359386866.shtml)
+- 2026-06-29 20:47 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/75377.shtml)
+- 2026-06-29 21:02 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/83993512.shtml)
+- 2026-06-29 21:04 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/3911604.shtml)
+- 2026-06-29 20:50 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/374578522529.shtml)

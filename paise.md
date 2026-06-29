@@ -1,53 +1,53 @@
-# 花旗：建滔集团目标价升至65港元 重申“买入”评级
+# 万事昌国际附属斥资约1.514亿港元购入合共600万盈富基金单位
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-花旗发布研报称，上调建滔集团（00148）2026至2028年盈利预测50%至61%，并将目标价由48港元上调至65港元，因在AI基建投资热潮下，玻璃纤维、铜箔及覆铜面板（CCL）出现短缺，令该行上调建滔积层板（01888）盈利预测。该行预计建滔集团的盈利结构将向积层板业务倾斜，预测该业务占集团净利润比例，将由2025年的38%飙升至2028年的87%。另外，该行认为建滔集团目
+万事昌国际（00898）发布公告，于2026年6月15日，Ernesto（公司的间接非全资附属公司）于公开市场购入合共600万盈富基金单位 ，平均价格约每单位25.24港元，总代价约1.514亿港元（不包括交易成本）。 于收购事项日期前十二个月期间，集团于公开市场购入合共150万盈富基金单位 ，平均价格约每单位26.31港元，总代价约3950万港元（不包括交易成本）。 根据收购
 
 ## 正文
 
-花旗发布研报称，上调建滔集团（00148）2026至2028年盈利预测50%至61%，并将目标价由48港元上调至65港元，因在AI基建投资热潮下，玻璃纤维、铜箔及覆铜面板（CCL）出现短缺，令该行上调建滔积层板（01888）盈利预测。
+万事昌国际（00898）发布公告，于2026年6月15日，Ernesto（公司的间接非全资附属公司）于公开市场购入合共600万盈富基金单位 ，平均价格约每单位25.24港元，总代价约1.514亿港元（不包括交易成本）。
 
-该行预计建滔集团的盈利结构将向积层板业务倾斜，预测该业务占集团净利润比例，将由2025年的38%飙升至2028年的87%。
+于收购事项日期前十二个月期间，集团于公开市场购入合共150万盈富基金单位 ，平均价格约每单位26.31港元，总代价约3950万港元（不包括交易成本）。
 
-另外，该行认为建滔集团目前估值并不合理，如投资者错过建滔积层板4月的强劲升势，建滔集团是追落后的好选择，重申“买入”评级。
+根据收购事项及先前收购事项，集团于公开市场购入合共750万盈富基金单位 ，平均价格约每单位25.45港元，总代价约1.909亿港元（不包括交易成本）。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:57 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 20:52 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 20:49 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 21:05 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 20:58 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 20:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 20:37 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 20:58 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 20:53 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 20:38 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 20:56 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 20:37 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 20:53 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 20:50 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 20:55 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 21:01 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 21:08 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 21:01 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 21:10 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 20:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 21:03 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 21:05 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 21:08 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 20:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 20:57 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 20:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 20:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 21:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 20:52 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 21:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:40 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/965880851122.shtml)
-- 2026-06-29 20:41 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/1072798.shtml)
-- 2026-06-29 21:01 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/55156479.shtml)
-- 2026-06-29 20:39 - [这一刀 会很帅](https://www.share.minike.top/Article/details/69081.shtml)
-- 2026-06-29 20:43 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/17809.shtml)
-- 2026-06-29 21:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/263959270354.shtml)
-- 2026-06-29 20:42 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/82553577.shtml)
-- 2026-06-29 20:59 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/63217.shtml)
-- 2026-06-29 21:03 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/4412972066.shtml)
-- 2026-06-29 20:47 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/011250.shtml)
-- 2026-06-29 20:39 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/27507867.shtml)
-- 2026-06-29 20:58 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/20588108.shtml)
-- 2026-06-29 20:59 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/588711.shtml)
-- 2026-06-29 20:58 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/5961497.shtml)
-- 2026-06-29 20:39 - [沙丘](http://www.share.minike.top/Article/details/066294767.shtml)
+- 2026-06-29 20:52 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/6607700.shtml)
+- 2026-06-29 20:49 - [华工科技龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/90542.shtml)
+- 2026-06-29 21:09 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/677976801250.shtml)
+- 2026-06-29 21:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/00348905816.shtml)
+- 2026-06-29 21:04 - [AG 宫斗](http://www.blog.minike.top/Article/details/8688908780.shtml)
+- 2026-06-29 20:50 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/10049.shtml)
+- 2026-06-29 20:50 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/32657.shtml)
+- 2026-06-29 20:52 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/83376.shtml)
+- 2026-06-29 21:04 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/466852941084.shtml)
+- 2026-06-29 21:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/75097273961.shtml)
+- 2026-06-29 20:49 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/5743418380.shtml)
+- 2026-06-29 20:59 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/5779288954.shtml)
+- 2026-06-29 21:07 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/88121.shtml)
+- 2026-06-29 21:01 - [华工科技龙虎榜数据](http://www.share.kurohicncr.top/Article/details/67320704.shtml)
+- 2026-06-29 21:06 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/7643950.shtml)

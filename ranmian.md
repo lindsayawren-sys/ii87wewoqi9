@@ -1,56 +1,61 @@
-# 第十四届柏林 “中国杯” 围棋大赛落幕
+# 特朗普称伊核协议即将达成，伊朗方面目前尚未确认
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-中新社柏林5月10日电 (记者 马秀秀)第十四届柏林“中国杯”围棋大赛10日在柏林中国文化中心落幕。 本届赛事为期两天，参赛人数创新高，共汇聚德国、英国、法国、比利时、瑞士、荷兰、乌克兰、中国、韩国等多国68名棋手同台对弈。 参赛阵容既有资深好手，也有青年新锐，业余初段及以上高水平棋手占比近半。赛事同步启用电子棋盘全程实况直播，吸引全球众多围棋爱好者在线观赛。 比赛采用积分赛制
+美国总统当地时间周日下午接受《华尔街日报》采访时表示，他很快将发表声明，证实美国已与伊朗达成协议。特朗普透露，这份协议将由他本人或副总统万斯以电子方式签署，不过伊朗现阶段尚未确认接受该协议。此次采访结束数小时后，特朗普原定在白宫草坪观看终极格斗冠军赛（UFC）大型赛事。 有观点将这份协议定性为一份谅解备忘录，旨在为后续谈判铺路。但特朗普周日表示，该协议将成为结束这场持续近四个月
 
 ## 正文
 
-中新社柏林5月10日电 (记者 马秀秀)第十四届柏林“中国杯”围棋大赛10日在柏林中国文化中心落幕。
+美国总统当地时间周日下午接受《华尔街日报》采访时表示，他很快将发表声明，证实美国已与伊朗达成协议。
 
-本届赛事为期两天，参赛人数创新高，共汇聚德国、英国、法国、比利时、瑞士、荷兰、乌克兰、中国、韩国等多国68名棋手同台对弈。
+特朗普透露，这份协议将由他本人或副总统万斯以电子方式签署，不过伊朗现阶段尚未确认接受该协议。
 
-参赛阵容既有资深好手，也有青年新锐，业余初段及以上高水平棋手占比近半。
+此次采访结束数小时后，特朗普原定在白宫草坪观看终极格斗冠军赛（UFC）大型赛事。
 
-赛事同步启用电子棋盘全程实况直播，吸引全球众多围棋爱好者在线观赛。
+有观点将这份协议定性为一份谅解备忘录，旨在为后续谈判铺路。
 
-比赛采用积分赛制，经过多轮激烈角逐，留英中国学生李元贞勇夺桂冠。
+但特朗普周日表示，该协议将成为结束这场持续近四个月冲突的关键一步。
 
-乌克兰棋手瓦列里·克鲁舍尔尼茨基、中国选手鲍一凡分列亚、季军。
+特朗普介绍，协议内容包括伊朗承诺绝不研发核武器，以及霍尔木兹海峡立即恢复通航。
 
-德国棋手亚当·多丹、中国棋手黄尧艺分别获18岁以下青少年组、60岁以上长者组最佳成绩奖。
+对于伊朗境内核原料的清理工作，他表示并无紧迫计划，可延后推进。
 
-中国驻德国使馆文化处参赞李琦与柏林中国文化中心副主何文波、柏林围棋协会主席安德里亚斯·乌尔班一同为获奖选手颁奖。
+“等我们准备就绪，再着手处理核相关遗留问题，大概会在未来一两个月内，不必急于一时。
 
 ## 相关推荐
 
-- 2026-06-29 21:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 20:49 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 20:53 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 21:05 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 21:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 20:57 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 20:42 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 20:44 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 20:55 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 21:00 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 21:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 20:47 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 20:43 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 20:50 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 21:10 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 20:59 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 21:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 21:00 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 20:57 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 20:58 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 21:09 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 21:01 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 20:51 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 20:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 20:52 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:04 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/11755.shtml)
-- 2026-06-29 20:45 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.minike.top/Article/details/95642.shtml)
-- 2026-06-29 20:40 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/63611643844.shtml)
-- 2026-06-29 20:59 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/60819318472.shtml)
-- 2026-06-29 20:59 - [RAY评乘风2026总决赛](https://www.blog.kurohicncr.top/Article/details/91764146.shtml)
-- 2026-06-29 20:40 - [金鹰奖第二阶段投票明日开启](https://www.blog.kurohicncr.top/Article/details/893015135.shtml)
-- 2026-06-29 20:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/91044590.shtml)
-- 2026-06-29 20:58 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/66396.shtml)
-- 2026-06-29 20:56 - [普京建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/18341.shtml)
-- 2026-06-29 21:00 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/14348170.shtml)
-- 2026-06-29 20:39 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/6083103.shtml)
-- 2026-06-29 20:57 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/77377229.shtml)
-- 2026-06-29 21:05 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/3850110780.shtml)
-- 2026-06-29 20:46 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/1513474.shtml)
-- 2026-06-29 20:38 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/902438888603.shtml)
+- 2026-06-29 20:55 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/9393043873.shtml)
+- 2026-06-29 20:51 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.minike.top/Article/details/61792434.shtml)
+- 2026-06-29 20:42 - [一生一世](http://www.blog.kurohicncr.top/Article/details/3432717.shtml)
+- 2026-06-29 21:00 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/335640284185.shtml)
+- 2026-06-29 20:55 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/465988700.shtml)
+- 2026-06-29 20:43 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/425579350.shtml)
+- 2026-06-29 20:48 - [时光音乐会](http://www.share.minike.top/Article/details/8172032.shtml)
+- 2026-06-29 20:58 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/3926762375.shtml)
+- 2026-06-29 20:51 - [王安宇聪明到导演组炸了](https://www.share.minike.top/Article/details/59871934397.shtml)
+- 2026-06-29 20:44 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/2062191.shtml)
+- 2026-06-29 21:02 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/35375181.shtml)
+- 2026-06-29 21:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/3155720445.shtml)
+- 2026-06-29 20:45 - [厨房装空调还是装冷烟机](http://www.blog.minike.top/Article/details/54226194448.shtml)
+- 2026-06-29 20:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/10336.shtml)
+- 2026-06-29 21:03 - [东方风云榜](http://www.blog.minike.top/Article/details/52628394370.shtml)

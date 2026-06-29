@@ -1,61 +1,50 @@
-# 法国将对汉坦病毒密切接触者加强隔离
+# 厦门高崎国际机场口岸今年以来出入境旅客破200万人次
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-中新社巴黎5月11日电 (记者 李洋)法国总理勒科尔尼当地时间11日表示，法国将对汉坦病毒感染病例的所有密切接触者加强隔离。 勒科尔尼是当晚通过社交媒体对外通报应对汉坦病毒相关情况时作上述表态的。他表示，法国应对汉坦病毒的卫生措施是明确的，对于汉坦病毒感染病例的所有密切接触者，均应在医院环境中加强隔离，“无一例外”。他还说，此后每天将召开两次应对汉坦病毒的部际协调会议。 勒科尔
+发布时间：2026年06月15日 20:18 来源：中国新闻网 据厦门边检总站高崎边检站统计，6月15日，厦门高崎国际机场口岸今年出入境旅客量突破200万人次，同比增长6%，创同期历史新高。随着跨境商务洽谈、活动交流、旅游出行活动日益频繁，出入境外籍旅客数量显著增加。截至6月15日，今年以来经由厦门高崎国际机场出入境的外籍旅客近60万人次，同比增长超17%，免签入境的外籍旅客超
 
 ## 正文
 
-中新社巴黎5月11日电 (记者 李洋)法国总理勒科尔尼当地时间11日表示，法国将对汉坦病毒感染病例的所有密切接触者加强隔离。
+发布时间：2026年06月15日 20:18 来源：中国新闻网 据厦门边检总站高崎边检站统计，6月15日，厦门高崎国际机场口岸今年出入境旅客量突破200万人次，同比增长6%，创同期历史新高。
 
-勒科尔尼是当晚通过社交媒体对外通报应对汉坦病毒相关情况时作上述表态的。
+随着跨境商务洽谈、活动交流、旅游出行活动日益频繁，出入境外籍旅客数量显著增加。
 
-他表示，法国应对汉坦病毒的卫生措施是明确的，对于汉坦病毒感染病例的所有密切接触者，均应在医院环境中加强隔离，“无一例外”。
+截至6月15日，今年以来经由厦门高崎国际机场出入境的外籍旅客近60万人次，同比增长超17%，免签入境的外籍旅客超17万人次，同比增长超35%。
 
-他还说，此后每天将召开两次应对汉坦病毒的部际协调会议。
+目前，厦门高崎国际机场执飞国际(地区)客运航线27条，平均每周出入境客运航班500余架次。
 
-勒科尔尼简要介绍了由涉汉坦病毒疫情邮轮“洪迪厄斯”号疏散的5名法国人现况。
-
-他说，这5人仍在巴黎一家医院接受“严格隔离”；其中一位确诊感染汉坦病毒的法国人在接受重症监护，但病情稳定。
-
-其他4人的病毒检测结果仍为阴性。
-
-法国卫生部11日早些时候表示，该名由“洪迪厄斯”号疏散的法国人确诊感染汉坦病毒；她10日在返回法国的飞机上已经出现症状，10日晚已非常不适。
+(记者 李思源 视频来源 厦门边检总站高崎边检站） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 20:54 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 20:48 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 20:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 20:44 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 21:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 20:49 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 20:40 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 20:45 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 21:02 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 20:38 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 20:45 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 20:59 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 20:58 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 20:52 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 20:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 20:46 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 20:48 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 20:52 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 20:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 20:45 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 20:51 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 20:48 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 21:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 20:51 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 20:48 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:54 - [任泽平：AI浪潮刚刚开始](https://www.share.kurohicncr.top/Article/details/1298930093.shtml)
-- 2026-06-29 20:45 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/31580854.shtml)
-- 2026-06-29 20:52 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/14163.shtml)
-- 2026-06-29 20:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/076841708.shtml)
-- 2026-06-29 20:36 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/055260903.shtml)
-- 2026-06-29 20:52 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/69903749448.shtml)
-- 2026-06-29 20:45 - [普京建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/63047082881.shtml)
-- 2026-06-29 20:57 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.kurohicncr.top/Article/details/104750058346.shtml)
-- 2026-06-29 20:42 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/088746.shtml)
-- 2026-06-29 20:40 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.minike.top/Article/details/603011802.shtml)
-- 2026-06-29 20:37 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/14642149383.shtml)
-- 2026-06-29 20:37 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/160968.shtml)
-- 2026-06-29 20:43 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/3576477.shtml)
-- 2026-06-29 20:39 - [女生学医适合选什么专业](https://www.blog.minike.top/Article/details/263847803144.shtml)
-- 2026-06-29 20:49 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/55044.shtml)
+- 2026-06-29 21:06 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/2122936.shtml)
+- 2026-06-29 21:02 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/02894986.shtml)
+- 2026-06-29 20:51 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/362357.shtml)
+- 2026-06-29 20:55 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/77985.shtml)
+- 2026-06-29 21:08 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/22357954.shtml)
+- 2026-06-29 20:51 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/25010.shtml)
+- 2026-06-29 20:59 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/83168501.shtml)
+- 2026-06-29 21:03 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/0089978243.shtml)
+- 2026-06-29 21:03 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/178948235.shtml)
+- 2026-06-29 21:07 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/261119.shtml)
+- 2026-06-29 20:49 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/28985817.shtml)
+- 2026-06-29 20:49 - [委内瑞拉发生余震](http://www.share.minike.top/Article/details/627993604833.shtml)
+- 2026-06-29 20:53 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/27989989788.shtml)
+- 2026-06-29 20:47 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/214477907.shtml)
+- 2026-06-29 20:45 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/94636044.shtml)

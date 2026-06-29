@@ -1,56 +1,60 @@
-# 丹・艾夫斯预测AI行情持续发酵，纳斯达克将冲上30000点
+# 广州大学2026年本科招生7100人 新增低空技术与工程专业
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-核心要点 韦德布什证券董事总经理丹・艾夫斯周一在 CNBC《欧洲财经早间秀》节目中表示，随着科技公司财报大超预期持续提振 AI 板块人气，未来一年纳斯达克指数将攀升至 30000 点。 本轮科技企业财报季表现稳健，彻底扭转了年初市场的恐慌情绪，投资者对AI 基础设施建设前景转为全面乐观。 上周五收盘，纳斯达克综合指数报 26247.08 点，年内涨幅达 12.93%。 艾夫斯称
+中新网广州6月14日电 (记者 许青青)据广州大学14日举行的2026年本科招生新闻媒体通气会，该校今年面向全国27个省(自治区、直辖市)招生，新增黑龙江、浙江、陕西3个招生省份。本科招生计划数7100人，较2025年扩招100人，其中广东省内招生6163人。 全校开设76个本科招生专业，包括理工类专业43个，人文社科类专业23个，艺体类专业10个，理工类专业的比例继续提高，占
 
 ## 正文
 
-核心要点 韦德布什证券董事总经理丹・艾夫斯周一在 CNBC《欧洲财经早间秀》节目中表示，随着科技公司财报大超预期持续提振 AI 板块人气，未来一年纳斯达克指数将攀升至 30000 点。
+中新网广州6月14日电 (记者 许青青)据广州大学14日举行的2026年本科招生新闻媒体通气会，该校今年面向全国27个省(自治区、直辖市)招生，新增黑龙江、浙江、陕西3个招生省份。
 
-本轮科技企业财报季表现稳健，彻底扭转了年初市场的恐慌情绪，投资者对AI 基础设施建设前景转为全面乐观。
+本科招生计划数7100人，较2025年扩招100人，其中广东省内招生6163人。
 
-上周五收盘，纳斯达克综合指数报 26247.08 点，年内涨幅达 12.93%。
+全校开设76个本科招生专业，包括理工类专业43个，人文社科类专业23个，艺体类专业10个，理工类专业的比例继续提高，占招生专业计划数59%。
 
-艾夫斯称：“本轮财报完美验证了 AI 牛市逻辑。
+学校聚焦国家战略与湾区产业急需，重点布局基础学科、前沿交叉学科和新兴战略领域人才培养。
 
-目前芯片供需缺口高达 10 倍，人工智能革命仍处在早期阶段。
+今年新增新能源材料与器件、低空技术与工程两大热门专业，精准匹配新能源、低空经济两大新兴产业赛道。
 
-看空者终究会执意唱空，这一点我们早已清楚。
+同时，学校在遥感科学与技术、电气工程及其自动化、人工智能、建筑环境与能源应用工程、智能建造(港标班)、统计学(创新班)、数学与应用数学(云山拔尖班)、物理学(科学方向)(教师专项)、化学工程与工艺(创新班)等社会紧缺专业，新增招生计划数275个，持续做强优势刚需专业集群。
 
-” 以《大空头》成名的迈克尔・伯里上周五警示：股市当前对 AI 的狂热，已开始酷似互联网泡沫末期的走势。
+学校还开设27个微专业与2个辅修专业，拓宽学生跨学科学识视野。
 
-伯里写道：“如今股市涨跌早已不再看就业数据或消费者信心，股价只因一路上涨而继续冲高。
+新增了以直通湾区就业为导向的智能建造(港标班)等特色班，以及5个国际联合培养专业。
 
 ## 相关推荐
 
-- 2026-06-29 20:40 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 20:58 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 20:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 21:04 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 20:47 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 20:44 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 21:04 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 21:03 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 20:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 20:53 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 20:51 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 21:02 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 21:05 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 20:52 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 21:09 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 20:54 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 20:58 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 21:10 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 21:06 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 20:49 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 20:56 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 21:07 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 21:06 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 21:05 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:44 - [CORTIS 小牌大耍](https://www.share.kurohicncr.top/Article/details/76536.shtml)
-- 2026-06-29 20:43 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/84567715.shtml)
-- 2026-06-29 20:50 - [任泽平：AI浪潮刚刚开始](https://www.share.minike.top/Article/details/80712550.shtml)
-- 2026-06-29 21:05 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/75276145.shtml)
-- 2026-06-29 20:56 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/9677995.shtml)
-- 2026-06-29 20:38 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/405598.shtml)
-- 2026-06-29 20:45 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/078820.shtml)
-- 2026-06-29 20:44 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/0540950331.shtml)
-- 2026-06-29 20:36 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/16389289582.shtml)
-- 2026-06-29 20:54 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/475239168677.shtml)
-- 2026-06-29 20:45 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/21373740099.shtml)
-- 2026-06-29 20:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/37353843401.shtml)
-- 2026-06-29 21:05 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/7339148044.shtml)
-- 2026-06-29 20:53 - [斛珠夫人](http://www.share.minike.top/Article/details/4907871177.shtml)
-- 2026-06-29 21:05 - [法生态部长反对装空调却自己吹空调](https://www.share.kurohicncr.top/Article/details/74045269545.shtml)
+- 2026-06-29 20:53 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.blog.kurohicncr.top/Article/details/1939056171.shtml)
+- 2026-06-29 21:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/96605833.shtml)
+- 2026-06-29 20:48 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/022160993.shtml)
+- 2026-06-29 21:10 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/716348465.shtml)
+- 2026-06-29 20:54 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/49470166.shtml)
+- 2026-06-29 21:00 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/73831884.shtml)
+- 2026-06-29 20:46 - [斛珠夫人](http://www.blog.minike.top/Article/details/87599105214.shtml)
+- 2026-06-29 20:46 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/41589113074.shtml)
+- 2026-06-29 20:58 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/68266899.shtml)
+- 2026-06-29 20:48 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/44908529.shtml)
+- 2026-06-29 20:59 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/00609.shtml)
+- 2026-06-29 20:50 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/023294194090.shtml)
+- 2026-06-29 21:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/089384590.shtml)
+- 2026-06-29 21:01 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/911871597729.shtml)
+- 2026-06-29 20:52 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.kurohicncr.top/Article/details/6599020.shtml)

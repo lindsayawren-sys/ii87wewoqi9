@@ -1,58 +1,60 @@
-# 英国首相斯塔默誓言回击质疑者、稳固执政地位
+# 亚足联球队四场不败，欧洲球队该慌了？
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-英国首相基尔・斯塔默周一试图平息党内日益高涨的倒戈情绪，他誓言要证明质疑者的看法是错误的，并坚守执政地位，避免让英国陷入新一轮政治危机。 上周工党创下三十多年来执政党地方选举最差战绩后，越来越多工党议员开始反对斯塔默。一名前初级大臣甚至放话，若斯塔默不能推行大刀阔斧的改革，就将发起党首竞选挑战。 斯塔默表态称自己已接收到党内信号，他在一场情绪激昂的演讲中表示，英国历经二十年经济
+中新网北京6月15日电(刘梦青 邢翀)当地时间14日，随着日本队在美加墨世界杯首轮以2:2绝平荷兰，目前已出场的四支亚足联球队交出2胜2平，且对手全部出自欧足联，这还是亚足联球队史上首次在世界杯前四场比赛保持不败，亚足联也成为目前唯一未尝败绩的洲际足联。有数据统计，2022年之前的两届世界杯上，欧足联球队在对阵亚足联球队的15场比赛中仅输一场，即2018年小组赛末轮卫冕冠军德国
 
 ## 正文
 
-英国首相基尔・斯塔默周一试图平息党内日益高涨的倒戈情绪，他誓言要证明质疑者的看法是错误的，并坚守执政地位，避免让英国陷入新一轮政治危机。
+中新网北京6月15日电(刘梦青 邢翀)当地时间14日，随着日本队在美加墨世界杯首轮以2:2绝平荷兰，目前已出场的四支亚足联球队交出2胜2平，且对手全部出自欧足联，这还是亚足联球队史上首次在世界杯前四场比赛保持不败，亚足联也成为目前唯一未尝败绩的洲际足联。
 
-上周工党创下三十多年来执政党地方选举最差战绩后，越来越多工党议员开始反对斯塔默。
+有数据统计，2022年之前的两届世界杯上，欧足联球队在对阵亚足联球队的15场比赛中仅输一场，即2018年小组赛末轮卫冕冠军德国队0:2不敌韩国队，直接导致小组出局。
 
-一名前初级大臣甚至放话，若斯塔默不能推行大刀阔斧的改革，就将发起党首竞选挑战。
+四年前，日本队在小组赛后发制人，连续逆转击败德国和西班牙，德国队连续两届杯赛止步小组赛。
 
-斯塔默表态称自己已接收到党内信号，他在一场情绪激昂的演讲中表示，英国历经二十年经济停滞、社会矛盾不断加剧，渐进式改革已经行不通。
+如今又一个四年过去，借助扩军利好，在“亚欧交锋”中集体低迷的欧足联球队，或许是时候重新评估亚足联对手的实力了，而曾被视为世界杯“陪跑者”的亚足联球队，则有望进一步打破偏见。
 
-他在伦敦发表演讲称：“我深知民众对英国现状感到失望，对政治现状感到不满，也有部分民众对我本人感到失望。
+在与欧洲“无冕之王”荷兰队对决中，尽管两度陷入落后困境，日本队顽强扳平比分，用全场不足40%的控球率，打出了碾压对手的进攻效率。
 
-我清楚有人质疑我，也明白我必须证明他们是错的，而且我一定会做到。
+这一回，曾三度闯入世界杯决赛的荷兰队也在日本队栽了跟头。
 
-” 2024 年，斯塔默以提振经济、减少非法移民、缩短公立医疗候诊时间为竞选承诺，赢得英国现代史上议会席位优势最大的大选胜利之一。
+这场比赛让不少球迷想到了童年经典《足球小将》。
 
-然而，政策反复转向、党内部分人士认为他不愿做出艰难决策，再加上一连串政治丑闻，拖累施政进程，也让他的支持率跌至英国历任首相低位水平。
+动漫里荷兰队始终是日本队的常年对手，大空翼和加尔富特斗得天昏地暗，大比分和名场面频出。
 
 ## 相关推荐
 
-- 2026-06-29 21:02 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 20:52 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 20:58 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 21:00 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 21:05 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 20:45 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 20:46 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 20:40 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 21:01 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 20:58 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 20:59 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 20:41 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 20:48 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 20:47 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 20:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 20:44 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 20:57 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 20:45 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 20:42 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 20:52 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 21:00 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 21:09 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 20:49 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 20:57 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 20:58 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 20:50 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:05 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/4618947915.shtml)
-- 2026-06-29 20:39 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/05038.shtml)
-- 2026-06-29 21:03 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/4777142.shtml)
-- 2026-06-29 20:37 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/06496.shtml)
-- 2026-06-29 20:50 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/35103445.shtml)
-- 2026-06-29 20:39 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/2670907.shtml)
-- 2026-06-29 20:36 - [夫妻生活太无聊，所以我……](https://www.share.minike.top/Article/details/8397350983.shtml)
-- 2026-06-29 20:43 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/110441410.shtml)
-- 2026-06-29 20:54 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/02210948004.shtml)
-- 2026-06-29 21:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/2825194407.shtml)
-- 2026-06-29 20:54 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/564328.shtml)
-- 2026-06-29 20:40 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/96374378670.shtml)
-- 2026-06-29 20:59 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/4356349.shtml)
-- 2026-06-29 21:01 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/629644529910.shtml)
-- 2026-06-29 20:50 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.kurohicncr.top/Article/details/728866824777.shtml)
+- 2026-06-29 20:47 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/529450.shtml)
+- 2026-06-29 20:43 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/77325.shtml)
+- 2026-06-29 20:46 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/7409232.shtml)
+- 2026-06-29 21:08 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/378679083310.shtml)
+- 2026-06-29 20:51 - [天气热脾气都变差了](https://www.blog.minike.top/Article/details/463949669.shtml)
+- 2026-06-29 21:00 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/38955.shtml)
+- 2026-06-29 21:02 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/298935224.shtml)
+- 2026-06-29 21:04 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/0622169331.shtml)
+- 2026-06-29 20:49 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/713436842.shtml)
+- 2026-06-29 21:05 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/53667558.shtml)
+- 2026-06-29 21:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/930001075697.shtml)
+- 2026-06-29 21:00 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/637510.shtml)
+- 2026-06-29 21:10 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/397981054876.shtml)
+- 2026-06-29 21:05 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/49948.shtml)
+- 2026-06-29 20:53 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/627647693875.shtml)

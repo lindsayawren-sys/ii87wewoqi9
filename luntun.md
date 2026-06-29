@@ -1,57 +1,49 @@
-# 儿童用药新政发布：商保入局，落地仍需“闯关”
+# 塔斯尼姆通讯社：伊朗称美国承诺谈判期内不会实施任何新的制裁
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 孙诗卉 上海报道 近日，国家卫生健康委、工业和信息化部等八部门发布的《关于改革完善儿童用药供应保障机制的实施意见》提出，支持商业健康保险开发儿童保险保障产品，鼓励将创新药、罕见病用药纳入保障范围。 新政明确鼓励“商业健康保险将儿童创新药、罕见病用药纳入保障范围”，但有多位业内专家直言：面向成人的商保创新药目录当前处于“雷声大雨点小”的局面。而儿童用药的商保
+据半官方媒体塔斯尼姆通讯社援引知情人士报道，伊朗方面表示，美国已承诺在为期60天的最终协议谈判期间，不会实施任何新的制裁。 报道称，根据谅解备忘录，一旦最终协议达成，美国有义务解除针对伊朗的所有制裁，包括一级和二级制裁以及联合国安理会相关制裁。责任编辑：陈钰嘉
 
 ## 正文
 
-21世纪经济报道记者 孙诗卉 上海报道 近日，国家卫生健康委、工业和信息化部等八部门发布的《关于改革完善儿童用药供应保障机制的实施意见》提出，支持商业健康保险开发儿童保险保障产品，鼓励将创新药、罕见病用药纳入保障范围。
+据半官方媒体塔斯尼姆通讯社援引知情人士报道，伊朗方面表示，美国已承诺在为期60天的最终协议谈判期间，不会实施任何新的制裁。
 
-新政明确鼓励“商业健康保险将儿童创新药、罕见病用药纳入保障范围”，但有多位业内专家直言：面向成人的商保创新药目录当前处于“雷声大雨点小”的局面。
+报道称，根据谅解备忘录，一旦最终协议达成，美国有义务解除针对伊朗的所有制裁，包括一级和二级制裁以及联合国安理会相关制裁。
 
-而儿童用药的商保支付之路，挑战更大。
-
-要打破这一困局，需要构建连接保司、药企、医院和消费者的“基础设施”。
-
-全链条破局，首提“儿童基本药物目录” 此次《意见》的核心突破在于“系统思维”——不再是单一环节修补，而是覆盖研发、生产、采购、支付、使用的全链条设计。
-
-研发端，明确对纳入《鼓励研发申报儿童药品清单》的品种予以优先审评审批，允许滚动提交资料，早期介入、研审联动。
-
-支付端，首次鼓励商业健康保险开发儿童保险保障产品，将创新药、罕见病用药纳入保障范围。
-
-采购端，在集采中对儿童专用药与成人药分组采购，优化差比价规则，激励儿童适宜剂型供应。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 20:45 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 20:44 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 20:42 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 20:56 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 20:50 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 20:38 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 20:36 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 20:41 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 20:49 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 20:50 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 20:36 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 20:47 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 20:54 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 20:51 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 20:55 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 21:00 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 21:00 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 20:50 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 21:03 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 20:52 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 20:55 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 21:03 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 20:47 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 21:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:02 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/828910953.shtml)
-- 2026-06-29 20:59 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/7074135.shtml)
-- 2026-06-29 20:42 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/32804434725.shtml)
-- 2026-06-29 20:53 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/448849390.shtml)
-- 2026-06-29 20:57 - [不烧钱的低成本爱好](http://www.share.minike.top/Article/details/8023518543.shtml)
-- 2026-06-29 21:01 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/6981063101.shtml)
-- 2026-06-29 21:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/43350836.shtml)
-- 2026-06-29 20:47 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/69075785.shtml)
-- 2026-06-29 20:45 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/60567.shtml)
-- 2026-06-29 20:43 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/940609.shtml)
-- 2026-06-29 20:48 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/2621674625.shtml)
-- 2026-06-29 20:51 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/086701992963.shtml)
-- 2026-06-29 20:40 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/37139496169.shtml)
-- 2026-06-29 21:03 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.kurohicncr.top/Article/details/4614377019.shtml)
-- 2026-06-29 20:59 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/7144256.shtml)
+- 2026-06-29 20:49 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/17449.shtml)
+- 2026-06-29 21:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/512993.shtml)
+- 2026-06-29 20:57 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/9604217431.shtml)
+- 2026-06-29 21:04 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/7689409089.shtml)
+- 2026-06-29 20:59 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/61659539088.shtml)
+- 2026-06-29 21:05 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/84081125010.shtml)
+- 2026-06-29 21:05 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.minike.top/Article/details/3153482214.shtml)
+- 2026-06-29 21:11 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/0660946066.shtml)
+- 2026-06-29 20:58 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/5876961.shtml)
+- 2026-06-29 21:10 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/883588851.shtml)
+- 2026-06-29 20:46 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.minike.top/Article/details/598346.shtml)
+- 2026-06-29 21:02 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/58160.shtml)
+- 2026-06-29 20:56 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/016174805.shtml)
+- 2026-06-29 21:06 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/28306.shtml)
+- 2026-06-29 20:55 - [扬名立万](http://www.share.minike.top/Article/details/5264662519.shtml)

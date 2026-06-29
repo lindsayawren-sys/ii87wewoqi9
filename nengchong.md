@@ -1,50 +1,49 @@
-# 中国银行福建省分行被罚315万元：违反账户管理、数据安全管理规定等
+# 封关半年看海南：外国游客何以纷纷来打卡？
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-5月9日金融一线消息，中国人民银行福建省分行行政处罚决定信息公示表显示，中国银行股份有限公司福建省分行存在以下违法行为类型，受到警告，并被罚款315万元。 1．违反账户管理规定； 2．违反数据安全管理规定； 3．违反反假货币管理规定； 4．违反人民币流通管理规定； 5．占压财政存款或者资金； 6．违反信用信息采集、提供、查询及相关管理规定； 7．未按照规定开展客户尽职调查 陈某
+发布时间：2026年06月13日 17:02 来源：中国新闻网 海南自贸港全岛封关即将满半年。数据显示，2025年12月18日至2026年4月30日，海南进出境旅客总计116.7万，同比增长33.2%。在各大景区、街头与沙滩，“洋面孔”随处可见，海南靠什么让外国游客“真香”？(观海潮工作室） 责任编辑：【吉翔】
 
 ## 正文
 
-5月9日金融一线消息，中国人民银行福建省分行行政处罚决定信息公示表显示，中国银行股份有限公司福建省分行存在以下违法行为类型，受到警告，并被罚款315万元。
+发布时间：2026年06月13日 17:02 来源：中国新闻网 海南自贸港全岛封关即将满半年。
 
-1．违反账户管理规定； 2．违反数据安全管理规定； 3．违反反假货币管理规定； 4．违反人民币流通管理规定； 5．占压财政存款或者资金； 6．违反信用信息采集、提供、查询及相关管理规定； 7．未按照规定开展客户尽职调查 陈某（中国银行股份有限公司福建省分行金融科技部）对违反数据安全管理规定负有责任，被罚款2万元。
+数据显示，2025年12月18日至2026年4月30日，海南进出境旅客总计116.7万，同比增长33.2%。
 
-序号 当事人名称 （姓名） 行政处罚 决定书文号 违法行为类型 行政处罚内容 作出行政处罚决定机关名称 作出行政处罚 决定日期 公示期限 备注 1 中国银行股份有限公司福建省分行 闽银罚决字〔2026〕12号 1．违反账户管理规定； 2．违反数据安全管理规定； 3．违反反假货币管理规定； 4．违反人民币流通管理规定； 5．占压财政存款或者资金； 6．违反信用信息采集、提供、查询及相关管理规定； 7．未按照规定开展客户尽职调查。
+在各大景区、街头与沙滩，“洋面孔”随处可见，海南靠什么让外国游客“真香”？
 
-警告，并处罚款315万元 中国人民银行福建省分行 2026年5月6日 五年 2 陈某（中国银行股份有限公司福建省分行金融科技部） 闽银罚决字〔2026〕11号 对中国银行股份有限公司福建省分行以下违法行为负有责任：违反数据安全管理规定。
-
-罚款2万元 中国人民银行福建省分行 2026年5月6日 五年 责任编辑：曹睿潼
+(观海潮工作室） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 20:59 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 21:04 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 20:42 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 20:36 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 20:53 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 20:57 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 20:47 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 21:03 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 21:04 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 21:05 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 20:55 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 20:58 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 21:12 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 20:49 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 21:03 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 20:45 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 20:51 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 21:03 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 20:47 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 21:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 21:10 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/062174683322.shtml)
-- 2026-06-29 21:05 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/101363252.shtml)
-- 2026-06-29 20:41 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/12065.shtml)
-- 2026-06-29 20:43 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/2024066411.shtml)
-- 2026-06-29 20:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/8547456.shtml)
-- 2026-06-29 20:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/52864.shtml)
-- 2026-06-29 20:45 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/9651219.shtml)
-- 2026-06-29 21:02 - [网约车出事故平台拒赔称只是中介](https://www.share.kurohicncr.top/Article/details/31022371.shtml)
-- 2026-06-29 20:52 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/453835.shtml)
-- 2026-06-29 20:53 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/00073013.shtml)
-- 2026-06-29 20:38 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/95331700.shtml)
-- 2026-06-29 20:44 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/54628623.shtml)
-- 2026-06-29 20:54 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/34307026960.shtml)
-- 2026-06-29 20:55 - [多人将马路护栏当球网打羽毛球](https://www.share.minike.top/Article/details/7087498959.shtml)
-- 2026-06-29 20:44 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/76764371.shtml)
+- 2026-06-29 21:09 - [宜宾地震已转移安置225人](http://www.share.kurohicncr.top/Article/details/216051738077.shtml)
+- 2026-06-29 20:51 - [流金岁月](http://www.share.minike.top/Article/details/2071548564.shtml)
+- 2026-06-29 20:42 - [周杰伦演唱会含星量](http://www.share.minike.top/Article/details/99255737463.shtml)
+- 2026-06-29 21:08 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/081302444.shtml)
+- 2026-06-29 20:56 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/61814.shtml)
+- 2026-06-29 20:47 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/375873274.shtml)
+- 2026-06-29 20:54 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/17064.shtml)
+- 2026-06-29 21:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/66245252456.shtml)
+- 2026-06-29 20:50 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/43057822163.shtml)
+- 2026-06-29 20:51 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/2344787855.shtml)
+- 2026-06-29 21:06 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/609964.shtml)
+- 2026-06-29 20:50 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/71630.shtml)
+- 2026-06-29 20:51 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/115124.shtml)
+- 2026-06-29 20:48 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/52946.shtml)
+- 2026-06-29 20:56 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/224062902412.shtml)

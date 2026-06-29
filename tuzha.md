@@ -1,46 +1,57 @@
-# 华宝基金红利风向标：市场风险偏好较高，小盘策略再占优
+# 中方：将同各成员国一道将上合组织打造成共同发展繁荣的可靠依托
 
-> 更新时间：2026-06-29 21:06:03 UTC+8
+> 更新时间：2026-06-29 21:12:03 UTC+8
 
 ## 摘要
 
-责任编辑：周守来
+中新网北京6月15日电 (记者 曾玥 李京泽)中国外交部发言人林剑15日主持例行记者会。 有记者提问：今天是上海合作组织成立25周年。中方如何评价上合组织发展成就？中方为组织发展作出哪些突出贡献？ 林剑：2001年6月15日，上海合作组织成立。经过25年发展，上合组织已成为世界上幅员最广、人口最多、发展潜力巨大的综合性区域合作组织。25年来，上合组织成员国始终秉持“上海精神”，
 
 ## 正文
 
-责任编辑：周守来
+中新网北京6月15日电 (记者 曾玥 李京泽)中国外交部发言人林剑15日主持例行记者会。
+
+有记者提问：今天是上海合作组织成立25周年。
+
+中方如何评价上合组织发展成就？
+
+中方为组织发展作出哪些突出贡献？
+
+林剑：2001年6月15日，上海合作组织成立。
+
+经过25年发展，上合组织已成为世界上幅员最广、人口最多、发展潜力巨大的综合性区域合作组织。
+
+25年来，上合组织成员国始终秉持“上海精神”，坚持团结协作，不断深化政治、安全、经济、人文领域合作，打造和巩固本地区安全屏障、合作桥梁、友好纽带，成功探索出一条新型区域合作的道路，树立了新型国际关系典范。
+
+中国将上合组织视作周边外交优先方向。
 
 ## 相关推荐
 
-- 2026-06-29 20:47 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 20:50 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 21:02 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 20:40 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 20:45 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 20:40 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 20:48 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 21:04 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 20:47 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 20:49 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 20:57 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 21:01 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 20:40 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 20:49 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 20:43 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 20:58 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 20:54 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 20:58 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 20:45 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 20:46 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 20:46 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 20:52 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 21:03 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 20:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 21:03 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:59 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/729447473.shtml)
-- 2026-06-29 21:02 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/7567985168.shtml)
-- 2026-06-29 20:50 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/9665010.shtml)
-- 2026-06-29 20:47 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/589262.shtml)
-- 2026-06-29 20:42 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/38940929364.shtml)
-- 2026-06-29 20:43 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/914783726228.shtml)
-- 2026-06-29 20:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/90600312.shtml)
-- 2026-06-29 21:00 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/10123848.shtml)
-- 2026-06-29 21:04 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/520792.shtml)
-- 2026-06-29 20:44 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/26542941579.shtml)
-- 2026-06-29 20:38 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/597637340.shtml)
-- 2026-06-29 21:01 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/1027751819.shtml)
-- 2026-06-29 20:49 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/910949.shtml)
-- 2026-06-29 20:38 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/57779797.shtml)
-- 2026-06-29 20:44 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/77333.shtml)
+- 2026-06-29 20:56 - [天气热脾气都变差了](http://www.blog.minike.top/Article/details/83605.shtml)
+- 2026-06-29 21:07 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.kurohicncr.top/Article/details/6900972.shtml)
+- 2026-06-29 20:46 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/850274939.shtml)
+- 2026-06-29 20:45 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/6191712.shtml)
+- 2026-06-29 20:57 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/35818291.shtml)
+- 2026-06-29 20:50 - [TTG KSG](https://www.share.minike.top/Article/details/78791244.shtml)
+- 2026-06-29 20:59 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/67705604664.shtml)
+- 2026-06-29 21:01 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/869030508.shtml)
+- 2026-06-29 21:04 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/71687.shtml)
+- 2026-06-29 20:51 - [青春环游记第三季](http://www.blog.minike.top/Article/details/10272459.shtml)
+- 2026-06-29 20:52 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/839523397961.shtml)
+- 2026-06-29 21:10 - [网约车出事故平台拒赔称只是中介](http://www.share.minike.top/Article/details/0913323.shtml)
+- 2026-06-29 20:44 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/6337603.shtml)
+- 2026-06-29 20:55 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/97813.shtml)
+- 2026-06-29 20:48 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/7500590.shtml)
