@@ -1,61 +1,57 @@
-# 坚持民生为大 推进学习教育走深走实
+# Tradeweb五月总交易量达62.3万亿美元 日均交易量同比增长18.3%
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-【树立和践行正确政绩观】坚持民生为大 推进学习教育走深走实 央视网消息(新闻联播)：树立和践行正确政绩观学习教育开展以来，重庆渝中、广东梅州一体推进学查改，着力解决群众急难愁盼，切实将学习教育成果转化为工作实效。 重庆市渝中区坚持开门教育，组织党员干部深入基层调研，广泛听取、收集群众意见建议。虎山路西段位于渝中区和九龙坡区交界处，由于行政区划壁垒等原因，过去这里一直没有设立公交
+全球电子交易平台运营商Tradeweb Markets Inc．近日公布2026年5月交易业绩，当月总交易量达到62.3万亿美元，日均交易量为3.0万亿美元，同比增长18.3%。 在利率产品方面，美国政府债券日均交易量同比增长19.8%至2827亿美元，欧洲政府债券日均交易量同比增长26.3%至639亿美元。机构交易和批发业务的强劲表现是增长的主要驱动力，其中机构交易量创下历史
 
 ## 正文
 
-【树立和践行正确政绩观】坚持民生为大 推进学习教育走深走实 央视网消息(新闻联播)：树立和践行正确政绩观学习教育开展以来，重庆渝中、广东梅州一体推进学查改，着力解决群众急难愁盼，切实将学习教育成果转化为工作实效。
+全球电子交易平台运营商Tradeweb Markets Inc．近日公布2026年5月交易业绩，当月总交易量达到62.3万亿美元，日均交易量为3.0万亿美元，同比增长18.3%。
 
-重庆市渝中区坚持开门教育，组织党员干部深入基层调研，广泛听取、收集群众意见建议。
+在利率产品方面，美国政府债券日均交易量同比增长19.8%至2827亿美元，欧洲政府债券日均交易量同比增长26.3%至639亿美元。
 
-虎山路西段位于渝中区和九龙坡区交界处，由于行政区划壁垒等原因，过去这里一直没有设立公交车站。
+机构交易和批发业务的强劲表现是增长的主要驱动力，其中机构交易量创下历史第二高单月纪录。
 
-但是，随着附近小区规模的不断扩大，再加上去年下半年这里新建了一所学校，所以，大家对于乘坐公共交通出行的需求更加迫切。
+抵押贷款相关产品日均交易量为2575亿美元，同比增长11.8%。
 
-针对这个问题，由渝中区牵头，组织交通、公安、规划等部门和街道，协同九龙坡区勘查论证，通过在虎山路西段双侧增设公交车站、增开新的公交线路、进一步优化原有公交线路等措施，方便群众出行。
+待公布交易活动增长主要来自政府资助企业、原始机构账户以及对冲基金的交易增加。
 
-学习教育开展以来，重庆渝中处级以上领导班子对照查摆问题771条，逐一进行整改。
+在利率衍生品领域，一年期及以上利率互换及互换期权日均交易量同比增长23.8%至6092亿美元，利率衍生品总日均交易量增长26.6%至1.1万亿美元。
 
-广东省梅州市一体推进学查改，针对群众反映需线下办理的政务服务“上班没空办、下班没处办”等痛点堵点，优化办事流程、拓展线上办理事项，对驾驶证换领补办、首办身份证等需现场办理的高频事项，实行“延时+错时”服务。
+报告指出，全球通胀前景不确定性、主要央行政策预期变化以及地缘政治发展推动了风险交易活动增加。
 
-工作日试点推出午间服务窗口，周末有需求可以网上预约开放对应窗口，保障群众在非工作时段也能顺利办事。
+信用产品方面，全电子化美国信用产品日均交易量同比增长20.4%至100亿美元，欧洲信用产品日均交易量增长25.5%至30亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 06:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 06:52 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 06:58 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 06:54 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 06:38 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 06:41 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 06:48 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-30 06:51 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 06:49 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 06:45 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 06:54 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 06:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 07:04 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-30 06:40 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 06:42 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 06:58 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 07:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 07:07 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 07:07 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 07:02 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 06:49 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 06:48 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 06:55 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 06:44 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 06:44 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:43 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/613530.shtml)
-- 2026-06-30 06:46 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/7617458.shtml)
-- 2026-06-30 07:03 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/6198319304.shtml)
-- 2026-06-30 06:59 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/4342393.shtml)
-- 2026-06-30 06:57 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/68135705.shtml)
-- 2026-06-30 06:56 - [青春环游记第三季](https://www.blog.minike.top/Article/details/653217606.shtml)
-- 2026-06-30 06:36 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/166255194.shtml)
-- 2026-06-30 07:01 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/012909.shtml)
-- 2026-06-30 06:57 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/70919334.shtml)
-- 2026-06-30 06:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/84790451.shtml)
-- 2026-06-30 06:47 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/11535651.shtml)
-- 2026-06-30 06:52 - [点菜也要教吗](http://www.share.minike.top/Article/details/0910274.shtml)
-- 2026-06-30 06:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/1561783464.shtml)
-- 2026-06-30 06:42 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/7622693203.shtml)
-- 2026-06-30 06:38 - [巴西绝杀日本](https://www.share.minike.top/Article/details/303335074711.shtml)
+- 2026-06-30 07:11 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/583350.shtml)
+- 2026-06-30 06:56 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/00591629662.shtml)
+- 2026-06-30 07:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/41077657837.shtml)
+- 2026-06-30 06:47 - [恋与深空回应争议](http://www.share.minike.top/Article/details/47346271534.shtml)
+- 2026-06-30 06:45 - [起风了](http://www.blog.minike.top/Article/details/47329339.shtml)
+- 2026-06-30 07:09 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/82339935764.shtml)
+- 2026-06-30 06:55 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.minike.top/Article/details/58760.shtml)
+- 2026-06-30 06:49 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/2326712315.shtml)
+- 2026-06-30 07:09 - [第一炉香](https://www.blog.minike.top/Article/details/5732042.shtml)
+- 2026-06-30 06:55 - [千与千寻](https://www.blog.minike.top/Article/details/18601.shtml)
+- 2026-06-30 07:01 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/92298.shtml)
+- 2026-06-30 06:49 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/137255768128.shtml)
+- 2026-06-30 06:55 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/838357518939.shtml)
+- 2026-06-30 07:03 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/7627673632.shtml)
+- 2026-06-30 07:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/63321.shtml)

@@ -1,44 +1,61 @@
-# 国际移民组织表示海地暴力升级致150万人流离失所
+# 通伦北京参访：重温党校岁月，展望合作新程
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月06日 13:13 来源：央视新闻 责任编辑：【王祎】
+中新社北京6月4日电 题：通伦北京参访：重温党校岁月，展望合作新程 中新社记者 “您还记得当年吗？”“记得，感谢你们为我传授知识。” 4日下午，正在对华进行国事访问的老挝人革党中央总书记、国家主席通伦参访中共中央党校(国家行政学院)。他曾于2000年在这里交流学习一个月。此次参访时，通伦专门与三位曾教过自己的老师握手寒暄。 中共中央党校是中国共产党的最高学府，也是治国理政对外交
 
 ## 正文
 
-发布时间：2026年06月06日 13:13 来源：央视新闻 责任编辑：【王祎】
+中新社北京6月4日电 题：通伦北京参访：重温党校岁月，展望合作新程 中新社记者 “您还记得当年吗？
+
+”“记得，感谢你们为我传授知识。
+
+” 4日下午，正在对华进行国事访问的老挝人革党中央总书记、国家主席通伦参访中共中央党校(国家行政学院)。
+
+他曾于2000年在这里交流学习一个月。
+
+此次参访时，通伦专门与三位曾教过自己的老师握手寒暄。
+
+中共中央党校是中国共产党的最高学府，也是治国理政对外交流合作的重要平台。
+
+通伦此次专程参观了之前住过的宿舍，他说26年只是眨眼之间，“如果下次有机会再来的话，我想继续住这里”。
+
+在与老方学员见面交流时，通伦说，在中共中央党校的学习为老挝干部领导国家发展事业打下重要基础，在此培训过的干部后续会成长为能力过硬、掌握党和政府发展路线的优秀干部，并且不断作出重要贡献。
 
 ## 相关推荐
 
-- 2026-06-30 06:45 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 06:59 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 06:36 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 06:36 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 06:51 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 06:48 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 06:58 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 06:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 06:48 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 06:52 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 06:41 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 06:37 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 06:50 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 06:56 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 06:55 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 06:45 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-30 07:07 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 07:08 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 07:08 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 07:00 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 07:00 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 06:42 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 06:45 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 06:54 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 06:56 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 06:52 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 06:53 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:57 - [美股](http://www.share.minike.top/Article/details/89758374.shtml)
-- 2026-06-30 07:05 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/93879.shtml)
-- 2026-06-30 06:58 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/83719963457.shtml)
-- 2026-06-30 06:44 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/6733847078.shtml)
-- 2026-06-30 06:59 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/33941204.shtml)
-- 2026-06-30 06:53 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/497443088.shtml)
-- 2026-06-30 06:56 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/804348.shtml)
-- 2026-06-30 06:54 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/974189640785.shtml)
-- 2026-06-30 06:55 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/3169136873.shtml)
-- 2026-06-30 06:51 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/34124336.shtml)
-- 2026-06-30 06:59 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/8773343811.shtml)
-- 2026-06-30 06:46 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/3350811833.shtml)
-- 2026-06-30 06:57 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/1373469.shtml)
-- 2026-06-30 06:50 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/87547855616.shtml)
-- 2026-06-30 06:53 - [起风了](http://www.blog.kurohicncr.top/Article/details/9931221.shtml)
+- 2026-06-30 06:57 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/98476.shtml)
+- 2026-06-30 06:42 - [小娘惹](https://www.share.kurohicncr.top/Article/details/08429.shtml)
+- 2026-06-30 06:52 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/3753161.shtml)
+- 2026-06-30 06:58 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/24207.shtml)
+- 2026-06-30 06:45 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/282570569.shtml)
+- 2026-06-30 06:52 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/49299258.shtml)
+- 2026-06-30 07:09 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/62476481.shtml)
+- 2026-06-30 06:42 - [一生一世](https://www.share.minike.top/Article/details/28285068.shtml)
+- 2026-06-30 07:00 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/65287455546.shtml)
+- 2026-06-30 07:03 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/70320.shtml)
+- 2026-06-30 06:49 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/2887585919.shtml)
+- 2026-06-30 06:51 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/43922629569.shtml)
+- 2026-06-30 06:59 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/27124331.shtml)
+- 2026-06-30 07:06 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/578618.shtml)
+- 2026-06-30 07:05 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/78844.shtml)

@@ -1,44 +1,58 @@
-# 6月5日央行开展2150亿元7天期逆回购操作
+# 比特币跌至2月以来最低水平，投资者将更多资金投向股市
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-中新网6月5日电 据央行网站消息，2026年6月5日中国人民银行以固定利率、数量招标方式开展了2150亿元7天期逆回购操作，全额满足了一级交易商需求。具体情况如下：
+比特币价格周三跌至2月以来的最低水平，其他资产类别继续吸引投资者抛售加密货币。 北京时间周三上午，比特币一度跌至65385美元，跌幅达2.3%。此前，标普500指数和纳斯达克100指数周二均创下历史新高。亚洲股市周三普遍上涨，日经225指数盘中创下历史新高。 QCP交易部门表示：“更广泛的问题是流动性轮动。随着股票市场持续跑赢加密货币，加密货币正面临资金竞争，无论是加密货币原生
 
 ## 正文
 
-中新网6月5日电 据央行网站消息，2026年6月5日中国人民银行以固定利率、数量招标方式开展了2150亿元7天期逆回购操作，全额满足了一级交易商需求。
+比特币价格周三跌至2月以来的最低水平，其他资产类别继续吸引投资者抛售加密货币。
 
-具体情况如下：
+北京时间周三上午，比特币一度跌至65385美元，跌幅达2.3%。
+
+此前，标普500指数和纳斯达克100指数周二均创下历史新高。
+
+亚洲股市周三普遍上涨，日经225指数盘中创下历史新高。
+
+QCP交易部门表示：“更广泛的问题是流动性轮动。
+
+随着股票市场持续跑赢加密货币，加密货币正面临资金竞争，无论是加密货币原生投资者还是传统资产管理公司，都被更强劲的股票投资前景所吸引。
+
+” QCP表示，投资者可能正在释放比特币的流动性，以寻求在私募市场或SpaceX、OpenAI和Anthropic等公司的首次公开募股（IPO）机会。
+
+尤其是IPO，更是今年最受瞩目的市场事件之一。
 
 ## 相关推荐
 
-- 2026-06-30 06:48 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 06:59 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 06:49 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 06:40 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 07:00 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 06:47 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 06:50 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 06:40 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 06:59 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 06:52 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 07:05 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 06:45 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 06:43 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 07:07 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 06:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 07:07 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 06:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 06:56 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 06:51 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 07:08 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 06:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 07:06 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:36 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/776532867388.shtml)
-- 2026-06-30 06:55 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/84010.shtml)
-- 2026-06-30 06:56 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/928148.shtml)
-- 2026-06-30 06:51 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/33274108788.shtml)
-- 2026-06-30 06:44 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/27398020111.shtml)
-- 2026-06-30 06:55 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/61389.shtml)
-- 2026-06-30 07:01 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/190718420.shtml)
-- 2026-06-30 06:44 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/114793315611.shtml)
-- 2026-06-30 06:36 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/30405708064.shtml)
-- 2026-06-30 06:39 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/34619139.shtml)
-- 2026-06-30 06:37 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/9805024701.shtml)
-- 2026-06-30 06:43 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/78326.shtml)
-- 2026-06-30 06:59 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/4175221.shtml)
-- 2026-06-30 06:37 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/106657157.shtml)
-- 2026-06-30 06:44 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/26741665613.shtml)
+- 2026-06-30 06:51 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/0725363.shtml)
+- 2026-06-30 06:43 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/651474324332.shtml)
+- 2026-06-30 06:57 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/33679039756.shtml)
+- 2026-06-30 07:11 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/609502573.shtml)
+- 2026-06-30 07:05 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/269395905855.shtml)
+- 2026-06-30 06:50 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/606066027500.shtml)
+- 2026-06-30 06:45 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/0804738.shtml)
+- 2026-06-30 06:44 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/030191665.shtml)
+- 2026-06-30 07:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/284352001172.shtml)
+- 2026-06-30 06:58 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/08443.shtml)
+- 2026-06-30 06:58 - [周冬雨多次说演不了话剧文城](https://www.blog.minike.top/Article/details/233052910949.shtml)
+- 2026-06-30 07:03 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/8683123.shtml)
+- 2026-06-30 07:08 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/9761579.shtml)
+- 2026-06-30 06:42 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/294157058.shtml)
+- 2026-06-30 07:05 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/797338465248.shtml)

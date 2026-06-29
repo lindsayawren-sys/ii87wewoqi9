@@ -1,59 +1,59 @@
-# 长江有色：多头锁定获利叠加中东风险未消除 5日锌价或下跌
+# “中国经验”正在为全球妇女事业发展注入确定性力量
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 【ccmn.cn摘要】多头锁定获利叠加中东风险未消除，隔夜伦锌收跌0.24%；锌下游淡季消费一般，刚需采购谨慎观望，镀锌开工率下滑拖累，今现锌或下跌。 【ccmn.cn锌期货市场】隔夜伦锌偏弱震荡，尾盘跌势逐步收窄，开盘报3598美元/吨，高点报3607.5美元，低点报3568美元，尾盘收于3595美元，跌9美元，跌幅0.24%；成交量9306手减少475手，持
+专题：SWCC首届女性CEO大会 2026年5月31日，上海市工商联女企业家联合会第一届第一次会员大会在上海举行。世界妇女组织总干事安格拉·罗应邀出席大会并发表致辞。她代表世界妇女组织，对上海市工商联女企业家联合会的成立表示热烈祝贺，并向中国女性企业家在商业领域展现出的智慧、韧性与责任担当致以崇高敬意。 安格拉·罗的致辞是从全球视角出发，对新中国成立以来特别是改革开放以来中国妇
 
 ## 正文
 
-长江有色金属网 【ccmn.cn摘要】多头锁定获利叠加中东风险未消除，隔夜伦锌收跌0.24%；锌下游淡季消费一般，刚需采购谨慎观望，镀锌开工率下滑拖累，今现锌或下跌。
+专题：SWCC首届女性CEO大会 2026年5月31日，上海市工商联女企业家联合会第一届第一次会员大会在上海举行。
 
-【ccmn.cn锌期货市场】隔夜伦锌偏弱震荡，尾盘跌势逐步收窄，开盘报3598美元/吨，高点报3607.5美元，低点报3568美元，尾盘收于3595美元，跌9美元，跌幅0.24%；成交量9306手减少475手，持仓量231013手增加434手。
+世界妇女组织总干事安格拉·罗应邀出席大会并发表致辞。
 
-晚间沪锌低开后窄幅震荡，主力2607合约最新收盘价报24915元/吨，跌85元，跌幅0.34%。
+她代表世界妇女组织，对上海市工商联女企业家联合会的成立表示热烈祝贺，并向中国女性企业家在商业领域展现出的智慧、韧性与责任担当致以崇高敬意。
 
-长江锌业网（pb.ccmn.cn）今日现货锌价行情预估： 宏观层面，伊朗支持的真主党民兵组织拒绝黎巴嫩新停火协议，且以色列拒绝从黎南部撤军，导致特朗普推动中东和平的努力受挫。
+安格拉·罗的致辞是从全球视角出发，对新中国成立以来特别是改革开放以来中国妇女全面发展成就的高度评价。
 
-这一地缘局势的反复令锌市多头情绪降温，市场焦点随之转向即将公布的美国5月非农就业报告。
+安格拉·罗表示，三十一年前，《北京宣言》和《行动纲领》响彻世界，开启了全球性别平等与妇女发展的新纪元。
 
-产业基本面方面，供应端持续偏紧。
+今天，站在上海这座中国改革开放的前沿高地，她看到了《北京宣言》精神在新时代中国的生动实践。
 
-国内锌精矿加工费（TC）加速下探至300-800元/金属吨的历史低位；北方矿山季节性复产增量有限，叠加安全事件制约出货，矿端紧缺格局延续。
+她指出，“她力量”已经成为推动经济高质量发展不可或缺的重要动力，中国女性不仅在创造物质财富，更在重塑商业文明，展现出“尚善而立，向美而行，向新而生”的精神风貌。
 
-尽管高企的硫酸价格对冶炼利润形成一定对冲，但原料短缺仍迫使部分冶炼厂安排检修，整体供应压力边际减弱。
+作为长期推动全球性别平等、妇女赋权与可持续发展的国际组织代表，安格拉·罗在致辞中特别强调，中国妇女事业的发展成就令世界瞩目。
 
 ## 相关推荐
 
-- 2026-06-30 06:42 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 06:38 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 06:46 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 06:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 06:45 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 06:59 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 07:05 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 07:01 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 06:55 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 06:51 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 06:53 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-30 06:37 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 06:56 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 07:01 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 06:58 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 06:53 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 06:53 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 07:06 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 06:46 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 06:54 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 07:00 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 06:54 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 07:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 07:01 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 07:08 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 06:49 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:01 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/3526795437.shtml)
-- 2026-06-30 06:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/06726202.shtml)
-- 2026-06-30 07:00 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/14239.shtml)
-- 2026-06-30 06:58 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/173977.shtml)
-- 2026-06-30 06:57 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/75455172.shtml)
-- 2026-06-30 06:46 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/0600815.shtml)
-- 2026-06-30 06:40 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/979739319.shtml)
-- 2026-06-30 07:05 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/0332776.shtml)
-- 2026-06-30 06:40 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/330306176655.shtml)
-- 2026-06-30 06:50 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/122688974999.shtml)
-- 2026-06-30 06:38 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/7735032822.shtml)
-- 2026-06-30 06:53 - [三星投资计划](https://www.share.kurohicncr.top/Article/details/1511393.shtml)
-- 2026-06-30 06:45 - [一生一世](https://www.share.minike.top/Article/details/07527.shtml)
-- 2026-06-30 06:58 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/97741944.shtml)
-- 2026-06-30 06:53 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/899469.shtml)
+- 2026-06-30 06:42 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/13605150.shtml)
+- 2026-06-30 06:49 - [一见倾心](https://www.blog.minike.top/Article/details/556025.shtml)
+- 2026-06-30 06:44 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/294497790336.shtml)
+- 2026-06-30 07:02 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/41156.shtml)
+- 2026-06-30 06:52 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/657914157399.shtml)
+- 2026-06-30 06:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/60980980.shtml)
+- 2026-06-30 07:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/140181978297.shtml)
+- 2026-06-30 06:56 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/5758766.shtml)
+- 2026-06-30 07:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/54773506.shtml)
+- 2026-06-30 06:51 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/70813260.shtml)
+- 2026-06-30 07:01 - [美股](http://www.blog.minike.top/Article/details/3367026909.shtml)
+- 2026-06-30 06:56 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/073639.shtml)
+- 2026-06-30 07:11 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/12981882460.shtml)
+- 2026-06-30 07:10 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/565915381.shtml)
+- 2026-06-30 06:42 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/7692176.shtml)

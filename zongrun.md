@@ -1,59 +1,46 @@
-# 溢价率超150%刷新纪录 保利置业57.72亿元落子深圳南山
+# 2026年美加墨世界杯进入开赛倒计时 国际转播中心正式启用
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-深圳土地市场再现现象级成交。6月5日，深圳市南山区粤海街道一宗住宅用地成功出让。经过291轮竞价，保利置业集团有限公司(以下简称“保利置业”)以57.72亿元总价竞得该地块，溢价率150.74%，成交楼面价约10.86万元/平方米，刷新深圳涉宅用地楼面单价历史纪录，成为深圳新的“单价地王”。此次竞拍吸引保利置业、华润置地有限公司、招商局蛇口工业区控股股份有限公司等6家头部房企参
+发布时间：2026年06月03日 13:13 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-深圳土地市场再现现象级成交。
-
-6月5日，深圳市南山区粤海街道一宗住宅用地成功出让。
-
-经过291轮竞价，保利置业集团有限公司(以下简称“保利置业”)以57.72亿元总价竞得该地块，溢价率150.74%，成交楼面价约10.86万元/平方米，刷新深圳涉宅用地楼面单价历史纪录，成为深圳新的“单价地王”。
-
-此次竞拍吸引保利置业、华润置地有限公司、招商局蛇口工业区控股股份有限公司等6家头部房企参与。
-
-地块起始价23.02亿元，最终成交总价较起始价增加34.7亿元，成为今年以来全国土地市场最受关注的交易之一。
-
-资料显示，该宗地位于南山区粤海街道科技园南区，紧邻百度大厦、深圳软件产业基地等产业载体，规划住宅面积49000平方米、可售商业1500平方米，容积率严控2.9、建筑限高100米，是科技园近十年来首度公开出让的低密度纯居住用地。
-
-中指研究院深圳分院高级分析师孙红梅向《证券日报》记者表示，该地块兼具粤海科创产业资源与优质教育、商业、医疗配套优势，土地资源极为稀缺。
-
-此次成交不仅刷新深圳住宅用地楼面价纪录，也反映出房企对于核心城区优质资产的争夺仍然激烈。
+发布时间：2026年06月03日 13:13 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:45 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 06:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 06:41 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 06:37 - [巴西扳平比分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 06:36 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 06:37 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 06:48 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 07:01 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 06:36 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 06:51 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 06:51 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 06:57 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 06:53 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 07:06 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 07:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 07:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 07:07 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 07:04 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 07:02 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 06:51 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 07:04 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 06:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 07:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 06:55 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 07:08 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 06:52 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 07:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:37 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/755767481.shtml)
-- 2026-06-30 06:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/334939041.shtml)
-- 2026-06-30 06:50 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/534589502678.shtml)
-- 2026-06-30 06:49 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/36334690482.shtml)
-- 2026-06-30 07:01 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/57001481734.shtml)
-- 2026-06-30 06:48 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/54729350379.shtml)
-- 2026-06-30 06:58 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/079438996443.shtml)
-- 2026-06-30 07:04 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/01555058277.shtml)
-- 2026-06-30 06:47 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/387045280.shtml)
-- 2026-06-30 06:51 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/787569205910.shtml)
-- 2026-06-30 06:36 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/9083756.shtml)
-- 2026-06-30 06:51 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/479667358539.shtml)
-- 2026-06-30 06:45 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/854457085211.shtml)
-- 2026-06-30 06:52 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/8639647.shtml)
-- 2026-06-30 07:05 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/6924005757.shtml)
+- 2026-06-30 07:07 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/82080102254.shtml)
+- 2026-06-30 06:42 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/525197309024.shtml)
+- 2026-06-30 06:49 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/128543.shtml)
+- 2026-06-30 07:03 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/90422540968.shtml)
+- 2026-06-30 07:08 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/565133798316.shtml)
+- 2026-06-30 06:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/4876986201.shtml)
+- 2026-06-30 06:49 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/406673982.shtml)
+- 2026-06-30 07:05 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/35019287626.shtml)
+- 2026-06-30 06:42 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/556802.shtml)
+- 2026-06-30 06:57 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/586774.shtml)
+- 2026-06-30 06:42 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/3047185.shtml)
+- 2026-06-30 07:11 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/691368975.shtml)
+- 2026-06-30 06:50 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/8262554540.shtml)
+- 2026-06-30 07:04 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/08379270957.shtml)
+- 2026-06-30 06:47 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/7900194.shtml)

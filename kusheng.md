@@ -1,59 +1,58 @@
-# 从“暖心菜园”到“富民产业” 山西晋中一村庄铺就安居与富民双赢路
+# 新加坡航空计划增购至少50架远程宽体客机
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-中新网晋中6月5日电 题：从“暖心菜园”到“富民产业” 山西晋中一村庄铺就安居与富民双赢路 作者 高雨晴 冯静宁 焦玉虎 在山西晋中太谷区阳邑乡窑子头村的小区楼前，放眼望去，地块间，各类菜苗青翠繁茂、长势正好，一块块菜地端头标注着户主姓名与地块编号，这片充满烟火气息的园地，正是当地用心打造的“暖心菜园”。 今年以来，窑子头村“两委”为办好民生微实事，投资2500多元，在村小区前
+航空业界知情人士4日透露，新加坡航空公司（SIA）目前正与欧洲空中客车公司及美国波音公司进行初步谈判，计划采购至少50架大型远程宽体客机。此举旨在为该公司下一个十年的业务增长及机队升级进行战略铺垫。 消息称，新航此次意向采购的车型聚焦于行业内体量最大的远程主力客机，具体包括波音公司拥有约400个座位的波音777X系列客机，以及空客公司体量稍小的空客A350-1000型客机。据悉
 
 ## 正文
 
-中新网晋中6月5日电 题：从“暖心菜园”到“富民产业” 山西晋中一村庄铺就安居与富民双赢路 作者 高雨晴 冯静宁 焦玉虎 在山西晋中太谷区阳邑乡窑子头村的小区楼前，放眼望去，地块间，各类菜苗青翠繁茂、长势正好，一块块菜地端头标注着户主姓名与地块编号，这片充满烟火气息的园地，正是当地用心打造的“暖心菜园”。
+航空业界知情人士4日透露，新加坡航空公司（SIA）目前正与欧洲空中客车公司及美国波音公司进行初步谈判，计划采购至少50架大型远程宽体客机。
 
-今年以来，窑子头村“两委”为办好民生微实事，投资2500多元，在村小区前东侧租赁了四亩农田，并配套滴灌等设施，免费为50户住户提供每户面积约25平方米的土地，让住户闲暇之余种植蔬菜，重拾农耕情怀。
+此举旨在为该公司下一个十年的业务增长及机队升级进行战略铺垫。
 
-窑子头村党支部书记石建军介绍，该小区住户都是2018年从窑子头村整体易地搬迁而来。
+消息称，新航此次意向采购的车型聚焦于行业内体量最大的远程主力客机，具体包括波音公司拥有约400个座位的波音777X系列客机，以及空客公司体量稍小的空客A350-1000型客机。
 
-“村民住进楼房后，居住条件是好了，但由于这些住户里高龄老人基数较大，他们常年深耕农田，习惯农耕生活，搬入楼房后，难以适应楼房相对封闭的生活模式。
+据悉，目前的谈判仍处于早期阶段，但最终签署的协议可能还会包含数十架意向选购权订单。
 
-” 该村通过细微的民生举措，将“小菜园”变成民众的“暖心菜园”，不仅留住了乡土烟火气，还守护了民众的幸福感。
+作为全球远程宽体客机的主要采购商之一，新加坡航空的机队规划动向历来对全球航空业的采购决策具有风向标意义。
 
-“我们根据自身喜好，自主播种各类时令瓜果蔬菜。
+尽管当前国际油价高企导致部分同行削减航班规模，但新航在上月明确表示，将继续稳步扩大运力。
 
-闲暇之余，松土播种、打理菜园，既能活动筋骨、强健体魄，丰富日常休闲生活，重拾农耕情怀，自给自足的新鲜蔬菜也能有效减轻家庭日常开支，一举多得。
+新航也是波音777系列的长期运营商，并较早订购了目前遭遇交付延期的波音777X升级机型。
 
-”村民杨永智说。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-30 06:37 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 06:43 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 06:40 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 06:55 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 06:38 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 06:44 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 07:00 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-30 06:49 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 06:43 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 06:43 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 06:41 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 06:43 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 06:58 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 06:52 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 07:10 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 07:09 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 07:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 06:59 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 07:10 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 07:08 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 07:07 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 07:03 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 06:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 07:00 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 06:54 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:39 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/357399980765.shtml)
-- 2026-06-30 06:48 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/1471702.shtml)
-- 2026-06-30 06:44 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/715396283.shtml)
-- 2026-06-30 06:42 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/61648120678.shtml)
-- 2026-06-30 06:59 - [爱很美味](https://www.blog.minike.top/Article/details/83281038.shtml)
-- 2026-06-30 06:40 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/016144474.shtml)
-- 2026-06-30 07:03 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/46152831.shtml)
-- 2026-06-30 06:58 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/902674334.shtml)
-- 2026-06-30 06:52 - [感动全网的699分女生想报考清华](http://www.share.minike.top/Article/details/597120.shtml)
-- 2026-06-30 06:49 - [田中碧失误](http://www.blog.minike.top/Article/details/00626184541.shtml)
-- 2026-06-30 06:40 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/172692466.shtml)
-- 2026-06-30 06:51 - [女心理师](https://www.share.minike.top/Article/details/893738617598.shtml)
-- 2026-06-30 06:41 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/5810324.shtml)
-- 2026-06-30 06:58 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/572356602029.shtml)
-- 2026-06-30 06:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/6261788.shtml)
+- 2026-06-30 06:46 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/156566.shtml)
+- 2026-06-30 06:43 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/713611.shtml)
+- 2026-06-30 06:47 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/969001873079.shtml)
+- 2026-06-30 07:09 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/20821317.shtml)
+- 2026-06-30 06:52 - [小娘惹](https://www.share.kurohicncr.top/Article/details/288435609744.shtml)
+- 2026-06-30 06:52 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/351892.shtml)
+- 2026-06-30 06:50 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/45268.shtml)
+- 2026-06-30 06:57 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/26587.shtml)
+- 2026-06-30 07:05 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/216127.shtml)
+- 2026-06-30 07:09 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/4722613158.shtml)
+- 2026-06-30 07:00 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/15964117.shtml)
+- 2026-06-30 07:11 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/08262751.shtml)
+- 2026-06-30 06:43 - [千与千寻](https://www.blog.minike.top/Article/details/9963535.shtml)
+- 2026-06-30 06:45 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/231010.shtml)
+- 2026-06-30 06:54 - [勇敢的心第二部](http://www.share.minike.top/Article/details/3715060214.shtml)

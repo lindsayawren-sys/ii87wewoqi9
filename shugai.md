@@ -1,59 +1,61 @@
-# 广东医用耗材集采转向“带量联动”：降价趋缓，行业洗牌加速
+# 大量中国瓷器，从挪威深海打捞出水
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-医用耗材集采正在告别“最低价独家中标”的惨烈厮杀。近日，深圳公共资源交易中心发布公告，广东省启动麻醉管路、一次性使用有创血压传感器和医用高分子夹板三类耗材的带量联动采购。采购周期两年，覆盖全省公立医疗机构及驻粤军队医院，6月1日起企业报名。 与过往动辄腰斩的竞价模式不同，本轮集采的核心关键词是“联动”——企业申报价只要不高于自身全国带量最低价、全国非带量最低价及本次最高有效申报
+挪威附近发现18世纪沉船 载有中国瓷器等珍贵文物 当地时间6月1日，总台记者获悉，考古学家在挪威海岸附近的斯卡格拉克海峡约600米深处发现了一艘沉船，从中打捞出大量保存完好的中国瓷器，并将其命名为“瓷器沉船”。考古人员说，北欧地区此前从未发现过可与之相媲美的沉船宝藏。 据信该船沉没于18世纪。经初步判断，这批瓷器源自中国，以青花瓷为主。船只始发地和目的地仍有待考证。 除大量瓷器
 
 ## 正文
 
-医用耗材集采正在告别“最低价独家中标”的惨烈厮杀。
+挪威附近发现18世纪沉船 载有中国瓷器等珍贵文物 当地时间6月1日，总台记者获悉，考古学家在挪威海岸附近的斯卡格拉克海峡约600米深处发现了一艘沉船，从中打捞出大量保存完好的中国瓷器，并将其命名为“瓷器沉船”。
 
-近日，深圳公共资源交易中心发布公告，广东省启动麻醉管路、一次性使用有创血压传感器和医用高分子夹板三类耗材的带量联动采购。
+考古人员说，北欧地区此前从未发现过可与之相媲美的沉船宝藏。
 
-采购周期两年，覆盖全省公立医疗机构及驻粤军队医院，6月1日起企业报名。
+据信该船沉没于18世纪。
 
-与过往动辄腰斩的竞价模式不同，本轮集采的核心关键词是“联动”——企业申报价只要不高于自身全国带量最低价、全国非带量最低价及本次最高有效申报价这三者中的最小值，即可拟中选。
+经初步判断，这批瓷器源自中国，以青花瓷为主。
 
-已在外省中选且价格合规的产品，甚至可以“跟标”直接入围，没有固定淘汰名额。
+船只始发地和目的地仍有待考证。
 
-01规则生变：用适度降价换取市场份额 这种设计背后，政策意图清晰可见：不再追求击穿底线的超低价，而是通过价格联动、保量承诺，完成对区域市场存量的重新切分。
+除大量瓷器外，考古人员还从沉船中打捞出吊灯、酒杯、纺织品和谷物等货物，以及装有茶叶和中草药的木箱，其中吊灯为德式或英式工艺。
 
-《公告》明确要求，医疗机构年度采购量不低于上年度同品种的80%，中选产品使用占比不低于70%。
+挪威方面称，这一发现为了解海事历史提供了独特的信息，部分打捞出的文物将于6月在挪威首都奥斯陆展出。
 
-这意味着，落选产品基本被挡在广东公立医疗机构大门之外。
+之后，专家将对其进行进一步的研究。
 
 ## 相关推荐
 
-- 2026-06-30 06:51 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 06:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 06:37 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 06:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 06:55 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 06:42 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 07:04 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 06:49 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 06:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 06:44 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 07:05 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 06:41 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 06:47 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 07:06 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 07:09 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 06:53 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-30 06:52 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 07:00 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 06:50 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 06:58 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 06:46 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 06:43 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 06:47 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 06:45 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 06:50 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 06:49 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 07:07 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 06:48 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:39 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/022376686.shtml)
-- 2026-06-30 06:47 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/25155839.shtml)
-- 2026-06-30 06:58 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/6485270055.shtml)
-- 2026-06-30 06:40 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/80832200.shtml)
-- 2026-06-30 06:58 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/4949259825.shtml)
-- 2026-06-30 06:51 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/01625337.shtml)
-- 2026-06-30 06:40 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/2552060.shtml)
-- 2026-06-30 06:51 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/602141.shtml)
-- 2026-06-30 07:01 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/185046134237.shtml)
-- 2026-06-30 06:46 - [天道](http://www.share.minike.top/Article/details/995065102.shtml)
-- 2026-06-30 06:37 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/0012784.shtml)
-- 2026-06-30 06:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/404271237369.shtml)
-- 2026-06-30 06:55 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/339723319632.shtml)
-- 2026-06-30 06:42 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/12755839.shtml)
-- 2026-06-30 06:47 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/8075725246.shtml)
+- 2026-06-30 06:47 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/83971458149.shtml)
+- 2026-06-30 06:52 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/237226966.shtml)
+- 2026-06-30 06:54 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/034017450586.shtml)
+- 2026-06-30 06:51 - [巴西绝杀日本](https://www.share.minike.top/Article/details/538783582.shtml)
+- 2026-06-30 07:10 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/343124.shtml)
+- 2026-06-30 06:49 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/080370.shtml)
+- 2026-06-30 06:44 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/24657702803.shtml)
+- 2026-06-30 07:01 - [田中碧失误](https://www.blog.kurohicncr.top/Article/details/616699320.shtml)
+- 2026-06-30 06:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/92984728494.shtml)
+- 2026-06-30 06:57 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/688872056.shtml)
+- 2026-06-30 07:10 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/58131246.shtml)
+- 2026-06-30 06:42 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/7802522836.shtml)
+- 2026-06-30 06:50 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/631813.shtml)
+- 2026-06-30 07:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/38740.shtml)
+- 2026-06-30 07:06 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/76406744.shtml)

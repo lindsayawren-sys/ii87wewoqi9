@@ -1,56 +1,42 @@
-# 青海面向全国游客倡议“零塑出行”
+# 通伦到访中央党校 重回早年所住宿舍 感慨26年眨眼就过去了
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-中新网西宁6月5日电 (祁绣娟)6月5日，2026年六五环境日青海主场活动在西宁举行，现场发出“向绿同行，守护三江”——共建生态文明高地公益行动“零塑出行”倡议。 地处地球第三极的青海，是我国关键生态安全屏障。 “零塑出行”倡导游客在旅途中自备洗漱包、水杯、可循环布袋，并主动摒弃一次性牙刷、梳子、拖鞋、塑料瓶装饮品等易耗品，让减塑践行在酒店入住、交通出行、购物消费等全旅途场景落
+发布时间：2026年06月04日 16:11 来源：中国新闻网 通伦到访中央党校 重回早年所住宿舍 感慨26年眨眼就过去了 责任编辑：【李光伟】
 
 ## 正文
 
-中新网西宁6月5日电 (祁绣娟)6月5日，2026年六五环境日青海主场活动在西宁举行，现场发出“向绿同行，守护三江”——共建生态文明高地公益行动“零塑出行”倡议。
-
-地处地球第三极的青海，是我国关键生态安全屏障。
-
-“零塑出行”倡导游客在旅途中自备洗漱包、水杯、可循环布袋，并主动摒弃一次性牙刷、梳子、拖鞋、塑料瓶装饮品等易耗品，让减塑践行在酒店入住、交通出行、购物消费等全旅途场景落地；如果途中偶遇野生动物，请保持安全距离，严禁投喂或追逐惊扰。
-
-青海省委统战部有关负责人现场表示，希望全省新的社会阶层人士要积极参与、主动作为，依托新联会人才荟萃、联系面广的资源优势，用创意引航、流量赋能，多途径推广“零塑出行”、低碳生活理念。
-
-本次倡议由中共青海省委统战部、中共青海省委社工部、青海省生态环境厅、青海省文化和旅游厅、青海省林业和草原局、共青团青海省委、中国铁路青藏集团有限公司、西部机场集团青海机场有限公司、青海省交通控股集团有限公司、青海省新的社会阶层人士联谊会(以下简称：省新联会)联合发起。
-
-“零塑出行”环保活动具体落地模式由省新联会副会长单位青海省蓝色第三极可持续发展实践中心牵头策划实施。
-
-据青海省新联会副会长、青海省蓝色第三极可持续发展实践中心负责人王楷博介绍，“零塑出行”项目将在省内重点景区设立“垃圾定点投放”积分兑换点，并上线“零塑出行”小程序，同步推行游客激励机制。
-
-游客通过参与自带洗漱包、拾塑兑奖、自带水杯等行为，可在小程序上累积“低碳积分”。
+发布时间：2026年06月04日 16:11 来源：中国新闻网 通伦到访中央党校 重回早年所住宿舍 感慨26年眨眼就过去了 责任编辑：【李光伟】
 
 ## 相关推荐
 
-- 2026-06-30 06:58 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 06:59 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 06:36 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 06:45 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 06:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 06:39 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 07:00 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 06:45 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 06:43 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 06:51 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 06:43 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 06:57 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 06:50 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 06:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 07:06 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 06:52 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 06:55 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 07:11 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 06:48 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 07:02 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:38 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/6943035003.shtml)
-- 2026-06-30 06:56 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/805919.shtml)
-- 2026-06-30 06:39 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/05139160.shtml)
-- 2026-06-30 06:42 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/8956061568.shtml)
-- 2026-06-30 06:53 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/58726760.shtml)
-- 2026-06-30 06:37 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/5100531.shtml)
-- 2026-06-30 06:47 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/558709765837.shtml)
-- 2026-06-30 07:02 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/703616852.shtml)
-- 2026-06-30 06:45 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/74984000.shtml)
-- 2026-06-30 06:46 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/442602111.shtml)
-- 2026-06-30 06:44 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/14781490.shtml)
-- 2026-06-30 06:42 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/8091054534.shtml)
-- 2026-06-30 06:40 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/24354.shtml)
-- 2026-06-30 06:39 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/68934.shtml)
-- 2026-06-30 06:43 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/130981720191.shtml)
+- 2026-06-30 07:11 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/820177.shtml)
+- 2026-06-30 07:08 - [沙丘](https://www.share.kurohicncr.top/Article/details/160006074.shtml)
+- 2026-06-30 06:44 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/7923316.shtml)
+- 2026-06-30 06:54 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/324077172336.shtml)
+- 2026-06-30 06:49 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/88937.shtml)
+- 2026-06-30 07:02 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/979917018.shtml)
+- 2026-06-30 06:53 - [毒液2](https://www.blog.kurohicncr.top/Article/details/170334411.shtml)
+- 2026-06-30 07:01 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/137196.shtml)
+- 2026-06-30 07:05 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/569224.shtml)
+- 2026-06-30 06:46 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/15459273.shtml)
+- 2026-06-30 06:50 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/90930412.shtml)
+- 2026-06-30 07:05 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/1100968.shtml)
+- 2026-06-30 06:44 - [巴西扳平比分](https://www.blog.minike.top/Article/details/9123534986.shtml)
+- 2026-06-30 06:48 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/5632029393.shtml)
+- 2026-06-30 06:57 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/27059044070.shtml)

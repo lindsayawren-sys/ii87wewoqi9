@@ -1,43 +1,42 @@
-# 乌拉圭宣布对中国公民免签
+# 伊朗成立霍尔木兹海峡问题工作组
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-新华社快讯：乌拉圭外交部长卢贝特金4日宣布，这一南美国家将对中国公民免签。
+发布时间：2026年06月04日 10:38 来源：央视新闻 责任编辑：【李骏】
 
 ## 正文
 
-新华社快讯：乌拉圭外交部长卢贝特金4日宣布，这一南美国家将对中国公民免签。
+发布时间：2026年06月04日 10:38 来源：央视新闻 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 07:02 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 06:41 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-30 06:51 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 06:55 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 06:38 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-30 06:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 07:05 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 06:39 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 06:53 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 06:56 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 06:51 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 07:05 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 07:09 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 06:47 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 07:09 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 07:01 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 06:53 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 07:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 06:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 06:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:44 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/1868861.shtml)
-- 2026-06-30 06:59 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/485578643044.shtml)
-- 2026-06-30 06:53 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/56042434.shtml)
-- 2026-06-30 07:03 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/5353421065.shtml)
-- 2026-06-30 06:59 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/9868438.shtml)
-- 2026-06-30 06:53 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/95784.shtml)
-- 2026-06-30 06:38 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/61934268459.shtml)
-- 2026-06-30 06:43 - [青春环游记第三季](https://www.blog.minike.top/Article/details/13358462837.shtml)
-- 2026-06-30 06:59 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/304650.shtml)
-- 2026-06-30 06:43 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/266647.shtml)
-- 2026-06-30 06:41 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/85781751928.shtml)
-- 2026-06-30 06:51 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/896203378650.shtml)
-- 2026-06-30 06:58 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/3892820.shtml)
-- 2026-06-30 07:05 - [周生如故](https://www.share.kurohicncr.top/Article/details/035903897403.shtml)
-- 2026-06-30 06:53 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/2350804119.shtml)
+- 2026-06-30 06:49 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/09165.shtml)
+- 2026-06-30 06:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/0811289747.shtml)
+- 2026-06-30 06:58 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/8224110.shtml)
+- 2026-06-30 06:52 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/897012424059.shtml)
+- 2026-06-30 06:49 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/358054507.shtml)
+- 2026-06-30 07:11 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/93874175385.shtml)
+- 2026-06-30 07:09 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/614584574.shtml)
+- 2026-06-30 06:50 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/6601405718.shtml)
+- 2026-06-30 06:47 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/115111.shtml)
+- 2026-06-30 06:47 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/0596019.shtml)
+- 2026-06-30 06:55 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/278915.shtml)
+- 2026-06-30 07:05 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/6257701.shtml)
+- 2026-06-30 06:44 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/775373017497.shtml)
+- 2026-06-30 07:01 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/09238.shtml)
+- 2026-06-30 06:59 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/952731825.shtml)

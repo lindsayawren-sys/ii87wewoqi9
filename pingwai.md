@@ -1,59 +1,57 @@
-# 从“博弈”到“共建” 同济科技股东携手开启治理新局
+# 美伊再次互袭 中方：战事再起不符合任何一方利益
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-6月5日，同济科技发布《2026年第一次临时股东会决议公告》。据披露，公司第十一届董事会换届选举相关议案均获得通过。公司相关负责人向证券时报记者表示，此次换届的完成，体现了公司主要股东之间增进理解、携手前行的积极态势，也为公司下一阶段的发展奠定了基础。从新一届董事会构成来看，延续了2024年以来“国资主导、多方参与”的治理格局，当选成员具备丰富产业及企业管理经验。其中，第二大股
+中新网北京6月3日电 (记者 郭超凯)中国外交部发言人毛宁6月3日主持例行记者会。 有记者提问：美军空袭了伊朗格什姆岛。作为回应，伊朗称袭击位于中东的美军基地。多个海湾国家响起防空警报，中东局势再次升级，请问中方有何评论？ 毛宁：中方对当前局势深表关切，战事再起不符合任何一方的利益，希望相关各方珍惜和平机会，履行停火承诺，保持谈判势头，坚持通过政治外交途径化解争端，尽早实现全面
 
 ## 正文
 
-6月5日，同济科技发布《2026年第一次临时股东会决议公告》。
+中新网北京6月3日电 (记者 郭超凯)中国外交部发言人毛宁6月3日主持例行记者会。
 
-据披露，公司第十一届董事会换届选举相关议案均获得通过。
+有记者提问：美军空袭了伊朗格什姆岛。
 
-公司相关负责人向证券时报记者表示，此次换届的完成，体现了公司主要股东之间增进理解、携手前行的积极态势，也为公司下一阶段的发展奠定了基础。
+作为回应，伊朗称袭击位于中东的美军基地。
 
-从新一届董事会构成来看，延续了2024年以来“国资主导、多方参与”的治理格局，当选成员具备丰富产业及企业管理经验。
+多个海湾国家响起防空警报，中东局势再次升级，请问中方有何评论？
 
-其中，第二大股东量鼎实业在本次换届中再度保留两个董事席位。
+毛宁：中方对当前局势深表关切，战事再起不符合任何一方的利益，希望相关各方珍惜和平机会，履行停火承诺，保持谈判势头，坚持通过政治外交途径化解争端，尽早实现全面持久停火，为恢复中东海湾地区的和平安宁创造必要条件。
 
-据悉，作为公司上届董事会成员，量鼎系的章海峰和朱纪南此番再次当选，表明经过持续沟通，主要股东之间已就公司治理框架达成基本共识。
-
-同时，由其他重要股东提名的成员同步当选。
-
-在独立董事配置上，新一届成员兼顾金融财务、法律、创投等多元专业背景。
+(完）
 
 ## 相关推荐
 
-- 2026-06-30 06:53 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 07:02 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 06:44 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 06:40 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 07:00 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-30 07:00 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 06:40 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 06:48 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 07:01 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 06:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 06:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-30 06:36 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 06:49 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 06:48 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 06:51 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 06:45 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 06:57 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 07:01 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 07:04 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 07:08 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 06:54 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 06:58 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-30 07:05 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 06:42 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 07:00 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 07:00 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 06:58 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 07:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:57 - [周生如故](https://www.share.minike.top/Article/details/870396.shtml)
-- 2026-06-30 06:41 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/7695908468.shtml)
-- 2026-06-30 06:48 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/9435812069.shtml)
-- 2026-06-30 06:53 - [世界杯](https://www.blog.minike.top/Article/details/91282.shtml)
-- 2026-06-30 06:38 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/67855.shtml)
-- 2026-06-30 06:36 - [巴西绝杀](https://www.blog.minike.top/Article/details/670463868542.shtml)
-- 2026-06-30 06:59 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/36913310.shtml)
-- 2026-06-30 06:50 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/3041329.shtml)
-- 2026-06-30 06:52 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/549978.shtml)
-- 2026-06-30 06:54 - [美股](https://www.blog.kurohicncr.top/Article/details/26996565810.shtml)
-- 2026-06-30 06:45 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/7716243.shtml)
-- 2026-06-30 07:02 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/34702433.shtml)
-- 2026-06-30 07:02 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/469229216174.shtml)
-- 2026-06-30 06:46 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/58670.shtml)
-- 2026-06-30 06:52 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/8611993.shtml)
+- 2026-06-30 06:52 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/763367243339.shtml)
+- 2026-06-30 06:49 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/56649.shtml)
+- 2026-06-30 06:48 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/602358442205.shtml)
+- 2026-06-30 06:42 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/225672732.shtml)
+- 2026-06-30 06:49 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/017184340158.shtml)
+- 2026-06-30 06:58 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/4836946437.shtml)
+- 2026-06-30 07:08 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/890923459777.shtml)
+- 2026-06-30 06:55 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/6378715069.shtml)
+- 2026-06-30 07:10 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/7070110.shtml)
+- 2026-06-30 07:10 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/0272613416.shtml)
+- 2026-06-30 07:09 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/1501204482.shtml)
+- 2026-06-30 06:48 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/5118428.shtml)
+- 2026-06-30 07:04 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/698349144.shtml)
+- 2026-06-30 06:43 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/231586443.shtml)
+- 2026-06-30 06:57 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/53964.shtml)

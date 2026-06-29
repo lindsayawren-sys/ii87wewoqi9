@@ -1,61 +1,59 @@
-# 南方地区有强降水过程 内蒙古东部东北华北多阵雨
+# 霍尔木兹海峡，突传大消息！伊朗最高领袖批准！
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-中新网6月7日电 据中央气象台网站消息，昨日，贵州、四川、广东等地出现暴雨或大暴雨，贵州局地特大暴雨。预计未来三天，西南地区东部、江南中南部、华南等地将有强降雨，伴有雷暴大风或冰雹等强对流天气，关注可能引发的次生灾害，防范对高考、交通、农业生产等的影响。 贵州四川广东等地出现暴雨或大暴雨 贵州局地特大暴雨 昨日8时至今日6时，四川东南部、贵州、湖南西部、江西中南部、广东、云南南
+霍尔木兹海峡最新消息。 据伊朗方面3日消息，伊朗伊斯兰议会副议长阿里·尼克扎德表示，伊朗外交部已获伊朗最高领袖穆杰塔巴·哈梅内伊批准，成立霍尔木兹海峡问题工作组。 尼克扎德说，该工作组将与包括武装部队等其他机构协调，起草有关霍尔木兹海峡的法律制度。相关法律草案采纳了伊朗国家安全委员会等机构及有关人士的意见。 当地时间3日凌晨，伊朗伊斯兰革命卫队发表公告称，2日晚间，美军炮弹击中
 
 ## 正文
 
-中新网6月7日电 据中央气象台网站消息，昨日，贵州、四川、广东等地出现暴雨或大暴雨，贵州局地特大暴雨。
+霍尔木兹海峡最新消息。
 
-预计未来三天，西南地区东部、江南中南部、华南等地将有强降雨，伴有雷暴大风或冰雹等强对流天气，关注可能引发的次生灾害，防范对高考、交通、农业生产等的影响。
+据伊朗方面3日消息，伊朗伊斯兰议会副议长阿里·尼克扎德表示，伊朗外交部已获伊朗最高领袖穆杰塔巴·哈梅内伊批准，成立霍尔木兹海峡问题工作组。
 
-贵州四川广东等地出现暴雨或大暴雨 贵州局地特大暴雨 昨日8时至今日6时，四川东南部、贵州、湖南西部、江西中南部、广东、云南南部和东北部及河南中南部等地部分地区出现大到暴雨，局地大暴雨，贵州毕节、铜仁、黔南局地特大暴雨(254～333.4毫米)，上述地区最大小时降雨量40～80毫米，贵州局地100～135.3毫米。
+尼克扎德说，该工作组将与包括武装部队等其他机构协调，起草有关霍尔木兹海峡的法律制度。
 
-另外，河南南部和西部、湖北北部、贵州东北部和西南部、广东西南部和中部等局地出现雷暴大风。
+相关法律草案采纳了伊朗国家安全委员会等机构及有关人士的意见。
 
-南方地区有强降水过程 6月7日至9日，西南地区东部、江南、华南有强降雨过程，四川盆地、重庆、贵州、云南中东部、湖南西部和南部、广西、广东、福建、江西南部、浙江南部及台湾岛等地有大到暴雨，部分地区大暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气。
+当地时间3日凌晨，伊朗伊斯兰革命卫队发表公告称，2日晚间，美军炮弹击中霍尔木兹海峡附近的一艘伊朗油轮，导致其机舱受损。
 
-中央气象台6月7日06时发布暴雨黄色预警：预计，6月7日08时至8日08时，四川东部和南部、重庆大部、湖北西南部、贵州大部、云南东部、湖南西部和南部、广西大部、广东大部、江西南部、福建西部和北部、浙江东南部等地有大到暴雨，其中，四川东南部、重庆中部、贵州东部和南部、广西北部和南部沿海地区、广东珠江口地区等地部分地区有大暴雨(100～230毫米)，局地单点雨量可超过300毫米；上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过80毫米)，局地有雷暴大风等强对流天气。
+为回应“此次侵略行为和违反霍尔木兹海峡规则的行为”，伊朗伊斯兰革命卫队用导弹袭击了属于美以的船只“帕纳亚”号。
 
-内蒙古东部东北华北多阵雨 6月7日至9日，内蒙古东部、东北地区、华北北部等地多阵雨或雷阵雨天气，雨量分布不均，一般有小到中雨，局地有大雨或暴雨，并伴有雷暴大风或冰雹等强对流天气。
+公告称，在新一轮侵略中，美军袭击了位于格什姆岛南部的一座伊朗伊斯兰革命卫队通信塔。
 
-国内未来三天具体预报 6月7日08时至8日08时，四川东部和南部、重庆大部、湖北西南部、贵州大部、云南东部、湖南西部和南部、广西大部、广东大部、江西南部、福建西部和北部、浙江东南部等地有大到暴雨，四川东南部、重庆中部、贵州东部和南部、广西北部和南部沿海地区、广东珠江口地区等地部分地区有大暴雨(100～230毫米)，局地单点雨量可超过300毫米。
+作为回应，伊朗伊斯兰革命卫队航空航天部队对美国位于该地区某国的空军基地以及美国第五舰队总部发动了导弹和无人机袭击。
 
 ## 相关推荐
 
-- 2026-06-30 06:36 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 07:03 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 06:38 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 07:01 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 06:59 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 06:45 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 07:04 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 06:56 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 06:43 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 06:51 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 07:01 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 07:02 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 07:04 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 06:37 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 06:43 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 07:10 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 07:05 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 07:05 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 06:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 07:08 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 07:04 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 07:00 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 06:57 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 06:47 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 06:55 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 06:55 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 07:00 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 07:08 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:05 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/984218272.shtml)
-- 2026-06-30 06:45 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/78302.shtml)
-- 2026-06-30 06:44 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/694395.shtml)
-- 2026-06-30 06:48 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/3515597.shtml)
-- 2026-06-30 07:04 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/023155.shtml)
-- 2026-06-30 06:54 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/70016333.shtml)
-- 2026-06-30 07:05 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/1494972.shtml)
-- 2026-06-30 06:58 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/580017.shtml)
-- 2026-06-30 06:55 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/850986.shtml)
-- 2026-06-30 06:47 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/3189529232.shtml)
-- 2026-06-30 06:48 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/720227.shtml)
-- 2026-06-30 06:39 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/3892382975.shtml)
-- 2026-06-30 06:57 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/61611905.shtml)
-- 2026-06-30 06:58 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/474823924551.shtml)
-- 2026-06-30 06:43 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/115904527572.shtml)
+- 2026-06-30 06:47 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/79132881.shtml)
+- 2026-06-30 07:02 - [德国巴拉圭加时](https://www.share.kurohicncr.top/Article/details/6136086.shtml)
+- 2026-06-30 07:09 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/858161.shtml)
+- 2026-06-30 07:03 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/68982.shtml)
+- 2026-06-30 06:51 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/8991267808.shtml)
+- 2026-06-30 06:53 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/04446379.shtml)
+- 2026-06-30 06:52 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/42292308.shtml)
+- 2026-06-30 06:52 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/30614507.shtml)
+- 2026-06-30 07:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/57317.shtml)
+- 2026-06-30 06:56 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/200299.shtml)
+- 2026-06-30 07:06 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/0502076.shtml)
+- 2026-06-30 06:43 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/53684251.shtml)
+- 2026-06-30 07:06 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/41687443657.shtml)
+- 2026-06-30 06:47 - [巴拉圭进球](https://www.share.minike.top/Article/details/63018294.shtml)
+- 2026-06-30 07:03 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/821797.shtml)

@@ -1,61 +1,58 @@
-# PVH发布全年业绩指引：预计每股收益11.80至12.10美元，营收持平
+# Intuit面临证券欺诈调查：财报后股价暴跌20% 低端市场份额流失
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-拥有Calvin Klein和Tommy Hilfiger两大品牌的服装巨头PVH集团近日公布了2026财年第一季度业绩并更新了全年展望。公司预计全年营收同比基本持平，非GAAP每股收益维持在11.80至12.10美元区间，这一指引同时计入了中东冲突带来的负面影响和约1亿美元的关税退税收益。 财报显示，PVH第一季度营收达20.25亿美元，同比增长2%，超出市场预期的20亿美元
+知名证券律所Bleichmar Fonti & Auld LLP近日宣布，正在对财务软件巨头Intuit Inc．展开调查，以评估公司是否在2026年报税季期间就TurboTax的定价策略作出虚假陈述，从而构成证券欺诈。 调查聚焦于公司在2026年报税季前及报税季期间关于TurboTax价格定位的表述。根据律所公告，Intuit在此期间向投资者表示，公司“几年前”就已为2026
 
 ## 正文
 
-拥有Calvin Klein和Tommy Hilfiger两大品牌的服装巨头PVH集团近日公布了2026财年第一季度业绩并更新了全年展望。
+知名证券律所Bleichmar Fonti & Auld LLP近日宣布，正在对财务软件巨头Intuit Inc．展开调查，以评估公司是否在2026年报税季期间就TurboTax的定价策略作出虚假陈述，从而构成证券欺诈。
 
-公司预计全年营收同比基本持平，非GAAP每股收益维持在11.80至12.10美元区间，这一指引同时计入了中东冲突带来的负面影响和约1亿美元的关税退税收益。
+调查聚焦于公司在2026年报税季前及报税季期间关于TurboTax价格定位的表述。
 
-财报显示，PVH第一季度营收达20.25亿美元，同比增长2%，超出市场预期的20亿美元。
+根据律所公告，Intuit在此期间向投资者表示，公司“几年前”就已为2026年报税季做好准备，并清楚2025年的成功经验在于“提供相较于竞品的最低价格”。
 
-非GAAP每股收益为2.01美元，高于公司此前预测的1.65至1.80美元区间。
+公司还声称2026年报税季“开局强劲”，已准备好为客户提供“最优价格”。
 
-直营消费者业务表现亮眼，同比增长6%，电商业务增长11%。
+然而真相在5月20日浮出水面。
 
-毛利率稳定在58.6%，关税缓解措施和有利的产品组合变动抵消了美国关税上升和促销环境加剧的影响。
+Intuit当日发布第三财季财报，公司整体营收同比增长10%至85.6亿美元，略低于市场预期的86.1亿美元；调整后每股收益12.80美元，略高于预期的12.57美元。
 
-然而，各地区表现出现明显分化。
+但真正引发市场恐慌的是管理层的坦诚表态。
 
-亚太地区按固定汇率计算营收增长6%，成为增长引擎；美洲地区下降2%；而欧洲、中东和非洲地区下降5%，主要受中东冲突持续影响，消费者需求疲软。
+首席执行官Sasan Goodarzi在财报电话会上承认：“我们在价格上输了。
 
 ## 相关推荐
 
-- 2026-06-30 06:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 06:58 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 06:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 07:00 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 06:49 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 06:44 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 06:39 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 06:42 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 06:43 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 06:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 06:54 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 06:43 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 06:59 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 06:54 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 07:02 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 06:48 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 06:43 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 06:51 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 07:08 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 06:54 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 07:01 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 07:09 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 06:47 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 07:04 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 07:03 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 06:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 07:04 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:40 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/311615950936.shtml)
-- 2026-06-30 06:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/599819773.shtml)
-- 2026-06-30 06:44 - [美股](https://www.blog.kurohicncr.top/Article/details/24779653.shtml)
-- 2026-06-30 07:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/4915462.shtml)
-- 2026-06-30 06:47 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/52143651.shtml)
-- 2026-06-30 06:55 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/376194.shtml)
-- 2026-06-30 06:55 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/488786.shtml)
-- 2026-06-30 06:58 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/03934.shtml)
-- 2026-06-30 06:46 - [感动全网的699分女生想报考清华](http://www.share.kurohicncr.top/Article/details/93772.shtml)
-- 2026-06-30 06:48 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/825531867.shtml)
-- 2026-06-30 06:36 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/245339399.shtml)
-- 2026-06-30 06:55 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/30805.shtml)
-- 2026-06-30 06:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/0629761.shtml)
-- 2026-06-30 06:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/701411.shtml)
-- 2026-06-30 06:46 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/986966.shtml)
+- 2026-06-30 06:53 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/170522575.shtml)
+- 2026-06-30 07:05 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/29243185653.shtml)
+- 2026-06-30 06:52 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/21543.shtml)
+- 2026-06-30 07:08 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/90841.shtml)
+- 2026-06-30 06:49 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/373728.shtml)
+- 2026-06-30 06:58 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/294378.shtml)
+- 2026-06-30 06:54 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/5456337580.shtml)
+- 2026-06-30 06:58 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/72918087.shtml)
+- 2026-06-30 06:47 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/800728032.shtml)
+- 2026-06-30 07:11 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/673763.shtml)
+- 2026-06-30 06:57 - [恋与深空道歉声明](https://www.blog.kurohicncr.top/Article/details/7141661268.shtml)
+- 2026-06-30 07:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/538597043.shtml)
+- 2026-06-30 06:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/4248657900.shtml)
+- 2026-06-30 06:51 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/0623306.shtml)
+- 2026-06-30 07:11 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/976911.shtml)

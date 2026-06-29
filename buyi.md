@@ -1,53 +1,52 @@
-# 刘晓艳当选中国证券投资基金业协会兼职会长
+# 天天学习｜这条“红线”守护美丽中国
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月6日，中国证券投资基金业协会第四届会员代表大会举行，刘晓艳当选中国证券投资基金业协会第四届理事会兼职会长。 资料显示，刘晓艳博士，现任易方达基金董事长，公司创始团队成员，2011年10月至2025年3月任公司总经理，拥有32年证券行业从业经验。 责任编辑：常福强
+｜天天学习｜良好生态环境是最公平的公共产品，是最普惠的民生福祉。保护生态环境，关系最广大人民的根本利益，关系中华民族发展的长远利益。 习近平总书记明确强调，“要加强生态文明建设，划定生态保护红线，为可持续发展留足空间，为子孙后代留下天蓝地绿水清的家园”。他鲜明指出，“要保持加强生态环境保护建设的定力，不动摇、不松劲、不开口子”。 总监制丨骆红秉 魏驱虎 监制丨王敬东 主编丨李璇
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+｜天天学习｜良好生态环境是最公平的公共产品，是最普惠的民生福祉。
 
-6月6日，中国证券投资基金业协会第四届会员代表大会举行，刘晓艳当选中国证券投资基金业协会第四届理事会兼职会长。
+保护生态环境，关系最广大人民的根本利益，关系中华民族发展的长远利益。
 
-资料显示，刘晓艳博士，现任易方达基金董事长，公司创始团队成员，2011年10月至2025年3月任公司总经理，拥有32年证券行业从业经验。
+习近平总书记明确强调，“要加强生态文明建设，划定生态保护红线，为可持续发展留足空间，为子孙后代留下天蓝地绿水清的家园”。
 
-责任编辑：常福强
+他鲜明指出，“要保持加强生态环境保护建设的定力，不动摇、不松劲、不开口子”。
+
+总监制丨骆红秉 魏驱虎 监制丨王敬东 主编丨李璇 编辑丨孙晓媛 视觉丨郝凤林 校对丨李珊珊 蔡纯琳 宋春燕 任佳 李英卓 出品丨中央广播电视总台央视网
 
 ## 相关推荐
 
-- 2026-06-30 07:00 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 07:02 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 06:59 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 06:38 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 06:43 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 07:01 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-30 06:52 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 06:48 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 06:51 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 07:03 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 06:37 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 06:54 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 06:50 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 07:05 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 07:04 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 06:46 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 06:55 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 06:57 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 07:02 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 07:08 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 06:58 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 06:59 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 07:08 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 06:46 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 07:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 07:08 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 06:47 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:54 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/25657244.shtml)
-- 2026-06-30 06:52 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/82553864.shtml)
-- 2026-06-30 07:02 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/638103.shtml)
-- 2026-06-30 07:03 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/237739.shtml)
-- 2026-06-30 06:36 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/122307766.shtml)
-- 2026-06-30 07:03 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/97895.shtml)
-- 2026-06-30 06:50 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/935264308132.shtml)
-- 2026-06-30 06:46 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/6482559511.shtml)
-- 2026-06-30 06:52 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/62596812241.shtml)
-- 2026-06-30 06:49 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/17831.shtml)
-- 2026-06-30 06:37 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/734913.shtml)
-- 2026-06-30 06:50 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/000892.shtml)
-- 2026-06-30 07:03 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/023877850066.shtml)
-- 2026-06-30 06:54 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/60706594.shtml)
-- 2026-06-30 06:42 - [日本 高位逼抢](https://www.share.minike.top/Article/details/7709752.shtml)
+- 2026-06-30 06:44 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/75637937.shtml)
+- 2026-06-30 06:53 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/6483561.shtml)
+- 2026-06-30 06:56 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/2027579941.shtml)
+- 2026-06-30 06:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/076369176.shtml)
+- 2026-06-30 07:06 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/5777970.shtml)
+- 2026-06-30 07:04 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/76927355.shtml)
+- 2026-06-30 06:49 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/82450.shtml)
+- 2026-06-30 07:09 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/1352337970.shtml)
+- 2026-06-30 07:09 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/10297.shtml)
+- 2026-06-30 07:06 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/2576449923.shtml)
+- 2026-06-30 07:02 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/88121.shtml)
+- 2026-06-30 06:59 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/1721731723.shtml)
+- 2026-06-30 07:02 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/3418972412.shtml)
+- 2026-06-30 07:09 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/225851.shtml)
+- 2026-06-30 06:44 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/8220052.shtml)

@@ -1,58 +1,59 @@
-# CAE宣布续订常规股份回购计划
+# 青海省“全民禁毒宣传月”系列活动启动
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-加拿大航空培训及模拟技术领军企业CAE公司周五宣布，已获得监管机构批准，续订其常规股份回购计划。根据该计划，CAE将在未来12个月内回购并注销最多约1607万股普通股，占公司截至2026年5月29日已发行流通股总数约3.2146亿股的5%。 此次回购计划将于2026年6月10日正式启动，持续至2027年6月9日。CAE表示，该计划是其资本配置战略的重要组成部分，董事会认为回购股
+中新网西宁6月4日电 (祁绣娟)6月3日，正值虎门销烟纪念日，青海省“全民禁毒宣传月”启动仪式暨“光影筑防线、全民共禁毒”主题活动在海南藏族自治州共和县举行。省、州、县三级禁毒办负责人，省出版传媒集团和州禁毒委成员单位代表，以及社区居民、在校师生等500余人参加。 启动仪式上，青海省禁毒办宣读了《关于增加“三江源禁毒志愿者宣讲团”宣讲人员的通知》，海南州政府相关负责人就海南州创
 
 ## 正文
 
-加拿大航空培训及模拟技术领军企业CAE公司周五宣布，已获得监管机构批准，续订其常规股份回购计划。
+中新网西宁6月4日电 (祁绣娟)6月3日，正值虎门销烟纪念日，青海省“全民禁毒宣传月”启动仪式暨“光影筑防线、全民共禁毒”主题活动在海南藏族自治州共和县举行。
 
-根据该计划，CAE将在未来12个月内回购并注销最多约1607万股普通股，占公司截至2026年5月29日已发行流通股总数约3.2146亿股的5%。
+省、州、县三级禁毒办负责人，省出版传媒集团和州禁毒委成员单位代表，以及社区居民、在校师生等500余人参加。
 
-此次回购计划将于2026年6月10日正式启动，持续至2027年6月9日。
+启动仪式上，青海省禁毒办宣读了《关于增加“三江源禁毒志愿者宣讲团”宣讲人员的通知》，海南州政府相关负责人就海南州创建全国禁毒示范城市提出要求。
 
-CAE表示，该计划是其资本配置战略的重要组成部分，董事会认为回购股份符合公司最佳利益，是提升股东价值的理想资金运用方式。
+与会领导为新加入的宣讲团成员颁发聘书，共同启动“全省全民禁毒宣传月”系列活动。
 
-根据多伦多证券交易所规则，基于CAE过去六个月日均交易量94.4万股的25%计算，公司在任何交易日内最多可回购约23.6万股。
+仪式后，省出版传媒集团以“光影”为媒，组织放映禁毒题材影片。
 
-此外，CAE每周还可进行一次大宗交易，购买量可超过每日限额。
+禁毒工作事关国家安危、民族兴衰和人民福祉，是平安建设、法治建设的重要一环。
 
-为保障回购计划在静默期内顺利执行，CAE已与道明证券签订自动回购协议。
+现场明确，各成员单位既要各司其职，又要联防联控，坚持宣传引导与严打整治并重，常态化开展涉毒隐患排查，严厉惩治各类毒品和麻精药品违法犯罪。
 
-该协议允许指定经纪人在公司因监管限制或内部静默期通常无法交易期间，代表CAE进行股份回购。
+在集中宣传区，宣讲员通过发放资料、展示毒品仿真模型等方式，向观影师生和民众讲解毒品知识，重点介绍传统毒品、新型毒品及伪装毒品的辨别方法，普及防范青少年麻精药品滥用知识和禁毒法律法规，详细讲解毒品对个人健康、家庭幸福和社会安定造成的严重危害。
 
 ## 相关推荐
 
-- 2026-06-30 06:56 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 06:39 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 07:00 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 07:03 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 06:57 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 06:57 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 06:52 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 07:01 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 06:48 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 07:01 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 06:43 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 06:56 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 06:43 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-30 07:09 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 06:45 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 06:45 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 07:01 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 06:51 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 06:47 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 07:05 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 06:46 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 07:08 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 07:00 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 07:05 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 07:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/996023354795.shtml)
-- 2026-06-30 07:00 - [沉睡花园](https://www.blog.minike.top/Article/details/1046658129.shtml)
-- 2026-06-30 06:56 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/17889711.shtml)
-- 2026-06-30 06:47 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/711051519006.shtml)
-- 2026-06-30 07:00 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/6636283.shtml)
-- 2026-06-30 06:41 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/142013312.shtml)
-- 2026-06-30 06:57 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/0033412.shtml)
-- 2026-06-30 06:46 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/7249397554.shtml)
-- 2026-06-30 06:59 - [《共患难》](https://www.blog.minike.top/Article/details/518253676.shtml)
-- 2026-06-30 06:41 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/6285600.shtml)
-- 2026-06-30 06:41 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/80103490635.shtml)
-- 2026-06-30 07:04 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/816501454.shtml)
-- 2026-06-30 06:49 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/4798801.shtml)
-- 2026-06-30 06:51 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/36442.shtml)
-- 2026-06-30 07:00 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/59830300.shtml)
+- 2026-06-30 06:52 - [一生一世](http://www.share.kurohicncr.top/Article/details/344265030.shtml)
+- 2026-06-30 06:55 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/8848518.shtml)
+- 2026-06-30 07:00 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/9020022.shtml)
+- 2026-06-30 07:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/32902082673.shtml)
+- 2026-06-30 06:52 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/68760121077.shtml)
+- 2026-06-30 07:10 - [恋与深空 巧合](http://www.share.minike.top/Article/details/39892291.shtml)
+- 2026-06-30 07:00 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/012644088.shtml)
+- 2026-06-30 07:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/18281455.shtml)
+- 2026-06-30 07:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/018635567.shtml)
+- 2026-06-30 07:02 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/567309.shtml)
+- 2026-06-30 07:10 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/2057281136.shtml)
+- 2026-06-30 06:43 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/30324.shtml)
+- 2026-06-30 06:51 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/69531586090.shtml)
+- 2026-06-30 07:11 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/7205362432.shtml)
+- 2026-06-30 06:48 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/858660932122.shtml)

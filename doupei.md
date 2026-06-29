@@ -1,52 +1,50 @@
-# 国际“夜经济达人”献计上海
+# 【百万庄小课堂】高考临近 考生如何调理身心？听听专家怎么说
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月06日 14:42 来源：中国新闻网 6月5日晚，2026“精彩夜上海”黄浦区推介活动在沪拉开帷幕。作为上海夜间经济的标杆区域，黄浦区现场发布“2026黄浦区夜生活地图”，整合特色夜间消费、文化、休闲场景，为市民和游客提供一份实用的夏夜漫游指南。 现场吸引了一批全球夜经济专家，他们在受访时纷纷为上海夜间经济发展支招。 (记者 郑莹莹 制作 王佳琪） 责
+发布时间：2026年06月03日 11:30 来源：中国新闻网 高考将至，考生进入考前调整阶段。如何科学规划作息，出现失眠、中暑等身体不适该如何应对？西安市红会医院心身医学科主任、副主任医师王莹从作息调整、日常饮食、急症处置、家长陪护等方面给出科学建议，提醒考生清淡膳食、不乱进补药膳，高温天做好防暑，女生痛经可提前就医备药。家长同步作息、适度留白，帮助考生平稳调适身心、从容迎战
 
 ## 正文
 
-发布时间：2026年06月06日 14:42 来源：中国新闻网 6月5日晚，2026“精彩夜上海”黄浦区推介活动在沪拉开帷幕。
+发布时间：2026年06月03日 11:30 来源：中国新闻网 高考将至，考生进入考前调整阶段。
 
-作为上海夜间经济的标杆区域，黄浦区现场发布“2026黄浦区夜生活地图”，整合特色夜间消费、文化、休闲场景，为市民和游客提供一份实用的夏夜漫游指南。
+如何科学规划作息，出现失眠、中暑等身体不适该如何应对？
 
-现场吸引了一批全球夜经济专家，他们在受访时纷纷为上海夜间经济发展支招。
+西安市红会医院心身医学科主任、副主任医师王莹从作息调整、日常饮食、急症处置、家长陪护等方面给出科学建议，提醒考生清淡膳食、不乱进补药膳，高温天做好防暑，女生痛经可提前就医备药。
 
-(记者 郑莹莹 制作 王佳琪） 责任编辑：【卢岩】
+家长同步作息、适度留白，帮助考生平稳调适身心、从容迎战高考。
+
+(记者 党田野 西安报道） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 06:43 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 06:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 07:05 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 06:44 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 06:52 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-30 07:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 06:45 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 06:52 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-30 07:05 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 07:05 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 07:03 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 06:42 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 06:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 07:01 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 07:01 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 07:05 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 07:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 07:03 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-30 07:02 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 06:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 06:51 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 06:54 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 06:46 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 06:52 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:52 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/462254625.shtml)
-- 2026-06-30 06:48 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/7785073.shtml)
-- 2026-06-30 06:36 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/022579.shtml)
-- 2026-06-30 06:41 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/4022600411.shtml)
-- 2026-06-30 06:49 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/31186.shtml)
-- 2026-06-30 06:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/3826835.shtml)
-- 2026-06-30 07:04 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/14499263.shtml)
-- 2026-06-30 06:54 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/80117307916.shtml)
-- 2026-06-30 06:43 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/625666.shtml)
-- 2026-06-30 06:51 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/814578459.shtml)
-- 2026-06-30 06:36 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/4473658413.shtml)
-- 2026-06-30 06:41 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/60394174.shtml)
-- 2026-06-30 07:03 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/3812989313.shtml)
-- 2026-06-30 06:43 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/156621924087.shtml)
-- 2026-06-30 06:51 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/04010.shtml)
+- 2026-06-30 06:44 - [一生一世](http://www.share.minike.top/Article/details/99909.shtml)
+- 2026-06-30 07:10 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/7550207.shtml)
+- 2026-06-30 07:01 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/298912260844.shtml)
+- 2026-06-30 06:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/67396566.shtml)
+- 2026-06-30 07:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/93683755.shtml)
+- 2026-06-30 06:48 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/9675960.shtml)
+- 2026-06-30 07:00 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/450053.shtml)
+- 2026-06-30 06:48 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/0951211059.shtml)
+- 2026-06-30 07:01 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/4706554.shtml)
+- 2026-06-30 07:05 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/000689470.shtml)
+- 2026-06-30 06:59 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/18276.shtml)
+- 2026-06-30 06:51 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/346985083253.shtml)
+- 2026-06-30 07:10 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/99378.shtml)
+- 2026-06-30 06:45 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/635633454961.shtml)
+- 2026-06-30 06:42 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/2771333.shtml)

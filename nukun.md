@@ -1,60 +1,61 @@
-# 拒绝纳入！史上最大IPO，突发！
+# 新疆喀什：360余万亩冬小麦喜迎丰收
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-标普拒绝为SpaceX“开绿灯”！ 当前，全球首富马斯克正在火速推进SpaceX的IPO事宜。尽管SpaceX此次上市获得华尔街巨头热捧，但标普拒绝为其纳入指数提供快速通道。 这意味着，SpaceX至少要在上市一年后才能被纳入标普500指数。此外，SpaceX还需要满足指数对盈利能力和公众持股比例的要求。 拒绝提供快速通道 据路透社、彭博社等多家外媒消息，标普拒绝给SpaceX
+近日，随着气温攀升，位于帕米尔高原的新疆喀什地区360余万亩冬小麦陆续迎来丰收季。 在喀什地区麦盖提县，23.93万亩冬小麦也进入了集中收割期。近年来，当地持续推动高标准农田建设，全面普及机械化作业，有效提升土地利用率和粮食产能。今年，麦盖提县冬小麦预计最高亩产可达550公斤左右。 在莎车县阿克切克勒村的麦田里，大型联合收割机穿梭往来、轰鸣作业，收割、脱粒一气呵成。为保障夏收工
 
 ## 正文
 
-标普拒绝为SpaceX“开绿灯”！
+近日，随着气温攀升，位于帕米尔高原的新疆喀什地区360余万亩冬小麦陆续迎来丰收季。
 
-当前，全球首富马斯克正在火速推进SpaceX的IPO事宜。
+在喀什地区麦盖提县，23.93万亩冬小麦也进入了集中收割期。
 
-尽管SpaceX此次上市获得华尔街巨头热捧，但标普拒绝为其纳入指数提供快速通道。
+近年来，当地持续推动高标准农田建设，全面普及机械化作业，有效提升土地利用率和粮食产能。
 
-这意味着，SpaceX至少要在上市一年后才能被纳入标普500指数。
+今年，麦盖提县冬小麦预计最高亩产可达550公斤左右。
 
-此外，SpaceX还需要满足指数对盈利能力和公众持股比例的要求。
+在莎车县阿克切克勒村的麦田里，大型联合收割机穿梭往来、轰鸣作业，收割、脱粒一气呵成。
 
-拒绝提供快速通道 据路透社、彭博社等多家外媒消息，标普拒绝给SpaceX等巨无霸IPO公司纳入指数提供快速通道。
+为保障夏收工作有序高效推进，当地提前布局、动态调配农机资源，确保小麦“成熟一片、收割一片”，全力保障全县71万亩冬小麦颗粒归仓。
 
-当地时间周四，标普道琼斯指数公司发布新闻稿称，公司不会缩短目前对新上市公司设定的12个月观察期，也不会基于公司规模而豁免当前对盈利能力和公众持股比例的要求。
+据了解，今年，喀什地区冬小麦种植总面积超过360万亩，预计在6月下旬前可全部完成收割。
 
-也就是说，指数提供商不会改变其主要股指的纳入要求，这实际上排除了史上最大IPO公司SpaceX快速纳入基准标普500指数的可能性，对马斯克的这家公司造成了打击。
+(总台新疆总站 监制 张立 王新宇 主编 苏蒙 编辑 袁芳 合作媒体 喀什地区融媒体中心)
 
 ## 相关推荐
 
-- 2026-06-30 06:54 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 06:49 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 06:46 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 07:01 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 06:46 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 06:46 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 06:43 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 06:36 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 07:03 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 07:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 06:40 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 06:39 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 06:36 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 06:53 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 06:54 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 06:59 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 06:48 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 06:48 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 07:01 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 06:43 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 06:45 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 06:44 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 07:07 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 07:08 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 07:10 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 06:49 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 06:42 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 07:05 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 07:02 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/1934157739.shtml)
-- 2026-06-30 07:01 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/82692793.shtml)
-- 2026-06-30 07:05 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/27995525869.shtml)
-- 2026-06-30 06:36 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/784702957.shtml)
-- 2026-06-30 06:48 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/769701.shtml)
-- 2026-06-30 06:50 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/7960010088.shtml)
-- 2026-06-30 06:38 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/45729207.shtml)
-- 2026-06-30 07:01 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/44513212424.shtml)
-- 2026-06-30 06:41 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/0435861546.shtml)
-- 2026-06-30 07:02 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/603312006.shtml)
-- 2026-06-30 06:55 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/37798.shtml)
-- 2026-06-30 07:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/5548197.shtml)
-- 2026-06-30 06:40 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/789889681122.shtml)
-- 2026-06-30 07:01 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/37526966.shtml)
-- 2026-06-30 06:53 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/39844.shtml)
+- 2026-06-30 06:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/517601781267.shtml)
+- 2026-06-30 06:59 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/638945348.shtml)
+- 2026-06-30 06:57 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/87444886.shtml)
+- 2026-06-30 06:54 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/1224939.shtml)
+- 2026-06-30 06:48 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/66792401658.shtml)
+- 2026-06-30 06:59 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/869198763430.shtml)
+- 2026-06-30 06:54 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/1648624491.shtml)
+- 2026-06-30 07:07 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/312321.shtml)
+- 2026-06-30 06:48 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/616913792.shtml)
+- 2026-06-30 06:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/821636146745.shtml)
+- 2026-06-30 06:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/535258326.shtml)
+- 2026-06-30 06:59 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/558127080.shtml)
+- 2026-06-30 07:05 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/374589725231.shtml)
+- 2026-06-30 07:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/031530.shtml)
+- 2026-06-30 07:11 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/61358086493.shtml)

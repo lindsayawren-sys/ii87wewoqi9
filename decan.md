@@ -1,57 +1,61 @@
-# 上海举办港澳代表人士培训班 赋能沪港澳深度融合
+# 富途、老虎、长桥相继公告！整治细则落地，跨境投资面临合规大考
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-中新网上海6月5日电 (范宇斌)近日，由上海市委统战部、上海行政学院主办的第6期港澳代表人士培训班举行，32名港澳学员参训。本次培训班设置理论学习、现场教学、交流研讨三大教学模块，搭建学习交流平台，助力港澳学员了解上海发展布局、找准沪港澳融合切入点，推动港澳资源优势对接国家及上海发展战略。本次培训班课程设置紧扣国家与上海发展大局，兼顾政策理论深度与一线实践广度。授课内容锚定上海
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4日，富途发布公告，为落实2年集中整治期的行业监管要求，推动跨境证券业务规范发展，将在6月12日起，针对存量投资者账户在中国内地境内的服务，暂停新开仓、加仓、入金，仅支持卖出、平仓、出金。自此，老虎、长桥、富途3家头部跨境券商均已落地整治细则，时间点和内容基本一致。 “其他香港本地券商、美资券商之类的机构，
 
 ## 正文
 
-中新网上海6月5日电 (范宇斌)近日，由上海市委统战部、上海行政学院主办的第6期港澳代表人士培训班举行，32名港澳学员参训。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-本次培训班设置理论学习、现场教学、交流研讨三大教学模块，搭建学习交流平台，助力港澳学员了解上海发展布局、找准沪港澳融合切入点，推动港澳资源优势对接国家及上海发展战略。
+4日，富途发布公告，为落实2年集中整治期的行业监管要求，推动跨境证券业务规范发展，将在6月12日起，针对存量投资者账户在中国内地境内的服务，暂停新开仓、加仓、入金，仅支持卖出、平仓、出金。
 
-本次培训班课程设置紧扣国家与上海发展大局，兼顾政策理论深度与一线实践广度。
+自此，老虎、长桥、富途3家头部跨境券商均已落地整治细则，时间点和内容基本一致。
 
-授课内容锚定上海“十五五”规划整体部署，围绕“五个中心”深化建设、新质生产力培育、高水平对外开放、民生提质等关键任务展开系统解读，并立足港澳治理实际，夯实学员政策理论根基。
+“其他香港本地券商、美资券商之类的机构，估计后续也会跟进吧。
 
-在现场教学环节，学员走进香港科技大学上海中心北杨基地，调研沪港高校科创成果转化、校企联合育才的落地模式；前往徐汇区漕河泾街道党群服务中心及社区便民配套场所，了解上海精细化基层治理实践；到访上海市华侨事务中心、上海香港联会与上海澳门联谊会联合办公地点，了解上海面向港澳同胞、海外侨胞的普惠服务体系。
+”有业内人士感慨道。
 
-学员还探访虹桥国际中央商务区、虹桥品荟、虹桥长三角低空经济展贸中心、张江机器人谷等，观摩上海“五个中心”建设落地成效，挖掘港澳深度融入上海产业发展的合作契机。
+自5月22日八部门联手印发整治新规，从证券到银行，针对境内投资者的跨境投资合规调整渐次落地。
 
-在交流研讨环节，学员们围绕“立足‘十五五’规划战略布局，发挥港澳独特优势，主动对接国家发展战略”“港澳爱国同乡社团建设”“推动港澳青年融入国家发展大局”等主题，碰撞合作思路、凝聚发展共识。
+两年倒计时之下，境内投资者的跨境投资之路正在发生哪些改变？
 
-学员陈怡立足两地产业协同提出构想，在“十五五”规划指引下，香港除传统“超级联系人”定位外，有望升级为嵌入内地产业链、科创链、资本链的“超级合伙人”“超级增值人”，可从科创落地、金融与专业服务互通、制度民生对接、文旅消费升级四大方向发力，依托自身特色助力内地高水平对外开放，实现本地产业多元化转型升级。
+境外途径全面收紧 “新规发布之后，客户最关心的问题是不同券商的合规尺度是否一致？
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 06:58 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 07:05 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 06:59 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 06:45 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 07:04 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 06:56 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 07:02 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 06:52 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 06:37 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 06:38 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 06:50 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 07:10 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 06:58 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 06:49 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 06:49 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 06:56 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 07:00 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 06:46 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 07:10 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 06:53 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 06:48 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 06:44 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 06:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 06:43 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 06:57 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:40 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/08611.shtml)
-- 2026-06-30 06:59 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/889246.shtml)
-- 2026-06-30 06:52 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/70603564584.shtml)
-- 2026-06-30 06:37 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/830804571148.shtml)
-- 2026-06-30 07:04 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/87319.shtml)
-- 2026-06-30 06:47 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/73080.shtml)
-- 2026-06-30 06:51 - [请回答王牌2019](http://www.blog.minike.top/Article/details/79570.shtml)
-- 2026-06-30 06:56 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/123911.shtml)
-- 2026-06-30 06:39 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/1593949.shtml)
-- 2026-06-30 06:58 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/216226057.shtml)
-- 2026-06-30 07:05 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/62872505143.shtml)
-- 2026-06-30 06:49 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/901659.shtml)
-- 2026-06-30 07:03 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/037171.shtml)
-- 2026-06-30 06:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/277452544328.shtml)
-- 2026-06-30 06:44 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/65311.shtml)
+- 2026-06-30 07:02 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/66631061.shtml)
+- 2026-06-30 06:54 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/399395660433.shtml)
+- 2026-06-30 07:03 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/6332141.shtml)
+- 2026-06-30 07:10 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/534309.shtml)
+- 2026-06-30 06:47 - [绘画区你赢了](https://www.share.minike.top/Article/details/70012959.shtml)
+- 2026-06-30 06:49 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/784496.shtml)
+- 2026-06-30 06:58 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/940571145480.shtml)
+- 2026-06-30 06:54 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/794225804649.shtml)
+- 2026-06-30 07:02 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/33640233824.shtml)
+- 2026-06-30 07:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/022597094.shtml)
+- 2026-06-30 06:56 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/1598165.shtml)
+- 2026-06-30 07:01 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/51140631499.shtml)
+- 2026-06-30 06:47 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/5918055.shtml)
+- 2026-06-30 07:08 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/0572076423.shtml)
+- 2026-06-30 07:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/01952.shtml)

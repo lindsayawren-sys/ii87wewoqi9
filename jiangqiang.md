@@ -1,61 +1,56 @@
-# 施乐获STARTEEPO持股增至6%以上， 股价应声上涨
+# 香港金发局行政总监：允许货基代币化并进行二级交易仅为“起步” 大宗商品代币化或是下一阶段抓手
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-施乐公司股价周四上涨逾3%，此前另类投资机构STARTEEPO Invest披露已将在该公司的持股比例提升至6%以上。据STARTEEPO向美国证券交易委员会提交的修订版文件显示，该基金目前实益持有施乐约800万股普通股，并持有额外14万股的期权，已成为施乐第三大股东。 STARTEEPO董事会主席Frantisek Bostl在一份声明中表示，对该基金而言，施乐是一项高确信度
+文/新浪财经香港站 赵岚 香港金融发展局（金发局）行政总监董一岳，在一场发布会中表示，香港数字资产行业规范及发展过程当中考虑了很多因素。金发局在与香港特区政府、金融监管部门沟通时，从政策监管、从业机构、金融产品进行了整合，旨在打破数字资产行业发展壁垒，衔接传统金融体系。 在监管政策整合层面，金发局建议摒弃被动跟进域外监管的模式，采取以香港情况为基准的市场先行实践。 全球虚拟资产
 
 ## 正文
 
-施乐公司股价周四上涨逾3%，此前另类投资机构STARTEEPO Invest披露已将在该公司的持股比例提升至6%以上。
+文/新浪财经香港站 赵岚 香港金融发展局（金发局）行政总监董一岳，在一场发布会中表示，香港数字资产行业规范及发展过程当中考虑了很多因素。
 
-据STARTEEPO向美国证券交易委员会提交的修订版文件显示，该基金目前实益持有施乐约800万股普通股，并持有额外14万股的期权，已成为施乐第三大股东。
+金发局在与香港特区政府、金融监管部门沟通时，从政策监管、从业机构、金融产品进行了整合，旨在打破数字资产行业发展壁垒，衔接传统金融体系。
 
-STARTEEPO董事会主席Frantisek Bostl在一份声明中表示，对该基金而言，施乐是一项高确信度投资，也是其投资组合中最大的持仓之一。
+在监管政策整合层面，金发局建议摒弃被动跟进域外监管的模式，采取以香港情况为基准的市场先行实践。
 
-随着公司持续推进重组计划、Lexmark整合工作以及管理层对盈利能力和资产负债表的改善，投资信心正在增强。
+全球虚拟资产监管早年路线分化，香港最终放弃了对标海外监管规则的思路，优先落地本土适配、行业认可的合规方案，实现监管层面的趋同统一，降低照搬域外法规带来的落地失败风险。
 
-STARTEEPO还认为，施乐近期宣布的认股权证结构可能为公司提供了独特的去杠杆机会。
+香港梳理了合规经营、投资者保护、反洗钱风控等实践措施。
 
-随着股价上涨，认股权证的行权可能带来新股本发行并相应减少未偿债务。
+依托香港成熟的金融监管沙盒机制，以沙盒试点成果为依据，推动本地合规指引持续优化，化解全球监管分化带来的合规风险。
 
-施乐近期业绩确实呈现改善迹象。
+在从业机构整合层面，早前，虚拟资产从业机构与传统持牌金融机构各自独立、平行发展。
 
-公司第一季度财报显示，调整后营业利润率达3.9%，同比提升240个基点；调整后营业收入达7200万美元，同比增加5000万美元。
+董一岳认为，香港正逐渐打破两类金融主体割裂现状。
 
 ## 相关推荐
 
-- 2026-06-30 06:51 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 06:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 06:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 06:51 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 07:05 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 06:36 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 06:55 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 06:36 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 06:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 06:52 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 06:59 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 07:01 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 07:00 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 06:50 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 06:52 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 06:45 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 07:01 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 07:06 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 06:57 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-30 06:49 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 06:50 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 07:03 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 07:02 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 07:01 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 07:06 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:05 - [内马尔替补](http://www.share.minike.top/Article/details/453161.shtml)
-- 2026-06-30 07:01 - [女心理师](https://www.share.kurohicncr.top/Article/details/45550756.shtml)
-- 2026-06-30 07:03 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/14012387.shtml)
-- 2026-06-30 06:51 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/07512.shtml)
-- 2026-06-30 06:50 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/6580926460.shtml)
-- 2026-06-30 06:46 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/316690652.shtml)
-- 2026-06-30 06:56 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/6829556084.shtml)
-- 2026-06-30 06:56 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/1509481.shtml)
-- 2026-06-30 06:53 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/75570640.shtml)
-- 2026-06-30 07:02 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/3020225.shtml)
-- 2026-06-30 06:47 - [森保一 保守](https://www.share.kurohicncr.top/Article/details/969770.shtml)
-- 2026-06-30 06:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/56353.shtml)
-- 2026-06-30 06:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/00497110.shtml)
-- 2026-06-30 06:36 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/152469.shtml)
-- 2026-06-30 06:44 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/3130117.shtml)
+- 2026-06-30 06:59 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/264066261.shtml)
+- 2026-06-30 06:59 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/16620868252.shtml)
+- 2026-06-30 06:43 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/994861214.shtml)
+- 2026-06-30 07:02 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/7965791.shtml)
+- 2026-06-30 07:07 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/289619.shtml)
+- 2026-06-30 06:57 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/303618595.shtml)
+- 2026-06-30 07:01 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/69472367.shtml)
+- 2026-06-30 07:00 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/2690060795.shtml)
+- 2026-06-30 06:46 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/808623971760.shtml)
+- 2026-06-30 07:11 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/65210756653.shtml)
+- 2026-06-30 06:47 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/0175842.shtml)
+- 2026-06-30 06:46 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/53659093033.shtml)
+- 2026-06-30 06:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/34676303.shtml)
+- 2026-06-30 07:06 - [恋与深空道歉声明](https://www.share.kurohicncr.top/Article/details/413184211798.shtml)
+- 2026-06-30 07:11 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/204382.shtml)

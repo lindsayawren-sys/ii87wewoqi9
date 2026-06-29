@@ -1,55 +1,59 @@
-# 美国银行：英伟达新一代芯片将推动潜在市场规模翻倍
+# 一“坨”云南普洱茶的世界之旅
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-英伟达首席财务官科莱特·克雷斯在美国银行全球技术会议上的发言中指出，随着新一代芯片的推出，英伟达认为其可触达市场（addressable market，即潜在市场规模 ）有望翻倍。该行在克雷斯发表主题演讲后重申了对这家芯片制造商的“买入”评级及350美元的目标价，该目标价较周四收盘价有60%的上涨空间。 分析师维韦克·阿里亚在报告中写道，英伟达凭借其新创新获得的增长空间十分可观
+中新网大理6月4日电 题：一“坨”云南普洱茶的世界之旅 作者 陆希成 白玲 李嘉娴 近日，在中国百年老字号、著名茶企——云南下关沱茶(集团)股份有限公司的车间里，工人们正抓紧分拣、压制、装箱——沱茶、饼茶、散茶整装待发，为即将亮相于第10届中国—南亚博览会(以下简称“南博会”)备货。 拟于本月11日在云南省省会昆明市启幕的南博会，是中国面向南亚东南亚的重要商贸平台。今次预计有6
 
 ## 正文
 
-英伟达首席财务官科莱特·克雷斯在美国银行全球技术会议上的发言中指出，随着新一代芯片的推出，英伟达认为其可触达市场（addressable market，即潜在市场规模 ）有望翻倍。
+中新网大理6月4日电 题：一“坨”云南普洱茶的世界之旅 作者 陆希成 白玲 李嘉娴 近日，在中国百年老字号、著名茶企——云南下关沱茶(集团)股份有限公司的车间里，工人们正抓紧分拣、压制、装箱——沱茶、饼茶、散茶整装待发，为即将亮相于第10届中国—南亚博览会(以下简称“南博会”)备货。
 
-该行在克雷斯发表主题演讲后重申了对这家芯片制造商的“买入”评级及350美元的目标价，该目标价较周四收盘价有60%的上涨空间。
+拟于本月11日在云南省省会昆明市启幕的南博会，是中国面向南亚东南亚的重要商贸平台。
 
-分析师维韦克·阿里亚在报告中写道，英伟达凭借其新创新获得的增长空间十分可观。
+今次预计有60余个国家和地区、国际组织报名参展，意大利、乌拉圭、澳大利亚等7国使领馆首次以国家展团亮相；报名的专业采购商超1000家，境外采购商占比超67%。
 
-他援引英伟达的预测称，每一代新系统都能显著扩大公司的可触达市场：从当前Blackwell Ultra的每吉瓦约400亿美元，到Vera Rubin和Rubin Ultra的每吉瓦600至800亿美元，再到Feynman的每吉瓦约1000亿美元。
+对下关沱茶而言，由“坨”到“沱”，由边销到外销，以茶为媒，与世界分享的历史悠久而传奇。
 
-阿里亚指出，尽管具体数字可能存在差异，但英伟达每一代都在覆盖AI系统中更多的环节。
+云南下关沱茶(集团)股份有限公司所在的大理市下关，曾是茶马古道重镇，也是国家级非遗“下关沱茶制作技艺”的发源地。
 
-阿里亚还将英伟达称为“多元化之王”，这得益于其同时为超大规模企业以及日益增长的AI云、工业和企业公司提供服务的混合业务结构。
+1902年，大理喜洲商帮“永昌祥”在此将普洱紧压茶定型，制成形似窝头的碗状茶，大量销往四川。
 
-责任编辑：张俊 SF065
+川滇方言把成团成块之物唤作“坨”，此茶初称“坨茶”；因主销四川沱江一带、当地人惯以沱江水冲泡，“沱江水，下关茶”渐渐叫开，“坨茶”便改称“沱茶”。
+
+彼时，下关沱茶也已漂洋过海。
 
 ## 相关推荐
 
-- 2026-06-30 06:36 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 06:44 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 06:38 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 06:59 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 06:42 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 06:38 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-30 06:40 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 06:39 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 07:02 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 06:36 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 06:40 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 07:00 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 06:50 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 07:11 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 06:55 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 07:02 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 06:51 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 06:42 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 07:09 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 07:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 07:02 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 07:03 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 06:52 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 06:50 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/542866804152.shtml)
-- 2026-06-30 07:00 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/8316225323.shtml)
-- 2026-06-30 06:59 - [中国新一轮出口管制直指日本命脉](http://www.share.kurohicncr.top/Article/details/504533.shtml)
-- 2026-06-30 06:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/74055.shtml)
-- 2026-06-30 06:44 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/05032840089.shtml)
-- 2026-06-30 06:38 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/454401.shtml)
-- 2026-06-30 06:52 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/1795541.shtml)
-- 2026-06-30 07:04 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/892158.shtml)
-- 2026-06-30 06:55 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/597863890143.shtml)
-- 2026-06-30 06:51 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/013203.shtml)
-- 2026-06-30 06:47 - [毒液2](https://www.share.minike.top/Article/details/91368.shtml)
-- 2026-06-30 06:49 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/36775467848.shtml)
-- 2026-06-30 06:45 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/77208105.shtml)
-- 2026-06-30 07:01 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/660897890.shtml)
-- 2026-06-30 06:51 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/62601.shtml)
+- 2026-06-30 07:03 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/311133.shtml)
+- 2026-06-30 07:11 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/5429141.shtml)
+- 2026-06-30 06:51 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/229650.shtml)
+- 2026-06-30 06:57 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/33275114.shtml)
+- 2026-06-30 06:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/07290745338.shtml)
+- 2026-06-30 06:52 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/66568.shtml)
+- 2026-06-30 06:54 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/989113.shtml)
+- 2026-06-30 07:07 - [人类...完蛋了...](https://www.share.minike.top/Article/details/50994.shtml)
+- 2026-06-30 06:44 - [德国巴拉圭加时](http://www.share.kurohicncr.top/Article/details/94675940.shtml)
+- 2026-06-30 06:43 - [扬名立万](http://www.share.kurohicncr.top/Article/details/580278603.shtml)
+- 2026-06-30 06:59 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/34387175.shtml)
+- 2026-06-30 06:53 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/202016.shtml)
+- 2026-06-30 07:06 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/3383444003.shtml)
+- 2026-06-30 06:51 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/5448824.shtml)
+- 2026-06-30 06:44 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/5151055814.shtml)

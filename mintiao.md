@@ -1,59 +1,58 @@
-# Coinbase上线SpaceX上市前永续合约，投资者可提前“买入”SpaceX相关权益
+# 央行最新！加大“收水”力度！5000亿元，明日操作
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-核心要点 Coinbase 于周四正式推出新品，用户可在企业 IPO 挂牌前参与其价格行情交易，首款产品为锚定 SpaceX 的永续期货（业内简称 perp）。 IPO 前置永续合约无需交易者实际持有目标公司股权，即可博弈非上市企业估值变化。Coinbase 首期上线 SpaceX 上市前永续合约，该衍生品以稳定币 USDC 结算，价格对标马斯克旗下航天公司的私募市场估值，仅限
+今日，人民银行（下称“央行”）发布公告称，将在5日以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为3个月（92天）。鉴于该期限品种当月有1万亿元到期量，本次3个月期买断式逆回购操作将净回笼5000亿元，回笼资金规模较上月操作进一步扩大。 在此之前，央行已连续三个月通过买断式逆回购操作持续净回笼中长期流动性。央行近段时间开展的各项公开市场操作也主要以
 
 ## 正文
 
-核心要点 Coinbase 于周四正式推出新品，用户可在企业 IPO 挂牌前参与其价格行情交易，首款产品为锚定 SpaceX 的永续期货（业内简称 perp）。
+今日，人民银行（下称“央行”）发布公告称，将在5日以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为3个月（92天）。
 
-IPO 前置永续合约无需交易者实际持有目标公司股权，即可博弈非上市企业估值变化。
+鉴于该期限品种当月有1万亿元到期量，本次3个月期买断式逆回购操作将净回笼5000亿元，回笼资金规模较上月操作进一步扩大。
 
-Coinbase 首期上线 SpaceX 上市前永续合约，该衍生品以稳定币 USDC 结算，价格对标马斯克旗下航天公司的私募市场估值，仅限美国以外地区投资者参与交易。
+在此之前，央行已连续三个月通过买断式逆回购操作持续净回笼中长期流动性。
 
-当下优质企业私有化存续周期不断拉长，普通散户想要在明星公司登陆二级市场前布局的需求持续攀升；而这类投资机会过去仅面向风投、私募及合格投资者开放，Coinbase 这款产品顺势落地。
+央行近段时间开展的各项公开市场操作也主要以“收水”为主，频繁开展“地量”公开市场逆回购操作，4日和5日的逆回购操作量进一步降至零。
 
-Coinbase 衍生品主管莉兹・马丁表示：“对交易者而言，配置高景气、低相关性资产的需求空前旺盛。
+在市场机构普遍看来，央行近期开展的各项公开市场操作，主要是银行体系流动性充裕，金融机构对央行流动性需求下降，央行货币政策工具相应缩量续作，避免市场利率过度下行，引导隔夜资金利率（DR001）在政策利率水平附近运行。
 
-我们已经搭建起合规可信的加密货币交易平台，如今依托这套交易体系，让用户在顶尖未上市企业挂牌证券交易所之前就能参与其价格交易，这是适配当下市场环境的全新资产品类。
+4月以来，DR001较长时间维持在1.2%水平，直到5月下旬逐渐回升至1.3%附近。
 
-” 全球头部加密交易所币安已于上月先行上线 SpaceX 同类 IPO 前置永续产品。
+进入6月后，市场资金利率（DR007）继续运行在央行7天期逆回购利率下方，1年期国有银行和股份制银行同业存单利率在1.43%附近。
 
-本周加密货币大盘接连创出新低，比特币周四跌至 61340.71 美元，创下 2 月 6 日以来最低价位；在此行情环境下推出新品，也助力 Coinbase 落地 “全品类交易所” 战略：即便现货行情走弱、现货交易量萎缩，平台依旧保有可交易品种，依靠多元化衍生品稳住营收。
+“这表明与在货币市场融资相比，商业银行向央行融资的成本优势已不明显。
 
 ## 相关推荐
 
-- 2026-06-30 06:54 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 07:03 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 06:42 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 07:03 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 07:00 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 06:40 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 07:03 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 06:53 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 06:54 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 06:52 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 07:05 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 06:49 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 06:55 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-30 06:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 06:55 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 06:44 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 07:10 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 06:59 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 07:08 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 07:06 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 06:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 06:50 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 06:42 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 06:59 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 06:56 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:04 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/95098629427.shtml)
-- 2026-06-30 06:46 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/17968507.shtml)
-- 2026-06-30 07:00 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/34078183029.shtml)
-- 2026-06-30 06:49 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/272461978242.shtml)
-- 2026-06-30 06:57 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/101471192.shtml)
-- 2026-06-30 06:42 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/706194.shtml)
-- 2026-06-30 06:50 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/00982.shtml)
-- 2026-06-30 06:44 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/75987509.shtml)
-- 2026-06-30 06:37 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/6273992.shtml)
-- 2026-06-30 06:56 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/222110935154.shtml)
-- 2026-06-30 06:39 - [苗族银饰](https://www.blog.minike.top/Article/details/329787729.shtml)
-- 2026-06-30 06:44 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/998431261848.shtml)
-- 2026-06-30 06:47 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/0064165812.shtml)
-- 2026-06-30 07:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/398545276835.shtml)
-- 2026-06-30 06:54 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/73709341.shtml)
+- 2026-06-30 07:01 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/88204657.shtml)
+- 2026-06-30 06:46 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/59034574.shtml)
+- 2026-06-30 06:54 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/6283926.shtml)
+- 2026-06-30 06:55 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/742531.shtml)
+- 2026-06-30 06:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/28751548.shtml)
+- 2026-06-30 07:10 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/530535924.shtml)
+- 2026-06-30 07:05 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/331652.shtml)
+- 2026-06-30 06:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/770066205243.shtml)
+- 2026-06-30 07:00 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/042630563473.shtml)
+- 2026-06-30 06:44 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/67197956.shtml)
+- 2026-06-30 06:59 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/899460.shtml)
+- 2026-06-30 07:04 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/85741031.shtml)
+- 2026-06-30 06:50 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/4141342837.shtml)
+- 2026-06-30 07:07 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/02891933931.shtml)
+- 2026-06-30 07:10 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/3701400.shtml)

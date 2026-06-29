@@ -1,59 +1,61 @@
-# 焦点访谈｜智能时代的“用电量”！这个爆火的硬核新词，正在重塑千行百业
+# 国际最新研发出一种仿生机器人 演示揭秘鱼类如何在陆地上行走
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-央视网消息(焦点访谈)：最近有个新词儿很火，Token，也就是词元。词元是大模型处理信息的最小单元，简单来说，就像我们说话时的词语、标点，是AI理解和生成语言的基本“积木”，一句话、一段文字都会被拆成若干个词元来计算。和我们通过用电量来衡量工业活力一样，词元调用量也是衡量人工智能发展的全新时代标尺。今年3月，我国日均词元调用量突破140万亿，两年增长超千倍。那么，为什么会出现如
+中新网北京6月3日电 (记者 孙自法)施普林格·自然旗下学术期刊《自然-通讯》最新发表一篇机器人学论文称，研究人员开发出一种仿生机器人，用于演示为何有些鱼类可以在陆地上行走。这项研究成果或可阐明，数百万年前最初的陆地脊椎动物如何上岸并适应新环境。 该论文介绍，多鳍鱼、鲇鱼和肺鱼等一些现生鱼类能在陆地上行走。过去的观察表明，尽管这些鱼的鳍和身体形状各异，这些物种都采用大致相似的移
 
 ## 正文
 
-央视网消息(焦点访谈)：最近有个新词儿很火，Token，也就是词元。
+中新网北京6月3日电 (记者 孙自法)施普林格·自然旗下学术期刊《自然-通讯》最新发表一篇机器人学论文称，研究人员开发出一种仿生机器人，用于演示为何有些鱼类可以在陆地上行走。
 
-词元是大模型处理信息的最小单元，简单来说，就像我们说话时的词语、标点，是AI理解和生成语言的基本“积木”，一句话、一段文字都会被拆成若干个词元来计算。
+这项研究成果或可阐明，数百万年前最初的陆地脊椎动物如何上岸并适应新环境。
 
-和我们通过用电量来衡量工业活力一样，词元调用量也是衡量人工智能发展的全新时代标尺。
+该论文介绍，多鳍鱼、鲇鱼和肺鱼等一些现生鱼类能在陆地上行走。
 
-今年3月，我国日均词元调用量突破140万亿，两年增长超千倍。
+过去的观察表明，尽管这些鱼的鳍和身体形状各异，这些物种都采用大致相似的移动方式，包括利用尾部推动身体前进，同时用两个前鳍提供稳定性和支撑，论文作者称之为“起伏式三脚步态”。
 
-那么，为什么会出现如此巨量的增长？
+虽然动物的游泳和陆地行走都已得到充分研究，但陆地鱼类的移动模式主要基于物种特异的观察，导致难以确定统一的原理。
 
-词元用到了哪些地方？
+在本项研究中，论文第一作者和通讯作者、英国剑桥大学Michael Ishida与同事及合作者一起，根据塞内加尔多鳍鱼和其他“会走路的鱼”的运动特征，制作出一个计算机模型。
 
-这场词元大爆炸又意味着什么？
+进一步模拟显示，这些物种遵循同样的运动原理：用前鳍或头部锚定身体，用尾部围绕该锚点推动身体向前。
 
-最近，Token这个词特别火，Token中文名叫词元。
+在与塞内加尔多鳍鱼的条件高度吻合的情况下，行走速度最快且效率最高。
 
 ## 相关推荐
 
-- 2026-06-30 06:48 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 06:52 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 06:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 06:58 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 07:00 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 06:45 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 07:01 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 06:43 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 06:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 06:46 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 07:02 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 06:59 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 06:58 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 06:52 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 07:05 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 06:59 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 07:01 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 06:54 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 07:01 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 06:57 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 07:05 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 07:09 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 07:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 06:59 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 07:02 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 06:52 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 07:05 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 07:02 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:39 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/7323644104.shtml)
-- 2026-06-30 06:51 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/470730.shtml)
-- 2026-06-30 06:39 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/368654.shtml)
-- 2026-06-30 06:51 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/596332345.shtml)
-- 2026-06-30 06:39 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/633789463900.shtml)
-- 2026-06-30 06:39 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/417739458721.shtml)
-- 2026-06-30 06:47 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/08380270.shtml)
-- 2026-06-30 07:01 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/54379.shtml)
-- 2026-06-30 06:51 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/059184323.shtml)
-- 2026-06-30 06:54 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/7395100457.shtml)
-- 2026-06-30 07:03 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/278727988.shtml)
-- 2026-06-30 06:48 - [毒液2](http://www.share.minike.top/Article/details/405664839679.shtml)
-- 2026-06-30 07:05 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/94056219338.shtml)
-- 2026-06-30 06:36 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/68634.shtml)
-- 2026-06-30 06:58 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/82501759916.shtml)
+- 2026-06-30 06:53 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/5160849146.shtml)
+- 2026-06-30 07:02 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/03233838.shtml)
+- 2026-06-30 07:09 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/39013708.shtml)
+- 2026-06-30 07:10 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/062026475363.shtml)
+- 2026-06-30 07:10 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/380796.shtml)
+- 2026-06-30 06:52 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/39468.shtml)
+- 2026-06-30 07:03 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/553258341.shtml)
+- 2026-06-30 06:57 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/96413767270.shtml)
+- 2026-06-30 07:02 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/72975840862.shtml)
+- 2026-06-30 07:04 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/6553606205.shtml)
+- 2026-06-30 07:08 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/074274906.shtml)
+- 2026-06-30 07:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/0272113.shtml)
+- 2026-06-30 06:51 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/20586028646.shtml)
+- 2026-06-30 06:48 - [千香](http://www.blog.kurohicncr.top/Article/details/78475313.shtml)
+- 2026-06-30 06:46 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/95510524204.shtml)

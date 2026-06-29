@@ -1,57 +1,58 @@
-# 韩正出席第二十九届圣彼得堡国际经济论坛全会并致辞
+# 产品包装不该玩“文字游戏”
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科6月5日电 当地时间6月5日，中国国家副主席韩正在圣彼得堡出席第二十九届圣彼得堡国际经济论坛全会，并发表题为“践行全球治理倡议 携手共创美好未来”的致辞。 韩正在致辞中说，当前，世界百年变局加速演进，全球性挑战和治理赤字更加突出。习近平主席郑重提出全球治理倡议，强调奉行主权平等、遵守国际法治、践行多边主义、倡导以人为本、注重行动导向五大核心理念，已经得到近160个国
+近期，有关食品饮料包装标识与宣传货不对板的新闻接连见诸报端。从“五个女博士”品牌宣传其为口服美容产品，但实为普通饮料；到康师傅旗下“每日C水蜜桃水果饮品”宣传其特选“奉化水蜜桃”，但每瓶实际果汁含量仅为0.01g……这些产品因涉嫌刻意误导消费者，受到广泛质疑。在日常消费场景中，多数消费者选购产品时，首先关注的是包装醒目位置的宣传标语、原料卖点、功能定位，很少仔细研读包装角落字号
 
 ## 正文
 
-中新社莫斯科6月5日电 当地时间6月5日，中国国家副主席韩正在圣彼得堡出席第二十九届圣彼得堡国际经济论坛全会，并发表题为“践行全球治理倡议 携手共创美好未来”的致辞。
+近期，有关食品饮料包装标识与宣传货不对板的新闻接连见诸报端。
 
-韩正在致辞中说，当前，世界百年变局加速演进，全球性挑战和治理赤字更加突出。
+从“五个女博士”品牌宣传其为口服美容产品，但实为普通饮料；到康师傅旗下“每日C水蜜桃水果饮品”宣传其特选“奉化水蜜桃”，但每瓶实际果汁含量仅为0.01g……这些产品因涉嫌刻意误导消费者，受到广泛质疑。
 
-习近平主席郑重提出全球治理倡议，强调奉行主权平等、遵守国际法治、践行多边主义、倡导以人为本、注重行动导向五大核心理念，已经得到近160个国家和国际组织的积极响应和支持。
+在日常消费场景中，多数消费者选购产品时，首先关注的是包装醒目位置的宣传标语、原料卖点、功能定位，很少仔细研读包装角落字号极小的配料表、成分含量、产品属性标注。
 
-“全球治理之友小组”在联合国发起成立，发出捍卫联合国宪章宗旨和原则、维护真正的多边主义、反对单边主义的一致声音。
+这让部分厂家在产品包装上开始玩起“文字游戏”。
 
-中方不仅是全球治理倡议的首倡者，更以实际行动团结各方，共同推动全球治理体系的改革和完善。
+有的果汁饮料主打“纯鲜果压榨”，配料表首位却是饮用水，仅含微量浓缩果汁；有的面食产品标注“手擀、手打”，实则全为机器流水线生产。
 
-韩正表示，中俄两国同为世界主要大国和联合国安理会常任理事国，在全球治理体系变革进程中肩负重要使命。
+这些问题的共性，就是通过放大产品噱头、隐瞒关键短板，利用消费者的认知盲区收割流量与利润。
 
-不久前，习近平主席同普京总统在北京会晤，双方发表《中华人民共和国和俄罗斯联邦关于倡导世界多极化和新型国际关系的联合声明》，彰显中俄两国共同推动构建更加公正合理的全球治理体系的坚定决心和大国担当。
+厂家在包装上搞“文字游戏”，看似是营销小聪明，实则是透支信誉、触碰红线的短视行为。
 
-中方愿同包括俄方在内的各方一道，围绕推动落实全球治理倡议加强合作，共同建设开放包容、公平正义、合作共赢的世界。
+于消费者而言，支付了相应的金额，却买不到对应的产品品质与服务，自身知情权、选择权与公平交易权被侵犯。
 
 ## 相关推荐
 
-- 2026-06-30 06:44 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 06:57 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 06:55 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 06:38 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 06:53 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-30 06:38 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 06:49 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 07:05 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 06:45 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 06:58 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 06:59 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-30 06:46 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 06:46 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 07:10 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 06:50 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 07:10 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 07:03 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 06:56 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 06:45 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 07:09 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 07:11 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 06:55 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 07:03 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/68435.shtml)
-- 2026-06-30 06:54 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/1119780.shtml)
-- 2026-06-30 06:56 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/23894535351.shtml)
-- 2026-06-30 06:44 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/138481268227.shtml)
-- 2026-06-30 07:05 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/1178446392.shtml)
-- 2026-06-30 07:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/9085651377.shtml)
-- 2026-06-30 07:03 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/1632310.shtml)
-- 2026-06-30 06:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/55616.shtml)
-- 2026-06-30 06:43 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/392857.shtml)
-- 2026-06-30 06:51 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/92971655898.shtml)
-- 2026-06-30 06:56 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/151605.shtml)
-- 2026-06-30 06:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/15998757.shtml)
-- 2026-06-30 06:59 - [日本领先巴西](http://www.share.minike.top/Article/details/403928781067.shtml)
-- 2026-06-30 06:58 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/912233.shtml)
-- 2026-06-30 06:40 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/57220227932.shtml)
+- 2026-06-30 06:54 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/829756275.shtml)
+- 2026-06-30 07:10 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/673368633009.shtml)
+- 2026-06-30 06:44 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/623513364.shtml)
+- 2026-06-30 07:02 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/13306940488.shtml)
+- 2026-06-30 06:57 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/1145412531.shtml)
+- 2026-06-30 06:48 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/48187.shtml)
+- 2026-06-30 06:50 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/55029796547.shtml)
+- 2026-06-30 06:50 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/389784.shtml)
+- 2026-06-30 07:07 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/14803.shtml)
+- 2026-06-30 06:58 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/761078516.shtml)
+- 2026-06-30 06:47 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/86344217.shtml)
+- 2026-06-30 06:58 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/143472.shtml)
+- 2026-06-30 06:45 - [斛珠夫人](https://www.share.minike.top/Article/details/7177475026.shtml)
+- 2026-06-30 06:59 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/358972197293.shtml)
+- 2026-06-30 07:04 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/599869.shtml)

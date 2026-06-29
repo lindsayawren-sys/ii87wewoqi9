@@ -1,49 +1,56 @@
-# 沃尔核材遭T.Rowe Price Associates, Inc. and its Affiliates减持75.52万股 每股作价约15.62港元
+# D-Wave荣获卓越职场认证 企业文化建设获员工高度认可
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，6月1日，T.Rowe Price Associates， Inc． and its Affiliates减持沃尔核材（09981）75.52万股，每股作价15.619港元，总金额约为1179.55万港元。减持后最新持股数目为639.26万股，最新持股比例为4.56%。责任编辑：卢昱君
+量子计算领军企业D-Wave Quantum Inc．今日宣布，公司已获得全球职场文化与员工体验权威机构Great Place To Work颁发的2026年度卓越职场认证。该认证完全基于员工反馈，且正值D-Wave规模快速扩张的关键时期，彰显了其协作、创新和有使命感的文化特质。 此次认证的核心是“卓越职场”信任指数员工调研，评估标准涵盖员工在日常工作中体验到的信任、尊重、可信
 
 ## 正文
 
-香港联交所最新数据显示，6月1日，T.Rowe Price Associates， Inc． and its Affiliates减持沃尔核材（09981）75.52万股，每股作价15.619港元，总金额约为1179.55万港元。
+量子计算领军企业D-Wave Quantum Inc．今日宣布，公司已获得全球职场文化与员工体验权威机构Great Place To Work颁发的2026年度卓越职场认证。
 
-减持后最新持股数目为639.26万股，最新持股比例为4.56%。
+该认证完全基于员工反馈，且正值D-Wave规模快速扩张的关键时期，彰显了其协作、创新和有使命感的文化特质。
 
-责任编辑：卢昱君
+此次认证的核心是“卓越职场”信任指数员工调研，评估标准涵盖员工在日常工作中体验到的信任、尊重、可信度、公平性、自豪感和同志情谊等多个维度。
+
+这一全球公认的标杆认证，证明了D-Wave在打造高信任、高效能工作场所方面的出色表现。
+
+D-Wave首席执行官艾伦·巴拉茨博士表示：“该认证反映了我们员工的真实声音和体验。
+
+随着公司持续快速增长，维护使他们能够发挥最佳工作的文化既是我们的首要任务，也是一项非凡的成就。
+
+” 获得此项认证正处于公司发展的关键时期。
+
+D-Wave近期刚举办了首届投资者日，并向市场展示了其通往容错量子计算的详细路线图，目标是在2032年前建成可支持量子化学及量子人工智能应用的100逻辑量子比特系统。
 
 ## 相关推荐
 
-- 2026-06-30 06:43 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 06:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 06:54 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 07:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 06:37 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 07:00 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 06:38 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 06:40 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-30 06:42 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 06:43 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 06:55 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 06:48 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 06:39 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 07:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 06:53 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 07:04 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 06:59 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 07:06 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 06:59 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 07:00 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 06:50 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 06:55 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 06:47 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:37 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/96146.shtml)
-- 2026-06-30 06:44 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/00138827.shtml)
-- 2026-06-30 06:40 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/371136618.shtml)
-- 2026-06-30 06:42 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/52116.shtml)
-- 2026-06-30 07:03 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/956846590.shtml)
-- 2026-06-30 06:49 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/5584347988.shtml)
-- 2026-06-30 06:38 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/295073850116.shtml)
-- 2026-06-30 06:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/44038415443.shtml)
-- 2026-06-30 06:46 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/33350.shtml)
-- 2026-06-30 06:48 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/830908223204.shtml)
-- 2026-06-30 06:46 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/262743151514.shtml)
-- 2026-06-30 06:44 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/051695.shtml)
-- 2026-06-30 06:41 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/39572192.shtml)
-- 2026-06-30 06:38 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/81316580615.shtml)
-- 2026-06-30 06:50 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/80017322612.shtml)
+- 2026-06-30 06:42 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/456798160.shtml)
+- 2026-06-30 06:56 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/147556.shtml)
+- 2026-06-30 06:56 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/53479.shtml)
+- 2026-06-30 07:02 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/99319.shtml)
+- 2026-06-30 07:07 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/518972574.shtml)
+- 2026-06-30 07:08 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/3328355855.shtml)
+- 2026-06-30 07:08 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/0318786.shtml)
+- 2026-06-30 07:04 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/555206964.shtml)
+- 2026-06-30 06:45 - [青春环游记第三季](http://www.blog.minike.top/Article/details/8242992156.shtml)
+- 2026-06-30 07:00 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/43726105795.shtml)
+- 2026-06-30 06:57 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/3505360398.shtml)
+- 2026-06-30 06:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/937873440.shtml)
+- 2026-06-30 06:59 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/05432014411.shtml)
+- 2026-06-30 06:49 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/53887308.shtml)
+- 2026-06-30 06:46 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/8512719702.shtml)

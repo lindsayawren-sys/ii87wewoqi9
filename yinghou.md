@@ -1,44 +1,59 @@
-# 凌颖杰获批担任渤海银行董事
+# 社区投票复盘：黄金、原油、美伊和平、纳指与中期选举，谁的判断最准？
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-6月5日金融一线消息，国家金融监督管理总局发布《关于凌颖杰渤海银行董事任职资格的批复》，核准凌颖杰渤海银行股份有限公司董事的任职资格。 责任编辑：曹睿潼
+5月最后一周，我们围绕黄金、原油、纳斯达克、中东局势以及美国中期选举等热点话题发起了多场投票，十张京东卡奖励已经全部发放完毕。如今结果已经揭晓，让我们一起看看网友们的判断与市场实际走势是否一致。 一、纳斯达克：多数人坚定看多 在“纳斯达克100在5月底的收盘价？”投票中：30000点以上获得5271票，占总票数75%。最终纳指成功站上30000点，网友们再次展现出对AI牛市的强
 
 ## 正文
 
-6月5日金融一线消息，国家金融监督管理总局发布《关于凌颖杰渤海银行董事任职资格的批复》，核准凌颖杰渤海银行股份有限公司董事的任职资格。
+5月最后一周，我们围绕黄金、原油、纳斯达克、中东局势以及美国中期选举等热点话题发起了多场投票，十张京东卡奖励已经全部发放完毕。
 
-责任编辑：曹睿潼
+如今结果已经揭晓，让我们一起看看网友们的判断与市场实际走势是否一致。
+
+一、纳斯达克：多数人坚定看多 在“纳斯达克100在5月底的收盘价？
+
+”投票中：30000点以上获得5271票，占总票数75%。
+
+最终纳指成功站上30000点，网友们再次展现出对AI牛市的强大信心。
+
+从结果来看，市场对于AI、半导体和科技龙头的乐观情绪明显强于全球视角参考值，最终多头获得胜利。
+
+二、纽约原油：市场高估了地缘风险 在“纽约原油会在5月涨超110吗？
+
+”投票中：看多网友一度超过40%，明显高于全球视角。
 
 ## 相关推荐
 
-- 2026-06-30 06:55 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 07:01 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 06:49 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 07:00 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 06:50 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 06:40 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 07:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 06:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 06:53 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 07:02 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 07:07 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 07:07 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 06:53 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 07:01 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 06:47 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 06:44 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 06:50 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 06:55 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 06:58 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 06:44 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 06:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 06:58 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 06:57 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:47 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/29760.shtml)
-- 2026-06-30 06:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/454616.shtml)
-- 2026-06-30 06:45 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/6385985.shtml)
-- 2026-06-30 06:40 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/167773760102.shtml)
-- 2026-06-30 06:52 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/099025348498.shtml)
-- 2026-06-30 06:36 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/95132210730.shtml)
-- 2026-06-30 06:39 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/0067141.shtml)
-- 2026-06-30 07:03 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/00879106745.shtml)
-- 2026-06-30 06:48 - [千香](http://www.blog.kurohicncr.top/Article/details/72713212.shtml)
-- 2026-06-30 06:57 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/297090676.shtml)
-- 2026-06-30 06:50 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/485714.shtml)
-- 2026-06-30 06:51 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/477137599.shtml)
-- 2026-06-30 06:55 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/160359545831.shtml)
-- 2026-06-30 07:00 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/363252005.shtml)
-- 2026-06-30 06:46 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/7228463780.shtml)
+- 2026-06-30 06:54 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/415407.shtml)
+- 2026-06-30 07:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/1289828.shtml)
+- 2026-06-30 06:46 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/69538.shtml)
+- 2026-06-30 06:43 - [爱很美味](https://www.share.kurohicncr.top/Article/details/49285870389.shtml)
+- 2026-06-30 07:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/14887.shtml)
+- 2026-06-30 07:03 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/898772207.shtml)
+- 2026-06-30 06:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/4823808.shtml)
+- 2026-06-30 06:53 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/591665302.shtml)
+- 2026-06-30 06:57 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/6631429784.shtml)
+- 2026-06-30 07:04 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/04469203605.shtml)
+- 2026-06-30 06:52 - [女心理师](https://www.blog.kurohicncr.top/Article/details/9803258018.shtml)
+- 2026-06-30 06:48 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/8847113951.shtml)
+- 2026-06-30 06:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/992621.shtml)
+- 2026-06-30 06:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/61577734.shtml)
+- 2026-06-30 06:44 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/5138614020.shtml)

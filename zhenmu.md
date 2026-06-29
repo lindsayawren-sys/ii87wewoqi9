@@ -1,59 +1,47 @@
-# 比特币暴跌 抹去特斯拉2.2亿美元浮盈
+# 中金：李宁维持跑赢行业评级 目标价27.50港元
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-受加密货币市场大幅回调影响，特斯拉持有的比特币资产在过去一个月内缩水超过2.2亿美元。比特币价格周五一度跌破6.2万美元，创下近四个月新低。 截至6月5日，比特币价格跌至约6.27万美元，较5月初约8.2万美元的高点已回落约24%。本周累计跌幅接近15%，有望创下自2022年11月FTX交易所倒闭以来最大单周跌幅。 据BitcoinTreasuries.net统计，特斯拉目前持
+中金发布研报称，考虑李宁（02331）与球星签约尚处于初期，相关费用规划待明晰，该行维持2026/27年EPS预测1.19/1.31元不变，当前股价对应14/12倍2026/27年市盈率，维持跑赢行业评级和目标价27.50港元不变，对应20倍2026年市盈率，较当前股价有46%上行空间。责任编辑：卢昱君
 
 ## 正文
 
-受加密货币市场大幅回调影响，特斯拉持有的比特币资产在过去一个月内缩水超过2.2亿美元。
+中金发布研报称，考虑李宁（02331）与球星签约尚处于初期，相关费用规划待明晰，该行维持2026/27年EPS预测1.19/1.31元不变，当前股价对应14/12倍2026/27年市盈率，维持跑赢行业评级和目标价27.50港元不变，对应20倍2026年市盈率，较当前股价有46%上行空间。
 
-比特币价格周五一度跌破6.2万美元，创下近四个月新低。
-
-截至6月5日，比特币价格跌至约6.27万美元，较5月初约8.2万美元的高点已回落约24%。
-
-本周累计跌幅接近15%，有望创下自2022年11月FTX交易所倒闭以来最大单周跌幅。
-
-据BitcoinTreasuries.net统计，特斯拉目前持有11，509枚比特币。
-
-按当前市价计算，其持仓价值约为7.24亿美元，较5月上旬约9.46亿美元的峰值缩水约2.22亿美元。
-
-特斯拉在今年第一季度财报中已确认其数字资产持仓出现1.73亿美元的公允价值损失。
-
-若比特币价格在第二季度末前未能反弹，公司的账面亏损将进一步扩大。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:37 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 07:03 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 06:50 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 06:43 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 06:59 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 07:02 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 06:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 07:03 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 06:51 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 06:48 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 06:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 06:56 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 06:58 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 06:53 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 07:06 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-30 07:11 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 06:43 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 06:46 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 06:56 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 06:55 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 06:46 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 06:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 07:09 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 06:51 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 07:07 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-30 06:46 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/819871723.shtml)
-- 2026-06-30 06:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/467114871.shtml)
-- 2026-06-30 06:54 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/8739732.shtml)
-- 2026-06-30 06:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/200279494353.shtml)
-- 2026-06-30 06:41 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/139730658116.shtml)
-- 2026-06-30 06:37 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/159330.shtml)
-- 2026-06-30 07:03 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/86201.shtml)
-- 2026-06-30 07:02 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/17073219585.shtml)
-- 2026-06-30 07:03 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/193607.shtml)
-- 2026-06-30 07:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/35745969.shtml)
-- 2026-06-30 07:02 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/359535.shtml)
-- 2026-06-30 07:04 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/34072696.shtml)
-- 2026-06-30 06:58 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/0738055.shtml)
-- 2026-06-30 07:03 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/7113356.shtml)
-- 2026-06-30 06:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/179611.shtml)
+- 2026-06-30 06:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/2140068.shtml)
+- 2026-06-30 06:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/946847.shtml)
+- 2026-06-30 07:04 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/04280.shtml)
+- 2026-06-30 07:10 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/0622699938.shtml)
+- 2026-06-30 06:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/09416.shtml)
+- 2026-06-30 06:59 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/2293795.shtml)
+- 2026-06-30 06:51 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/71047.shtml)
+- 2026-06-30 07:09 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/94324.shtml)
+- 2026-06-30 07:01 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/58978915.shtml)
+- 2026-06-30 06:43 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/57492.shtml)
+- 2026-06-30 06:51 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/694926191127.shtml)
+- 2026-06-30 07:00 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/9897930.shtml)
+- 2026-06-30 06:56 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/776943696.shtml)
+- 2026-06-30 07:05 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/943132011265.shtml)
+- 2026-06-30 07:00 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/597626088.shtml)

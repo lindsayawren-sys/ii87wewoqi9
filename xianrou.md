@@ -1,55 +1,52 @@
-# 丁向群任国家金融监管总局局长
+# 累计超130头次！长江江豚监测数量创历史新高
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-据人社部网站消息，国务院任免国家工作人员：任命丁向群（女）为国家金融监督管理总局局长。此前，据国家金融监督管理总局官网消息，5月29日下午，中央组织部有关负责同志出席国家金融监督管理总局领导干部会议，宣布中央决定：丁向群同志任国家金融监督管理总局党委书记。公开资料显示，丁向群，女，汉族，1965年6月生，江苏淮安人，中国人民大学货币银行学专业毕业，研究生学历，经济学硕士学位，中
+记者从江苏省生态环境厅了解到，近日，江苏省环境监测中心组织沿江各驻市环境监测中心、监测站等单位，顺利完成二季度长江江苏段全线长江江豚种群调查。 本次调查历时12天，受天气条件影响，有效观测为7天，累计观测记录江豚37群次超130头次，最大单群规模数量为12头，超过去年同期监测数量，创历史新高；江豚活动踪迹覆盖绝大部分江段，整体栖息分布范围持续拓展；各江段中南京江段观测到江豚超7
 
 ## 正文
 
-据人社部网站消息，国务院任免国家工作人员：任命丁向群（女）为国家金融监督管理总局局长。
+记者从江苏省生态环境厅了解到，近日，江苏省环境监测中心组织沿江各驻市环境监测中心、监测站等单位，顺利完成二季度长江江苏段全线长江江豚种群调查。
 
-此前，据国家金融监督管理总局官网消息，5月29日下午，中央组织部有关负责同志出席国家金融监督管理总局领导干部会议，宣布中央决定：丁向群同志任国家金融监督管理总局党委书记。
+本次调查历时12天，受天气条件影响，有效观测为7天，累计观测记录江豚37群次超130头次，最大单群规模数量为12头，超过去年同期监测数量，创历史新高；江豚活动踪迹覆盖绝大部分江段，整体栖息分布范围持续拓展；各江段中南京江段观测到江豚超70头次，遇见率最高。
 
-公开资料显示，丁向群，女，汉族，1965年6月生，江苏淮安人，中国人民大学货币银行学专业毕业，研究生学历，经济学硕士学位，中共党员，二十届中央委员。
+江豚被誉为长江生态的“晴雨表”，此番大范围现身，充分证明长江江苏段水质持续改善，水生生物栖息环境不断优化。
 
-丁向群在金融系统工作多年，担任过中国银行公司金融业务总裁、国家开发银行副行长、党委委员等职，后出任广西壮族自治区政府副主席，安徽省委常委、组织部部长等职，2024年任中国人民保险集团股份有限公司党委书记、董事长。
-
-来源：人社部网站、央视网编辑：丁宝秀审校：魏园
+(总台记者 唐高林)
 
 ## 相关推荐
 
-- 2026-06-30 06:58 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 06:42 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 06:59 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 06:43 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 06:49 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 06:45 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 07:00 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 06:55 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 07:01 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 06:53 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 07:03 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 06:40 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 06:54 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 06:45 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-30 06:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 06:48 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 06:55 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 07:10 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 07:08 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 07:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 06:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 06:49 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 06:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 06:52 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 06:57 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 06:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 06:44 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 07:04 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 07:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:41 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/1129404.shtml)
-- 2026-06-30 06:46 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/75473132748.shtml)
-- 2026-06-30 07:03 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/3007311542.shtml)
-- 2026-06-30 06:47 - [日本16强魔咒](https://www.share.minike.top/Article/details/25379634500.shtml)
-- 2026-06-30 07:05 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/067896.shtml)
-- 2026-06-30 06:45 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/55979664.shtml)
-- 2026-06-30 06:58 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/466334.shtml)
-- 2026-06-30 06:42 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/62011217197.shtml)
-- 2026-06-30 06:39 - [逃狱兄弟](https://www.share.minike.top/Article/details/97908859379.shtml)
-- 2026-06-30 06:59 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/068956870138.shtml)
-- 2026-06-30 06:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/657002.shtml)
-- 2026-06-30 06:46 - [绘画区你赢了](http://www.blog.minike.top/Article/details/439583.shtml)
-- 2026-06-30 06:42 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/873780.shtml)
-- 2026-06-30 06:57 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/743667023.shtml)
-- 2026-06-30 06:42 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/39822370999.shtml)
+- 2026-06-30 06:49 - [感动全网的699分女生想报考清华](https://www.share.minike.top/Article/details/57848460828.shtml)
+- 2026-06-30 07:09 - [巴西绝杀](http://www.blog.minike.top/Article/details/7040234.shtml)
+- 2026-06-30 06:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/49773334.shtml)
+- 2026-06-30 06:56 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/56330172.shtml)
+- 2026-06-30 06:43 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/86849135195.shtml)
+- 2026-06-30 07:03 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/881795.shtml)
+- 2026-06-30 07:11 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/1081263.shtml)
+- 2026-06-30 07:06 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/33903.shtml)
+- 2026-06-30 06:46 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/8451660.shtml)
+- 2026-06-30 06:56 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/659990693005.shtml)
+- 2026-06-30 06:48 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/0401145.shtml)
+- 2026-06-30 07:05 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/38773913.shtml)
+- 2026-06-30 06:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/399277250695.shtml)
+- 2026-06-30 06:46 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/2633597985.shtml)
+- 2026-06-30 07:01 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/2171773589.shtml)

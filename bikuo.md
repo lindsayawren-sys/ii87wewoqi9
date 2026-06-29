@@ -1,56 +1,59 @@
-# 联合国缅怀殉职维和人员
+# 福山承认错判中国，但她的帖文更有意义
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-中新社联合国6月5日电 联合国5日举行活动，缅怀多年来在联合国维和行动中殉职的近4500名维和人员。 当天，联合国秘书长古特雷斯在纽约联合国总部的维和人员纪念碑前敬献花圈。随后，他向68名殉职维和人员追授达格·哈马舍尔德勋章，并表彰多名在维和行动中展现勇气和领导力者。他还向一名殉职的乌克兰籍维和人员追授姆巴耶·迪亚涅勋章，并向另一名曾多次冒险深入交火地区营救伤员的乌拉圭籍维和士
+曾在近40年前预言“历史已终结”、认为西方的政治制度将引领世界的美国政治学者福山，近日在接受德国《法兰克福汇报》采访时承认，他当年的预言是错误的，他低估了崛起中的中国。 然而，福山在访谈中似乎还想给自己找补，并且仍在给中国打上错误的政治标签。为什么这些西方学者即便发现自己错估了中国，在认错时仍然扭扭捏捏呢？耿直哥认为，一位荷兰独立媒体人最近发表的一篇文章给出了一些线索。 这位荷
 
 ## 正文
 
-中新社联合国6月5日电 联合国5日举行活动，缅怀多年来在联合国维和行动中殉职的近4500名维和人员。
+曾在近40年前预言“历史已终结”、认为西方的政治制度将引领世界的美国政治学者福山，近日在接受德国《法兰克福汇报》采访时承认，他当年的预言是错误的，他低估了崛起中的中国。
 
-当天，联合国秘书长古特雷斯在纽约联合国总部的维和人员纪念碑前敬献花圈。
+然而，福山在访谈中似乎还想给自己找补，并且仍在给中国打上错误的政治标签。
 
-随后，他向68名殉职维和人员追授达格·哈马舍尔德勋章，并表彰多名在维和行动中展现勇气和领导力者。
+为什么这些西方学者即便发现自己错估了中国，在认错时仍然扭扭捏捏呢？
 
-他还向一名殉职的乌克兰籍维和人员追授姆巴耶·迪亚涅勋章，并向另一名曾多次冒险深入交火地区营救伤员的乌拉圭籍维和士兵颁发这一勋章。
+耿直哥认为，一位荷兰独立媒体人最近发表的一篇文章给出了一些线索。
 
-古特雷斯致辞说，目前全球各地部署着超过5万名维和人员，他们致力于保护平民生命安全。
+这位荷兰媒体人名叫曼雅·科特斯(Manya Koetse)。
 
-维和人员遏制暴力、促成政治解决方案、支持选举、提供人道主义援助、清除地雷等。
+公开资料显示，她对中国社会——尤其是中国的网络空间充满兴趣。
 
-他们冒着生命危险，展现出令人敬佩的勇气。
+她还曾在2013年创办了一个网络博客，专门向海外网民介绍中国的微博等社交媒体上的热门话题。
 
-古特雷斯表示，联合国蓝盔是全球范围内弱势群体的保护者，是最黑暗时刻的希望象征。
+这番履历也令她对中国的了解比近些年被中国一系列耀眼的科技成果和现代化大城市吸引的国外网民更为丰富和立体。
 
 ## 相关推荐
 
-- 2026-06-30 06:47 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 06:41 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 06:39 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 06:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 06:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 06:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 06:44 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 06:59 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 06:58 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 06:54 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 07:08 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 07:11 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 06:47 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 07:01 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 07:06 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 06:51 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 06:50 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 06:51 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 06:52 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 06:57 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 06:47 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 07:06 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 06:46 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/863196.shtml)
-- 2026-06-30 06:43 - [周冬雨多次说演不了话剧文城](https://www.blog.kurohicncr.top/Article/details/774385.shtml)
-- 2026-06-30 07:04 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/6430266.shtml)
-- 2026-06-30 06:55 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/5217872470.shtml)
-- 2026-06-30 06:46 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/4191259571.shtml)
-- 2026-06-30 06:37 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/7871318.shtml)
-- 2026-06-30 07:00 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/18784413.shtml)
-- 2026-06-30 06:39 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/6215238329.shtml)
-- 2026-06-30 06:59 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/55662456602.shtml)
-- 2026-06-30 06:49 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/3706169782.shtml)
-- 2026-06-30 07:01 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/92913678559.shtml)
-- 2026-06-30 06:44 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/151827.shtml)
-- 2026-06-30 06:36 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/27058192.shtml)
-- 2026-06-30 06:54 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/000535297.shtml)
-- 2026-06-30 06:40 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/2147731.shtml)
+- 2026-06-30 07:09 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/40553.shtml)
+- 2026-06-30 06:57 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/4316154040.shtml)
+- 2026-06-30 06:43 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/359025984.shtml)
+- 2026-06-30 07:09 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/66842467.shtml)
+- 2026-06-30 07:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/5007249711.shtml)
+- 2026-06-30 06:46 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/0057394.shtml)
+- 2026-06-30 06:57 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/3659958.shtml)
+- 2026-06-30 06:45 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/85830.shtml)
+- 2026-06-30 06:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/78298174744.shtml)
+- 2026-06-30 06:55 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/406522.shtml)
+- 2026-06-30 06:51 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/6697015.shtml)
+- 2026-06-30 06:44 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/655198759071.shtml)
+- 2026-06-30 06:54 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/6726669255.shtml)
+- 2026-06-30 07:06 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/76514770.shtml)
+- 2026-06-30 07:05 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/14221821.shtml)

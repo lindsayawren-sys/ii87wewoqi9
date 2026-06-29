@@ -1,55 +1,61 @@
-# 刘晓艳当选基金业协会理事会兼职会长 李一梅、陈戈、经雷、赵桂才、康乐、鲁伟铭等担任兼职副会长
+# 《快手2025年度企业社会责任报告》发布：快手平台带动4860万个就业机会
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-6月6日，中国证券投资基金业协会第四届会员代表大会在京隆重召开，大会选举产生协会第四届会员理事、监事，宣布证监会委派的非会员理事。第四届理事会成员共66人（其中非会员理事6人、会员理事60人），监事会成员13人。 大会期间，第四届理监事会第一次会议选举产生协会第四届负责人。专职负责人方面，施真强当选执行副会长；付惟龙、张彦斌、高天红当选专职副会长，买小青当选秘书长，决定卜敏为副
+6月2日，《快手2025年度企业社会责任报告》发布会在北京举行。会上，快手公益正式发布《快手2025年度企业社会责任报告》，系统呈现快手在科技创新、公益行动、产业赋能、生态建设、责任治理等方面的实践成果与年度进展。 报告显示，过去一年，快手持续深化AI战略，推动科技创新真正服务于用户、产业和社会，在推动公益创新、促进产业升级、带动就业创业、构建繁荣生态等领域取得显著成效。截至2
 
 ## 正文
 
-6月6日，中国证券投资基金业协会第四届会员代表大会在京隆重召开，大会选举产生协会第四届会员理事、监事，宣布证监会委派的非会员理事。
+6月2日，《快手2025年度企业社会责任报告》发布会在北京举行。
 
-第四届理事会成员共66人（其中非会员理事6人、会员理事60人），监事会成员13人。
+会上，快手公益正式发布《快手2025年度企业社会责任报告》，系统呈现快手在科技创新、公益行动、产业赋能、生态建设、责任治理等方面的实践成果与年度进展。
 
-大会期间，第四届理监事会第一次会议选举产生协会第四届负责人。
+报告显示，过去一年，快手持续深化AI战略，推动科技创新真正服务于用户、产业和社会，在推动公益创新、促进产业升级、带动就业创业、构建繁荣生态等领域取得显著成效。
 
-专职负责人方面，施真强当选执行副会长；付惟龙、张彦斌、高天红当选专职副会长，买小青当选秘书长，决定卜敏为副秘书长。
+截至2025年底，快手平台带动4860万个就业机会，催生189个新职业，其中AI催生15个新职业；专利申请14265件，大模型领域申请专利510件，斩获中国专利奖8项。
 
-兼职负责人方面，刘晓艳当选会长；马向晖、王曙光、左丁、刘彤、李一梅、李俊杰、张志洲、陈戈、经雷、赵军、赵桂才、黄杰、康乐、鲁伟铭、雷军、谭晓冈、戴敏敏当选兼职副会长；刘伟当选监事长，陈颖钰当选副监事长。
+“企业的价值，不只是跑得多快，更在于能否带着更多人一起向前。
 
-责任编辑：石秀珍 SF183
+”快手科技副总裁、快手公益基金会理事长宋婷婷表示，快手未来将继续坚守“信任连接，价值普惠”理念，持续推动AI能力场景化落地、繁荣内容生态、赋能实体经济、深化公益创新、提升治理水平，与政府、行业、合作伙伴、创作者、用户和社会各界一起，在数字时代共建更温暖、更普惠、更可持续的美好社会。
+
+AI深度融入公益实践，推动数字普惠 2025年，快手持续将前沿技术融入公益实践，让AI与数字科技抵达更多真实需要的地方。
+
+在AI赋能教育领域，截至2025年底，快手公益“启智未来学堂”已在8个省区捐建40间数字教室，配置2000余台电脑，并在多地乡村学校开展AI兴趣课堂和科技夏令营，用AI赋能一线教师，为教育注入新动能。
 
 ## 相关推荐
 
-- 2026-06-30 07:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 06:52 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 06:55 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 06:46 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 06:53 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 07:04 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 06:57 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 07:04 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 07:00 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 06:48 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 06:47 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 06:42 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 07:05 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 06:45 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 06:45 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 06:54 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 07:04 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 07:01 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-30 07:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 07:02 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 06:49 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 06:54 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 06:43 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 06:42 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 07:00 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 06:51 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 06:53 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 07:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:56 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/8982429709.shtml)
-- 2026-06-30 06:38 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/612663099781.shtml)
-- 2026-06-30 06:54 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/19819565682.shtml)
-- 2026-06-30 06:37 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/836089419.shtml)
-- 2026-06-30 06:57 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/19168.shtml)
-- 2026-06-30 06:55 - [苗族银饰](http://www.share.minike.top/Article/details/43497039370.shtml)
-- 2026-06-30 06:43 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/92049645.shtml)
-- 2026-06-30 07:01 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/614980307.shtml)
-- 2026-06-30 06:59 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/4695648.shtml)
-- 2026-06-30 07:04 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/60955983460.shtml)
-- 2026-06-30 06:44 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/983860325.shtml)
-- 2026-06-30 06:40 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/787566262123.shtml)
-- 2026-06-30 06:39 - [明星大侦探第一季](https://www.share.minike.top/Article/details/568542789.shtml)
-- 2026-06-30 06:51 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/244767298.shtml)
-- 2026-06-30 06:47 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/424278.shtml)
+- 2026-06-30 06:56 - [美股](http://www.share.kurohicncr.top/Article/details/6801808596.shtml)
+- 2026-06-30 07:00 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/250100.shtml)
+- 2026-06-30 07:00 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/207449354522.shtml)
+- 2026-06-30 07:04 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/2967330.shtml)
+- 2026-06-30 06:56 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/5042802.shtml)
+- 2026-06-30 07:05 - [金刚川](https://www.blog.minike.top/Article/details/279139132.shtml)
+- 2026-06-30 07:10 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/800633.shtml)
+- 2026-06-30 06:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/576310520.shtml)
+- 2026-06-30 06:53 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/977731.shtml)
+- 2026-06-30 06:52 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/983283405.shtml)
+- 2026-06-30 06:42 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/361319.shtml)
+- 2026-06-30 07:03 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/8205823515.shtml)
+- 2026-06-30 06:46 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/47680.shtml)
+- 2026-06-30 06:48 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/508875618455.shtml)
+- 2026-06-30 07:08 - [内马尔替补](http://www.blog.minike.top/Article/details/97251282.shtml)

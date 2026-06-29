@@ -1,56 +1,59 @@
-# 印度1—3月经济同比增速达7.8%，表现超市场预期
+# 富国银行：美股市场仍如坐过山车
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-核心要点 受中东地缘冲突扰动供应链影响，印度一季度经济仍实现亮眼表现：1—3 月国内生产总值同比上涨 7.8%，增速超出市场预期。 路透社此前经济学家调查显示，市场普遍预测该季度增速为 7.2%，同时低于上一季度增速 7.8%。 本季度前半段，印度外贸迎来重大利好：印度与欧盟敲定里程碑式大型自贸协定；美国同步将印度商品进口关税由 50% 下调至 18%。后续美国最高法院裁定特朗
+富国银行策略师斯科特·雷恩表示，自美以对伊战争爆发以来，所有市场都如同坐上了“过山车”。他预计，即使这场战争结束，市场的大幅波动也不会很快平息。 例如，美国基准西得克萨斯中质原油多次出现单日涨跌幅达5%至10%的情况。美国国债收益率也未能幸免。10年期国债收益率此前为4%，但到3月份已升至4.5%，5月份更是一度触及4.67%的高位，随后又回落至4.45%。 他在给客户的报告中
 
 ## 正文
 
-核心要点 受中东地缘冲突扰动供应链影响，印度一季度经济仍实现亮眼表现：1—3 月国内生产总值同比上涨 7.8%，增速超出市场预期。
+富国银行策略师斯科特·雷恩表示，自美以对伊战争爆发以来，所有市场都如同坐上了“过山车”。
 
-路透社此前经济学家调查显示，市场普遍预测该季度增速为 7.2%，同时低于上一季度增速 7.8%。
+他预计，即使这场战争结束，市场的大幅波动也不会很快平息。
 
-本季度前半段，印度外贸迎来重大利好：印度与欧盟敲定里程碑式大型自贸协定；美国同步将印度商品进口关税由 50% 下调至 18%。
+例如，美国基准西得克萨斯中质原油多次出现单日涨跌幅达5%至10%的情况。
 
-后续美国最高法院裁定特朗普时期征收关税违法，相关税率进一步降至 10%，显著利好印度出口。
+美国国债收益率也未能幸免。
 
-但 2 月末伊朗战事爆发，此后持续冲击印度经济，市场担忧冲突拖累经济、抬升通胀水平。
+10年期国债收益率此前为4%，但到3月份已升至4.5%，5月份更是一度触及4.67%的高位，随后又回落至4.45%。
 
-印度央行周五宣布：将 2027 年 3 月结束财年的通胀预期上调 50 个基点至 5.1%，同时下调全年经济增速预期，从此前 6.9% 修正至 6.6%。
+他在给客户的报告中写道：“我们确实看到美国和伊朗都面临着迅速达成协议以恢复全球能源流通的压力。
 
-地缘冲突造成全球能源供应紊乱，大幅抬高印度原油进口成本，本就遭遇外资创纪录外流冲击的印度卢比再度承压。
+但是，即使明天就达成协议，通胀问题仍将成为今年余下时间的前景考量因素之一。
 
-此前印度政府暂缓上调国内成品油售价数月，5 月开始落地国际油价上涨带来的调价，全球燃油涨价成本向下游终端传导，这个全球主要经济体将直面通胀上行压力。
+投资者可以考虑增持那些能够将上涨的投入成本转嫁给商业客户的行业，包括工业气体以及机械与设备行业板块。
 
 ## 相关推荐
 
-- 2026-06-30 06:55 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 07:04 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 06:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 06:51 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 06:54 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 06:54 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-30 06:38 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 06:56 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-30 06:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 06:45 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 07:08 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 06:50 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 07:09 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 07:01 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 06:54 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 07:06 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 06:42 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 07:00 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 07:06 - [孙兴慜道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 06:42 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 06:59 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 06:55 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 06:54 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:51 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/001324025001.shtml)
-- 2026-06-30 06:57 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/781681.shtml)
-- 2026-06-30 07:03 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/9827919783.shtml)
-- 2026-06-30 06:37 - [日本反击率先破门](http://www.share.minike.top/Article/details/909833149.shtml)
-- 2026-06-30 07:05 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/48238.shtml)
-- 2026-06-30 07:01 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/8299112704.shtml)
-- 2026-06-30 06:39 - [田中碧失误](http://www.blog.kurohicncr.top/Article/details/39284467.shtml)
-- 2026-06-30 06:45 - [月亮](http://www.share.kurohicncr.top/Article/details/90365350.shtml)
-- 2026-06-30 06:52 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/6911263.shtml)
-- 2026-06-30 06:58 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/4263675.shtml)
-- 2026-06-30 06:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/70669438169.shtml)
-- 2026-06-30 07:02 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/881371273.shtml)
-- 2026-06-30 06:55 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/22325813.shtml)
-- 2026-06-30 06:42 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/1544021.shtml)
-- 2026-06-30 06:45 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/965185.shtml)
+- 2026-06-30 06:48 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/410580277.shtml)
+- 2026-06-30 07:08 - [一生一世](http://www.share.kurohicncr.top/Article/details/135044.shtml)
+- 2026-06-30 06:55 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/110918485.shtml)
+- 2026-06-30 07:03 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/78493071300.shtml)
+- 2026-06-30 06:59 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/427305651.shtml)
+- 2026-06-30 07:03 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/7013053355.shtml)
+- 2026-06-30 06:44 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/991224611.shtml)
+- 2026-06-30 07:00 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/907729687329.shtml)
+- 2026-06-30 07:11 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/55619428219.shtml)
+- 2026-06-30 06:55 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/38659062165.shtml)
+- 2026-06-30 06:53 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/1205847.shtml)
+- 2026-06-30 06:52 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/068556273387.shtml)
+- 2026-06-30 07:11 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/71010062.shtml)
+- 2026-06-30 07:07 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/723640.shtml)
+- 2026-06-30 07:01 - [日本反击率先破门](https://www.blog.minike.top/Article/details/96067518054.shtml)

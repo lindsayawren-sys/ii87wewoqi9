@@ -1,55 +1,47 @@
-# 吴清最新讲话！回应程序化交易热点问题：坚决打击操纵市场、扰乱市场秩序等违法违规行为
+# 山东嘉祥：昼夜抢收全程机械化 按下麦收加速键
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。吴清回应程序化交易热点问题，表示考虑到中小投资者多的国情，证监会将持续完善程序化交易监管的机制安排。 吴清表示，近年来，程序化交易已成为包括我国在内的全球各主要资本市场的重要交易方式。除了大家熟知的量化私募外，外资、公募及其他专业机构投资者，甚至一些个人投资者，都不同程度采用程序化交易的方
+发布时间：2026年06月03日 10:52 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。
-
-吴清回应程序化交易热点问题，表示考虑到中小投资者多的国情，证监会将持续完善程序化交易监管的机制安排。
-
-吴清表示，近年来，程序化交易已成为包括我国在内的全球各主要资本市场的重要交易方式。
-
-除了大家熟知的量化私募外，外资、公募及其他专业机构投资者，甚至一些个人投资者，都不同程度采用程序化交易的方式。
-
-充分考虑个人投资者占大多数的国情市情，先后出台了一系列程序化交易监管规则制度，建立交易报告机制，强化针对性监测监控，从严监管异常交易行为，引导降频降速，强化交易业务单元管理等。
-
-在此基础上，我们还将深入调研，持续完善程序化交易监管的机制安排，更突出公平和规范，加强针对性监管，切实防范滥用技术优势，坚决打击操纵市场、扰乱市场秩序等违法违规行为。
-
-责任编辑：郝欣煜
+发布时间：2026年06月03日 10:52 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:41 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 06:37 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 06:43 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 06:59 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 06:39 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 07:04 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 06:54 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-30 06:59 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 06:46 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 07:01 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 06:41 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 06:50 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 06:42 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 07:07 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 06:50 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 06:45 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 07:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 07:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 06:43 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 07:06 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 06:51 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 06:59 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 07:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 07:08 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 06:55 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 07:01 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:47 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/4468251.shtml)
-- 2026-06-30 06:49 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/6241265.shtml)
-- 2026-06-30 06:40 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/22257496918.shtml)
-- 2026-06-30 06:55 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/6131515829.shtml)
-- 2026-06-30 06:52 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/505978.shtml)
-- 2026-06-30 06:49 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/26841280.shtml)
-- 2026-06-30 06:42 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/70706059914.shtml)
-- 2026-06-30 07:05 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/56272.shtml)
-- 2026-06-30 06:41 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/15218.shtml)
-- 2026-06-30 06:53 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/95304962.shtml)
-- 2026-06-30 06:42 - [沉睡花园](http://www.blog.minike.top/Article/details/095705137704.shtml)
-- 2026-06-30 07:02 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/58195401973.shtml)
-- 2026-06-30 06:48 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/307717194825.shtml)
-- 2026-06-30 07:04 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/20525677759.shtml)
-- 2026-06-30 06:56 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/39715706805.shtml)
+- 2026-06-30 06:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/30543885973.shtml)
+- 2026-06-30 06:56 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/74249.shtml)
+- 2026-06-30 06:59 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/70301790025.shtml)
+- 2026-06-30 06:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/2982337587.shtml)
+- 2026-06-30 06:58 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/904000234.shtml)
+- 2026-06-30 06:42 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/6544523960.shtml)
+- 2026-06-30 07:08 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/198202876.shtml)
+- 2026-06-30 06:45 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/164831.shtml)
+- 2026-06-30 06:53 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/3742826.shtml)
+- 2026-06-30 06:49 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/503935964073.shtml)
+- 2026-06-30 07:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/97805.shtml)
+- 2026-06-30 06:57 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/74373560568.shtml)
+- 2026-06-30 07:01 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/8996661960.shtml)
+- 2026-06-30 06:43 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/1353767.shtml)
+- 2026-06-30 07:05 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/825190.shtml)

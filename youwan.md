@@ -1,46 +1,59 @@
-# 印尼：棕榈油面临“油箱与餐桌”双重增长需求
+# 江苏无锡上线“词元超市” 为用户提供全域AI能力
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月06日 13:08 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月04日 20:45 来源：中国新闻网 当前，AI模型词元(Token，人工智能模型通用计算与计费单位)使用量持续攀升。对此，江苏无锡落地城市级词元超市，推动当地AI服务从单一算力售卖向全链条智能能力输出转型，有效降低企业智能化改造门槛。 词元是AI模型的核心计费与运算单位。无锡市数字新基建有限公司作为无锡城市算力建设运营主体，自2023年10月布局算力
 
 ## 正文
 
-发布时间：2026年06月06日 13:08 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月04日 20:45 来源：中国新闻网 当前，AI模型词元(Token，人工智能模型通用计算与计费单位)使用量持续攀升。
+
+对此，江苏无锡落地城市级词元超市，推动当地AI服务从单一算力售卖向全链条智能能力输出转型，有效降低企业智能化改造门槛。
+
+词元是AI模型的核心计费与运算单位。
+
+无锡市数字新基建有限公司作为无锡城市算力建设运营主体，自2023年10月布局算力基础设施以来，建成本地首家算力超市。
+
+相较于传统自建AI的高昂投入，词元超市实行按量计费，企业可按需调用各类大模型，大幅减轻资金压力。
+
+下一步，运营方将持续迭代平台功能、拓展产业合作，依托统一计费模式集聚AI产业生态，赋能实体经济高质量发展。
+
+记者 葛勇 江苏无锡报道 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-30 06:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 06:58 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 06:45 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 06:47 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 06:51 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 06:37 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 06:47 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 06:40 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 06:50 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 06:44 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 06:46 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 06:49 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 06:54 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 06:41 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 07:01 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 07:11 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 06:48 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-30 06:48 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 07:10 - [电影后室值得看吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 07:11 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 06:56 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 06:48 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 06:49 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 06:53 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 07:02 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 07:06 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 06:58 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 07:01 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 06:47 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:38 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/9139837157.shtml)
-- 2026-06-30 07:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/66247177.shtml)
-- 2026-06-30 06:55 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/083071.shtml)
-- 2026-06-30 07:05 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/324437.shtml)
-- 2026-06-30 06:53 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/33240648.shtml)
-- 2026-06-30 06:46 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/45923110637.shtml)
-- 2026-06-30 06:58 - [毒液2](https://www.share.kurohicncr.top/Article/details/5814832135.shtml)
-- 2026-06-30 06:47 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/429468.shtml)
-- 2026-06-30 06:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/4776778350.shtml)
-- 2026-06-30 06:59 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/77006509.shtml)
-- 2026-06-30 06:42 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/234643633356.shtml)
-- 2026-06-30 07:03 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/705476.shtml)
-- 2026-06-30 07:01 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/86240.shtml)
-- 2026-06-30 06:50 - [田中碧失误](https://www.share.minike.top/Article/details/94251407.shtml)
-- 2026-06-30 07:00 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/6723924.shtml)
+- 2026-06-30 07:11 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/25485252575.shtml)
+- 2026-06-30 07:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/6490055.shtml)
+- 2026-06-30 06:43 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/968897228348.shtml)
+- 2026-06-30 07:09 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/3522232789.shtml)
+- 2026-06-30 06:45 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/58665071.shtml)
+- 2026-06-30 06:53 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/788719512830.shtml)
+- 2026-06-30 07:04 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/0059418165.shtml)
+- 2026-06-30 07:04 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/79629565.shtml)
+- 2026-06-30 06:44 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/02055.shtml)
+- 2026-06-30 06:45 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/66419342101.shtml)
+- 2026-06-30 06:59 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/9084548.shtml)
+- 2026-06-30 06:48 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/95554922593.shtml)
+- 2026-06-30 06:44 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/93596873.shtml)
+- 2026-06-30 07:07 - [毒液2](https://www.blog.minike.top/Article/details/2874144135.shtml)
+- 2026-06-30 06:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/950113.shtml)

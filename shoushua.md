@@ -1,53 +1,59 @@
-# 泰国寻求6月底前与美国达成贸易协议 目标关税为10%
+# 两天3场签约 新加坡旅游局暑期前来华揽客
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-泰国正努力在6月底前与美国完成贸易谈判。 泰国商业部长素塔攀表示，泰国正寻求与美国达成互惠贸易协定，可能有助于将拟议的关税税率降低至10%。 他表示，泰国仍有约25个悬而未决的问题需要解决，才能达成协议。政府将派遣贸易代表前往华盛顿，密切关注谈判的最后阶段。责任编辑：于健 SF069
+距离暑期不足一个月，新加坡旅游局在两天内先后完成3场签约合作，打响了外旅局新一轮中国游客争夺战。6月2日至3日，新加坡旅游局接连与高德、哔哩哔哩(以下简称“B站”)以及首都会展集团签署战略合作协议。当前，中国出境游市场仍以自由行为主流选择，游客更倾向于深度探索、融入本地社区生活。外旅局的揽客策略也随之进一步转向“精耕作”。在3场对象不同、内容各异的签约背后，新加坡旅游局意在增强
 
 ## 正文
 
-泰国正努力在6月底前与美国完成贸易谈判。
+距离暑期不足一个月，新加坡旅游局在两天内先后完成3场签约合作，打响了外旅局新一轮中国游客争夺战。
 
-泰国商业部长素塔攀表示，泰国正寻求与美国达成互惠贸易协定，可能有助于将拟议的关税税率降低至10%。
+6月2日至3日，新加坡旅游局接连与高德、哔哩哔哩(以下简称“B站”)以及首都会展集团签署战略合作协议。
 
-他表示，泰国仍有约25个悬而未决的问题需要解决，才能达成协议。
+当前，中国出境游市场仍以自由行为主流选择，游客更倾向于深度探索、融入本地社区生活。
 
-政府将派遣贸易代表前往华盛顿，密切关注谈判的最后阶段。
+外旅局的揽客策略也随之进一步转向“精耕作”。
 
-责任编辑：于健 SF069
+在3场对象不同、内容各异的签约背后，新加坡旅游局意在增强自由行游客的决策信任，以圈层内容穿透年轻一代的兴趣壁垒，同时用会展合作锁定商务客源。
+
+构建全方位、全矩阵开拓体系 3场签约反映出新加坡旅游局数字化、年轻化、商务化的揽客策略。
+
+数字化体现在新加坡旅游局与高德的合作中。
+
+北京商报记者了解到，双方将聚焦于提供可信赖、用户实测、符合自由行新习惯的内容，共建“新加坡扫街榜”。
 
 ## 相关推荐
 
-- 2026-06-30 06:57 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-30 06:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-30 07:04 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-30 06:45 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 06:57 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 06:38 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 06:58 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 06:58 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 06:49 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 06:52 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 06:57 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 06:52 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 06:42 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 07:06 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 06:47 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 06:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 06:49 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 06:43 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 07:10 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 07:06 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 06:52 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 06:42 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-30 06:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 07:09 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 07:11 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 06:56 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:40 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/841966.shtml)
-- 2026-06-30 07:03 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/651999253778.shtml)
-- 2026-06-30 06:56 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/164382213813.shtml)
-- 2026-06-30 06:47 - [沙丘](https://www.share.kurohicncr.top/Article/details/584952007.shtml)
-- 2026-06-30 06:36 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/9874687.shtml)
-- 2026-06-30 06:59 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/7508092359.shtml)
-- 2026-06-30 06:59 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/86159221266.shtml)
-- 2026-06-30 06:43 - [逃狱兄弟](https://www.blog.minike.top/Article/details/24460.shtml)
-- 2026-06-30 06:43 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/3608506860.shtml)
-- 2026-06-30 06:39 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/7537056017.shtml)
-- 2026-06-30 06:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/091047082817.shtml)
-- 2026-06-30 06:58 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/080561.shtml)
-- 2026-06-30 06:46 - [巴西绝杀](https://www.share.minike.top/Article/details/06779215.shtml)
-- 2026-06-30 06:42 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/5707897708.shtml)
-- 2026-06-30 06:59 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/729015652.shtml)
+- 2026-06-30 06:44 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/961942.shtml)
+- 2026-06-30 07:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/94722313165.shtml)
+- 2026-06-30 07:03 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/625983.shtml)
+- 2026-06-30 06:49 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/33226262.shtml)
+- 2026-06-30 07:06 - [沙丘](https://www.blog.kurohicncr.top/Article/details/66736118.shtml)
+- 2026-06-30 07:10 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/04391546.shtml)
+- 2026-06-30 07:09 - [巴拉圭进球](https://www.blog.kurohicncr.top/Article/details/721440966.shtml)
+- 2026-06-30 07:00 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/090689.shtml)
+- 2026-06-30 07:11 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/267925.shtml)
+- 2026-06-30 07:04 - [爱很美味](http://www.share.kurohicncr.top/Article/details/33199985944.shtml)
+- 2026-06-30 06:47 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/05838364.shtml)
+- 2026-06-30 07:02 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/6519963.shtml)
+- 2026-06-30 07:03 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/460770.shtml)
+- 2026-06-30 06:47 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/982187.shtml)
+- 2026-06-30 06:50 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/72408285.shtml)

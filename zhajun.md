@@ -1,57 +1,59 @@
-# 建设银行：提名曹利群、唐炜担任非执行董事，提名杨强担任独立董事
+# 税务律师：特朗普“大而美法案”暗藏针对高收入群体的双重征税陷阱
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-6月5日金融一线消息，建设银行昨日晚间披露董事会会议决议公告，公司以书面审议形式召开董事会并全票通过三项董事提名议案，提名曹利群、唐炜出任非执行董事，提名杨强担任独立董事，上述提名后续均需提交股东大会履行选举程序。 简历显示，曹利群，1971年5月出生。2020年进入中央汇金投资有限责任公司工作。自2020年1月起任中国工商银行股份有限公司非执行董事。2010年10月至2020
+核心要点 《重磅利好法案》虽对纳税人专项抵扣设置上限，但整体给高收入者带来多项减税福利。不过，服务富豪群体的税务律师近日表示，国会立法调研机构上周发布的税法解读文件附注里藏有新规，或将引发双重征税问题。 律师介绍，法案的抵扣限额新规同样适用于各类信托及遗产，这点超出市场此前预期。按照文件条文解读：即便某只信托把全部收益足额拨付受益人，仍有部分收益需要由信托主体先行缴税。 该条款
 
 ## 正文
 
-6月5日金融一线消息，建设银行昨日晚间披露董事会会议决议公告，公司以书面审议形式召开董事会并全票通过三项董事提名议案，提名曹利群、唐炜出任非执行董事，提名杨强担任独立董事，上述提名后续均需提交股东大会履行选举程序。
+核心要点 《重磅利好法案》虽对纳税人专项抵扣设置上限，但整体给高收入者带来多项减税福利。
 
-简历显示，曹利群，1971年5月出生。
+不过，服务富豪群体的税务律师近日表示，国会立法调研机构上周发布的税法解读文件附注里藏有新规，或将引发双重征税问题。
 
-2020年进入中央汇金投资有限责任公司工作。
+律师介绍，法案的抵扣限额新规同样适用于各类信托及遗产，这点超出市场此前预期。
 
-自2020年1月起任中国工商银行股份有限公司非执行董事。
+按照文件条文解读：即便某只信托把全部收益足额拨付受益人，仍有部分收益需要由信托主体先行缴税。
 
-2010年10月至2020年3月先后任国家外汇管理局管理检查司副司长，综合司（政策法规司）巡视员、二级巡视员，其中2018年8月至2019年8月挂任北京市中关村科技园区管理委员会副主任；2001年3月至2010年10月先后在国家外汇管理局综合司法规处、管理检查司非金融机构检查处、综合业务处工作。
+该条款对超级富豪名下信托、遗产税负冲击最明显，即便是年度收益仅 1.6 万美元的小型信托，也会额外增加税负。
 
-曹利群是经济师，获中国政法大学法学学士、中国人民大学经济学硕士、北京大学公共管理硕士学位。
+亨廷顿银行财富策略总监丹・格里菲斯表示：“新规存在明显的重复征税隐患。
 
-唐炜，1973年2月出生。
+就连 40 万美元规模的残障人士专项信托都会受影响，并非只有上亿美金的家族永续信托才会承压。
 
-2023年3月至今先后任国家金融监督管理总局资管机构监管司副司长、一级巡视员；2018年3月至2023年3月任中国银行保险监督管理委员会信托监管部副主任；2016年4月至2018年3月任中国银行业监督管理委员会信托监管部副主任；2000年8月至2016年4月先后在中国人民银行银行监管一司、中国银行业监督管理委员会银行监管一部、国有控股大型商业银行监管部、信托监管部工作。
+” 格里菲斯重点担忧强制全额收益分配型信托：为筹措税款，信托要么被迫变卖资产、侵蚀长期投资收益，要么缩减向受益人的分红额度。
 
 ## 相关推荐
 
-- 2026-06-30 06:36 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 06:52 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 06:50 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 06:53 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 06:54 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 06:55 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 06:39 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 06:51 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 06:48 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 06:36 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 07:00 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 06:50 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 07:07 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 06:53 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 07:09 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 06:50 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 06:58 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 07:05 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 06:44 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 07:06 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 06:53 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 06:55 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 06:56 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 06:44 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:45 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/462489.shtml)
-- 2026-06-30 06:43 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/6379684.shtml)
-- 2026-06-30 06:59 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/40299386.shtml)
-- 2026-06-30 06:53 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/0561979070.shtml)
-- 2026-06-30 06:55 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/4403691.shtml)
-- 2026-06-30 06:38 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/492311918.shtml)
-- 2026-06-30 06:58 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/077055282974.shtml)
-- 2026-06-30 07:04 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/5556404764.shtml)
-- 2026-06-30 06:55 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/593510.shtml)
-- 2026-06-30 06:59 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/6079616831.shtml)
-- 2026-06-30 06:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/09160.shtml)
-- 2026-06-30 06:36 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/286134.shtml)
-- 2026-06-30 06:49 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/27468584.shtml)
-- 2026-06-30 06:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/0181744.shtml)
-- 2026-06-30 07:02 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/297144.shtml)
+- 2026-06-30 06:57 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/7840560.shtml)
+- 2026-06-30 06:47 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/028809.shtml)
+- 2026-06-30 06:53 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/340074.shtml)
+- 2026-06-30 06:49 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/684390.shtml)
+- 2026-06-30 06:53 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/9948401.shtml)
+- 2026-06-30 07:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/237692001668.shtml)
+- 2026-06-30 06:47 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/805963.shtml)
+- 2026-06-30 06:54 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/6719201.shtml)
+- 2026-06-30 07:09 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/616836760720.shtml)
+- 2026-06-30 06:57 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/902892147573.shtml)
+- 2026-06-30 07:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/07532.shtml)
+- 2026-06-30 06:47 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/238013.shtml)
+- 2026-06-30 06:42 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/39205.shtml)
+- 2026-06-30 07:09 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/5643734.shtml)
+- 2026-06-30 06:59 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/53788356558.shtml)

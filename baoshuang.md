@@ -1,58 +1,60 @@
-# 印度央行上调本财年通胀预期至5.1%，下调经济增长预期至6.6%
+# 文莱广西总商会会长郑作亮挖掘西部机遇 以侨为桥通东盟
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-印度央行周五将利率维持在 5.25%，此举正值全球能源成本飙升令印度货币遭受重创，而伊朗冲突则有加速通胀的风险。 该行将截至2027年3月的财年通胀预期上调50个基点至5.1%，同时将经济增长预期从此前预测的6.9%下调至6.6%。 印度央行行长桑杰·马尔霍特拉在声明中表示，由于中东“地缘政治僵局”持续令全球经济前景蒙上阴影，“货币政策已变得更加谨慎”。他补充道，“能源价格飙升
+中新网重庆6月3日电 (记者 钟旖)“这一趟，我是带着‘任务’来的。”3日，正在四川成都参加2026“一带一路”华侨华人合作发展大会的文莱广西总商会会长郑作亮整理行装，启程奔赴重庆。根据计划，他将在重庆重点考察中医药、特色食品等产业，挖掘西部商机，力促多方贸易合作。 作为一名深耕中国与东盟经贸合作的海外华人，郑作亮在接受中新网记者专访时说，推动跨境合作向更高层次、更宽领域、更深
 
 ## 正文
 
-印度央行周五将利率维持在 5.25%，此举正值全球能源成本飙升令印度货币遭受重创，而伊朗冲突则有加速通胀的风险。
+中新网重庆6月3日电 (记者 钟旖)“这一趟，我是带着‘任务’来的。
 
-该行将截至2027年3月的财年通胀预期上调50个基点至5.1%，同时将经济增长预期从此前预测的6.9%下调至6.6%。
+”3日，正在四川成都参加2026“一带一路”华侨华人合作发展大会的文莱广西总商会会长郑作亮整理行装，启程奔赴重庆。
 
-印度央行行长桑杰·马尔霍特拉在声明中表示，由于中东“地缘政治僵局”持续令全球经济前景蒙上阴影，“货币政策已变得更加谨慎”。
+根据计划，他将在重庆重点考察中医药、特色食品等产业，挖掘西部商机，力促多方贸易合作。
 
-他补充道，“能源价格飙升和全球供应链中断继续阻碍经济活动”。
+作为一名深耕中国与东盟经贸合作的海外华人，郑作亮在接受中新网记者专访时说，推动跨境合作向更高层次、更宽领域、更深程度迈进，既是服务国家战略的必然要求，也是侨界人士应尽的责任担当。
 
-中东冲突对印度经济构成严重威胁，能源供应中断导致该国进口额飙升，加剧了卢比的贬值压力，而卢比此前已因创纪录的外国投资者资金外流而遭受重创。
+从2021年助力广西武鸣沃柑首次出口至东盟市场，到将广西制药带向文莱，郑作亮在联通中国西部地区与东盟国家、推动优质产品合规出海、深化跨境经贸与人文交流牵线搭桥的道路上，愈发游刃有余。
 
-为了提振卢比，印度总理纳伦德拉·莫迪上个月敦促民众暂停购买黄金、节约燃料并避免出国旅行。
+“中国企业不缺好货，缺的往往是一把打开国际市场的‘钥匙’。
 
-政策制定者也已采取措施捍卫卢比，包括通过国有银行抛售美元以遏制其贬值。
+”郑作亮认为，这把“钥匙”就是合规的认证体系，帮助企业迈过“认证”这道坎，正是侨商在共建“一带一路”中最具含金量的服务。
 
-印度政府还提高了黄金关税以抑制黄金需求，此举旨在保护外汇储备。
+郑作亮直言，在跨境贸易中，企业“走出去”既要有国际化的运营思维，也离不开国际商标注册、产品合规检测等配套前置工作，夯实产品出海合规基础。
 
 ## 相关推荐
 
-- 2026-06-30 06:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 06:40 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 06:39 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 06:45 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 06:52 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 06:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-30 06:38 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 06:43 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 06:43 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 06:46 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 07:05 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 06:48 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 06:55 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 07:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 06:51 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 06:51 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 06:43 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 07:07 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 06:42 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 06:53 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 06:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 07:00 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 07:04 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 07:02 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 06:53 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 07:08 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:36 - [送你一朵小红花](https://www.blog.minike.top/Article/details/74584.shtml)
-- 2026-06-30 06:37 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/592246.shtml)
-- 2026-06-30 06:48 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/552914220160.shtml)
-- 2026-06-30 06:44 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/635423.shtml)
-- 2026-06-30 06:50 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/00228.shtml)
-- 2026-06-30 07:05 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/52700844.shtml)
-- 2026-06-30 06:53 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/58863.shtml)
-- 2026-06-30 06:51 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/59829756058.shtml)
-- 2026-06-30 06:48 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/9542329969.shtml)
-- 2026-06-30 06:46 - [田中碧失误](https://www.share.minike.top/Article/details/4138565349.shtml)
-- 2026-06-30 06:44 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/668505.shtml)
-- 2026-06-30 06:50 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/90611110.shtml)
-- 2026-06-30 06:57 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/5985826419.shtml)
-- 2026-06-30 06:37 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/60351.shtml)
-- 2026-06-30 06:49 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/7427409706.shtml)
+- 2026-06-30 06:45 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/622255868440.shtml)
+- 2026-06-30 07:11 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/22596.shtml)
+- 2026-06-30 07:00 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/09662.shtml)
+- 2026-06-30 06:54 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/334404.shtml)
+- 2026-06-30 07:07 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/81849940.shtml)
+- 2026-06-30 07:06 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/8844486.shtml)
+- 2026-06-30 06:43 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/0744221.shtml)
+- 2026-06-30 07:09 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/74187605.shtml)
+- 2026-06-30 07:11 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/9556919354.shtml)
+- 2026-06-30 06:42 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/5541816166.shtml)
+- 2026-06-30 07:10 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/724101342688.shtml)
+- 2026-06-30 06:49 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/3927975.shtml)
+- 2026-06-30 06:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/1823296.shtml)
+- 2026-06-30 07:09 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/31723072.shtml)
+- 2026-06-30 06:57 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/1479828542.shtml)

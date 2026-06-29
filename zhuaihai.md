@@ -1,56 +1,57 @@
-# 农业农村现代化 五年后会是什么样
+# 贵州服务保障80万跨省务工人员实现“近家门”就业创业
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-日前，国务院印发《加快农业农村现代化“十五五”规划》(以下简称《规划》)，明确了“十五五”时期加快农业农村现代化的思路目标、重点任务和政策措施。 那么，未来五年，农业和农村发展建设的主要思路是怎样的？这份规划在未来五年将带给农民们怎样的期待？ 《规划》中为何设定两项约束性指标？ 关于未来五年农业方面的建设到底怎么做，《规划》中实际上给出了15项非常清晰的指标，其中有两项属于约束
+中新网贵阳6月3日电 (阙忠丹 张伟)贵州省人力资源社会保障厅日前联合贵州省工信厅等十一部门印发《关于服务保障农村劳动力从“出远门”务工到“近家门”就业创业的若干政策措施(试行)》(以下简称，政策措施(试行))，明确提出“十五五”期间，贵州省将服务保障80万以上(每年16万以上)跨省务工人员返乡就业创业，重点解决省内重点产业和重大项目的人力资源支撑问题，同时缓解留守儿童教育、留
 
 ## 正文
 
-日前，国务院印发《加快农业农村现代化“十五五”规划》(以下简称《规划》)，明确了“十五五”时期加快农业农村现代化的思路目标、重点任务和政策措施。
+中新网贵阳6月3日电 (阙忠丹 张伟)贵州省人力资源社会保障厅日前联合贵州省工信厅等十一部门印发《关于服务保障农村劳动力从“出远门”务工到“近家门”就业创业的若干政策措施(试行)》(以下简称，政策措施(试行))，明确提出“十五五”期间，贵州省将服务保障80万以上(每年16万以上)跨省务工人员返乡就业创业，重点解决省内重点产业和重大项目的人力资源支撑问题，同时缓解留守儿童教育、留守老人照护等社会关切。
 
-那么，未来五年，农业和农村发展建设的主要思路是怎样的？
+政策措施(试行)在吸纳就业方面，各类生产经营主体与返乡农村劳动力签订1年以上劳动合同，并依法足额缴纳社会保险费满3个月的，可按每人500元的标准获得一次性吸纳就业补贴。
 
-这份规划在未来五年将带给农民们怎样的期待？
+对于返乡持有技能等级证书的技能人才，若在贵州支持的重点产业、特色产业或重大项目稳定就业满3个月且缴纳社保的，将享受每月300元的就业收入待遇补贴，最长补贴期限为3个月。
 
-《规划》中为何设定两项约束性指标？
+在扩大就业容量方面，贵州将推动产业与就业协同发力。
 
-关于未来五年农业方面的建设到底怎么做，《规划》中实际上给出了15项非常清晰的指标，其中有两项属于约束性指标，一个关于产量，一个关于质量，为什么把这两项列为一个必须完成的硬杠杆？
+在制定重要政策、确定重点项目、布局重大产业和招商引资时，将同步开展就业影响评估，优先支持发展吸纳就业能力强的产业和企业。
 
-中国农业科学院农业经济与发展研究所所长胡向东介绍，“十五五”提出来的约束性指标和预期性指标，其实是为“十五五”将发展到什么程度给了定量的目标。
+通过促进就业帮扶车间和“一县一企”稳岗就业基地提质增效，每年预计通过产业项目开发11万个以上岗位，专门吸纳返乡人员。
 
-关于这两个约束性指标： “到2030年，我国粮食综合生产能力，要达到1.45万亿斤左右。
+鼓励创业也是此次政策的亮点之一。
 
-”建设农业农村现代化首要是让全国人民吃饱饭、吃好饭，这是一个非常重要的目标，也是底线要求。
+贵州实施“返乡创业小老板”工程，每年推动1万以上返乡人员创业，带动3万人就业。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 06:52 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 06:36 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 06:52 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 06:50 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 06:42 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 06:40 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 06:45 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 06:48 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 06:49 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 06:50 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 06:58 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 07:05 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 06:54 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 06:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 07:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 06:57 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 06:45 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 07:08 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 06:57 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 06:53 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:05 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/7519577.shtml)
-- 2026-06-30 07:03 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/0944180371.shtml)
-- 2026-06-30 06:42 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/725507.shtml)
-- 2026-06-30 06:37 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/370235592.shtml)
-- 2026-06-30 06:57 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/2107219.shtml)
-- 2026-06-30 06:53 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/21596.shtml)
-- 2026-06-30 07:02 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/926329.shtml)
-- 2026-06-30 06:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/994338346113.shtml)
-- 2026-06-30 06:44 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/6610668.shtml)
-- 2026-06-30 06:40 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/53460.shtml)
-- 2026-06-30 06:37 - [金牌调解](http://www.blog.minike.top/Article/details/046769989.shtml)
-- 2026-06-30 07:04 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/01664.shtml)
-- 2026-06-30 06:44 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/782477363.shtml)
-- 2026-06-30 06:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/450803641778.shtml)
-- 2026-06-30 06:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/25621648277.shtml)
+- 2026-06-30 06:51 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/910921224552.shtml)
+- 2026-06-30 06:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/655820464347.shtml)
+- 2026-06-30 06:43 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/77551044426.shtml)
+- 2026-06-30 06:59 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/78908532.shtml)
+- 2026-06-30 07:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/3970171323.shtml)
+- 2026-06-30 07:09 - [速度与激情9](http://www.blog.minike.top/Article/details/8013689.shtml)
+- 2026-06-30 07:02 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/33637.shtml)
+- 2026-06-30 06:54 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/90578789542.shtml)
+- 2026-06-30 06:49 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/91814.shtml)
+- 2026-06-30 07:11 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/28571.shtml)
+- 2026-06-30 07:03 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/086362459920.shtml)
+- 2026-06-30 07:10 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/3561241783.shtml)
+- 2026-06-30 07:04 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/53155413.shtml)
+- 2026-06-30 07:09 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/029012.shtml)
+- 2026-06-30 06:52 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/735691658984.shtml)

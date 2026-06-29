@@ -1,58 +1,60 @@
-# 黄仁勋抵达韩国 在首尔烤肉店与韩企众掌门共进晚餐
+# 我国牵头修订的通用模件熔断体国际标准发布
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-英伟达首席执行官（CEO）黄仁勋6月5日晚在首尔麻浦区弘大入口站附近的一家韩式烤肉店与韩国SK集团会长崔泰源、LG集团会长具光谟、NAVER董事会主席李海珍共进晚餐。 黄仁勋与韩国大企业掌门的此次会面引发坊间热议，成为其此次访韩的最大焦点。当晚7时10分许，黄仁勋抵达弘大入口站附近的烧烤店。在此前的6点52分许，具光谟率先抵达，之后崔泰源、李海珍先后到场。当晚的菜品为烤五花肉与
+记者今天(6月3日)从国家标准委了解到，由我国牵头修订的国际标准《小型熔断器—第4部分：通用模件熔断体(UMF)—穿孔式和表面贴装式》近日获批发布。 通用模件熔断体(UMF)是一种关键的电路安全保护元件，通过表面贴装或穿孔技术直接焊接于印制电路板(PCB)及其他基板系统，具备微型化、可便捷安装特性。近年来，熔断器行业的产品向微型化、轻量化、薄型化方向发展，原有国际标准中的技术要
 
 ## 正文
 
-英伟达首席执行官（CEO）黄仁勋6月5日晚在首尔麻浦区弘大入口站附近的一家韩式烤肉店与韩国SK集团会长崔泰源、LG集团会长具光谟、NAVER董事会主席李海珍共进晚餐。
+记者今天(6月3日)从国家标准委了解到，由我国牵头修订的国际标准《小型熔断器—第4部分：通用模件熔断体(UMF)—穿孔式和表面贴装式》近日获批发布。
 
-黄仁勋与韩国大企业掌门的此次会面引发坊间热议，成为其此次访韩的最大焦点。
+通用模件熔断体(UMF)是一种关键的电路安全保护元件，通过表面贴装或穿孔技术直接焊接于印制电路板(PCB)及其他基板系统，具备微型化、可便捷安装特性。
 
-当晚7时10分许，黄仁勋抵达弘大入口站附近的烧烤店。
+近年来，熔断器行业的产品向微型化、轻量化、薄型化方向发展，原有国际标准中的技术要求与试验方法已难以满足当前产业快速迭代的技术需求。
 
-在此前的6点52分许，具光谟率先抵达，之后崔泰源、李海珍先后到场。
+该标准规定了通用模件熔断体的标准规格单、尺寸和结构、电气性能等技术要求，适用于印制电路板(PCB)或其他基板系统上的通用模件熔断体(UMF)。
 
-当晚的菜品为烤五花肉与韩国烧酒。
+该熔断体被用于保护通常在户内使用的电气装置、电子设备及其部件。
 
-从当天上午起就有不少市民和媒体记者开始在烤肉店前等待。
+该标准在试验方法、性能验证等方面进行了系统完善，更好地反映(契合)了当前及未来小型熔断器在微型化、大电流、高分断能力等方向的技术发展需求。
 
-考虑到现场安全和秩序，经店主和警方协商，烤肉店当晚不接待普通吃客。
+此项国际标准的成功发布，是我国在电子电器领域国际标准化工作中取得的又一项重要成果，为全球电路保护技术的创新发展贡献了中国智慧。
 
-晚间时分，为一睹“AI教父”的风采，店面附近涌来更多人潮。
+(总台央视记者 李晶晶)
 
 ## 相关推荐
 
-- 2026-06-30 07:01 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 06:55 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 06:59 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-30 06:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 06:39 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 06:51 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 07:03 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 06:42 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 07:04 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 06:46 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 07:03 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 06:55 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-30 07:08 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 06:51 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 07:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 06:43 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 06:53 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 06:53 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 06:59 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 06:51 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 07:03 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 07:12 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 07:10 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 06:57 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 06:51 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 07:04 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:57 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/4425221543.shtml)
-- 2026-06-30 06:59 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/714615.shtml)
-- 2026-06-30 06:47 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/205073.shtml)
-- 2026-06-30 06:40 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/56095.shtml)
-- 2026-06-30 07:02 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/40258.shtml)
-- 2026-06-30 07:00 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/84586718.shtml)
-- 2026-06-30 06:55 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/276848233423.shtml)
-- 2026-06-30 07:05 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/50982605.shtml)
-- 2026-06-30 06:50 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/49514188842.shtml)
-- 2026-06-30 06:37 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/09899502.shtml)
-- 2026-06-30 07:02 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/377730632.shtml)
-- 2026-06-30 07:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/480942214.shtml)
-- 2026-06-30 06:57 - [周生如故](https://www.share.kurohicncr.top/Article/details/0939496419.shtml)
-- 2026-06-30 06:42 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/4272447875.shtml)
-- 2026-06-30 06:44 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/472489242.shtml)
+- 2026-06-30 06:48 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/4228988280.shtml)
+- 2026-06-30 07:11 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/358516455.shtml)
+- 2026-06-30 06:47 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/8898150295.shtml)
+- 2026-06-30 06:48 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/602248065303.shtml)
+- 2026-06-30 06:44 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/800206.shtml)
+- 2026-06-30 06:58 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/5408913688.shtml)
+- 2026-06-30 06:48 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/2821607.shtml)
+- 2026-06-30 06:48 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/36590205196.shtml)
+- 2026-06-30 07:05 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/8030837060.shtml)
+- 2026-06-30 06:45 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/9300704.shtml)
+- 2026-06-30 06:44 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/0230392.shtml)
+- 2026-06-30 07:06 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/846535560.shtml)
+- 2026-06-30 06:42 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/68937.shtml)
+- 2026-06-30 07:10 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/203497.shtml)
+- 2026-06-30 06:51 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/9710109.shtml)

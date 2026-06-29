@@ -1,61 +1,57 @@
-# 加息预期升温避险分化 沪贵金属盘面震荡调整
+# 一日市值蒸发45亿元！银之杰辟谣：公司“被立案调查”的传闻不实
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-文章来源：瑞达期货 研报正文 行业消息 1、美伊和谈持续拉锯，特朗普称与伊朗谈判进展“非常顺利，伊朗方面概述与美国达成协议的四阶段计划，但在浓缩铀处置、伊朗核问题和霍尔木兹海峡通行的问题达成协议之前，可信的和平协议落地可能性较低。 2、特朗普遭遇党内反弹：美众议院通过决议，限制特朗普对伊动武权力。不过该决议案并不能强制特朗普彻底结束冲突，特朗普可能在法案签署阶段将其否决。 3、
+6月3日，银之杰（300085.SZ）发布澄清公告，6月3日下午，公司关注到网络平台出现关于公司“被立案调查”的相关传闻，经核实，上述传闻不属实。 公告称，截至目前，公司未收到任何有权机关关于对公司立案调查的通知或相关法律文书，公司生产经营情况正常，各项业务开展有序，不存在应披露而未披露的重大事项。 6月3日，银之杰收于35.13元，跌15.51%，市值248亿元，较前一日跌去
 
 ## 正文
 
-文章来源：瑞达期货 研报正文 行业消息 1、美伊和谈持续拉锯，特朗普称与伊朗谈判进展“非常顺利，伊朗方面概述与美国达成协议的四阶段计划，但在浓缩铀处置、伊朗核问题和霍尔木兹海峡通行的问题达成协议之前，可信的和平协议落地可能性较低。
+6月3日，银之杰（300085.SZ）发布澄清公告，6月3日下午，公司关注到网络平台出现关于公司“被立案调查”的相关传闻，经核实，上述传闻不属实。
 
-2、特朗普遭遇党内反弹：美众议院通过决议，限制特朗普对伊动武权力。
+公告称，截至目前，公司未收到任何有权机关关于对公司立案调查的通知或相关法律文书，公司生产经营情况正常，各项业务开展有序，不存在应披露而未披露的重大事项。
 
-不过该决议案并不能强制特朗普彻底结束冲突，特朗普可能在法案签署阶段将其否决。
+6月3日，银之杰收于35.13元，跌15.51%，市值248亿元，较前一日跌去45.60亿元。
 
-3、美国2026年5月“小非农”ADP私营雇主新增就业12.2万个岗位。
+据银之杰官网，银之杰成立于1998年10月，2010年5月在深圳证券交易所创业板上市，核心业务是金融科技服务。
 
-略超预期11.7万人，为去年1月以来最大增幅。
+银之杰旗下全资子公司亿美软通是国内领先的移动信息平台技术和应用方案提供商；全资子公司安科创新从事跨境电子商务业务；公司作为第一大股东投资设立的北京华道征信有限公司，是国内唯一的持牌个人征信机构百行征信的股东；作为第二大股东投资设立了东亚前海证券，持有东亚前海证券26.1%股权。
 
-招聘活动在企业规模和地区之间分布相对均衡，从行业来看，教育与医疗服务业继续成为最大贡献来源，新增就业人口向贸易、运输及公用事业等方向广泛扩散。
-
-4、纽约联储主席威廉姆斯称，美国当前的货币政策立场是合适的，目前无需加息或降息，但未来利率调整方向尚不明确。
-
-在当前阶段，他认为无需担忧出现明显的二次通胀冲击或持续性通胀。
+今年一季度，银之杰实现营收1.86亿元，同比增加7.47%；归属于上市公司股东的净利润-2159.33万元，同比增加15.72%；经营活动产生的现金流净额为-1829.67万元，较上年同期下降191.63%。
 
 ## 相关推荐
 
-- 2026-06-30 06:51 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 06:55 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 06:52 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 06:39 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 07:04 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 07:01 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 07:05 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 06:39 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 06:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 06:44 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 06:57 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 06:48 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 06:41 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 06:47 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 07:02 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 06:45 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 06:48 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 07:12 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 06:55 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 06:55 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 07:07 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 07:08 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 07:08 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 07:01 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 07:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 07:11 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 07:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 06:58 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 06:52 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 07:01 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:36 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/4149997.shtml)
-- 2026-06-30 06:55 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/5901118.shtml)
-- 2026-06-30 06:40 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/69192.shtml)
-- 2026-06-30 06:55 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/378111889052.shtml)
-- 2026-06-30 06:46 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/361078.shtml)
-- 2026-06-30 06:58 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/44835025110.shtml)
-- 2026-06-30 06:58 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/54400027032.shtml)
-- 2026-06-30 06:53 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/35372.shtml)
-- 2026-06-30 06:47 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/002224899006.shtml)
-- 2026-06-30 06:36 - [刘念回应](http://www.share.kurohicncr.top/Article/details/57897.shtml)
-- 2026-06-30 07:05 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/48705295.shtml)
-- 2026-06-30 06:59 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/488505318.shtml)
-- 2026-06-30 07:04 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/6727761597.shtml)
-- 2026-06-30 06:42 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/38387205.shtml)
-- 2026-06-30 07:02 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/18594.shtml)
+- 2026-06-30 07:00 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/05459496364.shtml)
+- 2026-06-30 07:08 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/20349880.shtml)
+- 2026-06-30 07:05 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/856995.shtml)
+- 2026-06-30 07:08 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/20891.shtml)
+- 2026-06-30 06:58 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/27370447483.shtml)
+- 2026-06-30 07:04 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/736049643449.shtml)
+- 2026-06-30 06:50 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/4508942107.shtml)
+- 2026-06-30 06:59 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/64069673984.shtml)
+- 2026-06-30 06:57 - [沙丘](http://www.share.kurohicncr.top/Article/details/59291.shtml)
+- 2026-06-30 06:49 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/143051071666.shtml)
+- 2026-06-30 06:48 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/3307377.shtml)
+- 2026-06-30 06:51 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/9100295.shtml)
+- 2026-06-30 07:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/715494359.shtml)
+- 2026-06-30 06:55 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/230266.shtml)
+- 2026-06-30 07:08 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/7839350.shtml)

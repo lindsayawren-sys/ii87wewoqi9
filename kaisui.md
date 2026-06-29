@@ -1,55 +1,56 @@
-# 以色列继续空袭黎巴嫩 造成至少9人死数十人伤
+# 从龇牙咧嘴到喜笑颜开 记一位草原医生的“针”功夫
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-中新网6月5日电 据土耳其阿纳多卢通讯社报道援引黎巴嫩媒体报道，当地时间4日，以色列军队对黎南部和东部贝卡谷地发动一系列空袭，造成至少9人死亡、数十人受伤。 据报道，以军对贝卡谷地索赫穆尔镇发动空袭，造成5人死亡、4人受伤。袭击事件发生后，政府敦促居民和游客不要进入当地，因为存在“严重的安全风险”。 报道称，黎巴嫩南部阿巴西耶镇和迈阿鲁卜镇也遭以军空袭，共造成4人死亡、2人受伤
+中新网呼和浩特6月4日电 题：从龇牙咧嘴到喜笑颜开 记一位草原医生的“针”功夫 中新网记者张林虎 “找杨大夫看病，来时龇牙咧嘴，走时喜笑颜开。”在呼和浩特市中医蒙医医院，患者微信群里流传着这样一句评价。 被患者交口称赞的杨大夫，是该院医养针推科主任杨建国。从医28年的他，每天提前半小时到岗，下班后诊室的灯常常亮到深夜。由他创新推出的“三联疗法”，将颈肩腰腿痛临床治愈率提升至95
 
 ## 正文
 
-中新网6月5日电 据土耳其阿纳多卢通讯社报道援引黎巴嫩媒体报道，当地时间4日，以色列军队对黎南部和东部贝卡谷地发动一系列空袭，造成至少9人死亡、数十人受伤。
+中新网呼和浩特6月4日电 题：从龇牙咧嘴到喜笑颜开 记一位草原医生的“针”功夫 中新网记者张林虎 “找杨大夫看病，来时龇牙咧嘴，走时喜笑颜开。
 
-据报道，以军对贝卡谷地索赫穆尔镇发动空袭，造成5人死亡、4人受伤。
+”在呼和浩特市中医蒙医医院，患者微信群里流传着这样一句评价。
 
-袭击事件发生后，政府敦促居民和游客不要进入当地，因为存在“严重的安全风险”。
+被患者交口称赞的杨大夫，是该院医养针推科主任杨建国。
 
-报道称，黎巴嫩南部阿巴西耶镇和迈阿鲁卜镇也遭以军空袭，共造成4人死亡、2人受伤。
+从医28年的他，每天提前半小时到岗，下班后诊室的灯常常亮到深夜。
 
-另据半岛电视台报道，根据黎巴嫩卫生部最新数据，自3月2日黎以战火重燃以来，以军袭击已造成黎巴嫩3526人死亡、10733人受伤。
+由他创新推出的“三联疗法”，将颈肩腰腿痛临床治愈率提升至95%，已有约2万名患者从中受益。
+
+“摸诊”辨症 走进杨建国的诊室，最令人诧异的是他看病的独特方式——不问病史，先上手摸。
+
+“放松，趴在床上。
+
+”杨建国双手顺着患者的肩颈、脊柱、腰骶缓缓按压，时而轻点，时而用力。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 06:40 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 06:54 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 06:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 06:39 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 06:53 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 06:45 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 06:42 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-30 07:03 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 06:51 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 06:42 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 06:58 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 07:02 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 06:41 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 06:36 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 07:09 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 06:50 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 06:47 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 07:11 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 07:08 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 06:48 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 07:01 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 06:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 07:07 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 06:52 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:54 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/217495.shtml)
-- 2026-06-30 06:50 - [送你一朵小红花](https://www.share.minike.top/Article/details/563994449660.shtml)
-- 2026-06-30 06:46 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/29338326.shtml)
-- 2026-06-30 06:58 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/93526140.shtml)
-- 2026-06-30 06:42 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/5758936.shtml)
-- 2026-06-30 06:54 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/7837746.shtml)
-- 2026-06-30 06:53 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/97212166.shtml)
-- 2026-06-30 06:54 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/5836020.shtml)
-- 2026-06-30 06:56 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/255413930.shtml)
-- 2026-06-30 07:02 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/1933960.shtml)
-- 2026-06-30 06:50 - [沉睡花园](http://www.share.minike.top/Article/details/8823000.shtml)
-- 2026-06-30 07:03 - [恋与深空 日服](http://www.share.minike.top/Article/details/44225058.shtml)
-- 2026-06-30 06:45 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/59084.shtml)
-- 2026-06-30 06:47 - [巴西vs日本](http://www.blog.minike.top/Article/details/72625795.shtml)
-- 2026-06-30 06:56 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/7522488.shtml)
+- 2026-06-30 07:07 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/982964437.shtml)
+- 2026-06-30 07:02 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/755454264147.shtml)
+- 2026-06-30 06:55 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/3668025073.shtml)
+- 2026-06-30 07:07 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/65505.shtml)
+- 2026-06-30 07:00 - [房价什么时候能涨](https://www.share.minike.top/Article/details/60833.shtml)
+- 2026-06-30 06:55 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/375578.shtml)
+- 2026-06-30 07:01 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/45878219243.shtml)
+- 2026-06-30 06:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/998962858387.shtml)
+- 2026-06-30 06:51 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/303903.shtml)
+- 2026-06-30 06:44 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/308381332.shtml)
+- 2026-06-30 07:10 - [周生如故](http://www.blog.minike.top/Article/details/03615273.shtml)
+- 2026-06-30 06:52 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/8762048.shtml)
+- 2026-06-30 06:55 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/1716542896.shtml)
+- 2026-06-30 06:45 - [美股](https://www.share.kurohicncr.top/Article/details/593430454.shtml)
+- 2026-06-30 06:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/134352.shtml)

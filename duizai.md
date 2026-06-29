@@ -1,56 +1,59 @@
-# 光大期货0605热点追踪：高库存压制盘面，多晶硅价格持续下探
+# MLCC、燃机概念联袂爆发，多股涨停！华宝基金军工ETF（512810）逆市连阳，机构：关注“军转民”投资机会
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-周五，多晶硅价格进一步下行，日内跌幅超2%，创一个月来新低。调整后最低交割品标准降至31000元/吨，现货贴水收至4000元/吨附近。05合约仓单集中注销后、硅厂和期现商仓单抛售压力或给予06合约较大压力，硅料厂此前挺价策略难以延续。近期光伏展会暂无新增供需动态，多晶硅市场出现预期落空回调趋势。短期宜谨慎等待后续动向，警惕盘面因真假消息扰动出现高波动情况。 基本面来看，6月中旬
+6月4日，大市回调之际，军工逆市飘红。军工核心资产——军工ETF华宝（512810）收涨0.41%成功连阳，守住年线的同时向上收复5日线。 成份股整体跌多涨少，不过MLCC、燃机概念多股暴涨为指数提供强力支撑，宏达电子20CM涨停，振华科技、中国动力、旭光电子集体10%涨停封板。光启技术、航天电子、中国卫星、中航沈飞等权重股齐跌为主要拖累。 消息面，受益AI需求景气，MLCC行
 
 ## 正文
 
-周五，多晶硅价格进一步下行，日内跌幅超2%，创一个月来新低。
+6月4日，大市回调之际，军工逆市飘红。
 
-调整后最低交割品标准降至31000元/吨，现货贴水收至4000元/吨附近。
+军工核心资产——军工ETF华宝（512810）收涨0.41%成功连阳，守住年线的同时向上收复5日线。
 
-05合约仓单集中注销后、硅厂和期现商仓单抛售压力或给予06合约较大压力，硅料厂此前挺价策略难以延续。
+成份股整体跌多涨少，不过MLCC、燃机概念多股暴涨为指数提供强力支撑，宏达电子20CM涨停，振华科技、中国动力、旭光电子集体10%涨停封板。
 
-近期光伏展会暂无新增供需动态，多晶硅市场出现预期落空回调趋势。
+光启技术、航天电子、中国卫星、中航沈飞等权重股齐跌为主要拖累。
 
-短期宜谨慎等待后续动向，警惕盘面因真假消息扰动出现高波动情况。
+消息面，受益AI需求景气，MLCC行业正进入新一轮涨价、景气上行周期。
 
-基本面来看，6月中旬多晶硅头部企业投料复产，供应压力全面显性化。
+据行业数据披露，日系龙头已对AI服务器用MLCC提价15%至35%，部分厂商提价6%至13%，高端产品交期大幅延长至20周以上，消费级现货跟涨约20%。
 
-绿电直连政策发力周期较慢，终端带来的批量备货不足。
+分析指出，部分军工电子企业除军工被动元器件外，也包括AI服务器电源、电力储能市场等民用被动元器件业务，有望迎来新成长逻辑。
 
-受制于套保盘和高库存的现实，硅料厂此前挺价策略难以延续，混包料价格或逐步松动。
+燃机方面，AIDC爆发带来电力缺口，燃机成为刚需。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 06:53 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 06:40 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 06:58 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 06:39 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 06:52 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 06:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 06:40 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 07:05 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 06:51 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 07:01 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 06:50 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-30 06:56 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 06:48 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 06:48 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 06:47 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 06:55 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 07:11 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 07:05 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 06:56 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 06:57 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 06:42 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 06:43 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/6013644693.shtml)
-- 2026-06-30 06:52 - [逃狱兄弟](https://www.blog.minike.top/Article/details/1256727.shtml)
-- 2026-06-30 07:00 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/2251852603.shtml)
-- 2026-06-30 07:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/10394129767.shtml)
-- 2026-06-30 06:48 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/5842642804.shtml)
-- 2026-06-30 06:44 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/60141.shtml)
-- 2026-06-30 07:00 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/411650213945.shtml)
-- 2026-06-30 06:59 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/5570117617.shtml)
-- 2026-06-30 06:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/607629888.shtml)
-- 2026-06-30 06:53 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/06304.shtml)
-- 2026-06-30 06:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/138529451413.shtml)
-- 2026-06-30 06:43 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/4286815757.shtml)
-- 2026-06-30 07:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/461030483.shtml)
-- 2026-06-30 07:03 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/4759109902.shtml)
-- 2026-06-30 06:50 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/2596589784.shtml)
+- 2026-06-30 06:51 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/0535475.shtml)
+- 2026-06-30 07:00 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/37699.shtml)
+- 2026-06-30 07:09 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/2921333292.shtml)
+- 2026-06-30 07:01 - [田中碧失误](http://www.blog.minike.top/Article/details/55434022978.shtml)
+- 2026-06-30 07:09 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/604213505.shtml)
+- 2026-06-30 07:11 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/4904687837.shtml)
+- 2026-06-30 07:05 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/12725.shtml)
+- 2026-06-30 06:46 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/339418.shtml)
+- 2026-06-30 06:45 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/8960060918.shtml)
+- 2026-06-30 07:07 - [张凌赫 客串](http://www.blog.minike.top/Article/details/597246097588.shtml)
+- 2026-06-30 07:02 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/90288053144.shtml)
+- 2026-06-30 06:58 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/576240121.shtml)
+- 2026-06-30 06:51 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/98227795347.shtml)
+- 2026-06-30 06:53 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/935726.shtml)
+- 2026-06-30 06:46 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/061445608.shtml)

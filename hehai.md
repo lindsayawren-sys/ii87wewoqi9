@@ -1,58 +1,60 @@
-# 赛豆是谁？字节跳动否认造车
+# 杨德龙：左手科技右手HALO资产 关注“六大赛道”机会
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-【TechWeb】6月7日消息，一则关于“字节跳动进军汽车制造业、推出‘赛豆’汽车品牌”的消息近日在网络上迅速发酵，引发行业内外广泛关注。 对此，字节跳动官方于6月6日正式发布声明，明确否认造车传闻，并厘清其与新兴汽车品牌“赛豆”的真实关系。 字节跳动：不造车，无股权合作 字节跳动在声明中表示，公司“没有造车或推出汽车品牌的计划”，网传的“赛豆”汽车品牌并非字节跳动或旗下“豆包
+近期，经过一周左右的调整之后，科技板块再次出现上涨。六大赛道中的芯片半导体、算力算法、机器人等三大赛道已经率先启动，出现一波反弹。强势板块的表现较为突出，也带动创业板、科创板等科技类板块出现反弹。创业板指数今日涨幅接近1.65%，科创综指同样上涨接近2%。上证指数也出现反弹，逼近4100点整数关口。 当前我国经济正处于转型之中，AI科技革命带动了科技板块的崛起，无论订单还是利润
 
 ## 正文
 
-【TechWeb】6月7日消息，一则关于“字节跳动进军汽车制造业、推出‘赛豆’汽车品牌”的消息近日在网络上迅速发酵，引发行业内外广泛关注。
+近期，经过一周左右的调整之后，科技板块再次出现上涨。
 
-对此，字节跳动官方于6月6日正式发布声明，明确否认造车传闻，并厘清其与新兴汽车品牌“赛豆”的真实关系。
+六大赛道中的芯片半导体、算力算法、机器人等三大赛道已经率先启动，出现一波反弹。
 
-字节跳动：不造车，无股权合作 字节跳动在声明中表示，公司“没有造车或推出汽车品牌的计划”，网传的“赛豆”汽车品牌并非字节跳动或旗下“豆包”大模型推出的产品，双方之间不存在任何股权合作。
+强势板块的表现较为突出，也带动创业板、科创板等科技类板块出现反弹。
 
-字节跳动强调，其在汽车行业的角色始终是技术合作伙伴，通过旗下的火山引擎为车企提供豆包大模型、智能座舱等AI技术服务，而非整车制造。
+创业板指数今日涨幅接近1.65%，科创综指同样上涨接近2%。
 
-这意味着，任何将字节跳动与“造车”直接划等号的说法，均属误读。
+上证指数也出现反弹，逼近4100点整数关口。
 
-“赛豆”的真实身份：从蓝电到赛豆 那么，这个突然闯入公众视野的“赛豆”究竟是谁？
+当前我国经济正处于转型之中，AI科技革命带动了科技板块的崛起，无论订单还是利润，都开始逐步落地。
 
-根据公开信息，“赛豆”是重庆赛豆科技有限公司即将推出的全新大众化新能源品牌。
+从去年开始，我就提出六大赛道将成为这轮科技行情中轮番表现的主线。
 
-而“赛豆科技”的前身，正是赛力斯集团旗下定位大众市场的“蓝电科技”。
+第一大赛道是芯片半导体，包括光模块、CPU、液冷、PCB等，代表了AI时代的“卖铲人”，也就是在AI时代需求量最大、最先受益的方向。
 
 ## 相关推荐
 
-- 2026-06-30 06:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 06:40 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 06:59 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-30 06:40 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 07:03 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 06:41 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 06:47 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 06:58 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 06:57 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 06:46 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 07:01 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 07:05 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 07:08 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 06:51 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 07:09 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 06:58 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 06:51 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 07:04 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 06:46 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 06:46 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 07:00 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 06:51 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 06:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 06:57 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 06:59 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 07:01 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:54 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/576431018.shtml)
-- 2026-06-30 06:48 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/7554106918.shtml)
-- 2026-06-30 07:02 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/6208402.shtml)
-- 2026-06-30 06:36 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/964660.shtml)
-- 2026-06-30 06:43 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/01915.shtml)
-- 2026-06-30 07:00 - [巴西2比1日本](https://www.blog.minike.top/Article/details/83008.shtml)
-- 2026-06-30 07:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/98424770872.shtml)
-- 2026-06-30 06:59 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/04218.shtml)
-- 2026-06-30 06:46 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/51679090.shtml)
-- 2026-06-30 06:59 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/925872596.shtml)
-- 2026-06-30 06:41 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/67480354387.shtml)
-- 2026-06-30 06:50 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/0291373858.shtml)
-- 2026-06-30 06:41 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/951732793825.shtml)
-- 2026-06-30 07:04 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/036674.shtml)
-- 2026-06-30 07:05 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/508585151.shtml)
+- 2026-06-30 07:01 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/15875469.shtml)
+- 2026-06-30 06:59 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/5001834830.shtml)
+- 2026-06-30 06:59 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/93458917.shtml)
+- 2026-06-30 07:06 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/8728654097.shtml)
+- 2026-06-30 06:44 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/12821846956.shtml)
+- 2026-06-30 07:07 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/8922095054.shtml)
+- 2026-06-30 07:09 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/78853.shtml)
+- 2026-06-30 07:02 - [急先锋](http://www.blog.kurohicncr.top/Article/details/45633195845.shtml)
+- 2026-06-30 06:55 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/61444255558.shtml)
+- 2026-06-30 06:54 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.kurohicncr.top/Article/details/2536395315.shtml)
+- 2026-06-30 07:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/5977778.shtml)
+- 2026-06-30 07:09 - [世界杯](https://www.blog.kurohicncr.top/Article/details/399355.shtml)
+- 2026-06-30 06:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/28472924237.shtml)
+- 2026-06-30 07:10 - [网瘾賊大的阿嬷](https://www.blog.minike.top/Article/details/2391249367.shtml)
+- 2026-06-30 07:02 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/7898828388.shtml)

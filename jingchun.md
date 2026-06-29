@@ -1,46 +1,59 @@
-# 宝丰能源：目前新疆项目已上报国家发展改革委审核
+# 铁矿石价格跌至两个月低点 基本面走软刺激看跌情绪
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月5日，宝丰能源在互动平台回答投资者提问时表示，目前新疆项目已上报国家发展改革委审核。取得重大进展时，公司将及时履行信息披露义务。（文章来源：证券日报）
+铁矿石价格跌至两个月低点，延续了本周的跌势，因供应增加和季节性钢铁需求疲软令情绪承压。 亚洲早盘交易时段，这种炼钢原料的期货价格一度下跌1.3%至每吨102.35美元，触及4月9日以来的盘中低点，并迈向3月以来的最低收盘价。 全球铁矿石装运量上升叠加夏季钢铁需求淡季，导致市场供过于求的局面日益加剧。与此同时，炼焦煤价格的强劲上涨已开始挤压钢铁生产利润率，从而削弱了对铁矿石价格的
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月5日，宝丰能源在互动平台回答投资者提问时表示，目前新疆项目已上报国家发展改革委审核。
+铁矿石价格跌至两个月低点，延续了本周的跌势，因供应增加和季节性钢铁需求疲软令情绪承压。
 
-取得重大进展时，公司将及时履行信息披露义务。
+亚洲早盘交易时段，这种炼钢原料的期货价格一度下跌1.3%至每吨102.35美元，触及4月9日以来的盘中低点，并迈向3月以来的最低收盘价。
 
-（文章来源：证券日报）
+全球铁矿石装运量上升叠加夏季钢铁需求淡季，导致市场供过于求的局面日益加剧。
+
+与此同时，炼焦煤价格的强劲上涨已开始挤压钢铁生产利润率，从而削弱了对铁矿石价格的支撑。
+
+截至北京时间上午10：57，新交所铁矿石含铁62%下跌1.3%至每吨102.35美元。
+
+大商所铁矿石期货一度下跌1.5%。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 06:58 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 06:55 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 06:52 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 06:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 06:44 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 06:59 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 06:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 07:02 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 06:57 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 07:01 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 07:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 06:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 06:48 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 06:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 06:54 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 07:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 06:42 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 06:59 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 07:06 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 06:46 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 06:52 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 06:54 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 07:09 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-30 06:45 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 07:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:40 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/1452504408.shtml)
-- 2026-06-30 06:44 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/4227854764.shtml)
-- 2026-06-30 06:53 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/5088575.shtml)
-- 2026-06-30 06:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/322767.shtml)
-- 2026-06-30 07:00 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/18904402.shtml)
-- 2026-06-30 06:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/94019.shtml)
-- 2026-06-30 06:47 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/355471307664.shtml)
-- 2026-06-30 06:40 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/022810.shtml)
-- 2026-06-30 06:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/388126299798.shtml)
-- 2026-06-30 07:00 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/3333265466.shtml)
-- 2026-06-30 06:43 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/2116183.shtml)
-- 2026-06-30 06:44 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/4222448.shtml)
-- 2026-06-30 06:54 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/156998745323.shtml)
-- 2026-06-30 06:36 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/872537.shtml)
-- 2026-06-30 07:02 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/72737.shtml)
+- 2026-06-30 06:48 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/85232.shtml)
+- 2026-06-30 07:10 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/42548.shtml)
+- 2026-06-30 07:07 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/192956.shtml)
+- 2026-06-30 06:45 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/87058760.shtml)
+- 2026-06-30 07:07 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/13189.shtml)
+- 2026-06-30 07:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/657724434.shtml)
+- 2026-06-30 07:06 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/8342199485.shtml)
+- 2026-06-30 07:06 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/22291452.shtml)
+- 2026-06-30 06:52 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/29658333145.shtml)
+- 2026-06-30 06:42 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/542135.shtml)
+- 2026-06-30 07:03 - [网瘾賊大的阿嬷](http://www.share.kurohicncr.top/Article/details/0975403.shtml)
+- 2026-06-30 06:55 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/53558.shtml)
+- 2026-06-30 06:58 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/125325720605.shtml)
+- 2026-06-30 06:56 - [金牌调解](https://www.share.kurohicncr.top/Article/details/3944643264.shtml)
+- 2026-06-30 06:48 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/4220757.shtml)

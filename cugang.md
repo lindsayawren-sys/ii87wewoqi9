@@ -1,43 +1,59 @@
-# 美军空袭伊朗雷达站 伊朗沿海传出爆炸声
+# 公安部公布4起污染环境犯罪典型案例
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月06日 15:43 来源：央视新闻 责任编辑：【王祎】
+中新网6月3日电 据公安部微信公众号消息，近年来，全国公安机关牢固树立和践行绿水青山就是金山银山理念，以加快建立公安机关牵头、相关部门联动的生态警务机制为牵引，依法严厉打击各类污染环境犯罪，切实维护生态环境安全和人民群众合法权益。在世界环境日到来之际，公安部公布4起污染环境犯罪典型案例。1.浙江省绍兴市公安机关侦破单某某等人制售作弊芯片干扰汽车尾气检测案 2024年11月，浙江
 
 ## 正文
 
-发布时间：2026年06月06日 15:43 来源：央视新闻 责任编辑：【王祎】
+中新网6月3日电 据公安部微信公众号消息，近年来，全国公安机关牢固树立和践行绿水青山就是金山银山理念，以加快建立公安机关牵头、相关部门联动的生态警务机制为牵引，依法严厉打击各类污染环境犯罪，切实维护生态环境安全和人民群众合法权益。
+
+在世界环境日到来之际，公安部公布4起污染环境犯罪典型案例。
+
+1.浙江省绍兴市公安机关侦破单某某等人制售作弊芯片干扰汽车尾气检测案 2024年11月，浙江省绍兴市公安机关侦破一起制售作弊芯片干扰汽车尾气检测污染环境案，抓获犯罪嫌疑人27名，打掉犯罪团伙3个。
+
+经查，犯罪嫌疑人单某某等人非法研发、生产具有干扰机动车排放检测数据功能的电源芯片，并销往全国多地机动车检测机构。
+
+该芯片通过篡改系统数据等，使不合格车辆通过年检，导致大量尾气超标车辆违法上路行驶，严重扰乱机动车排放检验市场秩序，对区域空气质量改善形成直接威胁。
+
+该案中，犯罪嫌疑人通过技术手段掩盖车辆真实排放水平，致使车辆排放的氮氧化物、颗粒物等污染物直接加剧区域雾霾、臭氧等复合型污染。
+
+案发后，公安机关依托警务协作机制，联合生态环境、市场监管等部门开展跨区域溯源追查，快速锁定芯片生产窝点、销售网络及使用机构，斩断犯罪链条。
+
+同时，公安机关认真总结经验，开发了相关犯罪预警模型，实现对不法行为的动态感知与精准预警，努力将犯罪遏制在萌芽阶段。
 
 ## 相关推荐
 
-- 2026-06-30 06:37 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-30 06:56 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 06:59 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 06:49 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-30 07:02 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-30 06:41 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 06:42 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 06:40 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 06:44 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 06:46 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-30 06:50 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 07:12 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 06:54 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 06:47 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 07:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 07:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 07:04 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 07:01 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 07:04 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 06:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 06:55 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 06:50 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 06:49 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 07:06 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:03 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/361303183.shtml)
-- 2026-06-30 06:38 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/673671772714.shtml)
-- 2026-06-30 06:55 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/925875.shtml)
-- 2026-06-30 06:54 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/057138111.shtml)
-- 2026-06-30 06:54 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/470612912094.shtml)
-- 2026-06-30 06:57 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/4207345.shtml)
-- 2026-06-30 06:56 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/2122457.shtml)
-- 2026-06-30 06:59 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/6201612.shtml)
-- 2026-06-30 06:51 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/198828.shtml)
-- 2026-06-30 07:02 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/31547332666.shtml)
-- 2026-06-30 06:46 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/6875093.shtml)
-- 2026-06-30 06:50 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/203723087.shtml)
-- 2026-06-30 06:43 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/275165230.shtml)
-- 2026-06-30 07:02 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/9586641.shtml)
-- 2026-06-30 06:41 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/12189398372.shtml)
+- 2026-06-30 07:04 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/94969610.shtml)
+- 2026-06-30 06:53 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/74059706766.shtml)
+- 2026-06-30 07:07 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/240321081357.shtml)
+- 2026-06-30 07:09 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/755826582742.shtml)
+- 2026-06-30 07:02 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/6167534.shtml)
+- 2026-06-30 06:52 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/4989364.shtml)
+- 2026-06-30 07:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/675390844.shtml)
+- 2026-06-30 06:48 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/2522611.shtml)
+- 2026-06-30 06:50 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/41260878165.shtml)
+- 2026-06-30 06:55 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/42265.shtml)
+- 2026-06-30 06:54 - [女心理师](https://www.blog.minike.top/Article/details/808999113.shtml)
+- 2026-06-30 06:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/62215813366.shtml)
+- 2026-06-30 06:48 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/59036885528.shtml)
+- 2026-06-30 06:43 - [电影后室值得看吗](https://www.share.minike.top/Article/details/93132243.shtml)
+- 2026-06-30 07:03 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/498379144297.shtml)

@@ -1,44 +1,46 @@
-# 习近平举行仪式欢迎老挝人民革命党中央总书记、国家主席通伦访华
+# 西藏拉萨：马背上的“速度与激情”
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-6月5日下午，中共中央总书记、国家主席习近平在北京人民大会堂东门外广场举行仪式，欢迎老挝人民革命党中央总书记、国家主席通伦对我国进行国事访问。 应中共中央总书记、国家主席习近平邀请，老挝人民革命党中央总书记、国家主席通伦于6月2日至6日对中国进行国事访问。
+发布时间：2026年06月04日 16:06 来源：中国新闻网 6月4日，拉萨市第二届运动会暨民族传统体育运动会速度赛马比赛在拉萨市北郊赛马场进行。比赛现场，骑手策马奔腾，上演马背上的“速度与激情”。(李林 制作 侯诗蕊） 责任编辑：【叶攀】
 
 ## 正文
 
-6月5日下午，中共中央总书记、国家主席习近平在北京人民大会堂东门外广场举行仪式，欢迎老挝人民革命党中央总书记、国家主席通伦对我国进行国事访问。
+发布时间：2026年06月04日 16:06 来源：中国新闻网 6月4日，拉萨市第二届运动会暨民族传统体育运动会速度赛马比赛在拉萨市北郊赛马场进行。
 
-应中共中央总书记、国家主席习近平邀请，老挝人民革命党中央总书记、国家主席通伦于6月2日至6日对中国进行国事访问。
+比赛现场，骑手策马奔腾，上演马背上的“速度与激情”。
+
+(李林 制作 侯诗蕊） 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-30 06:42 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 07:02 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-30 06:41 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 06:51 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 06:57 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 07:03 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 07:04 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 06:52 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 06:47 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 06:37 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 06:48 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 07:07 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 07:04 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 06:48 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 06:56 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 07:03 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 06:50 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 07:09 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 06:47 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 06:50 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:43 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/040437134819.shtml)
-- 2026-06-30 06:49 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/1267295.shtml)
-- 2026-06-30 07:05 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/6686440077.shtml)
-- 2026-06-30 06:46 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/279520240036.shtml)
-- 2026-06-30 06:55 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/18127932453.shtml)
-- 2026-06-30 07:00 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/46804861.shtml)
-- 2026-06-30 06:48 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/229794833.shtml)
-- 2026-06-30 06:41 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/482624181.shtml)
-- 2026-06-30 06:45 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/777640.shtml)
-- 2026-06-30 06:51 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/3141361456.shtml)
-- 2026-06-30 06:44 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/918647.shtml)
-- 2026-06-30 06:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/16986998.shtml)
-- 2026-06-30 06:43 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/180621046.shtml)
-- 2026-06-30 06:50 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/21869.shtml)
-- 2026-06-30 06:58 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/016795425.shtml)
+- 2026-06-30 07:03 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/9380537.shtml)
+- 2026-06-30 06:52 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/30733.shtml)
+- 2026-06-30 06:42 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/3817483827.shtml)
+- 2026-06-30 06:49 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/695592.shtml)
+- 2026-06-30 06:56 - [三星投资计划](https://www.share.minike.top/Article/details/02522.shtml)
+- 2026-06-30 07:00 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/8783563.shtml)
+- 2026-06-30 07:04 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/510806005.shtml)
+- 2026-06-30 06:58 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/47597.shtml)
+- 2026-06-30 06:48 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/187255972.shtml)
+- 2026-06-30 06:42 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/8394380.shtml)
+- 2026-06-30 06:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/613727115.shtml)
+- 2026-06-30 06:48 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/8384469.shtml)
+- 2026-06-30 06:48 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/004987169.shtml)
+- 2026-06-30 06:55 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/50085.shtml)
+- 2026-06-30 07:08 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/37466.shtml)

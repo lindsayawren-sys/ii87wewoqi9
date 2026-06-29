@@ -1,52 +1,57 @@
-# 麦客返乡遇车辆故障 高速收费站送上免费晚饭
+# 看懂银行，才看得懂银保：双邮、招行、平安几大渠道特点不一，未来渠道分水岭会在哪？
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 10:08 来源：中国新闻网 近日，浙江湖州，一辆载有50名返乡收麦人员的大巴车在申嘉湖高速突发故障抛锚。浙江交通集团湖州管理中心工作人员迅速将车免费拖至湖州东收费站抢修，并耐心安抚乘客焦急情绪，同时积极协助对接维修单位。考虑车上司乘赶路又饿又累，收费站紧急开放食堂，免费为他们提供热饭。一个半小时后车辆修复，旅客安全踏上返乡路。(作者：吴世强)
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：险企高参 今年，银行对银保的重视或许已经到另一个level了。金融监管总局数据显示，2026年一季度末商业银行净息差为1.40%，系2025年连续三个季度持平后，再次回落。同时，报告期内银行非利息收入占比24.16%，占比较2025年四季度末22.53%有所抬升。息差继续贴地飞行，中间业务收入至关重要，其中保险代销尤甚。
 
 ## 正文
 
-发布时间：2026年06月05日 10:08 来源：中国新闻网 近日，浙江湖州，一辆载有50名返乡收麦人员的大巴车在申嘉湖高速突发故障抛锚。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：险企高参 今年，银行对银保的重视或许已经到另一个level了。
 
-浙江交通集团湖州管理中心工作人员迅速将车免费拖至湖州东收费站抢修，并耐心安抚乘客焦急情绪，同时积极协助对接维修单位。
+金融监管总局数据显示，2026年一季度末商业银行净息差为1.40%，系2025年连续三个季度持平后，再次回落。
 
-考虑车上司乘赶路又饿又累，收费站紧急开放食堂，免费为他们提供热饭。
+同时，报告期内银行非利息收入占比24.16%，占比较2025年四季度末22.53%有所抬升。
 
-一个半小时后车辆修复，旅客安全踏上返乡路。
+息差继续贴地飞行，中间业务收入至关重要，其中保险代销尤甚。
 
-(作者：吴世强) 责任编辑：【魏聪聪】
+过去谈银保，行业习惯盯保险公司。
+
+谁家新单高，谁家期交强，谁家在大行渠道排位靠前，谁家在“双邮”抢到资源，基本就是讨论主线。
+
+但从银行视角看，银保有另一套账本。
+
+银行并不关心哪家险企更会讲故事，银行更关心几个现实问题：这类产品能不能带来稳定中收，能不能匹配客户风险偏好，能不能减少投诉，能不能在低利率环境下补足财富管理货架，能不能让网点和客户经理有东西可卖。
 
 ## 相关推荐
 
-- 2026-06-30 06:51 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 06:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 07:05 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 06:44 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 06:50 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 06:45 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 07:04 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 06:46 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 06:41 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 06:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 06:42 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 07:03 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 06:59 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 07:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 06:51 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 07:04 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 06:53 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 06:54 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 06:59 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 06:44 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 07:08 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 06:53 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 07:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:00 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/602534.shtml)
-- 2026-06-30 06:50 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/524097940093.shtml)
-- 2026-06-30 06:59 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/774091565.shtml)
-- 2026-06-30 06:43 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/384949914.shtml)
-- 2026-06-30 06:44 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/54597623169.shtml)
-- 2026-06-30 06:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/762829.shtml)
-- 2026-06-30 07:04 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/52738.shtml)
-- 2026-06-30 06:36 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/4891243.shtml)
-- 2026-06-30 06:58 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/61385886941.shtml)
-- 2026-06-30 06:50 - [德国vs巴拉圭](http://www.blog.minike.top/Article/details/763656.shtml)
-- 2026-06-30 06:56 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.kurohicncr.top/Article/details/24890.shtml)
-- 2026-06-30 06:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/596477198128.shtml)
-- 2026-06-30 06:45 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/5196792.shtml)
-- 2026-06-30 07:03 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/4871178829.shtml)
-- 2026-06-30 06:42 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/4782617.shtml)
+- 2026-06-30 07:02 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/28431752250.shtml)
+- 2026-06-30 06:50 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/80953281.shtml)
+- 2026-06-30 06:59 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/01375806735.shtml)
+- 2026-06-30 07:07 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/06550858.shtml)
+- 2026-06-30 06:43 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/78802.shtml)
+- 2026-06-30 06:48 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/594888693.shtml)
+- 2026-06-30 06:50 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/92239362855.shtml)
+- 2026-06-30 07:07 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/64688.shtml)
+- 2026-06-30 06:43 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/32586966082.shtml)
+- 2026-06-30 07:06 - [《贺子珍》](http://www.share.minike.top/Article/details/13383546.shtml)
+- 2026-06-30 06:50 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/987461222573.shtml)
+- 2026-06-30 06:57 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/277983.shtml)
+- 2026-06-30 06:48 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/767787938.shtml)
+- 2026-06-30 06:54 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/492716576.shtml)
+- 2026-06-30 06:47 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/43267819908.shtml)

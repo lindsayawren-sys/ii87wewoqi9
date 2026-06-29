@@ -1,54 +1,57 @@
-# 中国轴向磁通电机研究取得新突破 赋能具身智能等新兴产业
+# 特朗普称伊朗“理论上”接近签署协议
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月06日 19:19 来源：中国新闻网 近日，中国高性能轴向磁通电机研究新突破在浙江金华发布。上海盘毂动力科技股份有限公司联合中国科学院宁波材料技术与工程研究所推出的高性能专用磁钢与轴向磁通电机的适配度显著提升，其有效功率密度达到25.73kW/kg，超过中国《节能与新能源汽车技术路线图3.0》2040年规划目标42.94%，最高转速18000rpm，实
+美国总统特朗普表示，伊朗“原则上”接近签署文件，他指的是谅解备忘录。 特朗普在白宫发表讲话。 特朗普表示，美国与伊朗相处得非常好。 他还表示，美国将在不远的未来进入伊朗，挖掘被掩埋的核材料。 伊朗可能与美国合作来挖掘这些材料。责任编辑：丁文武
 
 ## 正文
 
-发布时间：2026年06月06日 19:19 来源：中国新闻网 近日，中国高性能轴向磁通电机研究新突破在浙江金华发布。
+美国总统特朗普表示，伊朗“原则上”接近签署文件，他指的是谅解备忘录。
 
-上海盘毂动力科技股份有限公司联合中国科学院宁波材料技术与工程研究所推出的高性能专用磁钢与轴向磁通电机的适配度显著提升，其有效功率密度达到25.73kW/kg，超过中国《节能与新能源汽车技术路线图3.0》2040年规划目标42.94%，最高转速18000rpm，实现了轴向磁通电机转速的历史性突破。
+特朗普在白宫发表讲话。
 
-磁能积、高温稳定性、力学强度等多项指标均实现跨越式提升，同时做到成本可控，为中国轴向磁通电驱动产业链实现全流程自主创新、大规模市场应用、对标国际顶尖水平提供了关键支撑。
+特朗普表示，美国与伊朗相处得非常好。
 
-据悉，该类轴向磁通电机产品将率先应用于新能源汽车、人形机器人、低空飞行器等关键核心领域。
+他还表示，美国将在不远的未来进入伊朗，挖掘被掩埋的核材料。
 
-(王刚) 责任编辑：【卢岩】
+伊朗可能与美国合作来挖掘这些材料。
+
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 06:39 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 06:57 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 07:02 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 06:40 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 06:44 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 06:54 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 06:56 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 06:52 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 06:45 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 06:50 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 06:56 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 06:40 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 06:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 06:36 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 06:43 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 07:08 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 06:57 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 06:50 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 06:48 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 07:02 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 07:04 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 06:47 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 06:50 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 07:08 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 07:03 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 06:46 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 07:11 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 06:52 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 06:57 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:46 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/19828537143.shtml)
-- 2026-06-30 06:54 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/32420163.shtml)
-- 2026-06-30 06:54 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/00180352632.shtml)
-- 2026-06-30 06:41 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/926773414.shtml)
-- 2026-06-30 06:55 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/904008538.shtml)
-- 2026-06-30 06:46 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/7236341891.shtml)
-- 2026-06-30 07:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/8070568.shtml)
-- 2026-06-30 06:55 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/29579.shtml)
-- 2026-06-30 06:42 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/28709.shtml)
-- 2026-06-30 06:56 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/531776364779.shtml)
-- 2026-06-30 06:42 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/1460212575.shtml)
-- 2026-06-30 06:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/14910.shtml)
-- 2026-06-30 07:04 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/94083.shtml)
-- 2026-06-30 06:44 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/95134158.shtml)
-- 2026-06-30 06:50 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/247369.shtml)
+- 2026-06-30 07:02 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/9933550.shtml)
+- 2026-06-30 07:11 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/2148681498.shtml)
+- 2026-06-30 06:51 - [起风了](https://www.blog.minike.top/Article/details/35102127.shtml)
+- 2026-06-30 06:42 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/330420.shtml)
+- 2026-06-30 06:49 - [沙丘](https://www.share.minike.top/Article/details/090803429.shtml)
+- 2026-06-30 06:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/92995374239.shtml)
+- 2026-06-30 06:47 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/48236364770.shtml)
+- 2026-06-30 07:04 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/5892022.shtml)
+- 2026-06-30 06:54 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/777930.shtml)
+- 2026-06-30 06:45 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/2942259.shtml)
+- 2026-06-30 07:10 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/49164.shtml)
+- 2026-06-30 06:51 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/74534470219.shtml)
+- 2026-06-30 06:55 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/045661775981.shtml)
+- 2026-06-30 07:04 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/72780.shtml)
+- 2026-06-30 06:55 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/61195710.shtml)

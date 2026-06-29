@@ -1,48 +1,59 @@
-# 百联股份：公司拟通过集中竞价交易方式回购公司已发行的人民币普通股（A股）
+# 国投策略林荣雄：AI投资下半场“守大光买光圈”，存储与AI应用成关键赛道
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月5日，百联股份在互动平台回答投资者提问时表示，公司基于对未来发展前景的坚定信心以及对公司长期价值的高度认可，拟使用自有资金及商业银行回购专项贷款，通过集中竞价交易方式回购公司已发行的人民币普通股（A股），回购的股份将全部予以注销并减少公司注册资本，回购金额不低于人民币10000万元，不高于人民币20000万元（均含本数）以维护公司价值和广大投资者的利益，增强投
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！AI还能涨多久？站在6月的关键窗口，市场将延续高位震荡，还是迎来风格切换？面对高波动与强分歧，投资者应如何锚定主线？6月3日，新浪证券对话国投证券策略研究首席分析师林荣雄，为投资者前瞻解读>>视频直播 林荣雄认为，当前AI行情正从“大光”向“光圈”扩散，投资者应守住产业关键环节，同时积极布局存储和AI应用等
 
 ## 正文
 
-证券日报网讯 6月5日，百联股份在互动平台回答投资者提问时表示，公司基于对未来发展前景的坚定信心以及对公司长期价值的高度认可，拟使用自有资金及商业银行回购专项贷款，通过集中竞价交易方式回购公司已发行的人民币普通股（A股），回购的股份将全部予以注销并减少公司注册资本，回购金额不低于人民币10000万元，不高于人民币20000万元（均含本数）以维护公司价值和广大投资者的利益，增强投资者信心。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-本次回购事项仍需股东会审议，公司将依规及时披露相关进展。
+AI还能涨多久？
 
-（文章来源：证券日报）
+站在6月的关键窗口，市场将延续高位震荡，还是迎来风格切换？
+
+面对高波动与强分歧，投资者应如何锚定主线？
+
+6月3日，新浪证券对话国投证券策略研究首席分析师林荣雄，为投资者前瞻解读>>视频直播 林荣雄认为，当前AI行情正从“大光”向“光圈”扩散，投资者应守住产业关键环节，同时积极布局存储和AI应用等供需缺口方向。
+
+林荣雄将科技投资的演绎路径归纳为四个阶段：当爆款产品出现时，市场应聚焦巨头；当巨头开启巨额资本开支时，市场应转向基础设施；当产业链形成后，市场应锁定产业链关键环节；最后则是供需缺口，上游看涨价、下游看放量。
+
+以新能源车为例，特斯拉Model S作为爆款催生了对特斯拉本身的炒作；特斯拉进入国内并大规模资本开支后，充电桩、电网设备等基础设施成为焦点；产业链成熟后，锂电池等关键环节主导行情；最终，上游锂矿因涨价逻辑、下游汽车零部件因放量逻辑接棒演绎。
+
+将这一框架套用到当前的AI产业趋势中，林荣雄认为，ChatGPT作为爆款出现时，市场应找巨头——这对应2023年的行情；随后巨头进行巨额资本开支，算力作为基础设施成为主线，这一阶段已充分演绎；产业链形成后，AI芯片作为关键环节受到关注，国内代表公司包括中芯国际、寒武纪等；而目前正在进入第四阶段——供需缺口，其中上游涨价对应存储（类似于锂矿），下游放量对应AI应用（类似于汽车零部件）。
 
 ## 相关推荐
 
-- 2026-06-30 06:59 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 06:39 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-30 06:44 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-30 07:02 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 06:45 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 06:51 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 06:36 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 06:41 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 06:52 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 06:36 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 06:52 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 06:43 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 07:11 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 07:03 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-30 06:53 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 07:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-30 06:47 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 06:49 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 07:08 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 06:43 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 07:03 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-30 06:46 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 06:52 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 06:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 06:47 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:43 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/0345365.shtml)
-- 2026-06-30 06:44 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/02024226344.shtml)
-- 2026-06-30 06:44 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/436886.shtml)
-- 2026-06-30 06:40 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/63022.shtml)
-- 2026-06-30 06:46 - [刘宇宁高情商化解谁站C位](http://www.share.kurohicncr.top/Article/details/5751062.shtml)
-- 2026-06-30 06:56 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/8000747.shtml)
-- 2026-06-30 06:51 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/186606277.shtml)
-- 2026-06-30 06:55 - [斗破苍穹](https://www.blog.minike.top/Article/details/7217451770.shtml)
-- 2026-06-30 06:48 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/84184919955.shtml)
-- 2026-06-30 06:58 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/940636004341.shtml)
-- 2026-06-30 06:40 - [千香](http://www.blog.kurohicncr.top/Article/details/633000.shtml)
-- 2026-06-30 06:51 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/2247134723.shtml)
-- 2026-06-30 06:36 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/138694029.shtml)
-- 2026-06-30 06:39 - [《共患难》](https://www.share.minike.top/Article/details/85201982011.shtml)
-- 2026-06-30 06:37 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/038743348.shtml)
+- 2026-06-30 06:43 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/9624210.shtml)
+- 2026-06-30 06:48 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/766462058.shtml)
+- 2026-06-30 06:44 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/69221.shtml)
+- 2026-06-30 07:02 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/969007513597.shtml)
+- 2026-06-30 06:48 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/4976116367.shtml)
+- 2026-06-30 06:50 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/283984.shtml)
+- 2026-06-30 06:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/369442515.shtml)
+- 2026-06-30 06:51 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/9392777.shtml)
+- 2026-06-30 06:58 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/110147304.shtml)
+- 2026-06-30 06:54 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/1908989451.shtml)
+- 2026-06-30 07:05 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/88184273213.shtml)
+- 2026-06-30 07:06 - [沉睡花园](http://www.blog.minike.top/Article/details/51243088344.shtml)
+- 2026-06-30 06:42 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/37813760420.shtml)
+- 2026-06-30 07:11 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/91413970.shtml)
+- 2026-06-30 07:00 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/291397844063.shtml)

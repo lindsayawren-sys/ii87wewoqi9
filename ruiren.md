@@ -1,58 +1,57 @@
-# 女子花2万元查丈夫出轨，意外揪出辅警内鬼
+# 中信建投：模拟IC大厂集中开启新一轮涨价
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-来源：南方农村报 2025年5月，甘肃省静宁县公安局接到一位女士报案，称自己委托在某直播平台结识的“私家侦探”陈某甲查询丈夫出轨的证据，向对方支付了2万元酬劳后，仅收到丈夫名下900多条微信交易信息，感觉被骗了。警方迅速立案侦查。 经查，这条黑产链的起点，是某直播平台一个打着“私家侦探”旗号的直播间。该直播间主播陈某甲原本在江苏经营棋牌室，从2024年底开始以“私家侦探”的名义
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中信建投证券研究 文|何昊 何昱灵 半导体：模拟IC大厂开启新一轮集体涨价，AI需求外溢与成本压力驱动行业步入价格反弹新周期。 消费电子：英伟达联手微软、Arm同步预热“PC新纪元”，自研Arm架构处理器有望打破苹果与高通垄断并定义本地AI算力入口。 汽车电子：比亚迪发布首款自研4nm智驾芯片“璇玑A3”并
 
 ## 正文
 
-来源：南方农村报 2025年5月，甘肃省静宁县公安局接到一位女士报案，称自己委托在某直播平台结识的“私家侦探”陈某甲查询丈夫出轨的证据，向对方支付了2万元酬劳后，仅收到丈夫名下900多条微信交易信息，感觉被骗了。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-警方迅速立案侦查。
+中信建投证券研究 文|何昊 何昱灵 半导体：模拟IC大厂开启新一轮集体涨价，AI需求外溢与成本压力驱动行业步入价格反弹新周期。
 
-经查，这条黑产链的起点，是某直播平台一个打着“私家侦探”旗号的直播间。
+消费电子：英伟达联手微软、Arm同步预热“PC新纪元”，自研Arm架构处理器有望打破苹果与高通垄断并定义本地AI算力入口。
 
-该直播间主播陈某甲原本在江苏经营棋牌室，从2024年底开始以“私家侦探”的名义做直播，积攒人气。
+汽车电子：比亚迪发布首款自研4nm智驾芯片“璇玑A3”并推出安全兜底政策，将直接驱动高阶智驾在主流消费市场的加速渗透。
 
-2025年2月的一天，高某（另案处理）刷到陈某甲的直播后，私信了他，委托他去贵州贵阳帮忙找一辆车。
+1、半导体：模拟IC大厂开启新一轮集体涨价，AI需求外溢与成本压力驱动行业步入价格反弹新周期。
 
-接单后，陈某甲等人动身前往贵阳。
+英飞凌于5月26日发出通知，计划于2026年7月1日起调整部分产品价格，为年内第二次提价。
 
-一同去找车的，除了高某，还有其好友左某。
+意法半导体（ST）则于5月28日宣布，拟自2026年6月28日起对部分产品进行价格上调，这是其继4月26日调价后的年内第二次动作。
 
-途中，陈某甲意外得知，高某有渠道能查询别人的微信交易明细。
+模拟龙头德州仪器（TI）先前已宣布自7月1日起调涨电源管理IC等核心产品报价。
 
 ## 相关推荐
 
-- 2026-06-30 06:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 06:43 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 07:05 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 07:03 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 06:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 06:44 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 06:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 06:57 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 06:38 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 07:03 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 06:44 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 06:37 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 07:04 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 06:44 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 06:55 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 06:54 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 06:56 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 06:51 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 07:09 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 07:00 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 07:03 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 07:08 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 06:53 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:01 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/52991320.shtml)
-- 2026-06-30 07:02 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/134783463951.shtml)
-- 2026-06-30 06:57 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/4905014.shtml)
-- 2026-06-30 06:40 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/0765801.shtml)
-- 2026-06-30 06:44 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/2566178200.shtml)
-- 2026-06-30 07:04 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/7416578409.shtml)
-- 2026-06-30 06:45 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/83355725.shtml)
-- 2026-06-30 07:01 - [逃狱兄弟](https://www.share.minike.top/Article/details/45731815681.shtml)
-- 2026-06-30 06:36 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/871877698707.shtml)
-- 2026-06-30 06:36 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/164019.shtml)
-- 2026-06-30 06:41 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/764499115.shtml)
-- 2026-06-30 06:53 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/8058432.shtml)
-- 2026-06-30 07:05 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/9113980151.shtml)
-- 2026-06-30 06:38 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/65152.shtml)
-- 2026-06-30 06:38 - [点菜也要教吗](https://www.blog.minike.top/Article/details/90961390988.shtml)
+- 2026-06-30 06:57 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/54249.shtml)
+- 2026-06-30 06:55 - [沙丘](http://www.share.minike.top/Article/details/700504925.shtml)
+- 2026-06-30 06:50 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/49194650.shtml)
+- 2026-06-30 06:44 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/75040664179.shtml)
+- 2026-06-30 06:44 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/397082764.shtml)
+- 2026-06-30 07:09 - [一见倾心](http://www.share.kurohicncr.top/Article/details/7131382.shtml)
+- 2026-06-30 06:51 - [斗破苍穹](http://www.share.minike.top/Article/details/45213254.shtml)
+- 2026-06-30 06:53 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/31822350.shtml)
+- 2026-06-30 06:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/2550051118.shtml)
+- 2026-06-30 07:04 - [起风了](http://www.share.kurohicncr.top/Article/details/106771667785.shtml)
+- 2026-06-30 07:11 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/46413766850.shtml)
+- 2026-06-30 06:55 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/636338.shtml)
+- 2026-06-30 06:54 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/7869768621.shtml)
+- 2026-06-30 06:50 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/833151.shtml)
+- 2026-06-30 06:59 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/06092.shtml)

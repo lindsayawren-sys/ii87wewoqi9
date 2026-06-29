@@ -1,43 +1,58 @@
-# 受能源价格上涨拖累 欧元区经济出现萎缩
+# 天岳先进午前涨近4% 公司为8英寸SiC衬底龙头企业
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月06日 13:00 来源：央视新闻 责任编辑：【王祎】
+天岳先进（02631）早盘涨近7%，截至发稿，股价上涨3.97%，现报104.80港元，成交额3.74亿港元。 随着英伟达等AI芯片功耗飙升，传统硅基电源架构已触及物理极限。行业正加速向800V高压直流（HVDC）架构过渡，碳化硅成为AI服务器固态变压器及电源管理的必选材料。英飞凌、意法半导体等巨头明确表示，AI数据中心的部署导致多款功率器件出现严重供应短缺。 公开资料显示，天
 
 ## 正文
 
-发布时间：2026年06月06日 13:00 来源：央视新闻 责任编辑：【王祎】
+天岳先进（02631）早盘涨近7%，截至发稿，股价上涨3.97%，现报104.80港元，成交额3.74亿港元。
+
+随着英伟达等AI芯片功耗飙升，传统硅基电源架构已触及物理极限。
+
+行业正加速向800V高压直流（HVDC）架构过渡，碳化硅成为AI服务器固态变压器及电源管理的必选材料。
+
+英飞凌、意法半导体等巨头明确表示，AI数据中心的部署导致多款功率器件出现严重供应短缺。
+
+公开资料显示，天岳先进在8英寸碳化硅衬底领域占据全球领先份额，12英寸完成样品研发、送样、小批量试样供货。
+
+据悉，天岳先进的12英寸SiC衬底进入台积电供应链验证阶段，作为下一代CoWoS中介层备选方案开展送样测试。
+
+用作替代硅中介层以解决高性能GPU的散热瓶颈。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 06:50 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 06:49 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 06:43 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 06:46 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 06:46 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 06:45 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 06:59 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 06:51 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 07:02 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 06:44 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 07:00 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 06:42 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 06:45 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 06:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 07:03 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 06:58 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 06:46 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 07:09 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 07:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 06:43 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 06:45 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 07:05 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:43 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/7464802.shtml)
-- 2026-06-30 06:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/420968500.shtml)
-- 2026-06-30 06:41 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/39850.shtml)
-- 2026-06-30 06:38 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/81424677.shtml)
-- 2026-06-30 06:41 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/13545879.shtml)
-- 2026-06-30 07:03 - [千香](https://www.blog.minike.top/Article/details/667620913007.shtml)
-- 2026-06-30 06:41 - [二次元提前预演明日巴西对日本](http://www.blog.kurohicncr.top/Article/details/867328224.shtml)
-- 2026-06-30 07:04 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/3303759325.shtml)
-- 2026-06-30 06:46 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/909540055382.shtml)
-- 2026-06-30 06:53 - [巴西绝杀](https://www.blog.minike.top/Article/details/3599940507.shtml)
-- 2026-06-30 06:42 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/939205381.shtml)
-- 2026-06-30 06:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/36418.shtml)
-- 2026-06-30 06:52 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/50961.shtml)
-- 2026-06-30 06:49 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/612954.shtml)
-- 2026-06-30 06:42 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/7624794988.shtml)
+- 2026-06-30 06:48 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/86607.shtml)
+- 2026-06-30 07:02 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/620065473.shtml)
+- 2026-06-30 06:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/237719.shtml)
+- 2026-06-30 06:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/95372.shtml)
+- 2026-06-30 06:51 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/83807106.shtml)
+- 2026-06-30 07:00 - [金牌调解](http://www.share.minike.top/Article/details/4267182.shtml)
+- 2026-06-30 07:11 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.minike.top/Article/details/29506482217.shtml)
+- 2026-06-30 06:51 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/90557939.shtml)
+- 2026-06-30 07:09 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/858404345595.shtml)
+- 2026-06-30 06:45 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/930968932570.shtml)
+- 2026-06-30 06:45 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/89236.shtml)
+- 2026-06-30 07:08 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/327051.shtml)
+- 2026-06-30 06:46 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/8452574.shtml)
+- 2026-06-30 07:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/78931791735.shtml)
+- 2026-06-30 07:00 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/734496967075.shtml)

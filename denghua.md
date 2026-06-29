@@ -1,56 +1,43 @@
-# 法国前总统希拉克遗孀贝尔纳黛特去世 终年93岁
+# 久立特材：董秘寿昊添增持1万股公司股份
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-中新网6月6日电 据美联社等外媒报道，当地时间5日晚，法国前总统希拉克遗孀贝尔纳黛特去世，终年93岁。 法国总统马克龙6日在社交媒体发文悼念。 据报道，贝尔纳黛特1956年与希拉克结婚。她曾担任法国科雷兹省议会议员，热衷于儿童公益事业。 希拉克1995年至2007年任法国总统。2019年9月26日，希拉克在家人的陪伴下去世。
+转自：证券时报人民财讯6月3日电，久立特材(002318)6月3日公告，公司董事会秘书寿昊添6月3日通过深交所交易系统以集中竞价方式增持了10000股公司股份，增持均价22.386元/股。
 
 ## 正文
 
-中新网6月6日电 据美联社等外媒报道，当地时间5日晚，法国前总统希拉克遗孀贝尔纳黛特去世，终年93岁。
-
-法国总统马克龙6日在社交媒体发文悼念。
-
-据报道，贝尔纳黛特1956年与希拉克结婚。
-
-她曾担任法国科雷兹省议会议员，热衷于儿童公益事业。
-
-希拉克1995年至2007年任法国总统。
-
-2019年9月26日，希拉克在家人的陪伴下去世。
+转自：证券时报人民财讯6月3日电，久立特材(002318)6月3日公告，公司董事会秘书寿昊添6月3日通过深交所交易系统以集中竞价方式增持了10000股公司股份，增持均价22.386元/股。
 
 ## 相关推荐
 
-- 2026-06-30 06:43 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 07:05 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 06:42 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 06:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 07:01 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 06:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 06:58 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 07:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 07:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 06:59 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 06:52 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 06:38 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 06:38 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 07:04 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 06:53 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 06:46 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 07:00 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 06:54 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 07:03 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 07:07 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 06:58 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 06:51 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 06:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 06:55 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 07:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:03 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.minike.top/Article/details/89522.shtml)
-- 2026-06-30 07:00 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/39465447.shtml)
-- 2026-06-30 06:37 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/683590.shtml)
-- 2026-06-30 06:49 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/725586038242.shtml)
-- 2026-06-30 06:56 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/3582448023.shtml)
-- 2026-06-30 06:37 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/69437.shtml)
-- 2026-06-30 06:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/22553226.shtml)
-- 2026-06-30 07:01 - [沉睡花园](https://www.blog.minike.top/Article/details/238924.shtml)
-- 2026-06-30 06:55 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/75537.shtml)
-- 2026-06-30 06:47 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/578438021.shtml)
-- 2026-06-30 06:49 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/3280627305.shtml)
-- 2026-06-30 06:46 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/9505962911.shtml)
-- 2026-06-30 06:42 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/34480879995.shtml)
-- 2026-06-30 07:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/45026316045.shtml)
-- 2026-06-30 07:01 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/1419965.shtml)
+- 2026-06-30 07:11 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/0875775037.shtml)
+- 2026-06-30 07:08 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/904573.shtml)
+- 2026-06-30 06:53 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/939436433.shtml)
+- 2026-06-30 06:44 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/88052783.shtml)
+- 2026-06-30 07:02 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/96469166602.shtml)
+- 2026-06-30 06:50 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/1570100222.shtml)
+- 2026-06-30 07:07 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/87213835520.shtml)
+- 2026-06-30 06:45 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/16457.shtml)
+- 2026-06-30 06:46 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/651413252769.shtml)
+- 2026-06-30 06:50 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/68977210648.shtml)
+- 2026-06-30 07:11 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/233878757069.shtml)
+- 2026-06-30 06:57 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/154098503293.shtml)
+- 2026-06-30 06:45 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/68658690.shtml)
+- 2026-06-30 06:46 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/542752.shtml)
+- 2026-06-30 07:05 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/65547191802.shtml)

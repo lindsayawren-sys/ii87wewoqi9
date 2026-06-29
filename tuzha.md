@@ -1,58 +1,51 @@
-# DocuSign业绩指引保守 股价跌逾4%
+# （美丽中国行）深山“追猫人”扎根唐家河 十四年守护大熊猫家园
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-电子签名巨头DocuSign股价周四盘后下跌约4%，尽管公司第一季度财报超出市场预期，但其对第二季度的业绩展望未能令华尔街感到振奋。 根据财报数据，DocuSign第一季度营收同比增长9%至8.302亿美元，高于市场预期的8.232亿美元。调整后每股收益为1.09美元，同样超出分析师普遍预期的1.00美元。公司首席执行官Allan Thygesen表示，第一季度看到了对Docu
+发布时间：2026年06月04日 15:53 来源：中国新闻网 大熊猫野外巡护员被大家爱称为“追猫人”。近日，中新社记者跟随“美丽中国行之探访国家公园”集体采访活动的脚步，走进大熊猫国家公园唐家河片区。扎根野外巡护一线已经十四年的白熊坪保护站副站长贾飞德，便是这片深山里的一名“追猫人”。片区山林无路可行，巡护队员常年循着羚牛等野生动物踏出的兽径穿梭陡峭密林，日复一日开展野外监测
 
 ## 正文
 
-电子签名巨头DocuSign股价周四盘后下跌约4%，尽管公司第一季度财报超出市场预期，但其对第二季度的业绩展望未能令华尔街感到振奋。
+发布时间：2026年06月04日 15:53 来源：中国新闻网 大熊猫野外巡护员被大家爱称为“追猫人”。
 
-根据财报数据，DocuSign第一季度营收同比增长9%至8.302亿美元，高于市场预期的8.232亿美元。
+近日，中新社记者跟随“美丽中国行之探访国家公园”集体采访活动的脚步，走进大熊猫国家公园唐家河片区。
 
-调整后每股收益为1.09美元，同样超出分析师普遍预期的1.00美元。
+扎根野外巡护一线已经十四年的白熊坪保护站副站长贾飞德，便是这片深山里的一名“追猫人”。
 
-公司首席执行官Allan Thygesen表示，第一季度看到了对DocuSign人工智能原生IAM平台的持续增长需求，已有约4万名客户投资于公司的产品路线图。
+片区山林无路可行，巡护队员常年循着羚牛等野生动物踏出的兽径穿梭陡峭密林，日复一日开展野外监测，默默守护着野生大熊猫的栖息家园。
 
-然而，引发股价下跌的主要原因在于公司略显保守的业绩指引。
-
-DocuSign预计第二季度营收将在8.65亿至8.69亿美元之间，这一区间的中点与分析师预期的8.66亿美元基本持平。
-
-对于部分期待公司能够超预期的投资者而言，这样的展望难以令人满意。
-
-多家华尔街机构在财报发布后调整了对该股的评级和目标价。
+记者 范思忆 韩仪 刘世炯 四川广元报道 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 06:37 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 06:36 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 06:53 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 07:02 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 06:40 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 06:56 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 07:01 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 06:57 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 06:40 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 06:37 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 06:44 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 07:01 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 06:52 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 06:44 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 07:07 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 06:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 07:07 - [巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 07:07 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 06:50 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 06:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 07:06 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 07:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 07:11 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:51 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/177383978.shtml)
-- 2026-06-30 06:56 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/445691.shtml)
-- 2026-06-30 06:50 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/19252.shtml)
-- 2026-06-30 06:53 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/0592524.shtml)
-- 2026-06-30 06:46 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/820598530874.shtml)
-- 2026-06-30 07:02 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/152033054626.shtml)
-- 2026-06-30 06:51 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/509982355534.shtml)
-- 2026-06-30 06:36 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/4199168.shtml)
-- 2026-06-30 06:54 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/2621572.shtml)
-- 2026-06-30 07:00 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/8138180.shtml)
-- 2026-06-30 06:53 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/70357850.shtml)
-- 2026-06-30 06:49 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/91076027.shtml)
-- 2026-06-30 06:44 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/462699.shtml)
-- 2026-06-30 06:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/68706391.shtml)
-- 2026-06-30 06:43 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/47966196774.shtml)
+- 2026-06-30 07:09 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/227596057999.shtml)
+- 2026-06-30 07:01 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/772424603.shtml)
+- 2026-06-30 07:06 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/37277441.shtml)
+- 2026-06-30 07:10 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/76976953.shtml)
+- 2026-06-30 06:45 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/72118485375.shtml)
+- 2026-06-30 07:09 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/597670297630.shtml)
+- 2026-06-30 06:53 - [急先锋](https://www.blog.minike.top/Article/details/6107436.shtml)
+- 2026-06-30 07:04 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/622311868.shtml)
+- 2026-06-30 06:55 - [内马尔替补](https://www.share.minike.top/Article/details/5623844.shtml)
+- 2026-06-30 06:50 - [85花告别古偶](https://www.blog.minike.top/Article/details/46555.shtml)
+- 2026-06-30 07:09 - [一见倾心](http://www.blog.minike.top/Article/details/1473959363.shtml)
+- 2026-06-30 07:03 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/615898.shtml)
+- 2026-06-30 06:45 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/83015.shtml)
+- 2026-06-30 06:53 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/3097132.shtml)
+- 2026-06-30 07:00 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/832924323.shtml)

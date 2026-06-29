@@ -1,43 +1,54 @@
-# 以空袭黎南部多地 黎真主党与以军交火
+# 高盛上调韩国股市目标点位 维持对A股的“超配”评级
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月06日 13:20 来源：央视新闻 责任编辑：【王祎】
+高盛周三在一份报告中表示，人工智能（AI）芯片制造商股票的涨势可能持续，但回调风险正在上升。高盛亚太区首席股票策略师兼宏观研究联席主管Timothy Moe等分析师写道：“我们更看好北亚地区，其盈利增长最为强劲。”高盛上调韩国股市的目标点位，由9000点上调至12000点。高盛维持对中国内地A股的“超配”评级。高盛称，MSCI明晟亚太地区（除日本）指数今年以来上涨27%，但若扣
 
 ## 正文
 
-发布时间：2026年06月06日 13:20 来源：央视新闻 责任编辑：【王祎】
+高盛周三在一份报告中表示，人工智能（AI）芯片制造商股票的涨势可能持续，但回调风险正在上升。
+
+高盛亚太区首席股票策略师兼宏观研究联席主管Timothy Moe等分析师写道：“我们更看好北亚地区，其盈利增长最为强劲。
+
+”高盛上调韩国股市的目标点位，由9000点上调至12000点。
+
+高盛维持对中国内地A股的“超配”评级。
+
+高盛称，MSCI明晟亚太地区（除日本）指数今年以来上涨27%，但若扣除韩国和中国台湾，该指数则下跌4%。
+
+高盛将MSCI明晟亚太地区（除日本）指数12个月目标点位由990点上调至1，080点。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 06:55 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 06:50 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-30 06:43 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 06:38 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 06:49 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 06:42 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 06:56 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 06:51 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 06:58 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 06:58 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 07:10 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 07:05 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 06:51 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 07:08 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 07:06 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 07:08 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 06:51 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 06:44 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 06:59 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 06:46 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/41502937202.shtml)
-- 2026-06-30 07:02 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/62703745.shtml)
-- 2026-06-30 06:56 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/07042.shtml)
-- 2026-06-30 06:51 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/030201480152.shtml)
-- 2026-06-30 06:53 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/07366.shtml)
-- 2026-06-30 07:00 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/3180899.shtml)
-- 2026-06-30 06:58 - [世界杯](https://www.blog.kurohicncr.top/Article/details/87109612182.shtml)
-- 2026-06-30 06:48 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/9717122383.shtml)
-- 2026-06-30 06:53 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/65890195.shtml)
-- 2026-06-30 06:40 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/349087617.shtml)
-- 2026-06-30 06:37 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/875272040050.shtml)
-- 2026-06-30 06:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/785240.shtml)
-- 2026-06-30 06:45 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/480888211.shtml)
-- 2026-06-30 06:47 - [第一炉香](https://www.share.minike.top/Article/details/2614115.shtml)
-- 2026-06-30 06:54 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/964774261.shtml)
+- 2026-06-30 07:01 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/53930.shtml)
+- 2026-06-30 06:57 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/53561892403.shtml)
+- 2026-06-30 06:52 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/3132929723.shtml)
+- 2026-06-30 07:04 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/183346.shtml)
+- 2026-06-30 07:07 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/980069707011.shtml)
+- 2026-06-30 07:00 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/357092133519.shtml)
+- 2026-06-30 07:11 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/793671779.shtml)
+- 2026-06-30 06:52 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/696850.shtml)
+- 2026-06-30 06:54 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/5839898504.shtml)
+- 2026-06-30 07:05 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/63699546.shtml)
+- 2026-06-30 06:42 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/52099.shtml)
+- 2026-06-30 06:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/6895073.shtml)
+- 2026-06-30 06:57 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/150739838.shtml)
+- 2026-06-30 06:56 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/704637581178.shtml)
+- 2026-06-30 06:48 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/202994721783.shtml)

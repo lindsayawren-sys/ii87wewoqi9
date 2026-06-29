@@ -1,56 +1,61 @@
-# 兰芝明洞全球旗舰店开业 主推AI定制化美妆服务
+# Meta最新AI模型一拖再拖，开发者耐心渐失
 
-> 更新时间：2026-06-30 07:06:03 UTC+8
+> 更新时间：2026-06-30 07:12:02 UTC+8
 
 ## 摘要
 
-历经18个月的改造，兰芝于6月5日正式揭幕其位于首尔明洞的全球首家旗舰店“LANEIGE Seoul”。该门店集成了多项AI皮肤分析与定制化美妆技术，是品牌迄今为止规模最大的旗舰空间。 旗舰店的开业恰逢兰芝品牌加速全球扩张的时期。作为爱茉莉太平洋旗下的护肤品牌，兰芝近年来持续在美妆科技领域进行布局，将皮肤诊断与定制化制造技术相结合。此次开业的明洞旗舰店是这一战略的实体化呈现，旨
+据知情人士透露，Meta Platforms已多次推迟向开发者发布其最新人工智能（AI）模型的计划，截至周二，该公司仍未确定发布日期。 距离该公司AI负责人告诉开发者“很快”就会发布该模型已过去近两个月，此事一再延期，不禁引发外界质疑，Meta斥巨资打造自有前沿AI模型，究竟能否迅速实现商业变现。 该公司一直在开发应用程序编程接口，也就是API，这种软件工具能够让不同的程序相互
 
 ## 正文
 
-历经18个月的改造，兰芝于6月5日正式揭幕其位于首尔明洞的全球首家旗舰店“LANEIGE Seoul”。
+据知情人士透露，Meta Platforms已多次推迟向开发者发布其最新人工智能（AI）模型的计划，截至周二，该公司仍未确定发布日期。
 
-该门店集成了多项AI皮肤分析与定制化美妆技术，是品牌迄今为止规模最大的旗舰空间。
+距离该公司AI负责人告诉开发者“很快”就会发布该模型已过去近两个月，此事一再延期，不禁引发外界质疑，Meta斥巨资打造自有前沿AI模型，究竟能否迅速实现商业变现。
 
-旗舰店的开业恰逢兰芝品牌加速全球扩张的时期。
+该公司一直在开发应用程序编程接口，也就是API，这种软件工具能够让不同的程序相互通信。
 
-作为爱茉莉太平洋旗下的护肤品牌，兰芝近年来持续在美妆科技领域进行布局，将皮肤诊断与定制化制造技术相结合。
+借助Meta的API，为电脑或手机编写的应用程序将能够基于Meta的AI技术运行。
 
-此次开业的明洞旗舰店是这一战略的实体化呈现，旨在提供区别于传统产品销售的品牌体验。
+Meta一位发言人周三表示，该公司正在与合作伙伴测试该API，并计划于本月发布。
 
-门店内部设有三大核心定制服务。
+该发言人说：“我们知道大家需要这款API，我们很高兴能将其交到他们手中。
 
-“Bespoke Lip Sleeping Mask Swirl”服务允许顾客从10种香氛中选择两种，通过专用设备现场定制唇膜产品，最多可组合出45种搭配。
+” 对于保留为专有技术且不提供公开下载的所谓“闭源”AI模型，开发者获取它们的唯一途径就是通过API。
 
-“Bespoke Neo”服务基于品牌气垫产品和150种肤色数据，通过色彩分析和制造机器人在店内完成个性化气垫的制作。
+企业通常会在发布新模型的同时或在发布后的几周内推出相应的API，以最大程度地维持其在开发者圈子中的关注度。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 06:55 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 06:37 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 06:55 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 07:05 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 06:46 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 06:43 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 06:36 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 06:48 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-30 06:45 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 07:10 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 07:10 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 06:42 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 06:47 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 06:52 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 07:10 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 07:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 07:02 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 06:53 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 06:47 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 07:01 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 06:44 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 06:54 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 07:09 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 07:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/730285.shtml)
-- 2026-06-30 06:54 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/415769.shtml)
-- 2026-06-30 06:40 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/86967906.shtml)
-- 2026-06-30 07:03 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/00505490.shtml)
-- 2026-06-30 06:44 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/73139346892.shtml)
-- 2026-06-30 07:02 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/15545215600.shtml)
-- 2026-06-30 06:58 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/43880943.shtml)
-- 2026-06-30 07:04 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/6538340.shtml)
-- 2026-06-30 07:00 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/1425512321.shtml)
-- 2026-06-30 06:47 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/713584578.shtml)
-- 2026-06-30 06:48 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/429745503.shtml)
-- 2026-06-30 06:39 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/755944376.shtml)
-- 2026-06-30 06:47 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/25285183787.shtml)
-- 2026-06-30 06:58 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/952851173999.shtml)
-- 2026-06-30 07:04 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/648439300921.shtml)
+- 2026-06-30 06:47 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/019518.shtml)
+- 2026-06-30 07:11 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/351383997234.shtml)
+- 2026-06-30 06:51 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/897785.shtml)
+- 2026-06-30 07:04 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/2406998.shtml)
+- 2026-06-30 06:59 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/434045398492.shtml)
+- 2026-06-30 07:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/1834488796.shtml)
+- 2026-06-30 06:42 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/16931072.shtml)
+- 2026-06-30 07:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/32093364.shtml)
+- 2026-06-30 06:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/99680793.shtml)
+- 2026-06-30 07:05 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/222435.shtml)
+- 2026-06-30 06:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/6436317.shtml)
+- 2026-06-30 07:06 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/34118920975.shtml)
+- 2026-06-30 06:51 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/9302693932.shtml)
+- 2026-06-30 06:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/94370541870.shtml)
+- 2026-06-30 07:08 - [一见倾心](http://www.blog.minike.top/Article/details/83911623419.shtml)
