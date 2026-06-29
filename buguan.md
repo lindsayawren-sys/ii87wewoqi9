@@ -1,61 +1,61 @@
-# 中国假日经济热力“暖”全球
+# 第48届东盟峰会在菲律宾宿务开幕
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-“五一”假期将至，中国假日经济的“热力”正跨越国境，为全球经济复苏带来新的确定性信号。对外经济贸易大学经济学院教授陈昊对中青报·中青网记者表示，在当下地缘政治冲突、全球市场动荡的背景下，“中国假期经济展现的供需规模增长与持续稳定，对稳定全球供应链和国际市场至关重要”。“中国有望在未来几年内超越美国，成为全球最大的旅游经济体。”加拿大《金融邮报》、美国《旅游周刊》等多家外媒近日在
+中新社菲律宾宿务5月8日电 (记者 张兴龙)第48届东盟峰会8日在菲律宾中部宿务省开幕。 东盟轮值主席国菲律宾总统马科斯当天在开幕致辞中表示，当前本地区再次面临深刻不确定性，此次峰会体现出东盟以团结、智慧和决心应对挑战的能力。 马科斯说，中东局势持续动荡，其影响已波及本地区。东盟始终致力于维护和平，并基于各成员国表达的共同立场，呼吁冲突各方立即停止敌对行动，以和平方式解决争端，
 
 ## 正文
 
-“五一”假期将至，中国假日经济的“热力”正跨越国境，为全球经济复苏带来新的确定性信号。
+中新社菲律宾宿务5月8日电 (记者 张兴龙)第48届东盟峰会8日在菲律宾中部宿务省开幕。
 
-对外经济贸易大学经济学院教授陈昊对中青报·中青网记者表示，在当下地缘政治冲突、全球市场动荡的背景下，“中国假期经济展现的供需规模增长与持续稳定，对稳定全球供应链和国际市场至关重要”。
+东盟轮值主席国菲律宾总统马科斯当天在开幕致辞中表示，当前本地区再次面临深刻不确定性，此次峰会体现出东盟以团结、智慧和决心应对挑战的能力。
 
-“中国有望在未来几年内超越美国，成为全球最大的旅游经济体。
+马科斯说，中东局势持续动荡，其影响已波及本地区。
 
-”加拿大《金融邮报》、美国《旅游周刊》等多家外媒近日在报道中指出，中国旅游业正以强劲势头重塑全球版图。
+东盟始终致力于维护和平，并基于各成员国表达的共同立场，呼吁冲突各方立即停止敌对行动，以和平方式解决争端，保护平民及民用基础设施，恢复霍尔木兹海峡安全、畅通和持续的过境通行。
 
-世界旅游业理事会(WTTC)发布最新数据显示，2025年，全球旅游业实现了有史以来最强劲的表现，为全球经济贡献了创纪录的11.6万亿美元，占全球GDP的9.8%，全球旅游业增幅几乎是全球经济增长率(2.8%)的1.5倍，凸显了旅游业作为经济增长主要引擎的作用。
+马科斯表示，为应对中东冲突带来的影响，作为东盟轮值主席国，菲律宾已调整部分峰会相关安排，包括缩减非必要活动，并将部分会议由线下改为线上举行。
 
-其中，中国旅游业的表现尤为亮眼。
+据介绍，东盟各国领导人将在本届峰会上重点讨论能源安全、粮食安全以及东盟公民安全等议题。
 
-这一年，全球旅游业整体增长率为4.1%，而中国旅游经济同比增速高达9.9%，不仅是全球平均水平的两倍多，更远超美国0.9%的微弱增幅。
+东盟成立于1967年，现成员国包括印度尼西亚、泰国、新加坡、菲律宾、文莱、马来西亚、越南、老挝、柬埔寨、缅甸和东帝汶11国。
 
-在游客消费方面，2025年赴华外国游客支出增长超过10%，而同期赴美游客支出却下降了近5%。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:23 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 20:30 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 20:12 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 20:20 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 20:20 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 20:29 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 20:41 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 20:28 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 20:20 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 20:34 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 20:38 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 20:23 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 20:24 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 20:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 20:25 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 20:21 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 20:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 20:45 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 20:47 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 20:31 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 20:20 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 20:30 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 20:42 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 20:31 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 20:30 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 20:45 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 20:21 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 20:44 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 20:41 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 20:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:21 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/5668346881.shtml)
-- 2026-06-29 20:34 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/80212444.shtml)
-- 2026-06-29 20:37 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/0165045677.shtml)
-- 2026-06-29 20:38 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/566594.shtml)
-- 2026-06-29 20:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/532754025.shtml)
-- 2026-06-29 20:12 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/95954483125.shtml)
-- 2026-06-29 20:22 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/756612708.shtml)
-- 2026-06-29 20:41 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/46353.shtml)
-- 2026-06-29 20:29 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/394540.shtml)
-- 2026-06-29 20:27 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/92426.shtml)
-- 2026-06-29 20:18 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/71614263590.shtml)
-- 2026-06-29 20:14 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/8888354194.shtml)
-- 2026-06-29 20:14 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/83846798.shtml)
-- 2026-06-29 20:22 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/703069416453.shtml)
-- 2026-06-29 20:32 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/7419559257.shtml)
+- 2026-06-29 20:25 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/3954077894.shtml)
+- 2026-06-29 20:45 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/3610038927.shtml)
+- 2026-06-29 20:45 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/05709605103.shtml)
+- 2026-06-29 20:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/40025783.shtml)
+- 2026-06-29 20:34 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/967315.shtml)
+- 2026-06-29 20:31 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/877066407.shtml)
+- 2026-06-29 20:36 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/19187856.shtml)
+- 2026-06-29 20:23 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/10808483.shtml)
+- 2026-06-29 20:46 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/79968475.shtml)
+- 2026-06-29 20:35 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/18158950605.shtml)
+- 2026-06-29 20:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/9326986394.shtml)
+- 2026-06-29 20:34 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/09259090.shtml)
+- 2026-06-29 20:38 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/505152406.shtml)
+- 2026-06-29 20:38 - [一诺变着花样秀新驾照](http://www.blog.kurohicncr.top/Article/details/9260106.shtml)
+- 2026-06-29 20:33 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/2440501.shtml)

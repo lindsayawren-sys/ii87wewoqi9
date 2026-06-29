@@ -1,60 +1,55 @@
-# 评论：中国为多元世界贡献交融共生的法治方案
+# 亿都国际控股午后涨超12% 香港宽频推出AI+国产算力平台
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新社北京5月2日电 题：中国为多元世界贡献交融共生的法治方案 中新社记者 容海升 民族团结进步促进法的制定与施行，是中国推进民族事务治理体系和治理能力现代化的重要举措。该法立足国情、回应时代需要，以法治巩固平等、团结、互助、和谐的民族关系，其意义应在事实与法理上得到更为充分的认知。 新法施行，践行固本之治。民族团结进步促进法围绕中国民众最关切的现实问题，通过制度安排保障合法权
+亿都国际控股（00259）午后一度涨近17%，截至发稿，股价上涨12.36%，现报3.91港元，成交额1143.70万港元。 香港宽频宣布推出“Al+国产算力平台”，并与亿都国际旗下算丰信息及天仪智科签署协议，于数码港数据中心布局国产算力基建。 据悉，香港宽频将投入1亿元，用于整合本地网络基础设施及算力资源，以回应企业对智能算力的持续增长需求。平台将引进沐曦及壁仞科技的算力资源
 
 ## 正文
 
-中新社北京5月2日电 题：中国为多元世界贡献交融共生的法治方案 中新社记者 容海升 民族团结进步促进法的制定与施行，是中国推进民族事务治理体系和治理能力现代化的重要举措。
+亿都国际控股（00259）午后一度涨近17%，截至发稿，股价上涨12.36%，现报3.91港元，成交额1143.70万港元。
 
-该法立足国情、回应时代需要，以法治巩固平等、团结、互助、和谐的民族关系，其意义应在事实与法理上得到更为充分的认知。
+香港宽频宣布推出“Al+国产算力平台”，并与亿都国际旗下算丰信息及天仪智科签署协议，于数码港数据中心布局国产算力基建。
 
-新法施行，践行固本之治。
+据悉，香港宽频将投入1亿元，用于整合本地网络基础设施及算力资源，以回应企业对智能算力的持续增长需求。
 
-民族团结进步促进法围绕中国民众最关切的现实问题，通过制度安排保障合法权益，推动各民族在政治、经济、社会、文化等领域共同参与、共享发展。
+平台将引进沐曦及壁仞科技的算力资源。
 
-它为中华民族共同体建设筑牢制度根基，助益各民族在现代化征程中并肩前行。
+集团总裁及营运总裁叶成辉表示，观察到目前大环境的Token使用量都有上升趋势，未来绝对有可能增加投资。
 
-新法施行，深化融通之策。
-
-语言是心灵相通的桥梁。
-
-推广普及国家通用语言文字，是世界各国促进社会整合、实现平等发展的普遍实践。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:25 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 20:19 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 20:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 20:26 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 20:38 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 20:33 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 20:32 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 20:12 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 20:12 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 20:35 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 20:21 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 20:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 20:32 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 20:26 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 20:42 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 20:24 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 20:34 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 20:33 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 20:39 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 20:19 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 20:24 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 20:19 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 20:29 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 20:30 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 20:34 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 20:35 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 20:46 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/57512.shtml)
-- 2026-06-29 20:16 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.kurohicncr.top/Article/details/39128027.shtml)
-- 2026-06-29 20:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/18908899.shtml)
-- 2026-06-29 20:23 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.minike.top/Article/details/54440.shtml)
-- 2026-06-29 20:22 - [东方风云榜](https://www.blog.minike.top/Article/details/29558595.shtml)
-- 2026-06-29 20:19 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/308615.shtml)
-- 2026-06-29 20:28 - [王安宇聪明到导演组炸了](https://www.share.kurohicncr.top/Article/details/46201997.shtml)
-- 2026-06-29 20:25 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/3756795.shtml)
-- 2026-06-29 20:27 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/094667288.shtml)
-- 2026-06-29 20:32 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/72666327231.shtml)
-- 2026-06-29 20:35 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/22901.shtml)
-- 2026-06-29 20:30 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/24837482811.shtml)
-- 2026-06-29 20:32 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/6689175.shtml)
-- 2026-06-29 20:24 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/95038376239.shtml)
-- 2026-06-29 20:35 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/247098467060.shtml)
+- 2026-06-29 20:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/11807.shtml)
+- 2026-06-29 20:31 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/729606581669.shtml)
+- 2026-06-29 20:37 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.kurohicncr.top/Article/details/7796226727.shtml)
+- 2026-06-29 20:29 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/539319.shtml)
+- 2026-06-29 20:22 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/79250.shtml)
+- 2026-06-29 20:21 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/563309360966.shtml)
+- 2026-06-29 20:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/652591231546.shtml)
+- 2026-06-29 20:27 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/27291916.shtml)
+- 2026-06-29 20:42 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/59781010752.shtml)
+- 2026-06-29 20:43 - [半导体和股市为何没让韩国人起飞](http://www.share.kurohicncr.top/Article/details/47638705.shtml)
+- 2026-06-29 20:24 - [千与千寻](http://www.blog.minike.top/Article/details/91064.shtml)
+- 2026-06-29 20:26 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/6357403561.shtml)
+- 2026-06-29 20:42 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/171322.shtml)
+- 2026-06-29 20:39 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.minike.top/Article/details/5155791657.shtml)
+- 2026-06-29 20:25 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/9203283.shtml)

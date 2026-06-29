@@ -1,46 +1,58 @@
-# 人民之心·总书记谈政绩观③｜一词一观：从实际出发
+# 人民币汇率，创3年新高！
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-统筹：李琳 杨格 策划：叶莉子 设计：杨晨悦 校对：陈学德 素材来源：人民日报客户端、新华社、中国新闻网
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月7日，人民币对美元汇率大涨。截至中国证券报记者发稿时，在岸、离岸人民币对美元汇率均涨超100基点，其中，离岸人民币对美元汇率升破6.80元关口，创2023年3月以来新高。 创阶段性新高 5月7日，离岸人民币对美元汇率创阶段性新高。Wind数据显示，截至16：45，离岸人民币对美元汇率报6.7993元，较
 
 ## 正文
 
-统筹：李琳 杨格 策划：叶莉子 设计：杨晨悦 校对：陈学德 素材来源：人民日报客户端、新华社、中国新闻网
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+
+5月7日，人民币对美元汇率大涨。
+
+截至中国证券报记者发稿时，在岸、离岸人民币对美元汇率均涨超100基点，其中，离岸人民币对美元汇率升破6.80元关口，创2023年3月以来新高。
+
+创阶段性新高 5月7日，离岸人民币对美元汇率创阶段性新高。
+
+Wind数据显示，截至16：45，离岸人民币对美元汇率报6.7993元，较前收盘价上涨142个基点，盘中最高报6.7977元，升破6.80元关口，创2023年3月以来新高。
+
+“五一”假期后的两个交易日，在岸人民币对美元汇率连续上涨。
+
+Wind数据显示，5月7日，在岸人民币对美元16：30收盘价报6.8015元，较上一交易日上涨134个基点，盘中最高报6.8006元，距升破6.80元关口仅“一线之隔”。
+
+5月6日，在岸人民币对美元汇率单日上涨0.27%。
 
 ## 相关推荐
 
-- 2026-06-29 20:26 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 20:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 20:21 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 20:37 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 20:39 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 20:20 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 20:32 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 20:41 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 20:31 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 20:17 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 20:26 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 20:16 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 20:16 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 20:41 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 20:38 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 20:22 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 20:40 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 20:20 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 20:34 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 20:32 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 20:28 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 20:28 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 20:18 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 20:29 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 20:45 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 20:26 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:19 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/8659465.shtml)
-- 2026-06-29 20:30 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/487226094934.shtml)
-- 2026-06-29 20:38 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/01641466504.shtml)
-- 2026-06-29 20:18 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/0854058412.shtml)
-- 2026-06-29 20:32 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/458845767185.shtml)
-- 2026-06-29 20:21 - [男子40度高温下骑行严重晒伤](https://www.blog.kurohicncr.top/Article/details/68491246773.shtml)
-- 2026-06-29 20:40 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/100184.shtml)
-- 2026-06-29 20:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/033397553.shtml)
-- 2026-06-29 20:41 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/28454812852.shtml)
-- 2026-06-29 20:29 - [店员光脚踩入盆中清洗土豆](https://www.share.kurohicncr.top/Article/details/608991741.shtml)
-- 2026-06-29 20:38 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/535282561744.shtml)
-- 2026-06-29 20:13 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/454332.shtml)
-- 2026-06-29 20:17 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/3632122370.shtml)
-- 2026-06-29 20:18 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/14388.shtml)
-- 2026-06-29 20:22 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/464196665.shtml)
+- 2026-06-29 20:41 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/2853071.shtml)
+- 2026-06-29 20:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/9555920.shtml)
+- 2026-06-29 20:29 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/66221898.shtml)
+- 2026-06-29 20:42 - [送你一朵小红花](http://www.share.minike.top/Article/details/0998550.shtml)
+- 2026-06-29 20:44 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/6800929.shtml)
+- 2026-06-29 20:37 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/0379724106.shtml)
+- 2026-06-29 20:34 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/85774.shtml)
+- 2026-06-29 20:22 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/90001206810.shtml)
+- 2026-06-29 20:39 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/96153.shtml)
+- 2026-06-29 20:45 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/27093729691.shtml)
+- 2026-06-29 20:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/1900488.shtml)
+- 2026-06-29 20:21 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/729434043.shtml)
+- 2026-06-29 20:36 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/27832267.shtml)
+- 2026-06-29 20:38 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/45122215.shtml)
+- 2026-06-29 20:44 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/877132466203.shtml)

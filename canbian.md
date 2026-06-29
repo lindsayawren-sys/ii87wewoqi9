@@ -1,59 +1,60 @@
-# “自杀式无人机直接命中以军集结点”
+# 澳门“五一”假期交出亮眼旅游“成绩单”
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-参考消息 以军空袭黎南部致死9人 真主党用无人机和火炮回击 据黎巴嫩国家通讯社报道，2日下午，以色列对黎南部多地发动空袭，造成至少9人死亡、两人受伤。黎巴嫩真主党用无人机和火炮回击以军。 报道称，以色列战机空袭奈拜提耶地区，造成8人死亡，其中包括两名叙利亚人；在提尔地区不同地点，以色列无人机先后袭击两辆摩托车，造成1人死亡、1人受伤，另有1人伤势严重。 黎巴嫩真主党当天下午发表
+新华社澳门5月6日电（记者宋晨、齐菲）记者6日从澳门特区政府治安警察局获悉，“五一”假期，澳门各口岸共录得入境旅客约87.3万人次，其中5月2日入境旅客24.8万人次，创下单日入境旅客人次最高纪录。 统计显示，5月2日还创下另外两项单日通关最高纪录：总通关客流88.9万人次、横琴通关客流近14.8万人次。 伴随庞大客流涌入，澳门酒店业也迎来繁忙时段。据业界初步统计，今年“五一”
 
 ## 正文
 
-参考消息 以军空袭黎南部致死9人 真主党用无人机和火炮回击 据黎巴嫩国家通讯社报道，2日下午，以色列对黎南部多地发动空袭，造成至少9人死亡、两人受伤。
+新华社澳门5月6日电（记者宋晨、齐菲）记者6日从澳门特区政府治安警察局获悉，“五一”假期，澳门各口岸共录得入境旅客约87.3万人次，其中5月2日入境旅客24.8万人次，创下单日入境旅客人次最高纪录。
 
-黎巴嫩真主党用无人机和火炮回击以军。
+统计显示，5月2日还创下另外两项单日通关最高纪录：总通关客流88.9万人次、横琴通关客流近14.8万人次。
 
-报道称，以色列战机空袭奈拜提耶地区，造成8人死亡，其中包括两名叙利亚人；在提尔地区不同地点，以色列无人机先后袭击两辆摩托车，造成1人死亡、1人受伤，另有1人伤势严重。
+伴随庞大客流涌入，澳门酒店业也迎来繁忙时段。
 
-黎巴嫩真主党当天下午发表声明说，出动两架自杀式无人机，分别袭击拜亚代镇的以军士兵集结点和反坦克导弹阵地，并称“直接命中目标”。
+据业界初步统计，今年“五一”假期澳门主要酒店平均入住率约九成，5月1日和5月2日多间酒店爆满，表现亮眼。
 
-真主党还表示，使用火炮打击了坎塔拉镇一处以军车辆和士兵集结点。
+把旅客“引过来”只是第一步，真正让他们“留下来”并感到满意的，是澳门日益丰富的旅游产品矩阵。
 
-当地时间4月17日零时，黎以为期10天的临时停火生效。
+澳门旅游商会理事长张健中表示，“五一”假期澳门整体旅游规模持续扩大，内地客源稳居主力，家庭亲子、深度休闲、美食体验成为出行主流，旅客消费更趋品质化、社区化，氹仔旧城区、路环黑沙海滩及澳门半岛老街客流显著增长，全域旅游均衡发展。
 
-美国总统特朗普当月23日宣布停火延长三周。
+此外，澳琴联游、大湾区“一程多站”旅客数量增长明显。
 
-但以色列继续以黎真主党违反停火协议为由发动袭击，并在其占领的黎南部地区拆除和炸毁所谓真主党“军事基础设施”。
+为进一步激活社区经济，假期前夕，澳门特区政府推出“‘休’游巴士·社区探趣”计划。
 
 ## 相关推荐
 
-- 2026-06-29 20:27 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 20:21 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 20:38 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 20:34 - [叠纸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 20:31 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 20:30 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 20:15 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 20:22 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 20:35 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 20:29 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 20:26 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 20:38 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 20:20 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 20:42 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 20:21 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 20:26 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 20:24 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 20:32 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 20:37 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 20:24 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 20:45 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 20:46 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 20:34 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 20:28 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 20:35 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 20:35 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 20:20 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:16 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/71858.shtml)
-- 2026-06-29 20:39 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/388443.shtml)
-- 2026-06-29 20:17 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/484051.shtml)
-- 2026-06-29 20:16 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/69614.shtml)
-- 2026-06-29 20:32 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/924680.shtml)
-- 2026-06-29 20:20 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/692758429858.shtml)
-- 2026-06-29 20:13 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/18468.shtml)
-- 2026-06-29 20:13 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/38589178.shtml)
-- 2026-06-29 20:37 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/0785519.shtml)
-- 2026-06-29 20:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/2191741673.shtml)
-- 2026-06-29 20:38 - [周生如故](https://www.blog.kurohicncr.top/Article/details/437745712168.shtml)
-- 2026-06-29 20:22 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/153271636719.shtml)
-- 2026-06-29 20:31 - [金刚川](http://www.share.kurohicncr.top/Article/details/6995367119.shtml)
-- 2026-06-29 20:39 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/256029.shtml)
-- 2026-06-29 20:18 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/56600713050.shtml)
+- 2026-06-29 20:19 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/09984.shtml)
+- 2026-06-29 20:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/329719594309.shtml)
+- 2026-06-29 20:31 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/78816.shtml)
+- 2026-06-29 20:33 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/956968854.shtml)
+- 2026-06-29 20:45 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/965022.shtml)
+- 2026-06-29 20:40 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/72037192.shtml)
+- 2026-06-29 20:20 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/39852.shtml)
+- 2026-06-29 20:46 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/5837029586.shtml)
+- 2026-06-29 20:42 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/27243.shtml)
+- 2026-06-29 20:31 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/41305.shtml)
+- 2026-06-29 20:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/73280076116.shtml)
+- 2026-06-29 20:37 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/44949843.shtml)
+- 2026-06-29 20:30 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/388638356524.shtml)
+- 2026-06-29 20:35 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/5724095328.shtml)
+- 2026-06-29 20:47 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/5745461055.shtml)

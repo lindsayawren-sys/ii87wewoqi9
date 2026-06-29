@@ -1,58 +1,58 @@
-# 39岁上海科技大学教授王晨辉因营救至亲溺水遇险，不幸去世
+# 男子在峨眉山推搡藏酋猴 被列入不文明游客“黑名单”
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-上海科技大学生命科学与技术学院发布讣告称，该校生命科学与技术学院王晨辉教授，因奋不顾身营救至亲，不幸溺水遇险，经全力抢救无效，于2026年5月1日19时46分永远离开了我们，终年39岁。 讣告介绍，王晨辉教授潜心科学、求实创新，始终坚守科研与教学一线，悉心培育青年学子，以扎实的学识、谦逊的品格和无私的育人情怀，深受全院师生敬重与爱戴。王晨辉教授为人忠厚谦和，胸怀大爱，他义无反顾
+中新网5月7日电 据峨眉山旅游风景区微博消息，峨眉山风景名胜区管理委员会5月7日发布情况通报称，近日，一则“一男子在峨眉山悬崖边推搡藏酋猴”视频在网络上广泛流传，引发热议。 对此，景区第一时间开展了深入调查，据查，视频之事发生于2026年5月4日下午，地点在景区雷洞坪区域，并非网传悬崖危险路段，一男性游客游经此地时，推搡路边栏杆上进食猴子，引起了社会广泛关注，造成不良的社会影响
 
 ## 正文
 
-上海科技大学生命科学与技术学院发布讣告称，该校生命科学与技术学院王晨辉教授，因奋不顾身营救至亲，不幸溺水遇险，经全力抢救无效，于2026年5月1日19时46分永远离开了我们，终年39岁。
+中新网5月7日电 据峨眉山旅游风景区微博消息，峨眉山风景名胜区管理委员会5月7日发布情况通报称，近日，一则“一男子在峨眉山悬崖边推搡藏酋猴”视频在网络上广泛流传，引发热议。
 
-讣告介绍，王晨辉教授潜心科学、求实创新，始终坚守科研与教学一线，悉心培育青年学子，以扎实的学识、谦逊的品格和无私的育人情怀，深受全院师生敬重与爱戴。
+对此，景区第一时间开展了深入调查，据查，视频之事发生于2026年5月4日下午，地点在景区雷洞坪区域，并非网传悬崖危险路段，一男性游客游经此地时，推搡路边栏杆上进食猴子，引起了社会广泛关注，造成不良的社会影响。
 
-王晨辉教授为人忠厚谦和，胸怀大爱，他义无反顾以生命守护至亲，用无私与勇敢诠释了一位父亲的深情与责任，令人动容，更让我们深感痛惜。
+现景区已查找到该男子，并核实了其身份，在调查处理过程中，该男子对自己的行为也进行了认错和道歉。
 
-王晨辉曾自述，“我出生于一个普通的南方农村家庭，与城市小朋友课余上各种辅导班、兴趣班不同，我的课余时间在农忙时要参与干农活，农闲时课余是一个放牛娃。
+该男子的行为违反了野生动物保护相关规定，为此，根据峨眉山风景名胜区旅游文明行为相关管理规定，景区决定将其列入“不文明游客黑名单”，3年内禁止进入峨眉山景区。
 
-因此我小时候有大量的时间与大自然接触去观察生活中的各种生命现象，自然而然地对生命产生了好奇心，所以我2004年上大学时毫不犹豫地选择了生物专业。
+峨眉山藏酋猴属国家二级保护野生动物，保护野生动物是公民法定义务，也是人与自然和谐共处的生态理念的体现。
 
-还记得当年选择学校时特地上网搜索各个学校介绍，恰逢当年北师大毕业的王晓东当选为美国科学院院士，受此消息鼓舞的我选择了去北师大学习。
+在此，峨眉山风景名胜区管理委员会呼吁广大游客遵守景区管理规定，自觉保护野生动物，与野生动物保持安全距离，不投喂、不挑逗、不伤害；理性甄别网络信息，自觉抵制恶意流量炒作，共同维护景区旅游秩序和生态文明。
 
-之后一直关注着王晓东院士担任所长的北京生命科学研究所，本科毕业后就选择了保研到当时才成立不到5年、学生还住在工棚改造的临时宿舍的北京生命科学研究所继续攻读博士学位，博士期间主要围绕果蝇肠道干细胞的维持和分化的调控机制。
-
-之后赴美国马里兰州巴尔的摩市，在美国科学院院士、HHMI研究员、卡耐基研究所胚胎系的Allan Spradling实验室工作学习，利用模式生物果蝇探究肾脏功能及稳态维持的机制。
+​
 
 ## 相关推荐
 
-- 2026-06-29 20:27 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 20:15 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 20:40 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 20:21 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 20:35 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 20:34 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 20:18 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 20:14 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 20:31 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 20:29 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 20:23 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 20:40 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 20:22 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 20:31 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 20:45 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 20:23 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 20:32 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 20:37 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 20:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 20:27 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 20:47 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 20:25 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 20:42 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 20:44 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 20:35 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 20:44 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:20 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/15678986734.shtml)
-- 2026-06-29 20:25 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/43384918.shtml)
-- 2026-06-29 20:20 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/407239702.shtml)
-- 2026-06-29 20:20 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.kurohicncr.top/Article/details/465278.shtml)
-- 2026-06-29 20:15 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/230781523314.shtml)
-- 2026-06-29 20:13 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/35209816.shtml)
-- 2026-06-29 20:37 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/3113288.shtml)
-- 2026-06-29 20:12 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/177783173.shtml)
-- 2026-06-29 20:34 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/14916.shtml)
-- 2026-06-29 20:24 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/287343894719.shtml)
-- 2026-06-29 20:26 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/917405986074.shtml)
-- 2026-06-29 20:33 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/27337910.shtml)
-- 2026-06-29 20:23 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/387183.shtml)
-- 2026-06-29 20:14 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/72983375605.shtml)
-- 2026-06-29 20:19 - [恋与深空致歉](https://www.blog.minike.top/Article/details/87766972.shtml)
+- 2026-06-29 20:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/305485.shtml)
+- 2026-06-29 20:41 - [TOP Prada](http://www.share.minike.top/Article/details/58995357078.shtml)
+- 2026-06-29 20:20 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/92721.shtml)
+- 2026-06-29 20:31 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/894968386.shtml)
+- 2026-06-29 20:23 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/169472627562.shtml)
+- 2026-06-29 20:30 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/1091216718.shtml)
+- 2026-06-29 20:23 - [第一炉香](https://www.blog.minike.top/Article/details/57945479.shtml)
+- 2026-06-29 20:35 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.kurohicncr.top/Article/details/450840292.shtml)
+- 2026-06-29 20:43 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/1295073923.shtml)
+- 2026-06-29 20:30 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/40907682224.shtml)
+- 2026-06-29 20:42 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/3729598920.shtml)
+- 2026-06-29 20:18 - [张杰我九岁就跟你了](https://www.blog.minike.top/Article/details/100708433.shtml)
+- 2026-06-29 20:31 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/25984871.shtml)
+- 2026-06-29 20:35 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/443654626808.shtml)
+- 2026-06-29 20:25 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/0385363406.shtml)

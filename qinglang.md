@@ -1,57 +1,59 @@
-# 吉林长春：沉浸式NPC互动赋能文旅升级
+# 酒价内参5月9日价格发布：古井贡古20下跌5元/瓶
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新网长春5月1日电 (高龙安 李彦国)脚踩高跷、身着彩衣，一队“宋代商贾”沿街缓步走来。扮作货郎、伶人、乐师、卖花郎的景区NPC(非玩家角色)伴着悠扬乐曲，边走边舞，不时与过往游客亲切互动。 “五一”假期，吉林长春北京大街西历史文化街区上演《清明上河图》国潮宋韵戏剧巡游。百年历史建筑群为天然舞台，生动复刻北宋市井繁华景象，一幅流动的古风市井画卷徐徐铺展开来。 来自上海的“00
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月9日整体明显走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9921元，较昨日下跌23元，创下近半个月以来最低。市场在短暂平稳后再度下探，终端交投情绪转冷，高端龙头价格企稳，次高端和腰部单品普遍走弱且跌幅较重。 今日白酒市场11
 
 ## 正文
 
-中新网长春5月1日电 (高龙安 李彦国)脚踩高跷、身着彩衣，一队“宋代商贾”沿街缓步走来。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月9日整体明显走弱。
 
-扮作货郎、伶人、乐师、卖花郎的景区NPC(非玩家角色)伴着悠扬乐曲，边走边舞，不时与过往游客亲切互动。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9921元，较昨日下跌23元，创下近半个月以来最低。
 
-“五一”假期，吉林长春北京大街西历史文化街区上演《清明上河图》国潮宋韵戏剧巡游。
+市场在短暂平稳后再度下探，终端交投情绪转冷，高端龙头价格企稳，次高端和腰部单品普遍走弱且跌幅较重。
 
-百年历史建筑群为天然舞台，生动复刻北宋市井繁华景象，一幅流动的古风市井画卷徐徐铺展开来。
+今日白酒市场11大单品三涨七跌一平，输家占据绝对优势。
 
-来自上海的“00后”NPC演员韩雨蒙介绍，相较于传统定点演出，沉浸式NPC巡游没有固定舞台与观演边界。
+上涨方面，精品茅台涨幅居前，上涨4元/瓶，近期走势平稳；飞天茅台与五粮液普五八代均上涨1元/瓶，后者平近一月最高价格。
 
-演员依托妆造服饰、背景音乐与肢体表达，还原宋代街市风貌，引导游客沉浸式入戏，实现零距离互动。
+下跌方面，青花郎与习酒君品跌幅居前，均下跌6元/瓶，前者再度失守700元关口，近期该酒品的价格波动较为剧烈，在700元大关附近反复震荡，后者价格今日快速下探，回落至近一个月次低位；国窖1573、洋河梦之蓝M6+及古井贡古20均下跌5元/瓶，其中国窖1573再度跌破900元大关，梦之蓝M6+失守600元关口；青花汾20与水晶剑南春均下跌1元/瓶。
 
-长春文旅集团春京西项目运营负责人付巍巍介绍，本次巡游线路结合街区客流动线设计，表演与互动点位均选址于老建筑围合的开阔空间。
+五粮液1618的价格环比保持不变。
 
-沉浸式演绎与街区历史深度交融，由此，建筑不再只是表演的“背景板”，而是叙事的一部分；NPC也不再是单纯表演者，成为串联游客与历史街区的情感纽带和故事媒介。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 20:26 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 20:27 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 20:32 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 20:38 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 20:29 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 20:27 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 20:32 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 20:24 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 20:33 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 20:17 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 20:16 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 20:39 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 20:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 20:44 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 20:29 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 20:46 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 20:25 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 20:42 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 20:43 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 20:23 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 20:19 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 20:47 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 20:19 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 20:30 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/12963067.shtml)
-- 2026-06-29 20:20 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/405365.shtml)
-- 2026-06-29 20:14 - [小众羞耻点是吃麻辣烫](http://www.blog.kurohicncr.top/Article/details/09910777940.shtml)
-- 2026-06-29 20:12 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/35103.shtml)
-- 2026-06-29 20:33 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/6468435788.shtml)
-- 2026-06-29 20:37 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/855115085.shtml)
-- 2026-06-29 20:18 - [天柱山回应网红打卡树枝被砍](http://www.blog.kurohicncr.top/Article/details/765235942590.shtml)
-- 2026-06-29 20:34 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/320723.shtml)
-- 2026-06-29 20:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/013580534.shtml)
-- 2026-06-29 20:20 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/95766125331.shtml)
-- 2026-06-29 20:36 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/109188818554.shtml)
-- 2026-06-29 20:29 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/10554057.shtml)
-- 2026-06-29 20:41 - [急先锋](http://www.blog.minike.top/Article/details/508408.shtml)
-- 2026-06-29 20:36 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/342474524.shtml)
-- 2026-06-29 20:28 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/10912893251.shtml)
+- 2026-06-29 20:31 - [RAY评乘风2026总决赛](https://www.share.kurohicncr.top/Article/details/342728627.shtml)
+- 2026-06-29 20:38 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/6176316.shtml)
+- 2026-06-29 20:42 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/0675698558.shtml)
+- 2026-06-29 20:20 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/442805335.shtml)
+- 2026-06-29 20:35 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/683268.shtml)
+- 2026-06-29 20:45 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/11549703472.shtml)
+- 2026-06-29 20:31 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/434004175312.shtml)
+- 2026-06-29 20:32 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/357258071778.shtml)
+- 2026-06-29 20:37 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/527557120.shtml)
+- 2026-06-29 20:33 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/32846.shtml)
+- 2026-06-29 20:18 - [每天通勤往返3h的感觉](https://www.share.minike.top/Article/details/125842417409.shtml)
+- 2026-06-29 20:19 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/6153264.shtml)
+- 2026-06-29 20:18 - [王鸿薇要求删陆委会百余万特别费](http://www.share.minike.top/Article/details/3654776060.shtml)
+- 2026-06-29 20:47 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/06443087.shtml)
+- 2026-06-29 20:40 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/123333.shtml)

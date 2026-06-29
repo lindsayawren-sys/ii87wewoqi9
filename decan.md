@@ -1,47 +1,57 @@
-# 习言道｜五年规划之所以叫国民经济和社会发展规划，道理正在于此
+# 建设两岸融合发展示范区部省际工作会议在北京举行
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-5月1日出版的《求是》杂志发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《在省部级主要领导干部学习贯彻党的二十届四中全会精神专题研讨班上的讲话》。习近平指出——
+中新社北京5月8日电 中共中央台办、国家发展改革委、福建省会同48个中央和国家机关有关部门，8日在北京召开建设两岸融合发展示范区部省际工作会议。 会议总结了《中共中央 国务院关于支持福建探索海峡两岸融合发展新路建设两岸融合发展示范区的意见》(以下简称意见)贯彻落实情况，研究下步重点工作，支持福建在探索海峡两岸融合发展新路上迈出更大步伐，高质量建设两岸融合发展示范区。 中共中央台
 
 ## 正文
 
-5月1日出版的《求是》杂志发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《在省部级主要领导干部学习贯彻党的二十届四中全会精神专题研讨班上的讲话》。
+中新社北京5月8日电 中共中央台办、国家发展改革委、福建省会同48个中央和国家机关有关部门，8日在北京召开建设两岸融合发展示范区部省际工作会议。
 
-习近平指出——
+会议总结了《中共中央 国务院关于支持福建探索海峡两岸融合发展新路建设两岸融合发展示范区的意见》(以下简称意见)贯彻落实情况，研究下步重点工作，支持福建在探索海峡两岸融合发展新路上迈出更大步伐，高质量建设两岸融合发展示范区。
+
+中共中央台办、国务院台办主任宋涛表示，习近平总书记关于对台工作的重要论述和党中央决策部署，为支持福建探索海峡两岸融合发展新路、建设两岸融合发展示范区指明了前进方向，提供了根本遵循和行动指南。
+
+我们要全面贯彻落实，强化责任担当，加强统筹协调，以更加坚定的决心、更加务实的举措、更加有力的行动，不断开创两岸融合发展示范区建设新局面，为推动两岸关系和平发展、推进祖国统一大业作出新的更大贡献。
+
+国家发展改革委副主任周海兵表示，要深入学习领会习近平总书记关于两岸融合发展的重要指示精神，自觉增强抓好两岸融合发展示范区建设的使命感和紧迫感。
+
+要进一步推动意见各项任务持续落实落细，因地制宜支持重点区域平台先行先试，推动重点领域融合发展取得务实进展，推进两岸融合发展示范区建设取得更大成效。
+
+福建省委常委、秘书长吴偕林，福建省委常委、常务副省长王永礼分别介绍了两岸融合发展示范区建设有关工作推进情况及下步工作考虑。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:31 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 20:13 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 20:19 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 20:27 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 20:20 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 20:40 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 20:26 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 20:16 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 20:37 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 20:40 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 20:22 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 20:20 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 20:15 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 20:28 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 20:28 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 20:23 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 20:34 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 20:39 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 20:30 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 20:45 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 20:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 20:23 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 20:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 20:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:23 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/173491981815.shtml)
-- 2026-06-29 20:21 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/8019252.shtml)
-- 2026-06-29 20:16 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/81263186285.shtml)
-- 2026-06-29 20:40 - [恋与深空客服的回应](http://www.blog.minike.top/Article/details/74248.shtml)
-- 2026-06-29 20:36 - [新官上任三把火](http://www.blog.minike.top/Article/details/7059136849.shtml)
-- 2026-06-29 20:31 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/986385096292.shtml)
-- 2026-06-29 20:37 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/0574140550.shtml)
-- 2026-06-29 20:25 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/7381241.shtml)
-- 2026-06-29 20:30 - [扬名立万](http://www.share.kurohicncr.top/Article/details/6914035355.shtml)
-- 2026-06-29 20:30 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/084922445078.shtml)
-- 2026-06-29 20:26 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/70343135551.shtml)
-- 2026-06-29 20:38 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.minike.top/Article/details/396976.shtml)
-- 2026-06-29 20:33 - [天道](http://www.share.kurohicncr.top/Article/details/793756887.shtml)
-- 2026-06-29 20:14 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/69679549.shtml)
-- 2026-06-29 20:21 - [教育部高校学生资助热线7月1日开通](http://www.blog.kurohicncr.top/Article/details/3468682.shtml)
+- 2026-06-29 20:18 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/439656238.shtml)
+- 2026-06-29 20:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/491417666.shtml)
+- 2026-06-29 20:23 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/00381.shtml)
+- 2026-06-29 20:40 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/02974298010.shtml)
+- 2026-06-29 20:25 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/2647657825.shtml)
+- 2026-06-29 20:33 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/14515.shtml)
+- 2026-06-29 20:30 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/83938589.shtml)
+- 2026-06-29 20:47 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/662462.shtml)
+- 2026-06-29 20:37 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/6101743535.shtml)
+- 2026-06-29 20:40 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/63272.shtml)
+- 2026-06-29 20:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/9793591219.shtml)
+- 2026-06-29 20:46 - [毒液2](http://www.share.minike.top/Article/details/780782105.shtml)
+- 2026-06-29 20:40 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/657709041580.shtml)
+- 2026-06-29 20:39 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/12659754.shtml)
+- 2026-06-29 20:28 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/010674307756.shtml)

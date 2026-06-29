@@ -1,59 +1,56 @@
-# 特朗普变卦 转而提名妮科尔·萨菲尔担任卫生局局长
+# 中国银行董事长葛海蛟出席2026中韩工商领导人经济会议系列活动并在上海开展工作调研
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普撤回对企业家凯西·米恩斯出任公共卫生局局长的提名，并提名放射科医生妮科尔·萨菲尔接替。 特朗普在Truth Social上宣布了这一消息。萨菲尔现任新泽西州Memorial Sloan Kettering Monmouth的乳腺影像主任，同时也是福克斯新闻撰稿人。公共卫生局局长历来在公共卫生传播中发挥主导作用，并负责管理一支由受委任卫生官员组成的队伍。 特
+来源：中国银行 5月7日至8日，2026中韩工商领导人经济会议系列活动在沪举行。作为中方主席单位代表，中国银行董事长葛海蛟致会议开幕词，同时围绕“中韩经济的现状及新兴产业合作”作主题发言，并参加上海市市长龚正与中韩企业代表团会见活动。韩国经营者总协会会长、希杰集团董事长孙京植等20余家韩国企业代表参加。 葛海蛟表示，去年底今年初，习近平主席同李在明总统在两个多月内实现互访，引领
 
 ## 正文
 
-美国总统唐纳德·特朗普撤回对企业家凯西·米恩斯出任公共卫生局局长的提名，并提名放射科医生妮科尔·萨菲尔接替。
+来源：中国银行 5月7日至8日，2026中韩工商领导人经济会议系列活动在沪举行。
 
-特朗普在Truth Social上宣布了这一消息。
+作为中方主席单位代表，中国银行董事长葛海蛟致会议开幕词，同时围绕“中韩经济的现状及新兴产业合作”作主题发言，并参加上海市市长龚正与中韩企业代表团会见活动。
 
-萨菲尔现任新泽西州Memorial Sloan Kettering Monmouth的乳腺影像主任，同时也是福克斯新闻撰稿人。
+韩国经营者总协会会长、希杰集团董事长孙京植等20余家韩国企业代表参加。
 
-公共卫生局局长历来在公共卫生传播中发挥主导作用，并负责管理一支由受委任卫生官员组成的队伍。
+葛海蛟表示，去年底今年初，习近平主席同李在明总统在两个多月内实现互访，引领中韩关系开辟新局面。
 
-特朗普撤回提名的举动对卫生部长小罗伯特·F·肯尼迪的支持者来说是一次打击，尽管其政府近期已向所谓“让美国更健康”（Make America Healthy Again，简称MAHA）运动的知名倡导者示好。
+近年来，两国积极推进各领域交流合作，实现了相互成就、共同繁荣。
 
-反农药活动人士凯利·赖尔森在短信中表示：“共和党参议员没有支持凯西的提名，这对MAHA来说是巨大的失望和打击。
+中国银行是最早进入韩国市场的中资银行，始终以金融力量链接两国市场、服务两国企业，对韩国世界500强企业实现服务全覆盖，邀请超400家韩国企业来华参加进博会、消博会等中国国家级展会，共享超大规模市场发展机遇。
 
-” “MAHA会在中期选举中记住这一点，”赖尔森说。
+葛海蛟表示，中国银行将坚定落实两国元首重要共识，发挥全球化优势、综合化特色，坚持向“新”发力，依托上海科创中心优势与长三角产业生态基础，聚焦半导体、高端装备、人工智能、新能源汽车等重点领域，加速推动中韩经贸关系向高附加值、创新驱动型合作升级；坚持向“绿”前行，围绕绿色技术转化、绿色项目落地、绿色装备出海等重点领域，持续扩大绿色信贷、债券、租赁等产品供给，助力两国拓展绿色经济等新兴领域合作增长点；坚持向“深”挖潜，支持韩国企业在华增加投资、扩大布局，更好把握中国“十五五”发展机遇。
 
-责任编辑：何云
+中国银行愿继续加大资源投入、提升服务质效，与中韩各界携手推动经贸合作迈向更高水平。
 
 ## 相关推荐
 
-- 2026-06-29 20:27 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 20:12 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 20:22 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 20:19 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 20:37 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 20:14 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 20:26 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 20:20 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 20:16 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 20:41 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 20:27 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 20:33 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 20:33 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 20:36 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 20:46 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 20:23 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 20:18 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 20:47 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 20:26 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 20:23 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 20:19 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 20:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 20:37 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:13 - [李思潼：不会介意大家夸我运气好](http://www.blog.minike.top/Article/details/505408957762.shtml)
-- 2026-06-29 20:38 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/8435951.shtml)
-- 2026-06-29 20:29 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/85396307.shtml)
-- 2026-06-29 20:39 - [恋与深空致歉](https://www.share.minike.top/Article/details/66005824.shtml)
-- 2026-06-29 20:12 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/29355.shtml)
-- 2026-06-29 20:19 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/457041905822.shtml)
-- 2026-06-29 20:34 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.kurohicncr.top/Article/details/2932191637.shtml)
-- 2026-06-29 20:22 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/5673744930.shtml)
-- 2026-06-29 20:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/532095644.shtml)
-- 2026-06-29 20:27 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/6892245242.shtml)
-- 2026-06-29 20:17 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/347291601.shtml)
-- 2026-06-29 20:32 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/4742820536.shtml)
-- 2026-06-29 20:29 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/2819294794.shtml)
-- 2026-06-29 20:38 - [爱很美味](https://www.share.kurohicncr.top/Article/details/478961.shtml)
-- 2026-06-29 20:21 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/26598804362.shtml)
+- 2026-06-29 20:39 - [美人鱼](http://www.blog.minike.top/Article/details/591923587951.shtml)
+- 2026-06-29 20:24 - [急先锋](http://www.share.kurohicncr.top/Article/details/630814627.shtml)
+- 2026-06-29 20:37 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/4603909.shtml)
+- 2026-06-29 20:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/907179669.shtml)
+- 2026-06-29 20:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/804126.shtml)
+- 2026-06-29 20:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/1349437.shtml)
+- 2026-06-29 20:27 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/5040835.shtml)
+- 2026-06-29 20:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/542609324.shtml)
+- 2026-06-29 20:30 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/502419.shtml)
+- 2026-06-29 20:23 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/7837051.shtml)
+- 2026-06-29 20:20 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/4251695.shtml)
+- 2026-06-29 20:31 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/408753754975.shtml)
+- 2026-06-29 20:36 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/919059840350.shtml)
+- 2026-06-29 20:40 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/49861.shtml)
+- 2026-06-29 20:39 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/75885060.shtml)

@@ -1,61 +1,61 @@
-# 江淮汽车拟投资华为旗下引望
+# 境外旅行意外险现新型保险诈骗案件！北京金融监管局：提高警惕、拒绝参与
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！江淮汽车拟投资引望智能技术有限公司，后者主要股东是华为（持股80%）。 继赛力斯、阿维塔之后，华为旗下引望智能技术有限公司（以下简称“引望”）或再添车企股东。 4月30日晚间，江淮汽车（600418）公告称，公司拟投资引望，交易对方为华为，具体投资额、交易方式、交易价格等条款需以双方签订的最终交易文件为准。
+5月7日金融一线消息，北京金融监管局联合北京市公安局经侦总队共同研判并打击涉境外旅行意外险新型保险诈骗案件。 近期，北京金融监管局督导辖内保险公司开展欺诈风险排查工作时，收到涉境外旅行意外险新型保险欺诈线索：某保险公司在日常工作中发现，境外旅行意外险已赔付案件中，存在理赔医院、金额集中，病情类似等情况，疑似存在虚假理赔。北京金融监管局接到相关线索后，第一时间指导北京保险行业协会
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月7日金融一线消息，北京金融监管局联合北京市公安局经侦总队共同研判并打击涉境外旅行意外险新型保险诈骗案件。
 
-江淮汽车拟投资引望智能技术有限公司，后者主要股东是华为（持股80%）。
+近期，北京金融监管局督导辖内保险公司开展欺诈风险排查工作时，收到涉境外旅行意外险新型保险欺诈线索：某保险公司在日常工作中发现，境外旅行意外险已赔付案件中，存在理赔医院、金额集中，病情类似等情况，疑似存在虚假理赔。
 
-继赛力斯、阿维塔之后，华为旗下引望智能技术有限公司（以下简称“引望”）或再添车企股东。
+北京金融监管局接到相关线索后，第一时间指导北京保险行业协会组织辖内保险公司开展线索串并。
 
-4月30日晚间，江淮汽车（600418）公告称，公司拟投资引望，交易对方为华为，具体投资额、交易方式、交易价格等条款需以双方签订的最终交易文件为准。
+在厘清案情和证据后，通过协同共治工作机制，联合北京市公安局经侦总队共同研判并迅速部署打击工作，成功破获该起新型保险诈骗案件。
 
-交易完成后，引望将成为江淮汽车的参股公司，不会纳入其合并报表范围。
+经查，2025年4月以来，犯罪嫌疑人杨某等人组织多名人员集中投保，并虚构境外旅游的事实，通过伪造境外医院诊断书、病历等虚假材料，骗取该保险公司境外旅行意外险理赔上百笔，涉及金额100余万元。
 
-公开资料显示，引望成立于2024年1月，系华为旗下从事智能汽车解决方案业务的核心载体，主要提供智能驾驶、智能座舱、智能车控、智能车云、智能车载光等产品和解决方案。
+目前，相关犯罪嫌疑人已被依法采取刑事拘留强制措施。
 
-2025年，赛力斯、阿维塔作为华为智驾合作伙伴，分别斥资115亿元入股引望，成为后者首批车企股东。
+北京金融监管局、北京市公安局经侦总队提示广大消费者： 1．提高警惕、拒绝参与 切勿轻信他人教唆参与，出借个人身份信息，不要贪图小便宜，因小失大，触碰法律红线。
 
-截至目前，引望的股东结构为华为持股80%、赛力斯持股10%、阿维塔持股10%。
+2．保护个人信息 妥善保管身份证、护照等重要证件信息，防止被不法分子冒用。
 
 ## 相关推荐
 
-- 2026-06-29 20:38 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 20:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 20:13 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 20:40 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 20:28 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 20:21 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 20:18 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 20:17 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 20:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 20:34 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 20:21 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 20:38 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 20:25 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 20:17 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 20:30 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 20:25 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 20:32 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 20:41 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 20:22 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 20:22 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 20:27 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 20:28 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 20:25 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 20:34 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 20:36 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 20:22 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 20:35 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 20:25 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 20:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 20:26 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/11187.shtml)
-- 2026-06-29 20:35 - [啊啊啊](http://www.share.minike.top/Article/details/9497239.shtml)
-- 2026-06-29 20:16 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/636327.shtml)
-- 2026-06-29 20:40 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/70041449.shtml)
-- 2026-06-29 20:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/108356.shtml)
-- 2026-06-29 20:15 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/0085005.shtml)
-- 2026-06-29 20:40 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/581843.shtml)
-- 2026-06-29 20:22 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/97693721.shtml)
-- 2026-06-29 20:37 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/131655614.shtml)
-- 2026-06-29 20:12 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/97918.shtml)
-- 2026-06-29 20:15 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/8631050244.shtml)
-- 2026-06-29 20:17 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/539661460374.shtml)
-- 2026-06-29 20:15 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/350271276296.shtml)
-- 2026-06-29 20:12 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/0072553108.shtml)
-- 2026-06-29 20:22 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/79894238.shtml)
+- 2026-06-29 20:33 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/408370.shtml)
+- 2026-06-29 20:43 - [章若楠包场白敬亭特立独行](https://www.blog.minike.top/Article/details/62522827.shtml)
+- 2026-06-29 20:27 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.minike.top/Article/details/9113001.shtml)
+- 2026-06-29 20:33 - [小娘惹](http://www.blog.minike.top/Article/details/112404567.shtml)
+- 2026-06-29 20:34 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/341702.shtml)
+- 2026-06-29 20:43 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/15455.shtml)
+- 2026-06-29 20:22 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/7614548.shtml)
+- 2026-06-29 20:44 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/3377161077.shtml)
+- 2026-06-29 20:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/23121294035.shtml)
+- 2026-06-29 20:28 - [千与千寻](http://www.share.kurohicncr.top/Article/details/4746533.shtml)
+- 2026-06-29 20:24 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/667046613.shtml)
+- 2026-06-29 20:40 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/665468.shtml)
+- 2026-06-29 20:31 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/0971731427.shtml)
+- 2026-06-29 20:46 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/04686177.shtml)
+- 2026-06-29 20:31 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/88264.shtml)

@@ -1,59 +1,56 @@
-# 中国外交部：任何人企图为侵略翻案必将遭到坚决抵制
+# 酒价内参5月9日价格发布：习酒君品与青花郎领跌 总价创半个月以来新低
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新社北京5月3日电 中国外交部发言人3日就东京审判开庭80周年答记者问时表示，任何人、任何势力如果不自量力，企图为侵略翻案，必将遭到全世界爱好和平人们的坚决抵制，必将被再次押上历史的审判台。 有记者提问，今天(3日)是远东国际军事法庭(东京审判)开庭80周年纪念日。近期，中国、日本、国际社会都举行了一系列纪念活动，重温东京审判历史意义。请问中方对此有何评论？ 外交部发言人表示
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月9日整体明显走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9921元，较昨日下跌23元，创下近半个月以来最低。市场在短暂平稳后再度下探，终端交投情绪转冷，高端龙头价格企稳，次高端和腰部单品普遍走弱且跌幅较重。 今日白酒市场11
 
 ## 正文
 
-中新社北京5月3日电 中国外交部发言人3日就东京审判开庭80周年答记者问时表示，任何人、任何势力如果不自量力，企图为侵略翻案，必将遭到全世界爱好和平人们的坚决抵制，必将被再次押上历史的审判台。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月9日整体明显走弱。
 
-有记者提问，今天(3日)是远东国际军事法庭(东京审判)开庭80周年纪念日。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9921元，较昨日下跌23元，创下近半个月以来最低。
 
-近期，中国、日本、国际社会都举行了一系列纪念活动，重温东京审判历史意义。
+市场在短暂平稳后再度下探，终端交投情绪转冷，高端龙头价格企稳，次高端和腰部单品普遍走弱且跌幅较重。
 
-请问中方对此有何评论？
+今日白酒市场11大单品三涨七跌一平，输家占据绝对优势。
 
-外交部发言人表示，1946年5月3日，根据日本无条件投降安排和盟军最高统帅颁布的《远东国际军事法庭宪章》，远东国际军事法庭正式开庭。
+上涨方面，精品茅台涨幅居前，上涨4元/瓶，近期走势平稳；飞天茅台与五粮液普五八代均上涨1元/瓶，后者平近一月最高价格。
 
-这场历史性审判汇聚11国司法力量，以海量铁证和严谨法理，判定日本军国主义发动侵略战争、严重违反国际法，揭露日本侵略者在亚洲多国犯下的累累罪行，判处东条英机等25名甲级战犯绞刑、徒刑，驳斥所谓“胜利者审判”“自卫战争”“事后立法”等谬论。
+下跌方面，青花郎与习酒君品跌幅居前，均下跌6元/瓶，前者再度失守700元关口，近期该酒品的价格波动较为剧烈，在700元大关附近反复震荡，后者价格今日快速下探，回落至近一个月次低位；国窖1573、洋河梦之蓝M6+及古井贡古20均下跌5元/瓶，其中国窖1573再度跌破900元大关，梦之蓝M6+失守600元关口；青花汾20与水晶剑南春均下跌1元/瓶。
 
-东京审判是《开罗宣言》《波茨坦公告》规定的实施，反映战胜国与受害者集体意志，践行《联合国宪章》的宗旨与原则，捍卫了二战胜利成果。
+五粮液1618的价格环比保持不变。
 
-发言人指出，接受东京审判判决是战后日本回归国际社会的前提。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 20:14 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 20:25 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 20:38 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 20:28 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 20:38 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 20:22 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 20:29 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 20:41 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 20:36 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 20:14 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 20:27 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 20:38 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 20:34 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 20:21 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 20:38 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 20:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 20:22 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 20:46 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 20:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 20:45 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 20:46 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 20:30 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 20:36 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:17 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/072608963901.shtml)
-- 2026-06-29 20:28 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/882185.shtml)
-- 2026-06-29 20:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/225406729244.shtml)
-- 2026-06-29 20:16 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/564726.shtml)
-- 2026-06-29 20:30 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/25473926090.shtml)
-- 2026-06-29 20:15 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/3988178.shtml)
-- 2026-06-29 20:15 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/631636236940.shtml)
-- 2026-06-29 20:26 - [法生态部长反对装空调却自己吹空调](http://www.share.minike.top/Article/details/35497.shtml)
-- 2026-06-29 20:30 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/330610045141.shtml)
-- 2026-06-29 20:29 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/7375074434.shtml)
-- 2026-06-29 20:32 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/274735587609.shtml)
-- 2026-06-29 20:40 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/98978246017.shtml)
-- 2026-06-29 20:18 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/1461322.shtml)
-- 2026-06-29 20:40 - [CORTIS 小牌大耍](http://www.share.minike.top/Article/details/07148.shtml)
-- 2026-06-29 20:31 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/25548.shtml)
+- 2026-06-29 20:38 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/299084653.shtml)
+- 2026-06-29 20:46 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/96472297.shtml)
+- 2026-06-29 20:45 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/621409.shtml)
+- 2026-06-29 20:22 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/62331144.shtml)
+- 2026-06-29 20:23 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/1863888560.shtml)
+- 2026-06-29 20:29 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/871732409275.shtml)
+- 2026-06-29 20:30 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/2598690.shtml)
+- 2026-06-29 20:20 - [欧洲极端高温如何影响家电股](http://www.blog.minike.top/Article/details/315188.shtml)
+- 2026-06-29 20:18 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/8288070.shtml)
+- 2026-06-29 20:38 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/27661091.shtml)
+- 2026-06-29 20:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/42976719.shtml)
+- 2026-06-29 20:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/17661753024.shtml)
+- 2026-06-29 20:34 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/78441.shtml)
+- 2026-06-29 20:44 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/3169546733.shtml)
+- 2026-06-29 20:27 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/216098843321.shtml)

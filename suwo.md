@@ -1,52 +1,58 @@
-# “苏超”吉祥物“苏嘟嘟”IP落户南京 打造文旅潮玩体验区
+# 美图公司早盘持续上涨逾12% 第一季度付费用户数创新高
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月02日 20:15 来源：中国新闻网 “五一”假期，“苏超”吉祥物“苏嘟嘟”IP授权店落户南京华贸中心，全新体育潮玩打卡点位人气满满，吸引不少市民游客前往体验游玩。据了解，“苏超”吉祥物“苏嘟嘟”以长江江豚为原型设计创作，整体形象新颖活泼，同时融入江苏十三座城市特色文化元素，兼具体育活力气质与本土文化底蕴。 记者在现场看到，整套主题盲盒设计新颖巧妙，磁
+美图公司（01357）早盘涨幅持续扩大，股价上涨12.50%，现报5.31港元，成交额6.32亿港元。 美图公司发布2026年第一季度业务数据。数据显示，其付费订阅用户数已增至1790万，再创历史新高；以付费订阅为主的影像与设计产品收入8.52亿元，同比增长34.3%。公司首度披露AI生产力应用年度经常性收入（ARR）指标。截至2026年3月，AI生产力应用ARR约为5.8亿元
 
 ## 正文
 
-发布时间：2026年05月02日 20:15 来源：中国新闻网 “五一”假期，“苏超”吉祥物“苏嘟嘟”IP授权店落户南京华贸中心，全新体育潮玩打卡点位人气满满，吸引不少市民游客前往体验游玩。
+美图公司（01357）早盘涨幅持续扩大，股价上涨12.50%，现报5.31港元，成交额6.32亿港元。
 
-据了解，“苏超”吉祥物“苏嘟嘟”以长江江豚为原型设计创作，整体形象新颖活泼，同时融入江苏十三座城市特色文化元素，兼具体育活力气质与本土文化底蕴。
+美图公司发布2026年第一季度业务数据。
 
-记者在现场看到，整套主题盲盒设计新颖巧妙，磁吸配件玩法灵活多样，观赏性、互动性兼备，是本次“苏超”赛事特色官方文创周边。
+数据显示，其付费订阅用户数已增至1790万，再创历史新高；以付费订阅为主的影像与设计产品收入8.52亿元，同比增长34.3%。
 
-节日期间，主题打卡、人偶互动、趣味足球体验等文体活动同步开展，浓郁的运动氛围，让市民游客沉浸式感受文体融合带来的假日新体验。
+公司首度披露AI生产力应用年度经常性收入（ARR）指标。
 
-(记者 葛勇 江苏南京报道） 责任编辑：【罗攀】
+截至2026年3月，AI生产力应用ARR约为5.8亿元，同比增长56.2%。
+
+东方证券表示，判断26年Agent工作流的持续调试和成熟，对于各项工种划分相对不明晰的中小商家用户更友好，Agent带动Token消耗显著上行，有望逐步兑现为ARPU值提升，形成付费订阅+ARPPU双轮驱动，共同支撑生产力场景收入稳步增长。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:37 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 20:15 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 20:30 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 20:17 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 20:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 20:29 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 20:18 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 20:15 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 20:23 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 20:25 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 20:12 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 20:13 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 20:31 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 20:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 20:47 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 20:38 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 20:36 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 20:42 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 20:35 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 20:37 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 20:27 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 20:28 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 20:36 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 20:32 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 20:19 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 20:36 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:19 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/44117405396.shtml)
-- 2026-06-29 20:19 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/457007.shtml)
-- 2026-06-29 20:26 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/207416677.shtml)
-- 2026-06-29 20:33 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/450789858.shtml)
-- 2026-06-29 20:32 - [北京市发布雷电黄色预警](https://www.share.minike.top/Article/details/97858.shtml)
-- 2026-06-29 20:34 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/86028923.shtml)
-- 2026-06-29 20:40 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/1821478.shtml)
-- 2026-06-29 20:32 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/5639043132.shtml)
-- 2026-06-29 20:32 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/53697.shtml)
-- 2026-06-29 20:23 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/134100858451.shtml)
-- 2026-06-29 20:18 - [伊朗足球队将启程回国](http://www.blog.minike.top/Article/details/861286684.shtml)
-- 2026-06-29 20:12 - [华工科技龙虎榜数据](http://www.share.minike.top/Article/details/88530.shtml)
-- 2026-06-29 20:34 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/86805970646.shtml)
-- 2026-06-29 20:34 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.kurohicncr.top/Article/details/4447153.shtml)
-- 2026-06-29 20:13 - [小娘惹](https://www.share.minike.top/Article/details/506785794211.shtml)
+- 2026-06-29 20:41 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/8501483402.shtml)
+- 2026-06-29 20:46 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/103416772897.shtml)
+- 2026-06-29 20:18 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/292521124145.shtml)
+- 2026-06-29 20:19 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/54850099582.shtml)
+- 2026-06-29 20:22 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/7010285452.shtml)
+- 2026-06-29 20:32 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/418156519786.shtml)
+- 2026-06-29 20:41 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/04128373.shtml)
+- 2026-06-29 20:25 - [爱很美味](http://www.share.kurohicncr.top/Article/details/083581632.shtml)
+- 2026-06-29 20:40 - [金刚川](http://www.share.minike.top/Article/details/01888757.shtml)
+- 2026-06-29 20:25 - [2026全国田径冠军赛江苏队4金收官](http://www.share.kurohicncr.top/Article/details/8577708.shtml)
+- 2026-06-29 20:28 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/371368971.shtml)
+- 2026-06-29 20:32 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/7153219516.shtml)
+- 2026-06-29 20:24 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/41941720340.shtml)
+- 2026-06-29 20:20 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/895594792.shtml)
+- 2026-06-29 20:38 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/748549741.shtml)

@@ -1,61 +1,58 @@
-# 486家机构，“盯”上1家公司
+# 中方船只在霍尔木兹海峡遭袭？外交部回应
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！前4个月，机构调研热情不减。今年以来，Wind机构调研指数（跟踪数据为：最近3个月有3家以上机构投资者进行调研，并出具研报的相关公司）涨幅达12.41%。工业机械、化工、电子、医疗等板块关注度较高。其中，迈瑞医疗获486家机构调研，接受机构调研家数最多。 4月27日以来，迈瑞医疗获219家机构调研，接受机构
+中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。 有记者提问：据报道，一艘由中方所有的成品油轮在霍尔木兹海峡附近遭到袭击。据称，该船甲板上发生了火灾。中方能否就此事件提供更多信息？此外，为确保在该地区航行的中国船只安全，中方正在采取哪些应对措施？ 林剑：根据目前掌握的情况，相关遇袭船只系马绍尔群岛籍，船上有中国籍的船员。截至目前，该船只未报告有船员
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。
 
-前4个月，机构调研热情不减。
+有记者提问：据报道，一艘由中方所有的成品油轮在霍尔木兹海峡附近遭到袭击。
 
-今年以来，Wind机构调研指数（跟踪数据为：最近3个月有3家以上机构投资者进行调研，并出具研报的相关公司）涨幅达12.41%。
+据称，该船甲板上发生了火灾。
 
-工业机械、化工、电子、医疗等板块关注度较高。
+中方能否就此事件提供更多信息？
 
-其中，迈瑞医疗获486家机构调研，接受机构调研家数最多。
+此外，为确保在该地区航行的中国船只安全，中方正在采取哪些应对措施？
 
-4月27日以来，迈瑞医疗获219家机构调研，接受机构调研家数同样位居榜首。
+林剑：根据目前掌握的情况，相关遇袭船只系马绍尔群岛籍，船上有中国籍的船员。
 
-机构建议，短期围绕一季报业绩得到验证、景气有望延续的领域布局；中长期看，科技创新仍是核心成长主线。
+截至目前，该船只未报告有船员伤亡的情况。
 
-迈瑞医疗接受机构调研家数最多 前4个月，共有2719家上市公司披露机构投资者调研记录。
+霍尔木兹海峡是用于国际航行的海峡，中方对大量船只和船员受战事影响被困海峡深表关切，认为尽早恢复海峡通行畅通，维护民用船只和船员安全，符合地区国家和国际社会共同利益。
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 20:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 20:35 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 20:32 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 20:28 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 20:30 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 20:40 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 20:34 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 20:34 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 20:23 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 20:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 20:38 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 20:20 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 20:19 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 20:27 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 20:44 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 20:40 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 20:20 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 20:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 20:24 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 20:35 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 20:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 20:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 20:42 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 20:41 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 20:24 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 20:42 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/737241988805.shtml)
-- 2026-06-29 20:17 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/87986.shtml)
-- 2026-06-29 20:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/55531.shtml)
-- 2026-06-29 20:36 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/181669.shtml)
-- 2026-06-29 20:12 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/75915.shtml)
-- 2026-06-29 20:27 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/5401024.shtml)
-- 2026-06-29 20:23 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/099407.shtml)
-- 2026-06-29 20:26 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/4001810.shtml)
-- 2026-06-29 20:26 - [送你一朵小红花](https://www.share.minike.top/Article/details/53148062.shtml)
-- 2026-06-29 20:22 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/13706485.shtml)
-- 2026-06-29 20:31 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/3015005983.shtml)
-- 2026-06-29 20:40 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/34063734.shtml)
-- 2026-06-29 20:34 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/42240552811.shtml)
-- 2026-06-29 20:17 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/39637764447.shtml)
-- 2026-06-29 20:28 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/141756466484.shtml)
+- 2026-06-29 20:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/461734.shtml)
+- 2026-06-29 20:34 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/92038.shtml)
+- 2026-06-29 20:36 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/98895.shtml)
+- 2026-06-29 20:41 - [恋与深空客服的回应](http://www.share.minike.top/Article/details/47746258.shtml)
+- 2026-06-29 20:22 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/39535186.shtml)
+- 2026-06-29 20:21 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/37402.shtml)
+- 2026-06-29 20:30 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/42987.shtml)
+- 2026-06-29 20:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/56136897964.shtml)
+- 2026-06-29 20:42 - [女心理师](http://www.blog.kurohicncr.top/Article/details/7238356672.shtml)
+- 2026-06-29 20:30 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/66282.shtml)
+- 2026-06-29 20:22 - [北京市发布雷电黄色预警](https://www.share.minike.top/Article/details/05446256.shtml)
+- 2026-06-29 20:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/7524179.shtml)
+- 2026-06-29 20:29 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/34441.shtml)
+- 2026-06-29 20:25 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/1794150132.shtml)
+- 2026-06-29 20:24 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/7668669.shtml)

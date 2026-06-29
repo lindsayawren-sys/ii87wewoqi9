@@ -1,52 +1,58 @@
-# 财政部：一季度国有企业营业总收入同比下降0.4%
+# 黄金涨跌关键在美联储？大摩：年内有望冲上5200美元，还有一次降息！
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-人民财讯4月30日电，财政部发布2026年1—3月全国国有及国有控股企业经济运行情况。1—3月，全国国有及国有控股企业（以下称国有企业）营业总收入同比下降0.4%，利润总额同比下降5.1%。3月末，国有企业资产负债率65.5%，同比上升0.5个百分点。责任编辑：刘万里 SF014
+文章来源：财联社 尽管美伊冲突不断带来地缘政治不确定性，但黄金却并未展现传统避险资产属性。不过，黄金市场近期似乎正重拾上行动能，金价正测试每盎司4700美元的新阻力位。 尽管金价仍远低于1月底创下的近5600美元的峰值，但一家华尔街大行预计，黄金价格年内仍会继续走高，并“冲刺”5200美元/盎司。这意味着金价还能较当前水平上涨约10%。 摩根士丹利研究部金属与矿业商品策略师Am
 
 ## 正文
 
-人民财讯4月30日电，财政部发布2026年1—3月全国国有及国有控股企业经济运行情况。
+文章来源：财联社 尽管美伊冲突不断带来地缘政治不确定性，但黄金却并未展现传统避险资产属性。
 
-1—3月，全国国有及国有控股企业（以下称国有企业）营业总收入同比下降0.4%，利润总额同比下降5.1%。
+不过，黄金市场近期似乎正重拾上行动能，金价正测试每盎司4700美元的新阻力位。
 
-3月末，国有企业资产负债率65.5%，同比上升0.5个百分点。
+尽管金价仍远低于1月底创下的近5600美元的峰值，但一家华尔街大行预计，黄金价格年内仍会继续走高，并“冲刺”5200美元/盎司。
 
-责任编辑：刘万里 SF014
+这意味着金价还能较当前水平上涨约10%。
+
+摩根士丹利研究部金属与矿业商品策略师Amy Gower在最新报告中指出，黄金当前的核心驱动力已从避险需求转向美联储货币政策与实际收益率走势。
+
+该行维持年底金价升至5200美元/盎司的预测，并认为未来降息预期重新升温将为黄金提供进一步上涨空间。
+
+Gower提到，尽管伊朗持续战争加剧了地缘政治不确定性，但近几个月来黄金价格走势不佳，她对此并不感到意外。
+
+她在报告中解释称：“由于冲突引发了能源供应冲击，降低了人们对美联储降息的希望，因此黄金此次难以发挥避险作用也就不足为奇了。
 
 ## 相关推荐
 
-- 2026-06-29 20:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 20:37 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 20:41 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 20:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 20:16 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 20:18 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 20:25 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 20:16 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 20:37 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 20:33 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 20:21 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 20:32 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 20:35 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 20:27 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 20:32 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 20:30 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 20:27 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 20:18 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 20:42 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 20:31 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 20:36 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 20:36 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 20:42 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 20:42 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 20:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 20:47 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:31 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/1552061.shtml)
-- 2026-06-29 20:38 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/79171168.shtml)
-- 2026-06-29 20:29 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/82583952.shtml)
-- 2026-06-29 20:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/273428849.shtml)
-- 2026-06-29 20:25 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/96265.shtml)
-- 2026-06-29 20:21 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/079455902746.shtml)
-- 2026-06-29 20:17 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/6755089.shtml)
-- 2026-06-29 20:19 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/08321378073.shtml)
-- 2026-06-29 20:24 - [女心理师](https://www.share.kurohicncr.top/Article/details/2343111.shtml)
-- 2026-06-29 20:31 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/76857369.shtml)
-- 2026-06-29 20:31 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/1892580723.shtml)
-- 2026-06-29 20:25 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/324421600.shtml)
-- 2026-06-29 20:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/2766674072.shtml)
-- 2026-06-29 20:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/511714826635.shtml)
-- 2026-06-29 20:32 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/47207.shtml)
+- 2026-06-29 20:39 - [河南高院审委会原委员曲海滨被查](http://www.blog.kurohicncr.top/Article/details/3169776969.shtml)
+- 2026-06-29 20:30 - [北京市发布雷电黄色预警](https://www.share.minike.top/Article/details/28125.shtml)
+- 2026-06-29 20:34 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/762731427.shtml)
+- 2026-06-29 20:47 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/76234413975.shtml)
+- 2026-06-29 20:35 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/43936909963.shtml)
+- 2026-06-29 20:42 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/74083973276.shtml)
+- 2026-06-29 20:26 - [法生态部长反对装空调却自己吹空调](https://www.share.kurohicncr.top/Article/details/83811345.shtml)
+- 2026-06-29 20:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/85464724952.shtml)
+- 2026-06-29 20:47 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/264662845.shtml)
+- 2026-06-29 20:21 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/65547083102.shtml)
+- 2026-06-29 20:36 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/00185002585.shtml)
+- 2026-06-29 20:30 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/0196854730.shtml)
+- 2026-06-29 20:27 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/65377573.shtml)
+- 2026-06-29 20:22 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/489055.shtml)
+- 2026-06-29 20:29 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/447958892.shtml)

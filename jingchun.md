@@ -1,57 +1,61 @@
-# 昆明果市见闻：“甜果”背后的科研接力
+# 交通银行中高层调整 涉及多家省分行和交银国际信托
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新网昆明5月1日电 (陆希成)5月1日，昆明市五华区一处街角，“果‘燃’很疯狂”水果市集开市。蓝花楹正盛，紫色花影下，坚果、牛油果、蓝莓、青柚等云南高原特色农产品沿街堆陈，市民游客提袋穿行。 来自山东的游客王丽娟左手拎着青柚、坚果，右手端着一杯咖啡。“云南农产品新鲜，价格也实在，这趟没白来。”她说。 云南地处低纬高原，气候类型多样，咖啡、坚果、青柚等热带亚热带果品在此落地生根
+来源：金融人事mini 4月29日，交通银行披露2026年一季报。今年1-3月，交行实现营业收入696.18亿元，同比增长4.89%；归母净利润261.62亿元，同比增长3.11%。截至一季度末，交行资产总额162，729.60亿元，较上年末增长4.66%。 同日，交行发布董事会决议公告，其中，提请股东会选举原建行首席信息官金磐石、原太保寿险董事长潘艳红为独立董事；聘任刘雷为交
 
 ## 正文
 
-中新网昆明5月1日电 (陆希成)5月1日，昆明市五华区一处街角，“果‘燃’很疯狂”水果市集开市。
+来源：金融人事mini 4月29日，交通银行披露2026年一季报。
 
-蓝花楹正盛，紫色花影下，坚果、牛油果、蓝莓、青柚等云南高原特色农产品沿街堆陈，市民游客提袋穿行。
+今年1-3月，交行实现营业收入696.18亿元，同比增长4.89%；归母净利润261.62亿元，同比增长3.11%。
 
-来自山东的游客王丽娟左手拎着青柚、坚果，右手端着一杯咖啡。
+截至一季度末，交行资产总额162，729.60亿元，较上年末增长4.66%。
 
-“云南农产品新鲜，价格也实在，这趟没白来。
+同日，交行发布董事会决议公告，其中，提请股东会选举原建行首席信息官金磐石、原太保寿险董事长潘艳红为独立董事；聘任刘雷为交行首席信息官，待其任职获准后，副行长钱斌将不再兼任首席信息官。
 
-”她说。
+一、新任首席信息官 刘雷，1972年生，华东理工大学工学学士，工程师，自2025年起任交行金融科技部总经理、金融科技创新研究院院长。
 
-云南地处低纬高原，气候类型多样，咖啡、坚果、青柚等热带亚热带果品在此落地生根，鲜果四季不断。
+曾任交行数字化转型办公室主任，软件开发中心总经理，期间兼任交银金科董事长、总裁、交银金科筹建组副组长；软件开发中心（上海）总经理，软件开发中心副总经理、总经理助理，软件开发中心总工程师办公室高级经理、开发一部高级经理等职务。
 
-摆上市集的每一颗，背后大多藏着数十年的育种故事。
+据年报介绍，交行持续强化数字金融顶层设计，成立数智化经营中心，提升集中集约效能；深化数字技术和数据要素创新应用，部署AI智能体助手超2，500个，覆盖精准营销、风险防控、业务流程再造、基层减负等场景。
 
-一颗咖啡育出“中国味” 云南省德宏热带农业科学研究所(下称“德宏热作所”)的咖啡故事，从60年前一根扁担、一只搪瓷缸开始。
+2025年，交行金融科技投入123.42亿元，同比上升6.81%；为营业收入的5.78%，同比上升0.32个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 20:16 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 20:28 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 20:32 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 20:25 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 20:37 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 20:24 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 20:26 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 20:31 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 20:21 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 20:22 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 20:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 20:36 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 20:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 20:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 20:20 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 20:23 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 20:18 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 20:41 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 20:39 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 20:31 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 20:27 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 20:20 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 20:19 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 20:40 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 20:44 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 20:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:39 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/2161095.shtml)
-- 2026-06-29 20:36 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/3035713185.shtml)
-- 2026-06-29 20:30 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/8752564.shtml)
-- 2026-06-29 20:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/62299744.shtml)
-- 2026-06-29 20:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/6029955.shtml)
-- 2026-06-29 20:14 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/22818.shtml)
-- 2026-06-29 20:34 - [女心理师](https://www.share.kurohicncr.top/Article/details/05982767.shtml)
-- 2026-06-29 20:12 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/6852924.shtml)
-- 2026-06-29 20:26 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/67996405651.shtml)
-- 2026-06-29 20:12 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/382566.shtml)
-- 2026-06-29 20:26 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/934771635.shtml)
-- 2026-06-29 20:36 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/07220658380.shtml)
-- 2026-06-29 20:17 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/361900403.shtml)
-- 2026-06-29 20:16 - [明星大侦探第一季](http://www.share.minike.top/Article/details/1679088.shtml)
-- 2026-06-29 20:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/28144542822.shtml)
+- 2026-06-29 20:31 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/269560.shtml)
+- 2026-06-29 20:45 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/67331616.shtml)
+- 2026-06-29 20:23 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/59032548.shtml)
+- 2026-06-29 20:39 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/33167.shtml)
+- 2026-06-29 20:30 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/29040.shtml)
+- 2026-06-29 20:25 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/1239484613.shtml)
+- 2026-06-29 20:41 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/065480.shtml)
+- 2026-06-29 20:22 - [C罗10球7球对垫底队](http://www.blog.kurohicncr.top/Article/details/12754614.shtml)
+- 2026-06-29 20:25 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/699748845.shtml)
+- 2026-06-29 20:42 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/19888.shtml)
+- 2026-06-29 20:45 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/634740.shtml)
+- 2026-06-29 20:27 - [欧洲安装一台空调要花近8000元](https://www.share.minike.top/Article/details/1867633.shtml)
+- 2026-06-29 20:40 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/0147932602.shtml)
+- 2026-06-29 20:45 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/7211000.shtml)
+- 2026-06-29 20:35 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/372692.shtml)

@@ -1,61 +1,57 @@
-# 马斯克就起诉奥尔特曼案连续第三天出庭作证
+# 【财经分析】汇源果汁陷多方角力，国中水务9.3亿元收购疑云引发争议
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-埃隆．马斯克起诉OpenAI及其联合创始人山姆．奥尔特曼（Sam Altman）和格雷格．布罗克曼（Greg Brockman）一案，周四进入第三天庭审。马斯克当天进行了长时间的作证，力图阻止该公司转型为营利性企业。 案件的核心在于，马斯克指控OpenAI和奥尔特曼误导他在公司发展初期出资3，800万美元。彼时，该项目还是一家以为人类开发安全人工智能（AI）为使命的非营利机构，
+来源：新华财经 新华财经8月15日电（可达）北京汇源食品饮料有限公司（下称“北京汇源”）14日深夜再发公告，质疑公司大股东诸暨文盛汇自有资金投资有限公司（下称“诸暨文盛汇”）召开的临时股东大会合法性，并称公司唯一的监事试图发言被阻止。 此前8月9日，北京汇源一封《公开信》，将公司管理团队和大股东诸暨文盛汇的矛盾公开化。一度陷入债务危机的北京汇源，在2023年完成债务重整，并在2
 
 ## 正文
 
-埃隆．马斯克起诉OpenAI及其联合创始人山姆．奥尔特曼（Sam Altman）和格雷格．布罗克曼（Greg Brockman）一案，周四进入第三天庭审。
+来源：新华财经 新华财经8月15日电（可达）北京汇源食品饮料有限公司（下称“北京汇源”）14日深夜再发公告，质疑公司大股东诸暨文盛汇自有资金投资有限公司（下称“诸暨文盛汇”）召开的临时股东大会合法性，并称公司唯一的监事试图发言被阻止。
 
-马斯克当天进行了长时间的作证，力图阻止该公司转型为营利性企业。
+此前8月9日，北京汇源一封《公开信》，将公司管理团队和大股东诸暨文盛汇的矛盾公开化。
 
-案件的核心在于，马斯克指控OpenAI和奥尔特曼误导他在公司发展初期出资3，800万美元。
+一度陷入债务危机的北京汇源，在2023年完成债务重整，并在2023年、2024年均实现盈利，在经营逐步脱困的局面下，公司如今却又陷入多方角力的资本乱局。
 
-彼时，该项目还是一家以为人类开发安全人工智能（AI）为使命的非营利机构，后来却摇身一变成了营利性企业。
+同样陷入其中的还有A股上市公司国中水务，作为诸暨文盛汇背后的资方，其前后共计斥资9.3亿元谋求控股北京汇源，却最终“为别人做了嫁衣”，期间中小股东利益是否充分得以保护？
 
-“我就是个傻瓜，白白出钱帮他们创办了一家初创公司，”马斯克周三在加州奥克兰联邦法院作证时说。
+汇源陷多方角力 8月14日深夜，北京汇源通过公司账号发布《关于2025年第三次临时股东会合法有效性的异议函》，称公司工会委员会对临时股东会的召集、召开程序及审议内容进行了审慎研究，认定本次会议及其将形成的决议不具备合法有效性，并呼吁公司各部门及全体职工不承认股东会的合法性，不执行股东会的决议，不承认股东会选举的董事。
 
-周三和周四两天，马斯克接受了奥尔特曼和OpenAI的律师威廉．萨维特（William Savitt）长达数小时的交叉盘问。
+有接近北京汇源人士向新华财经表示，诸暨文盛汇在临时股东会上提出议案罢免董事长，但会前没有通知董事会办公机构，也未通知董事长出席会议。
 
-萨维特在以往案件中既代理过马斯克，也代理过起诉马斯克的当事人。
+此前8月9日，北京汇源发布《致全体股东及转股债权人的公开信》（下称“公开信”），指其控股股东诸暨文盛汇未按重整协议履行出资义务，并谋划于8月11日召开临时股东会提案通过资本公积补亏方案推动可能存在不公平的分红事项。
 
-他试图让陪审团相信，马斯克不仅知晓OpenAI早期组建营利性实体的计划，而且明确支持，还曾要求获得多数控制权。
+2023年北京汇源完成债务重整，上海文盛资产管理股份有限公司（下称“文盛资产”）作为重整投资人，设立诸暨文盛汇、天津文盛汇两个投资平台持有北京汇源股权，其中诸暨文盛汇持有60%股权成为大股东，陆续向北京汇源派驻多名董事、监事。
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 20:27 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 20:38 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 20:20 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 20:38 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 20:16 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 20:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 20:31 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 20:19 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 20:35 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 20:20 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-29 20:23 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 20:37 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 20:19 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 20:27 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 20:36 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 20:24 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 20:21 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 20:26 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 20:40 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 20:32 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 20:39 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 20:32 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 20:30 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 20:44 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 20:38 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:14 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/738488036.shtml)
-- 2026-06-29 20:15 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/9706357.shtml)
-- 2026-06-29 20:39 - [本届世界杯已有5人涉性侵风波](https://www.blog.minike.top/Article/details/273115.shtml)
-- 2026-06-29 20:30 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/8904956497.shtml)
-- 2026-06-29 20:19 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/63548.shtml)
-- 2026-06-29 20:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/482388618905.shtml)
-- 2026-06-29 20:30 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/25658640.shtml)
-- 2026-06-29 20:32 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/723418753243.shtml)
-- 2026-06-29 20:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/63060618727.shtml)
-- 2026-06-29 20:17 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/677710356.shtml)
-- 2026-06-29 20:34 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/78932880171.shtml)
-- 2026-06-29 20:28 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/58159985464.shtml)
-- 2026-06-29 20:13 - [一生一世](http://www.blog.kurohicncr.top/Article/details/198750.shtml)
-- 2026-06-29 20:14 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/83537912.shtml)
-- 2026-06-29 20:33 - [互助版模拟高考志愿填报](http://www.blog.kurohicncr.top/Article/details/918355.shtml)
+- 2026-06-29 20:32 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.minike.top/Article/details/89981207799.shtml)
+- 2026-06-29 20:36 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/20684079834.shtml)
+- 2026-06-29 20:47 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/2176947.shtml)
+- 2026-06-29 20:43 - [扫黑风暴](https://www.share.minike.top/Article/details/689898.shtml)
+- 2026-06-29 20:26 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/2050942.shtml)
+- 2026-06-29 20:47 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/721285819941.shtml)
+- 2026-06-29 20:43 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/96226.shtml)
+- 2026-06-29 20:29 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/755006870319.shtml)
+- 2026-06-29 20:36 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/230743.shtml)
+- 2026-06-29 20:20 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/090295052.shtml)
+- 2026-06-29 20:41 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/6372163.shtml)
+- 2026-06-29 20:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/52541637.shtml)
+- 2026-06-29 20:31 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/241351543527.shtml)
+- 2026-06-29 20:42 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/409801.shtml)
+- 2026-06-29 20:22 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/255030.shtml)

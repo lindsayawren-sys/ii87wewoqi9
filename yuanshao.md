@@ -1,54 +1,56 @@
-# 印度德里一居民楼起火已致11人伤亡
+# ISSB副主席华敬东：世界不缺财富，缺的是资本向善的资产配置
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新网北京5月3日电 新德里消息：印度德里维韦克维哈尔地区一栋居民楼当地时间3日发生火灾，造成至少9人死亡、2人受伤。 据印度新德里电视台报道，3日凌晨，维韦克维哈尔地区一栋四层居民楼疑似发生空调爆炸后起火。消防人员赶到现场后，火焰几乎吞噬了整栋居民楼，顶层冒出浓烟。 当天早上6时许，火势得到控制。当地警方通报称，有十余人在事故现场获救，另有9人丧生，其中包括一名仅1岁的儿童。
+专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。国际可持续准则理事会（ISSB）副主席华敬东在演讲中谈到，对中央财经大学绿色金融国际研究院的报告中的一句话表示赞同——“世界上不缺资金，全球南方气候变化投资或实现SDG的资金不足，并非因为全球资本总量不足，而是因为资金错位。” 结合自身曾管理世界银行数
 
 ## 正文
 
-中新网北京5月3日电 新德里消息：印度德里维韦克维哈尔地区一栋居民楼当地时间3日发生火灾，造成至少9人死亡、2人受伤。
+专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。
 
-据印度新德里电视台报道，3日凌晨，维韦克维哈尔地区一栋四层居民楼疑似发生空调爆炸后起火。
+国际可持续准则理事会（ISSB）副主席华敬东在演讲中谈到，对中央财经大学绿色金融国际研究院的报告中的一句话表示赞同——“世界上不缺资金，全球南方气候变化投资或实现SDG的资金不足，并非因为全球资本总量不足，而是因为资金错位。
 
-消防人员赶到现场后，火焰几乎吞噬了整栋居民楼，顶层冒出浓烟。
+” 结合自身曾管理世界银行数千亿资金的经验，他表示，截至2024年底，全球债市和股市总量已达270万亿美元；同年，全球金融机构（包括商业银行、央行、保险公司、非银行金融机构）资产总量超过500万亿美元，两者合计770万亿美元。
 
-当天早上6时许，火势得到控制。
+扣除统计重复后，据估计，全球可用财富和资本至少超过500万亿美元。
 
-当地警方通报称，有十余人在事故现场获救，另有9人丧生，其中包括一名仅1岁的儿童。
+“所以我非常同意世界不缺财富，缺的是资本向善的资产配置。
 
-(完)
+” 华敬东回顾了2015年这一关键年份，联合国提出可持续发展目标（SDG）并通过了《巴黎协定》，二者紧密相关。
+
+他指出，SDG的17项目标中，至少有10项（从减贫、海洋、净水到土地等）与气候变化直接相关。
+
+然而，过去20年间，来自行业、国家及国际多边组织的可持续披露标准层出不穷，虽各有善意，却让投资者陷入“不知道该用谁”的困惑。
 
 ## 相关推荐
 
-- 2026-06-29 20:18 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 20:33 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 20:30 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 20:36 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 20:33 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 20:12 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 20:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 20:15 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 20:25 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 20:32 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 20:38 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 20:40 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 20:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 20:36 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 20:37 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 20:19 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 20:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 20:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 20:34 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 20:22 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 20:40 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 20:35 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:22 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/56255249209.shtml)
-- 2026-06-29 20:23 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/82526567261.shtml)
-- 2026-06-29 20:31 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/15529480.shtml)
-- 2026-06-29 20:13 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/33017.shtml)
-- 2026-06-29 20:18 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/34904243.shtml)
-- 2026-06-29 20:29 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/28367712.shtml)
-- 2026-06-29 20:27 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/226393599979.shtml)
-- 2026-06-29 20:20 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/97027935.shtml)
-- 2026-06-29 20:33 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/73143245039.shtml)
-- 2026-06-29 20:39 - [不烧钱的低成本爱好](http://www.blog.kurohicncr.top/Article/details/1529715.shtml)
-- 2026-06-29 20:38 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/946505.shtml)
-- 2026-06-29 20:30 - [伊朗足球队将启程回国](http://www.share.minike.top/Article/details/07785548376.shtml)
-- 2026-06-29 20:13 - [扬名立万](http://www.blog.minike.top/Article/details/01028.shtml)
-- 2026-06-29 20:40 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/76442730163.shtml)
-- 2026-06-29 20:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/6247374156.shtml)
+- 2026-06-29 20:47 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.minike.top/Article/details/78383.shtml)
+- 2026-06-29 20:20 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/68774504.shtml)
+- 2026-06-29 20:40 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/2909477.shtml)
+- 2026-06-29 20:42 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/1191882480.shtml)
+- 2026-06-29 20:45 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/165700617.shtml)
+- 2026-06-29 20:38 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/761797.shtml)
+- 2026-06-29 20:41 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/2995759.shtml)
+- 2026-06-29 20:24 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/888401104.shtml)
+- 2026-06-29 20:24 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/57823060.shtml)
+- 2026-06-29 20:40 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/46474131064.shtml)
+- 2026-06-29 20:29 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/3036501264.shtml)
+- 2026-06-29 20:20 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/66067515587.shtml)
+- 2026-06-29 20:19 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/22095924.shtml)
+- 2026-06-29 20:47 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/01316428179.shtml)
+- 2026-06-29 20:44 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/4184291.shtml)

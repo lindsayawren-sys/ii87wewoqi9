@@ -1,55 +1,60 @@
-# 民宿以“蛇很多”为由劝退预订客户 浙江淳安已立案并双倍赔付
+# 中国女乒3比0击败韩国队 晋级伦敦世乒赛女团四强
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-新华社杭州5月1日电 (记者郑可意)浙江淳安县文化和广电旅游体育局5月1日发布通报，就网络反映当地一民宿以“蛇很多”等不实理由强制要求顾客退单一事作出回应。目前，涉事民宿因涉嫌违反相关法律法规已被立案调查，消费者已获得双倍客房订单价款赔付。通报显示，2026年4月30日，网络出现淳安县民宿以“酒店劝退预订客户声称蛇很多”等不实理由强制要求顾客退单的信息。淳安县文化和广电旅游体育
+中新社伦敦5月7日电 (记者 欧阳开宇)当地时间5月7日，2026年世界乒乓球团体锦标赛女团四分之一决赛在英国伦敦打响，中国女乒以3比0完胜韩国队，晋级本届赛事女团四强。 本场对决，中国女乒派出王曼昱、孙颖莎、王艺迪三位主力出战，面对实力不俗的韩国女团，队员们发挥稳定、攻防有序，全程掌控比赛节奏。 首盘比赛，王曼昱对阵韩国选手申裕斌，她开局便迅速进入状态，凭借凌厉的进攻和严密的
 
 ## 正文
 
-新华社杭州5月1日电 (记者郑可意)浙江淳安县文化和广电旅游体育局5月1日发布通报，就网络反映当地一民宿以“蛇很多”等不实理由强制要求顾客退单一事作出回应。
+中新社伦敦5月7日电 (记者 欧阳开宇)当地时间5月7日，2026年世界乒乓球团体锦标赛女团四分之一决赛在英国伦敦打响，中国女乒以3比0完胜韩国队，晋级本届赛事女团四强。
 
-目前，涉事民宿因涉嫌违反相关法律法规已被立案调查，消费者已获得双倍客房订单价款赔付。
+本场对决，中国女乒派出王曼昱、孙颖莎、王艺迪三位主力出战，面对实力不俗的韩国女团，队员们发挥稳定、攻防有序，全程掌控比赛节奏。
 
-通报显示，2026年4月30日，网络出现淳安县民宿以“酒店劝退预订客户声称蛇很多”等不实理由强制要求顾客退单的信息。
+首盘比赛，王曼昱对阵韩国选手申裕斌，她开局便迅速进入状态，凭借凌厉的进攻和严密的防守，以11比1、11比4、11比4直落三局，轻松拿下首分，为中国队取得开门红。
 
-淳安县文化和广电旅游体育局随即组建工作组赴现场核查处置。
+次盘对决，孙颖莎迎战金娜英，比赛进程稍显波折。
 
-经县市场监督管理局现场调查，涉事民宿拒绝消费者正常入住的行为，涉嫌违反《中华人民共和国价格法》《明码标价和禁止价格欺诈规定》等法律法规，将依法进行立案调查。
+孙颖莎在先胜一局后，被对手连扳两局。
 
-同时，依据《淳安县星级旅游饭店消费纠纷赔偿指引》第三条“酒店违约取消客人预订的客房，客人可以选择要求酒店双倍返还客房订单价款”的规定，相关部门主动和客人取得联系，并通过政府资金池已赔付到位，切实保障消费者合法权益。
+关键时刻，孙颖莎及时调整战术、稳住心态，凭借扎实的基本功和强势的反手进攻，以11比4、11比9连赢两局，最终以3比2逆转取胜。
 
-通报说，下一步，将联合相关部门在全县住宿行业开展全覆盖排查整治，畅通投诉举报渠道，依法从严查处强制退单、恶意涨价、虚假宣传等侵害游客权益行为，坚决维护淳安旅游市场秩序。
+第三盘，王艺迪对阵朴佳贤，她打法强势、出手果断，以11比5、11比3轻松拿下前两局，第三局虽遭遇对手顽强抵抗以10比12惜败，但随即在第四局以11比2锁定胜局。
+
+最终，中国女乒以总比分3比0击败韩国队。
 
 ## 相关推荐
 
-- 2026-06-29 20:33 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 20:24 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 20:39 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 20:36 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 20:34 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 20:21 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 20:12 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 20:30 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 20:36 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 20:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 20:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 20:23 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 20:47 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 20:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 20:46 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 20:21 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 20:47 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 20:19 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 20:42 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 20:30 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 20:40 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 20:32 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 20:46 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 20:33 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 20:43 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:12 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/40608745136.shtml)
-- 2026-06-29 20:23 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/07550.shtml)
-- 2026-06-29 20:36 - [宜宾地震已转移安置225人](http://www.share.kurohicncr.top/Article/details/5421782.shtml)
-- 2026-06-29 20:29 - [MG总经理直播被冲](http://www.blog.kurohicncr.top/Article/details/944331.shtml)
-- 2026-06-29 20:38 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/0204961049.shtml)
-- 2026-06-29 20:14 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.kurohicncr.top/Article/details/982377.shtml)
-- 2026-06-29 20:18 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/1727477615.shtml)
-- 2026-06-29 20:29 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/59413848376.shtml)
-- 2026-06-29 20:34 - [RAY评乘风2026总决赛](https://www.blog.kurohicncr.top/Article/details/50636139120.shtml)
-- 2026-06-29 20:34 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/925777591.shtml)
-- 2026-06-29 20:27 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/52473284.shtml)
-- 2026-06-29 20:32 - [东方风云榜直播](http://www.share.minike.top/Article/details/19911816327.shtml)
-- 2026-06-29 20:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/929771607.shtml)
-- 2026-06-29 20:21 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.minike.top/Article/details/17308611.shtml)
-- 2026-06-29 20:25 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/883655712760.shtml)
+- 2026-06-29 20:22 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/00721710455.shtml)
+- 2026-06-29 20:39 - [85花告别古偶](https://www.share.minike.top/Article/details/1363735.shtml)
+- 2026-06-29 20:27 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/6311636691.shtml)
+- 2026-06-29 20:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/22524318875.shtml)
+- 2026-06-29 20:27 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/889475239848.shtml)
+- 2026-06-29 20:29 - [一见倾心](http://www.share.kurohicncr.top/Article/details/684460249.shtml)
+- 2026-06-29 20:26 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/6224582805.shtml)
+- 2026-06-29 20:45 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/203799345.shtml)
+- 2026-06-29 20:24 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/40628488605.shtml)
+- 2026-06-29 20:28 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/86204709278.shtml)
+- 2026-06-29 20:39 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/270159063288.shtml)
+- 2026-06-29 20:32 - [佛得角队长门德斯被控强奸](https://www.blog.minike.top/Article/details/8980329174.shtml)
+- 2026-06-29 20:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/1639241598.shtml)
+- 2026-06-29 20:38 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/43196.shtml)
+- 2026-06-29 20:20 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/9081103230.shtml)

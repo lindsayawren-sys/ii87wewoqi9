@@ -1,58 +1,52 @@
-# 伦敦世乒赛中国男、女队旗开得胜
+# 挪威方面逮捕一中国女子 中国外交部回应
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-新华社伦敦5月2日电(记者马邦杰、杭芮)伦敦世乒赛团体赛种子队排位赛2日开始，中国男、女队分别战胜东道主英格兰队和罗马尼亚队，取得“开门红”。 中国女队率先出战，孙颖莎、蒯曼和王艺迪全部以3:0战胜对手。第一个出场的孙颖莎首局比赛一度以5:9落后，随后她连赢5分，以10:9拿到局点，并以12:10赢下首局。 赛后，她表示比赛开始时有些紧张。她说：“每一届世乒赛的感觉都不一样，而
+中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。 有记者提问：7日，挪威方面逮捕了一名中国女子，并指控其收集卫星相关数据，这涉及欧洲的一个太空项目，中方对此有何回应？ 林剑：我不了解你提到的具体情况，中方坚决反对任何对中方的无端指责和恶意抹黑，相信挪威方面将切实保障中国公民的合法权益。(完)
 
 ## 正文
 
-新华社伦敦5月2日电(记者马邦杰、杭芮)伦敦世乒赛团体赛种子队排位赛2日开始，中国男、女队分别战胜东道主英格兰队和罗马尼亚队，取得“开门红”。
+中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。
 
-中国女队率先出战，孙颖莎、蒯曼和王艺迪全部以3:0战胜对手。
+有记者提问：7日，挪威方面逮捕了一名中国女子，并指控其收集卫星相关数据，这涉及欧洲的一个太空项目，中方对此有何回应？
 
-第一个出场的孙颖莎首局比赛一度以5:9落后，随后她连赢5分，以10:9拿到局点，并以12:10赢下首局。
+林剑：我不了解你提到的具体情况，中方坚决反对任何对中方的无端指责和恶意抹黑，相信挪威方面将切实保障中国公民的合法权益。
 
-赛后，她表示比赛开始时有些紧张。
-
-她说：“每一届世乒赛的感觉都不一样，而且今天也是第一个上场，整体还是会略微紧张一些。
-
-随着赛程的推进，我相信大家的状态都会越来越好。
-
-” 她认为，中国女队目前整体实力最强，但需要做好后面打困难比赛的准备。
-
-“这是最重要的。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:30 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 20:35 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 20:21 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 20:34 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 20:38 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 20:17 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 20:28 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 20:20 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 20:36 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 20:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 20:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 20:34 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 20:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 20:35 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 20:38 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 20:38 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 20:22 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 20:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 20:32 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 20:25 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 20:19 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 20:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 20:30 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 20:44 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 20:25 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 20:43 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:39 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/72378.shtml)
-- 2026-06-29 20:24 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/5909246409.shtml)
-- 2026-06-29 20:20 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/00107754185.shtml)
-- 2026-06-29 20:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/74644102038.shtml)
-- 2026-06-29 20:14 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/14236.shtml)
-- 2026-06-29 20:15 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/333318156.shtml)
-- 2026-06-29 20:18 - [东方风云榜直播](http://www.blog.minike.top/Article/details/15634793906.shtml)
-- 2026-06-29 20:37 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/31903.shtml)
-- 2026-06-29 20:30 - [AG 宫斗](https://www.share.minike.top/Article/details/86606751103.shtml)
-- 2026-06-29 20:27 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.kurohicncr.top/Article/details/3907131.shtml)
-- 2026-06-29 20:41 - [主力抛售电子和通信板块](http://www.share.minike.top/Article/details/575960.shtml)
-- 2026-06-29 20:18 - [店员光脚踩入盆中清洗土豆](https://www.share.kurohicncr.top/Article/details/8722954814.shtml)
-- 2026-06-29 20:15 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/0474374.shtml)
-- 2026-06-29 20:15 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/114205176425.shtml)
-- 2026-06-29 20:41 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/32947.shtml)
+- 2026-06-29 20:43 - [2026全国田径冠军赛江苏队4金收官](https://www.share.minike.top/Article/details/0120756757.shtml)
+- 2026-06-29 20:41 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/3323715.shtml)
+- 2026-06-29 20:32 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/938824216174.shtml)
+- 2026-06-29 20:28 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/883514.shtml)
+- 2026-06-29 20:39 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/018578886.shtml)
+- 2026-06-29 20:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/71105756267.shtml)
+- 2026-06-29 20:35 - [北京发布地质灾害气象风险蓝色预警](http://www.share.minike.top/Article/details/12643.shtml)
+- 2026-06-29 20:27 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.minike.top/Article/details/1454239.shtml)
+- 2026-06-29 20:24 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/524100678461.shtml)
+- 2026-06-29 20:40 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/792216.shtml)
+- 2026-06-29 20:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/1873284.shtml)
+- 2026-06-29 20:47 - [沉睡花园](https://www.blog.minike.top/Article/details/16788.shtml)
+- 2026-06-29 20:38 - [章若楠包场白敬亭特立独行](https://www.blog.kurohicncr.top/Article/details/00612434516.shtml)
+- 2026-06-29 20:43 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/0983032121.shtml)
+- 2026-06-29 20:20 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/21224654.shtml)

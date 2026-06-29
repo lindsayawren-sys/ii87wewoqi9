@@ -1,55 +1,51 @@
-# 浙江安吉：百年竹排再起航 串起文旅共富链
+# A股沪指翻红，超3700只个股上涨
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月01日 19:37 来源：中国新闻网 5月1日，浙江安吉再现传统水运方式“放簰”。这种将毛竹扎成“长龙”，由排工撑篙顺水而行的传统水运方式，在安吉被称为“放簰”，也叫“撑簰”。它曾是山区百姓重要的生计方式，也承载着“中国竹乡”与水路交通之间深厚的历史关系。 这项拥有250多年历史的运竹技艺曾面临失传，如今在杭垓镇和村村重获新生。杭垓镇和村村党委书记、村
+8日，A股三大指数早盘低开，午后上证指数翻红。全市超3700只个股上涨。 板块方面，商业航天概念股涨幅扩大，CPO、能源金属、黄金题材午后活跃。 (中新经纬微信公众号)
 
 ## 正文
 
-发布时间：2026年05月01日 19:37 来源：中国新闻网 5月1日，浙江安吉再现传统水运方式“放簰”。
+8日，A股三大指数早盘低开，午后上证指数翻红。
 
-这种将毛竹扎成“长龙”，由排工撑篙顺水而行的传统水运方式，在安吉被称为“放簰”，也叫“撑簰”。
+全市超3700只个股上涨。
 
-它曾是山区百姓重要的生计方式，也承载着“中国竹乡”与水路交通之间深厚的历史关系。
+板块方面，商业航天概念股涨幅扩大，CPO、能源金属、黄金题材午后活跃。
 
-这项拥有250多年历史的运竹技艺曾面临失传，如今在杭垓镇和村村重获新生。
-
-杭垓镇和村村党委书记、村委会主任李再清在接受采访时表示，后期计划用竹排作为交通工具串联3公里河道，打造网红打卡点，带动村民增收。
-
-此次“黄浦江源放簰文化体验活动”，既是对安吉传统水运文化的一次活态展示，也是安吉黄浦江源片区推动非遗传承、乡村文旅融合与地域文化传播的一次重要实践。
-
-(王宇鹄） 责任编辑：【李季】
+(中新经纬微信公众号)
 
 ## 相关推荐
 
-- 2026-06-29 20:30 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 20:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-29 20:20 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 20:13 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 20:18 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 20:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 20:18 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 20:36 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 20:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 20:22 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 20:34 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 20:22 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 20:30 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 20:34 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 20:41 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 20:22 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 20:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 20:33 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 20:41 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 20:32 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 20:24 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 20:35 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 20:18 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 20:37 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:39 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/6794264.shtml)
-- 2026-06-29 20:38 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/4022994.shtml)
-- 2026-06-29 20:24 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.kurohicncr.top/Article/details/6852260.shtml)
-- 2026-06-29 20:21 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/868850038.shtml)
-- 2026-06-29 20:28 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/74925379.shtml)
-- 2026-06-29 20:23 - [湖南耒阳“轮椅女孩”高考546分](https://www.share.minike.top/Article/details/01675257685.shtml)
-- 2026-06-29 20:40 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/351002708863.shtml)
-- 2026-06-29 20:19 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/226643670.shtml)
-- 2026-06-29 20:37 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/3772461324.shtml)
-- 2026-06-29 20:27 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/5561073.shtml)
-- 2026-06-29 20:38 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/208196810521.shtml)
-- 2026-06-29 20:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/2612004.shtml)
-- 2026-06-29 20:19 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/74552983.shtml)
-- 2026-06-29 20:23 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/23803622.shtml)
-- 2026-06-29 20:26 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/884985.shtml)
+- 2026-06-29 20:18 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/26655126.shtml)
+- 2026-06-29 20:34 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/70269660940.shtml)
+- 2026-06-29 20:26 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/9550362354.shtml)
+- 2026-06-29 20:33 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/3783535.shtml)
+- 2026-06-29 20:35 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/91412343.shtml)
+- 2026-06-29 20:23 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/03997.shtml)
+- 2026-06-29 20:27 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/8060297381.shtml)
+- 2026-06-29 20:26 - [周杰伦千禧年就有小卡了](https://www.blog.kurohicncr.top/Article/details/61183714.shtml)
+- 2026-06-29 20:27 - [黄金也扛不住了](http://www.share.minike.top/Article/details/16051.shtml)
+- 2026-06-29 20:38 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/569535.shtml)
+- 2026-06-29 20:32 - [半导体和股市为何没让韩国人起飞](https://www.share.kurohicncr.top/Article/details/5506311864.shtml)
+- 2026-06-29 20:27 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/8870680.shtml)
+- 2026-06-29 20:23 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/71560396.shtml)
+- 2026-06-29 20:27 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/5072481.shtml)
+- 2026-06-29 20:21 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.blog.kurohicncr.top/Article/details/0207838.shtml)

@@ -1,59 +1,46 @@
-# 杭州机器人展人气旺 “二次开发”打开科技文旅新空间
+# 训修实业将于6月8日派发末期股息每股0.027港元
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月2日电(蓝伊旎)“五一”假期，在杭州举办的2026未来机动纪元机器人展人气十足。展馆内，小学生天天头戴脑机接口头环、手部佩戴机械臂，全神贯注地盯着面前的零食，直到灵巧手仿佛“读”懂了他的心思，张开机械五指、稳稳抓起一包薯片。 这是一个缩影。这个假期，机器人主题展会等业态成为众多亲子家庭出游的新选择，越来越多人走进“科技+文旅”的沉浸式互动场景，感受前沿科技的魅力。
+训修实业（01962）发布公告，该公司将于2026年6月8日派发截至2025年12月31日止年度末期股息每股0.027港元。责任编辑：卢昱君
 
 ## 正文
 
-中新网杭州5月2日电(蓝伊旎)“五一”假期，在杭州举办的2026未来机动纪元机器人展人气十足。
+训修实业（01962）发布公告，该公司将于2026年6月8日派发截至2025年12月31日止年度末期股息每股0.027港元。
 
-展馆内，小学生天天头戴脑机接口头环、手部佩戴机械臂，全神贯注地盯着面前的零食，直到灵巧手仿佛“读”懂了他的心思，张开机械五指、稳稳抓起一包薯片。
-
-这是一个缩影。
-
-这个假期，机器人主题展会等业态成为众多亲子家庭出游的新选择，越来越多人走进“科技+文旅”的沉浸式互动场景，感受前沿科技的魅力。
-
-“脑控”赛车、机器狗足球赛、机器人拳击对抗......展会现场，各类互动项目吸引着参观者驻足体验。
-
-13岁的史瀚宇兴奋地说，自己观看春晚的机器人表演后便念念不忘，这次专程体验了人机对弈等项目，“第一次和机器人下棋，它的棋路让我完全猜不到！
-
-” “电商平台上开售一小时，门票就卖出了几千张，足以看见市场的热情。
-
-”杭州星枢智能机器人有限公司CBO严梅认为，如今消费者对机器人的关注早已不满足于远观，可触摸、可互动的沉浸式体验正愈发受到青睐。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:15 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 20:16 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 20:40 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 20:20 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 20:25 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 20:32 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 20:33 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 20:28 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 20:19 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 20:17 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 20:34 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 20:25 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 20:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 20:27 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 20:31 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 20:39 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 20:27 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 20:32 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 20:43 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 20:47 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 20:44 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 20:47 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 20:46 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 20:36 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 20:24 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:15 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/174419060.shtml)
-- 2026-06-29 20:39 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/6426596.shtml)
-- 2026-06-29 20:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/5157650.shtml)
-- 2026-06-29 20:38 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/2500742035.shtml)
-- 2026-06-29 20:13 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/9943008174.shtml)
-- 2026-06-29 20:21 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/43244.shtml)
-- 2026-06-29 20:33 - [厨房装空调还是装冷烟机](https://www.share.kurohicncr.top/Article/details/4442692758.shtml)
-- 2026-06-29 20:36 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/469522604732.shtml)
-- 2026-06-29 20:21 - [林逸向方筱然求婚了](https://www.blog.minike.top/Article/details/53697065.shtml)
-- 2026-06-29 20:15 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/00249115.shtml)
-- 2026-06-29 20:37 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/29815.shtml)
-- 2026-06-29 20:38 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/648899558.shtml)
-- 2026-06-29 20:41 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/45909.shtml)
-- 2026-06-29 20:25 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/1202935785.shtml)
-- 2026-06-29 20:12 - [张杰我九岁就跟你了](https://www.blog.kurohicncr.top/Article/details/97286265414.shtml)
+- 2026-06-29 20:22 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/248956624.shtml)
+- 2026-06-29 20:37 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/009818812357.shtml)
+- 2026-06-29 20:43 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/2900725058.shtml)
+- 2026-06-29 20:34 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/9507294.shtml)
+- 2026-06-29 20:37 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.kurohicncr.top/Article/details/24962476033.shtml)
+- 2026-06-29 20:37 - [TTG KSG](https://www.share.minike.top/Article/details/853825034.shtml)
+- 2026-06-29 20:40 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/75909.shtml)
+- 2026-06-29 20:20 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/939145186373.shtml)
+- 2026-06-29 20:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/042932301928.shtml)
+- 2026-06-29 20:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/121876.shtml)
+- 2026-06-29 20:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/218024.shtml)
+- 2026-06-29 20:32 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/58661554.shtml)
+- 2026-06-29 20:19 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/863044.shtml)
+- 2026-06-29 20:45 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/6920178381.shtml)
+- 2026-06-29 20:21 - [逃狱兄弟](http://www.blog.minike.top/Article/details/85037.shtml)

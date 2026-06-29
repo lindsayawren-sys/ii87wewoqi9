@@ -1,61 +1,53 @@
-# “世界看见惠安——惠女繁花嘉年华”主题晚会绽放国际交流光彩
+# “五一”假期 中越边境河口口岸出入境人数超8万人次
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新网福建惠安5月2日电 (记者 孙虹)今年“五一”期间，侨乡福建惠安县延续“惠女风情推介年”主线，开展“惠女繁花嘉年华”系列活动。“世界看见惠安——惠女繁花嘉年华”主题晚会1日晚在崇武古城精彩上演，汇聚两岸亲情、民族交融、中外互鉴，推动非遗活化、文旅融合与民间友好交流再上新台阶。 灯光流转、乐声悠扬，惠安女服饰年度回顾大秀于此间惊艳亮相，集中呈现去年以来惠女文化从国内走向国际
+据河口出入境边防检查站通报，今年“五一”假期，河口口岸出入境人数达8.8万人次，同比增长2%。由于“五一”假期国内旅游人数和消费均有提升，加之越南本土假期在“五一”假期前便已开启，许多越南旅客纷纷选择错峰来华旅行。河口口岸在4月25日和30日均迎来越南旅游团入境高峰，共计有430个团7709人次入境，较去年同期分别增长59.8%和36.4%。作者：曾维 张航 彭正 摄制：赵国骁
 
 ## 正文
 
-中新网福建惠安5月2日电 (记者 孙虹)今年“五一”期间，侨乡福建惠安县延续“惠女风情推介年”主线，开展“惠女繁花嘉年华”系列活动。
+据河口出入境边防检查站通报，今年“五一”假期，河口口岸出入境人数达8.8万人次，同比增长2%。
 
-“世界看见惠安——惠女繁花嘉年华”主题晚会1日晚在崇武古城精彩上演，汇聚两岸亲情、民族交融、中外互鉴，推动非遗活化、文旅融合与民间友好交流再上新台阶。
+由于“五一”假期国内旅游人数和消费均有提升，加之越南本土假期在“五一”假期前便已开启，许多越南旅客纷纷选择错峰来华旅行。
 
-灯光流转、乐声悠扬，惠安女服饰年度回顾大秀于此间惊艳亮相，集中呈现去年以来惠女文化从国内走向国际的经典造型。
+河口口岸在4月25日和30日均迎来越南旅游团入境高峰，共计有430个团7709人次入境，较去年同期分别增长59.8%和36.4%。
 
-惠安女服饰以鲜明的海洋特色、精巧的非遗技艺，成为传播中华传统文化、讲好中国故事的鲜活载体。
-
-现场观众在流光溢彩中沉浸式感受千年非遗的匠心传承与时尚表达，掌声接连不断。
-
-在中国，向海而生、坚韧担当的惠安女享誉海内外；在韩国，传承百年、踏浪耕海的济州岛海女文化被列入联合国教科文组织人类非物质文化遗产名录。
-
-两种海洋女性文化跨越山海在舞台上温情相遇，展开文化交流与文明互鉴。
-
-“济州岛海女和惠安女都是在大海里拼搏求生的女性代表，有很多相似的地方，美丽、勇敢、坚强，都深受大家喜欢。
+作者：曾维 张航 彭正 摄制：赵国骁 画面来源：河口出入境边防检查站
 
 ## 相关推荐
 
-- 2026-06-29 20:29 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 20:20 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 20:20 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 20:19 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 20:34 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 20:19 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 20:12 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 20:33 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 20:20 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 20:15 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 20:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 20:20 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 20:27 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 20:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 20:24 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 20:27 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 20:34 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 20:27 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 20:25 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 20:41 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 20:42 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 20:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 20:19 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 20:32 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 20:24 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 20:35 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 20:43 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 20:18 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 20:22 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 20:39 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:24 - [欧洲极端高温如何影响家电股](http://www.share.minike.top/Article/details/846474.shtml)
-- 2026-06-29 20:34 - [铜价上涨 日本住宅水表失窃严重](https://www.share.kurohicncr.top/Article/details/41008025.shtml)
-- 2026-06-29 20:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/15575376.shtml)
-- 2026-06-29 20:20 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/310869.shtml)
-- 2026-06-29 20:32 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/04585.shtml)
-- 2026-06-29 20:25 - [毒液2](http://www.share.minike.top/Article/details/952248670.shtml)
-- 2026-06-29 20:35 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/63844185.shtml)
-- 2026-06-29 20:19 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/955400622160.shtml)
-- 2026-06-29 20:40 - [Ella回应SHE何时合体](http://www.blog.kurohicncr.top/Article/details/790546049.shtml)
-- 2026-06-29 20:29 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/2134876526.shtml)
-- 2026-06-29 20:18 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/58034175794.shtml)
-- 2026-06-29 20:37 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/55885725761.shtml)
-- 2026-06-29 20:20 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/34000.shtml)
-- 2026-06-29 20:33 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/8432429699.shtml)
-- 2026-06-29 20:41 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/7053200.shtml)
+- 2026-06-29 20:37 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/8010642.shtml)
+- 2026-06-29 20:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/1664748670.shtml)
+- 2026-06-29 20:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/4557414097.shtml)
+- 2026-06-29 20:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/611526063538.shtml)
+- 2026-06-29 20:23 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/246200169.shtml)
+- 2026-06-29 20:44 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/75856130.shtml)
+- 2026-06-29 20:40 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/07239990255.shtml)
+- 2026-06-29 20:45 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/85374.shtml)
+- 2026-06-29 20:24 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/0280982221.shtml)
+- 2026-06-29 20:26 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/08365759325.shtml)
+- 2026-06-29 20:37 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/4404524622.shtml)
+- 2026-06-29 20:38 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/419987.shtml)
+- 2026-06-29 20:29 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/06906084163.shtml)
+- 2026-06-29 20:21 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/9258578.shtml)
+- 2026-06-29 20:34 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/59289.shtml)

@@ -1,56 +1,58 @@
-# 西藏首部农业文化遗产名录书籍出版发布
+# 科普供需精准对接：群众“点单” 专家“上菜”
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新网拉萨4月30日电(记者 赵朗)《赓续农耕文明——西藏农业文化遗产名录》新书发布会30日在拉萨举行。 西藏自治区农业农村厅党组成员、副厅长蒲正学介绍，西藏历史悠久，农业文化遗产资源丰富。《赓续农耕文明——西藏农业文化遗产名录》一书收录了西藏28项农业文化遗产，涵盖了传统种植、养殖、灌溉、农文融合经营等多种类型，每一处遗产都凝聚着西藏各族群众的智慧结晶。其中，西藏乃东青稞种植
+基层服务沉下去 科普质效提上来(深阅读) “十五五”规划纲要提出，加强科学技术普及，培育创新文化，弘扬科学家精神。 提升全民科学素养、培育科技创新土壤，离不开基层科普服务能力的持续增强。江西赣州“科普村响”让科普知识进村入户，湖北宜昌“点单式”预约实现精准输送，贵州黔南“云课堂”连接偏远学校……多地积极创新科普服务模式，实现科普供需精准对接，不断筑牢全民科学素质根基。 ——编者
 
 ## 正文
 
-中新网拉萨4月30日电(记者 赵朗)《赓续农耕文明——西藏农业文化遗产名录》新书发布会30日在拉萨举行。
+基层服务沉下去 科普质效提上来(深阅读) “十五五”规划纲要提出，加强科学技术普及，培育创新文化，弘扬科学家精神。
 
-西藏自治区农业农村厅党组成员、副厅长蒲正学介绍，西藏历史悠久，农业文化遗产资源丰富。
+提升全民科学素养、培育科技创新土壤，离不开基层科普服务能力的持续增强。
 
-《赓续农耕文明——西藏农业文化遗产名录》一书收录了西藏28项农业文化遗产，涵盖了传统种植、养殖、灌溉、农文融合经营等多种类型，每一处遗产都凝聚着西藏各族群众的智慧结晶。
+江西赣州“科普村响”让科普知识进村入户，湖北宜昌“点单式”预约实现精准输送，贵州黔南“云课堂”连接偏远学校……多地积极创新科普服务模式，实现科普供需精准对接，不断筑牢全民科学素质根基。
 
-其中，西藏乃东青稞种植系统、西藏当雄高寒游牧文化系统、西藏工布江达藏猪养殖系统、西藏芒康传统葡萄栽培系统等4项入选中国重要农业文化遗产；亚东帕里牦牛养殖系统、波密易贡茶文化系统等24项具有代表性的西藏重要农业文化遗产资源，兼具极高的生态价值与深厚的文化内涵，已成为推进西藏乡村全面振兴的重要依托。
+——编者“科普村响”，优质内容直达乡村 “你看这苗出得多齐整。
 
-西藏自治区农科院副院长、西藏农业文化遗产专家库专家巴桑旺堆表示，西藏农业文化遗产的独特性在于它的高原性、多样性与活态性的统一。
+”稻田里，江西省赣州市章贡区沙石镇王田村种粮大户邱昌铎拨开嫩绿的秧苗说，“这广播啊，真管用！
 
-在世界上海拔最高的青藏高原上的极端环境下，藏族和世居高原的其他民族先民，共同创造了适应高海拔、强辐射、干旱寒冷的自然、气候条件的高原农业、高寒游牧、农业灌溉等独特农牧业技术体系，以及由此传承发展的高原文化景观。
+”原来，今年早稻种植比往年提前了二十来天，选什么稻种，让他有些发愁。
 
-此次发布会上，西藏自治区农业农村厅向西藏农牧大学、西藏图书馆、西藏牦牛博物馆，拉萨市、山南市农业农村局捐赠《赓续农耕文明——西藏农业文化遗产名录》；中国农业出版社向西藏农牧大学、西藏职业技术学院、日喀则市职业技术学院捐赠农业科技图书；中华农业科教基金会与西藏农牧大学签订《农科优秀学生奖学金资助项目协议》。
+恰好“村响”广播针对性推出“乡村科普大课堂”，指导农户如何选种，一下子解了邱昌铎的难题。
 
-(完)
+“乡村科普大课堂”是章贡区“村响”广播的重要内容之一，也是当地构建乡村科普服务体系的一个缩影。
 
 ## 相关推荐
 
-- 2026-06-29 20:21 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 20:37 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 20:28 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 20:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 20:41 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 20:24 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 20:38 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 20:18 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 20:34 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 20:19 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 20:39 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 20:30 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 20:30 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 20:37 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 20:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 20:18 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 20:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 20:24 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 20:29 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 20:35 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 20:48 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 20:19 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:32 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/83174830.shtml)
-- 2026-06-29 20:34 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/11177.shtml)
-- 2026-06-29 20:41 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/370737.shtml)
-- 2026-06-29 20:20 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/353678471.shtml)
-- 2026-06-29 20:17 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/45232915958.shtml)
-- 2026-06-29 20:30 - [葛军透露高考出题思路](http://www.blog.kurohicncr.top/Article/details/0023851356.shtml)
-- 2026-06-29 20:35 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/646239190.shtml)
-- 2026-06-29 20:25 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/83331750200.shtml)
-- 2026-06-29 20:27 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/3552630.shtml)
-- 2026-06-29 20:34 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/384667.shtml)
-- 2026-06-29 20:28 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/22929762.shtml)
-- 2026-06-29 20:35 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/615475.shtml)
-- 2026-06-29 20:17 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.kurohicncr.top/Article/details/14508.shtml)
-- 2026-06-29 20:41 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/157952745718.shtml)
-- 2026-06-29 20:30 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.minike.top/Article/details/2552189.shtml)
+- 2026-06-29 20:34 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/20862.shtml)
+- 2026-06-29 20:34 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/0906678.shtml)
+- 2026-06-29 20:20 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/8909172.shtml)
+- 2026-06-29 20:31 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/70788892.shtml)
+- 2026-06-29 20:44 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/62587589134.shtml)
+- 2026-06-29 20:37 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/6423777.shtml)
+- 2026-06-29 20:27 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/16957221698.shtml)
+- 2026-06-29 20:35 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/705048.shtml)
+- 2026-06-29 20:41 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/0377680282.shtml)
+- 2026-06-29 20:42 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/759624.shtml)
+- 2026-06-29 20:30 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.minike.top/Article/details/4916771.shtml)
+- 2026-06-29 20:27 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/087189590180.shtml)
+- 2026-06-29 20:27 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/8343719444.shtml)
+- 2026-06-29 20:34 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/953285.shtml)
+- 2026-06-29 20:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/21075059431.shtml)

@@ -1,55 +1,56 @@
-# 泰国智能设备出口额大幅增长
+# 美军再瘫痪两艘伊朗籍船只
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新社曼谷5月3日电（记者李映民）泰国商业部贸易政策与战略办公室3日公布数据，2025年泰国智能设备产业的国内市场规模达到125.75亿美元，2017年至2025年间年均增长率达到11.68%。 出口方面，2025年泰国智能穿戴设备出口额达5.17亿美元，同比增长16.38%；智能家居产品出口额高达191.7亿美元，同比增长86.49%。泰国已成为全球第九大智能设备出口国。 进
+美军在霍尔木兹海峡附近发动一轮打击，向两艘伊朗籍船只开火，称其违反了美国实施的海上封锁令。 负责指挥美国中东军事行动的美国中央司令部表示，两艘空载油轮企图驶入阿曼湾的伊朗港口，美军已将其瘫痪。 美国中央司令部周五通报，一架从航空母舰起飞的美军战斗机，向两艘油轮的烟囱发射精确弹药，致使两艘油轮失去航行能力，阻止这些违规船只驶入伊朗。 昨日，美伊双方在霍尔木兹海峡发生交火，令本就脆
 
 ## 正文
 
-中新社曼谷5月3日电（记者李映民）泰国商业部贸易政策与战略办公室3日公布数据，2025年泰国智能设备产业的国内市场规模达到125.75亿美元，2017年至2025年间年均增长率达到11.68%。
+美军在霍尔木兹海峡附近发动一轮打击，向两艘伊朗籍船只开火，称其违反了美国实施的海上封锁令。
 
-出口方面，2025年泰国智能穿戴设备出口额达5.17亿美元，同比增长16.38%；智能家居产品出口额高达191.7亿美元，同比增长86.49%。
+负责指挥美国中东军事行动的美国中央司令部表示，两艘空载油轮企图驶入阿曼湾的伊朗港口，美军已将其瘫痪。
 
-泰国已成为全球第九大智能设备出口国。
+美国中央司令部周五通报，一架从航空母舰起飞的美军战斗机，向两艘油轮的烟囱发射精确弹药，致使两艘油轮失去航行能力，阻止这些违规船只驶入伊朗。
 
-进口方面，2025年泰国智能穿戴设备进口额达6.59亿美元，同比增长9.33%；智能家居产品进口额达42.24亿美元，同比增长25.38%。
+昨日，美伊双方在霍尔木兹海峡发生交火，令本就脆弱的停火局势进一步紧张。
 
-泰国商业部贸易政策与战略办公室分析认为，推动智能设备产业增长的主要因素包括节能趋势、5G与数字基础设施扩张、老龄化社会发展、减碳政策、智能零部件标准化以及城市化加速等。
+早在5月6日，美军就已瘫痪另一艘伊朗籍空载油轮。
 
-该办公室认为，如果能够持续完善产业链并推动技术升级，智能设备产业未来不仅能增强泰国数字经济竞争力，也有望成为推动制造业与出口增长的新引擎。
+美国中央司令部称：涉事三艘船只目前均已无法驶往伊朗。
 
-（完）
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 20:19 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 20:34 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 20:22 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 20:30 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 20:24 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 20:17 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 20:30 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 20:26 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 20:32 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 20:23 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 20:38 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 20:31 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 20:44 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 20:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 20:24 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 20:26 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 20:33 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 20:39 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 20:19 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 20:28 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 20:22 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 20:35 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:32 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/64417069175.shtml)
-- 2026-06-29 20:18 - [周生如故](https://www.blog.kurohicncr.top/Article/details/613206.shtml)
-- 2026-06-29 20:29 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/421746504479.shtml)
-- 2026-06-29 20:28 - [恋与深空制作组回应争议](https://www.share.kurohicncr.top/Article/details/8826705.shtml)
-- 2026-06-29 20:13 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/95543.shtml)
-- 2026-06-29 20:29 - [中方向委方追加1亿元援助](https://www.share.minike.top/Article/details/8162791.shtml)
-- 2026-06-29 20:22 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/714446.shtml)
-- 2026-06-29 20:23 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/02134332.shtml)
-- 2026-06-29 20:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/51069947029.shtml)
-- 2026-06-29 20:17 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/83153386049.shtml)
-- 2026-06-29 20:33 - [美人鱼](https://www.share.kurohicncr.top/Article/details/50852774.shtml)
-- 2026-06-29 20:36 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/559689.shtml)
-- 2026-06-29 20:39 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/00122.shtml)
-- 2026-06-29 20:24 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/139968735.shtml)
-- 2026-06-29 20:29 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/290478802.shtml)
+- 2026-06-29 20:31 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/2977079189.shtml)
+- 2026-06-29 20:42 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/99821.shtml)
+- 2026-06-29 20:39 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/0196389387.shtml)
+- 2026-06-29 20:40 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/83327298.shtml)
+- 2026-06-29 20:29 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/87409.shtml)
+- 2026-06-29 20:43 - [千与千寻](http://www.blog.minike.top/Article/details/91956926.shtml)
+- 2026-06-29 20:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/242280328952.shtml)
+- 2026-06-29 20:47 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/5564021604.shtml)
+- 2026-06-29 20:33 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/843718008.shtml)
+- 2026-06-29 20:27 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/8599308.shtml)
+- 2026-06-29 20:28 - [美以这对亲密盟友要掰了吗](http://www.blog.kurohicncr.top/Article/details/889244426.shtml)
+- 2026-06-29 20:37 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/028537.shtml)
+- 2026-06-29 20:28 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/17673971178.shtml)
+- 2026-06-29 20:28 - [千与千寻](http://www.share.minike.top/Article/details/646640.shtml)
+- 2026-06-29 20:37 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/5675885836.shtml)

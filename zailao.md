@@ -1,48 +1,60 @@
-# 民生保险临汾中心支公司被罚13万元：给予投保人合同约定以外的保险费回扣等
+# 天气渐热警惕蛇类活动 遇到千万别徒手抓
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-4月30日金融一线消息，据国家金融监督管理总局临汾监管分局行政处罚信息公开表显示，民生人寿保险股份有限公司临汾中心支公司因给予或者承诺给予投保人、被保险人、受益人保险合同约定以外的保险费回扣或者其他利益，被责令改正，罚款13万元。 同时，倪志乾（时任民生人寿保险股份有限公司临汾中心支公司总经理）因对民生人寿保险股份有限公司临汾中心支公司给予或者承诺给予投保人、被保险人、受益人保
+随着气温越来越高，蛇虫鼠蚁的活动更加频繁。近日，在云南红河州弥勒市，一条菜花蛇就爬进了居民家的阳台里，消防接警后，迅速赶到现场处置。 消防员到达现场后，先对阳台的杂物进行了清理，然后拿上工具开始捕蛇。经过一番搜寻，在闲置的婴儿车内发现了一条体色发黄的菜花蛇。 两名消防员默契配合，一人用捕蛇钳控制蛇身中段，另一人夹住蛇的七寸，顺利将蛇装入捕蛇笼。 据了解，这条菜花蛇是从二楼阳台爬
 
 ## 正文
 
-4月30日金融一线消息，据国家金融监督管理总局临汾监管分局行政处罚信息公开表显示，民生人寿保险股份有限公司临汾中心支公司因给予或者承诺给予投保人、被保险人、受益人保险合同约定以外的保险费回扣或者其他利益，被责令改正，罚款13万元。
+随着气温越来越高，蛇虫鼠蚁的活动更加频繁。
 
-同时，倪志乾（时任民生人寿保险股份有限公司临汾中心支公司总经理）因对民生人寿保险股份有限公司临汾中心支公司给予或者承诺给予投保人、被保险人、受益人保险合同约定以外的保险费回扣或者其他利益的行为负有责任，被警告，罚款4万元。
+近日，在云南红河州弥勒市，一条菜花蛇就爬进了居民家的阳台里，消防接警后，迅速赶到现场处置。
 
-责任编辑：秦艺
+消防员到达现场后，先对阳台的杂物进行了清理，然后拿上工具开始捕蛇。
+
+经过一番搜寻，在闲置的婴儿车内发现了一条体色发黄的菜花蛇。
+
+两名消防员默契配合，一人用捕蛇钳控制蛇身中段，另一人夹住蛇的七寸，顺利将蛇装入捕蛇笼。
+
+据了解，这条菜花蛇是从二楼阳台爬进三楼住户家中的，目前已交由当地森林公安处理。
+
+两条菜花蛇钻进民居 消防抓捕后放生 前两天，广西北海市一户居民家里也钻进了两条菜花蛇，消防接警后，赶到现场处置。
+
+当时，这两条菜花蛇盘踞在房屋的角落里，旁边有一只蟾蜍，消防推测它们是为了捕食猎物而来的。
 
 ## 相关推荐
 
-- 2026-06-29 20:33 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 20:35 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 20:25 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 20:28 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 20:41 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 20:25 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 20:15 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 20:24 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 20:27 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 20:15 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 20:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 20:36 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 20:41 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 20:41 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 20:40 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 20:43 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 20:18 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 20:41 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 20:44 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 20:36 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 20:18 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 20:41 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 20:45 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 20:34 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 20:41 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 20:24 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:12 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/08545199.shtml)
-- 2026-06-29 20:24 - [天道](http://www.share.minike.top/Article/details/696363927373.shtml)
-- 2026-06-29 20:30 - [周杰伦演唱会含星量](https://www.blog.kurohicncr.top/Article/details/6614047210.shtml)
-- 2026-06-29 20:37 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/8223359284.shtml)
-- 2026-06-29 20:33 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/58196.shtml)
-- 2026-06-29 20:20 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/463646.shtml)
-- 2026-06-29 20:23 - [极限挑战第一季](https://www.blog.minike.top/Article/details/7736419.shtml)
-- 2026-06-29 20:35 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/45528.shtml)
-- 2026-06-29 20:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/49820545513.shtml)
-- 2026-06-29 20:37 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/27302.shtml)
-- 2026-06-29 20:28 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/66425.shtml)
-- 2026-06-29 20:39 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/67805977685.shtml)
-- 2026-06-29 20:24 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/4862997042.shtml)
-- 2026-06-29 20:35 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/14281262.shtml)
-- 2026-06-29 20:16 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.kurohicncr.top/Article/details/45353280970.shtml)
+- 2026-06-29 20:18 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/656540.shtml)
+- 2026-06-29 20:38 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/8737124.shtml)
+- 2026-06-29 20:39 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/097363537172.shtml)
+- 2026-06-29 20:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/619578.shtml)
+- 2026-06-29 20:31 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/97314098919.shtml)
+- 2026-06-29 20:33 - [乌是否掌握了扭转战局的钥匙](http://www.share.kurohicncr.top/Article/details/41650377263.shtml)
+- 2026-06-29 20:36 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/296250.shtml)
+- 2026-06-29 20:23 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/349291646.shtml)
+- 2026-06-29 20:46 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/5191188.shtml)
+- 2026-06-29 20:23 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/3780782541.shtml)
+- 2026-06-29 20:28 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/37898974.shtml)
+- 2026-06-29 20:42 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/33146632.shtml)
+- 2026-06-29 20:27 - [章若楠包场白敬亭特立独行](https://www.blog.kurohicncr.top/Article/details/74062457.shtml)
+- 2026-06-29 20:27 - [恋与深空各大应用商店评分](http://www.share.kurohicncr.top/Article/details/11887.shtml)
+- 2026-06-29 20:20 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/56399.shtml)

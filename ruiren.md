@@ -1,57 +1,60 @@
-# 2026“购在中国”国际消费季暨第七届上海“五五购物节”启动
+# 投资大佬：新任美联储主席或放弃降息甚至考虑加息
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新网上海5月1日电 (李秋莹)4月30日晚，由商务部、中央广播电视总台、上海市人民政府联合主办的2026“购在中国”国际消费季(上海站)暨第七届上海“五五购物节”启动。仪式现场，10家重点企业发布一系列促消费举措，覆盖衣食住行、吃喝玩乐等各个方面，满足市民多层次消费需求。 活动现场还举行了第五届国际消费中心城市论坛，商务部部长王文涛表示，5年来，国际消费中心城市培育建设取得积
+汇通财经APP讯——美国知名资深投资人公开抛出重磅观点，预判即将上任的美联储新任主席不会推行降息举措，反而存在启动加息的可能性。当前美联储基准利率维持高位不变，内部政策分歧达到近三十四年峰值，叠加通胀居高不下、外部地缘局势与关税政策扰动市场，美联储利率走向变得扑朔迷离，市场对年内货币政策的博弈也愈发激烈。 投资大佬直言新任美联储主席降息无望 知名投资人保罗·都铎·琼斯（Paul
 
 ## 正文
 
-中新网上海5月1日电 (李秋莹)4月30日晚，由商务部、中央广播电视总台、上海市人民政府联合主办的2026“购在中国”国际消费季(上海站)暨第七届上海“五五购物节”启动。
+汇通财经APP讯——美国知名资深投资人公开抛出重磅观点，预判即将上任的美联储新任主席不会推行降息举措，反而存在启动加息的可能性。
 
-仪式现场，10家重点企业发布一系列促消费举措，覆盖衣食住行、吃喝玩乐等各个方面，满足市民多层次消费需求。
+当前美联储基准利率维持高位不变，内部政策分歧达到近三十四年峰值，叠加通胀居高不下、外部地缘局势与关税政策扰动市场，美联储利率走向变得扑朔迷离，市场对年内货币政策的博弈也愈发激烈。
 
-活动现场还举行了第五届国际消费中心城市论坛，商务部部长王文涛表示，5年来，国际消费中心城市培育建设取得积极进展，消费引领和示范带动作用持续增强，全球影响力显著提升。
+投资大佬直言新任美联储主席降息无望 知名投资人保罗·都铎·琼斯（Paul Tudor Jones）在周四（5月7日）公开发表观点表示，即将履新的美联储主席凯文·沃什（Kevin Warsh）并不会倾向于降息政策，从政策倾向来看，其甚至有可能把加息纳入考量范围。
 
-中央广播电视总台副台长余俊生表示，中央广播电视总台连续七年携手商务部及各地方政府，创新打造“全国消费促进月”、京津冀消费季、上海“五五购物节”、大湾区消费季等特色活动，有力提振消费信心。
+保罗·都铎·琼斯表示，自己完全不认为新任美联储主席会推出降息举措，这种可能性几乎不存在。
 
-总台将进一步深化与各方协作，助力构建全球联通、全民共享、全龄友好、全时活跃、全景呈现的现代化消费体系。
+凯文·沃什（Kevin Warsh）此前早已公开表达自身立场，明确认为美联储应当适时考虑下调基准利率。
 
-西班牙巴塞罗那市副市长拉克尔·希尔在视频致辞中表示，巴塞罗那与上海保持着密切的机构交流和商贸往来，今年，是两市缔结友好城市关系25周年。
+现阶段美联储基准隔夜利率维持在3.5%至3.75%区间，自2025年12月起便一直保持这一水平，未有调整。
 
-巴塞罗那是一座向世界开放的城市，2026年被评为“欧洲本地商业之都”，经验表明，一座国际化城市懂得守护自己的独特之处，就会更具竞争力。
+美联储内部分歧加剧 政策推行阻力重重 虽然沃什本身倾向于走货币宽松、降息调控的路线，但他上任后将要面对的联邦公开市场委员会在刚刚落幕的议息会议上创下了近34年来最多异议投票纪录。
 
-据悉，2026国际消费季是商务部“购在中国”系列重点专题活动，以“在中国、购全球”为目标，汇聚国际精品、国货潮品、时尚名品，优化消费环境、创新消费场景，推动消费提质升级、扩大入境消费。
+多数反对声音来自各地区联储主席，他们对会议结束后发布的政策声明措辞持有不同意见。
 
 ## 相关推荐
 
-- 2026-06-29 20:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 20:33 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 20:12 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 20:13 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 20:24 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 20:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 20:24 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 20:17 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-29 20:38 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 20:21 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 20:17 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 20:23 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 20:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 20:31 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 20:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 20:22 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 20:20 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 20:30 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 20:32 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 20:18 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 20:27 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 20:25 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 20:27 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 20:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 20:35 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:31 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/487259.shtml)
-- 2026-06-29 20:37 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/41571.shtml)
-- 2026-06-29 20:37 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/03884.shtml)
-- 2026-06-29 20:15 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/5984700.shtml)
-- 2026-06-29 20:26 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/569897463.shtml)
-- 2026-06-29 20:26 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/532204791.shtml)
-- 2026-06-29 20:14 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/846911531.shtml)
-- 2026-06-29 20:29 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/59325613.shtml)
-- 2026-06-29 20:39 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/62866339.shtml)
-- 2026-06-29 20:22 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/39125363016.shtml)
-- 2026-06-29 20:32 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/410860897.shtml)
-- 2026-06-29 20:19 - [女心理师](https://www.share.kurohicncr.top/Article/details/2364027.shtml)
-- 2026-06-29 20:22 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/12473937161.shtml)
-- 2026-06-29 20:38 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/76135714.shtml)
-- 2026-06-29 20:39 - [海清4次陪跑白玉兰](http://www.share.kurohicncr.top/Article/details/785911.shtml)
+- 2026-06-29 20:24 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/81841.shtml)
+- 2026-06-29 20:24 - [李思潼：不会介意大家夸我运气好](http://www.blog.kurohicncr.top/Article/details/417095832981.shtml)
+- 2026-06-29 20:37 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/93949773806.shtml)
+- 2026-06-29 20:23 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/61499731.shtml)
+- 2026-06-29 20:26 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/042844491386.shtml)
+- 2026-06-29 20:34 - [一生一世](https://www.blog.kurohicncr.top/Article/details/90454136.shtml)
+- 2026-06-29 20:19 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/1737268.shtml)
+- 2026-06-29 20:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/33746356.shtml)
+- 2026-06-29 20:43 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/15188695.shtml)
+- 2026-06-29 20:46 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.minike.top/Article/details/2119615.shtml)
+- 2026-06-29 20:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/703266343.shtml)
+- 2026-06-29 20:42 - [一诺变着花样秀新驾照](http://www.blog.kurohicncr.top/Article/details/2997124907.shtml)
+- 2026-06-29 20:23 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/5924389.shtml)
+- 2026-06-29 20:38 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/359097421007.shtml)
+- 2026-06-29 20:42 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/656300207.shtml)

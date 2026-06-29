@@ -1,61 +1,61 @@
-# 布伦特原油因美伊局势升级担忧触及126美元，此后回吐涨幅
+# NOAA拨款2160万美元采购无人船艇，助力新一代海图测绘
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-周四，在布伦特原油触及四年高点后不久，油价转为下跌。此前有报道称，美国军方将就针对伊朗的潜在行动向总统特朗普作简报。 Axios援引两位知情人士报道称，美国中央司令部准备向特朗普提交可能对伊朗采取军事行动的计划。 据报道，特朗普此前拒绝了德黑兰方面关于重新开放霍尔木兹海峡的提议，表明在达成更广泛的核协议之前，海上封锁将继续维持。 国际基准布伦特原油期货一度升至126美元/桶的战
+美国国家海洋和大气管理局宣布拨款2160万美元，用于采购无人船艇系统，配备至该局正在建造的新型海图测绘船上。此举旨在支持NOAA的核心使命：提供工具与数据，助力航运业安全运输每年进出美国港口、价值约2.3万亿美元的货物。合同授予路易斯安那州拉斐特的Chance Maritime Technologies公司，为期五年，最多可采购八套系统。 新系统提供多种指挥与控制模式，包括操作
 
 ## 正文
 
-周四，在布伦特原油触及四年高点后不久，油价转为下跌。
+美国国家海洋和大气管理局宣布拨款2160万美元，用于采购无人船艇系统，配备至该局正在建造的新型海图测绘船上。
 
-此前有报道称，美国军方将就针对伊朗的潜在行动向总统特朗普作简报。
+此举旨在支持NOAA的核心使命：提供工具与数据，助力航运业安全运输每年进出美国港口、价值约2.3万亿美元的货物。
 
-Axios援引两位知情人士报道称，美国中央司令部准备向特朗普提交可能对伊朗采取军事行动的计划。
+合同授予路易斯安那州拉斐特的Chance Maritime Technologies公司，为期五年，最多可采购八套系统。
 
-据报道，特朗普此前拒绝了德黑兰方面关于重新开放霍尔木兹海峡的提议，表明在达成更广泛的核协议之前，海上封锁将继续维持。
+新系统提供多种指挥与控制模式，包括操作员直接控制、具备避障和动态航迹跟踪等半自主能力的监督控制，以及在特定情况下的全自主运行。
 
-国际基准布伦特原油期货一度升至126美元/桶的战争时期高位，随后回吐涨幅，交投于114.70美元/桶，当日下跌2.8%。
+船艇与无人系统的协同设计，确保NOAA符合监管要求并保障作业安全。
 
-与此同时，美国西得克萨斯中质原油期货截至美东时间上午7：33下跌1.7%，至105.12美元/桶。
+2025年，NOAA已为两艘新型海图测绘船“测量员号”和“领航员号”举行龙骨铺设仪式，以扩大船队规模。
 
-最新走势发生在布伦特和WTI连续多日上涨之际，自2月28日美国和以色列主导的对伊朗战争开始以来，这两个合约均已上涨约60%。
+无人系统将部署于这两艘船上，用于补充传统海床测绘方法。
 
-荷兰国际集团大宗商品策略主管沃伦·帕特森在研究报告中表示：“石油市场已从过度乐观转向我们在波斯湾看到的供应中断的现实。
+这些系统还将配备以支持渔业声学调查等其他数据采集工作。
 
 ## 相关推荐
 
-- 2026-06-29 20:29 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 20:16 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 20:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 20:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 20:28 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 20:34 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 20:18 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 20:30 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 20:39 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 20:35 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 20:24 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 20:18 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 20:32 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 20:36 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 20:27 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 20:18 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 20:38 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 20:25 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 20:23 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 20:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 20:45 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 20:22 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 20:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 20:29 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 20:37 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 20:41 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 20:18 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 20:23 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 20:43 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 20:42 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:26 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/4027681.shtml)
-- 2026-06-29 20:25 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/2547228.shtml)
-- 2026-06-29 20:40 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/936221472.shtml)
-- 2026-06-29 20:40 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/27811.shtml)
-- 2026-06-29 20:41 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/801844666.shtml)
-- 2026-06-29 20:34 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/38590.shtml)
-- 2026-06-29 20:29 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/38343058715.shtml)
-- 2026-06-29 20:13 - [半导体和股市为何没让韩国人起飞](https://www.blog.kurohicncr.top/Article/details/36737124.shtml)
-- 2026-06-29 20:33 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/8707504.shtml)
-- 2026-06-29 20:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/6310205.shtml)
-- 2026-06-29 20:41 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/169228822254.shtml)
-- 2026-06-29 20:22 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/7545228.shtml)
-- 2026-06-29 20:38 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/51267914873.shtml)
-- 2026-06-29 20:14 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/432082135753.shtml)
-- 2026-06-29 20:28 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/6091717.shtml)
+- 2026-06-29 20:47 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/39750844.shtml)
+- 2026-06-29 20:44 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/3093183.shtml)
+- 2026-06-29 20:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/8388113.shtml)
+- 2026-06-29 20:38 - [半导体和股市为何没让韩国人起飞](http://www.share.kurohicncr.top/Article/details/7445361867.shtml)
+- 2026-06-29 20:45 - [时光音乐会](http://www.share.minike.top/Article/details/95029969.shtml)
+- 2026-06-29 20:45 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/67949360549.shtml)
+- 2026-06-29 20:30 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/04915330.shtml)
+- 2026-06-29 20:26 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.minike.top/Article/details/118160916334.shtml)
+- 2026-06-29 20:39 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/5579554928.shtml)
+- 2026-06-29 20:32 - [如果你一直单身，你准备怎么养老？](https://www.blog.kurohicncr.top/Article/details/01624009676.shtml)
+- 2026-06-29 20:42 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/646579005619.shtml)
+- 2026-06-29 20:20 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/8784304.shtml)
+- 2026-06-29 20:35 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/5074755469.shtml)
+- 2026-06-29 20:32 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/8179191.shtml)
+- 2026-06-29 20:28 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/795031621.shtml)

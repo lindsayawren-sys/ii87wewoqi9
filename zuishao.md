@@ -1,60 +1,56 @@
-# 伯克希尔CEO阿贝尔首挑大梁，巴菲特开场盛赞：“他是满分人选”
+# 高盛：潍柴动力目标价升至56港元 维持“买入”评级
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-专题：巴菲特2026年股东大会重磅来袭 伯克希尔哈撒韦CEO格雷格·阿贝尔以致敬沃伦·巴菲特拉开公司年度股东大会序幕。阿贝尔借此展现自身运营能力，而这份能力正是其被选定为伯克希尔传奇掌门人继任者的核心原因。 奥马哈时间周六上午，阿贝尔在奇健康中心场馆发表讲话：“早上好，欢迎来到奥马哈。” 今年1月接替巴菲特上任的阿贝尔，首次以伯克希尔首席执行官的身份登台向股东致辞。在开场讲话中
+高盛发布研报称，潍柴动力（02338）H股近期的升势已开始反映往复式燃气发动机（RICE）的增长空间，但尚未反映固体氧化物燃料电池（SOFC）的潜力，而潍柴动力（000338.SZ）A股则尚未反映上述两项因素。即使H股及A股年初至今已累升129%及81%，但在全球人工智能数据中心（AIDC）电力供应链中，以市盈率计算仍属于最廉价标的。该行维持“买入”评级，将H股及A股目标价分别
 
 ## 正文
 
-专题：巴菲特2026年股东大会重磅来袭 伯克希尔哈撒韦CEO格雷格·阿贝尔以致敬沃伦·巴菲特拉开公司年度股东大会序幕。
+高盛发布研报称，潍柴动力（02338）H股近期的升势已开始反映往复式燃气发动机（RICE）的增长空间，但尚未反映固体氧化物燃料电池（SOFC）的潜力，而潍柴动力（000338.SZ）A股则尚未反映上述两项因素。
 
-阿贝尔借此展现自身运营能力，而这份能力正是其被选定为伯克希尔传奇掌门人继任者的核心原因。
+即使H股及A股年初至今已累升129%及81%，但在全球人工智能数据中心（AIDC）电力供应链中，以市盈率计算仍属于最廉价标的。
 
-奥马哈时间周六上午，阿贝尔在奇健康中心场馆发表讲话：“早上好，欢迎来到奥马哈。
+该行维持“买入”评级，将H股及A股目标价分别由46港元及42元人民币，上调至56港元及48元人民币。
 
-” 今年1月接替巴菲特上任的阿贝尔，首次以伯克希尔首席执行官的身份登台向股东致辞。
+报告指出，美国同业的上季业绩不单止重申了AI资本支出的正面展望，亦反映RICE及SOFC作为即场主用电源解决方案的角色日益重要。
 
-在开场讲话中，他向现场股东承诺，巴菲特打造的企业文化将保持不变，随后详细解读了公司一季度经营业绩。
+该行认为，潍柴动力在亚洲市场提供了相关领域的最佳投资机会。
 
-这位新任首席执行官还透露，伯克希尔旗下部分业务板块，包括伯灵顿北方圣太菲铁路运输公司，已开始应用人工智能工具。
-
-“我们不会为了人工智能而盲目布局，”阿贝尔表示，“现阶段，我们运用AI技术，主要是为了解决各项业务中的逻辑性问题。
-
-” 阿贝尔已着手推行多项变革：提拔长期与自己共事的核心副手，并加码布局日本市场投资。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:12 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 20:22 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 20:31 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 20:41 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 20:13 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 20:30 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 20:35 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 20:41 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 20:17 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 20:26 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 20:24 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 20:15 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 20:34 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 20:23 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 20:29 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 20:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 20:33 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 20:36 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 20:39 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 20:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 20:42 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 20:41 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 20:24 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 20:46 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 20:40 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 20:38 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 20:42 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 20:45 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:33 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/6083496298.shtml)
-- 2026-06-29 20:14 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/4966388752.shtml)
-- 2026-06-29 20:40 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/695634930.shtml)
-- 2026-06-29 20:32 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/41548942.shtml)
-- 2026-06-29 20:34 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/713007.shtml)
-- 2026-06-29 20:40 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.minike.top/Article/details/87337935.shtml)
-- 2026-06-29 20:21 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/7038873.shtml)
-- 2026-06-29 20:30 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/238372.shtml)
-- 2026-06-29 20:27 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/7602793359.shtml)
-- 2026-06-29 20:29 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/0611901.shtml)
-- 2026-06-29 20:38 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/17032.shtml)
-- 2026-06-29 20:38 - [极限挑战第一季](http://www.blog.minike.top/Article/details/510662453.shtml)
-- 2026-06-29 20:20 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/828390.shtml)
-- 2026-06-29 20:20 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/08657568.shtml)
-- 2026-06-29 20:28 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/040860466710.shtml)
+- 2026-06-29 20:35 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/531059.shtml)
+- 2026-06-29 20:25 - [《贺子珍》](http://www.blog.minike.top/Article/details/05352122.shtml)
+- 2026-06-29 20:18 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/509728317139.shtml)
+- 2026-06-29 20:25 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/271198.shtml)
+- 2026-06-29 20:38 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/318402.shtml)
+- 2026-06-29 20:34 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.minike.top/Article/details/94061017380.shtml)
+- 2026-06-29 20:19 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/091289436484.shtml)
+- 2026-06-29 20:28 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/65742.shtml)
+- 2026-06-29 20:28 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/416263848680.shtml)
+- 2026-06-29 20:26 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/34802945379.shtml)
+- 2026-06-29 20:21 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/1211209.shtml)
+- 2026-06-29 20:27 - [宜宾地震已转移安置225人](https://www.blog.minike.top/Article/details/88160.shtml)
+- 2026-06-29 20:42 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/168018110.shtml)
+- 2026-06-29 20:39 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/2854066942.shtml)
+- 2026-06-29 20:46 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/736610541472.shtml)

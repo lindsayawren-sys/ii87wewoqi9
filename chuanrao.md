@@ -1,60 +1,46 @@
-# 杨德龙：巴菲特是股神，阿贝尔更像基金经理
+# 俄罗斯宣布临时停火以纪念卫国战争胜利81周年
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。 前海开源基金执行总经理杨德龙在演讲中表示，去年开股东大会的时候，他分享过一个观点。当时巴菲特在股东大会上正式宣布，年底会正式退休，将CEO职位交给格雷格·阿贝尔。“我当时就说，这会带来两个变化：第一，伯克希尔·哈撒韦的股价会见顶下跌
+中新网5月8日电 据路透社报道，俄罗斯国防部当地时间7日宣布，为纪念苏联伟大卫国战争胜利81周年，俄方将从8日零时起至10日前在特别军事行动区停火。 报道称，俄罗斯国防部在社交媒体上写道：“值此庆祝苏联人民伟大卫国战争胜利81周年之际，从5月8日午夜至5月10日，俄方宣布停火。”
 
 ## 正文
 
-专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。
+中新网5月8日电 据路透社报道，俄罗斯国防部当地时间7日宣布，为纪念苏联伟大卫国战争胜利81周年，俄方将从8日零时起至10日前在特别军事行动区停火。
 
-前海开源基金执行总经理杨德龙在演讲中表示，去年开股东大会的时候，他分享过一个观点。
+报道称，俄罗斯国防部在社交媒体上写道：“值此庆祝苏联人民伟大卫国战争胜利81周年之际，从5月8日午夜至5月10日，俄方宣布停火。
 
-当时巴菲特在股东大会上正式宣布，年底会正式退休，将CEO职位交给格雷格·阿贝尔。
-
-“我当时就说，这会带来两个变化：第一，伯克希尔·哈撒韦的股价会见顶下跌；第二，参会人数会逐年下降，最终可能只剩下几个股东。
-
-” 为什么会有这样的变化？
-
-其实这就是“股神”巴菲特个人的魅力所在。
-
-去年巴菲特宣布退休后，周一股市就出现了暴跌，这其实也是市场对巴菲特个人投资能力的一种肯定。
-
-巴菲特以前曾幽默地说过：“如果哪一天媒体报道说我死了，结果伯克希尔·哈撒韦的股价大涨，那就尴尬了；股价大跌，才是对我真正的敬意。
+”
 
 ## 相关推荐
 
-- 2026-06-29 20:16 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 20:17 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 20:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 20:31 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 20:21 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 20:25 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 20:23 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 20:36 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 20:32 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 20:34 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 20:35 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 20:33 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 20:19 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 20:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 20:19 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 20:33 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 20:18 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 20:42 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 20:28 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 20:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 20:30 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 20:21 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 20:30 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 20:36 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:41 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/03663056596.shtml)
-- 2026-06-29 20:28 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/77197697656.shtml)
-- 2026-06-29 20:41 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/9116055.shtml)
-- 2026-06-29 20:12 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/392419402.shtml)
-- 2026-06-29 20:23 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/2296677102.shtml)
-- 2026-06-29 20:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/74244432862.shtml)
-- 2026-06-29 20:15 - [张杰我九岁就跟你了](http://www.share.kurohicncr.top/Article/details/9047477.shtml)
-- 2026-06-29 20:19 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/709214.shtml)
-- 2026-06-29 20:19 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/7370454.shtml)
-- 2026-06-29 20:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/1230612.shtml)
-- 2026-06-29 20:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/451437036641.shtml)
-- 2026-06-29 20:13 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/89706344832.shtml)
-- 2026-06-29 20:34 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/283484172.shtml)
-- 2026-06-29 20:13 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/69994874485.shtml)
-- 2026-06-29 20:31 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/137860438.shtml)
+- 2026-06-29 20:44 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/80934157043.shtml)
+- 2026-06-29 20:38 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/90341.shtml)
+- 2026-06-29 20:37 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/713215452.shtml)
+- 2026-06-29 20:29 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/4617631325.shtml)
+- 2026-06-29 20:27 - [第一炉香](http://www.blog.minike.top/Article/details/60910476.shtml)
+- 2026-06-29 20:28 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/70864588.shtml)
+- 2026-06-29 20:28 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/2696238.shtml)
+- 2026-06-29 20:26 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.kurohicncr.top/Article/details/835510420750.shtml)
+- 2026-06-29 20:43 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/053675080.shtml)
+- 2026-06-29 20:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/5266521445.shtml)
+- 2026-06-29 20:22 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/10186058212.shtml)
+- 2026-06-29 20:21 - [半导体和股市为何没让韩国人起飞](http://www.share.kurohicncr.top/Article/details/091957826.shtml)
+- 2026-06-29 20:45 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/98707.shtml)
+- 2026-06-29 20:28 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/67862.shtml)
+- 2026-06-29 20:43 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/96754065.shtml)

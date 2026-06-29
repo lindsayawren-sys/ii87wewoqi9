@@ -1,57 +1,58 @@
-# 芝加哥期权交易所正裁减全球20%员工
+# 宁夏沙坡头灌区现代化改造加速推进 规划改善灌溉面积131万亩
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-芝加哥期权交易所正裁减全球20%员工，同时收紧返岗办公政策，这也是该交易所聚焦核心业务战略规划的最新举措。 首席执行官克雷格・多诺霍周五早间发给员工的内部备忘录显示，Cboe全球约1670名员工中，已有约五分之一收到裁员通知。公司同时面向美国和加拿大地区符合条件的员工推出自愿退休计划：年龄满55周岁、在公司任职至少五年，且未被纳入本次裁员名单的员工均可申请。 此次裁员是多诺霍战
+中新网中卫5月8日电 (记者 于晶)5月8日，记者从宁夏回族自治区水利厅获悉，宁夏沙坡头灌区现代化改造工程可行性研究报告已获宁夏发展和改革委员会批复，工程正式进入立项实施阶段。这标志着这项被列入国家水利气象领域“两重”建设实施方案的重大工程，完成了从规划蓝图到落地实施的关键一跃。沙坡头灌区北依贺兰山余脉，南靠香山，中部为黄河冲积形成的卫宁平原，涵盖沙坡头区、中宁县、青铜峡市，是
 
 ## 正文
 
-芝加哥期权交易所正裁减全球20%员工，同时收紧返岗办公政策，这也是该交易所聚焦核心业务战略规划的最新举措。
+中新网中卫5月8日电 (记者 于晶)5月8日，记者从宁夏回族自治区水利厅获悉，宁夏沙坡头灌区现代化改造工程可行性研究报告已获宁夏发展和改革委员会批复，工程正式进入立项实施阶段。
 
-首席执行官克雷格・多诺霍周五早间发给员工的内部备忘录显示，Cboe全球约1670名员工中，已有约五分之一收到裁员通知。
+这标志着这项被列入国家水利气象领域“两重”建设实施方案的重大工程，完成了从规划蓝图到落地实施的关键一跃。
 
-公司同时面向美国和加拿大地区符合条件的员工推出自愿退休计划：年龄满55周岁、在公司任职至少五年，且未被纳入本次裁员名单的员工均可申请。
+沙坡头灌区北依贺兰山余脉，南靠香山，中部为黄河冲积形成的卫宁平原，涵盖沙坡头区、中宁县、青铜峡市，是宁夏列入全国灌区名录的5个大型灌区之一，拥有2100多年引黄灌溉历史。
 
-此次裁员是多诺霍战略布局的一环，目的是把资源集中投向核心业务，涵盖指数期权、期货、外汇市场以及欧美股票业务。
+该灌区是宁夏现代水网体系的重要组成部分，也是宁夏现代化产业体系、产业布局和黄河“几字弯”攻坚战等重点区域的关键支撑。
 
-自2025年5月出任首席执行官以来，他已陆续推进多项调整：关停Cboe日本股票业务、出售旗下加拿大及澳大利亚证券交易所。
+近年来，受极端天气及区域水环境变化影响，沙坡头灌区部分已砌护渠道遭遇洪水冲毁、冻胀、环境水腐蚀等不同程度损坏。
 
-上述业务调整带来的人员精简，均纳入此次20%的整体裁员规模之中。
+同时，南山台子、碱碱湖和太阳梁等扬黄灌域地处易渗漏地质环境，渠道渗漏导致灌溉用水效率不高。
 
-责任编辑：陈钰嘉
+南山台子扬水灌域因生态移民人口增加、硒砂瓜产业发展等因素，灌溉用水供需季节性矛盾突出，急需建设调蓄设施。
+
+此外，灌区部分排水沟存在塌坡、淤积等问题，排水不畅造成部分低洼区域出现盐渍化。
 
 ## 相关推荐
 
-- 2026-06-29 20:36 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 20:18 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 20:36 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 20:38 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 20:38 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 20:29 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 20:28 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 20:38 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 20:31 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 20:13 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 20:29 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 20:37 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 20:29 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 20:40 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 20:35 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 20:46 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 20:42 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 20:45 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 20:31 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 20:46 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 20:33 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 20:37 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 20:45 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 20:43 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 20:26 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:21 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/854799003.shtml)
-- 2026-06-29 20:40 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/6766220.shtml)
-- 2026-06-29 20:12 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/7657455.shtml)
-- 2026-06-29 20:12 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/611872423.shtml)
-- 2026-06-29 20:16 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/2697323091.shtml)
-- 2026-06-29 20:38 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/52277245.shtml)
-- 2026-06-29 20:23 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/82026.shtml)
-- 2026-06-29 20:32 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/118925958753.shtml)
-- 2026-06-29 20:22 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/426855110.shtml)
-- 2026-06-29 20:41 - [朱雀三号重复使用遥二运载火箭新进展](http://www.share.minike.top/Article/details/086306568433.shtml)
-- 2026-06-29 20:13 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/479869700597.shtml)
-- 2026-06-29 20:25 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.minike.top/Article/details/09336559808.shtml)
-- 2026-06-29 20:25 - [女生学医适合选什么专业](https://www.share.kurohicncr.top/Article/details/14547161166.shtml)
-- 2026-06-29 20:21 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/622004428.shtml)
-- 2026-06-29 20:37 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/06769.shtml)
+- 2026-06-29 20:22 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/143975.shtml)
+- 2026-06-29 20:23 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/9297917237.shtml)
+- 2026-06-29 20:38 - [一生一世](https://www.blog.minike.top/Article/details/04801.shtml)
+- 2026-06-29 20:20 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/2363302561.shtml)
+- 2026-06-29 20:22 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/354590803728.shtml)
+- 2026-06-29 20:29 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/552454526.shtml)
+- 2026-06-29 20:39 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/9232264.shtml)
+- 2026-06-29 20:40 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/25330.shtml)
+- 2026-06-29 20:33 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/6397523.shtml)
+- 2026-06-29 20:18 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/808447.shtml)
+- 2026-06-29 20:31 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/141743472.shtml)
+- 2026-06-29 20:26 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/712927021856.shtml)
+- 2026-06-29 20:47 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/40115867376.shtml)
+- 2026-06-29 20:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/593015159.shtml)
+- 2026-06-29 20:21 - [扩军害了世界杯吗](http://www.share.kurohicncr.top/Article/details/09924843404.shtml)

@@ -1,54 +1,61 @@
-# 国防部：日本难道又要成为东亚“祸源”？
+# 王凤英获165万股股票！打工长城30年，不及小鹏2个月
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新网4月30日电 据国防部网站消息，4月30日下午，国防部举行例行记者会，国防部新闻发言人张晓刚大校答记者问。 有记者提问：据报道，日本政府正式修改“防卫装备转移三原则”及其运用指南，原则上允许出口杀伤性武器；此外还拟恢复与旧日本军队相同的“大佐”等军衔，通过国家情报会议设置法案。请问对此有何评论？ 张晓刚表示，日方近期在军事安全领域危险、冒进和试探、挑衅动作频频，早已戳穿了
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：优财一号 那个车圈最厉害的女人，在长城汽车憋屈多年后，终于扬眉吐气了。 小鹏汽车最新披露的监管及年报信息显示，公司总裁王凤英已正式进入股东名册，获得165万股激励。 2023年1月，王凤英辞任长城汽车总经理约半年后，出任小鹏汽车总裁。诚意满满的何小鹏，在王凤英入职小鹏汽车两个月就给她送出了这笔165万
 
 ## 正文
 
-中新网4月30日电 据国防部网站消息，4月30日下午，国防部举行例行记者会，国防部新闻发言人张晓刚大校答记者问。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-有记者提问：据报道，日本政府正式修改“防卫装备转移三原则”及其运用指南，原则上允许出口杀伤性武器；此外还拟恢复与旧日本军队相同的“大佐”等军衔，通过国家情报会议设置法案。
+来源：优财一号 那个车圈最厉害的女人，在长城汽车憋屈多年后，终于扬眉吐气了。
 
-请问对此有何评论？
+小鹏汽车最新披露的监管及年报信息显示，公司总裁王凤英已正式进入股东名册，获得165万股激励。
 
-张晓刚表示，日方近期在军事安全领域危险、冒进和试探、挑衅动作频频，早已戳穿了其“和平国家”和“专守防卫”的自我标榜。
+2023年1月，王凤英辞任长城汽车总经理约半年后，出任小鹏汽车总裁。
 
-不仅如此，日方图谋启用旧日本军队军阶用语，计划组建的国家情报机构更让人想到臭名昭著的“特高课”，严重伤害亚洲国家人民感情。
+诚意满满的何小鹏，在王凤英入职小鹏汽车两个月就给她送出了这笔165万股的大礼包。
 
-日方在“再军事化”道路上狂飙突进，难道又要成为东亚“祸源”？
+这其中，包含105万股A类普通股和120万股限制性股票，合计165万股，占小鹏总股本约0.1%。
 
-所有爱好和平的人们都要对此高度警惕，坚决遏阻日本的倒行逆施，绝不能让其破坏和平、为祸世界。
+按照小鹏汽车截至今天的港股收盘价61.30港元/股计算，王凤英获得的这165万股股权，价值已经过亿，折算成人民币价值高达8787万。
+
+1970年出生的王凤英，在1991年刚21岁时就以实习生的身份加入长城汽车，此后职场一路开挂，一手建立了长城汽车的销售体系，2001年6月开始担任长城汽车执行董事。
 
 ## 相关推荐
 
-- 2026-06-29 20:37 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 20:32 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 20:19 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 20:24 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 20:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 20:20 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 20:36 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 20:12 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 20:29 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 20:39 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 20:26 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 20:33 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 20:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 20:30 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 20:34 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 20:18 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 20:38 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 20:18 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 20:36 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 20:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 20:25 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 20:27 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 20:24 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 20:34 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 20:45 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:40 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/65623256.shtml)
-- 2026-06-29 20:36 - [请回答王牌2019](https://www.blog.minike.top/Article/details/883814205503.shtml)
-- 2026-06-29 20:24 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/91908875.shtml)
-- 2026-06-29 20:22 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/276504.shtml)
-- 2026-06-29 20:18 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/818791770658.shtml)
-- 2026-06-29 20:14 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/90303735.shtml)
-- 2026-06-29 20:17 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/165227.shtml)
-- 2026-06-29 20:35 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/49946005.shtml)
-- 2026-06-29 20:12 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/5381558.shtml)
-- 2026-06-29 20:14 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.kurohicncr.top/Article/details/51377548.shtml)
-- 2026-06-29 20:30 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/3047234.shtml)
-- 2026-06-29 20:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/5828192.shtml)
-- 2026-06-29 20:34 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/188477754030.shtml)
-- 2026-06-29 20:22 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/31147737679.shtml)
-- 2026-06-29 20:13 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/96929886919.shtml)
+- 2026-06-29 20:22 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/7778249.shtml)
+- 2026-06-29 20:36 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/854576813.shtml)
+- 2026-06-29 20:40 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/118915261.shtml)
+- 2026-06-29 20:43 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/788420219981.shtml)
+- 2026-06-29 20:25 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/1328335104.shtml)
+- 2026-06-29 20:18 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/473423937.shtml)
+- 2026-06-29 20:47 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/32672552.shtml)
+- 2026-06-29 20:43 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/933245.shtml)
+- 2026-06-29 20:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/81110.shtml)
+- 2026-06-29 20:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/7441237404.shtml)
+- 2026-06-29 20:18 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/983106764.shtml)
+- 2026-06-29 20:36 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/20816866925.shtml)
+- 2026-06-29 20:41 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/0454434917.shtml)
+- 2026-06-29 20:20 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/871086.shtml)
+- 2026-06-29 20:35 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/0683659134.shtml)

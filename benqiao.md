@@ -1,61 +1,51 @@
-# 量化派股价三个月腰斩！旗下平台涉嫌变相放贷，投诉已超2.45万条
+# 证监会老虎：中国证监会党委巡视工作领导小组办公室原专职副主任杨春蕾受贿一审被判有期徒刑7年！罚金40万
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财通社 4月30日，国内线上市场运营商量化派（02685.HK）股价再度承压，盘中一度跌逾9.7%。 截至收盘，该股报16.69港元/股，单日下跌6.18%，公司总市值缩水至85.97亿港元。 近三个月以来，量化派股价累计下跌超49%。上市迄今，虽然其股价大起大落，但仍有超70%的区间涨幅。 值得注意
+来源：国际投行研究报告 杨春蕾受贿案一审宣判要点解读 一、核心判决信息 ：中国证监会党委巡视工作领导小组办公室原专职副主任杨春蕾 ：北京市第二中级人民法院 ：以受贿罪判处有期徒刑七年，并处罚金人民币四十万元；追缴在案的受贿所得财物依法没收，上缴国库。 二、案件背景与关键信息 杨春蕾身为证监会系统党员领导干部，丧失理想信念，单独或伙同他人利用职务便利为他人谋利，非法收受财物，数额
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：国际投行研究报告 杨春蕾受贿案一审宣判要点解读 一、核心判决信息 ：中国证监会党委巡视工作领导小组办公室原专职副主任杨春蕾 ：北京市第二中级人民法院 ：以受贿罪判处有期徒刑七年，并处罚金人民币四十万元；追缴在案的受贿所得财物依法没收，上缴国库。
 
-来源：财通社 4月30日，国内线上市场运营商量化派（02685.HK）股价再度承压，盘中一度跌逾9.7%。
+二、案件背景与关键信息 杨春蕾身为证监会系统党员领导干部，丧失理想信念，单独或伙同他人利用职务便利为他人谋利，非法收受财物，数额巨大，已构成严重职务违法并涉嫌受贿犯罪，性质严重、影响恶劣中央纪委国家监委。
 
-截至收盘，该股报16.69港元/股，单日下跌6.18%，公司总市值缩水至85.97亿港元。
+2023 年 11 月：被开除党籍、开除公职（双开），案件移送司法机关央视网新闻频道。
 
-近三个月以来，量化派股价累计下跌超49%。
+2026 年 5 月 8 日：一审公开宣判，获刑七年并处罚金。
 
-上市迄今，虽然其股价大起大落，但仍有超70%的区间涨幅。
-
-值得注意的是，这已经是量化派股价连续第四个交易日走低。
-
-从市场反馈来看，这轮股价回调并非单一因素触发，而是监管压力、业务模式争议及估值回归等多重因素叠加后的集中释放。
-
-3月13日，国家金融监管总局发发文，明确点名“购物分期、回收套现”变相放贷的违规行为。
+责任编辑：尉旖涵
 
 ## 相关推荐
 
-- 2026-06-29 20:17 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 20:13 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 20:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 20:27 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 20:24 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 20:12 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 20:37 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 20:36 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 20:39 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 20:17 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 20:35 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 20:37 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 20:41 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 20:28 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 20:18 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 20:35 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 20:36 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 20:44 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 20:32 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 20:21 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 20:38 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 20:37 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 20:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 20:38 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 20:46 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 20:23 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:22 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/4662722.shtml)
-- 2026-06-29 20:25 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/20145.shtml)
-- 2026-06-29 20:26 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/79694.shtml)
-- 2026-06-29 20:39 - [速度与激情9](http://www.share.minike.top/Article/details/0061596.shtml)
-- 2026-06-29 20:35 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/13087.shtml)
-- 2026-06-29 20:39 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/647733131.shtml)
-- 2026-06-29 20:35 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/227294345.shtml)
-- 2026-06-29 20:16 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/3468574.shtml)
-- 2026-06-29 20:33 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/1332403524.shtml)
-- 2026-06-29 20:24 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/0990176.shtml)
-- 2026-06-29 20:29 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/03852027917.shtml)
-- 2026-06-29 20:19 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/68740.shtml)
-- 2026-06-29 20:33 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/516740406282.shtml)
-- 2026-06-29 20:26 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/1341079.shtml)
-- 2026-06-29 20:18 - [大学专业未来如何洗牌](http://www.blog.kurohicncr.top/Article/details/02324571.shtml)
+- 2026-06-29 20:27 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/189107.shtml)
+- 2026-06-29 20:43 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/07546.shtml)
+- 2026-06-29 20:20 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/49091.shtml)
+- 2026-06-29 20:28 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/2074131.shtml)
+- 2026-06-29 20:30 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.kurohicncr.top/Article/details/17327421.shtml)
+- 2026-06-29 20:43 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/37981981.shtml)
+- 2026-06-29 20:21 - [王楚钦称抽签结果出来心情不好](https://www.share.minike.top/Article/details/7090812.shtml)
+- 2026-06-29 20:25 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/731412.shtml)
+- 2026-06-29 20:21 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/4950251247.shtml)
+- 2026-06-29 20:43 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/0085096.shtml)
+- 2026-06-29 20:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/463994.shtml)
+- 2026-06-29 20:21 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/547007780779.shtml)
+- 2026-06-29 20:46 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/43473525.shtml)
+- 2026-06-29 20:24 - [锐评白玉兰提名片段](https://www.blog.kurohicncr.top/Article/details/24570291.shtml)
+- 2026-06-29 20:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/1995052735.shtml)

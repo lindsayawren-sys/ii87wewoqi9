@@ -1,53 +1,56 @@
-# 5月有这些专业技术人员职业资格考试 收好这份时间表
+# 资金流向生变？一季度全球ETF规模狂飙，美国却逆势缩水超6500亿美元
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-温馨提示！5月有这些考试，别错过→ 要考证的小伙伴看过来 5月专业技术人员职业资格考试 时间表来啦 别错过哦！ 祝大家 都能取得理想的成绩！ (人力资源和社会保障部微信公众号)
+每经记者|李蕾 每经编辑|赵云 《每日经济新闻》记者获悉，来自第三方机构ETFGI的数据显示，今年3月全球ETF规模新增1744.2亿美元，推动一季度净流入规模创下6264.2亿美元历史新高。截至今年一季度末，全球ETF总规模达到20.08万亿美元。 而据美国投资公司协会（ICI），不同于全球市场的增长，今年3月美国ETF资产规模缩水6616.8亿美元，环比降低4.7%，最新规
 
 ## 正文
 
-温馨提示！
+每经记者|李蕾 每经编辑|赵云 《每日经济新闻》记者获悉，来自第三方机构ETFGI的数据显示，今年3月全球ETF规模新增1744.2亿美元，推动一季度净流入规模创下6264.2亿美元历史新高。
 
-5月有这些考试，别错过→ 要考证的小伙伴看过来 5月专业技术人员职业资格考试 时间表来啦 别错过哦！
+截至今年一季度末，全球ETF总规模达到20.08万亿美元。
 
-祝大家 都能取得理想的成绩！
+而据美国投资公司协会（ICI），不同于全球市场的增长，今年3月美国ETF资产规模缩水6616.8亿美元，环比降低4.7%，最新规模为13.55万亿美元。
 
-(人力资源和社会保障部微信公众号)
+在欧洲市场，3月欧洲ETF行业净流入136.2亿美元，带动今年一季度净流入规模达到1287.1亿美元。
+
+截至一季度末，欧洲ETF行业资产管理规模达3.29万亿美元，较今年2月末的3.53万亿美元历史高点有所回落。
+
+下面我们就对这几个市场的ETF表现进行详细梳理。
+
+来自ETFGI的数据显示，截至今年一季度末，全球ETF总规模为20.08万亿美元，低于今年2月创下的21.24万亿美元历史高点。
+
+仅在3月，全球ETF净流入规模就达到1744.2亿美元，连续第82个月实现资金净流入。
 
 ## 相关推荐
 
-- 2026-06-29 20:34 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 20:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 20:12 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 20:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 20:15 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 20:17 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 20:26 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 20:30 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 20:29 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 20:33 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 20:33 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 20:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 20:39 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 20:31 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-29 20:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 20:40 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 20:22 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 20:36 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 20:30 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 20:37 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 20:25 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 20:34 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 20:20 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 20:32 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 20:18 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:39 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/74817.shtml)
-- 2026-06-29 20:42 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/359664858910.shtml)
-- 2026-06-29 20:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/7777837.shtml)
-- 2026-06-29 20:14 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/74296621670.shtml)
-- 2026-06-29 20:40 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/0072939983.shtml)
-- 2026-06-29 20:19 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/32406439.shtml)
-- 2026-06-29 20:14 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/5455605049.shtml)
-- 2026-06-29 20:26 - [金刚川](http://www.blog.minike.top/Article/details/40785981211.shtml)
-- 2026-06-29 20:31 - [北京发布地质灾害气象风险蓝色预警](http://www.share.minike.top/Article/details/26131.shtml)
-- 2026-06-29 20:13 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/310950.shtml)
-- 2026-06-29 20:28 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/6378173301.shtml)
-- 2026-06-29 20:15 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/0348784.shtml)
-- 2026-06-29 20:28 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/5191064478.shtml)
-- 2026-06-29 20:14 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/29236874.shtml)
-- 2026-06-29 20:31 - [AG 宫斗](https://www.share.minike.top/Article/details/092860536.shtml)
+- 2026-06-29 20:46 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/62337585.shtml)
+- 2026-06-29 20:37 - [湖南姑娘被东北同事带偏口音](http://www.blog.kurohicncr.top/Article/details/40566803.shtml)
+- 2026-06-29 20:20 - [李思潼：不会介意大家夸我运气好](https://www.blog.kurohicncr.top/Article/details/4503788891.shtml)
+- 2026-06-29 20:42 - [东方风云榜直播](https://www.blog.minike.top/Article/details/22509345979.shtml)
+- 2026-06-29 20:28 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/657935.shtml)
+- 2026-06-29 20:43 - [女心理师](http://www.blog.minike.top/Article/details/6388744695.shtml)
+- 2026-06-29 20:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/383347.shtml)
+- 2026-06-29 20:19 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/642104341634.shtml)
+- 2026-06-29 20:21 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/33739.shtml)
+- 2026-06-29 20:38 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/69068489.shtml)
+- 2026-06-29 20:22 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/9775086.shtml)
+- 2026-06-29 20:26 - [普京建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/52873829.shtml)
+- 2026-06-29 20:37 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/41525095.shtml)
+- 2026-06-29 20:44 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/7186548.shtml)
+- 2026-06-29 20:28 - [刘冰任河南南阳市代市长](https://www.share.minike.top/Article/details/69797880374.shtml)

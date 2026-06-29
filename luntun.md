@@ -1,61 +1,58 @@
-# “拼小团”出游热度高，这份“避坑指南”请收好
+# 九三学社海南省委员会赴安徽开展专题调研
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-35岁的郑州游客安迪还记得去年3月的新疆之行。8天7晚的行程，她和几位陌生游客一起“拼小团”。“一个人想在短时间内转一圈北疆，拼团是性价比最高的方式。”安迪说。 川西、新疆、内蒙古，这些地方风景壮美，但有一个共同的难题：公共交通覆盖有限，自驾对路况不熟悉的游客来说挑战不小。“拼小团”恰好解决了这个痛点。在社交平台搜索“新疆小团”“川西拼团”，评论区里问路线、求推荐的网友成百上千
+原标题：九三学社海南省委员会赴安徽开展专题调研 深化“皖琼合作”助力自贸港建设 4月28日至30日，九三学社海南省委员会调研组赴安徽合肥，围绕科技创新、产业投资及“皖琼合作”等开展专题调研。九三学社中央常委、海南欧美同学会会长过建春参加调研，九三学社安徽省委主委、安徽省政协副主席罗平陪同调研并主持座谈会。 此次调研是九三学社中央2026年度重点调研课题的重要组成部分，调研成果将
 
 ## 正文
 
-35岁的郑州游客安迪还记得去年3月的新疆之行。
+原标题：九三学社海南省委员会赴安徽开展专题调研 深化“皖琼合作”助力自贸港建设 4月28日至30日，九三学社海南省委员会调研组赴安徽合肥，围绕科技创新、产业投资及“皖琼合作”等开展专题调研。
 
-8天7晚的行程，她和几位陌生游客一起“拼小团”。
+九三学社中央常委、海南欧美同学会会长过建春参加调研，九三学社安徽省委主委、安徽省政协副主席罗平陪同调研并主持座谈会。
 
-“一个人想在短时间内转一圈北疆，拼团是性价比最高的方式。
+此次调研是九三学社中央2026年度重点调研课题的重要组成部分，调研成果将形成专题报告报送社中央，并为社中央“九三论坛”提供重要素材支撑。
 
-”安迪说。
+调研组一行先后实地考察了合肥产业投资控股（集团）有限公司、科大讯飞股份有限公司、中电信量子信息科技集团有限公司、深空探测实验室及安徽创新馆，深入了解安徽在科技成果转化、量子科技、人工智能、空天信息等领域的创新实践与产业生态。
 
-川西、新疆、内蒙古，这些地方风景壮美，但有一个共同的难题：公共交通覆盖有限，自驾对路况不熟悉的游客来说挑战不小。
+调研组指出，安徽近年来坚持把创新作为引领发展的首要动力，在新兴产业培育、科创平台建设、产学研协同等方面走在全国前列，其“以投带引”的资本招商模式、前沿技术应用场景建设等经验，对海南自贸港培育新质生产力具有重要借鉴意义。
 
-“拼小团”恰好解决了这个痛点。
+调研期间，调研组与九三学社安徽省委举行座谈，双方围绕社务工作、参政议政经验以及推动“皖琼合作”等进行了深入交流。
 
-在社交平台搜索“新疆小团”“川西拼团”，评论区里问路线、求推荐的网友成百上千。
+罗平对海南九三学社海南省委会一行的到来表示热烈欢迎，并介绍了九三学社安徽省委员会在社务工作、参政议政等方面的经验做法。
 
-某在线旅游平台数据显示，近期“拼小团”产品订单量同比增长1.5倍。
+罗平指出，“皖琼合作”是“九琼合作”框架下省际联动的重要组成部分。
 
 ## 相关推荐
 
-- 2026-06-29 20:28 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 20:36 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 20:19 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 20:37 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 20:21 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 20:14 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 20:19 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 20:12 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 20:23 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 20:34 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 20:14 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 20:29 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 20:24 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 20:17 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 20:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 20:31 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 20:20 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 20:28 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 20:28 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 20:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 20:27 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 20:31 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 20:24 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 20:43 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 20:43 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 20:27 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 20:32 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:28 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/141196074781.shtml)
-- 2026-06-29 20:41 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/836429120803.shtml)
-- 2026-06-29 20:22 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/558138697519.shtml)
-- 2026-06-29 20:26 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/131990557376.shtml)
-- 2026-06-29 20:12 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/6004170100.shtml)
-- 2026-06-29 20:31 - [啊啊啊](https://www.share.minike.top/Article/details/170058315.shtml)
-- 2026-06-29 20:28 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.minike.top/Article/details/7045352.shtml)
-- 2026-06-29 20:26 - [网红小徐直播时突遇地震](https://www.blog.minike.top/Article/details/84999.shtml)
-- 2026-06-29 20:31 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/6988437.shtml)
-- 2026-06-29 20:25 - [济南航空航天全面起势](http://www.blog.kurohicncr.top/Article/details/56376.shtml)
-- 2026-06-29 20:12 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/6953817434.shtml)
-- 2026-06-29 20:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/72755.shtml)
-- 2026-06-29 20:12 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/242536.shtml)
-- 2026-06-29 20:28 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/4182960.shtml)
-- 2026-06-29 20:35 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/807119.shtml)
+- 2026-06-29 20:45 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/19934.shtml)
+- 2026-06-29 20:29 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/4220872074.shtml)
+- 2026-06-29 20:24 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/002059216890.shtml)
+- 2026-06-29 20:43 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/98886023.shtml)
+- 2026-06-29 20:26 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/6937832565.shtml)
+- 2026-06-29 20:27 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/184061513346.shtml)
+- 2026-06-29 20:20 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/17535990.shtml)
+- 2026-06-29 20:43 - [爱奇艺抬高国剧新标尺](http://www.share.kurohicncr.top/Article/details/9020036417.shtml)
+- 2026-06-29 20:26 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/353265.shtml)
+- 2026-06-29 20:33 - [锐评白玉兰提名片段](http://www.share.kurohicncr.top/Article/details/1356494.shtml)
+- 2026-06-29 20:22 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/3514366.shtml)
+- 2026-06-29 20:38 - [刘冰任河南南阳市代市长](https://www.blog.minike.top/Article/details/239534712.shtml)
+- 2026-06-29 20:47 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/2554132.shtml)
+- 2026-06-29 20:42 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/40162988430.shtml)
+- 2026-06-29 20:25 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/67660.shtml)

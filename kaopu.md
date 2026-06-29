@@ -1,54 +1,49 @@
-# 国防部回应中国是否将迎首艘核动力航母
+# 固生堂于5月8日斥资158.17万港元回购5.43万股
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新网北京4月30日电 (李纯 刘梦青)国防部4月30日下午举行新闻发布会，新闻发言人张晓刚回答记者提问。 有记者问，近日，人民海军宣传片《向大洋》出现19岁新兵何剑，媒体广泛解读为，这预示着海军将迎来首艘核动力航母。请问对此有何评论？ 张晓刚说，我们始终根据国家安全需要和装备技术发展情况，综合考虑航母建设。关于这部片子，正如那句话：一千个读者眼中有一千个哈姆雷特。感谢大家的关
+固生堂（02273）发布公告，于2026年5月8日，该公司斥资158.17万港元回购5.43万股。责任编辑：卢昱君
 
 ## 正文
 
-中新网北京4月30日电 (李纯 刘梦青)国防部4月30日下午举行新闻发布会，新闻发言人张晓刚回答记者提问。
+固生堂（02273）发布公告，于2026年5月8日，该公司斥资158.17万港元回购5.43万股。
 
-有记者问，近日，人民海军宣传片《向大洋》出现19岁新兵何剑，媒体广泛解读为，这预示着海军将迎来首艘核动力航母。
-
-请问对此有何评论？
-
-张晓刚说，我们始终根据国家安全需要和装备技术发展情况，综合考虑航母建设。
-
-关于这部片子，正如那句话：一千个读者眼中有一千个哈姆雷特。
-
-感谢大家的关注。
-
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:41 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 20:36 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 20:40 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 20:19 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 20:38 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 20:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 20:19 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 20:19 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 20:13 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 20:15 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 20:41 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 20:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 20:19 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 20:31 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 20:39 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 20:36 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 20:24 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 20:29 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 20:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 20:37 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 20:33 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 20:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 20:43 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 20:36 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 20:30 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:24 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/818683804211.shtml)
-- 2026-06-29 20:39 - [毒液2](https://www.blog.kurohicncr.top/Article/details/64511.shtml)
-- 2026-06-29 20:16 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/881088.shtml)
-- 2026-06-29 20:13 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/221364.shtml)
-- 2026-06-29 20:27 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/31052956.shtml)
-- 2026-06-29 20:13 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/94993.shtml)
-- 2026-06-29 20:19 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/14331970.shtml)
-- 2026-06-29 20:24 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/4079059.shtml)
-- 2026-06-29 20:37 - [一生一世](https://www.blog.minike.top/Article/details/568671.shtml)
-- 2026-06-29 20:19 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/02716.shtml)
-- 2026-06-29 20:16 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/6288253984.shtml)
-- 2026-06-29 20:29 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/18002793257.shtml)
-- 2026-06-29 20:31 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/366597992.shtml)
-- 2026-06-29 20:34 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/865567.shtml)
-- 2026-06-29 20:12 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/372786847821.shtml)
+- 2026-06-29 20:34 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/355546916590.shtml)
+- 2026-06-29 20:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/4464014303.shtml)
+- 2026-06-29 20:24 - [委内瑞拉发生余震](http://www.blog.minike.top/Article/details/22088468.shtml)
+- 2026-06-29 20:42 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/1671203098.shtml)
+- 2026-06-29 20:28 - [扩军害了世界杯吗](https://www.share.minike.top/Article/details/115957792.shtml)
+- 2026-06-29 20:26 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/69083.shtml)
+- 2026-06-29 20:23 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/0792020.shtml)
+- 2026-06-29 20:19 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.minike.top/Article/details/4193686.shtml)
+- 2026-06-29 20:27 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/32031096414.shtml)
+- 2026-06-29 20:44 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/0815461.shtml)
+- 2026-06-29 20:24 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/639164.shtml)
+- 2026-06-29 20:18 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/094252.shtml)
+- 2026-06-29 20:30 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/277715097.shtml)
+- 2026-06-29 20:21 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/3506866.shtml)
+- 2026-06-29 20:24 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/72266159.shtml)

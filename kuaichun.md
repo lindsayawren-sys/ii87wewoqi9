@@ -1,61 +1,56 @@
-# 2026年ITF国际网球大师赛石家庄站挥拍开赛
+# 首度超越线下！传统险企线上渠道成购险第一入口 超四成互联网保险消费者用 AI对比产品
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新网石家庄5月2日电 2026年ITF国际网球大师赛石家庄站5月1日挥拍开赛。作为一项具有国际影响力的网球赛事，本次赛事汇聚了来自中国、美国、韩国、英国、塞尔维亚等国家和地区的200余名网球选手挥拍竞技。 ITF国际网球大师赛是国际网球联合会重点打造的网球赛事。该赛事以吸引精英级大众网球爱好者广泛参与为特点，鼓励球员打破年龄界限。本次赛事由国际网球联合会(ITF)授权、国家体
+财联社5月8日讯（记者 高萍） “手机买保险”“AI 对比保单”等成为目前金融消费热门话题。财联社记者从业内获取的最新报告数据显示，2025年互联网保险消费者在保产品的购买渠道中，传统保险公司线上渠道的购险率首度超越其线下渠道，占比达63%，成为消费者购险的第一入口。 而在金融监管持续规范、人工智能全面渗透、居民保障意识不断提升的背景下，国内保险消费行为发生深刻变革。2025年
 
 ## 正文
 
-中新网石家庄5月2日电 2026年ITF国际网球大师赛石家庄站5月1日挥拍开赛。
+财联社5月8日讯（记者 高萍） “手机买保险”“AI 对比保单”等成为目前金融消费热门话题。
 
-作为一项具有国际影响力的网球赛事，本次赛事汇聚了来自中国、美国、韩国、英国、塞尔维亚等国家和地区的200余名网球选手挥拍竞技。
+财联社记者从业内获取的最新报告数据显示，2025年互联网保险消费者在保产品的购买渠道中，传统保险公司线上渠道的购险率首度超越其线下渠道，占比达63%，成为消费者购险的第一入口。
 
-ITF国际网球大师赛是国际网球联合会重点打造的网球赛事。
+而在金融监管持续规范、人工智能全面渗透、居民保障意识不断提升的背景下，国内保险消费行为发生深刻变革。
 
-该赛事以吸引精英级大众网球爱好者广泛参与为特点，鼓励球员打破年龄界限。
+2025年保险业AI的作用开始从辅助工具变成核心战略，AI 也深度融入购险决策全流程，超半数消费者将AI推荐的产品作为购险参考项。
 
-本次赛事由国际网球联合会(ITF)授权、国家体育总局网球运动管理中心、中国网球协会(CTA)、石家庄市体育局主办。
+保险行业人士对财联社记者表示，AI催生出“AI增强型顾问”新范式。
 
-今年，也是石家庄连续第三年举办该项赛事的分站赛。
+未来AI将成为顾问的能力放大器，而非替代者，推动销售角色向专业化与顾问化升级。
 
-本站赛事设置了多个年龄组别，覆盖不同年龄段网球爱好者的竞技需求，同时涵盖男单、女单、男双、女双、混双五大竞技项目，充分展现出大众网球运动的蓬勃活力。
+对于互联网保险，监管部门需持续完善互联网保险的法律法规，特别是针对AI算法、数据安全、隐私保护等前沿领域的监管。
 
-在为期5天的赛程中，选手们以球会友、切磋技艺。
+消费者在保产品购买渠道中线上渠道首超线下渠道 数据显示，2025年保险业原保险保费收入6.12万亿元，同比增长7.4%，互联网保险方面，根据最新的行业交流数据，预计互联网保险保费收入超过7000亿元，同比增长25%以上，互联网保险渗透率稳步提升至11.5%左右。
 
 ## 相关推荐
 
-- 2026-06-29 20:38 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 20:34 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 20:33 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 20:33 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 20:19 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 20:13 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 20:39 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 20:25 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 20:39 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 20:32 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 20:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 20:17 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 20:30 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 20:35 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 20:34 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 20:35 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 20:26 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 20:21 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 20:20 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 20:37 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 20:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 20:33 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 20:29 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 20:41 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 20:31 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:22 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.minike.top/Article/details/911229841067.shtml)
-- 2026-06-29 20:30 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/823837198567.shtml)
-- 2026-06-29 20:25 - [C罗10球7球对垫底队](https://www.blog.kurohicncr.top/Article/details/421915785189.shtml)
-- 2026-06-29 20:25 - [宜宾地震已转移安置225人](http://www.share.minike.top/Article/details/571807162519.shtml)
-- 2026-06-29 20:16 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/289091377.shtml)
-- 2026-06-29 20:37 - [天道](http://www.share.minike.top/Article/details/270779894.shtml)
-- 2026-06-29 20:16 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/34285457.shtml)
-- 2026-06-29 20:20 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.minike.top/Article/details/17128801896.shtml)
-- 2026-06-29 20:40 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/4605830.shtml)
-- 2026-06-29 20:24 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/64518.shtml)
-- 2026-06-29 20:31 - [叠纸](https://www.blog.kurohicncr.top/Article/details/79603009138.shtml)
-- 2026-06-29 20:17 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/437112879.shtml)
-- 2026-06-29 20:26 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/4626961.shtml)
-- 2026-06-29 20:41 - [恋与深空客服的回应](http://www.blog.minike.top/Article/details/963916729.shtml)
-- 2026-06-29 20:40 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/755283835.shtml)
+- 2026-06-29 20:33 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/257177868095.shtml)
+- 2026-06-29 20:19 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/55837080108.shtml)
+- 2026-06-29 20:35 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/59520617962.shtml)
+- 2026-06-29 20:29 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/06792402852.shtml)
+- 2026-06-29 20:25 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/52418.shtml)
+- 2026-06-29 20:38 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/55311.shtml)
+- 2026-06-29 20:27 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/485074.shtml)
+- 2026-06-29 20:33 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/26422626339.shtml)
+- 2026-06-29 20:45 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/97160171486.shtml)
+- 2026-06-29 20:25 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/2088967725.shtml)
+- 2026-06-29 20:42 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/42809198296.shtml)
+- 2026-06-29 20:25 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/3949529708.shtml)
+- 2026-06-29 20:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/19651.shtml)
+- 2026-06-29 20:35 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/58585277761.shtml)
+- 2026-06-29 20:46 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/02219.shtml)

@@ -1,57 +1,56 @@
-# 西维思药房如何利用机器人保障止汗剂等商品货源充足
+# 伊朗蜂群快艇编队持续施压美国海军
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-这家连锁药房首家高度自动化仓库借助机器人每周处理数百万件货品，所需人力仅为传统仓库的一小部分 新泽西州海恩斯波特市 —— 费城附近、紧邻新泽西收费公路的这座小镇拥有数十座仓库，其中一座内部景象与众不同，一眼望去看不到成群工人在货架拣货、打包订单，也没有堆满纸箱的巨型仓储货架。 取而代之的是，仓库内矗立着高达 28 英尺、简约红灰配色的墙体。所有货品流转作业都在墙体上方及后方进行
+美伊近期交火事件，凸显出一个长期存在的军事难题：伊朗大批小型快速攻击快艇，频繁骚扰美国海军、袭扰商业航运船只。 在美以军事行动初期，美军空袭摧毁了伊朗多艘大型军舰。但伊朗仍保有大量小型船只；这类舰艇可加装肩扛式导弹与机枪，也能用于布设海军水雷。 据美国中央司令部消息，伊朗正是动用此类快艇，在霍尔木兹海峡向美国导弹驱逐舰发起袭击。至少一艘护卫舰遭到快艇火力打击。作为反击，美军军用
 
 ## 正文
 
-这家连锁药房首家高度自动化仓库借助机器人每周处理数百万件货品，所需人力仅为传统仓库的一小部分 新泽西州海恩斯波特市 —— 费城附近、紧邻新泽西收费公路的这座小镇拥有数十座仓库，其中一座内部景象与众不同，一眼望去看不到成群工人在货架拣货、打包订单，也没有堆满纸箱的巨型仓储货架。
+美伊近期交火事件，凸显出一个长期存在的军事难题：伊朗大批小型快速攻击快艇，频繁骚扰美国海军、袭扰商业航运船只。
 
-取而代之的是，仓库内矗立着高达 28 英尺、简约红灰配色的墙体。
+在美以军事行动初期，美军空袭摧毁了伊朗多艘大型军舰。
 
-所有货品流转作业都在墙体上方及后方进行，数百台机器人来回转运商品，为美国东北部及中大西洋地区的西维思药房门店补货。
+但伊朗仍保有大量小型船只；这类舰艇可加装肩扛式导弹与机枪，也能用于布设海军水雷。
 
-物流资讯专栏订阅 聚焦全球物流行业要闻与深度分析，涵盖供应链、运输及科技领域。
+据美国中央司令部消息，伊朗正是动用此类快艇，在霍尔木兹海峡向美国导弹驱逐舰发起袭击。
 
-这座仓库占地面积 16.5 万平方英尺，约等于三个标准足球场，也是西维思旗下二十多座仓储设施中首座大规模部署机器人的仓库。
+至少一艘护卫舰遭到快艇火力打击。
 
-按门店数量计算，西维思是美国最大的零售药房连锁企业。
+作为反击，美军军用直升机周一在霍尔木兹海峡执行商业航运护航任务期间，击沉六艘伊朗快艇。
 
-公司押注自动化技术，优化门店补货流程、提升配送时效。
+军事专家估算，战前伊朗拥有数百艘快艇。
 
-在零售利润持续收窄、亚马逊、沃尔玛及折扣零售商竞争加剧的当下，这一战略助力西维思提升市场竞争力。
+一名军事分析师预估，截至4月，仍有约60%快艇完好无损。
 
 ## 相关推荐
 
-- 2026-06-29 20:33 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 20:16 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 20:34 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 20:12 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 20:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 20:22 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 20:29 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 20:25 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 20:13 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 20:35 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 20:34 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 20:40 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 20:39 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 20:30 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 20:32 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 20:45 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 20:38 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 20:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 20:44 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 20:35 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 20:28 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:22 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/606806.shtml)
-- 2026-06-29 20:20 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/2817982899.shtml)
-- 2026-06-29 20:28 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/17317.shtml)
-- 2026-06-29 20:28 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/15471.shtml)
-- 2026-06-29 20:23 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/59476693.shtml)
-- 2026-06-29 20:41 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/077315561751.shtml)
-- 2026-06-29 20:36 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/0970907301.shtml)
-- 2026-06-29 20:35 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/0823794821.shtml)
-- 2026-06-29 20:17 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/463317171.shtml)
-- 2026-06-29 20:28 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/1537604.shtml)
-- 2026-06-29 20:41 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.minike.top/Article/details/28044663.shtml)
-- 2026-06-29 20:16 - [主力抛售电子和通信板块](https://www.share.minike.top/Article/details/33249.shtml)
-- 2026-06-29 20:29 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/9557908672.shtml)
-- 2026-06-29 20:25 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/68332.shtml)
-- 2026-06-29 20:32 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/932435.shtml)
+- 2026-06-29 20:26 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/405985.shtml)
+- 2026-06-29 20:41 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/76122679395.shtml)
+- 2026-06-29 20:28 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/9186847524.shtml)
+- 2026-06-29 20:32 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/763083.shtml)
+- 2026-06-29 20:46 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/189372.shtml)
+- 2026-06-29 20:25 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/60369921.shtml)
+- 2026-06-29 20:34 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.kurohicncr.top/Article/details/03236570971.shtml)
+- 2026-06-29 20:44 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/2405683136.shtml)
+- 2026-06-29 20:39 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/94310098.shtml)
+- 2026-06-29 20:40 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/17242481.shtml)
+- 2026-06-29 20:32 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/075828728.shtml)
+- 2026-06-29 20:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/4197933097.shtml)
+- 2026-06-29 20:27 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/820620441.shtml)
+- 2026-06-29 20:20 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/65802496.shtml)
+- 2026-06-29 20:27 - [斗破苍穹](http://www.blog.minike.top/Article/details/4756444.shtml)

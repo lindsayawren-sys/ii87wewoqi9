@@ -1,61 +1,58 @@
-# 五粮液的“五宗罪”
+# 黄仁勋点赞“光”的力量！创业板人工智能ETF（159363）应声翻红，最新光模块CPO含量高达50%！
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：五粮液“大洗澡”：“腰斩式”修改历史数据，全年净利暴跌72% 来源：西南老鹰 五粮液的“五宗罪”，监管不查就是对其“财务造假”的纵容 资本市场正在上演荒诞大戏，主角是五粮液。 五粮液公告将财报推迟到昨天发布，市场就有不好的预期，财报一发布，网上瞬间爆炸，居然还能这么干！ “一宗罪”：突破底线财务“大洗澡” 根据五粮液202
+5月8日最新消息，英伟达首席执行官黄仁勋在接受采访时，大力赞扬其与康宁公司的新合作项目。他表示，下一代人工智能基础设施将需要大量的光学连接，因为计算需求正在迅速增长，以至于铜线已经无法满足需求。 热门ETF方面，光模块CPO含量占比50%的创业板人工智能ETF华宝（159363）午后直线拉升翻红，继续冲击前高，实时成交超6亿元，交投居全市场AI主题类ETF首位！成份股方面，太辰
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：五粮液“大洗澡”：“腰斩式”修改历史数据，全年净利暴跌72% 来源：西南老鹰 五粮液的“五宗罪”，监管不查就是对其“财务造假”的纵容 资本市场正在上演荒诞大戏，主角是五粮液。
+5月8日最新消息，英伟达首席执行官黄仁勋在接受采访时，大力赞扬其与康宁公司的新合作项目。
 
-五粮液公告将财报推迟到昨天发布，市场就有不好的预期，财报一发布，网上瞬间爆炸，居然还能这么干！
+他表示，下一代人工智能基础设施将需要大量的光学连接，因为计算需求正在迅速增长，以至于铜线已经无法满足需求。
 
-“一宗罪”：突破底线财务“大洗澡” 根据五粮液2025年财报，营业收入405.29亿元，同比下降54.55%；归属于上市公司股东的净利润为89.54亿元，同比下降71.89%。
+热门ETF方面，光模块CPO含量占比50%的创业板人工智能ETF华宝（159363）午后直线拉升翻红，继续冲击前高，实时成交超6亿元，交投居全市场AI主题类ETF首位！
 
-公司拟以38.82亿为基数，向全体股东每10股派发现金红利25.78元（含税），不送红股，不以公积金转增股本。
+成份股方面，太辰光领涨超11%，中际旭创涨超2%。
 
-而对比该公司披露的一季报，让人瞠目结舌。
+国盛证券认为，海外云厂商集中发布新财报，AI业务变现加速与全年资本开支指引再度全面上调，成为AI算力景气度最核心信号；同时，算力供给仍处于供不应求状态，Q1微软、meta资本开支实际执行节奏放缓下，下半年AIDC建设节奏预计再加速，光模块等算力基建产业链将持续受益于超高景气下的量价齐升。
 
-2026年一季度营收228.38亿元，同比增长33.67%；净利润80.63亿元，同比增长82.57%。
+一键布局光模块CPO龙头机会，建议重点关注同类规模、流动性第一的创业板人工智能ETF华宝（159363）及场外联接（A类023407、C类023408），标的指数最新光模块含量为50%，“易中天”一网打尽，约三成仓位布局AI应用，不止是算力核心，也是AI应用代表。
 
-公司表示，业绩变动主要系同期基数较低，同比有所增长。
+值得注意的是，截至2026.4.30，创业板人工智能ETF华宝（159363）最新规模达70.45亿元创新高，规模居全市场双创AI赛道首位！
 
-到底发生了什么？
+最近6个月日均成交约8亿元，交投居全市场AI赛道首位。
 
 ## 相关推荐
 
-- 2026-06-29 20:21 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 20:37 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 20:21 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 20:18 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 20:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 20:39 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 20:41 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 20:28 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 20:16 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 20:17 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 20:35 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 20:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 20:27 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 20:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 20:37 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 20:46 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 20:40 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 20:40 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 20:34 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 20:40 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 20:43 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 20:29 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 20:29 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 20:18 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 20:23 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 20:32 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 20:24 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:36 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/96165847900.shtml)
-- 2026-06-29 20:16 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/45450556322.shtml)
-- 2026-06-29 20:37 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/1358771258.shtml)
-- 2026-06-29 20:33 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/6085723349.shtml)
-- 2026-06-29 20:28 - [海清4次陪跑白玉兰](http://www.blog.minike.top/Article/details/24841909.shtml)
-- 2026-06-29 20:41 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/6125963.shtml)
-- 2026-06-29 20:33 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/73474.shtml)
-- 2026-06-29 20:23 - [千与千寻](https://www.blog.minike.top/Article/details/32058021846.shtml)
-- 2026-06-29 20:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/88007860.shtml)
-- 2026-06-29 20:31 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/1394624505.shtml)
-- 2026-06-29 20:22 - [半导体和股市为何没让韩国人起飞](https://www.blog.kurohicncr.top/Article/details/286323625222.shtml)
-- 2026-06-29 20:25 - [一生一世](http://www.share.minike.top/Article/details/008444819949.shtml)
-- 2026-06-29 20:38 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/049583.shtml)
-- 2026-06-29 20:32 - [TTG KSG](http://www.share.kurohicncr.top/Article/details/050433784.shtml)
-- 2026-06-29 20:35 - [福建海警位金门附近海域常态执法巡查](http://www.blog.kurohicncr.top/Article/details/372660.shtml)
+- 2026-06-29 20:42 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/2368750.shtml)
+- 2026-06-29 20:30 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/98099200249.shtml)
+- 2026-06-29 20:45 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/57370475797.shtml)
+- 2026-06-29 20:41 - [乔家的儿女](https://www.blog.minike.top/Article/details/31911534440.shtml)
+- 2026-06-29 20:43 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/80231.shtml)
+- 2026-06-29 20:19 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/7574416.shtml)
+- 2026-06-29 20:22 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/51711687.shtml)
+- 2026-06-29 20:37 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/1474692805.shtml)
+- 2026-06-29 20:44 - [《贺子珍》](https://www.blog.minike.top/Article/details/363535215.shtml)
+- 2026-06-29 20:32 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/319400209.shtml)
+- 2026-06-29 20:35 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/927329698.shtml)
+- 2026-06-29 20:44 - [我们的少年时代2](http://www.blog.minike.top/Article/details/19318039.shtml)
+- 2026-06-29 20:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/6427745348.shtml)
+- 2026-06-29 20:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/20558728.shtml)
+- 2026-06-29 20:28 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/106083998.shtml)

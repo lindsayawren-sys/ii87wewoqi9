@@ -1,61 +1,58 @@
-# 大卫·海格：品牌，是中国经济下一阶段真正的“护城河”
+# 火力全开！港股“硬”科技何以持续跑赢？规模最大港股通信息技术ETF华宝（159131）劲升4.25%溢价飙涨
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-专题：对话奥马哈·第十一届中美投资人酒会 当地时间5月2日，品牌金融集团（Brand Finance ）创始人、董事长大卫·海格（David Haigh）在新浪财经2026年“对话奥马哈·第十一届中美投资人酒会”中发表特别致辞。 海格认为，在全球经济竞争日益从“制造能力”转向“品牌与无形资产”竞争的今天， 中国正在从“世界工厂”，转向“全球品牌创造者”。这背后意味着中国经济价值
+5月7日，港股硬科技继续狂飙，有“恒生科技加强版”之称的中证港股通信息技术指数大涨3.95%强势跑赢恒生科技（3.06%）、港股通科技（2.79%）等港股科技类指数。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）继昨日大涨5%后，今日续涨4.25%强势连阳，成交额7.22亿元创上市以来次高，资金申购1000万份。 板块内超九成成份股飘红，滴普科技狂飙逾63
 
 ## 正文
 
-专题：对话奥马哈·第十一届中美投资人酒会 当地时间5月2日，品牌金融集团（Brand Finance ）创始人、董事长大卫·海格（David Haigh）在新浪财经2026年“对话奥马哈·第十一届中美投资人酒会”中发表特别致辞。
+5月7日，港股硬科技继续狂飙，有“恒生科技加强版”之称的中证港股通信息技术指数大涨3.95%强势跑赢恒生科技（3.06%）、港股通科技（2.79%）等港股科技类指数。
 
-海格认为，在全球经济竞争日益从“制造能力”转向“品牌与无形资产”竞争的今天， 中国正在从“世界工厂”，转向“全球品牌创造者”。
+同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）继昨日大涨5%后，今日续涨4.25%强势连阳，成交额7.22亿元创上市以来次高，资金申购1000万份。
 
-这背后意味着中国经济价值结构的深层变化。
+板块内超九成成份股飘红，滴普科技狂飙逾63%，建滔积层板、澜起科技等5股涨超10%。
 
-大卫·海格首先强调，品牌并不只是广告或者市场宣传，而是企业最重要的无形资产之一。
+鸿腾精密、纳芯微等涨超9%，华虹半导体涨超8%。
 
-根据 Brand Finance 长期研究：强势品牌企业可以获得约65%的估值溢价； 在经济低迷时期，股价波动更低；融资成本甚至能低60个基点。
+消息面上，海外存储芯片巨头接连大涨提振情绪。
 
-这些数据，其实都在验证巴菲特多年以来反复强调的“护城河”理论。
+爱建证券分析指出，全球存储芯片受益于AI算力需求爆发，行业进入高景气周期。
 
-巴菲特一直以来相信： 真正值得长期投资的企业，必须拥有能够持续保护利润与价值创造能力的“宽护城河”。
+三星电子2026Q1半导体营业利润同比大增4782%，DRAM与NAND Flash价格环比涨幅超55%，HBM业务收入同比增长超三倍，HBM4E产品带宽达4.0TB/s，计划2027年占据全球50%以上份额。
 
-而品牌，正是现代商业社会中最强大的护城河之一。
+谷歌、微软、Meta等科技巨头持续加码AI基础设施资本开支，推动高端存储需求刚性增长。
 
 ## 相关推荐
 
-- 2026-06-29 20:30 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-29 20:26 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 20:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 20:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 20:34 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 20:39 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 20:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 20:26 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 20:40 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 20:12 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 20:41 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 20:32 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 20:15 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 20:21 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 20:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 20:18 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 20:25 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 20:39 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 20:27 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 20:33 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 20:22 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 20:30 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 20:37 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 20:46 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 20:31 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 20:36 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 20:39 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:36 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.kurohicncr.top/Article/details/4619244.shtml)
-- 2026-06-29 20:29 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/805456376.shtml)
-- 2026-06-29 20:31 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/35809.shtml)
-- 2026-06-29 20:30 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/185032.shtml)
-- 2026-06-29 20:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/81834.shtml)
-- 2026-06-29 20:34 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/42645.shtml)
-- 2026-06-29 20:28 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/84540417775.shtml)
-- 2026-06-29 20:20 - [歼-15型舰载机为何被歼-15T替代](https://www.share.minike.top/Article/details/7192798172.shtml)
-- 2026-06-29 20:26 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/4055396.shtml)
-- 2026-06-29 20:36 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/83131532155.shtml)
-- 2026-06-29 20:15 - [互助版模拟高考志愿填报](http://www.share.kurohicncr.top/Article/details/4573324.shtml)
-- 2026-06-29 20:40 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/2337747015.shtml)
-- 2026-06-29 20:16 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/708563039299.shtml)
-- 2026-06-29 20:29 - [哈兰德吃饭被镜中自己吓到](https://www.blog.kurohicncr.top/Article/details/94884306579.shtml)
-- 2026-06-29 20:37 - [极限挑战第一季](http://www.blog.minike.top/Article/details/60066663655.shtml)
+- 2026-06-29 20:43 - [斛珠夫人](https://www.share.minike.top/Article/details/17332.shtml)
+- 2026-06-29 20:29 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/607414635.shtml)
+- 2026-06-29 20:26 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/10815482299.shtml)
+- 2026-06-29 20:37 - [天道](https://www.blog.kurohicncr.top/Article/details/30796447.shtml)
+- 2026-06-29 20:43 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/5232211070.shtml)
+- 2026-06-29 20:31 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/41321651.shtml)
+- 2026-06-29 20:18 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/15546550423.shtml)
+- 2026-06-29 20:36 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/16579043.shtml)
+- 2026-06-29 20:36 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/49653.shtml)
+- 2026-06-29 20:29 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/8265976082.shtml)
+- 2026-06-29 20:46 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/01975530451.shtml)
+- 2026-06-29 20:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/44546740.shtml)
+- 2026-06-29 20:33 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/73183433419.shtml)
+- 2026-06-29 20:43 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/4337185.shtml)
+- 2026-06-29 20:18 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/26126929508.shtml)

@@ -1,59 +1,56 @@
-# 华尔街延续涨势 纳指与标普500再创新高
+# 济安金信｜2026年一季度公募基金评级报告
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-华尔街股市周五延续反弹势头，标普500指数和纳斯达克指数双双触及历史新高。此前两大指数刚刚录得多年来最佳月度表现，市场情绪受伊朗向巴基斯坦调解人提交谈判新提案的消息提振。 截至午盘交易时段，标普500指数上涨46.01点，涨幅0.64%，报7255.02点；纳斯达克综合指数上涨264.41点，涨幅1.06%，报25156.73点；道琼斯工业平均指数上涨79.08点，涨幅0.16
+来源：济安金信基金评价中心 公募基金是各类资金参与资本市场的重要间接投资工具。基金产品作为一类信托资产，其保值增值是基金投资者的共同期望。遵守各种法律法规的规定和基金契约是基金运作的两个刚性约束，在此基础上，根据基金的风险收益特征，济安评级将基金分为货币型、纯债型、一级债、二级债、混合型、股票型、封闭式、指数型、基金中基金（FOF）和QDII十种类型。 济安基金综合评价体系分别
 
 ## 正文
 
-华尔街股市周五延续反弹势头，标普500指数和纳斯达克指数双双触及历史新高。
+来源：济安金信基金评价中心 公募基金是各类资金参与资本市场的重要间接投资工具。
 
-此前两大指数刚刚录得多年来最佳月度表现，市场情绪受伊朗向巴基斯坦调解人提交谈判新提案的消息提振。
+基金产品作为一类信托资产，其保值增值是基金投资者的共同期望。
 
-截至午盘交易时段，标普500指数上涨46.01点，涨幅0.64%，报7255.02点；纳斯达克综合指数上涨264.41点，涨幅1.06%，报25156.73点；道琼斯工业平均指数上涨79.08点，涨幅0.16%，报49731.22点。
+遵守各种法律法规的规定和基金契约是基金运作的两个刚性约束，在此基础上，根据基金的风险收益特征，济安评级将基金分为货币型、纯债型、一级债、二级债、混合型、股票型、封闭式、指数型、基金中基金（FOF）和QDII十种类型。
 
-信息科技板块领涨，涨幅达1.5%。
+济安基金综合评价体系分别从基金盈利能力、抗风险能力、业绩稳定性、选股能力、择时能力、选基能力、基准跟踪能力、超额收益能力和整体费用九方面，对基金产品和基金管理团队投资运作的综合管理能力进行考察。
 
-苹果公司股价大涨近5%，该公司周四盘后公布的第二财季业绩全面超预期。
+对于有违反法律法规、偏离基金合同约定、或由于其他原因难以评级的基金我公司将不予评价。
 
-财报显示，苹果营收达1111.8亿美元，同比增长17%，每股收益2.01美元，均高于市场预估。
+根据济安金信基金评价中心一季度评级结果，满足评级年限并获得济安评级的公募基金产品共9266只，较前一季度增加了192只。
 
-iPhone 17需求极为强劲，推动iPhone营收达到569.9亿美元的历史新高。
+本期获得五星评级的基金共950只，具体到各产品类型中，货币型五星基金共29只，纯债型五星基金共202只，一级债型五星基金共32只，二级债型五星基金共49只，混合型五星基金共391只，股票型五星基金共48只，封闭式五星基金共7只，指数型五星基金共143只，QDII型五星基金共18只，FOF型五星基金共31只。
 
-公司同时宣布了1000亿美元的股票回购计划。
+更多详细内容请参阅附件。
 
 ## 相关推荐
 
-- 2026-06-29 20:16 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 20:19 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 20:30 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 20:31 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 20:16 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 20:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 20:31 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 20:34 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 20:15 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 20:17 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 20:13 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 20:33 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 20:12 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 20:32 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 20:30 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 20:35 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 20:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 20:20 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 20:40 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 20:24 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 20:42 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 20:20 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 20:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:17 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/8836902988.shtml)
-- 2026-06-29 20:39 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/69319.shtml)
-- 2026-06-29 20:14 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/6072812335.shtml)
-- 2026-06-29 20:16 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/10605107466.shtml)
-- 2026-06-29 20:31 - [歼-15型舰载机为何被歼-15T替代](https://www.share.kurohicncr.top/Article/details/078861907614.shtml)
-- 2026-06-29 20:13 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/8830470.shtml)
-- 2026-06-29 20:27 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/37575587.shtml)
-- 2026-06-29 20:25 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/46519383.shtml)
-- 2026-06-29 20:12 - [郑钦文谈再战西尼亚科娃](https://www.blog.minike.top/Article/details/89877.shtml)
-- 2026-06-29 20:26 - [金刚川](https://www.blog.kurohicncr.top/Article/details/249707376433.shtml)
-- 2026-06-29 20:29 - [北京市发布雷电黄色预警](http://www.blog.minike.top/Article/details/15691229.shtml)
-- 2026-06-29 20:30 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/952143159.shtml)
-- 2026-06-29 20:42 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/27880247.shtml)
-- 2026-06-29 20:35 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/2776256.shtml)
-- 2026-06-29 20:13 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/818766.shtml)
+- 2026-06-29 20:20 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/72544782043.shtml)
+- 2026-06-29 20:27 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/1385609670.shtml)
+- 2026-06-29 20:30 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/4071652393.shtml)
+- 2026-06-29 20:39 - [委内瑞拉发生余震](http://www.blog.kurohicncr.top/Article/details/3898877.shtml)
+- 2026-06-29 20:31 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/9074177.shtml)
+- 2026-06-29 20:39 - [欧洲极端高温如何影响家电股](http://www.blog.kurohicncr.top/Article/details/80282190.shtml)
+- 2026-06-29 20:45 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/39637713.shtml)
+- 2026-06-29 20:37 - [起风了](https://www.share.kurohicncr.top/Article/details/40867307.shtml)
+- 2026-06-29 20:45 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/663587732016.shtml)
+- 2026-06-29 20:28 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/66878400313.shtml)
+- 2026-06-29 20:24 - [济南航空航天全面起势](https://www.share.kurohicncr.top/Article/details/91689399184.shtml)
+- 2026-06-29 20:35 - [一见倾心](http://www.share.minike.top/Article/details/52530039.shtml)
+- 2026-06-29 20:31 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/308760167467.shtml)
+- 2026-06-29 20:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/916280090.shtml)
+- 2026-06-29 20:41 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/63443167.shtml)

@@ -1,58 +1,56 @@
-# 特朗普削减驻德美军计划引发美国及北约盟友质疑
+# 原油：油价小幅上涨 海湾冲突威胁停火协议
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-美国计划未来一年内从德国撤出约5000名美军，此举引发来自北约盟国和美国国会共和党人的强烈质疑。 一名北约发言人表示，该防务联盟正在寻求了解这一周五公布的美方计划细节，并补充称，华盛顿的这一举措凸显欧洲必须继续加大自身国防投入的必要性。 该发言人表示，随着在更强大的北约框架下建设更强大的欧洲这一趋势持续推进，联盟仍对其维持威慑和防御的能力有信心。 美国总统特朗普近年来对欧洲国家
+油价小幅上涨，交易员权衡美国与伊朗的最新冲突是否会破坏脆弱的停火，从而削弱短期内达成和平协议的希望。 全球基准布伦特上涨1.2%，收于每桶约101美元，但本周仍下跌约6%。 尽管美国官员表示期望伊朗将很快回应最新提议，但波斯湾再度爆发冲突仍令市场不安。 市场关注点仍集中在自2月底战争爆发以来陷入瘫痪的霍尔木兹海峡航运。 伊朗批评美国违反停火协议，据塔斯尼姆通讯社报道，伊朗准备制
 
 ## 正文
 
-美国计划未来一年内从德国撤出约5000名美军，此举引发来自北约盟国和美国国会共和党人的强烈质疑。
+油价小幅上涨，交易员权衡美国与伊朗的最新冲突是否会破坏脆弱的停火，从而削弱短期内达成和平协议的希望。
 
-一名北约发言人表示，该防务联盟正在寻求了解这一周五公布的美方计划细节，并补充称，华盛顿的这一举措凸显欧洲必须继续加大自身国防投入的必要性。
+全球基准布伦特上涨1.2%，收于每桶约101美元，但本周仍下跌约6%。
 
-该发言人表示，随着在更强大的北约框架下建设更强大的欧洲这一趋势持续推进，联盟仍对其维持威慑和防御的能力有信心。
+尽管美国官员表示期望伊朗将很快回应最新提议，但波斯湾再度爆发冲突仍令市场不安。
 
-美国总统特朗普近年来对欧洲国家愈发不满，指责这些国家忽视他在美伊冲突中的求助。
+市场关注点仍集中在自2月底战争爆发以来陷入瘫痪的霍尔木兹海峡航运。
 
-特朗普一直在威胁要削减美国在欧洲的军事存在，并于周五宣布将欧盟汽车和卡车关税提高至25%，此举对德国汽车制造商的冲击预计尤为显著。
+伊朗批评美国违反停火协议，据塔斯尼姆通讯社报道，伊朗准备制定有关霍尔木兹海峡“法律制度”的计划。
 
-来自美国密西西比州、担任参议院军事委员会主席的共和党人Roger Wicker，以及众议院军事委员会主席、阿拉巴马州共和党人Mike Rogers于周六发表联合声明，对撤出数千名驻军表示担忧 —— 这一来自总统所属党派的批评颇为引人注目。
+“对霍尔木兹海峡的控制已成为伊朗最有力的谈判筹码，”法兴银行分析师Ben Hoff等在报告中写道。
 
-“在相关能力尚未完全建立之前，过早削减美国在欧洲的前沿存在，可能削弱威慑力，并向弗拉基米尔·普京传递错误信号，”两位议员表示。
+“近期对船只的扣押和骚扰表明，尽管外交是基准情景，但存在冲突重燃的实质性风险。
 
-“与其完全撤出欧洲大陆，不如将这5000名美军转向东部署来维持在欧洲的强大威慑，这符合美国的利益，”他们还表示，并称他们希望在未来几天和几周内从五角大楼获得更多细节。
+” 美国总统特朗普周五下午宣布俄罗斯和乌克兰将实施为期三天的停火，这推动油价短暂回落。
 
 ## 相关推荐
 
-- 2026-06-29 20:31 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 20:30 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 20:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 20:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 20:29 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 20:34 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 20:30 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 20:41 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 20:39 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 20:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 20:40 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 20:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 20:23 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 20:31 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 20:19 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 20:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 20:20 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 20:30 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 20:33 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 20:45 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 20:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 20:36 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:29 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/5929739.shtml)
-- 2026-06-29 20:36 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/745270.shtml)
-- 2026-06-29 20:24 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/1682405217.shtml)
-- 2026-06-29 20:26 - [急先锋](http://www.share.minike.top/Article/details/417594.shtml)
-- 2026-06-29 20:33 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/014698.shtml)
-- 2026-06-29 20:18 - [沉睡花园](http://www.blog.minike.top/Article/details/2932573.shtml)
-- 2026-06-29 20:28 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/479731634.shtml)
-- 2026-06-29 20:14 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/579477236.shtml)
-- 2026-06-29 20:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/33062988.shtml)
-- 2026-06-29 20:13 - [世界杯1/16决赛对阵出炉](http://www.blog.minike.top/Article/details/0419651.shtml)
-- 2026-06-29 20:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/07047376.shtml)
-- 2026-06-29 20:37 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/802449523.shtml)
-- 2026-06-29 20:30 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/238807.shtml)
-- 2026-06-29 20:41 - [叠纸](http://www.share.kurohicncr.top/Article/details/9085864.shtml)
-- 2026-06-29 20:21 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/14430120.shtml)
+- 2026-06-29 20:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/002082053.shtml)
+- 2026-06-29 20:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/508791.shtml)
+- 2026-06-29 20:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/86139082100.shtml)
+- 2026-06-29 20:38 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/07781807.shtml)
+- 2026-06-29 20:46 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/060949786.shtml)
+- 2026-06-29 20:18 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/83536.shtml)
+- 2026-06-29 20:41 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/351744550829.shtml)
+- 2026-06-29 20:39 - [时光音乐会](https://www.share.minike.top/Article/details/76007943294.shtml)
+- 2026-06-29 20:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/76522.shtml)
+- 2026-06-29 20:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/509002644.shtml)
+- 2026-06-29 20:38 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/46699033489.shtml)
+- 2026-06-29 20:23 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.kurohicncr.top/Article/details/222214857154.shtml)
+- 2026-06-29 20:45 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/452003589743.shtml)
+- 2026-06-29 20:28 - [夫妻生活太无聊，所以我……](http://www.blog.minike.top/Article/details/298790618.shtml)
+- 2026-06-29 20:26 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/736332565549.shtml)

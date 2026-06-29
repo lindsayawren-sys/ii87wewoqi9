@@ -1,50 +1,59 @@
-# 今日全国铁路预计发送旅客1855万人次
+# 中外医疗AI评估标准有色差？ 中国机构发布榜单 WiseDiag、Gemini、OpenAI GPT位列三甲
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-记者从国铁集团了解到，今日(3日)全国铁路预计发送旅客1855万人次，计划加开旅客列车923列。昨日(2日)，全国铁路发送旅客1978.1万人次，运输安全平稳有序。 (央视新闻客户端 总台央视记者 王善涛)
+文/新浪财经香港站 赵岚 “先问AI后问医”，当市场教育已经完成，越来越多人在有小病小痛时更倾向于问AI获得即时性答案，而非耗费大量的时间去医院排队就诊。但医疗作为专业性极强的领域，AI问诊真的可靠吗？我们应该以什么标准来评估AI的准确性与专业度？ AI问诊的常用场景：健康管理 慢病管理 市场上医疗类AI大模型及其丰富，当中包括头部大厂的通用大语言模型、健康管理APP、依附于社
 
 ## 正文
 
-记者从国铁集团了解到，今日(3日)全国铁路预计发送旅客1855万人次，计划加开旅客列车923列。
+文/新浪财经香港站 赵岚 “先问AI后问医”，当市场教育已经完成，越来越多人在有小病小痛时更倾向于问AI获得即时性答案，而非耗费大量的时间去医院排队就诊。
 
-昨日(2日)，全国铁路发送旅客1978.1万人次，运输安全平稳有序。
+但医疗作为专业性极强的领域，AI问诊真的可靠吗？
 
-(央视新闻客户端 总台央视记者 王善涛)
+我们应该以什么标准来评估AI的准确性与专业度？
+
+AI问诊的常用场景：健康管理 慢病管理 市场上医疗类AI大模型及其丰富，当中包括头部大厂的通用大语言模型、健康管理APP、依附于社交软件的小程序等，均可提供问诊类医疗意见。
+
+但不同平台给出的答案存在差异，可能导致问诊者困惑，甚至被错误引导。
+
+“AI的回答有时自相矛盾，当我第一次问诊时他会给我推荐几种药，但我第二次补充症状后，他会给我推荐其他几种药，几款药品之间的作用是重叠的，甚至中、西药之间还是相斥的。
+
+”有用户表示对AI不信任，由于AI所带的特性会“迎合”用户，即使无法准确判断病情，也会基于有限信息给出模糊或错误的建议。
+
+还有些AI为避免责任风险，回应更像是“精准的废话”，比如机械回复 “遵医嘱”。
 
 ## 相关推荐
 
-- 2026-06-29 20:22 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 20:40 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 20:28 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 20:35 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 20:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 20:35 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 20:32 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 20:16 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 20:20 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 20:27 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 20:17 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 20:14 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 20:27 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 20:13 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 20:22 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 20:39 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 20:36 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 20:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 20:33 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 20:19 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 20:42 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 20:22 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 20:29 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 20:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 20:42 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 20:23 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 20:39 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:22 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/421291.shtml)
-- 2026-06-29 20:32 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.kurohicncr.top/Article/details/15924.shtml)
-- 2026-06-29 20:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/55906701.shtml)
-- 2026-06-29 20:25 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/659249631801.shtml)
-- 2026-06-29 20:32 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/05889.shtml)
-- 2026-06-29 20:28 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/00828575717.shtml)
-- 2026-06-29 20:38 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/53254137.shtml)
-- 2026-06-29 20:36 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/818761897.shtml)
-- 2026-06-29 20:34 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/62498.shtml)
-- 2026-06-29 20:22 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/585547429.shtml)
-- 2026-06-29 20:12 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/5249658.shtml)
-- 2026-06-29 20:30 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/782130385398.shtml)
-- 2026-06-29 20:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/853215.shtml)
-- 2026-06-29 20:17 - [互助版模拟高考志愿填报](http://www.share.kurohicncr.top/Article/details/6900164.shtml)
-- 2026-06-29 20:18 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/08539925207.shtml)
+- 2026-06-29 20:38 - [章若楠包场白敬亭特立独行](http://www.share.kurohicncr.top/Article/details/891904229879.shtml)
+- 2026-06-29 20:41 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/87228863.shtml)
+- 2026-06-29 20:27 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.kurohicncr.top/Article/details/59545434.shtml)
+- 2026-06-29 20:34 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/73381.shtml)
+- 2026-06-29 20:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/553793434474.shtml)
+- 2026-06-29 20:46 - [记者暗访养老机构消防安全](https://www.share.minike.top/Article/details/392676953.shtml)
+- 2026-06-29 20:27 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/85734342.shtml)
+- 2026-06-29 20:34 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/7193788.shtml)
+- 2026-06-29 20:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/40196.shtml)
+- 2026-06-29 20:39 - [爱很美味](https://www.share.kurohicncr.top/Article/details/15147.shtml)
+- 2026-06-29 20:31 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/0075942.shtml)
+- 2026-06-29 20:30 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/0429544.shtml)
+- 2026-06-29 20:20 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/0933520.shtml)
+- 2026-06-29 20:27 - [店员光脚踩入盆中清洗土豆](https://www.blog.minike.top/Article/details/033939.shtml)
+- 2026-06-29 20:31 - [欧洲安装一台空调要花近8000元](http://www.share.kurohicncr.top/Article/details/958777872647.shtml)

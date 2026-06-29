@@ -1,58 +1,54 @@
-# 心相近｜拥抱“零关税” 牵手“零距离”
+# 澳门2026年首季度旅客非博彩消费总额同比增长24.5%
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-视频：心相近｜拥抱“零关税” 牵手“零距离”来源：新华社 2026年2月，习近平主席向第39届非洲联盟峰会致贺电，宣布中方将于5月1日起对53个非洲建交国全面实施零关税举措。 这是中国扩大高水平对外开放的新举措，将为非洲发展、中非共逐现代化之梦提供新机遇。 拥抱“零关税”，激发经贸的活力。牵手“零距离”，共绘共赢的前景。 更多优质非洲特色商品将摆上中国货架，丰富日常生活所需。而
+中新社澳门5月8日电 据澳门特区政府统计暨普查局8日公布的数据，澳门2026年第一季度旅客非博彩消费总额达244.3亿元(澳门元，下同)，同比增长24.5%。 数据显示，澳门2026年首季旅客人均非博彩消费同比增长9.5%至2179元，其中留宿旅客及不过夜旅客的人均非博彩消费分别增长7.7%及40.6%。 消费类别方面，来澳旅客消费主要用于购物(48.2%)，其次为住宿(21.
 
 ## 正文
 
-视频：心相近｜拥抱“零关税” 牵手“零距离”来源：新华社 2026年2月，习近平主席向第39届非洲联盟峰会致贺电，宣布中方将于5月1日起对53个非洲建交国全面实施零关税举措。
+中新社澳门5月8日电 据澳门特区政府统计暨普查局8日公布的数据，澳门2026年第一季度旅客非博彩消费总额达244.3亿元(澳门元，下同)，同比增长24.5%。
 
-这是中国扩大高水平对外开放的新举措，将为非洲发展、中非共逐现代化之梦提供新机遇。
+数据显示，澳门2026年首季旅客人均非博彩消费同比增长9.5%至2179元，其中留宿旅客及不过夜旅客的人均非博彩消费分别增长7.7%及40.6%。
 
-拥抱“零关税”，激发经贸的活力。
+消费类别方面，来澳旅客消费主要用于购物(48.2%)，其次为住宿(21.1%)及餐饮(21.0%)等。
 
-牵手“零距离”，共绘共赢的前景。
+按主要客源地统计，与去年同期相比，中国内地、香港及台湾旅客的人均非博彩消费录得4.1%、37.4%及8.9%的增幅，分别达2392元、1203元和2004元。
 
-更多优质非洲特色商品将摆上中国货架，丰富日常生活所需。
+国际旅客的人均非博彩消费同比增加32.5%至2178元。
 
-而中国大市场为非洲带来的，不仅是更加稳定可观的收益，更有发展本地加工与制造业、提升品牌价值的新动能。
-
-“中非携手推进现代化事业，必将为双方人民创造更加美好的未来，为推动构建人类命运共同体树立典范！
-
-” 策划：李忠发 韩墨 编导：朱瑞卿 张代蕾 雷明宇 记者：王越 代贺 张玉洁 戴斌 王泽 华洪立 郑梦雨 曾涛 视频：王妍清 白雪 吴晓寒 李锐杰 李梦帆 统筹：孙浩 杨骏 刘万利
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:38 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 20:21 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 20:31 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 20:29 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 20:31 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 20:34 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 20:21 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 20:15 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 20:23 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 20:31 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 20:24 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 20:30 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 20:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 20:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 20:44 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 20:32 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 20:35 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 20:41 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 20:25 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 20:33 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 20:47 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 20:38 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 20:22 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 20:42 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:33 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/76907119198.shtml)
-- 2026-06-29 20:26 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/986298932.shtml)
-- 2026-06-29 20:32 - [法生态部长反对装空调却自己吹空调](http://www.blog.minike.top/Article/details/1366246110.shtml)
-- 2026-06-29 20:13 - [毒液2](https://www.share.minike.top/Article/details/63305.shtml)
-- 2026-06-29 20:12 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/94797063903.shtml)
-- 2026-06-29 20:26 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/97610924.shtml)
-- 2026-06-29 20:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/491291750.shtml)
-- 2026-06-29 20:29 - [爱很美味](http://www.blog.minike.top/Article/details/8662466.shtml)
-- 2026-06-29 20:36 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/74824412788.shtml)
-- 2026-06-29 20:35 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/0375090189.shtml)
-- 2026-06-29 20:29 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/737527.shtml)
-- 2026-06-29 20:22 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/735450430.shtml)
-- 2026-06-29 20:36 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/077581136.shtml)
-- 2026-06-29 20:39 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/443997678.shtml)
-- 2026-06-29 20:40 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/17420.shtml)
+- 2026-06-29 20:31 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/26515.shtml)
+- 2026-06-29 20:27 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/80257621134.shtml)
+- 2026-06-29 20:47 - [记者乘坐无人驾驶汽车去采访](https://www.blog.minike.top/Article/details/478877.shtml)
+- 2026-06-29 20:34 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/268810395847.shtml)
+- 2026-06-29 20:40 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/6323030681.shtml)
+- 2026-06-29 20:18 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/78652981479.shtml)
+- 2026-06-29 20:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/47637.shtml)
+- 2026-06-29 20:47 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/43891.shtml)
+- 2026-06-29 20:26 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/067109483638.shtml)
+- 2026-06-29 20:20 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/146031170.shtml)
+- 2026-06-29 20:23 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/85716388819.shtml)
+- 2026-06-29 20:45 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/595742.shtml)
+- 2026-06-29 20:46 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/02640644.shtml)
+- 2026-06-29 20:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/39789.shtml)
+- 2026-06-29 20:35 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/8324463160.shtml)

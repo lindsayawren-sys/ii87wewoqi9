@@ -1,57 +1,53 @@
-# 四川安岳粉色月季花海醉游人
+# 原茅台董事长丁雄军涉嫌受贿洗钱被提起公诉
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-短评：欧洲议会的“选择性失明”东京审判为何关乎今天？爱奇艺，到底在急什么？榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？“拼小团”出游热度高，这份“避
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 5月8日，据中华人民共和国最高人民检察院官网显示，日前，贵州省市场监督管理局原党组书记、局长丁雄军（正厅级）涉嫌受贿罪、洗钱罪一案，由贵州省监察委员会调查终结，移送检察机关审查起诉。经贵州省人民检察院指定管辖，由黔东南州人民检察院依法向黔东南州中级人民法院提起公诉。案件正在进一步办理中。 检察机关在审查起诉阶段，依法告知
 
 ## 正文
 
-短评：欧洲议会的“选择性失明”东京审判为何关乎今天？
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 5月8日，据中华人民共和国最高人民检察院官网显示，日前，贵州省市场监督管理局原党组书记、局长丁雄军（正厅级）涉嫌受贿罪、洗钱罪一案，由贵州省监察委员会调查终结，移送检察机关审查起诉。
 
-爱奇艺，到底在急什么？
+经贵州省人民检察院指定管辖，由黔东南州人民检察院依法向黔东南州中级人民法院提起公诉。
 
-榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？
+案件正在进一步办理中。
 
-从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？
+检察机关在审查起诉阶段，依法告知了被告人丁雄军享有的诉讼权利，并依法讯问了被告人，听取了辩护人的意见。
 
-“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
+黔东南州人民检察院起诉指控：被告人丁雄军利用担任贵州省清镇市委常委、副市长，贵阳市两湖一库管理局党委书记、局长，贵阳国家高新技术产业开发区党工委书记、贵阳市白云区委书记，贵阳市人民政府秘书长，毕节市委常委、市人民政府副市长，贵州省能源局党组书记、局长，中国贵州茅台酒厂（集团）有限责任公司党委书记、董事长等职务上的便利，以及职权或地位形成的便利条件，为他人谋取利益，非法收受他人财物，数额特别巨大；掩饰、隐瞒部分受贿所得的来源和性质，情节严重，依法应当以受贿罪、洗钱罪追究其刑事责任。
 
-这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？
-
-上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！
-
-孩子吃饭少、长不高、脾气暴？
+责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-29 20:41 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 20:35 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 20:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 20:20 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 20:12 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 20:38 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 20:28 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 20:39 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 20:33 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 20:28 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 20:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 20:23 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 20:41 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 20:33 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 20:39 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 20:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 20:25 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 20:26 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 20:46 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 20:24 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 20:26 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 20:39 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/0779780450.shtml)
-- 2026-06-29 20:14 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/651286.shtml)
-- 2026-06-29 20:34 - [宜宾地震已转移安置225人](https://www.blog.kurohicncr.top/Article/details/829574139236.shtml)
-- 2026-06-29 20:28 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/495182.shtml)
-- 2026-06-29 20:35 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/4767272122.shtml)
-- 2026-06-29 20:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/133783575931.shtml)
-- 2026-06-29 20:18 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/55413539254.shtml)
-- 2026-06-29 20:25 - [起风了](https://www.blog.kurohicncr.top/Article/details/428641873.shtml)
-- 2026-06-29 20:19 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/60557.shtml)
-- 2026-06-29 20:33 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/362182815.shtml)
-- 2026-06-29 20:22 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/705296.shtml)
-- 2026-06-29 20:38 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/8990739.shtml)
-- 2026-06-29 20:38 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/355858984.shtml)
-- 2026-06-29 20:38 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/366516763.shtml)
-- 2026-06-29 20:35 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/73574331890.shtml)
+- 2026-06-29 20:37 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/8878399.shtml)
+- 2026-06-29 20:23 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/899986857898.shtml)
+- 2026-06-29 20:45 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/125089198.shtml)
+- 2026-06-29 20:42 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/394318980.shtml)
+- 2026-06-29 20:26 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/38314525223.shtml)
+- 2026-06-29 20:23 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/5271600142.shtml)
+- 2026-06-29 20:18 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/567129.shtml)
+- 2026-06-29 20:36 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/89664206.shtml)
+- 2026-06-29 20:45 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/368950983911.shtml)
+- 2026-06-29 20:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/717566.shtml)
+- 2026-06-29 20:26 - [第一炉香](http://www.share.minike.top/Article/details/86362359.shtml)
+- 2026-06-29 20:26 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/641295234.shtml)
+- 2026-06-29 20:19 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.kurohicncr.top/Article/details/490489.shtml)
+- 2026-06-29 20:28 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/77856.shtml)
+- 2026-06-29 20:28 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/32138715803.shtml)

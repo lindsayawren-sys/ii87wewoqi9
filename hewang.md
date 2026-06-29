@@ -1,59 +1,47 @@
-# 杨德龙：做价值投资不能让你一夜暴富，但能让你真正成为时间的朋友
+# 重庆农村商业银行：将于7月27日派发末期股息每10股1.1755元
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。 前海开源基金执行总经理杨德龙在演讲中表示，去年开股东大会的时候，他分享过一个观点。当时巴菲特在股东大会上正式宣布，年底会正式退休，将CEO职位交给格雷格·阿贝尔。“我当时就说，这会带来两个变化：第一，伯克希尔·哈撒韦的股价会见顶下跌
+5月7日金融一线消息，重庆农村商业银行发布公告称，公司将于2026年7月27日派发截至2025年12月31日止年度的末期股息每10股1.1755元。 责任编辑：秦艺
 
 ## 正文
 
-专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。
+5月7日金融一线消息，重庆农村商业银行发布公告称，公司将于2026年7月27日派发截至2025年12月31日止年度的末期股息每10股1.1755元。
 
-前海开源基金执行总经理杨德龙在演讲中表示，去年开股东大会的时候，他分享过一个观点。
-
-当时巴菲特在股东大会上正式宣布，年底会正式退休，将CEO职位交给格雷格·阿贝尔。
-
-“我当时就说，这会带来两个变化：第一，伯克希尔·哈撒韦的股价会见顶下跌；第二，参会人数会逐年下降，最终可能只剩下几个股东。
-
-” 为什么会有这样的变化？
-
-其实这就是“股神”巴菲特个人的魅力所在。
-
-去年巴菲特宣布退休后，周一股市就出现了暴跌，这其实也是市场对巴菲特个人投资能力的一种肯定。
-
-巴菲特以前曾幽默地说过：“如果哪一天媒体报道说我死了，结果伯克希尔·哈撒韦的股价大涨，那就尴尬了；股价大跌，才是对我真正的敬意。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 20:17 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 20:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 20:35 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 20:32 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 20:17 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 20:33 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 20:19 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 20:19 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 20:21 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 20:33 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 20:24 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 20:17 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 20:38 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 20:23 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 20:21 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 20:29 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 20:18 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 20:24 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 20:35 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 20:31 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 20:32 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 20:37 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 20:19 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 20:29 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 20:40 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 20:42 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:33 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/7385503.shtml)
-- 2026-06-29 20:39 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/9112801.shtml)
-- 2026-06-29 20:41 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/99553.shtml)
-- 2026-06-29 20:40 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/89758.shtml)
-- 2026-06-29 20:33 - [普京建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/0571825.shtml)
-- 2026-06-29 20:19 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/761635763497.shtml)
-- 2026-06-29 20:34 - [恋与深空回应争议](https://www.share.minike.top/Article/details/54294302.shtml)
-- 2026-06-29 20:35 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/6142181996.shtml)
-- 2026-06-29 20:24 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/58269.shtml)
-- 2026-06-29 20:27 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.minike.top/Article/details/9748736010.shtml)
-- 2026-06-29 20:22 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/637424490.shtml)
-- 2026-06-29 20:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/20364.shtml)
-- 2026-06-29 20:35 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/375946.shtml)
-- 2026-06-29 20:35 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/152820259789.shtml)
-- 2026-06-29 20:36 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/7749866.shtml)
+- 2026-06-29 20:20 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/756033.shtml)
+- 2026-06-29 20:19 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/3883873365.shtml)
+- 2026-06-29 20:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/395162430.shtml)
+- 2026-06-29 20:21 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/2558673885.shtml)
+- 2026-06-29 20:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/73988170593.shtml)
+- 2026-06-29 20:29 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/396353968.shtml)
+- 2026-06-29 20:30 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/47284.shtml)
+- 2026-06-29 20:27 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/132164357.shtml)
+- 2026-06-29 20:24 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/7073556.shtml)
+- 2026-06-29 20:33 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/115310819535.shtml)
+- 2026-06-29 20:42 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/047481.shtml)
+- 2026-06-29 20:33 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/349865.shtml)
+- 2026-06-29 20:22 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/47828595619.shtml)
+- 2026-06-29 20:46 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/82287035.shtml)
+- 2026-06-29 20:35 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/278103.shtml)

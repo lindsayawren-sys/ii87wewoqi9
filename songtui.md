@@ -1,51 +1,58 @@
-# 华夏银行武汉分行被罚165万元：流动资金贷款贷前调查和贷后管理不尽职等
+# 中新健康｜《过敏科学（Allergy）》连续六年出版中国主题专刊
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-4月30日金融一线消息，据国家金融监督管理总局湖北监管局行政处罚信息公示列表显示，华夏银行股份有限公司武汉分行因流动资金贷款贷前调查和贷后管理不尽职、流动资金贷款交易背景不实，风险分类不准确、通过借新还旧或展期，延缓风险暴露、租赁保理业务基础交易不真实，被罚款165万元。同时，敖艳华、丁攀、朱艳莉被警告；罗威被警告并罚款5万元。 责任编辑：秦艺
+中新网北京5月7日电(记者 赵方园)5月7日，《过敏科学(Allergy)》中国主题专刊发布会在北京召开。《过敏科学》主编、瑞士哮喘研究所教授切兹米·阿克迪斯(Cezmi Akdis)出席发布会，期刊副主编、首都医科大学校长张罗回顾了六年来《过敏科学》中国主题的出版历程。 《过敏科学》创刊于1948年，是欧洲过敏科学和临床免疫学会官方期刊，是全球过敏科学与临床免疫学领域最具影响
 
 ## 正文
 
-4月30日金融一线消息，据国家金融监督管理总局湖北监管局行政处罚信息公示列表显示，华夏银行股份有限公司武汉分行因流动资金贷款贷前调查和贷后管理不尽职、流动资金贷款交易背景不实，风险分类不准确、通过借新还旧或展期，延缓风险暴露、租赁保理业务基础交易不真实，被罚款165万元。
+中新网北京5月7日电(记者 赵方园)5月7日，《过敏科学(Allergy)》中国主题专刊发布会在北京召开。
 
-同时，敖艳华、丁攀、朱艳莉被警告；罗威被警告并罚款5万元。
+《过敏科学》主编、瑞士哮喘研究所教授切兹米·阿克迪斯(Cezmi Akdis)出席发布会，期刊副主编、首都医科大学校长张罗回顾了六年来《过敏科学》中国主题的出版历程。
 
-责任编辑：秦艺
+《过敏科学》创刊于1948年，是欧洲过敏科学和临床免疫学会官方期刊，是全球过敏科学与临床免疫学领域最具影响力的学术期刊之一。
+
+今年，《过敏科学》第六次出版中国主题，由切兹米·阿克迪斯和张罗教授共同担任客座编辑，共收录中国学者论文56篇，包括2篇述评、4篇综述、1篇指南、1篇立场文件、24篇长文、20篇速报、3篇新闻与观点以及1篇通信。
+
+专刊聚焦过敏性鼻炎、哮喘和慢性鼻窦炎鼻息肉三大临床领域，系统探讨了相关疾病的免疫机制、免疫治疗策略、环境与流行病学特征，并展示了组学技术与人工智能、数字化方法在中国临床研究中的创新应用，全面反映了中国在该领域基础研究与临床转化的最新进展。
+
+其中一篇述评介绍，中国古代最早对过敏性鼻炎的记载可追溯典籍《礼记·月令》，这一古老疾病在现代社会依然构成公共卫生挑战。
+
+首都医科大学附属北京同仁医院的研究显示，我国过敏性鼻炎的患病率从2005年的11%上升至2011年的17%，并在2019年进一步升至21%。
+
+未来防控策略须统筹社会经济发展、环境治理与生态建设，实施多层次、多维度的综合干预。
 
 ## 相关推荐
 
-- 2026-06-29 20:38 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 20:33 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 20:38 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 20:20 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 20:34 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 20:20 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 20:35 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 20:19 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 20:32 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 20:23 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 20:28 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 20:37 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 20:41 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 20:29 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 20:27 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 20:29 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 20:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 20:20 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 20:30 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 20:24 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 20:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 20:26 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 20:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 20:43 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 20:30 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 20:44 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 20:27 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:13 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/1300580555.shtml)
-- 2026-06-29 20:14 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/841375398.shtml)
-- 2026-06-29 20:19 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/5703456198.shtml)
-- 2026-06-29 20:17 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/409121.shtml)
-- 2026-06-29 20:17 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/12251781.shtml)
-- 2026-06-29 20:32 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/33729.shtml)
-- 2026-06-29 20:40 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/79441.shtml)
-- 2026-06-29 20:27 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/9854847893.shtml)
-- 2026-06-29 20:28 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/169898649.shtml)
-- 2026-06-29 20:26 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/1058566957.shtml)
-- 2026-06-29 20:30 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/327249.shtml)
-- 2026-06-29 20:40 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/321383835966.shtml)
-- 2026-06-29 20:19 - [女心理师](https://www.blog.minike.top/Article/details/4439215936.shtml)
-- 2026-06-29 20:19 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/183277940.shtml)
-- 2026-06-29 20:29 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/88238995818.shtml)
+- 2026-06-29 20:21 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/562961.shtml)
+- 2026-06-29 20:42 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/2951807691.shtml)
+- 2026-06-29 20:38 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/29613422284.shtml)
+- 2026-06-29 20:46 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/5239493.shtml)
+- 2026-06-29 20:39 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/206726732804.shtml)
+- 2026-06-29 20:37 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/12117.shtml)
+- 2026-06-29 20:37 - [德国医生在没有空调的手术室工作](http://www.share.minike.top/Article/details/4314604.shtml)
+- 2026-06-29 20:30 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/29885811.shtml)
+- 2026-06-29 20:29 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/00214784729.shtml)
+- 2026-06-29 20:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/12283899.shtml)
+- 2026-06-29 20:22 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/79636.shtml)
+- 2026-06-29 20:44 - [女心理师](https://www.blog.minike.top/Article/details/3931272155.shtml)
+- 2026-06-29 20:44 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/69489665115.shtml)
+- 2026-06-29 20:42 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/294732.shtml)
+- 2026-06-29 20:35 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/81782290.shtml)

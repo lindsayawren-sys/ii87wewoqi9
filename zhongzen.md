@@ -1,58 +1,59 @@
-# 长三角铁路5月2日预计发送旅客418万人次
+# 挪威对俄鳕鱼协议引争议，遭国内业者起诉
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新网上海5月2日电 (殷立勤 胡晓炜)记者5月2日从中国铁路上海局集团有限公司(以下简称上铁集团)获悉，当日长三角铁路预计发送旅客418万人次，客流持续高位运行。5月1日，长三角铁路发送旅客473.8万人次，创下上铁集团单日旅客发送量历史新高。 5月2日是“五一”假期的第二天，长三角铁路在启用高峰线的基础上，计划增开往返华东、华中、中原等多个方向，及长三角管内沪苏浙皖多地间的
+挪威政府与俄罗斯达成的2026年巴伦支海鳕鱼捕捞配额协议正面临严峻的法律挑战。一家俄罗斯渔业公司已就此向挪威法院提起诉讼，质疑挪威禁止其在挪威水域作业及港口停靠的合法性。 此举使挪威陷入两难。尽管挪威与俄罗斯在去年12月艰难达成协议，设定了2026年东北北极鳕鱼总配额为28.5万吨，较上年减少16%。然而，协议达成的前提是挪威并未放松对俄罗斯渔业公司的制裁。自2025年7月起，
 
 ## 正文
 
-中新网上海5月2日电 (殷立勤 胡晓炜)记者5月2日从中国铁路上海局集团有限公司(以下简称上铁集团)获悉，当日长三角铁路预计发送旅客418万人次，客流持续高位运行。
+挪威政府与俄罗斯达成的2026年巴伦支海鳕鱼捕捞配额协议正面临严峻的法律挑战。
 
-5月1日，长三角铁路发送旅客473.8万人次，创下上铁集团单日旅客发送量历史新高。
+一家俄罗斯渔业公司已就此向挪威法院提起诉讼，质疑挪威禁止其在挪威水域作业及港口停靠的合法性。
 
-5月2日是“五一”假期的第二天，长三角铁路在启用高峰线的基础上，计划增开往返华东、华中、中原等多个方向，及长三角管内沪苏浙皖多地间的旅客列车209列，对318列动车组列车组织重联运行，满足假期旅客出行需求。
+此举使挪威陷入两难。
 
-值得一提的是，本轮“苏超”将分别在南京、镇江、泰州、常熟等城市举行，赛事进一步促进江苏省内客流增长，为此，铁路部门提前与四地赛事联合主办单位沟通，确定加开盐城往返镇江、淮安往返常熟的球迷包列包车4趟，将护送4000余名观赛人员抵离赛地，精准满足赛事出行需求，更好助力假期文旅消费升级。
+尽管挪威与俄罗斯在去年12月艰难达成协议，设定了2026年东北北极鳕鱼总配额为28.5万吨，较上年减少16%。
 
-从5月2日8时的车票预售情况看，沪宁、宁杭、宁安、沪杭、杭黄、徐盐、徐连、沪宁沿江等多条管内高铁线路客流较为密集，部分时段车次车票紧张。
+然而，协议达成的前提是挪威并未放松对俄罗斯渔业公司的制裁。
 
-长三角去往福州、厦门、南昌、武汉、济南、郑州等多个直通方向大多时段均有余票。
+自2025年7月起，挪威对俄罗斯大型渔业企业Norebo和Murman Seafood实施了限制措施，禁止其船只进入挪威水域和港口。
 
-5月3日，除京沪、沪宁、沪杭、宁杭等个别方向车票紧张外，其余方向车次均有一定车票剩余。
+被制裁的Norebo公司已采取法律行动，在挪威法庭质疑该禁令的合法性，认为其违反了1976年签署的挪俄渔业协议。
 
-“五一”假期期间，长三角铁路多家客运窗口单位推出适老化、个性化举措，包括旅客出行保障、景区咨询、餐食供应、重点旅客接送等服务，努力让旅客出行体验更美好。
+该公司控制着俄罗斯在巴伦支海约40%的鳕鱼配额，若其船队被持续拒之门外，将面临巨大损失。
 
 ## 相关推荐
 
-- 2026-06-29 20:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 20:22 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 20:21 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 20:15 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 20:32 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 20:14 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 20:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 20:17 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 20:29 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 20:19 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 20:12 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 20:31 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 20:36 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 20:23 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 20:41 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 20:33 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 20:20 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 20:38 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 20:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 20:28 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 20:29 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 20:30 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 20:43 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 20:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 20:36 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:41 - [CORTIS 小牌大耍](https://www.share.kurohicncr.top/Article/details/588525.shtml)
-- 2026-06-29 20:38 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/88233744944.shtml)
-- 2026-06-29 20:41 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/096668367.shtml)
-- 2026-06-29 20:19 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/473352857322.shtml)
-- 2026-06-29 20:12 - [欧洲极端高温如何影响家电股](https://www.blog.kurohicncr.top/Article/details/451689.shtml)
-- 2026-06-29 20:18 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/476148264287.shtml)
-- 2026-06-29 20:28 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/621021906732.shtml)
-- 2026-06-29 20:26 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/228916715065.shtml)
-- 2026-06-29 20:35 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/86102.shtml)
-- 2026-06-29 20:32 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/19118.shtml)
-- 2026-06-29 20:32 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/709398186.shtml)
-- 2026-06-29 20:34 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/320921981.shtml)
-- 2026-06-29 20:32 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/88881960.shtml)
-- 2026-06-29 20:30 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/716050943.shtml)
-- 2026-06-29 20:14 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/02666.shtml)
+- 2026-06-29 20:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/6005571.shtml)
+- 2026-06-29 20:31 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/0334802.shtml)
+- 2026-06-29 20:18 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/823412918.shtml)
+- 2026-06-29 20:36 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/20969738007.shtml)
+- 2026-06-29 20:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/4905394166.shtml)
+- 2026-06-29 20:24 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/537864362059.shtml)
+- 2026-06-29 20:32 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/984360561542.shtml)
+- 2026-06-29 20:39 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/227788809123.shtml)
+- 2026-06-29 20:27 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/8796387.shtml)
+- 2026-06-29 20:41 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/310824065.shtml)
+- 2026-06-29 20:41 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/718201.shtml)
+- 2026-06-29 20:47 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/7539118.shtml)
+- 2026-06-29 20:33 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/18410429.shtml)
+- 2026-06-29 20:40 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/6436392.shtml)
+- 2026-06-29 20:20 - [周生如故](http://www.blog.minike.top/Article/details/64284551.shtml)

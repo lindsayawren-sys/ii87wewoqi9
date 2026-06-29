@@ -1,53 +1,58 @@
-# 提醒：今日多地市场休市
+# 山西大黄米首次出口
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-今日韩国、越南、德国、法国、西班牙、意大利市场因劳动节假期休市。印度市场因马哈拉施特拉节休市一日。中国台湾市场今日休市。五一劳动节期间，A股及港股通将于5月1日（周五）至5月5日（周二）连续休市5天，5月6日（周三）起照常开市。责任编辑：王永生
+中新网太原5月8日电 (记者 杨静)记者8日从太原海关获悉，经太原海关所属朔州海关检验检疫，一批产自山西朔州的10吨优质大黄米顺利发往海外市场。这是山西省大黄米首次走出国门。 朔州地处晋北黄土高原，昼夜温差大、土壤富含矿物质。得天独厚的自然条件为当地杂粮进军国际市场打下坚实基础。针对农产品各国进口标准不一、检测门槛高等难题，朔州海关为企业量身定制全流程帮扶方案，助力本土特色农产
 
 ## 正文
 
-今日韩国、越南、德国、法国、西班牙、意大利市场因劳动节假期休市。
+中新网太原5月8日电 (记者 杨静)记者8日从太原海关获悉，经太原海关所属朔州海关检验检疫，一批产自山西朔州的10吨优质大黄米顺利发往海外市场。
 
-印度市场因马哈拉施特拉节休市一日。
+这是山西省大黄米首次走出国门。
 
-中国台湾市场今日休市。
+朔州地处晋北黄土高原，昼夜温差大、土壤富含矿物质。
 
-五一劳动节期间，A股及港股通将于5月1日（周五）至5月5日（周二）连续休市5天，5月6日（周三）起照常开市。
+得天独厚的自然条件为当地杂粮进军国际市场打下坚实基础。
 
-责任编辑：王永生
+针对农产品各国进口标准不一、检测门槛高等难题，朔州海关为企业量身定制全流程帮扶方案，助力本土特色农产品破解出口瓶颈。
+
+“以前我们只做国内市场，没有进出口业务经验，生产标准、产品检测、报关流程都不熟悉。
+
+海关全程上门指导，帮助我们规避了很多外贸风险。
+
+”此次大黄米出口企业负责人贾海银说。
 
 ## 相关推荐
 
-- 2026-06-29 20:15 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 20:31 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 20:22 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 20:36 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 20:15 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 20:31 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 20:40 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 20:36 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 20:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 20:35 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 20:19 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 20:20 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 20:32 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 20:40 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 20:45 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 20:40 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 20:41 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 20:31 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 20:26 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 20:29 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 20:45 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 20:38 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 20:22 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 20:47 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 20:22 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:25 - [我们的少年时代2](http://www.share.minike.top/Article/details/692248899014.shtml)
-- 2026-06-29 20:38 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/0376052016.shtml)
-- 2026-06-29 20:13 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/000779.shtml)
-- 2026-06-29 20:28 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/375127792886.shtml)
-- 2026-06-29 20:38 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/97846348.shtml)
-- 2026-06-29 20:13 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/68364563457.shtml)
-- 2026-06-29 20:22 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/424285.shtml)
-- 2026-06-29 20:21 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/164674902593.shtml)
-- 2026-06-29 20:29 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/58615.shtml)
-- 2026-06-29 20:17 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/5711760.shtml)
-- 2026-06-29 20:27 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/081688671.shtml)
-- 2026-06-29 20:28 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/257662.shtml)
-- 2026-06-29 20:24 - [铜价上涨 日本住宅水表失窃严重](https://www.share.kurohicncr.top/Article/details/6201293.shtml)
-- 2026-06-29 20:29 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/361186611307.shtml)
-- 2026-06-29 20:39 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/082549.shtml)
+- 2026-06-29 20:31 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/761361616854.shtml)
+- 2026-06-29 20:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/5793447687.shtml)
+- 2026-06-29 20:38 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/34394445.shtml)
+- 2026-06-29 20:20 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/358611.shtml)
+- 2026-06-29 20:43 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/24025166828.shtml)
+- 2026-06-29 20:33 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/302705.shtml)
+- 2026-06-29 20:37 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/8381300.shtml)
+- 2026-06-29 20:40 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/92600.shtml)
+- 2026-06-29 20:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/83829.shtml)
+- 2026-06-29 20:24 - [刘冰任河南南阳市代市长](http://www.share.minike.top/Article/details/374447497772.shtml)
+- 2026-06-29 20:46 - [男子40度高温下骑行严重晒伤](https://www.blog.kurohicncr.top/Article/details/40014.shtml)
+- 2026-06-29 20:30 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.kurohicncr.top/Article/details/556043697963.shtml)
+- 2026-06-29 20:27 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/298091117212.shtml)
+- 2026-06-29 20:31 - [周生如故](http://www.blog.minike.top/Article/details/27272.shtml)
+- 2026-06-29 20:32 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/02268.shtml)

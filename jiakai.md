@@ -1,48 +1,56 @@
-# 中方在《开罗宣言》发表地埃及开罗米娜宫饭店建立纪念碑
+# Shake Shack营收不及预期，股价暴跌逾20%
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新网5月3日电 据中国驻埃及大使馆微信公众号消息，《开罗宣言》为结束第二次世界大战做出重要贡献，是确认台湾作为中国不可分割领土的重要历史和法理依据，与之后重申《开罗宣言》规定的《波茨坦公告》等一系列具有法律效力的文件构成了二战后国际秩序的组成部分。为纪念《开罗宣言》在埃及米娜宫饭店达成，中方在米娜宫饭店建立纪念碑。当前立碑区域正在修缮，完工后将向公众开放。
+Shake Shack股价周四暴跌，此前这家汉堡连锁店公布的第一季度营收不及华尔街预期，受牛肉成本上涨、恶劣天气及消费者支出疲软等因素拖累。 财报显示，Shake Shack一季度营收为3.667亿美元，同比增长14.3%，但低于分析师预期的约3.72亿美元。同店销售额增长4.6%，基本符合预期。公司净亏损30万美元，合每股亏损0.01美元，而上年同期为盈利450万美元。 公司
 
 ## 正文
 
-中新网5月3日电 据中国驻埃及大使馆微信公众号消息，《开罗宣言》为结束第二次世界大战做出重要贡献，是确认台湾作为中国不可分割领土的重要历史和法理依据，与之后重申《开罗宣言》规定的《波茨坦公告》等一系列具有法律效力的文件构成了二战后国际秩序的组成部分。
+Shake Shack股价周四暴跌，此前这家汉堡连锁店公布的第一季度营收不及华尔街预期，受牛肉成本上涨、恶劣天气及消费者支出疲软等因素拖累。
 
-为纪念《开罗宣言》在埃及米娜宫饭店达成，中方在米娜宫饭店建立纪念碑。
+财报显示，Shake Shack一季度营收为3.667亿美元，同比增长14.3%，但低于分析师预期的约3.72亿美元。
 
-当前立碑区域正在修缮，完工后将向公众开放。
+同店销售额增长4.6%，基本符合预期。
+
+公司净亏损30万美元，合每股亏损0.01美元，而上年同期为盈利450万美元。
+
+公司表示，尽管牛肉成本上涨了低两位数百分比，但并未提价。
+
+此外，1月份的恶劣天气对同店销售额造成了显著影响。
+
+Shake Shack高管在财报电话会上表示，中东战争持续带来的影响正在冲击短期业绩。
+
+公司同时宣布任命Michelle Hook为新任首席财务官，自5月11日起生效。
 
 ## 相关推荐
 
-- 2026-06-29 20:40 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 20:39 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 20:14 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 20:19 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 20:26 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 20:34 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 20:39 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 20:28 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 20:38 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 20:36 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 20:30 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 20:13 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 20:39 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 20:32 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 20:25 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 20:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 20:22 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 20:37 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 20:28 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 20:29 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 20:21 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 20:31 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/7340437937.shtml)
-- 2026-06-29 20:22 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/38255060.shtml)
-- 2026-06-29 20:28 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/872620089.shtml)
-- 2026-06-29 20:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/39596.shtml)
-- 2026-06-29 20:36 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/9048704739.shtml)
-- 2026-06-29 20:30 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/894653352.shtml)
-- 2026-06-29 20:28 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/7664114.shtml)
-- 2026-06-29 20:21 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/172744.shtml)
-- 2026-06-29 20:16 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/9048422.shtml)
-- 2026-06-29 20:25 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/40867834675.shtml)
-- 2026-06-29 20:33 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/65563.shtml)
-- 2026-06-29 20:39 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/638789769.shtml)
-- 2026-06-29 20:18 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/597846.shtml)
-- 2026-06-29 20:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/3242246365.shtml)
-- 2026-06-29 20:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/507624216141.shtml)
+- 2026-06-29 20:33 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/251962106.shtml)
+- 2026-06-29 20:42 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/5468376895.shtml)
+- 2026-06-29 20:29 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/10905.shtml)
+- 2026-06-29 20:40 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/365777790798.shtml)
+- 2026-06-29 20:33 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/54248675961.shtml)
+- 2026-06-29 20:45 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/4541807993.shtml)
+- 2026-06-29 20:40 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/67604591764.shtml)
+- 2026-06-29 20:26 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/24527.shtml)
+- 2026-06-29 20:41 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/9655139531.shtml)
+- 2026-06-29 20:37 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/813673068475.shtml)
+- 2026-06-29 20:47 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.minike.top/Article/details/673295008.shtml)
+- 2026-06-29 20:44 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/14386.shtml)
+- 2026-06-29 20:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/6973048.shtml)
+- 2026-06-29 20:25 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/87772038.shtml)
+- 2026-06-29 20:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/742336335.shtml)

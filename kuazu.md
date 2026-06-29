@@ -1,50 +1,60 @@
-# 分析师：若非芯片供应紧张苹果销售额本可以更高
+# *ST云创欺诈发行！罚IPO募资额20%
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-奎尔特切维奥特公司分析师本・巴林杰表示，苹果财报业绩超出市场一致预期，第二财季营收同比增长17%，预计第三财季营收增幅将达15%。 此次营收增长主要由iPhone 17销量走高拉动，此外，Mac mini销量也正迎来增长势头。 巴林杰指出，若不是受芯片供应紧张制约，这家美国科技巨头的销售额本可以更高。该分析师还称，苹果表示将加大资金投入，布局人工智能领域。责任编辑：陈钰嘉
+登录新浪财经APP 搜索【信披】查看更多考评等级 原标题：《这家公司欺诈发行！罚IPO募资额20%》 近日，*ST云创（云创数据）发布公告称，公司近日收到了江苏证监局《行政处罚事先告知书》（〔2026〕13号）。 经查明，公司在北交所IPO的过程中，涉嫌欺诈发行。江苏证监局拟对公司处以IPO所募金额3.48亿元20%的处罚，即6960万元罚款。 据悉，根据新证券法，在欺诈发行中
 
 ## 正文
 
-奎尔特切维奥特公司分析师本・巴林杰表示，苹果财报业绩超出市场一致预期，第二财季营收同比增长17%，预计第三财季营收增幅将达15%。
+登录新浪财经APP 搜索【信披】查看更多考评等级 原标题：《这家公司欺诈发行！
 
-此次营收增长主要由iPhone 17销量走高拉动，此外，Mac mini销量也正迎来增长势头。
+罚IPO募资额20%》 近日，*ST云创（云创数据）发布公告称，公司近日收到了江苏证监局《行政处罚事先告知书》（〔2026〕13号）。
 
-巴林杰指出，若不是受芯片供应紧张制约，这家美国科技巨头的销售额本可以更高。
+经查明，公司在北交所IPO的过程中，涉嫌欺诈发行。
 
-该分析师还称，苹果表示将加大资金投入，布局人工智能领域。
+江苏证监局拟对公司处以IPO所募金额3.48亿元20%的处罚，即6960万元罚款。
 
-责任编辑：陈钰嘉
+据悉，根据新证券法，在欺诈发行中，对发行人的处罚金额为募资额的10%到1倍。
+
+现有案例显示，包括恒大地产债券欺诈发行案、泽达易盛案、奇信股份非公开发行债券案等，罚款额均为募资额的20%。
+
+“公司最高罚一倍，我个人认为是保护公司中小股东利益，因为已经募资上市了，重罚公司其实是全体中小股东承担了不利责任，把公司罚破产或者垮了，没有意义。
+
+不如重罚操作者（实控人）。
 
 ## 相关推荐
 
-- 2026-06-29 20:32 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 20:36 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 20:26 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 20:39 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 20:34 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 20:20 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 20:22 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 20:29 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 20:22 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 20:33 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 20:25 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 20:22 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 20:43 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 20:38 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 20:40 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 20:42 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 20:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 20:29 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 20:26 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 20:43 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 20:26 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 20:24 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 20:27 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 20:24 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:24 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/608049013976.shtml)
-- 2026-06-29 20:21 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/22526.shtml)
-- 2026-06-29 20:30 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/019681326659.shtml)
-- 2026-06-29 20:25 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/86505639662.shtml)
-- 2026-06-29 20:28 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/48229.shtml)
-- 2026-06-29 20:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/8982005168.shtml)
-- 2026-06-29 20:40 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/540088.shtml)
-- 2026-06-29 20:39 - [扫黑风暴](https://www.blog.minike.top/Article/details/225672.shtml)
-- 2026-06-29 20:18 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/37830657200.shtml)
-- 2026-06-29 20:21 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/689533.shtml)
-- 2026-06-29 20:14 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/64224.shtml)
-- 2026-06-29 20:26 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/80678778075.shtml)
-- 2026-06-29 20:12 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/3734923344.shtml)
-- 2026-06-29 20:25 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/64447.shtml)
-- 2026-06-29 20:23 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/2802399938.shtml)
+- 2026-06-29 20:29 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/68147.shtml)
+- 2026-06-29 20:23 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/5025020.shtml)
+- 2026-06-29 20:37 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/335915.shtml)
+- 2026-06-29 20:32 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/69091.shtml)
+- 2026-06-29 20:31 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/918080.shtml)
+- 2026-06-29 20:35 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/122436961300.shtml)
+- 2026-06-29 20:25 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/01727.shtml)
+- 2026-06-29 20:37 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/990980.shtml)
+- 2026-06-29 20:26 - [LPL第三赛段赛制公布](http://www.share.minike.top/Article/details/77631753393.shtml)
+- 2026-06-29 20:27 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/492392144.shtml)
+- 2026-06-29 20:44 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/670421415816.shtml)
+- 2026-06-29 20:47 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/99011.shtml)
+- 2026-06-29 20:30 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/80554902484.shtml)
+- 2026-06-29 20:36 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/64397171388.shtml)
+- 2026-06-29 20:24 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/52865.shtml)

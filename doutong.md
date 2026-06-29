@@ -1,52 +1,61 @@
-# 福建宁德活水鱼出口迎高峰 前4月出口活水鱼超千吨
+# 特朗普会见巴西总统卢拉讨论关税等问题
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-中新网宁德4月30日电 (杨隆宇)30日，福建宁德口岸三都澳港区迎来新一轮活水渔船出境高峰，满载33.26吨鲈鱼、红鱼、真鲷等鲜活水产品的中国籍“丰海76”轮顺利完成边防检查手续后，出口韩国市场。 宁德市腾源水产有限公司副总经理吴迪寿称，通关效率就是渔业竞争力，服务质量就是外贸的软实力，感谢边检等口岸部门的通关保障，才让他们水产企业的出海经营更有底气。 据悉，随着宁德三都澳“海
+新华社华盛顿5月7日电(记者黄强 徐剑梅)美国总统特朗普7日在白宫会见到访的巴西总统卢拉。特朗普说，双方探讨了包括贸易在内的许多议题，特别是关税问题。 特朗普随后在社交媒体发文称，此次会晤“非常顺利”。双方代表定于稍后会面，就某些“关键事项”展开讨论。在接下来的几个月里，如有必要，双方还将安排更多会晤。 针对媒体关注的今年10月举行的巴西大选，卢拉在会晤后举行的新闻发布会上表示
 
 ## 正文
 
-中新网宁德4月30日电 (杨隆宇)30日，福建宁德口岸三都澳港区迎来新一轮活水渔船出境高峰，满载33.26吨鲈鱼、红鱼、真鲷等鲜活水产品的中国籍“丰海76”轮顺利完成边防检查手续后，出口韩国市场。
+新华社华盛顿5月7日电(记者黄强 徐剑梅)美国总统特朗普7日在白宫会见到访的巴西总统卢拉。
 
-宁德市腾源水产有限公司副总经理吴迪寿称，通关效率就是渔业竞争力，服务质量就是外贸的软实力，感谢边检等口岸部门的通关保障，才让他们水产企业的出海经营更有底气。
+特朗普说，双方探讨了包括贸易在内的许多议题，特别是关税问题。
 
-据悉，随着宁德三都澳“海上牧场”品牌影响力持续提升，闽东特色渔业出口已成为拉动地方外贸增长的重要引擎。
+特朗普随后在社交媒体发文称，此次会晤“非常顺利”。
 
-今年来，宁德口岸活水渔船出入境数量达到50艘次，出口活水鱼产品1000多吨，同比增长365%，出口货值超5000万元，产品远销韩国市场，呈现出强劲的增长态势。
+双方代表定于稍后会面，就某些“关键事项”展开讨论。
 
-为破解活水鱼产品出口对通关时效的高要求，宁德边检站主动靠前服务，提前对接水产出口企业与船舶代理单位，全面掌握船舶动态、货物情况与通关需求，为水产产品出口量身定做“绿色通道”，将查验服务前移至作业区域，现场优化查验流程、压缩等待时长，实现船舶即到即检、办结即行，最大限度保障水产鲜活品质，以移民管理担当助力宁德海洋经济高质量发展。
+在接下来的几个月里，如有必要，双方还将安排更多会晤。
 
-(完)
+针对媒体关注的今年10月举行的巴西大选，卢拉在会晤后举行的新闻发布会上表示，他认为特朗普不会对即将到来的巴西选举产任何影响，“我认为他会以美国总统的身份行事，让巴西人民自己决定自己的命运”。
+
+由于特朗普认为巴西前总统博索纳罗遭到“政治迫害”，以及两国在委内瑞拉等问题上的分歧，美巴关系一度紧张。
+
+美国向巴西加征关税，而卢拉也多次直言不讳地批评特朗普在关税、委内瑞拉和古巴等问题上的相关政策。
 
 ## 相关推荐
 
-- 2026-06-29 20:28 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 20:28 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 20:13 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 20:12 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 20:26 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 20:28 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 20:13 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 20:18 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 20:33 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 20:21 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 20:40 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 20:34 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 20:27 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 20:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 20:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 20:42 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 20:40 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 20:39 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 20:27 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 20:41 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 20:26 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 20:46 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 20:32 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 20:34 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 20:43 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:40 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/30110903.shtml)
-- 2026-06-29 20:38 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/045608087364.shtml)
-- 2026-06-29 20:36 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/420563.shtml)
-- 2026-06-29 20:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/43568100594.shtml)
-- 2026-06-29 20:34 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/19649133392.shtml)
-- 2026-06-29 20:12 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/89462806322.shtml)
-- 2026-06-29 20:28 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/27403810.shtml)
-- 2026-06-29 20:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/4617246273.shtml)
-- 2026-06-29 20:34 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/3866034.shtml)
-- 2026-06-29 20:29 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/102892465.shtml)
-- 2026-06-29 20:32 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/023557099555.shtml)
-- 2026-06-29 20:16 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.kurohicncr.top/Article/details/30054.shtml)
-- 2026-06-29 20:37 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/396034.shtml)
-- 2026-06-29 20:31 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/74815342.shtml)
-- 2026-06-29 20:33 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/98894.shtml)
+- 2026-06-29 20:43 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/54740355.shtml)
+- 2026-06-29 20:46 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/9258195.shtml)
+- 2026-06-29 20:21 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/8226634.shtml)
+- 2026-06-29 20:26 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/510812813.shtml)
+- 2026-06-29 20:31 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/1543667725.shtml)
+- 2026-06-29 20:30 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/626519701156.shtml)
+- 2026-06-29 20:38 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/33406062.shtml)
+- 2026-06-29 20:36 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/13234455.shtml)
+- 2026-06-29 20:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/7709312.shtml)
+- 2026-06-29 20:34 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/6839142.shtml)
+- 2026-06-29 20:40 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/03516979.shtml)
+- 2026-06-29 20:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/208311892530.shtml)
+- 2026-06-29 20:21 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/80095968.shtml)
+- 2026-06-29 20:33 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/51818.shtml)
+- 2026-06-29 20:42 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/99642561.shtml)

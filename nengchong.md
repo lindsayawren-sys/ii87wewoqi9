@@ -1,56 +1,58 @@
-# 苹果公司盘前股价上涨2.6% 公司第三季度销售额增长指引高于市场预期
+# 30亿“排雷”之后，联储证券迎来“国资时代”！
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-苹果公司盘前股价上涨2.6%，此前该公司公布第三季度销售额增长指引高于市场预期。 苹果公司第二财季iPhone收入同比增长21.7%，至近570亿美元。iPhone 17系列产品激发了消费者的换机热情，升级步伐持续加快。这推动苹果公司当季销售额达到1，112亿美元，超出华尔街预期。 苹果公司首席财务官凯文．帕雷克（Kevan Parekh）表示，若非驱动苹果设备的先进制程芯片供
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！作者 | 刘银平 编辑 | 付影 来源 | 独角金融 五一假期前的最后一个工作日，联储证券发布了2025年度财报。一家拥有全牌照的券商，在股市持续升温、券商普遍大赚的一年，竟然亏掉30亿。 然而，真相远比数字更为复杂，这并非一家券商在市场竞争中败下阵来的故事，而是一场关于内部人控制、大股东“抽血”、国资抄底
 
 ## 正文
 
-苹果公司盘前股价上涨2.6%，此前该公司公布第三季度销售额增长指引高于市场预期。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-苹果公司第二财季iPhone收入同比增长21.7%，至近570亿美元。
+作者 | 刘银平 编辑 | 付影 来源 | 独角金融 五一假期前的最后一个工作日，联储证券发布了2025年度财报。
 
-iPhone 17系列产品激发了消费者的换机热情，升级步伐持续加快。
+一家拥有全牌照的券商，在股市持续升温、券商普遍大赚的一年，竟然亏掉30亿。
 
-这推动苹果公司当季销售额达到1，112亿美元，超出华尔街预期。
+然而，真相远比数字更为复杂，这并非一家券商在市场竞争中败下阵来的故事，而是一场关于内部人控制、大股东“抽血”、国资抄底与重生博弈的资本大戏。
 
-苹果公司首席财务官凯文．帕雷克（Kevan Parekh）表示，若非驱动苹果设备的先进制程芯片供应受限，业绩本可以更加亮眼。
+大股东通过控制权将公司资金“搬走”后形成坏账，几年内套取资金高达30.38亿元。
 
-苹果公司还表示业绩将继续保持强劲，预计当前财季收入将跃升14%至17%，远高于分析师预期的10%。
+2026年1月，监管部门已限制第一大股东北京正润投资集团有限公司（简称“正润集团”）的股东权利，并认定前董事长为不适当人选。
 
-责任编辑：王永生
+4月，青岛国资签署协议拟增资控股，提供流动性支持。
+
+但存量追偿悬而未决，前十大股东中近四成股权被冻结，公司的“重生”之路仍面临多重考验。
 
 ## 相关推荐
 
-- 2026-06-29 20:26 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 20:32 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 20:32 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 20:23 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 20:12 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 20:15 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 20:18 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 20:20 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 20:35 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 20:27 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 20:17 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 20:14 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 20:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 20:27 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 20:22 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 20:38 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 20:27 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 20:21 - [大学专业未来如何洗牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 20:27 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 20:46 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 20:45 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 20:46 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 20:39 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 20:22 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/2637100168.shtml)
-- 2026-06-29 20:17 - [温网](https://www.share.minike.top/Article/details/0880240778.shtml)
-- 2026-06-29 20:13 - [一汽大众黄金超混技术来袭](http://www.share.minike.top/Article/details/9233855433.shtml)
-- 2026-06-29 20:23 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/752679557111.shtml)
-- 2026-06-29 20:40 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/56148867502.shtml)
-- 2026-06-29 20:12 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/907129705.shtml)
-- 2026-06-29 20:13 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/6857295735.shtml)
-- 2026-06-29 20:41 - [一生一世](http://www.blog.kurohicncr.top/Article/details/5932807756.shtml)
-- 2026-06-29 20:24 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/60408.shtml)
-- 2026-06-29 20:18 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/0274836.shtml)
-- 2026-06-29 20:32 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/44038.shtml)
-- 2026-06-29 20:12 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/0020425.shtml)
-- 2026-06-29 20:36 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/66537919119.shtml)
-- 2026-06-29 20:29 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/288449616126.shtml)
-- 2026-06-29 20:18 - [请回答王牌2019](https://www.blog.minike.top/Article/details/23120.shtml)
+- 2026-06-29 20:19 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/2189894.shtml)
+- 2026-06-29 20:20 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.kurohicncr.top/Article/details/7710426.shtml)
+- 2026-06-29 20:31 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.kurohicncr.top/Article/details/96834379003.shtml)
+- 2026-06-29 20:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/228962696848.shtml)
+- 2026-06-29 20:40 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/008812.shtml)
+- 2026-06-29 20:26 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/43710908372.shtml)
+- 2026-06-29 20:43 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/34111898389.shtml)
+- 2026-06-29 20:36 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/171505.shtml)
+- 2026-06-29 20:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/914003167184.shtml)
+- 2026-06-29 20:24 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/695917677081.shtml)
+- 2026-06-29 20:19 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/75436412585.shtml)
+- 2026-06-29 20:45 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/983546.shtml)
+- 2026-06-29 20:20 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/762726970.shtml)
+- 2026-06-29 20:38 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/814153.shtml)
+- 2026-06-29 20:45 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/1815310538.shtml)

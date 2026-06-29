@@ -1,59 +1,50 @@
-# 鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性
+# 特朗普 ：与伊朗的谈判进展顺利 可能“随时”达成协议
 
-> 更新时间：2026-06-29 20:42:02 UTC+8
+> 更新时间：2026-06-29 20:48:02 UTC+8
 
 ## 摘要
 
-美联储主席杰罗姆·鲍威尔周三宣布，在5月15日主席任期结束后，他将继续留任美联储理事，留任时长尚待确定。这是鲍威尔作为主席出席的最后一次政策会议后的发布会，标志着其八年掌舵生涯的结束。 鲍威尔明确表示，留任是为了捍卫美联储的独立性。此前，美国司法部曾就美联储总部大楼翻新项目对其展开刑事调查。尽管调查已于近日结束，但鲍威尔指出，司法部仍保留“若有刑事转介可重启调查”的可能性，因此
+美国总统特朗普在谈及与美伊和平协议时表示，“或许不会达成，但随时都有可能达成。” 特朗普在华盛顿对记者发表讲话。特朗普警告称，如果伊朗不签署协议，将会“付出沉重代价”。特朗普说，伊朗“比我更想达成协议”。责任编辑：王永生
 
 ## 正文
 
-美联储主席杰罗姆·鲍威尔周三宣布，在5月15日主席任期结束后，他将继续留任美联储理事，留任时长尚待确定。
+美国总统特朗普在谈及与美伊和平协议时表示，“或许不会达成，但随时都有可能达成。
 
-这是鲍威尔作为主席出席的最后一次政策会议后的发布会，标志着其八年掌舵生涯的结束。
+” 特朗普在华盛顿对记者发表讲话。
 
-鲍威尔明确表示，留任是为了捍卫美联储的独立性。
+特朗普警告称，如果伊朗不签署协议，将会“付出沉重代价”。
 
-此前，美国司法部曾就美联储总部大楼翻新项目对其展开刑事调查。
+特朗普说，伊朗“比我更想达成协议”。
 
-尽管调查已于近日结束，但鲍威尔指出，司法部仍保留“若有刑事转介可重启调查”的可能性，因此他决定在问题获得圆满解决前继续留任。
-
-他表示：“我将不会离开美联储，除非这一调查以透明和不可改变的方式真正结束。
-
-” 外界分析认为，鲍威尔此举具有重要战略意义。
-
-他的理事任期最长可至2028年1月，留任实际上限制了特朗普总统进一步安插更多人选进入美联储决策层的空间。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 20:17 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 20:33 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 20:30 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 20:18 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 20:34 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 20:41 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 20:12 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 20:15 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 20:24 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 20:18 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 20:30 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 20:13 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 20:35 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 20:36 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 20:42 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 20:38 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 20:38 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 20:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 20:41 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 20:33 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 20:20 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 20:29 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 20:25 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:41 - [李思潼：不会介意大家夸我运气好](http://www.blog.kurohicncr.top/Article/details/103937843.shtml)
-- 2026-06-29 20:27 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/10764.shtml)
-- 2026-06-29 20:14 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/44446943457.shtml)
-- 2026-06-29 20:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/10911737349.shtml)
-- 2026-06-29 20:31 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/91796836954.shtml)
-- 2026-06-29 20:38 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/7500574969.shtml)
-- 2026-06-29 20:14 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/83046.shtml)
-- 2026-06-29 20:13 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/31330706.shtml)
-- 2026-06-29 20:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/26688.shtml)
-- 2026-06-29 20:39 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/12213.shtml)
-- 2026-06-29 20:39 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/81481063.shtml)
-- 2026-06-29 20:31 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/51636.shtml)
-- 2026-06-29 20:37 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/31309230137.shtml)
-- 2026-06-29 20:24 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.minike.top/Article/details/75133687299.shtml)
-- 2026-06-29 20:21 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/200515.shtml)
+- 2026-06-29 20:27 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/017136430171.shtml)
+- 2026-06-29 20:32 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/467365991.shtml)
+- 2026-06-29 20:42 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/6270443.shtml)
+- 2026-06-29 20:41 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/262003223.shtml)
+- 2026-06-29 20:44 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/9985443443.shtml)
+- 2026-06-29 20:18 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/956322.shtml)
+- 2026-06-29 20:30 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/63844864891.shtml)
+- 2026-06-29 20:40 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/31811.shtml)
+- 2026-06-29 20:28 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/457362935.shtml)
+- 2026-06-29 20:36 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.kurohicncr.top/Article/details/23213755.shtml)
+- 2026-06-29 20:41 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/77812993.shtml)
+- 2026-06-29 20:42 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/381252907.shtml)
+- 2026-06-29 20:33 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/39484.shtml)
+- 2026-06-29 20:23 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/09905.shtml)
+- 2026-06-29 20:23 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/816511.shtml)
