@@ -1,56 +1,59 @@
-# 山水本身就是一间流动的自然课堂 春日文旅从“看风景”走向“读自然”
+# 美加墨世界杯将近 香港开展防范赌球推广活动
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-央视网消息：武夷山是世界文化和自然双遗产地，也是一片被反复写进课本里的山水。从语文课本中的“武夷胜景”到美术课本中的水墨意境，都让人心驰神往。 翻开小学语文课本，你可以读到“武夷山在福建省西北部，那里峰峰有溪水环绕，溪水随山峰弯曲回转。”这里就是课本中出现的九曲溪畔，从空中俯瞰，整个九曲溪是随着山峰蜿蜒回环，串联起了36座奇峰、99座秀岩。坐着竹筏顺流而下是这里最不能错过的游览
+中新网香港6月7日电 香港抗赌球推广及公众教育计划7日展开。该计划由香港特区政府民政及青年事务局(民青局)与平和基金会合办，旨在于美加墨世界杯期间提高公众对沉迷赌博衍生问题与成瘾风险的认知，宣扬健康无赌信息。 “抗赌足球同乐日”活动当天在香港将军澳举行，主题口号为“睇波唔赌波 一世无坎坷”(意为“看球不赌球，一生无坎坷”)。现场设置以足球为主题的互动游戏，传递抗赌资讯的同时让市
 
 ## 正文
 
-央视网消息：武夷山是世界文化和自然双遗产地，也是一片被反复写进课本里的山水。
+中新网香港6月7日电 香港抗赌球推广及公众教育计划7日展开。
 
-从语文课本中的“武夷胜景”到美术课本中的水墨意境，都让人心驰神往。
+该计划由香港特区政府民政及青年事务局(民青局)与平和基金会合办，旨在于美加墨世界杯期间提高公众对沉迷赌博衍生问题与成瘾风险的认知，宣扬健康无赌信息。
 
-翻开小学语文课本，你可以读到“武夷山在福建省西北部，那里峰峰有溪水环绕，溪水随山峰弯曲回转。
+“抗赌足球同乐日”活动当天在香港将军澳举行，主题口号为“睇波唔赌波 一世无坎坷”(意为“看球不赌球，一生无坎坷”)。
 
-”这里就是课本中出现的九曲溪畔，从空中俯瞰，整个九曲溪是随着山峰蜿蜒回环，串联起了36座奇峰、99座秀岩。
+现场设置以足球为主题的互动游戏，传递抗赌资讯的同时让市民感受足球的乐趣。
 
-坐着竹筏顺流而下是这里最不能错过的游览方式。
+民青局局长麦美娟在活动上表示，足球本身是一项有益身心的体育活动，香港特区政府一贯不鼓励赌博。
 
-乘坐着竹筏顺流而下，眼前是山，脚下的倒影也是山，山随水转，景随舟移，这样的画面就仿佛是走进了语文课本当中的那幅山水画。
+她呼吁市民在观赏世界杯赛事时，做理性和负责任的球迷，远离赌博，为自己及家人建立无赌的健康生活。
 
-游客王诗政表示，以前在书上看到玉女峰只是一个知识点，那时候心里就在想，这到底会有多美啊。
+她特别提醒市民，参与非法赌博(例如向非法博彩网站投注)亦属违法，一经定罪，最高可被判处罚款5万港元及监禁9个月。
 
-今天亲自站在这里，吹着九曲溪的风，看着它背后的云雾，突然觉得以前的那些想象都被兑现了，这种感觉特别奇妙。
+麦美娟补充说，除了赌球外，市面上部分带有“以小博大”元素的博彩游戏亦可能令人沉迷，青少年尤其要提高警觉。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [花旗集团披露第四季度私募信贷敞口220亿美元 对BDC投入比例很低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:23 - [Anthropic据悉收到多家风投公司的投资提议，估值达8000亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:39 - [井泉大使会见菲律宾司法部长弗雷德里克·维达](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:29 - [苏富比向卖家提供7%利息以延后支付拍卖款项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:45 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:49 - [今年以来多个细分赛道ETF实现大幅净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:28 - [浙江杭州：智能游艇畅游富春江](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:21 - [中国清洁技术优势扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:32 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:21 - [中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:28 - [国乒全主力参加美国大满贯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:34 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:49 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:25 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:47 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:45 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:31 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:51 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:38 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:39 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:35 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:50 - [宜宾5.5级地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书](http://www.share.minike.top/Article/details/33217184891.shtml)
-- 2026-06-29 11:37 - [戴尔和惠普股价大涨 据报英伟达正在洽购一家大企业](http://www.blog.minike.top/Article/details/295758240.shtml)
-- 2026-06-29 11:29 - [辽宁营商环境的“民生温度”与“投资信心”](http://www.blog.kurohicncr.top/Article/details/4420185.shtml)
-- 2026-06-29 11:30 - [网易云音乐于4月14日斥资1499.7万港元回购12.32万股](http://www.blog.minike.top/Article/details/133485.shtml)
-- 2026-06-29 11:26 - [荷兰首相将与特朗普讨论阿斯麦出口限制](http://www.share.minike.top/Article/details/21105770.shtml)
-- 2026-06-29 11:46 - [特朗普重申伊朗不能拥有核武器](http://www.share.kurohicncr.top/Article/details/2511809.shtml)
-- 2026-06-29 11:39 - [科技赋能防控秸秆焚烧 黑龙江“守田行动”筑牢春耕防线](http://www.blog.minike.top/Article/details/3756526071.shtml)
-- 2026-06-29 11:34 - [谷歌最新Gemini升级预示更大规模的机器人布局](http://www.share.kurohicncr.top/Article/details/525249818.shtml)
-- 2026-06-29 11:34 - [上交所就龙元建设相关事项下发监管工作函](http://www.share.kurohicncr.top/Article/details/1370688725.shtml)
-- 2026-06-29 11:45 - [王毅同巴基斯坦副总理兼外长达尔通电话](http://www.share.minike.top/Article/details/00521801.shtml)
-- 2026-06-29 11:20 - [五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联](http://www.blog.kurohicncr.top/Article/details/38881304.shtml)
-- 2026-06-29 11:23 - [两面针：公司目前已布局并推出电动牙刷产品](http://www.blog.minike.top/Article/details/526511677.shtml)
-- 2026-06-29 11:24 - [新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”](http://www.share.kurohicncr.top/Article/details/652107.shtml)
-- 2026-06-29 11:22 - [A股指数收红！锂矿板块午后放量拉升！](http://www.blog.minike.top/Article/details/907860624939.shtml)
-- 2026-06-29 11:39 - [日本邮船采用3D技术设计建造新一代CTV](http://www.share.minike.top/Article/details/4162107118.shtml)
+- 2026-06-29 11:52 - [法国过去5日死亡人数飙升](http://www.blog.kurohicncr.top/Article/details/2576964.shtml)
+- 2026-06-29 11:30 - [韩国主教练连夜下课](https://www.share.minike.top/Article/details/749184.shtml)
+- 2026-06-29 11:45 - [初心如磐 红色足迹](https://www.blog.minike.top/Article/details/5645875.shtml)
+- 2026-06-29 11:36 - [网友偶遇胡军和李乃文](https://www.blog.kurohicncr.top/Article/details/574841.shtml)
+- 2026-06-29 11:36 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/6627274.shtml)
+- 2026-06-29 11:33 - [天道](https://www.blog.kurohicncr.top/Article/details/5935536886.shtml)
+- 2026-06-29 11:48 - [宜宾地震后顾客折返用餐0人逃单](https://www.share.minike.top/Article/details/41366418947.shtml)
+- 2026-06-29 11:45 - [曝太阳黄蜂完成阵容互换+签位置换](http://www.blog.minike.top/Article/details/553935804.shtml)
+- 2026-06-29 11:25 - [广州某高校辟谣禁止小米汽车入校](http://www.share.minike.top/Article/details/49938467380.shtml)
+- 2026-06-29 11:34 - [男子撸铁后擦汗 脸部感染“脚气”](https://www.blog.minike.top/Article/details/67330.shtml)
+- 2026-06-29 11:50 - [美伊同意停止互袭](https://www.blog.kurohicncr.top/Article/details/98379.shtml)
+- 2026-06-29 11:26 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/6541482447.shtml)
+- 2026-06-29 11:41 - [功率半导体缺货涨价](https://www.blog.minike.top/Article/details/950458228.shtml)
+- 2026-06-29 11:24 - [王祖蓝现场观看美加墨世界杯](https://www.share.minike.top/Article/details/6936661330.shtml)
+- 2026-06-29 11:34 - [陈丽君演出结束后饭撒](http://www.share.kurohicncr.top/Article/details/8319147329.shtml)

@@ -1,56 +1,47 @@
-# 上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设
+# 国家防总针对重庆、贵州启动防汛四级应急响应
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：学习时报 作者：吴伟 “十五五”规划纲要指出，加快建设上海国际金融中心。这是党中央着眼中国式现代化建设全局作出的重大战略决策。“十五五”时期，我们要锐意进取、奋发有为，不断开创上海国际金融中心建设新局面，为以中国式现代化全面推进强国建设、民族复兴伟业提供强有力的金融支撑。 进一步增强加快建设上海国际金融中心的政治自觉、思想
+中新网6月6日电 据国家应急管理部网站消息，据气象部门预报，6月6日至9日，南方地区将有新一轮强降雨过程，重庆、贵州等地部分地区有大到暴雨，局地有大暴雨，山洪和地质灾害、中小河流洪水以及城市内涝等灾害风险高。根据《国家防汛抗旱应急预案》及有关规定，国家防总于6月6日15时针对重庆、贵州启动防汛四级应急响应。
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：学习时报 作者：吴伟 “十五五”规划纲要指出，加快建设上海国际金融中心。
+中新网6月6日电 据国家应急管理部网站消息，据气象部门预报，6月6日至9日，南方地区将有新一轮强降雨过程，重庆、贵州等地部分地区有大到暴雨，局地有大暴雨，山洪和地质灾害、中小河流洪水以及城市内涝等灾害风险高。
 
-这是党中央着眼中国式现代化建设全局作出的重大战略决策。
-
-“十五五”时期，我们要锐意进取、奋发有为，不断开创上海国际金融中心建设新局面，为以中国式现代化全面推进强国建设、民族复兴伟业提供强有力的金融支撑。
-
-进一步增强加快建设上海国际金融中心的政治自觉、思想自觉和行动自觉 以习近平同志为核心的党中央不断加强对金融工作的全面领导和统筹谋划，奋力开拓中国特色金融发展之路，就上海国际金融中心建设作出一系列重大部署。
-
-我们要深刻认识到，加快建设上海国际金融中心，是全球竞争背景下建设金融强国宏伟目标赋予上海的重大政治责任和光荣历史使命。
-
-强大的国际金融中心是金融强国的重要支撑。
-
-习近平总书记强调，金融是国家重要的核心竞争力；金融强国应当具备强大的国际金融中心等一系列关键核心金融要素；拥有强大的国际金融中心，能够吸引全球投资者，影响国际定价体系；增强上海国际金融中心的竞争力和影响力。
-
-这一系列新思想、新观点、新论断高屋建瓴、思想深邃、内涵丰富，把我们对金融强国和国际金融中心建设地位与作用的认识提升到新高度。
+根据《国家防汛抗旱应急预案》及有关规定，国家防总于6月6日15时针对重庆、贵州启动防汛四级应急响应。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [从三分薄地到致富产业 山西大同黄花全产业链产值达25亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:25 - [视频 | 布林肯:霍尔木兹海峡问题就是特朗普搞出来的，现在纵火犯自己跑去灭火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:36 - [中金：维持腾讯控股“跑赢行业”评级 目标价666港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:38 - [特朗普与昔日盟友梅洛尼翻脸 称她“辜负了美国”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:27 - [不做下一个Temu：小红书Redshop的差异化突围之战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:48 - [中天策略:4月13日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:28 - [第六届中国国际消费品博览会启幕 超3400个品牌参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:34 - [安徽合肥加速竞逐未来产业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:31 - [韩国3月ICT出口额达435亿美元，同比增长逾一倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:29 - [探馆消博会|未来生活，能有多酷？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:35 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:31 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:31 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:50 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:39 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:38 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:51 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:45 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:33 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:45 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:40 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:49 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:25 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [美国称霍尔木兹封锁首日六船折返](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [浙江温州：园博园意大利馆开馆](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [德林控股于4月13日斥资114.9万港元回购100万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [2月马来西亚天然橡胶产量环比下降24.1%](http://www.blog.kurohicncr.top/Article/details/6457437.shtml)
-- 2026-06-29 11:21 - [青海玉树：三江源头添新绿 全民护绿促发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [特朗普发难后 教宗良十四世誓言继续发声批评伊朗战争](http://www.blog.kurohicncr.top/Article/details/7279591705.shtml)
-- 2026-06-29 11:21 - [A股收评：超3700只个股飘红，三大指数集体收涨](http://www.blog.minike.top/Article/details/4253019605.shtml)
-- 2026-06-29 11:29 - [通宇通讯中标中国移动吉林公司空调型美化天线采购项目](http://www.share.minike.top/Article/details/976677910725.shtml)
-- 2026-06-29 11:23 - [事关金银，上期所最新通知](http://www.blog.kurohicncr.top/Article/details/4938339.shtml)
-- 2026-06-29 11:26 - [美国宣布将全面封锁后 三艘船在尝试通过霍尔木兹海峡](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [伊朗内政部长指示边境省份“消除海上封锁威胁”](http://www.blog.minike.top/Article/details/059146425.shtml)
-- 2026-06-29 11:19 - [跨越山海赴岐黄之约 捷克医生感受中医魅力](http://www.share.kurohicncr.top/Article/details/105089605017.shtml)
-- 2026-06-29 11:20 - [巴基斯坦呼吁美伊停火延长45天，并透露双方同意继续谈判](http://www.share.kurohicncr.top/Article/details/17541995368.shtml)
-- 2026-06-29 11:40 - [000638，拟终止上市！明天停牌](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/0052754.shtml)
+- 2026-06-29 11:29 - [岭南电影为何迎来“南方热”](https://www.blog.kurohicncr.top/Article/details/254348834078.shtml)
+- 2026-06-29 11:49 - [曝韩国球员目睹出局时正吃饭](https://www.share.minike.top/Article/details/637857.shtml)
+- 2026-06-29 11:39 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/70909555.shtml)
+- 2026-06-29 11:35 - [送你一朵小红花](http://www.share.minike.top/Article/details/84460.shtml)
+- 2026-06-29 11:29 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/99162124650.shtml)
+- 2026-06-29 11:26 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/41494004.shtml)
+- 2026-06-29 11:25 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.share.minike.top/Article/details/34601444665.shtml)
+- 2026-06-29 11:33 - [天津打雷](http://www.share.kurohicncr.top/Article/details/322498.shtml)
+- 2026-06-29 11:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/2329564.shtml)
+- 2026-06-29 11:35 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/43016.shtml)
+- 2026-06-29 11:41 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/69136522.shtml)
+- 2026-06-29 11:25 - [俄政府批准巩固俄语地位行动计划](https://www.share.minike.top/Article/details/8581795.shtml)
+- 2026-06-29 11:25 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/611716036.shtml)
+- 2026-06-29 11:48 - [罗马诺：李刚仁已与马竞达成协议](https://www.blog.kurohicncr.top/Article/details/112633587.shtml)

@@ -1,61 +1,58 @@
-# 台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦
+# 波音首席执行官：将于7月6日启用全新总装生产线投产737 MAX机型
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-中新网北京4月13日电(记者 李柏涛 姜雨薇) “看到这项政策，第一感受就是两岸青年大交流的时代要回来了。”北京大学国际关系学院博士生林景茂表示。 4月12日，中共中央台办受权发布十项促进两岸交流合作的政策措施。其中，第二条明确：建立国共两党青年双向交流机制化平台。全国青联与国民党青年事务发展委员会定期举办两岸青年交流活动。全国青联等大陆有关单位每年邀请岛内20个青年团组来大陆
+波音首席执行官凯利・奥特伯格周五在接受媒体采访时透露，公司将于7月6日在西雅图北部新建的一条总装生产线投产全新737MAX客机。 奥特伯格表示：“我们新增一条生产线，这条产线和伦顿现有厂房的生产线规格完全一致。首架飞机装配将于7月6日上线，距今仅剩约一个月时间，第四条生产线届时将正式投产。” 这条坐落于华盛顿州埃弗雷特的全新737总装线，将成为波音把MAX机型月产能提升至52架
 
 ## 正文
 
-中新网北京4月13日电(记者 李柏涛 姜雨薇) “看到这项政策，第一感受就是两岸青年大交流的时代要回来了。
+波音首席执行官凯利・奥特伯格周五在接受媒体采访时透露，公司将于7月6日在西雅图北部新建的一条总装生产线投产全新737MAX客机。
 
-”北京大学国际关系学院博士生林景茂表示。
+奥特伯格表示：“我们新增一条生产线，这条产线和伦顿现有厂房的生产线规格完全一致。
 
-4月12日，中共中央台办受权发布十项促进两岸交流合作的政策措施。
+首架飞机装配将于7月6日上线，距今仅剩约一个月时间，第四条生产线届时将正式投产。
 
-其中，第二条明确：建立国共两党青年双向交流机制化平台。
+” 这条坐落于华盛顿州埃弗雷特的全新737总装线，将成为波音把MAX机型月产能提升至52架的关键助力，该量产目标计划于明年落地。
 
-全国青联与国民党青年事务发展委员会定期举办两岸青年交流活动。
+今年波音已将737MAX月产量从42架上调至当前的47架。
 
-全国青联等大陆有关单位每年邀请岛内20个青年团组来大陆交流参访。
+尽管波音有意提升737 MAX的生产与交付量，但产能受美国联邦航空管理局（FAA）管控。
 
-林景茂期待，随着相关机制稳步落地，两岸青年往来定会愈发顺畅，也让更多岛内青年走进大陆、拉近彼此距离。
+2024年1月阿拉斯加航空一架客机发生舱门塞脱落事故后，FAA对波音生产规模设置了上限。
 
-暨南大学新闻专业的台湾学生林芷瑜，也在第一时间关注到这项全新的双向交流机制。
+该事故促使监管机构针对波音生产环节的安全与质量问题开展了漫长审查。
 
 ## 相关推荐
 
-- 2026-06-29 11:38 - [CoreMarine与Jumbo Offshore合作开展阿根廷FLNG安装与连接项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:46 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:31 - [帝王国际投资：清盘呈请获撤回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:35 - [美媒：若美伊重返谈判桌 万斯将再次率团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:46 - [ATFX汇市前瞻:褐皮书与PPI数据来袭 G20与原油月报本周发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:34 - [乌军对克里米亚发动大规模袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:29 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:20 - [对冲基金资本正重塑拥有180年历史的保险模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:27 - [能源价格回落后 交易员下调对欧洲央行加息的押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:36 - [周黑鸭于4月13日斥资149.61万港元回购94.1万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:40 - [公用事业公司计划未来五年投入1.4万亿美元，助力人工智能热潮发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:30 - [海垦十大招商项目亮相“粤贸全国”广东—海南经贸交流对接会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:41 - [从滞销盘到区域标杆 远洋建管获委托方授予“最佳战友”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:44 - [特朗普称伊朗致电美方说希望达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:28 - [总台海峡时评丨十项促进两岸交流合作新政将给台胞带来实实在在的和平利好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:27 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:33 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:48 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:51 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:38 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:34 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:26 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:51 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:39 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:22 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:51 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [今年以来地方债发行节奏提速](http://www.blog.kurohicncr.top/Article/details/38404795.shtml)
-- 2026-06-29 11:32 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](http://www.share.kurohicncr.top/Article/details/110239.shtml)
-- 2026-06-29 11:44 - [收评：国内期货主力合约涨跌互现 PX涨超4%](http://www.blog.kurohicncr.top/Article/details/70575.shtml)
-- 2026-06-29 11:26 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [马斯克的SpaceX新数据：星链成绝对核心](http://www.share.kurohicncr.top/Article/details/939969021519.shtml)
-- 2026-06-29 11:40 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](http://www.share.minike.top/Article/details/781916.shtml)
-- 2026-06-29 11:48 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](http://www.share.kurohicncr.top/Article/details/16708781.shtml)
-- 2026-06-29 11:46 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](http://www.blog.minike.top/Article/details/6353215.shtml)
-- 2026-06-29 11:46 - [钦州港海关2026年4月份“关长接待日”公告](http://www.share.kurohicncr.top/Article/details/3044374.shtml)
-- 2026-06-29 11:32 - [双象股份：拟每10股分红2元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](http://www.share.minike.top/Article/details/476800521203.shtml)
-- 2026-06-29 11:35 - [搭建高端交流平台 深耕侨乡文脉传承——开平民建以学术交流赋能侨乡文化建设](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [强业绩提振，金山软件涨超8%，腾讯混元3.0发布在即，华宝基金港股互联网ETF（513770）涨超1%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [海关总署：今年一季度我国货物进出口同比增长15%](http://www.blog.minike.top/Article/details/36213136.shtml)
-- 2026-06-29 11:40 - [从三分薄地到致富产业 山西大同黄花全产业链产值达25亿元](http://www.blog.kurohicncr.top/Article/details/2033276651.shtml)
+- 2026-06-29 11:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/488499005.shtml)
+- 2026-06-29 11:30 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/7069888.shtml)
+- 2026-06-29 11:43 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.share.kurohicncr.top/Article/details/23579133.shtml)
+- 2026-06-29 11:22 - [流金岁月](https://www.share.kurohicncr.top/Article/details/15721141.shtml)
+- 2026-06-29 11:42 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.minike.top/Article/details/6631124300.shtml)
+- 2026-06-29 11:50 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/671836405.shtml)
+- 2026-06-29 11:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/6150048208.shtml)
+- 2026-06-29 11:29 - [天津打雷](http://www.blog.minike.top/Article/details/031762689396.shtml)
+- 2026-06-29 11:46 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/41889.shtml)
+- 2026-06-29 11:49 - [伊朗球员道歉 说着说着哭了](https://www.blog.minike.top/Article/details/79515739.shtml)
+- 2026-06-29 11:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/7715953603.shtml)
+- 2026-06-29 11:41 - [大罗力挺内马尔](https://www.blog.kurohicncr.top/Article/details/25150.shtml)
+- 2026-06-29 11:31 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/948283095.shtml)
+- 2026-06-29 11:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/3009932864.shtml)
+- 2026-06-29 11:43 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/02261.shtml)

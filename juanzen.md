@@ -1,57 +1,59 @@
-# ATFX汇市前瞻:褐皮书与PPI数据来袭 G20与原油月报本周发布
+# 血缘难断：台胞发寻根短视频3.5小时找到失联多年江苏亲人
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 周四：美联储年内第三份褐皮书 4月13日，本周四凌晨两点，美联储将公布年内第三份褐皮书。褐皮书每年发布八份，是美联储12个储备区提供的报告汇总而成，报告内容的来源是对经济学家、商业互动对象、市场专家等等的采访。美联储褐皮书以其真实和客观性而广为人知，仔细研读褐皮书可以发现通胀或者失业率等数据不易被察觉的变化。 ▲ATFX图 在上一份褐皮书中提到：在1
+中新网桂林6月6日电 题：血缘难断：台胞发寻根短视频3.5小时找到失联多年江苏亲人 中新网记者 蒋雪林 一段戏曲，触动心底最深的念想；一则短视频，连接起跨越海峡的血脉亲情。近日，在广西桂林市平乐县经商的台胞袁晨，借助网络平台发布寻亲视频，仅用3.5小时便奇迹般找到了阔别多年的江苏堂哥。 袁晨在寻亲短视频中讲述，观看电视剧《主角》中的戏曲片段时，父亲生前在家听戏、时常哼唱到落泪的
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 周四：美联储年内第三份褐皮书 4月13日，本周四凌晨两点，美联储将公布年内第三份褐皮书。
+中新网桂林6月6日电 题：血缘难断：台胞发寻根短视频3.5小时找到失联多年江苏亲人 中新网记者 蒋雪林 一段戏曲，触动心底最深的念想；一则短视频，连接起跨越海峡的血脉亲情。
 
-褐皮书每年发布八份，是美联储12个储备区提供的报告汇总而成，报告内容的来源是对经济学家、商业互动对象、市场专家等等的采访。
+近日，在广西桂林市平乐县经商的台胞袁晨，借助网络平台发布寻亲视频，仅用3.5小时便奇迹般找到了阔别多年的江苏堂哥。
 
-美联储褐皮书以其真实和客观性而广为人知，仔细研读褐皮书可以发现通胀或者失业率等数据不易被察觉的变化。
+袁晨在寻亲短视频中讲述，观看电视剧《主角》中的戏曲片段时，父亲生前在家听戏、时常哼唱到落泪的画面不断浮现，促使她下定决心寻找江苏老家的亲人。
 
-▲ATFX图 在上一份褐皮书中提到：在12个联邦储备区中，有7个经济活动以略有至中等速度增长；12个区中有7个报告招聘无变化；最近几周房价适度上涨，八个区报告了适度上涨，4个区的涨幅略有或小幅。
+“我爸爸生前承诺带我们回老家，但我们一直没陪他回去，这是我最大的遗憾。
 
-虽然褐皮书当中包含大量的调查信息，但市场最关心的还是同一个项目下的数字变化。
+” 袁晨的父亲在两岸开放探亲后，曾四次返回江苏老家。
 
-新的褐皮书在经济增长、招聘情况和房价变化上，数字变得更多还是更少，决定了褐皮书对美元指数的影响是利多还是利空。
+2004年父亲在台湾过世后，联系方式遗失，袁晨与老家亲人断了音讯。
 
-周二：美国三月份PPI数据 本周二20点30分，美国劳工部劳动统计局将公布三月份的PPI数据。
+父亲50岁时袁晨才出生，父女年龄差距大，交流不多，但根脉的传承却深深烙在她心里。
 
-PPI数据主要用于衡量各种商品在不同生产阶段的价格变化情况，通常作为观察通货膨胀水平的重要指标。
+袁晨来大陆经商后一直想去江苏寻亲，怎奈一直未能如愿。
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [海垦十大招商项目亮相“粤贸全国”广东—海南经贸交流对接会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:25 - [从滞销盘到区域标杆 远洋建管获委托方授予“最佳战友”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:48 - [特朗普称伊朗致电美方说希望达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:30 - [总台海峡时评丨十项促进两岸交流合作新政将给台胞带来实实在在的和平利好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:42 - [郑州银行12名董高离开，赵飞省了一大笔薪酬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:42 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:19 - [中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:27 - [巴西非遗乐团走进北京丰台奏响友谊乐章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:27 - [富国基金27周年：深耕专业 迈向高质量发展新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:23 - [优彩资源人事调整：戴泽新之女戴梦茜卸任董秘，投行出身赖嫣珩接棒 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:46 - [新加坡金管局上调汇率区间斜率 预计2026年核心通胀率为1.5%-2.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:46 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:45 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:31 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:27 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:27 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:41 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:22 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:52 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:32 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:44 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:24 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:23 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:36 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [搭建高端交流平台 深耕侨乡文脉传承——开平民建以学术交流赋能侨乡文化建设](http://www.blog.minike.top/Article/details/464918963.shtml)
-- 2026-06-29 11:43 - [强业绩提振，金山软件涨超8%，腾讯混元3.0发布在即，华宝基金港股互联网ETF（513770）涨超1%](http://www.blog.kurohicncr.top/Article/details/4055710.shtml)
-- 2026-06-29 11:28 - [海关总署：今年一季度我国货物进出口同比增长15%](http://www.blog.minike.top/Article/details/89813538928.shtml)
-- 2026-06-29 11:35 - [从三分薄地到致富产业 山西大同黄花全产业链产值达25亿元](http://www.blog.minike.top/Article/details/095789184303.shtml)
-- 2026-06-29 11:23 - [视频 | 布林肯:霍尔木兹海峡问题就是特朗普搞出来的，现在纵火犯自己跑去灭火](http://www.blog.kurohicncr.top/Article/details/504502660.shtml)
-- 2026-06-29 11:41 - [中金：维持腾讯控股“跑赢行业”评级 目标价666港元](http://www.share.minike.top/Article/details/64347547.shtml)
-- 2026-06-29 11:38 - [特朗普与昔日盟友梅洛尼翻脸 称她“辜负了美国”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [不做下一个Temu：小红书Redshop的差异化突围之战](http://www.blog.kurohicncr.top/Article/details/38304.shtml)
-- 2026-06-29 11:28 - [中天策略:4月13日市场分析](http://www.blog.kurohicncr.top/Article/details/1079916249.shtml)
-- 2026-06-29 11:42 - [第六届中国国际消费品博览会启幕 超3400个品牌参展](http://www.blog.minike.top/Article/details/882714043.shtml)
-- 2026-06-29 11:34 - [安徽合肥加速竞逐未来产业](http://www.share.minike.top/Article/details/9510904.shtml)
-- 2026-06-29 11:25 - [韩国3月ICT出口额达435亿美元，同比增长逾一倍](http://www.blog.minike.top/Article/details/3467160501.shtml)
-- 2026-06-29 11:26 - [探馆消博会|未来生活，能有多酷？](http://www.share.minike.top/Article/details/920404.shtml)
-- 2026-06-29 11:23 - [“海上名山”新潮出圈迎园博 浙江乐清全域联动谱文旅新篇](http://www.share.kurohicncr.top/Article/details/4679411.shtml)
-- 2026-06-29 11:25 - [特朗普称若中方向伊朗供武就加征关税 中方回应](http://www.share.kurohicncr.top/Article/details/346146.shtml)
+- 2026-06-29 11:25 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/98750.shtml)
+- 2026-06-29 11:33 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/3101534043.shtml)
+- 2026-06-29 11:49 - [温峥嵘直播回应恶评](http://www.blog.minike.top/Article/details/436114952116.shtml)
+- 2026-06-29 11:40 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://www.blog.minike.top/Article/details/328091.shtml)
+- 2026-06-29 11:24 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/38384.shtml)
+- 2026-06-29 11:26 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/6139067.shtml)
+- 2026-06-29 11:40 - [宜宾地震后顾客折返用餐0人逃单](http://www.share.minike.top/Article/details/481391216099.shtml)
+- 2026-06-29 11:45 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/991919.shtml)
+- 2026-06-29 11:34 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/589371336506.shtml)
+- 2026-06-29 11:28 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.share.minike.top/Article/details/29629796.shtml)
+- 2026-06-29 11:38 - [BW2026游览指南](https://www.blog.kurohicncr.top/Article/details/35193.shtml)
+- 2026-06-29 11:36 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/71284.shtml)
+- 2026-06-29 11:31 - [人民日报评“AI脸看腻了”](http://www.blog.kurohicncr.top/Article/details/857735885.shtml)
+- 2026-06-29 11:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/702406.shtml)
+- 2026-06-29 11:38 - [双高胎](https://www.share.minike.top/Article/details/0890403173.shtml)

@@ -1,55 +1,61 @@
-# 荷兰首相将与特朗普讨论阿斯麦出口限制
+# 第四届天津国际航运展落幕 422家企业机构展示港航新成果
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-据报道，荷兰首相罗布·耶滕荷兰通讯社ANP，他周一与美国总统唐纳德·特朗普会面时，将讨论美国国会议员提出的有关阿斯麦的新出口限制。报道称，荷兰反对这些新的出口限制。耶滕也向白宫经济顾问表达了他对该法案草案的反对意见。耶滕：“同样重要的是，他们不仅要听到阿斯麦说哪些事情对它有利或不利，还要听到首相阐明我们在这个问题上的立场”。耶滕表示，这是他前往美国的“最重要原因之一”。责任编辑
+中新网天津6月5日电 (记者 周亚强)为期4天的第四届天津国际航运产业博览会5日在国家会展中心(天津)落幕。本届展会以“航通天下 运行未来——AI引领港航发展新机遇”为主题，展览面积5万平方米，汇聚422家企业及机构参展，吸引7.04万人次专业观众到场，共促成41个重点项目集中签约。 来自国家部委、省(市)政府及国内外港航领域的800余位代表出席开幕式，4100余位嘉宾出席展会
 
 ## 正文
 
-据报道，荷兰首相罗布·耶滕荷兰通讯社ANP，他周一与美国总统唐纳德·特朗普会面时，将讨论美国国会议员提出的有关阿斯麦的新出口限制。
+中新网天津6月5日电 (记者 周亚强)为期4天的第四届天津国际航运产业博览会5日在国家会展中心(天津)落幕。
 
-报道称，荷兰反对这些新的出口限制。
+本届展会以“航通天下 运行未来——AI引领港航发展新机遇”为主题，展览面积5万平方米，汇聚422家企业及机构参展，吸引7.04万人次专业观众到场，共促成41个重点项目集中签约。
 
-耶滕也向白宫经济顾问表达了他对该法案草案的反对意见。
+来自国家部委、省(市)政府及国内外港航领域的800余位代表出席开幕式，4100余位嘉宾出席展会同期活动。
 
-耶滕：“同样重要的是，他们不仅要听到阿斯麦说哪些事情对它有利或不利，还要听到首相阐明我们在这个问题上的立场”。
+中国工程院、劳氏海事信息与数据咨询公司、招商局集团等代表发表主题演讲，《2025年度中国港口经济发展报告》《航运新路径 AI新引擎：航运行业人工智能应用报告》两份报告同步发布。
 
-耶滕表示，这是他前往美国的“最重要原因之一”。
+展会同期举办第五届世界一流港口多式联运大会、国际货运代理协会联合会(FIATA)亚太地区全体会议等20余场专业活动，并首次与2026世界交通运输大会同场举行，聚焦人工智能与交通运输深度融合、智能水运、韧性基础设施等前沿议题。
 
-责任编辑：王永生
+展会期间，“海河仲夏夜”产业沙龙促成多项合作意向。
+
+参展企业覆盖港航全产业链。
+
+在往届参展基础上，新增中国数联、中国华电、中海油服等央企，夯实能源航运、数字物流产业基础；深圳港集团等港口企业强化枢纽联动；上海海事大学等院校聚焦航运人才培养；华为、华科五洲等头部民企展示数字技术与海工装备新方案。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [两面针：公司目前已布局并推出电动牙刷产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:42 - [新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:34 - [A股指数收红！锂矿板块午后放量拉升！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:27 - [日本邮船采用3D技术设计建造新一代CTV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:40 - [400辆网约车百余次故障？电动汽车质量纠纷该找谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:29 - [Anthropic联合创始人：正与特朗普政府讨论下一个人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:22 - [京津冀定向挑战赛天津落幕 四百余名选手花海寻春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:38 - [巴基斯坦防长称美伊谈判将很快重启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:34 - [兴业证券：首予保利置业增持评级 毛利率有望企稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:45 - [远大医药盘中涨超4% 重磅核药SIR-Spheres®钇\[90Y\]微球注射液再度迎来里程碑进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:34 - [华尔街行情向好，摩根大通固定收益与投行业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:44 - [依必安派特亮相2026中国制冷展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:26 - [央行发布2026年一季度金融统计数据报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:32 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:47 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:43 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:38 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:42 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:35 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:51 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:22 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:25 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:30 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:42 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:23 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:41 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:26 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:25 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](http://www.share.kurohicncr.top/Article/details/92785682183.shtml)
-- 2026-06-29 11:38 - [违规超量投放共享自行车，哈啰公司被约谈](http://www.blog.minike.top/Article/details/800630539660.shtml)
-- 2026-06-29 11:32 - [5年亏超120亿，“胖改”难救永辉超市](http://www.blog.minike.top/Article/details/225198.shtml)
-- 2026-06-29 11:28 - [CoreMarine与Jumbo Offshore合作开展阿根廷FLNG安装与连接项目](http://www.blog.kurohicncr.top/Article/details/371815.shtml)
-- 2026-06-29 11:45 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [帝王国际投资：清盘呈请获撤回](http://www.blog.kurohicncr.top/Article/details/82210599.shtml)
-- 2026-06-29 11:39 - [美媒：若美伊重返谈判桌 万斯将再次率团](http://www.blog.kurohicncr.top/Article/details/79454.shtml)
-- 2026-06-29 11:31 - [ATFX汇市前瞻:褐皮书与PPI数据来袭 G20与原油月报本周发布](http://www.blog.minike.top/Article/details/6147653.shtml)
-- 2026-06-29 11:37 - [乌军对克里米亚发动大规模袭击](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](http://www.share.minike.top/Article/details/35461691.shtml)
-- 2026-06-29 11:45 - [对冲基金资本正重塑拥有180年历史的保险模式](http://www.share.minike.top/Article/details/23924.shtml)
-- 2026-06-29 11:24 - [能源价格回落后 交易员下调对欧洲央行加息的押注](http://www.share.kurohicncr.top/Article/details/823558.shtml)
-- 2026-06-29 11:39 - [周黑鸭于4月13日斥资149.61万港元回购94.1万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [公用事业公司计划未来五年投入1.4万亿美元，助力人工智能热潮发展](http://www.share.minike.top/Article/details/761367394052.shtml)
-- 2026-06-29 11:33 - [海垦十大招商项目亮相“粤贸全国”广东—海南经贸交流对接会](http://www.blog.minike.top/Article/details/143965115190.shtml)
+- 2026-06-29 11:44 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/672305166.shtml)
+- 2026-06-29 11:27 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.kurohicncr.top/Article/details/984190521.shtml)
+- 2026-06-29 11:44 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/4463544227.shtml)
+- 2026-06-29 11:23 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/16176.shtml)
+- 2026-06-29 11:37 - [线路错接女子替7户邻居交17年电费](https://www.blog.kurohicncr.top/Article/details/83194079.shtml)
+- 2026-06-29 11:39 - [极限挑战第一季](https://www.blog.minike.top/Article/details/2160105.shtml)
+- 2026-06-29 11:27 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/59394749.shtml)
+- 2026-06-29 11:25 - [宜宾地震后顾客折返用餐0人逃单](http://www.blog.kurohicncr.top/Article/details/79406.shtml)
+- 2026-06-29 11:40 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/9554668553.shtml)
+- 2026-06-29 11:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/747070730723.shtml)
+- 2026-06-29 11:30 - [房屋抵押权与租赁权如何协调](https://www.share.minike.top/Article/details/4462100386.shtml)
+- 2026-06-29 11:52 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.minike.top/Article/details/12102871329.shtml)
+- 2026-06-29 11:40 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/29437801651.shtml)
+- 2026-06-29 11:46 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/942316295.shtml)
+- 2026-06-29 11:30 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/412726685603.shtml)

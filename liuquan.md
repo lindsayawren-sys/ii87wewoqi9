@@ -1,58 +1,58 @@
-# 习近平会见阿联酋阿布扎比王储哈立德
+# 国泰君安期货：金银铂钯，今日开盘集体大跌
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-新华社北京4月14日电(记者温馨)4月14日上午，国家主席习近平在北京人民大会堂会见来华访问的阿联酋阿布扎比王储哈立德。 习近平指出，阿联酋是中国的全面战略伙伴，中方始终高度重视发展同阿联酋的关系。在双方共同努力下，中阿关系保持健康稳定发展，政治互信不断加深，务实合作稳步推进，人文交流丰富多彩。巩固和提升中阿关系是双方的坚定共识，符合两国人民期待。中方愿同阿方携手同行，打造更加
+国泰君安期货市场分析师 张驰宁 Z0020302 今日（2026年6月8日）早盘，贵金属市场出现集体回调，黄金、白银、铂金、钯金价格同步下跌。 【商品异动分析】 此次下跌承接了上周五夜盘时段因强劲非农数据而引发的抛售压力，市场情绪整体偏弱。 l 超预期非农数据强化市场担忧：上周五公布的美国5月非农就业人口新增17.2万人，远超市场预期，强劲的数据引发了市场对美联储可能推迟降息的
 
 ## 正文
 
-新华社北京4月14日电(记者温馨)4月14日上午，国家主席习近平在北京人民大会堂会见来华访问的阿联酋阿布扎比王储哈立德。
+国泰君安期货市场分析师 张驰宁 Z0020302 今日（2026年6月8日）早盘，贵金属市场出现集体回调，黄金、白银、铂金、钯金价格同步下跌。
 
-习近平指出，阿联酋是中国的全面战略伙伴，中方始终高度重视发展同阿联酋的关系。
+【商品异动分析】 此次下跌承接了上周五夜盘时段因强劲非农数据而引发的抛售压力，市场情绪整体偏弱。
 
-在双方共同努力下，中阿关系保持健康稳定发展，政治互信不断加深，务实合作稳步推进，人文交流丰富多彩。
+l 超预期非农数据强化市场担忧：上周五公布的美国5月非农就业人口新增17.2万人，远超市场预期，强劲的数据引发了市场对美联储可能推迟降息的担忧，推动美元指数快速走强，直接压制了以美元计价的贵金属。
 
-巩固和提升中阿关系是双方的坚定共识，符合两国人民期待。
+（然而，从行业结构分析，新增就业高度集中于休闲与酒店业等少数板块，这种就业增长集中在个别行业，不代表整体经济普遍好转，后续可能难以维持。
 
-中方愿同阿方携手同行，打造更加稳固坚韧、富有活力的中阿全面战略伙伴关系。
+） （资料来源：金十数据、国泰君安期货研究所） l 市场资金持续流出：上周五美股，特别是半导体板块，因市场对AI需求前景的担忧而大幅回调，引发全市场流动性被动收紧。
 
-双方要继续在涉及彼此核心利益和重大关切问题上相互支持，保持高层交往，筑牢战略互信。
+贵金属在此过程中未能发挥避险属性，反而与风险资产一同被抛售，全球主要贵金属ETF持仓持续降低，COMEX金银的持仓也回落到了低位，尽管有央行购金（如中国央行5月购金近10吨）提供长期托底，但难以抵挡短期投机盘的集中离场压力。
 
-加强发展战略对接，在能源、投资、贸易、科技等领域深挖潜力，深化互利合作。
+（资料来源：Wind、国泰君安期货研究所） l 铂钯基本面偏弱：由于价格急促下行，终端采购“买涨不买跌”，难以指望刚需集中入场支撑价格。
 
-推动教育、民航、旅游等合作取得更大进展，密切人文交流，夯实民意基础。
+伦敦市场的远期结构也显示铂钯短期内供应压力边际增加。
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [涨超六成！环氧丙烷价格快速走高 多股业绩有望翻倍增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:19 - [贝森特：关税水平或在7月初前恢复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:32 - [重磅数据本周发布，中国经济有望迎“开门红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:29 - [土耳其一中学发生枪击事件致16人受伤 枪手自杀身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:31 - [二十年爱心接力 澳门汇才慈善会情暖湖南江永瑶乡学子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:32 - [山水本身就是一间流动的自然课堂 春日文旅从“看风景”走向“读自然”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:38 - [乐氏国际控股附属拟1万元收购杭州一行物流有限公司100%股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:45 - [“挂床住院”现象近年来时有发生 专家：完善相关制度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:28 - [长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:20 - [多国留学青年走进浙江丽水 沉浸式感受侨乡发展新貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:46 - [四川荣县回应“男子献血十年要求免诊查费遭拒”：医院已当面致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:20 - [印尼的塑料袋与万里之外的战火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:35 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:40 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:28 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:39 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:32 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:28 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:37 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:38 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:29 - [Gucci全球首席营销官发肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:48 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:44 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:35 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元](http://www.blog.minike.top/Article/details/12782.shtml)
-- 2026-06-29 11:34 - [巴比食品投资东鹏饮料，“甜果”变“苦果”](http://www.blog.minike.top/Article/details/06132333.shtml)
-- 2026-06-29 11:20 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](http://www.blog.minike.top/Article/details/9643391.shtml)
-- 2026-06-29 11:41 - [香港交易所推出两只科技指数 易方达香港获授权](http://www.blog.kurohicncr.top/Article/details/369226529091.shtml)
-- 2026-06-29 11:35 - [天风策略：特朗普TACO了吗？](http://www.blog.kurohicncr.top/Article/details/253663088081.shtml)
-- 2026-06-29 11:20 - [3月黑猫投诉企业红黑榜：Agoda擅自取消订单且阻挠用户申诉](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [【新思想引领新征程】服务业扩能提质 锻造经济增长新引擎](http://www.share.kurohicncr.top/Article/details/5677206926.shtml)
-- 2026-06-29 11:32 - [冰川消退预警峰值水量 奥地利能源转型提速](http://www.blog.minike.top/Article/details/31187109426.shtml)
-- 2026-06-29 11:31 - [参议员Scott：沃什的美联储主席提名确认听证会将于下周举行](http://www.blog.minike.top/Article/details/390437.shtml)
-- 2026-06-29 11:47 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.share.kurohicncr.top/Article/details/959400637.shtml)
-- 2026-06-29 11:32 - [大众汽车集团交付量下滑，受中美市场疲软拖累](http://www.share.kurohicncr.top/Article/details/02600379018.shtml)
-- 2026-06-29 11:25 - [海泰发展财务造假被罚，投资者索赔条件更新](http://www.blog.minike.top/Article/details/14942101.shtml)
-- 2026-06-29 11:40 - [平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [戴尔和惠普股价大涨 据报英伟达正在洽购一家大企业](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [辽宁营商环境的“民生温度”与“投资信心”](http://www.share.minike.top/Article/details/928260362.shtml)
+- 2026-06-29 11:23 - [白玉兰最佳女主角提名片段](http://www.blog.kurohicncr.top/Article/details/86426838.shtml)
+- 2026-06-29 11:38 - [美加墨世界杯首支16强诞生](http://www.blog.minike.top/Article/details/668050873.shtml)
+- 2026-06-29 11:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/75809845.shtml)
+- 2026-06-29 11:22 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/7291371.shtml)
+- 2026-06-29 11:30 - [美国230斤男孩在家中去世父母被捕](https://www.share.minike.top/Article/details/814236039135.shtml)
+- 2026-06-29 11:50 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/613386.shtml)
+- 2026-06-29 11:50 - [广州某高校辟谣禁止小米汽车入校](https://www.share.minike.top/Article/details/356680842644.shtml)
+- 2026-06-29 11:30 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/8494299.shtml)
+- 2026-06-29 11:44 - [2026年Mac能玩游戏了吗](https://www.share.minike.top/Article/details/293806095213.shtml)
+- 2026-06-29 11:27 - [比亚迪市值为何蒸发8000亿](http://www.share.kurohicncr.top/Article/details/9445012564.shtml)
+- 2026-06-29 11:51 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://www.share.kurohicncr.top/Article/details/045206918.shtml)
+- 2026-06-29 11:29 - [女子遭家暴两次起诉离婚均被驳回](http://www.blog.kurohicncr.top/Article/details/918959011.shtml)
+- 2026-06-29 11:49 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.minike.top/Article/details/23435.shtml)
+- 2026-06-29 11:31 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.blog.minike.top/Article/details/919612547722.shtml)
+- 2026-06-29 11:51 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/78251255544.shtml)

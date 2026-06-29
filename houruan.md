@@ -1,50 +1,58 @@
-# 快讯：WTI原油日内大跌4.00%，现报88.37美元/桶
+# 收储接力，近7000吨湿小麦跨省抢烘（三夏进行时·防汛保丰收）
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-WTI原油日内大跌4.00%，现报88.37美元/桶。 消息面上，记者当地时间4月14日获悉，美国总统特朗普在最新采访中表示，美国对伊朗的战争已经“结束”。责任编辑：朱赫楠
+从湖北、河南到山东郓城 收储接力，近7000吨湿小麦跨省抢烘(三夏进行时·防汛保丰收) 人民日报 本报记者 王 者此前在本栏目刊登的报道《襄阳百万吨“淋雨麦”这样抢烘干》提到，当地连续阴雨，为抢烘小麦，紧急将部分湿粮运往山东等地烘干。跨省运输烘干如何协调？粮食收购价格怎么定？如何最大限度降低农户损失？近日，本报记者前往山东郓城，采访湿小麦运输司机、为农服务中心工作人员等，看各方
 
 ## 正文
 
-WTI原油日内大跌4.00%，现报88.37美元/桶。
+从湖北、河南到山东郓城 收储接力，近7000吨湿小麦跨省抢烘(三夏进行时·防汛保丰收) 人民日报 本报记者 王 者此前在本栏目刊登的报道《襄阳百万吨“淋雨麦”这样抢烘干》提到，当地连续阴雨，为抢烘小麦，紧急将部分湿粮运往山东等地烘干。
 
-消息面上，记者当地时间4月14日获悉，美国总统特朗普在最新采访中表示，美国对伊朗的战争已经“结束”。
+跨省运输烘干如何协调？
 
-责任编辑：朱赫楠
+粮食收购价格怎么定？
+
+如何最大限度降低农户损失？
+
+近日，本报记者前往山东郓城，采访湿小麦运输司机、为农服务中心工作人员等，看各方如何接力协作，保障小麦应烘尽烘，守牢国家粮食安全底线。
+
+——编 者 方向盘往右一打，货车驶入山东省菏泽市郓城县唐庙为农服务中心，35吨来自河南省的小麦到达目的地。
+
+“这是第二趟了，之前已经从河南拉来30多吨小麦。
+
+”河南司机彭运起说，一路上，厕所都没上几次，就怕把老乡的麦子耽搁了。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:32 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:35 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:40 - [违规超量投放共享自行车，哈啰公司被约谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:23 - [5年亏超120亿，“胖改”难救永辉超市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:25 - [CoreMarine与Jumbo Offshore合作开展阿根廷FLNG安装与连接项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:37 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:48 - [帝王国际投资：清盘呈请获撤回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:38 - [美媒：若美伊重返谈判桌 万斯将再次率团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:37 - [ATFX汇市前瞻:褐皮书与PPI数据来袭 G20与原油月报本周发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:48 - [乌军对克里米亚发动大规模袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:38 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:21 - [对冲基金资本正重塑拥有180年历史的保险模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:26 - [能源价格回落后 交易员下调对欧洲央行加息的押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:31 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:25 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:27 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:34 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:43 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:25 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:35 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:42 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:40 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:38 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:23 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [甘肃省酒泉市：民族团结与经济发展同频共振](http://www.blog.minike.top/Article/details/367467963.shtml)
-- 2026-06-29 11:41 - [中天策略:4月14日市场分析](http://www.share.kurohicncr.top/Article/details/949542826.shtml)
-- 2026-06-29 11:27 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](http://www.share.minike.top/Article/details/930890695.shtml)
-- 2026-06-29 11:35 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](http://www.blog.kurohicncr.top/Article/details/48807.shtml)
-- 2026-06-29 11:37 - [今年以来地方债发行节奏提速](http://www.share.kurohicncr.top/Article/details/003415.shtml)
-- 2026-06-29 11:46 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](http://www.blog.kurohicncr.top/Article/details/221913.shtml)
-- 2026-06-29 11:46 - [收评：国内期货主力合约涨跌互现 PX涨超4%](http://www.blog.minike.top/Article/details/496596635206.shtml)
-- 2026-06-29 11:34 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](http://www.share.kurohicncr.top/Article/details/34176646.shtml)
-- 2026-06-29 11:45 - [马斯克的SpaceX新数据：星链成绝对核心](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](http://www.blog.kurohicncr.top/Article/details/82079639530.shtml)
-- 2026-06-29 11:27 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](http://www.share.kurohicncr.top/Article/details/73651041.shtml)
-- 2026-06-29 11:32 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](http://www.blog.minike.top/Article/details/66404725.shtml)
-- 2026-06-29 11:30 - [钦州港海关2026年4月份“关长接待日”公告](http://www.blog.kurohicncr.top/Article/details/41019707.shtml)
-- 2026-06-29 11:20 - [双象股份：拟每10股分红2元](http://www.share.minike.top/Article/details/879150.shtml)
+- 2026-06-29 11:33 - [A股](https://www.share.kurohicncr.top/Article/details/658611239.shtml)
+- 2026-06-29 11:39 - [乌拉圭出局之路](http://www.blog.minike.top/Article/details/551930698098.shtml)
+- 2026-06-29 11:51 - [高考公平需要延伸到志愿填报这一环](http://www.blog.minike.top/Article/details/1756257486.shtml)
+- 2026-06-29 11:31 - [功率半导体缺货涨价](http://www.share.minike.top/Article/details/211777029839.shtml)
+- 2026-06-29 11:44 - [俄称继续在顿涅茨克两城镇推进](http://www.blog.minike.top/Article/details/41072849880.shtml)
+- 2026-06-29 11:44 - [夏粮收购陆续展开 质优价稳购销两旺](http://www.share.kurohicncr.top/Article/details/78349433212.shtml)
+- 2026-06-29 11:45 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/479326879095.shtml)
+- 2026-06-29 11:37 - [《昨夜将至》为何是悬疑黑马](http://www.blog.kurohicncr.top/Article/details/840995464.shtml)
+- 2026-06-29 11:24 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/708639.shtml)
+- 2026-06-29 11:27 - [美国230斤男孩在家中去世父母被捕](http://www.share.minike.top/Article/details/29758.shtml)
+- 2026-06-29 11:34 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/7378579468.shtml)
+- 2026-06-29 11:29 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/614618.shtml)
+- 2026-06-29 11:48 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/4671154.shtml)
+- 2026-06-29 11:40 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/3690141.shtml)
+- 2026-06-29 11:47 - [和阿根廷球员家属一起看球](http://www.share.minike.top/Article/details/454261.shtml)

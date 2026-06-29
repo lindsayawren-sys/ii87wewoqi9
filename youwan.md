@@ -1,58 +1,57 @@
-# 正面硬刚亚马逊？ 京东再进军欧洲推行“211”配送，欧洲人买单吗？｜欧陆志
+# 沪指失守4000点！A股后市怎么走？
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-文|《欧陆志》栏目 郝倩 发自瑞士日内瓦 今年1月份，刘强东带着夫人章泽天手牵手低调现身瑞士冬季达沃斯——这次低调露面释放出一个强烈信号——他们又要在欧洲发力了。 近日，京东在英国、德国、法国、荷兰、比利时和卢森堡正式推出线上商城Joybuy。欧洲版京东，被法国媒体点评为“正面硬刚亚马逊”。 外媒之所以如此评价，源于其运营模式。与Shein和Temu不同，京东没有采用跨境小包裹
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：资本秘闻 在外围市场影响下，6月8日，A股三大股指集体下挫，其中上证综指收跌1.7%，报3959.34点，失守4000点；深证成指、创业板指亦同步下挫，分别收跌3.22%、3.69%。指数大跌下，A股近4600股飘绿、51股跌停。此外，盘面上，包括半导体、CPO概念在内的科技板块集体回调。前海开源基金
 
 ## 正文
 
-文|《欧陆志》栏目 郝倩 发自瑞士日内瓦 今年1月份，刘强东带着夫人章泽天手牵手低调现身瑞士冬季达沃斯——这次低调露面释放出一个强烈信号——他们又要在欧洲发力了。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-近日，京东在英国、德国、法国、荷兰、比利时和卢森堡正式推出线上商城Joybuy。
+来源：资本秘闻 在外围市场影响下，6月8日，A股三大股指集体下挫，其中上证综指收跌1.7%，报3959.34点，失守4000点；深证成指、创业板指亦同步下挫，分别收跌3.22%、3.69%。
 
-欧洲版京东，被法国媒体点评为“正面硬刚亚马逊”。
+指数大跌下，A股近4600股飘绿、51股跌停。
 
-外媒之所以如此评价，源于其运营模式。
+此外，盘面上，包括半导体、CPO概念在内的科技板块集体回调。
 
-与Shein和Temu不同，京东没有采用跨境小包裹的模式，而转向本地电商模式。
+前海开源基金首席经济学家杨德龙表示，A股市场调整在预期之内，短期的下跌不会改变A股市场慢牛长牛的大趋势，调整一下或有助于科技牛行情走得更远更健康。
 
-《欧陆志》栏目观察发现，半个月来有一堆国际大牌和中国大牌入驻，还有很多欧洲本地知名品牌参与其中。
+01 创业板指收跌3.69% 6月8日，上证综指开盘跌超2%，失守4000点，开盘后有所回调，盘中重回4000点，随后再度跌破4000点。
 
-值得注意的是，京东此次加入了“211”服务。
+交易行情显示，A股三大股指集体大幅低开，上证综指低开2.21%，深证成指、创业板指均低开超3%，开盘后，三大股指跌幅有所收窄，保持震荡态势。
 
-按照Joybuy英国总经理诺布斯（Matthew Nobbs）解释，“为主要城市消费者提供211配送是关键卖点：上午11点前下单，可当日送达；晚上11点前下单，次日15点之前送达。
+午后开盘，三大股指集体震荡下挫，深证成指、创业板指盘中一度跌超4%，之后有所回升。
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [美联航据悉提议与美国航空合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:30 - [金蝶国际早盘高开逾8% 截至3月底ARR同比增长约19%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:48 - [美企员工对人工智能的采用存在分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:24 - [全球第二储能企业海辰储能代表福建亮相香港国际创科展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:37 - [五大险企2025年总投资收益率普升 新华保险6.6%领跑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:48 - [城堡证券：伊朗战争烈度升级风险减弱 股债市场存在反弹机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:31 - [新东方-S遭First Beijing Investment Limited减持67万股 每股均价约46.12港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:41 - [立遗嘱人群数量连续多年稳步增长 年轻群体已成为遗嘱规划新生力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:39 - [台湾自媒体人踏春入滇 共赴泼水节文化盛宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:47 - [神驰机电：拟出资6000万元参与设立股权投资合伙企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:41 - [古兜控股获JYH Hong Kong Limited增持约1.07亿股 每股作价0.0603港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:43 - [珂玛科技可转债发行安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:33 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:40 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:44 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:27 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:39 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:39 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:50 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:22 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:41 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:38 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](http://www.blog.minike.top/Article/details/54400.shtml)
-- 2026-06-29 11:21 - [今年以来多个细分赛道ETF实现大幅净流入](http://www.share.minike.top/Article/details/53813856423.shtml)
-- 2026-06-29 11:45 - [浙江杭州：智能游艇畅游富春江](http://www.share.minike.top/Article/details/066377.shtml)
-- 2026-06-29 11:33 - [中国清洁技术优势扩大](http://www.blog.kurohicncr.top/Article/details/62700.shtml)
-- 2026-06-29 11:41 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](http://www.blog.kurohicncr.top/Article/details/04210.shtml)
-- 2026-06-29 11:32 - [中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%](http://www.share.minike.top/Article/details/324744.shtml)
-- 2026-06-29 11:38 - [郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情](http://www.blog.minike.top/Article/details/4792541.shtml)
-- 2026-06-29 11:45 - [“停飞潮”全球蔓延，航空业陷高油价困局](http://www.blog.minike.top/Article/details/227658.shtml)
-- 2026-06-29 11:35 - [愤怒的李想和遭到围攻的理想汽车](http://www.share.minike.top/Article/details/3886312.shtml)
-- 2026-06-29 11:33 - [顺丰、京东、中通、韵达、申通等回应快递涨价](http://www.blog.kurohicncr.top/Article/details/5117592803.shtml)
-- 2026-06-29 11:33 - [美国宣布封锁后，三艘油轮试图穿越霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/044308.shtml)
-- 2026-06-29 11:41 - [日上集团：公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务](http://www.blog.kurohicncr.top/Article/details/12110804.shtml)
-- 2026-06-29 11:20 - [美国对伊朗海上交通封锁13日生效](http://www.blog.minike.top/Article/details/4745586.shtml)
-- 2026-06-29 11:36 - [恒大集团、恒大地产及许家印案一审开庭](http://www.blog.minike.top/Article/details/9099413.shtml)
-- 2026-06-29 11:38 - [开局之年看中国·开放自贸港：当“椰子之乡”牵手“沙漠面包”](http://www.blog.minike.top/Article/details/2029913985.shtml)
+- 2026-06-29 11:45 - [男子在家一丝不挂 邻居拍照发业主群](https://www.share.minike.top/Article/details/2496228.shtml)
+- 2026-06-29 11:31 - [人民日报评“AI脸看腻了”](http://www.share.minike.top/Article/details/40020991137.shtml)
+- 2026-06-29 11:31 - [这位猫咪，请你自重！](https://www.blog.kurohicncr.top/Article/details/66726972242.shtml)
+- 2026-06-29 11:29 - [杨紫《生命树》播放量破百亿](https://www.blog.kurohicncr.top/Article/details/9231312.shtml)
+- 2026-06-29 11:30 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/263166.shtml)
+- 2026-06-29 11:38 - [19家A股上市公司发布上半年业绩预告](https://www.share.minike.top/Article/details/05629.shtml)
+- 2026-06-29 11:36 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/92862.shtml)
+- 2026-06-29 11:25 - [有清北的实力却只考了大专，在大学怎么平衡心态？](http://www.blog.minike.top/Article/details/7015524460.shtml)
+- 2026-06-29 11:27 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/0126160.shtml)
+- 2026-06-29 11:31 - [Gucci全球首席营销官发肖战](https://www.blog.minike.top/Article/details/6976462.shtml)
+- 2026-06-29 11:37 - [虞书欣灿如繁星明天定档](https://www.blog.kurohicncr.top/Article/details/08727.shtml)
+- 2026-06-29 11:25 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/1998063.shtml)
+- 2026-06-29 11:28 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.share.minike.top/Article/details/302575643.shtml)
+- 2026-06-29 11:32 - [宜宾地震监控画面](https://www.blog.minike.top/Article/details/459785.shtml)
+- 2026-06-29 11:42 - [浦玮：阿根廷所在半区对手实力偏弱](https://www.blog.minike.top/Article/details/486198627783.shtml)

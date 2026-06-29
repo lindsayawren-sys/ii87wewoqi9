@@ -1,57 +1,56 @@
-# 从一名学生到近两千家庭 台湾教师架起两岸“童心桥”
+# 中国证券投资基金业协会第四届会员代表大会在京召开
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-中新社合肥4月13日电 题：从一名学生到近两千家庭 台湾教师架起两岸“童心桥” 中新社记者 张俊 春日午后，孩童围坐在曾翊婷身边，工作室里传来稚嫩的英语发音和清脆的笑声。这位来自台北、拥有20余年幼儿教育经验的台湾教师，扎根江淮大地，将台湾教育理念融入本土幼教实践，架起一座连接两岸童心的桥梁。 “家人在哪，家就在哪。”2017年，曾翊婷带着孩子，追随丈夫奔赴合肥。在台湾工作期间
+来源：中国证券投资基金业协会 6月6日，中国证券投资基金业协会第四届会员代表大会在京隆重召开，中国证监会党委书记、主席吴清出席会议并发表致辞讲话，中国证监会党委委员、副主席李明出席会议。 吴清指出，“十四五”时期特别是2023年中央金融工作会议以来，面对复杂多变的内外部环境，基金行业紧紧围绕和深入落实防风险、强监管、促高质量发展的工作主线，规模稳健增长、结构深刻调整、功能持续深
 
 ## 正文
 
-中新社合肥4月13日电 题：从一名学生到近两千家庭 台湾教师架起两岸“童心桥” 中新社记者 张俊 春日午后，孩童围坐在曾翊婷身边，工作室里传来稚嫩的英语发音和清脆的笑声。
+来源：中国证券投资基金业协会 6月6日，中国证券投资基金业协会第四届会员代表大会在京隆重召开，中国证监会党委书记、主席吴清出席会议并发表致辞讲话，中国证监会党委委员、副主席李明出席会议。
 
-这位来自台北、拥有20余年幼儿教育经验的台湾教师，扎根江淮大地，将台湾教育理念融入本土幼教实践，架起一座连接两岸童心的桥梁。
+吴清指出，“十四五”时期特别是2023年中央金融工作会议以来，面对复杂多变的内外部环境，基金行业紧紧围绕和深入落实防风险、强监管、促高质量发展的工作主线，规模稳健增长、结构深刻调整、功能持续深化，在完善多层次资本市场体系、服务投资者资产管理、支持实体经济创新发展等方面作出了不可替代的重要贡献，已经成为践行中国特色金融发展之路的重要缩影和生动写照。
 
-“家人在哪，家就在哪。
+吴清指出，当前和今后一个时期，我国基金行业既面临重要战略机遇，也存在一些结构性矛盾，总体上正处于从量的扩张向质的提升转变的关键时期。
 
-”2017年，曾翊婷带着孩子，追随丈夫奔赴合肥。
+全行业要深入贯彻“十五五”规划纲要，全面落实新“国九条”和资本市场“1+N”政策体系，持续深化公募基金改革，坚决落实国办印发的《关于加强监管防范风险促进私募基金高质量发展的指导意见》，进一步强化金融报国的使命担当，抢抓机遇、直面挑战，回归本源、苦练内功，扎扎实实办好自己的事，加快建设一流投资机构，以自身高质量发展更好服务国家战略、民生福祉和资本市场持续稳定健康发展。
 
-在台湾工作期间，曾翊婷从事的是教育工作。
+一要坚持规范为先，不断夯实合规风控内在基础。
 
-初到合肥，她就思考着如何将自身的教育经验与本土需求相结合。
+私募基金要切实提高政治站位，把贯彻指导意见及配套的监管制度规则作为重中之重来抓，全面落实到展业全过程各环节，切实在理念、模式、行动上来一个大转变、大提升。
 
-2021年，曾翊婷通过组建线上社群，在合肥从事幼儿英语启蒙教育工作，并作为创始团队成员，参与组建双语阅读馆和家庭成长平台。
+公募基金要健全公司治理架构，夯实合规风控基础，真正做到全员参与、全面覆盖、全程落实。
 
-2025年，曾翊婷作为主理人，成立“Julie好绘玩双语工作室”，以小班化、个性化教学兼顾家庭与事业。
+二要坚持客户为本，始终注重投资者利益优先。
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [国家安全“大事”，跟普通人有什么关系？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:41 - [习近平会见西班牙首相桑切斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:26 - [企业加速入驻 中国首个大模型创新生态社区“AI磁力”增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:24 - [国晟科技，浑身是谜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:39 - [专家学者南京共商生态文明传播新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:29 - [新加坡第一季度经济增长放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:41 - [创业板增设第四套上市标准 更好支持优质创新企业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:25 - [原油：油价下挫 美伊和谈预期缓解供应担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:31 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:26 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:22 - [Revolution Medicines胰腺癌药物取得成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:50 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:47 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:24 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:23 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:39 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:42 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:32 - [陈丽君演出结束后饭撒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:45 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:32 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [探馆消博会|未来生活，能有多酷？](http://www.share.minike.top/Article/details/970385230272.shtml)
-- 2026-06-29 11:48 - [“海上名山”新潮出圈迎园博 浙江乐清全域联动谱文旅新篇](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [特朗普称若中方向伊朗供武就加征关税 中方回应](http://www.blog.minike.top/Article/details/949425490594.shtml)
-- 2026-06-29 11:29 - [海南文昌积极打造中国首个商业航天卫星数据加工贸易区](http://www.blog.kurohicncr.top/Article/details/54252565971.shtml)
-- 2026-06-29 11:47 - [东亚银行发行149.27万股代息股份](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [尾盘，A股突然异动！大面积涨停！外围，传来利好](http://www.share.minike.top/Article/details/59772.shtml)
-- 2026-06-29 11:31 - [中国工商银行深圳分行原党委委员、副行长姚玉平接受纪律审查和监察调查](http://www.blog.kurohicncr.top/Article/details/494385.shtml)
-- 2026-06-29 11:34 - [世界正向东看，访华潮折射时代大势](http://www.share.minike.top/Article/details/42454.shtml)
-- 2026-06-29 11:43 - [刚刚，利好来了！直线爆拉，中东大消息！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [英国财政大臣抨击美国贸然发动对伊战争是愚蠢之举](http://www.blog.minike.top/Article/details/299356159432.shtml)
-- 2026-06-29 11:24 - [中美“乒乓外交”55周年纪念活动在沪举行 亲历者冀两国青年接续友谊](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [中国科大先研院孵化科技企业362家 成果转化走上“快车道”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [王沪宁会见越共中央总书记、国家主席苏林](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [特朗普猛烈抨击教皇利奥十四世对美外交政策的批评](http://www.share.kurohicncr.top/Article/details/10202954151.shtml)
-- 2026-06-29 11:48 - [修好政德才能出好政绩（思想纵横）](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [薛之谦演唱会](http://www.blog.minike.top/Article/details/594034188988.shtml)
+- 2026-06-29 11:41 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/84417922066.shtml)
+- 2026-06-29 11:24 - [成都震感](http://www.share.kurohicncr.top/Article/details/0839908.shtml)
+- 2026-06-29 11:29 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/47822689151.shtml)
+- 2026-06-29 11:24 - [爱很美味](https://www.share.minike.top/Article/details/6870541.shtml)
+- 2026-06-29 11:38 - [我和我的家乡](http://www.share.minike.top/Article/details/96391187106.shtml)
+- 2026-06-29 11:25 - [媒体人：警惕日本再次成战争加害国](https://www.share.minike.top/Article/details/7830909.shtml)
+- 2026-06-29 11:51 - [人民日报：伊朗队昂着头告别世界杯](http://www.blog.kurohicncr.top/Article/details/69809302633.shtml)
+- 2026-06-29 11:33 - [第一炉香](https://www.blog.minike.top/Article/details/699697688.shtml)
+- 2026-06-29 11:29 - [细节之中抓作风](http://www.blog.kurohicncr.top/Article/details/982195040.shtml)
+- 2026-06-29 11:30 - [韩国记者：解码“合肥模式”](https://www.blog.minike.top/Article/details/565578278.shtml)
+- 2026-06-29 11:30 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/53135966.shtml)
+- 2026-06-29 11:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/59046162542.shtml)
+- 2026-06-29 11:40 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/109463.shtml)
+- 2026-06-29 11:38 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/8357715.shtml)

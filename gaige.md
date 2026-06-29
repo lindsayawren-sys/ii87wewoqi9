@@ -1,61 +1,60 @@
-# 5年亏超120亿，“胖改”难救永辉超市
+# 从“兴趣”到“深度”，家校如何共建阅读生态？
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：环球老虎财经app “胖改”2周年之际，永辉超市亏损进一步放大。2025年归母净利润亏损25.5亿，五年累计亏超120亿，连续的亏损也让永辉超市股价跌跌不休。尽管当前股价较叶国富的入股成本仍有一定差距，可一旦永辉超市后续经营不及投资者预期，其63亿元的投资恐难有理想回报。 3月31日，永辉超市披露20
+深圳百雅实验小学探索多元化阅读场景：帐篷朗读、亲子共读、激发思考…… 【全民阅读新图景⑤】从“兴趣”到“深度”，家校如何共建阅读生态？ 6月2日下午，深圳市罗湖区的百雅实验小学音乐厅，挪威童书作家兼插画家克莉丝汀·罗希夫特和学生们面对面交流。不久前，学生们还在课上读她的作品《每个人都重要》《每个人都旅行》。 在百雅实验小学，有着多样化的阅读场景。学生在“星光阅读夜”的帐篷里朗读
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+深圳百雅实验小学探索多元化阅读场景：帐篷朗读、亲子共读、激发思考…… 【全民阅读新图景⑤】从“兴趣”到“深度”，家校如何共建阅读生态？
 
-来源：环球老虎财经app “胖改”2周年之际，永辉超市亏损进一步放大。
+6月2日下午，深圳市罗湖区的百雅实验小学音乐厅，挪威童书作家兼插画家克莉丝汀·罗希夫特和学生们面对面交流。
 
-2025年归母净利润亏损25.5亿，五年累计亏超120亿，连续的亏损也让永辉超市股价跌跌不休。
+不久前，学生们还在课上读她的作品《每个人都重要》《每个人都旅行》。
 
-尽管当前股价较叶国富的入股成本仍有一定差距，可一旦永辉超市后续经营不及投资者预期，其63亿元的投资恐难有理想回报。
+在百雅实验小学，有着多样化的阅读场景。
 
-3月31日，永辉超市披露2025年业绩快报，2025年公司营业收入535.08亿元，同比下降20.82%，归母净利润亏损25.5亿，较上年同期增亏74.01%。
+学生在“星光阅读夜”的帐篷里朗读，也在图书馆嘉年华的舞台上表演一本书；家长走进教室讲故事，也在图书馆课前做导读；教师则在备课和教研中反复打磨文本与问题，再带学生一步步走向深度阅读。
 
-拉长时间来看，永辉超市近5年累计亏损超120亿。
+“活动可以点燃兴趣，但要让阅读真正融入孩子的日常，还需要一套稳定的机制。
 
-随着“胖改”的进行，永辉超市的亏损不仅没有缩减，反倒出现扩大，尤其是2025年，营收和利润双下滑。
+”百雅实验小学校长熊佑平告诉《工人日报》记者，这套机制包括空间、时间、成人支持和激励评价。
 
-而这对于2年前斥资近63亿的叶国富来讲，并不算是一个好结果。
+学校提供图书馆、班级书橱和固定阅读时间，家庭通过书架、共读等方式延伸阅读场景；老师、家长通过阅读课程、图书馆导读、“故事爸妈”等方式参与引导；学校通过“书香少年”、班级阅读颁奖典礼等评价方式，让学生的阅读行为被看见、被关注。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:24 - [对冲基金资本正重塑拥有180年历史的保险模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:44 - [能源价格回落后 交易员下调对欧洲央行加息的押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:40 - [周黑鸭于4月13日斥资149.61万港元回购94.1万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:23 - [公用事业公司计划未来五年投入1.4万亿美元，助力人工智能热潮发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:35 - [海垦十大招商项目亮相“粤贸全国”广东—海南经贸交流对接会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:26 - [从滞销盘到区域标杆 远洋建管获委托方授予“最佳战友”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:19 - [特朗普称伊朗致电美方说希望达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:22 - [总台海峡时评丨十项促进两岸交流合作新政将给台胞带来实实在在的和平利好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:36 - [郑州银行12名董高离开，赵飞省了一大笔薪酬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:38 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:38 - [中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:48 - [巴西非遗乐团走进北京丰台奏响友谊乐章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:24 - [富国基金27周年：深耕专业 迈向高质量发展新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:35 - [优彩资源人事调整：戴泽新之女戴梦茜卸任董秘，投行出身赖嫣珩接棒 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:40 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:31 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:24 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:27 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:43 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:23 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:38 - [重生赛伊德04](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:37 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:31 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:44 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:33 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:29 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:23 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](http://www.share.minike.top/Article/details/3044388131.shtml)
-- 2026-06-29 11:24 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](http://www.share.minike.top/Article/details/32550.shtml)
-- 2026-06-29 11:48 - [钦州港海关2026年4月份“关长接待日”公告](http://www.blog.minike.top/Article/details/829406526.shtml)
-- 2026-06-29 11:22 - [双象股份：拟每10股分红2元](http://www.blog.kurohicncr.top/Article/details/09533383.shtml)
-- 2026-06-29 11:34 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [搭建高端交流平台 深耕侨乡文脉传承——开平民建以学术交流赋能侨乡文化建设](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [强业绩提振，金山软件涨超8%，腾讯混元3.0发布在即，华宝基金港股互联网ETF（513770）涨超1%](http://www.share.minike.top/Article/details/809418.shtml)
-- 2026-06-29 11:38 - [海关总署：今年一季度我国货物进出口同比增长15%](http://www.blog.minike.top/Article/details/05983826.shtml)
-- 2026-06-29 11:44 - [从三分薄地到致富产业 山西大同黄花全产业链产值达25亿元](http://www.share.minike.top/Article/details/77282.shtml)
-- 2026-06-29 11:30 - [视频 | 布林肯:霍尔木兹海峡问题就是特朗普搞出来的，现在纵火犯自己跑去灭火](http://www.share.minike.top/Article/details/102581172.shtml)
-- 2026-06-29 11:47 - [中金：维持腾讯控股“跑赢行业”评级 目标价666港元](http://www.blog.kurohicncr.top/Article/details/8231950747.shtml)
-- 2026-06-29 11:42 - [特朗普与昔日盟友梅洛尼翻脸 称她“辜负了美国”](http://www.blog.kurohicncr.top/Article/details/41755729891.shtml)
-- 2026-06-29 11:36 - [不做下一个Temu：小红书Redshop的差异化突围之战](http://www.share.kurohicncr.top/Article/details/91647.shtml)
-- 2026-06-29 11:42 - [中天策略:4月13日市场分析](http://www.blog.kurohicncr.top/Article/details/0862149793.shtml)
-- 2026-06-29 11:36 - [第六届中国国际消费品博览会启幕 超3400个品牌参展](http://www.share.minike.top/Article/details/86776941302.shtml)
+- 2026-06-29 11:26 - [媒体：湖人把薪资空间玩明白了](http://www.blog.minike.top/Article/details/24153.shtml)
+- 2026-06-29 11:37 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/9040437845.shtml)
+- 2026-06-29 11:44 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.minike.top/Article/details/80124233.shtml)
+- 2026-06-29 11:24 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/8417213.shtml)
+- 2026-06-29 11:45 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/857572480.shtml)
+- 2026-06-29 11:26 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/619666054.shtml)
+- 2026-06-29 11:51 - [灿如繁星定档](http://www.blog.minike.top/Article/details/0504281059.shtml)
+- 2026-06-29 11:23 - [为什么欧洲人不装空调](https://www.share.minike.top/Article/details/04988930.shtml)
+- 2026-06-29 11:36 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/79978611667.shtml)
+- 2026-06-29 11:39 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.share.minike.top/Article/details/68192731690.shtml)
+- 2026-06-29 11:31 - [这位天才台湾人第一次来大陆，开智了](https://www.share.kurohicncr.top/Article/details/5993581084.shtml)
+- 2026-06-29 11:36 - [张亚中：以中山精神为桥凝聚血脉认同](http://www.blog.kurohicncr.top/Article/details/864779585002.shtml)
+- 2026-06-29 11:49 - [韩媒一片哀嚎：没有奇迹](https://www.share.minike.top/Article/details/665646299.shtml)
+- 2026-06-29 11:25 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/9762449.shtml)
+- 2026-06-29 11:33 - [普京：俄罗斯将坚定捍卫自身根本利益](http://www.share.kurohicncr.top/Article/details/386671019.shtml)

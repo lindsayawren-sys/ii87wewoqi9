@@ -1,59 +1,59 @@
-# 违规超量投放共享自行车，哈啰公司被约谈
+# 英伟达达成存储芯片协议，但SK海力士和三星股价大幅承压
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：人民日报 记者：王昊男 近期，北京市交通运输执法总队（以下简称“总队”）依法对上海哈啰普惠科技有限公司（以下简称“哈啰公司”）在北京违规超量投放共享自行车的行为进行立案调查。 2026年4月7日，总队接到线索举报，反映哈啰公司在中心城区多个点位违规大量投放未备案车辆。次日，执法人员现场核查确认，举报属
+英伟达首席执行官黄仁勋刚刚与SK海力士（SK Hynix）签署了一项新的合作协议，但这并未提振该韩国存储芯片制造商的股价。 在韩国股市，SK海力士股价低开10.3%，同为存储芯片供应商的三星电子股价低开10.9%。韩国综合指数盘中一度下跌8.8%，不过这三者随后均收窄了跌幅。 今年以来，SK海力士和三星电子是韩国综合指数强劲上涨的主要引擎，该指数2026年迄今已累计上涨94%。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+英伟达首席执行官黄仁勋刚刚与SK海力士（SK Hynix）签署了一项新的合作协议，但这并未提振该韩国存储芯片制造商的股价。
 
-来源：人民日报 记者：王昊男 近期，北京市交通运输执法总队（以下简称“总队”）依法对上海哈啰普惠科技有限公司（以下简称“哈啰公司”）在北京违规超量投放共享自行车的行为进行立案调查。
+在韩国股市，SK海力士股价低开10.3%，同为存储芯片供应商的三星电子股价低开10.9%。
 
-2026年4月7日，总队接到线索举报，反映哈啰公司在中心城区多个点位违规大量投放未备案车辆。
+韩国综合指数盘中一度下跌8.8%，不过这三者随后均收窄了跌幅。
 
-次日，执法人员现场核查确认，举报属实，并依法对哈啰公司进行行政约谈，开具《责令改正通知书》，要求其于4月10日前完成整改，回收未备案车辆。
+今年以来，SK海力士和三星电子是韩国综合指数强劲上涨的主要引擎，该指数2026年迄今已累计上涨94%。
 
-4月13日，执法人员复核整改情况，发现东城区盛德紫阙、簋街等地仍存在大量未备案车辆，经认定，哈啰公司未按交通行政管理部门要求投放车辆，且拒不改正，违反了《北京市非机动车管理条例》及《北京市互联网租赁自行车运营服务监督管理办法（试行）》有关规定。
+但上周五，随著人工智能（AI）交易普遍承压，韩国综合指数下跌6.2%，周一早盘交易中，该指数又下跌了6.1%。
 
-针对哈啰公司未按照交通行政管理部门要求投放车辆、拒不改正的行为，依据《北京市非机动车管理条例》第二十条第一项、第三十一条及《北京市交通运输行政处罚裁量基准》，总队将依法对哈啰公司作出行政处罚，并调减其运营规模。
+SPI Asset Management执行合伙人斯蒂芬．英尼斯（Stephen Innes）在Substack的一篇文章中表示：“一天的行情构不成趋势，但当市场上最热门的AI游乐场突然变成火警演习现场时，交易人士应该会注意到。
 
-目前，该案正在按法定程序办理。
+”他还写道：“从周一的价格走势看，韩国投资者一觉醒来发现自己的市场处于全球AI交易平仓的震中，这显然不是什么令人高兴的事。
 
-当日，北京市交通委会同中心城区行业管理部门再次对哈啰公司进行行政约谈，指出哈啰公司违规超量投放未备案车辆，严重违反了《北京市非机动车管理条例》相关规定，严重破坏了北京市共享自行车市场运营秩序，大量挤占城市有限的公共道路资源，性质恶劣，对哈啰公司提出严肃批评，并责令其于4月17日前全部回收违投车辆。
+” 尽管如此，英尼斯提醒道，对于韩国股市来说，目前仍处于交易日的早段。
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [乌军对克里米亚发动大规模袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:21 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:37 - [对冲基金资本正重塑拥有180年历史的保险模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:23 - [能源价格回落后 交易员下调对欧洲央行加息的押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:35 - [周黑鸭于4月13日斥资149.61万港元回购94.1万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:20 - [公用事业公司计划未来五年投入1.4万亿美元，助力人工智能热潮发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:36 - [海垦十大招商项目亮相“粤贸全国”广东—海南经贸交流对接会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:46 - [从滞销盘到区域标杆 远洋建管获委托方授予“最佳战友”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:26 - [特朗普称伊朗致电美方说希望达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:32 - [总台海峡时评丨十项促进两岸交流合作新政将给台胞带来实实在在的和平利好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:31 - [郑州银行12名董高离开，赵飞省了一大笔薪酬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:42 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:25 - [中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:50 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:50 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:24 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:48 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:28 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:37 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:47 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:26 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:50 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:49 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:32 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:28 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:38 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](http://www.blog.kurohicncr.top/Article/details/550222698203.shtml)
-- 2026-06-29 11:38 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](http://www.share.kurohicncr.top/Article/details/127240899814.shtml)
-- 2026-06-29 11:46 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](http://www.blog.kurohicncr.top/Article/details/77186108.shtml)
-- 2026-06-29 11:46 - [钦州港海关2026年4月份“关长接待日”公告](http://www.blog.minike.top/Article/details/8955211693.shtml)
-- 2026-06-29 11:40 - [双象股份：拟每10股分红2元](http://www.blog.kurohicncr.top/Article/details/91202324.shtml)
-- 2026-06-29 11:29 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](http://www.blog.kurohicncr.top/Article/details/290224542.shtml)
-- 2026-06-29 11:41 - [搭建高端交流平台 深耕侨乡文脉传承——开平民建以学术交流赋能侨乡文化建设](http://www.share.kurohicncr.top/Article/details/19580038488.shtml)
-- 2026-06-29 11:35 - [强业绩提振，金山软件涨超8%，腾讯混元3.0发布在即，华宝基金港股互联网ETF（513770）涨超1%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [海关总署：今年一季度我国货物进出口同比增长15%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [从三分薄地到致富产业 山西大同黄花全产业链产值达25亿元](http://www.share.minike.top/Article/details/5047483.shtml)
-- 2026-06-29 11:42 - [视频 | 布林肯:霍尔木兹海峡问题就是特朗普搞出来的，现在纵火犯自己跑去灭火](http://www.share.minike.top/Article/details/39709576400.shtml)
-- 2026-06-29 11:47 - [中金：维持腾讯控股“跑赢行业”评级 目标价666港元](http://www.blog.kurohicncr.top/Article/details/74203000.shtml)
-- 2026-06-29 11:43 - [特朗普与昔日盟友梅洛尼翻脸 称她“辜负了美国”](http://www.share.minike.top/Article/details/702491904696.shtml)
-- 2026-06-29 11:48 - [不做下一个Temu：小红书Redshop的差异化突围之战](http://www.blog.kurohicncr.top/Article/details/4775090094.shtml)
-- 2026-06-29 11:22 - [中天策略:4月13日市场分析](http://www.blog.kurohicncr.top/Article/details/447171093190.shtml)
+- 2026-06-29 11:32 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.kurohicncr.top/Article/details/921870.shtml)
+- 2026-06-29 11:50 - [罗马诺：李刚仁已与马竞达成协议](https://www.share.minike.top/Article/details/68842.shtml)
+- 2026-06-29 11:34 - [Mrbeast的30天不吃饭挑战](http://www.blog.minike.top/Article/details/3063716.shtml)
+- 2026-06-29 11:48 - [埃博拉为何再次袭击非洲](http://www.blog.minike.top/Article/details/962102.shtml)
+- 2026-06-29 11:25 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/57942.shtml)
+- 2026-06-29 11:45 - [成都震感](https://www.share.kurohicncr.top/Article/details/986462069.shtml)
+- 2026-06-29 11:51 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/579346456.shtml)
+- 2026-06-29 11:32 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/414638268.shtml)
+- 2026-06-29 11:50 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/700270493179.shtml)
+- 2026-06-29 11:50 - [事关个税 明日截止请抓紧办理](http://www.blog.kurohicncr.top/Article/details/6821739.shtml)
+- 2026-06-29 11:28 - [韩国队主帅洪明甫下课](https://www.share.minike.top/Article/details/070005.shtml)
+- 2026-06-29 11:32 - [流金岁月](http://www.share.kurohicncr.top/Article/details/80825505.shtml)
+- 2026-06-29 11:48 - [韩国队是怎么把自己“作死”的](http://www.share.minike.top/Article/details/6191082.shtml)
+- 2026-06-29 11:32 - [恋与深空女玩家不该被冒犯](https://www.share.kurohicncr.top/Article/details/3363692.shtml)
+- 2026-06-29 11:36 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/84630.shtml)

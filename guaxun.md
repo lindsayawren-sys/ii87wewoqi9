@@ -1,53 +1,57 @@
-# 特朗普重申伊朗不能拥有核武器
+# 跨境支付通参与机构不断增多 香港金管局：最新名单会适时更新
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普在接受采访时表示，他对有关美国谈判代表要求伊朗至少暂停铀浓缩20年的报道感到不满。 “我一直在说他们不能拥有核武器，”特朗普在采访中表示。“所以我不喜欢20年的说法。”责任编辑：李桐
+来源：上海证券报·中国证券网上证报中国证券网讯（记者 周亮）在跨境支付通推出将满一周年之际，跨境支付通香港参与机构即将增员的消息引发市场关注。据报道，渣打银行（香港）方面透露，即将推出跨境支付通服务，目前正进行最后测试。6月5日，香港金管局回复上证报记者称，自跨境支付通推出以来，跨境支付通参与机构不断增加，而有关香港参与机构的最新名单，香港金管局也会适时更新。跨境支付通是指内地
 
 ## 正文
 
-美国总统唐纳德·特朗普在接受采访时表示，他对有关美国谈判代表要求伊朗至少暂停铀浓缩20年的报道感到不满。
+来源：上海证券报·中国证券网上证报中国证券网讯（记者 周亮）在跨境支付通推出将满一周年之际，跨境支付通香港参与机构即将增员的消息引发市场关注。
 
-“我一直在说他们不能拥有核武器，”特朗普在采访中表示。
+据报道，渣打银行（香港）方面透露，即将推出跨境支付通服务，目前正进行最后测试。
 
-“所以我不喜欢20年的说法。
+6月5日，香港金管局回复上证报记者称，自跨境支付通推出以来，跨境支付通参与机构不断增加，而有关香港参与机构的最新名单，香港金管局也会适时更新。
 
-”责任编辑：李桐
+跨境支付通是指内地网上支付跨行清算系统(IBPS)与香港快速支付系统(FPS)的连接。
+
+中国人民银行与香港金融管理局共同推动内地与香港的快速支付系统实现互联互通，为两地居民及机构提供即时跨境支付服务。
+
+2025年6月22日，跨境支付通启动运行。
+
+首批参与跨境支付通机构共12家（两边各6家），内地机构包括工行、农行、中行、建行、交行、招行；香港机构包括中银香港、东亚银行、建银亚洲、恒生银行、汇丰银行、工银亚洲。
+
+后续逐步扩大参与范围。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:19 - [A股指数收红！锂矿板块午后放量拉升！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:20 - [日本邮船采用3D技术设计建造新一代CTV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:23 - [400辆网约车百余次故障？电动汽车质量纠纷该找谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:37 - [Anthropic联合创始人：正与特朗普政府讨论下一个人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:29 - [京津冀定向挑战赛天津落幕 四百余名选手花海寻春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:27 - [巴基斯坦防长称美伊谈判将很快重启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:32 - [兴业证券：首予保利置业增持评级 毛利率有望企稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:26 - [远大医药盘中涨超4% 重磅核药SIR-Spheres®钇\[90Y\]微球注射液再度迎来里程碑进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:34 - [华尔街行情向好，摩根大通固定收益与投行业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:24 - [依必安派特亮相2026中国制冷展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:25 - [央行发布2026年一季度金融统计数据报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:22 - [贵州省人大常委会秘书长、办公厅主任潘荣接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:41 - [中方：愿同匈牙利新一届政府加强高层交往](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:39 - [大商所发布《服务实体经济白皮书（2025）》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:36 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:37 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:30 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:34 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:30 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:47 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:32 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:45 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:45 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:43 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:30 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [违规超量投放共享自行车，哈啰公司被约谈](http://www.blog.minike.top/Article/details/428162943099.shtml)
-- 2026-06-29 11:36 - [5年亏超120亿，“胖改”难救永辉超市](http://www.blog.kurohicncr.top/Article/details/4960613.shtml)
-- 2026-06-29 11:24 - [CoreMarine与Jumbo Offshore合作开展阿根廷FLNG安装与连接项目](http://www.share.minike.top/Article/details/878486.shtml)
-- 2026-06-29 11:21 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [帝王国际投资：清盘呈请获撤回](http://www.blog.minike.top/Article/details/86377.shtml)
-- 2026-06-29 11:41 - [美媒：若美伊重返谈判桌 万斯将再次率团](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [ATFX汇市前瞻:褐皮书与PPI数据来袭 G20与原油月报本周发布](http://www.share.kurohicncr.top/Article/details/1191355.shtml)
-- 2026-06-29 11:38 - [乌军对克里米亚发动大规模袭击](http://www.blog.kurohicncr.top/Article/details/68354402.shtml)
-- 2026-06-29 11:26 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](http://www.share.minike.top/Article/details/505721229.shtml)
-- 2026-06-29 11:31 - [对冲基金资本正重塑拥有180年历史的保险模式](http://www.share.kurohicncr.top/Article/details/51198359272.shtml)
-- 2026-06-29 11:30 - [能源价格回落后 交易员下调对欧洲央行加息的押注](http://www.blog.kurohicncr.top/Article/details/309277.shtml)
-- 2026-06-29 11:36 - [周黑鸭于4月13日斥资149.61万港元回购94.1万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [公用事业公司计划未来五年投入1.4万亿美元，助力人工智能热潮发展](http://www.blog.kurohicncr.top/Article/details/3828916.shtml)
-- 2026-06-29 11:47 - [海垦十大招商项目亮相“粤贸全国”广东—海南经贸交流对接会](http://www.share.kurohicncr.top/Article/details/486306017.shtml)
-- 2026-06-29 11:24 - [从滞销盘到区域标杆 远洋建管获委托方授予“最佳战友”](http://www.share.minike.top/Article/details/235555527159.shtml)
+- 2026-06-29 11:26 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/122456022380.shtml)
+- 2026-06-29 11:29 - [赵今麦客串电影版开端](http://www.blog.kurohicncr.top/Article/details/635356.shtml)
+- 2026-06-29 11:33 - [哈尔滨“全城追菠萝蜜”](http://www.blog.minike.top/Article/details/26032.shtml)
+- 2026-06-29 11:39 - [哈尔滨“全城追菠萝蜜”](https://www.blog.kurohicncr.top/Article/details/666853298178.shtml)
+- 2026-06-29 11:40 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/80392754.shtml)
+- 2026-06-29 11:39 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/3594841323.shtml)
+- 2026-06-29 11:43 - [委内瑞拉地震死亡人数升至1450人](https://www.share.kurohicncr.top/Article/details/60766985.shtml)
+- 2026-06-29 11:24 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/694227969362.shtml)
+- 2026-06-29 11:23 - [重生赛伊德04](http://www.blog.kurohicncr.top/Article/details/85068.shtml)
+- 2026-06-29 11:38 - [吴昕要助理买的药6年前已停产](http://www.share.kurohicncr.top/Article/details/073814.shtml)
+- 2026-06-29 11:42 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/90499128267.shtml)
+- 2026-06-29 11:30 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.minike.top/Article/details/225572985.shtml)
+- 2026-06-29 11:25 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/98321140.shtml)
+- 2026-06-29 11:48 - [成都震感](https://www.blog.kurohicncr.top/Article/details/74059171980.shtml)
+- 2026-06-29 11:22 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/10810.shtml)

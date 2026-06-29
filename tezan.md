@@ -1,59 +1,54 @@
-# 从滞销盘到区域标杆 远洋建管获委托方授予“最佳战友”
+# 同仁堂大宗交易成交28.00万股 成交额700.84万元
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-近日在石家庄，一座沉甸甸的奖杯送到远洋集团旗下代建平台——远洋建管团队手中。远洋建管凭借在朗园项目代销过程中的突出表现，被委托方河北茂润房地产开发有限公司授予“最佳战友”荣誉称号。 在地产行业进入深度竞争的今天，这四个字背后，不仅仅是简单的合作，更是一场关于“困境项目反转”的实战教科书，是双方深度协同、专业共创的最好见证。 临危受命：破解“三大困境”的逆袭战 远洋建管进场之初，
+同仁堂6月5日大宗交易平台出现一笔成交，成交量28.00万股，成交金额700.84万元，大宗交易成交价为25.03元。该笔交易的买方营业部为国投证券股份有限公司广州猎德大道证券营业部，卖方营业部为中国国际金融股份有限公司北京建国门外大街证券营业部。进一步统计，近3个月内该股累计发生2笔大宗交易，合计成交金额为1199.69万元。证券时报·数据宝统计显示，同仁堂今日收盘价为25.
 
 ## 正文
 
-近日在石家庄，一座沉甸甸的奖杯送到远洋集团旗下代建平台——远洋建管团队手中。
+同仁堂6月5日大宗交易平台出现一笔成交，成交量28.00万股，成交金额700.84万元，大宗交易成交价为25.03元。
 
-远洋建管凭借在朗园项目代销过程中的突出表现，被委托方河北茂润房地产开发有限公司授予“最佳战友”荣誉称号。
+该笔交易的买方营业部为国投证券股份有限公司广州猎德大道证券营业部，卖方营业部为中国国际金融股份有限公司北京建国门外大街证券营业部。
 
-在地产行业进入深度竞争的今天，这四个字背后，不仅仅是简单的合作，更是一场关于“困境项目反转”的实战教科书，是双方深度协同、专业共创的最好见证。
+进一步统计，近3个月内该股累计发生2笔大宗交易，合计成交金额为1199.69万元。
 
-临危受命：破解“三大困境”的逆袭战 远洋建管进场之初，远洋·朗园（原茂润·海棠苑）正面临着本地项目常见的困扰： 信任红利消失：品牌知名度受限，购房者持币观望，客户信任度缺失。
+证券时报·数据宝统计显示，同仁堂今日收盘价为25.03元，上涨0.72%，日换手率为0.37%，成交额为1.27亿元，全天主力资金净流出421.37万元，近5日该股累计下跌2.42%，近5日资金合计净流出3873.21万元。
 
-产品定位错位：原有产品逻辑模糊，区域内的改善客群对此并不买单。
+两融数据显示，该股最新融资余额为11.48亿元，近5日减少395.56万元，降幅为0.34%。
 
-营销陷入僵局：体系薄弱导致到访量长期低迷，项目去化困难。
+据天眼查APP显示，北京同仁堂股份有限公司成立于1997年06月18日，注册资本137147.0262万人民币。
 
-面对这块“硬骨头”，远洋建管全维度输出专业能力，为项目量身定制了一套蝶变方案。
-
-核心打法：全链条赋能，让项目“活”起来 01 品牌背书：打破区域局限，实现全城溢价 依托远洋集团30余年积累的丰富经验和深耕石家庄近10年的良好口碑，远洋建管进场后迅速实现品牌价值兑现。
+（数据宝）6月5日同仁堂大宗交易一览（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [富国基金27周年：深耕专业 迈向高质量发展新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:26 - [优彩资源人事调整：戴泽新之女戴梦茜卸任董秘，投行出身赖嫣珩接棒 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:34 - [新加坡金管局上调汇率区间斜率 预计2026年核心通胀率为1.5%-2.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:25 - [“邮储银行号”遥感卫星升空！银行为何接力放卫星？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:42 - [国家安全“大事”，跟普通人有什么关系？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:33 - [习近平会见西班牙首相桑切斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:27 - [企业加速入驻 中国首个大模型创新生态社区“AI磁力”增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:38 - [国晟科技，浑身是谜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:30 - [专家学者南京共商生态文明传播新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:26 - [新加坡第一季度经济增长放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:25 - [创业板增设第四套上市标准 更好支持优质创新企业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:46 - [原油：油价下挫 美伊和谈预期缓解供应担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:48 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:51 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:31 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:23 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:42 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:47 - [为何加快“扩编”成欧盟战略要务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:32 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:47 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:28 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:37 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:31 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [中天策略:4月13日市场分析](http://www.share.kurohicncr.top/Article/details/136278343618.shtml)
-- 2026-06-29 11:40 - [第六届中国国际消费品博览会启幕 超3400个品牌参展](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [安徽合肥加速竞逐未来产业](http://www.blog.minike.top/Article/details/81172.shtml)
-- 2026-06-29 11:22 - [韩国3月ICT出口额达435亿美元，同比增长逾一倍](http://www.blog.minike.top/Article/details/19526.shtml)
-- 2026-06-29 11:36 - [探馆消博会|未来生活，能有多酷？](http://www.blog.minike.top/Article/details/62062.shtml)
-- 2026-06-29 11:41 - [“海上名山”新潮出圈迎园博 浙江乐清全域联动谱文旅新篇](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [特朗普称若中方向伊朗供武就加征关税 中方回应](http://www.blog.minike.top/Article/details/154584371.shtml)
-- 2026-06-29 11:40 - [海南文昌积极打造中国首个商业航天卫星数据加工贸易区](http://www.share.minike.top/Article/details/580679.shtml)
-- 2026-06-29 11:28 - [东亚银行发行149.27万股代息股份](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [尾盘，A股突然异动！大面积涨停！外围，传来利好](http://www.share.kurohicncr.top/Article/details/3293564395.shtml)
-- 2026-06-29 11:32 - [中国工商银行深圳分行原党委委员、副行长姚玉平接受纪律审查和监察调查](http://www.blog.minike.top/Article/details/570278.shtml)
-- 2026-06-29 11:29 - [世界正向东看，访华潮折射时代大势](http://www.blog.kurohicncr.top/Article/details/9708188.shtml)
-- 2026-06-29 11:24 - [刚刚，利好来了！直线爆拉，中东大消息！](http://www.blog.minike.top/Article/details/760467732869.shtml)
-- 2026-06-29 11:19 - [英国财政大臣抨击美国贸然发动对伊战争是愚蠢之举](http://www.share.kurohicncr.top/Article/details/6474660.shtml)
-- 2026-06-29 11:33 - [中美“乒乓外交”55周年纪念活动在沪举行 亲历者冀两国青年接续友谊](http://www.share.kurohicncr.top/Article/details/09164.shtml)
+- 2026-06-29 11:30 - [《贺子珍》](http://www.blog.minike.top/Article/details/13241997171.shtml)
+- 2026-06-29 11:34 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](http://www.share.kurohicncr.top/Article/details/650181844173.shtml)
+- 2026-06-29 11:38 - [男子撸铁后擦汗 脸部感染“脚气”](https://www.blog.kurohicncr.top/Article/details/46423.shtml)
+- 2026-06-29 11:40 - [伊朗球员致歉](http://www.share.minike.top/Article/details/45767389.shtml)
+- 2026-06-29 11:47 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/57695382.shtml)
+- 2026-06-29 11:28 - [户外吃烧烤多人头发变炸毛](http://www.blog.kurohicncr.top/Article/details/01650318929.shtml)
+- 2026-06-29 11:49 - [英国高温已致多人死亡](http://www.blog.kurohicncr.top/Article/details/947199076.shtml)
+- 2026-06-29 11:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/910633.shtml)
+- 2026-06-29 11:52 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.share.minike.top/Article/details/8086693903.shtml)
+- 2026-06-29 11:48 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/9367472.shtml)
+- 2026-06-29 11:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/257025522166.shtml)
+- 2026-06-29 11:28 - [哈尔滨“全城追菠萝蜜”](https://www.blog.kurohicncr.top/Article/details/61808765.shtml)
+- 2026-06-29 11:30 - [请回答王牌2019](https://www.share.minike.top/Article/details/17891194037.shtml)
+- 2026-06-29 11:29 - [金牌调解](https://www.blog.minike.top/Article/details/817915872.shtml)
+- 2026-06-29 11:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/37080237423.shtml)

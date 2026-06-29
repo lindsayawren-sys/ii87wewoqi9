@@ -1,58 +1,48 @@
-# 新加坡第一季度经济增长放缓
+# 扎根沃土放眼世界 云花云茶云咖特色农产品“香气十足”
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-新加坡经济在第一季度失去动能，逊于预期，并且随着中东冲突开始对贸易和制造业构成压力，经济已显现初步承压迹象。根据周二公布的初步预估数据，新加坡1-3月国内生产总值（GDP）同比增长4.6%。相比之下，第四季度增幅修正为5.7%，媒体调查预测的增幅为5.7%。经季节性调整后，第一季度该国经济环比萎缩0.3%。相比之下，第四季度修正后为环比增长1.3%，而调查的预估为萎缩0.75%
+发布时间：2026年06月06日 16:34 来源：中国新闻网 从馥郁芬芳的云花、醇厚回甘的云茶，到醇香浓郁的云咖，一众云南特色“土特产”扎根沃土、提质培优，借着南博会等对外开放平台，走出大山、畅销全国、飘香海外。 （白玲 陆希成 李嘉娴 云南大理保山报道 部分视频来源 保山市隆阳区融媒体中心） 责任编辑：【卢岩】
 
 ## 正文
 
-新加坡经济在第一季度失去动能，逊于预期，并且随着中东冲突开始对贸易和制造业构成压力，经济已显现初步承压迹象。
+发布时间：2026年06月06日 16:34 来源：中国新闻网 从馥郁芬芳的云花、醇厚回甘的云茶，到醇香浓郁的云咖，一众云南特色“土特产”扎根沃土、提质培优，借着南博会等对外开放平台，走出大山、畅销全国、飘香海外。
 
-根据周二公布的初步预估数据，新加坡1-3月国内生产总值（GDP）同比增长4.6%。
-
-相比之下，第四季度增幅修正为5.7%，媒体调查预测的增幅为5.7%。
-
-经季节性调整后，第一季度该国经济环比萎缩0.3%。
-
-相比之下，第四季度修正后为环比增长1.3%，而调查的预估为萎缩0.75%。
-
-新加坡贸易与工业部表示：“虽然2026年第一季度GDP增长保持韧性，但2月底开始的美-以色列-伊朗冲突可能会在未来几个季度对经济活动构成压力。
-
-”责任编辑：王永生
+（白玲 陆希成 李嘉娴 云南大理保山报道 部分视频来源 保山市隆阳区融媒体中心） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [中天策略:4月14日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:22 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:29 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:19 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:46 - [今年以来地方债发行节奏提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:27 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:39 - [收评：国内期货主力合约涨跌互现 PX涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:46 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:20 - [马斯克的SpaceX新数据：星链成绝对核心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:20 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:41 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:24 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:41 - [钦州港海关2026年4月份“关长接待日”公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:41 - [双象股份：拟每10股分红2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:34 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:28 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:24 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:46 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:46 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:25 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:43 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:51 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:38 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:36 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:49 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:40 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:30 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:31 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [王沪宁会见越共中央总书记、国家主席苏林](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [特朗普猛烈抨击教皇利奥十四世对美外交政策的批评](http://www.blog.minike.top/Article/details/051642.shtml)
-- 2026-06-29 11:20 - [修好政德才能出好政绩（思想纵横）](http://www.share.minike.top/Article/details/191340405.shtml)
-- 2026-06-29 11:42 - [习近平会见西班牙首相桑切斯：共同捍卫真正的多边主义 守护全球和平与发展](http://www.blog.minike.top/Article/details/59696489511.shtml)
-- 2026-06-29 11:33 - [价格大涨约50%！家电业部分塑料从进口转向国内供应](http://www.share.kurohicncr.top/Article/details/242895313840.shtml)
-- 2026-06-29 11:24 - [西班牙首相：世界离不开中国](http://www.blog.minike.top/Article/details/6586520.shtml)
-- 2026-06-29 11:35 - [分析师上调英特尔评级 凸显服务器芯片市场持续走强](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [中科宇航IPO：报告期内股份支付金额高达19亿元 技术独立性待考 实控人“双跨”问题仍未解决](http://www.share.kurohicncr.top/Article/details/70587064726.shtml)
-- 2026-06-29 11:37 - [*ST万方面临“市值退” 4月14日开市起停牌](http://www.blog.kurohicncr.top/Article/details/6899331667.shtml)
-- 2026-06-29 11:48 - [特一药业：根据米内网等第三方市场数据，硫酸氨基葡萄糖胶囊近年来的国内销售规模持续扩大](http://www.blog.kurohicncr.top/Article/details/641273490610.shtml)
-- 2026-06-29 11:47 - [A股午评：超2600只个股飘绿，三大指数集体收涨](http://www.blog.kurohicncr.top/Article/details/6267930006.shtml)
-- 2026-06-29 11:44 - [伊朗内政部长指示边境省份“消除海上封锁威胁”](http://www.share.kurohicncr.top/Article/details/84379016087.shtml)
-- 2026-06-29 11:25 - [英国石油称其石油交易业务表现“异常出色”](http://www.blog.minike.top/Article/details/68943694.shtml)
-- 2026-06-29 11:44 - [人民币兑美元中间价较上日调升64点至6.8593 升值至2023年3月24日以来最高！](http://www.blog.minike.top/Article/details/0230861511.shtml)
-- 2026-06-29 11:39 - [东盟学子以艺架桥 欢庆广西“三月三”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/706333.shtml)
+- 2026-06-29 11:22 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.kurohicncr.top/Article/details/21554874.shtml)
+- 2026-06-29 11:24 - [扬名立万](https://www.blog.minike.top/Article/details/98618407070.shtml)
+- 2026-06-29 11:32 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.kurohicncr.top/Article/details/317125.shtml)
+- 2026-06-29 11:47 - [韩国政府将对世界杯出局追责](http://www.blog.minike.top/Article/details/9801619631.shtml)
+- 2026-06-29 11:23 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://www.blog.kurohicncr.top/Article/details/4088970.shtml)
+- 2026-06-29 11:32 - [韩媒破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/40598.shtml)
+- 2026-06-29 11:28 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.blog.minike.top/Article/details/015485732.shtml)
+- 2026-06-29 11:29 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/064657.shtml)
+- 2026-06-29 11:26 - [2026年Mac能玩游戏了吗](https://www.share.minike.top/Article/details/19398151.shtml)
+- 2026-06-29 11:26 - [温州学子高考数学满分 分享学习经验](http://www.share.kurohicncr.top/Article/details/521938.shtml)
+- 2026-06-29 11:38 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/17808353307.shtml)
+- 2026-06-29 11:41 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/751174559961.shtml)
+- 2026-06-29 11:31 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/0737126.shtml)
+- 2026-06-29 11:26 - [海清白玉兰奖运](http://www.share.minike.top/Article/details/36871135789.shtml)

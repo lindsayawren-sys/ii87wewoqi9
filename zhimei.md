@@ -1,59 +1,61 @@
-# 微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元
+# 浙江湖州：用小故事讲好“大团结” 共绘最美同心圆
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-微创机器人-B（02252）盘中涨超7%，截至发稿，股价上涨5.17%，现报29.30港元，成交额1.67亿港元。 微创机器人去年海外收入按年增长287%，其中图迈手术机器人销售量更增长超过五倍。瑞银表示，微创机器人聚焦于南美、南亚及中东欧等中等收入发展中国家，这些地区的手术机器人渗透率较低，需求庞大。 瑞银发布研报称，将微创机器人-B（02252）目标价由21.4港元上调至3
+中新网湖州6月5日电(蓝伊旎 孙东玉)情景剧《湖羊西行记》再现湖羊“西行”助力民族地区产业发展的协作精神，《国家的孩子》将浙江与内蒙古之间关于爱与团结的故事娓娓道来......6月4日，2026年度湖州市铸牢中华民族共同体意识巡回宣讲在浙江湖州南太湖新区启动。一个个鲜活的故事，奏响了各民族交往交流交融的动人乐章。 活动汇聚多方力量，湖州市委统战部、市教育局、在湖高校党委统战部、
 
 ## 正文
 
-微创机器人-B（02252）盘中涨超7%，截至发稿，股价上涨5.17%，现报29.30港元，成交额1.67亿港元。
+中新网湖州6月5日电(蓝伊旎 孙东玉)情景剧《湖羊西行记》再现湖羊“西行”助力民族地区产业发展的协作精神，《国家的孩子》将浙江与内蒙古之间关于爱与团结的故事娓娓道来......6月4日，2026年度湖州市铸牢中华民族共同体意识巡回宣讲在浙江湖州南太湖新区启动。
 
-微创机器人去年海外收入按年增长287%，其中图迈手术机器人销售量更增长超过五倍。
+一个个鲜活的故事，奏响了各民族交往交流交融的动人乐章。
 
-瑞银表示，微创机器人聚焦于南美、南亚及中东欧等中等收入发展中国家，这些地区的手术机器人渗透率较低，需求庞大。
+活动汇聚多方力量，湖州市委统战部、市教育局、在湖高校党委统战部、各区县民宗局和南太湖新区党群工作部有关负责人以及湖州市民促会会员代表、“之江同心·石榴红”阵地代表等100余人到场。
 
-瑞银发布研报称，将微创机器人-B（02252）目标价由21.4港元上调至35.9港元；评级从“中性”升为“买入”； 料集团2026至2028年的预测收入年复合增长率（CAGR）达49.5%，每股盈利（EPS）年复合增长率高达185.5%，看好其强劲的海外销售潜力。
+湖州市委常委、统战部部长潘友明宣布巡回宣讲活动全面启动。
 
-公司去年海外收入同比增长287%，其中“图迈”手术机器人销售量更增长超过五倍。
+随后，舞台之上，情景剧、主题演讲、红色朗诵等节目轮番上演，以多元艺术形式生动诠释民族团结的深刻内涵。
 
-不同于已发展市场，微创机器人聚焦于南美、南亚及中东欧等中等收入发展中国家，这些地区的手术机器人渗透率较低，需求庞大； 预计到2034年，这些地区累计将有超过10，000台腹腔镜手术机器人的安装需求，而微创机器人作为市场先驱之一，有望取得25%的市场份额。
+来自新疆的宣讲员木台力甫·木沙结合亲身经历，以一颗“石榴籽”的视角，讲述自己从塔里木河畔远赴钱塘江畔的“东游记”；德清宣讲员杨寅讲述一株茭白落地兴业、带动民族地区三万余户农户脱贫增收的帮扶故事，引来一片赞叹；安吉宣讲员张燕燕则立足当地生态优势，结合“绿水青山”与“石榴红”讲述同心共富实践。
 
-责任编辑：卢昱君
+此外，双人朗诵《不朽》致敬了民族团结的精神丰碑，演讲《爱暖雪域，筑梦格桑》则让人看到了年轻一代的责任与担当。
+
+“能站在这里讲述身边的民族团结故事，我感到非常自豪。
 
 ## 相关推荐
 
-- 2026-06-29 11:22 - [冰川消退预警峰值水量 奥地利能源转型提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:29 - [参议员Scott：沃什的美联储主席提名确认听证会将于下周举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:47 - [中国太保：总经理助理刘龙的任职资格获核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:29 - [大众汽车集团交付量下滑，受中美市场疲软拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:41 - [海泰发展财务造假被罚，投资者索赔条件更新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:44 - [平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:22 - [戴尔和惠普股价大涨 据报英伟达正在洽购一家大企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:30 - [辽宁营商环境的“民生温度”与“投资信心”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:40 - [网易云音乐于4月14日斥资1499.7万港元回购12.32万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:46 - [荷兰首相将与特朗普讨论阿斯麦出口限制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:48 - [特朗普重申伊朗不能拥有核武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:28 - [科技赋能防控秸秆焚烧 黑龙江“守田行动”筑牢春耕防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:42 - [谷歌最新Gemini升级预示更大规模的机器人布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:33 - [上交所就龙元建设相关事项下发监管工作函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:37 - [王毅同巴基斯坦副总理兼外长达尔通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:45 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:47 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:44 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:28 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:41 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:37 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:39 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:22 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:37 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:39 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:25 - [当地回应多辆“百吨王”强行冲卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:47 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:33 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [甘肃环县九村联建一个厂 带富千户种粮人](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势](http://www.blog.minike.top/Article/details/57275.shtml)
-- 2026-06-29 11:40 - [OpenAI是否正脱离微软的掌控？与亚马逊的新联盟让利害关系进一步升级](http://www.share.kurohicncr.top/Article/details/828620252.shtml)
-- 2026-06-29 11:23 - [李强同阿联酋阿布扎比王储哈立德会谈](http://www.blog.kurohicncr.top/Article/details/26541.shtml)
-- 2026-06-29 11:41 - [欧洲债市：各期限收益率全线下行 市场下调对欧英央行的加息押注](http://www.blog.minike.top/Article/details/69283.shtml)
-- 2026-06-29 11:43 - [五一视界早盘涨逾6% 日前获创始人增持765万股](http://www.blog.minike.top/Article/details/26902.shtml)
-- 2026-06-29 11:33 - [中国正计划向伊朗提供武器？外交部：反对无根据的抹黑或恶意关联](http://www.share.kurohicncr.top/Article/details/692180609917.shtml)
-- 2026-06-29 11:45 - [快讯：WTI原油日内大跌4.00%，现报88.37美元/桶](http://www.share.minike.top/Article/details/30959249966.shtml)
-- 2026-06-29 11:40 - [向上转机就在四月，华宝基金创业板人工智能连创新高！最大港股通信息技术ETF（159131）涨超2%又跑赢！](http://www.blog.kurohicncr.top/Article/details/69380.shtml)
-- 2026-06-29 11:34 - [外交部谈美伊在巴基斯坦谈判：是朝有利于局势缓和方向迈出的一步](http://www.share.minike.top/Article/details/951272.shtml)
-- 2026-06-29 11:40 - [美国财长贝森特：伊朗冲突期间美联储按兵不动是正确做法](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [高市再提修宪 引发日本民众广泛反对](http://www.blog.kurohicncr.top/Article/details/345229622.shtml)
-- 2026-06-29 11:27 - [台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦](http://www.blog.minike.top/Article/details/78670628.shtml)
-- 2026-06-29 11:48 - [芝加哥期市：CBOT大豆期货收跌，预计美国种植面积将增加](http://www.share.kurohicncr.top/Article/details/586313.shtml)
-- 2026-06-29 11:39 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [恋与深空底线不该被娱乐化](http://www.share.kurohicncr.top/Article/details/530775.shtml)
+- 2026-06-29 11:51 - [白鹿呵呵挽手比心](http://www.blog.kurohicncr.top/Article/details/0421076678.shtml)
+- 2026-06-29 11:46 - [美人鱼](https://www.share.minike.top/Article/details/48216560.shtml)
+- 2026-06-29 11:33 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.minike.top/Article/details/32912935349.shtml)
+- 2026-06-29 11:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/121340959167.shtml)
+- 2026-06-29 11:40 - [吴海燕兰西雅漫步复兴岛](http://www.blog.kurohicncr.top/Article/details/229930683.shtml)
+- 2026-06-29 11:42 - [欧洲热死人不是开玩笑](http://www.share.kurohicncr.top/Article/details/39912.shtml)
+- 2026-06-29 11:39 - [杨紫李现16年情谊藏于行动](http://www.blog.minike.top/Article/details/7893388.shtml)
+- 2026-06-29 11:44 - [曝韩国球员目睹出局时正吃饭](http://www.blog.kurohicncr.top/Article/details/99254780256.shtml)
+- 2026-06-29 11:22 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/9156763883.shtml)
+- 2026-06-29 11:35 - [手游300亿数据或被军事化运用](https://www.share.minike.top/Article/details/254563.shtml)
+- 2026-06-29 11:39 - [王祖蓝现场观看美加墨世界杯](http://www.blog.kurohicncr.top/Article/details/30483.shtml)
+- 2026-06-29 11:51 - [恋与深空底线不该被娱乐化](http://www.share.kurohicncr.top/Article/details/298468369210.shtml)
+- 2026-06-29 11:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/54234.shtml)
+- 2026-06-29 11:36 - [这位猫咪，请你自重！](http://www.share.minike.top/Article/details/55387566.shtml)

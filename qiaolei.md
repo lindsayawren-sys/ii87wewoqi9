@@ -1,61 +1,56 @@
-# 原油：油价下挫 美伊和谈预期缓解供应担忧
+# 年度票房破160亿！暑期档佳片汇聚 我们影院见
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-油价大幅下跌，因有迹象显示美国和伊朗正寻求安排第二轮和平谈判。 布伦特下跌4.6%，收于每桶95美元下方；WTI下跌7.9%，收于每桶91美元附近。 知情人士称，目标是在停火协议到期前举行进一步磋商。 伊朗据悉考虑短期暂停该国通过霍尔木兹海峡的航运，以避免试探美国的封锁行动并破坏新一轮和谈。 若战争结束且霍尔木兹海峡重开，全球将能够开始补充在冲突中损失的数亿桶原油。 但专家警告
+截至目前 2026年度电影总票房 已突破160亿元 其中，电影《给阿嬷的情书》自上映后口碑票房持续走高 目前票房已超15亿元 暂列2026年度票房亚军 此外该片已宣布延长上映至6月30日 并将在海外陆续公映 佳片汇聚 开启2026暑期档 2026年暑期档已开启 目前已有众多影片锁定暑期档 涵盖历史、科幻、青春、动画等多元类型 既有备受期待的国产新片 也有海外热门IP推出全新续作
 
 ## 正文
 
-油价大幅下跌，因有迹象显示美国和伊朗正寻求安排第二轮和平谈判。
+截至目前 2026年度电影总票房 已突破160亿元 其中，电影《给阿嬷的情书》自上映后口碑票房持续走高 目前票房已超15亿元 暂列2026年度票房亚军 此外该片已宣布延长上映至6月30日 并将在海外陆续公映 佳片汇聚 开启2026暑期档 2026年暑期档已开启 目前已有众多影片锁定暑期档 涵盖历史、科幻、青春、动画等多元类型 既有备受期待的国产新片 也有海外热门IP推出全新续作 各类影片将接力登陆大银幕 共同点燃夏日的光影热情 壮阔史诗映照家国情怀 今年暑期档，多部历史题材影片集中定档，以光影讲述峥嵘岁月，传递深厚的家国情怀。
 
-布伦特下跌4.6%，收于每桶95美元下方；WTI下跌7.9%，收于每桶91美元附近。
+其中，重大革命历史题材电影《四渡》以红军长征中的四渡赤水战役为核心，再现中央红军在敌军重兵围堵之下，运用高超战略智慧以少胜多、扭转战局的军事奇迹，向红军长征胜利90周年致敬。
 
-知情人士称，目标是在停火协议到期前举行进一步磋商。
+电影《澎湖海战》则聚焦1683年施琅率福建水师收复台湾、实现疆土一统的关键战役，再现了那段“孤悬必归、分疆必合”的壮阔史诗。
 
-伊朗据悉考虑短期暂停该国通过霍尔木兹海峡的航运，以避免试探美国的封锁行动并破坏新一轮和谈。
+在呈现激烈海战奇观的同时，影片也承载着两岸同根同源、万众盼归的情感期待。
 
-若战争结束且霍尔木兹海峡重开，全球将能够开始补充在冲突中损失的数亿桶原油。
+国产动画展现创新活力 作为今年暑期档的重要组成部分，国产动画继续展现蓬勃创作活力。
 
-但专家警告称，这场战争对能源市场的影响可能在未来数月乃至数年持续显现。
+纪录电影《中国动画100年》聚焦中国动画百年发展历程，通过经典作品与珍贵影像资料，全景式呈现中国动画从探索起步到成就斐然的发展轨迹，带领观众重温几代人的童年记忆，感受中国动画的光影魅力。
 
-“围绕潜在谈判和霍尔木兹海峡恢复通行的乐观预期令油价走低，但价格走势更多由仓位和技术面驱动，而非基本面，”CIBC Private Wealth Group高级能源交易员Rebecca Babin表示。
+动画电影《三国第一部：争洛阳》将镜头对准东汉末年三国故事起点，以“争洛阳”为叙事切口，展开汉末权谋交锋与群雄抉择，再现惊心动魄的乱世风云。
 
-美国周二表示，有六艘商船遵从美军指示掉头，重新驶入伊朗港口。
+在东方美学风格中，为观众呈现一部兼具厚重历史质感与英雄气概的三国开篇史诗。
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:31 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:31 - [今年以来地方债发行节奏提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:34 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:35 - [收评：国内期货主力合约涨跌互现 PX涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:25 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:41 - [马斯克的SpaceX新数据：星链成绝对核心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:26 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:26 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:39 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:30 - [钦州港海关2026年4月份“关长接待日”公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:25 - [双象股份：拟每10股分红2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:44 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:23 - [搭建高端交流平台 深耕侨乡文脉传承——开平民建以学术交流赋能侨乡文化建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:38 - [强业绩提振，金山软件涨超8%，腾讯混元3.0发布在即，华宝基金港股互联网ETF（513770）涨超1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:41 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:26 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:35 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:41 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:37 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:34 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:29 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:47 - [丞磊莫离最后5集加起来集均3分钟戏份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:44 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:28 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [修好政德才能出好政绩（思想纵横）](http://www.blog.minike.top/Article/details/7895026.shtml)
-- 2026-06-29 11:43 - [习近平会见西班牙首相桑切斯：共同捍卫真正的多边主义 守护全球和平与发展](http://www.blog.kurohicncr.top/Article/details/460472026635.shtml)
-- 2026-06-29 11:46 - [价格大涨约50%！家电业部分塑料从进口转向国内供应](http://www.share.kurohicncr.top/Article/details/6949083653.shtml)
-- 2026-06-29 11:22 - [西班牙首相：世界离不开中国](http://www.blog.minike.top/Article/details/845213098175.shtml)
-- 2026-06-29 11:19 - [分析师上调英特尔评级 凸显服务器芯片市场持续走强](http://www.blog.kurohicncr.top/Article/details/30077770302.shtml)
-- 2026-06-29 11:24 - [中科宇航IPO：报告期内股份支付金额高达19亿元 技术独立性待考 实控人“双跨”问题仍未解决](http://www.blog.kurohicncr.top/Article/details/12070546.shtml)
-- 2026-06-29 11:45 - [*ST万方面临“市值退” 4月14日开市起停牌](http://www.share.minike.top/Article/details/021453180779.shtml)
-- 2026-06-29 11:25 - [特一药业：根据米内网等第三方市场数据，硫酸氨基葡萄糖胶囊近年来的国内销售规模持续扩大](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [A股午评：超2600只个股飘绿，三大指数集体收涨](http://www.share.kurohicncr.top/Article/details/2339205607.shtml)
-- 2026-06-29 11:23 - [伊朗内政部长指示边境省份“消除海上封锁威胁”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [英国石油称其石油交易业务表现“异常出色”](http://www.share.kurohicncr.top/Article/details/339218671334.shtml)
-- 2026-06-29 11:45 - [人民币兑美元中间价较上日调升64点至6.8593 升值至2023年3月24日以来最高！](http://www.share.kurohicncr.top/Article/details/30805347104.shtml)
-- 2026-06-29 11:28 - [东盟学子以艺架桥 欢庆广西“三月三”](http://www.share.kurohicncr.top/Article/details/066573828281.shtml)
-- 2026-06-29 11:40 - [贺兰山下的微醺时光：一杯尽揽岁月风华](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [第十二届“东方财富杯”全国大学生金融挑战赛正式启动 以金融实践赋能青年素养提升](http://www.share.kurohicncr.top/Article/details/8200321.shtml)
+- 2026-06-29 11:38 - [欧洲热死人不是开玩笑](https://www.blog.minike.top/Article/details/76689.shtml)
+- 2026-06-29 11:48 - [赵今麦客串电影版开端](https://www.blog.minike.top/Article/details/3344293147.shtml)
+- 2026-06-29 11:39 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/143821.shtml)
+- 2026-06-29 11:27 - [退休化学教授帮医药研发人员制毒](http://www.share.kurohicncr.top/Article/details/9619623.shtml)
+- 2026-06-29 11:29 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/39669.shtml)
+- 2026-06-29 11:24 - [2026年Mac能玩游戏了吗](http://www.blog.kurohicncr.top/Article/details/554828.shtml)
+- 2026-06-29 11:23 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/910267.shtml)
+- 2026-06-29 11:35 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/9596195.shtml)
+- 2026-06-29 11:51 - [换个角度打开世界杯淘汰赛](http://www.blog.kurohicncr.top/Article/details/34790969.shtml)
+- 2026-06-29 11:30 - [房屋抵押权与租赁权如何协调](http://www.blog.kurohicncr.top/Article/details/985364437538.shtml)
+- 2026-06-29 11:49 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/887645.shtml)
+- 2026-06-29 11:50 - [女生雨天开车发现雨刮条被掰走](http://www.blog.minike.top/Article/details/1125325356.shtml)
+- 2026-06-29 11:34 - [下飞机后，我做了个很蠢的决定......](http://www.share.minike.top/Article/details/87688060881.shtml)
+- 2026-06-29 11:32 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/22946.shtml)
+- 2026-06-29 11:44 - [宜宾5.5级地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/073250.shtml)

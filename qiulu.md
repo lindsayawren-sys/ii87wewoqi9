@@ -1,57 +1,60 @@
-# 金蝶国际早盘高开逾8% 截至3月底ARR同比增长约19%
+# 加密货币交易所Bybit将开放SpaceX代币化IPO的参与渠道
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-金蝶国际（00268）早盘高开近6%，截至发稿，股价上涨8.38%，现报8.67港元，成交额1.71亿港元。 4月13日，金蝶国际公布，截至2026年3月31日，订阅服务年经常性收入（ARR）约为人民币42.2亿元，同比增长约19%。2026年第一季度， AI原生产品（金蝶AI套件）签约合同金额达人民币2.3亿元。AI+SaaS产品（金蝶AI星瀚、金蝶AI星空、金蝶AI星辰）净
+加密货币交易所Bybit表示，将向散户投资者提供以发行价参与代币化首次公开募股（IPO）的机会，首期将推出SpaceX的代币化IPO。 具体详情如下： Bybit用户可通过代币化平台Payward的xStocks，认购公开交易股票的代币化份额。 针对SpaceX的发行，注册和认购将于2026年6月7日至6月11日进行，配额分配将于6月11日至6月12日最终确定。代币化股份预计将
 
 ## 正文
 
-金蝶国际（00268）早盘高开近6%，截至发稿，股价上涨8.38%，现报8.67港元，成交额1.71亿港元。
+加密货币交易所Bybit表示，将向散户投资者提供以发行价参与代币化首次公开募股（IPO）的机会，首期将推出SpaceX的代币化IPO。
 
-4月13日，金蝶国际公布，截至2026年3月31日，订阅服务年经常性收入（ARR）约为人民币42.2亿元，同比增长约19%。
+具体详情如下： Bybit用户可通过代币化平台Payward的xStocks，认购公开交易股票的代币化份额。
 
-2026年第一季度， AI原生产品（金蝶AI套件）签约合同金额达人民币2.3亿元。
+针对SpaceX的发行，注册和认购将于2026年6月7日至6月11日进行，配额分配将于6月11日至6月12日最终确定。
 
-AI+SaaS产品（金蝶AI星瀚、金蝶AI星空、金蝶AI星辰）净金额续费率（NDR）分别为103%、96%、94%。
+代币化股份预计将于6月12日起在Bybit的现货市场开始交易。
 
-报告期内，集团中标签约双汇发展、面壁智能、绿城服务、全芯科技、普阳钢铁、华统集团等知名企业。
+用户将能够以IPO定价购买股份，从而规避二级市场的竞争，且无需开设或维护传统的证券账户。
 
-责任编辑：卢昱君
+上周启动路演的SpaceX此次IPO已吸引约1500亿美元的投资者需求，约为其计划募集的750亿美元的两倍。
+
+加密货币交易所Kraken本月表示，已通过xStocks平台向110多个国家的客户开放了SpaceXIPO的申购渠道。
+
+华尔街押注2026年可能成为美国IPO市场的突破之年，这得益于大量备受瞩目的私营公司储备以及对新股上市的积压需求。
 
 ## 相关推荐
 
-- 2026-06-29 11:22 - [台湾自媒体人踏春入滇 共赴泼水节文化盛宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:47 - [神驰机电：拟出资6000万元参与设立股权投资合伙企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:43 - [古兜控股获JYH Hong Kong Limited增持约1.07亿股 每股作价0.0603港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:47 - [珂玛科技可转债发行安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:30 - [美国总统特朗普： 封锁伊朗后美国将能大卖石油](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:28 - [花洒很干净，不用清洁……是真是假？| 谣言终结站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:44 - [绿叶制药获瑞银增持1395.45万股 每股作价约2.85港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:26 - [中信建投期货：4月14日黑色系早报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:44 - [习近平会见阿联酋阿布扎比王储哈立德](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:35 - [创新药“加速度”，商保角色重塑：从补充支付到核心参与！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:38 - [比亚迪又拿下两大电芯订单！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:39 - [多国政要排队访华 为何而来？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:44 - [肖远企在澳门葡语国家（地区）保险监管研讨会上的演讲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:32 - [永川海关2026年度信息化运维服务采购项目中标公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:44 - [赢家时尚：受托人根据股份奖励计划购买合共92.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:31 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:37 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:44 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:42 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:29 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:50 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:49 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:38 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:23 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:26 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:31 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:31 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:31 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [愤怒的李想和遭到围攻的理想汽车](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [顺丰、京东、中通、韵达、申通等回应快递涨价](http://www.share.minike.top/Article/details/76279281.shtml)
-- 2026-06-29 11:33 - [美国宣布封锁后，三艘油轮试图穿越霍尔木兹海峡](http://www.share.kurohicncr.top/Article/details/8348564743.shtml)
-- 2026-06-29 11:24 - [日上集团：公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务](http://www.blog.kurohicncr.top/Article/details/18040.shtml)
-- 2026-06-29 11:46 - [美国对伊朗海上交通封锁13日生效](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [恒大集团、恒大地产及许家印案一审开庭](http://www.blog.kurohicncr.top/Article/details/68416750680.shtml)
-- 2026-06-29 11:40 - [开局之年看中国·开放自贸港：当“椰子之乡”牵手“沙漠面包”](http://www.blog.kurohicncr.top/Article/details/92421966.shtml)
-- 2026-06-29 11:45 - [跨越四百年 西班牙首相感叹：中国依旧伟大](http://www.blog.minike.top/Article/details/98966.shtml)
-- 2026-06-29 11:37 - [“00”后藏族设计师班珠丹塔 让藏装焕发时代光彩](http://www.share.minike.top/Article/details/46665855000.shtml)
-- 2026-06-29 11:38 - [涉案3000万元 非法集资瞄准“银发旅游团”](http://www.blog.kurohicncr.top/Article/details/94876.shtml)
-- 2026-06-29 11:40 - [药捷安康-B拟折让约18.00%发行508.5万股配售股份](http://www.share.kurohicncr.top/Article/details/2922487589.shtml)
-- 2026-06-29 11:26 - [长安期货：美伊和谈暂无成果 关注CPI数据](http://www.share.kurohicncr.top/Article/details/89831.shtml)
-- 2026-06-29 11:37 - [恒大集团、恒大地产及许家印案一审开庭](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [（乡村行·看振兴）湖光山色引客来 艺术唤醒“空心村”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [新华社：运动员因何频遭网暴？全红婵案警示几何？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/510914983.shtml)
+- 2026-06-29 11:34 - [神23乘组太空出差满月](http://www.blog.kurohicncr.top/Article/details/47097.shtml)
+- 2026-06-29 11:42 - [三轮车被自家狗“推”进池塘](http://www.share.minike.top/Article/details/126652.shtml)
+- 2026-06-29 11:26 - [张一山说杨紫早该拿奖了](https://www.share.minike.top/Article/details/6312406362.shtml)
+- 2026-06-29 11:27 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/47858.shtml)
+- 2026-06-29 11:50 - [韩体育部长回应李在明痛批](https://www.share.kurohicncr.top/Article/details/94313555.shtml)
+- 2026-06-29 11:46 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.kurohicncr.top/Article/details/36920045.shtml)
+- 2026-06-29 11:34 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/496204.shtml)
+- 2026-06-29 11:27 - [王佳佳江疏影13年前后同框对比](https://www.share.minike.top/Article/details/967636932.shtml)
+- 2026-06-29 11:25 - [Gucci全球首席营销官发肖战](https://www.share.kurohicncr.top/Article/details/5146817.shtml)
+- 2026-06-29 11:39 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.blog.kurohicncr.top/Article/details/338556019985.shtml)
+- 2026-06-29 11:45 - [派出所集体KTV招陪侍事发2年未通报](https://www.share.minike.top/Article/details/24112.shtml)
+- 2026-06-29 11:37 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/46245353.shtml)
+- 2026-06-29 11:46 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/352838.shtml)
+- 2026-06-29 11:31 - [起风了](https://www.share.minike.top/Article/details/04484504.shtml)

@@ -1,54 +1,57 @@
-# 土耳其一中学发生枪击事件致16人受伤 枪手自杀身亡
+# 在蓉港澳台侨大学生走进宝墩遗址公园 探寻古蜀农耕文明底蕴
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-中新社北京4月14日电 安卡拉消息：土耳其东南部尚勒乌尔法省一所中学当地时间14日发生枪击事件，已造成16人受伤，枪手自杀身亡。 综合土耳其阿纳多卢通讯社、路透社、美联社等媒体报道，尚勒乌尔法省省长哈桑·什尔达克14日通报称，当天，一名枪手持霰弹枪进入该省锡韦雷克地区一所职业中学，对学生和教职员工开枪。此后，枪手被警方围困在校园内，并自杀身亡。 什尔达克表示，此次事件造成包括1
+中新网成都6月6日电 (单鹏)以“溯农耕文明·探振兴之路”为主题的2026春季在蓉港澳台侨大学生城市互动体验营主题活动6日在成都宝墩国家考古遗址公园举行。 此次活动由成都市政协港澳台侨外事委、成都市委统战部、共青团成都市委及在蓉多所高校港澳台办联合主办。来自四川大学、电子科技大学、西南交通大学、西南财经大学、成都中医药大学、四川师范大学、成都大学等高校的近百名港澳台侨大学生参与
 
 ## 正文
 
-中新社北京4月14日电 安卡拉消息：土耳其东南部尚勒乌尔法省一所中学当地时间14日发生枪击事件，已造成16人受伤，枪手自杀身亡。
+中新网成都6月6日电 (单鹏)以“溯农耕文明·探振兴之路”为主题的2026春季在蓉港澳台侨大学生城市互动体验营主题活动6日在成都宝墩国家考古遗址公园举行。
 
-综合土耳其阿纳多卢通讯社、路透社、美联社等媒体报道，尚勒乌尔法省省长哈桑·什尔达克14日通报称，当天，一名枪手持霰弹枪进入该省锡韦雷克地区一所职业中学，对学生和教职员工开枪。
+此次活动由成都市政协港澳台侨外事委、成都市委统战部、共青团成都市委及在蓉多所高校港澳台办联合主办。
 
-此后，枪手被警方围困在校园内，并自杀身亡。
+来自四川大学、电子科技大学、西南交通大学、西南财经大学、成都中医药大学、四川师范大学、成都大学等高校的近百名港澳台侨大学生参与活动，通过遗址探源、田间实践、趣味团建等形式，沉浸式探寻古蜀农耕文明底蕴，感受成都当代乡村振兴的蓬勃生机。
 
-什尔达克表示，此次事件造成包括10名学生在内的16人受伤。
+宝墩古城遗址距今约4500年至3900年，是长江上游地区目前发现年代最早、规模最大的史前古城遗址。
 
-据他透露，枪手2007年出生，曾在事发中学就读，暂时无法确定其犯罪动机。
+本次体验营以宝墩千年文明为底色，深度融合古蜀古城营建智慧、传统稻作文化与新时代青年实践形式，打造出集文化溯源、团队协作、实践研学、休闲赋能于一体的高品质青年活动。
 
-土耳其内政部14日称，已启动针对这起事件的全面调查。
+当日上午，学子们走进宝墩国家考古遗址公园，踏上“观宝识蜀”文明溯源之旅。
 
-(完)
+跟随博物馆导师的脚步，众人循着“一源(宝墩文明)、一域(成都平原)、一脉(中华文脉)”的讲解主线参观展区，聆听4500年前宝墩先民筑城聚居、稼穑制陶的岁月故事。
+
+“相较于工艺精湛的三星堆青铜文明，宝墩农耕文明让我十分好奇，远古先民没有高科技设备、没有机械助力，却能不断摸索方法、提升农耕生产力，孕育出灿烂的稻作文明，这份先民智慧令人震撼。
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [四川荣县回应“男子献血十年要求免诊查费遭拒”：医院已当面致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:34 - [印尼的塑料袋与万里之外的战火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:34 - [花旗集团披露第四季度私募信贷敞口220亿美元 对BDC投入比例很低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:38 - [Anthropic据悉收到多家风投公司的投资提议，估值达8000亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:32 - [井泉大使会见菲律宾司法部长弗雷德里克·维达](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:21 - [苏富比向卖家提供7%利息以延后支付拍卖款项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:33 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:39 - [今年以来多个细分赛道ETF实现大幅净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:26 - [浙江杭州：智能游艇畅游富春江](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:35 - [中国清洁技术优势扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:38 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:25 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:30 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:24 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:45 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:50 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:43 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:42 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:31 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:38 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:23 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [大众汽车集团交付量下滑，受中美市场疲软拖累](http://www.blog.kurohicncr.top/Article/details/2236597.shtml)
-- 2026-06-29 11:33 - [海泰发展财务造假被罚，投资者索赔条件更新](http://www.share.minike.top/Article/details/1300185.shtml)
-- 2026-06-29 11:45 - [平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书](http://www.blog.minike.top/Article/details/47921687925.shtml)
-- 2026-06-29 11:28 - [戴尔和惠普股价大涨 据报英伟达正在洽购一家大企业](http://www.blog.minike.top/Article/details/93221002505.shtml)
-- 2026-06-29 11:22 - [辽宁营商环境的“民生温度”与“投资信心”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [网易云音乐于4月14日斥资1499.7万港元回购12.32万股](http://www.share.minike.top/Article/details/029349653998.shtml)
-- 2026-06-29 11:21 - [荷兰首相将与特朗普讨论阿斯麦出口限制](http://www.share.minike.top/Article/details/973427.shtml)
-- 2026-06-29 11:22 - [特朗普重申伊朗不能拥有核武器](http://www.blog.minike.top/Article/details/14780437.shtml)
-- 2026-06-29 11:29 - [科技赋能防控秸秆焚烧 黑龙江“守田行动”筑牢春耕防线](http://www.blog.kurohicncr.top/Article/details/4587019.shtml)
-- 2026-06-29 11:40 - [谷歌最新Gemini升级预示更大规模的机器人布局](http://www.share.kurohicncr.top/Article/details/91487.shtml)
-- 2026-06-29 11:29 - [上交所就龙元建设相关事项下发监管工作函](http://www.blog.minike.top/Article/details/035094.shtml)
-- 2026-06-29 11:28 - [王毅同巴基斯坦副总理兼外长达尔通电话](http://www.blog.kurohicncr.top/Article/details/898101380.shtml)
-- 2026-06-29 11:41 - [五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联](http://www.share.minike.top/Article/details/64666520.shtml)
-- 2026-06-29 11:31 - [两面针：公司目前已布局并推出电动牙刷产品](http://www.blog.minike.top/Article/details/829372811974.shtml)
-- 2026-06-29 11:41 - [新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”](http://www.share.kurohicncr.top/Article/details/8339977486.shtml)
+- 2026-06-29 11:51 - [复盘葡萄牙逼平哥伦比亚](http://www.blog.kurohicncr.top/Article/details/58642097772.shtml)
+- 2026-06-29 11:43 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/311999800497.shtml)
+- 2026-06-29 11:24 - [全球首发核电站彩蛋攻略](http://www.blog.kurohicncr.top/Article/details/15626643.shtml)
+- 2026-06-29 11:25 - [《贺子珍》](http://www.blog.minike.top/Article/details/23025378047.shtml)
+- 2026-06-29 11:22 - [高考结束了，你会让孩子在家玩手机吗？](http://www.blog.kurohicncr.top/Article/details/999617824160.shtml)
+- 2026-06-29 11:50 - [某高校学生被辅导员等人扭送至公安](https://www.share.kurohicncr.top/Article/details/37803092367.shtml)
+- 2026-06-29 11:29 - [老虎瘦成纸片还吃草 园方回应](http://www.share.minike.top/Article/details/329200034394.shtml)
+- 2026-06-29 11:25 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/50670766563.shtml)
+- 2026-06-29 11:30 - [这位猫咪，请你自重！](http://www.blog.minike.top/Article/details/869158792997.shtml)
+- 2026-06-29 11:40 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.kurohicncr.top/Article/details/78839.shtml)
+- 2026-06-29 11:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/61825453589.shtml)
+- 2026-06-29 11:23 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://www.share.kurohicncr.top/Article/details/153849261285.shtml)
+- 2026-06-29 11:26 - [河南一考生高考703分](http://www.blog.minike.top/Article/details/943480675.shtml)
+- 2026-06-29 11:49 - [我们注定是一撮县城葱姜蒜](http://www.blog.kurohicncr.top/Article/details/84660809751.shtml)
+- 2026-06-29 11:30 - [张一山说杨紫早该拿奖了](https://www.blog.minike.top/Article/details/275682.shtml)

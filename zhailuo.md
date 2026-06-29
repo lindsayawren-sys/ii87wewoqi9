@@ -1,58 +1,57 @@
-# 纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元
+# 吴清：坚决遏制概念炒作、复杂嵌套、过度投机、通道空转等伪创新、乱创新
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-纽约联邦储备银行周一表示，与2024年相比，美联储去年其庞大债券持仓的未实现亏损有所减少。 2025年持仓的账面亏损为8442亿美元，此前2024年的未实现亏损为1.06万亿美元。这一未实现亏损的数据是在公布央行系统公开市场账户（SOMA）年度报告时对外披露的。 SOMA是美联储持有现金、债券及其他资产的巨大资产组合。 美联储债券持仓的未实现亏损主要是会计层面的现象。在美联储及
+6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。 吴清强调，持续增强行业高质量发展内生动力。随着人工智能等前沿技术蓬勃发展，基金行业经营模式和发展生态正在发生深刻变革。行业机构要持续提升产品、服务、业务、组织等方面创新的广度和深度，更加全面、更加有效对接市场需求。要加强科技赋能，稳妥有序探索运用人工智能、大数据等新技术，有效赋能投资投研
 
 ## 正文
 
-纽约联邦储备银行周一表示，与2024年相比，美联储去年其庞大债券持仓的未实现亏损有所减少。
+6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。
 
-2025年持仓的账面亏损为8442亿美元，此前2024年的未实现亏损为1.06万亿美元。
+吴清强调，持续增强行业高质量发展内生动力。
 
-这一未实现亏损的数据是在公布央行系统公开市场账户（SOMA）年度报告时对外披露的。
+随着人工智能等前沿技术蓬勃发展，基金行业经营模式和发展生态正在发生深刻变革。
 
-SOMA是美联储持有现金、债券及其他资产的巨大资产组合。
+行业机构要持续提升产品、服务、业务、组织等方面创新的广度和深度，更加全面、更加有效对接市场需求。
 
-美联储债券持仓的未实现亏损主要是会计层面的现象。
+要加强科技赋能，稳妥有序探索运用人工智能、大数据等新技术，有效赋能投资投研、客户服务、内控管理等重点场景，加快数字化、智能化转型。
 
-在美联储及许多其他观察人士看来，这些账面亏损不会对美联储的运作产生影响，因为美联储并无出售其所持美国国债和抵押贷款支持证券的计划。
+吴清表示，要突出错位发展，头部机构要全面提升综合竞争实力，中小机构不要拼规模要拼特色，要立足自身资源禀赋与核心优势，聚焦重点业务领域深耕细作，走出特色化、精品化发展路线。
 
-只要美联储将债券持有至到期，就不会相对于购买价格产生损失。
+要统筹好发展与安全，加强创新全过程风险防控，坚持创新节奏、力度与管理能力相适配，坚决遏制概念炒作、复杂嵌套、过度投机、通道空转等伪创新、乱创新。
 
-在报告中，美联储表示：“SOMA证券组合的市场价值会随着利率水平的变化而波动。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [钦州港海关2026年4月份“关长接待日”公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:45 - [双象股份：拟每10股分红2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:26 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:24 - [搭建高端交流平台 深耕侨乡文脉传承——开平民建以学术交流赋能侨乡文化建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:31 - [强业绩提振，金山软件涨超8%，腾讯混元3.0发布在即，华宝基金港股互联网ETF（513770）涨超1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:27 - [海关总署：今年一季度我国货物进出口同比增长15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:34 - [从三分薄地到致富产业 山西大同黄花全产业链产值达25亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:44 - [视频 | 布林肯:霍尔木兹海峡问题就是特朗普搞出来的，现在纵火犯自己跑去灭火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:46 - [中金：维持腾讯控股“跑赢行业”评级 目标价666港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:26 - [特朗普与昔日盟友梅洛尼翻脸 称她“辜负了美国”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:20 - [不做下一个Temu：小红书Redshop的差异化突围之战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:22 - [中天策略:4月13日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:24 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:23 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:51 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:47 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:35 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:22 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:40 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:46 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:27 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [英国石油称其石油交易业务表现“异常出色”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [人民币兑美元中间价较上日调升64点至6.8593 升值至2023年3月24日以来最高！](http://www.blog.kurohicncr.top/Article/details/1543998285.shtml)
-- 2026-06-29 11:28 - [东盟学子以艺架桥 欢庆广西“三月三”](http://www.blog.kurohicncr.top/Article/details/8761377.shtml)
-- 2026-06-29 11:28 - [贺兰山下的微醺时光：一杯尽揽岁月风华](http://www.blog.kurohicncr.top/Article/details/085975.shtml)
-- 2026-06-29 11:28 - [第十二届“东方财富杯”全国大学生金融挑战赛正式启动 以金融实践赋能青年素养提升](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [近一周“一口价”黄金产品最高下跌17%！机构依旧看好黄金后市](http://www.share.minike.top/Article/details/69916.shtml)
-- 2026-06-29 11:37 - [美国称霍尔木兹封锁首日六船折返](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [浙江温州：园博园意大利馆开馆](http://www.share.kurohicncr.top/Article/details/016477077195.shtml)
-- 2026-06-29 11:34 - [德林控股于4月13日斥资114.9万港元回购100万股](http://www.share.kurohicncr.top/Article/details/0412978.shtml)
-- 2026-06-29 11:44 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](http://www.blog.kurohicncr.top/Article/details/288338998.shtml)
-- 2026-06-29 11:40 - [2月马来西亚天然橡胶产量环比下降24.1%](http://www.blog.kurohicncr.top/Article/details/2333848.shtml)
-- 2026-06-29 11:37 - [青海玉树：三江源头添新绿 全民护绿促发展](http://www.blog.minike.top/Article/details/18861.shtml)
-- 2026-06-29 11:19 - [特朗普发难后 教宗良十四世誓言继续发声批评伊朗战争](http://www.share.minike.top/Article/details/850417113.shtml)
-- 2026-06-29 11:28 - [A股收评：超3700只个股飘红，三大指数集体收涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [通宇通讯中标中国移动吉林公司空调型美化天线采购项目](http://www.blog.minike.top/Article/details/223854591.shtml)
+- 2026-06-29 11:34 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/160568217.shtml)
+- 2026-06-29 11:29 - [AG 钟意](http://www.blog.kurohicncr.top/Article/details/20284879484.shtml)
+- 2026-06-29 11:49 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.kurohicncr.top/Article/details/3322316.shtml)
+- 2026-06-29 11:30 - [1年内值得期待的12大游戏](https://www.share.kurohicncr.top/Article/details/04176926.shtml)
+- 2026-06-29 11:44 - [中国男篮抵达沈阳备战世预赛](https://www.share.kurohicncr.top/Article/details/723232.shtml)
+- 2026-06-29 11:48 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/72383.shtml)
+- 2026-06-29 11:22 - [曾沛慈夺冠后人气](http://www.blog.kurohicncr.top/Article/details/5337508.shtml)
+- 2026-06-29 11:36 - [为什么欧洲人不装空调](http://www.blog.minike.top/Article/details/075615786669.shtml)
+- 2026-06-29 11:44 - [欧洲已有超1300例超额死亡与高温有关](http://www.blog.minike.top/Article/details/9646208.shtml)
+- 2026-06-29 11:34 - [网友偶遇胡军和李乃文](https://www.blog.minike.top/Article/details/28990520.shtml)
+- 2026-06-29 11:42 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.share.kurohicncr.top/Article/details/120311756695.shtml)
+- 2026-06-29 11:35 - [杨紫李现16年情谊藏于行动](http://www.blog.minike.top/Article/details/47192774.shtml)
+- 2026-06-29 11:52 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/34460718485.shtml)
+- 2026-06-29 11:48 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/71720869508.shtml)
+- 2026-06-29 11:51 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/0745472.shtml)

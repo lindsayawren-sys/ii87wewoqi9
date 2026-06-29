@@ -1,57 +1,58 @@
-# 新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”
+# 送别魏宗万：千人千面老戏骨 平凡匠心守初心
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-新华社南京4月13日电 题：“幸福公交”迎亲，婚事“轻装上阵” 新华社记者黄培锋、毛俊 扶手挂上“囍”字挂件，刷卡机旁摆鲜花，车身上定制婚礼信息……没有豪车车队，一辆精心装扮的公交车婚车足以“传递幸福”。车里十来位亲朋好友与两位新人唱着歌做着游戏，一路欢声笑语，喜气洋洋。 说起今年1月份自己与爱人策划的这场“公交车迎亲”，来自江苏省连云港市赣榆区的小伙刘新团话语间依然难掩激动，
+发布时间：2026年06月05日 22:54 来源：中国新闻网 6月1日，沪上著名表演艺术家魏宗万在上海华东医院与世长辞，享年89岁。6月5日下午，魏宗万的亲朋好友、闻讯赶来的影迷们等候在上海龙华殡仪馆，送别这位深耕舞台与荧幕六十余载的“百变配角”。 魏宗万出生于1938年，1963年从上海戏剧学院表演系毕业后，进入上海人民艺术剧院任演员。初入舞台时，他因外形特点，常年跑龙套、
 
 ## 正文
 
-新华社南京4月13日电 题：“幸福公交”迎亲，婚事“轻装上阵” 新华社记者黄培锋、毛俊 扶手挂上“囍”字挂件，刷卡机旁摆鲜花，车身上定制婚礼信息……没有豪车车队，一辆精心装扮的公交车婚车足以“传递幸福”。
+发布时间：2026年06月05日 22:54 来源：中国新闻网 6月1日，沪上著名表演艺术家魏宗万在上海华东医院与世长辞，享年89岁。
 
-车里十来位亲朋好友与两位新人唱着歌做着游戏，一路欢声笑语，喜气洋洋。
+6月5日下午，魏宗万的亲朋好友、闻讯赶来的影迷们等候在上海龙华殡仪馆，送别这位深耕舞台与荧幕六十余载的“百变配角”。
 
-说起今年1月份自己与爱人策划的这场“公交车迎亲”，来自江苏省连云港市赣榆区的小伙刘新团话语间依然难掩激动，“相比于传统的车队，把公交车作为婚车一路上更加热闹，省了一笔开销的同时还简化了迎亲的流程。
+魏宗万出生于1938年，1963年从上海戏剧学院表演系毕业后，进入上海人民艺术剧院任演员。
 
-”据刘新团介绍，当地租借传统的婚车车队一般要花费三四千元，而租一辆公交车作为婚车仅花了600元。
+初入舞台时，他因外形特点，常年跑龙套、演配角，哪怕戏份寥寥，也认真揣摩、用心演绎。
 
-“当时想着给自己的婚礼来点特别的元素，结果和媳妇一拍即合，跟双方父母在这件事上沟通得也特别顺畅，没什么阻碍，整个过程特别愉快。
+凭着对演戏的满腔热情，他硬是从一个个小角色里走了出来。
 
-”刘新团笑着说。
+魏宗万在94版电视剧《三国演义》里演活了乱世枭雄司马懿，以“鹰视狼顾”的神态、克制内敛的表演，精准演绎出人物的隐忍、多疑与深谋，被观众评价为难以复刻的经典；98版电视剧《水浒传》中，他又摇身一变，将奸佞狡诈、趋炎附势的高俅刻画得入木三分。
 
-这场“公交车迎亲”是江苏省连云港市赣榆区近年来婚俗悄然发生变化的一个缩影。
+上海话剧艺术中心总经理张惠庆表示，魏宗万用一生铸就的艺术丰碑将永远矗立在人们心中，愿他在另一个世界依然能听见观众如潮的掌声。
 
-地处苏鲁交界的赣榆素有“江苏北大门”之称。
+记者王笈 徐银 康玉湛上海报道 责任编辑：【胡寒笑】
 
 ## 相关推荐
 
-- 2026-06-29 11:21 - [兴业证券：首予保利置业增持评级 毛利率有望企稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:48 - [远大医药盘中涨超4% 重磅核药SIR-Spheres®钇\[90Y\]微球注射液再度迎来里程碑进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:33 - [华尔街行情向好，摩根大通固定收益与投行业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:22 - [依必安派特亮相2026中国制冷展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:30 - [央行发布2026年一季度金融统计数据报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:47 - [贵州省人大常委会秘书长、办公厅主任潘荣接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:30 - [中方：愿同匈牙利新一届政府加强高层交往](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:26 - [大商所发布《服务实体经济白皮书（2025）》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:36 - [朝中社发文，批评日本自卫队改组“暴露危险野心”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:26 - [商务部、中国进出口银行：加大进出口信贷支持力度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:30 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:25 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:46 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:32 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:43 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:29 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:48 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:49 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:45 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:50 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:34 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:39 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [乌军对克里米亚发动大规模袭击](http://www.share.minike.top/Article/details/6523213.shtml)
-- 2026-06-29 11:28 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](http://www.blog.kurohicncr.top/Article/details/1060804.shtml)
-- 2026-06-29 11:45 - [对冲基金资本正重塑拥有180年历史的保险模式](http://www.share.minike.top/Article/details/783767642.shtml)
-- 2026-06-29 11:35 - [能源价格回落后 交易员下调对欧洲央行加息的押注](http://www.share.kurohicncr.top/Article/details/056304.shtml)
-- 2026-06-29 11:31 - [周黑鸭于4月13日斥资149.61万港元回购94.1万股](http://www.blog.kurohicncr.top/Article/details/0946220235.shtml)
-- 2026-06-29 11:47 - [公用事业公司计划未来五年投入1.4万亿美元，助力人工智能热潮发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [海垦十大招商项目亮相“粤贸全国”广东—海南经贸交流对接会](http://www.share.kurohicncr.top/Article/details/575069.shtml)
-- 2026-06-29 11:27 - [从滞销盘到区域标杆 远洋建管获委托方授予“最佳战友”](http://www.blog.minike.top/Article/details/12783676.shtml)
-- 2026-06-29 11:30 - [特朗普称伊朗致电美方说希望达成协议](http://www.share.minike.top/Article/details/91052551.shtml)
-- 2026-06-29 11:22 - [总台海峡时评丨十项促进两岸交流合作新政将给台胞带来实实在在的和平利好](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [郑州银行12名董高离开，赵飞省了一大笔薪酬](http://www.blog.minike.top/Article/details/395455005210.shtml)
-- 2026-06-29 11:44 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月](http://www.blog.minike.top/Article/details/49781.shtml)
-- 2026-06-29 11:24 - [巴西非遗乐团走进北京丰台奏响友谊乐章](http://www.share.minike.top/Article/details/364401.shtml)
-- 2026-06-29 11:25 - [富国基金27周年：深耕专业 迈向高质量发展新阶段](http://www.share.kurohicncr.top/Article/details/622787193.shtml)
+- 2026-06-29 11:23 - [曝韩国球员目睹出局时正吃饭](http://www.blog.minike.top/Article/details/6313165.shtml)
+- 2026-06-29 11:25 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/33354262355.shtml)
+- 2026-06-29 11:45 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/54315322.shtml)
+- 2026-06-29 11:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/23567.shtml)
+- 2026-06-29 11:45 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.kurohicncr.top/Article/details/929455373757.shtml)
+- 2026-06-29 11:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/37195579.shtml)
+- 2026-06-29 11:48 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/454271.shtml)
+- 2026-06-29 11:45 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](http://www.share.kurohicncr.top/Article/details/6067479.shtml)
+- 2026-06-29 11:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/994940589.shtml)
+- 2026-06-29 11:44 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/9915749.shtml)
+- 2026-06-29 11:48 - [韩国队是怎么把自己“作死”的](https://www.share.minike.top/Article/details/01958567.shtml)
+- 2026-06-29 11:51 - [青春环游记第三季](http://www.blog.minike.top/Article/details/240388971.shtml)
+- 2026-06-29 11:34 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/31123.shtml)
+- 2026-06-29 11:43 - [爱很美味](http://www.blog.minike.top/Article/details/771880.shtml)
+- 2026-06-29 11:36 - [韩国队主帅洪明甫下课](https://www.blog.minike.top/Article/details/59821661299.shtml)

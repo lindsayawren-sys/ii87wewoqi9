@@ -1,60 +1,57 @@
-# 芝加哥期市：CBOT大豆期货收跌，预计美国种植面积将增加
+# 300319，直接合作英伟达，股价创历史新高！
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-芝加哥期货交易所（CBOT）大豆期货周一收低，从四周高位回落，交易商表示，受累于获利了结，以及市场预期美国播种面积将大于预期，令市场承压。 一位交易商表示，美国中西部地区的降雨可能推迟玉米播种，并导致部分农户将种植面积分配给大豆。 该交易商称，随着美国总统特朗普表示美军已开始封锁驶离伊朗港口的船只，市场对玉米种植所需化肥价格飙升的担忧加剧，这可能进一步促使农民将种植面积分配给大
+近一周机构调研个股有320只，汉钟精机获调研机构数最多。 据证券时报·数据宝统计，近一周，汉钟精机获182家机构调研，包括33家基金公司、33家证券公司、15家私募、12家保险公司等。该公司2025年营业收入29.27亿元，同比下降20.35%；归母净利润4.69亿元，同比下降45.66%。公司2026年一季度营业收入6.89亿元，同比上升13.56%；一季度归母净利润1.22
 
 ## 正文
 
-芝加哥期货交易所（CBOT）大豆期货周一收低，从四周高位回落，交易商表示，受累于获利了结，以及市场预期美国播种面积将大于预期，令市场承压。
+近一周机构调研个股有320只，汉钟精机获调研机构数最多。
 
-一位交易商表示，美国中西部地区的降雨可能推迟玉米播种，并导致部分农户将种植面积分配给大豆。
+据证券时报·数据宝统计，近一周，汉钟精机获182家机构调研，包括33家基金公司、33家证券公司、15家私募、12家保险公司等。
 
-该交易商称，随着美国总统特朗普表示美军已开始封锁驶离伊朗港口的船只，市场对玉米种植所需化肥价格飙升的担忧加剧，这可能进一步促使农民将种植面积分配给大豆。
+该公司2025年营业收入29.27亿元，同比下降20.35%；归母净利润4.69亿元，同比下降45.66%。
 
-CBOT-5月大豆合约SK26收跌13-1/2美分，结算价报每蒲式耳11.62-1/4美元，盘中触及11.83-3/4美元的3月16日以来最高。
+公司2026年一季度营业收入6.89亿元，同比上升13.56%；一季度归母净利润1.22亿元，同比上升3.3%。
 
-5月豆油合约BOK26收跌0.59美分，报每磅66.50美分。
+TCL科技、华润微、怡合达、强一股份等个股均有100家以上机构参与调研。
 
-5月豆粕合约SMK26上涨0.1美元，收报每短吨331.90美元，触及11月18日以来最高。
+TCL科技在调研中透露，在半导体显示业务方面，TCL华星竞争力继续保持全球领先，业务营收结构更加均衡，单一业务的季节性影响趋弱。
 
-玉米期货基本持平，交易员关注美国种植天气以及伊朗战争最新紧张局势。
+2025年TCL华星每季度净利润中枢约为20亿元，2026年及长期来看营收利润仍处于增长趋势。
 
-CBOT-5月合约CK26收跌3/4美分，报每蒲式耳4.40-1/4美元。
+光伏业务方面，经过近两年的努力，公司在过去1—2个季度业务相对竞争力提升已初见成效，今年一季度归母净利润同比改善13.6%，环比改善超50%。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:33 - [帝王国际投资：清盘呈请获撤回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:24 - [美媒：若美伊重返谈判桌 万斯将再次率团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:28 - [ATFX汇市前瞻:褐皮书与PPI数据来袭 G20与原油月报本周发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:31 - [乌军对克里米亚发动大规模袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:33 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:19 - [对冲基金资本正重塑拥有180年历史的保险模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:25 - [能源价格回落后 交易员下调对欧洲央行加息的押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:20 - [周黑鸭于4月13日斥资149.61万港元回购94.1万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:46 - [公用事业公司计划未来五年投入1.4万亿美元，助力人工智能热潮发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:48 - [海垦十大招商项目亮相“粤贸全国”广东—海南经贸交流对接会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:42 - [从滞销盘到区域标杆 远洋建管获委托方授予“最佳战友”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:41 - [特朗普称伊朗致电美方说希望达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:32 - [总台海峡时评丨十项促进两岸交流合作新政将给台胞带来实实在在的和平利好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:51 - [T1 3-0 TLAW数据雷达图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:36 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:26 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:46 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:45 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:49 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:24 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:51 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:43 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:39 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:47 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](http://www.blog.kurohicncr.top/Article/details/03306.shtml)
-- 2026-06-29 11:49 - [收评：国内期货主力合约涨跌互现 PX涨超4%](http://www.share.minike.top/Article/details/57259561006.shtml)
-- 2026-06-29 11:37 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](http://www.blog.kurohicncr.top/Article/details/822320455755.shtml)
-- 2026-06-29 11:42 - [马斯克的SpaceX新数据：星链成绝对核心](http://www.share.minike.top/Article/details/14800133159.shtml)
-- 2026-06-29 11:28 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](http://www.share.kurohicncr.top/Article/details/59642.shtml)
-- 2026-06-29 11:41 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](http://www.share.kurohicncr.top/Article/details/147102.shtml)
-- 2026-06-29 11:30 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [钦州港海关2026年4月份“关长接待日”公告](http://www.share.kurohicncr.top/Article/details/65067.shtml)
-- 2026-06-29 11:27 - [双象股份：拟每10股分红2元](http://www.blog.kurohicncr.top/Article/details/527317386312.shtml)
-- 2026-06-29 11:46 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](http://www.share.kurohicncr.top/Article/details/972295.shtml)
-- 2026-06-29 11:45 - [搭建高端交流平台 深耕侨乡文脉传承——开平民建以学术交流赋能侨乡文化建设](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [强业绩提振，金山软件涨超8%，腾讯混元3.0发布在即，华宝基金港股互联网ETF（513770）涨超1%](http://www.blog.minike.top/Article/details/688226116436.shtml)
-- 2026-06-29 11:40 - [海关总署：今年一季度我国货物进出口同比增长15%](http://www.blog.kurohicncr.top/Article/details/16690748.shtml)
-- 2026-06-29 11:38 - [从三分薄地到致富产业 山西大同黄花全产业链产值达25亿元](http://www.share.kurohicncr.top/Article/details/767592343.shtml)
-- 2026-06-29 11:37 - [视频 | 布林肯:霍尔木兹海峡问题就是特朗普搞出来的，现在纵火犯自己跑去灭火](http://www.blog.kurohicncr.top/Article/details/899691101.shtml)
+- 2026-06-29 11:22 - [实习期把公司领导开除了](https://www.blog.minike.top/Article/details/9224189510.shtml)
+- 2026-06-29 11:40 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/65153.shtml)
+- 2026-06-29 11:25 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/0494317641.shtml)
+- 2026-06-29 11:24 - [热穹顶来了](http://www.blog.kurohicncr.top/Article/details/186117561.shtml)
+- 2026-06-29 11:39 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/765233992262.shtml)
+- 2026-06-29 11:26 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.kurohicncr.top/Article/details/89232.shtml)
+- 2026-06-29 11:25 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/033491616952.shtml)
+- 2026-06-29 11:27 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/75239229.shtml)
+- 2026-06-29 11:27 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/971234045.shtml)
+- 2026-06-29 11:41 - [实习期把公司领导开除了](http://www.share.minike.top/Article/details/59214715589.shtml)
+- 2026-06-29 11:46 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/798261.shtml)
+- 2026-06-29 11:23 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/740481.shtml)
+- 2026-06-29 11:41 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/79769728.shtml)
+- 2026-06-29 11:50 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/966177529695.shtml)
+- 2026-06-29 11:28 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/049597752.shtml)

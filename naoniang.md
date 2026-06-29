@@ -1,60 +1,57 @@
-# A股指数收红！锂矿板块午后放量拉升！
+# “AI中转站”风险不容小觑 国家安全部发布提示
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今日，A股小幅震荡走高，创业板指继续创近四年半新高，上证指数、深证成指、科创综指等均微幅飘红。下跌个股多于上涨个股，成交小幅萎缩至2.16万亿元。 盘面上，玻璃玻纤、国防军工、新能源、养殖业等板块涨幅居前，游戏、医药生物、航运港口、贵金属等板块跌幅居前。 Wind实时监测数据显示，电子行业获得逾84亿元主力
+“AI中转站”，风险要防范 一段时间以来，随着人工智能应用需求的迅猛增长，批量提供海内外大模型访问服务的“AI中转站”在国内迅速走红。然而，当前“AI中转”市场鱼龙混杂，部分“AI中转站”运营资质缺失、安全防护薄弱，用户隐私泄露与数据倒卖问题时有发生，数据安全风险不容忽视。 什么是“AI中转站”？ “AI中转站”是介于用户和AI模型厂商官方服务之间的代理层。它把各家AI模型厂商
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+“AI中转站”，风险要防范 一段时间以来，随着人工智能应用需求的迅猛增长，批量提供海内外大模型访问服务的“AI中转站”在国内迅速走红。
 
-今日，A股小幅震荡走高，创业板指继续创近四年半新高，上证指数、深证成指、科创综指等均微幅飘红。
+然而，当前“AI中转”市场鱼龙混杂，部分“AI中转站”运营资质缺失、安全防护薄弱，用户隐私泄露与数据倒卖问题时有发生，数据安全风险不容忽视。
 
-下跌个股多于上涨个股，成交小幅萎缩至2.16万亿元。
+什么是“AI中转站”？
 
-盘面上，玻璃玻纤、国防军工、新能源、养殖业等板块涨幅居前，游戏、医药生物、航运港口、贵金属等板块跌幅居前。
+“AI中转站”是介于用户和AI模型厂商官方服务之间的代理层。
 
-Wind实时监测数据显示，电子行业获得逾84亿元主力资金净流入，计算机获得逾80亿元净流入，电力设备获得逾61亿元净流入，机械设备获得逾56亿元净流入，建筑材料、国防军工、汽车、公用事业等均获得超30亿元净流入。
+它把各家AI模型厂商的应用程序编程接口(API)统一整合到一个平台，再提供给用户。
 
-传媒、医药生物都遭主力资金净流出逾20亿元，交通运输净流出逾14亿元。
+形象地讲，“AI中转站”就是用户和大模型之间的“中介”，可以帮助用户更便捷地调用多个AI大模型，一站式满足用户多样化使用需求。
 
-个股方面，兴森科技获得逾21亿元主力资金净流入，胜宏科技、中国巨石、天华新能、浪潮信息等10股也获得超10亿元净流入。
+——无需切换模型。
 
-市场热点方面，新能源产业继续保持活跃，今日锂电方向领涨，锂矿板块指数午后一度放量拉升创历史新高。
+用户只需接入中转站一个入口，即可调用国内外主流大模型，无需来回切换。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [远大医药盘中涨超4% 重磅核药SIR-Spheres®钇\[90Y\]微球注射液再度迎来里程碑进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:38 - [华尔街行情向好，摩根大通固定收益与投行业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:34 - [依必安派特亮相2026中国制冷展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:41 - [央行发布2026年一季度金融统计数据报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:36 - [贵州省人大常委会秘书长、办公厅主任潘荣接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:28 - [中方：愿同匈牙利新一届政府加强高层交往](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:35 - [大商所发布《服务实体经济白皮书（2025）》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:42 - [朝中社发文，批评日本自卫队改组“暴露危险野心”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:26 - [商务部、中国进出口银行：加大进出口信贷支持力度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:46 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:22 - [【惠誉评论】上市的中国资产管理公司尽管盈利承压，但业务活动持续增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:26 - [开局之年看中国·开放自贸港：文旅融合呈现产业新活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:20 - [“乔、灌、药”立体种植 新疆和田探索出治沙增收新模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:34 - [油价飙升之际 日本央行据悉考虑大幅上调通胀预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:48 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:50 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:25 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:39 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:44 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:39 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:36 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:25 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:35 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:43 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:42 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](http://www.blog.minike.top/Article/details/9341882471.shtml)
-- 2026-06-29 11:29 - [对冲基金资本正重塑拥有180年历史的保险模式](http://www.share.minike.top/Article/details/3747005085.shtml)
-- 2026-06-29 11:26 - [能源价格回落后 交易员下调对欧洲央行加息的押注](http://www.share.minike.top/Article/details/387274.shtml)
-- 2026-06-29 11:47 - [周黑鸭于4月13日斥资149.61万港元回购94.1万股](http://www.blog.minike.top/Article/details/7358349.shtml)
-- 2026-06-29 11:28 - [公用事业公司计划未来五年投入1.4万亿美元，助力人工智能热潮发展](http://www.blog.kurohicncr.top/Article/details/01090779.shtml)
-- 2026-06-29 11:24 - [海垦十大招商项目亮相“粤贸全国”广东—海南经贸交流对接会](http://www.share.kurohicncr.top/Article/details/395156040.shtml)
-- 2026-06-29 11:41 - [从滞销盘到区域标杆 远洋建管获委托方授予“最佳战友”](http://www.share.kurohicncr.top/Article/details/523967164.shtml)
-- 2026-06-29 11:46 - [特朗普称伊朗致电美方说希望达成协议](http://www.blog.minike.top/Article/details/739822168.shtml)
-- 2026-06-29 11:47 - [总台海峡时评丨十项促进两岸交流合作新政将给台胞带来实实在在的和平利好](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [郑州银行12名董高离开，赵飞省了一大笔薪酬](http://www.share.kurohicncr.top/Article/details/119827.shtml)
-- 2026-06-29 11:44 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](http://www.share.minike.top/Article/details/52027126.shtml)
-- 2026-06-29 11:42 - [中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月](http://www.blog.kurohicncr.top/Article/details/41828045.shtml)
-- 2026-06-29 11:39 - [巴西非遗乐团走进北京丰台奏响友谊乐章](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [富国基金27周年：深耕专业 迈向高质量发展新阶段](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [优彩资源人事调整：戴泽新之女戴梦茜卸任董秘，投行出身赖嫣珩接棒 | 长三角资本局](http://www.blog.kurohicncr.top/Article/details/4554598.shtml)
+- 2026-06-29 11:30 - [马杜罗社交媒体账号再发文](http://www.blog.kurohicncr.top/Article/details/011068585.shtml)
+- 2026-06-29 11:37 - [韩国主教练连夜下课](https://www.blog.kurohicncr.top/Article/details/882801.shtml)
+- 2026-06-29 11:38 - [高考志愿今起开始填报](http://www.blog.minike.top/Article/details/522052556986.shtml)
+- 2026-06-29 11:49 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/51801.shtml)
+- 2026-06-29 11:50 - [户外吃烧烤多人头发变炸毛](http://www.share.kurohicncr.top/Article/details/9644920.shtml)
+- 2026-06-29 11:25 - [伊朗队球员哭诉：这届世界杯是场灾难](http://www.blog.kurohicncr.top/Article/details/47280023763.shtml)
+- 2026-06-29 11:32 - [李维嘉回应“人老了做什么都心酸”](https://www.share.kurohicncr.top/Article/details/640124150.shtml)
+- 2026-06-29 11:47 - [为何加快“扩编”成欧盟战略要务](http://www.share.kurohicncr.top/Article/details/9433489916.shtml)
+- 2026-06-29 11:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/17641589.shtml)
+- 2026-06-29 11:29 - [《给阿嬷的情书》里的情义与守望](http://www.blog.kurohicncr.top/Article/details/00755406769.shtml)
+- 2026-06-29 11:30 - [房屋抵押权与租赁权如何协调](http://www.share.minike.top/Article/details/978277626.shtml)
+- 2026-06-29 11:51 - [F1奥地利大奖赛正赛集锦](https://www.share.kurohicncr.top/Article/details/779275920.shtml)
+- 2026-06-29 11:35 - [拄拐少年高考663分：用行动回报社会](http://www.blog.kurohicncr.top/Article/details/9222925839.shtml)
+- 2026-06-29 11:31 - [热穹顶来了](https://www.share.minike.top/Article/details/84405439.shtml)
+- 2026-06-29 11:45 - [普京称考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/3129880.shtml)

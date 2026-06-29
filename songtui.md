@@ -1,54 +1,57 @@
-# 乐氏国际控股附属拟1万元收购杭州一行物流有限公司100%股权
+# 跨境理财通南向通向数字银行扩容，纳指100基金现身银行渠道，市场期待3.0扩容
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-乐氏国际控股（01529）发布公告，于2026年4月13日，公司一间间接全资附属公司杭州耀世浙通电子商务有限公司（作为买方）与独立第三方郑健强先生（作为卖方）订立股权转让协议，据此，买方同意收购而卖方同意出售杭州一行物流有限公司（目标公司）的100%股权，代价为人民币1万元。 目标公司主要从事国际货运代理服务及若干国内运输代理服务，专注于航空货运及邮政包裹业务。 目标公司与航空
+财联社6月5日讯（记者 郭子硕） 跨境理财通再迎新成员。6月5日，众安银行作为兴业银行的合作行正式上线“跨境理财通南向通”服务，也是香港首家落地南向通业务的数字银行。此前，兴业银行App已灰度测试，但“风声”早已在投资者之间传开。 此番动作受到市场关注，原因在于两点：一是跨境理财通南向通首次向数字银行扩容；二是此前在南向通内基本仅通过券商渠道销售的热门纳指100基金，拓展到了银
 
 ## 正文
 
-乐氏国际控股（01529）发布公告，于2026年4月13日，公司一间间接全资附属公司杭州耀世浙通电子商务有限公司（作为买方）与独立第三方郑健强先生（作为卖方）订立股权转让协议，据此，买方同意收购而卖方同意出售杭州一行物流有限公司（目标公司）的100%股权，代价为人民币1万元。
+财联社6月5日讯（记者 郭子硕） 跨境理财通再迎新成员。
 
-目标公司主要从事国际货运代理服务及若干国内运输代理服务，专注于航空货运及邮政包裹业务。
+6月5日，众安银行作为兴业银行的合作行正式上线“跨境理财通南向通”服务，也是香港首家落地南向通业务的数字银行。
 
-目标公司与航空货运、跨境物流及电商物流领域的客户已建立业务关系。
+此前，兴业银行App已灰度测试，但“风声”早已在投资者之间传开。
 
-董事相信，收购事项将使集团能够利用目标公司的客户基础、营运经验及业务资历，从而促进集团进入相关供应链，推动集团物流业务的优质发展。
+此番动作受到市场关注，原因在于两点：一是跨境理财通南向通首次向数字银行扩容；二是此前在南向通内基本仅通过券商渠道销售的热门纳指100基金，拓展到了银行端产品列表中。
 
-收购事项亦让集团以名义代价取得目标公司。
+南向通产品供给分化仍大，3.0扩容尚无时间表 财联社记者注意到，虽然众安银行率先将纳指100基金引入银行端，但从整体来看，南向通产品渠道的分化依然突出。
 
-经计及目标公司的经审核账面值为负数以及该协议项下的负债分配及弥偿安排，董事认为集团的下行风险处于可控水平。
+目前为止，纳指100基金仍主要出现在券商渠道中，多数银行仍无法提供。
 
-责任编辑：卢昱君
+为何出现这样的分化？
+
+有基金公司负责人向财联社记者分析，因为首批试点即为券商，场内产品初始仅在券商渠道销售。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [Anthropic据悉收到多家风投公司的投资提议，估值达8000亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:41 - [井泉大使会见菲律宾司法部长弗雷德里克·维达](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:37 - [苏富比向卖家提供7%利息以延后支付拍卖款项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:23 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:27 - [今年以来多个细分赛道ETF实现大幅净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:46 - [浙江杭州：智能游艇畅游富春江](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:19 - [中国清洁技术优势扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:24 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:38 - [中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:38 - [郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:22 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:48 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:35 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:51 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:37 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:40 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:32 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:31 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:29 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:42 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:35 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [戴尔和惠普股价大涨 据报英伟达正在洽购一家大企业](http://www.blog.kurohicncr.top/Article/details/962739217.shtml)
-- 2026-06-29 11:19 - [辽宁营商环境的“民生温度”与“投资信心”](http://www.blog.minike.top/Article/details/3708189051.shtml)
-- 2026-06-29 11:29 - [网易云音乐于4月14日斥资1499.7万港元回购12.32万股](http://www.blog.kurohicncr.top/Article/details/77731405965.shtml)
-- 2026-06-29 11:21 - [荷兰首相将与特朗普讨论阿斯麦出口限制](http://www.blog.kurohicncr.top/Article/details/309765.shtml)
-- 2026-06-29 11:25 - [特朗普重申伊朗不能拥有核武器](http://www.share.minike.top/Article/details/493262.shtml)
-- 2026-06-29 11:20 - [科技赋能防控秸秆焚烧 黑龙江“守田行动”筑牢春耕防线](http://www.share.kurohicncr.top/Article/details/594695994733.shtml)
-- 2026-06-29 11:44 - [谷歌最新Gemini升级预示更大规模的机器人布局](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [上交所就龙元建设相关事项下发监管工作函](http://www.blog.kurohicncr.top/Article/details/058723549322.shtml)
-- 2026-06-29 11:26 - [王毅同巴基斯坦副总理兼外长达尔通电话](http://www.share.kurohicncr.top/Article/details/01552385.shtml)
-- 2026-06-29 11:35 - [五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联](http://www.blog.kurohicncr.top/Article/details/97416615.shtml)
-- 2026-06-29 11:44 - [两面针：公司目前已布局并推出电动牙刷产品](http://www.blog.kurohicncr.top/Article/details/907005741368.shtml)
-- 2026-06-29 11:36 - [新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [A股指数收红！锂矿板块午后放量拉升！](http://www.share.minike.top/Article/details/795360.shtml)
-- 2026-06-29 11:29 - [日本邮船采用3D技术设计建造新一代CTV](http://www.share.minike.top/Article/details/931071735452.shtml)
-- 2026-06-29 11:33 - [400辆网约车百余次故障？电动汽车质量纠纷该找谁](http://www.share.kurohicncr.top/Article/details/272572000.shtml)
+- 2026-06-29 11:24 - [晋城暴雨车辆被淹冰箱在水中漂](http://www.blog.minike.top/Article/details/83925.shtml)
+- 2026-06-29 11:29 - [恋与深空底线不该被娱乐化](http://www.blog.minike.top/Article/details/49145620643.shtml)
+- 2026-06-29 11:36 - [三只羊线下课已下架](https://www.blog.kurohicncr.top/Article/details/94532268860.shtml)
+- 2026-06-29 11:48 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/72079746.shtml)
+- 2026-06-29 11:27 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/02496.shtml)
+- 2026-06-29 11:50 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/276316534.shtml)
+- 2026-06-29 11:35 - [乔家的儿女](https://www.share.minike.top/Article/details/099304195105.shtml)
+- 2026-06-29 11:44 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/7672549.shtml)
+- 2026-06-29 11:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/77210.shtml)
+- 2026-06-29 11:23 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.kurohicncr.top/Article/details/937561248.shtml)
+- 2026-06-29 11:23 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.share.kurohicncr.top/Article/details/028066545122.shtml)
+- 2026-06-29 11:26 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://www.share.kurohicncr.top/Article/details/374939535637.shtml)
+- 2026-06-29 11:47 - [委内瑞拉地震已致1450死3150伤](https://www.blog.kurohicncr.top/Article/details/198383067623.shtml)
+- 2026-06-29 11:41 - [《昨夜将至》为何是悬疑黑马](https://www.share.kurohicncr.top/Article/details/916369.shtml)
+- 2026-06-29 11:28 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.kurohicncr.top/Article/details/717518407.shtml)

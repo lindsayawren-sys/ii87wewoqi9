@@ -1,56 +1,53 @@
-# 长安期货：美伊和谈暂无成果 关注CPI数据
+# 中新健康｜养鹦鹉留心！警惕感染角结膜炎
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-周末美伊的谈判刚刚落下帷幕。上周市场经历了从停火预期转向谈判预期的阶段。我们认为市场对周末的美伊和谈有一定的积极预期，但当前美伊和谈已经破裂，原油短期并没有太大的偏弱调整的空间。 与此相对的是，当前美国CPI数据持续偏高，其他国家的输入型通胀压力也较强，加息预期如同达摩利斯之剑，使得多头交易者在此时无法顺畅地增加仓位。4月更是美国炼油厂检修的大月，我们认为迫于CPI的压力，贵金
+发布时间：2026年06月06日 22:42 来源：中国新闻网 微孢子虫所致角结膜炎常有眼红、眼内异物感、少量分泌物与视物模糊，接触鹦鹉有被传染几率。患病需与鹦鹉隔离，使用针对性杀虫眼药，必要时搭配抗炎药。专家建议养鹦鹉人士清理鸟笼要戴好口罩、护目镜，勤洗手不揉眼，做好宠物清洁，眼部不适尽早就医。(张静) 责任编辑：【岳川】
 
 ## 正文
 
-周末美伊的谈判刚刚落下帷幕。
+发布时间：2026年06月06日 22:42 来源：中国新闻网 微孢子虫所致角结膜炎常有眼红、眼内异物感、少量分泌物与视物模糊，接触鹦鹉有被传染几率。
 
-上周市场经历了从停火预期转向谈判预期的阶段。
+患病需与鹦鹉隔离，使用针对性杀虫眼药，必要时搭配抗炎药。
 
-我们认为市场对周末的美伊和谈有一定的积极预期，但当前美伊和谈已经破裂，原油短期并没有太大的偏弱调整的空间。
+专家建议养鹦鹉人士清理鸟笼要戴好口罩、护目镜，勤洗手不揉眼，做好宠物清洁，眼部不适尽早就医。
 
-与此相对的是，当前美国CPI数据持续偏高，其他国家的输入型通胀压力也较强，加息预期如同达摩利斯之剑，使得多头交易者在此时无法顺畅地增加仓位。
-
-4月更是美国炼油厂检修的大月，我们认为迫于CPI的压力，贵金属的多头交易已经几近熄火，但“抗通胀交易”以及“弱美元交易”的存在使得黄金的价格底部仍有支撑。
-
-由于当前日本央行的加息已经被市场认为是板上钉钉，3月美国CPI数据对市场的影响较小。
-
-当前我们认为空头的力度取决于未来CPI的数据走向，但长周期来看，“弱美元交易”或是市场不变的逻辑，我们认为在震荡周期后贵金属可能迎来最后一波主升浪，但震荡周期可能时间较长，建议交易者以谨慎看多为主。
-
-仅供参考。
+(张静) 责任编辑：【岳川】
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [香港交易所推出两只科技指数 易方达香港获授权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:23 - [天风策略：特朗普TACO了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:33 - [3月黑猫投诉企业红黑榜：Agoda擅自取消订单且阻挠用户申诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:41 - [【新思想引领新征程】服务业扩能提质 锻造经济增长新引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:40 - [冰川消退预警峰值水量 奥地利能源转型提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:42 - [参议员Scott：沃什的美联储主席提名确认听证会将于下周举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:22 - [中国太保：总经理助理刘龙的任职资格获核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:33 - [大众汽车集团交付量下滑，受中美市场疲软拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:30 - [海泰发展财务造假被罚，投资者索赔条件更新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:28 - [平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:30 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:35 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:35 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:49 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:46 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:36 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:38 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:27 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:34 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:51 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:45 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:33 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:31 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:36 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:49 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [【惠誉评论】上市的中国资产管理公司尽管盈利承压，但业务活动持续增长](http://www.blog.kurohicncr.top/Article/details/56232292461.shtml)
-- 2026-06-29 11:35 - [开局之年看中国·开放自贸港：文旅融合呈现产业新活力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [“乔、灌、药”立体种植 新疆和田探索出治沙增收新模式](http://www.blog.kurohicncr.top/Article/details/3002819051.shtml)
-- 2026-06-29 11:22 - [油价飙升之际 日本央行据悉考虑大幅上调通胀预期](http://www.blog.minike.top/Article/details/59370.shtml)
-- 2026-06-29 11:41 - [甘肃环县九村联建一个厂 带富千户种粮人](http://www.blog.minike.top/Article/details/1228075.shtml)
-- 2026-06-29 11:37 - [Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势](http://www.share.minike.top/Article/details/12747.shtml)
-- 2026-06-29 11:24 - [OpenAI是否正脱离微软的掌控？与亚马逊的新联盟让利害关系进一步升级](http://www.share.minike.top/Article/details/09503153070.shtml)
-- 2026-06-29 11:36 - [李强同阿联酋阿布扎比王储哈立德会谈](http://www.share.kurohicncr.top/Article/details/24735034.shtml)
-- 2026-06-29 11:36 - [欧洲债市：各期限收益率全线下行 市场下调对欧英央行的加息押注](http://www.blog.minike.top/Article/details/807228731.shtml)
-- 2026-06-29 11:42 - [五一视界早盘涨逾6% 日前获创始人增持765万股](http://www.share.minike.top/Article/details/5854229310.shtml)
-- 2026-06-29 11:39 - [中国正计划向伊朗提供武器？外交部：反对无根据的抹黑或恶意关联](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [快讯：WTI原油日内大跌4.00%，现报88.37美元/桶](http://www.share.minike.top/Article/details/6116252.shtml)
-- 2026-06-29 11:36 - [向上转机就在四月，华宝基金创业板人工智能连创新高！最大港股通信息技术ETF（159131）涨超2%又跑赢！](http://www.share.kurohicncr.top/Article/details/154204048880.shtml)
-- 2026-06-29 11:44 - [外交部谈美伊在巴基斯坦谈判：是朝有利于局势缓和方向迈出的一步](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [美国财长贝森特：伊朗冲突期间美联储按兵不动是正确做法](http://www.share.kurohicncr.top/Article/details/058671237.shtml)
+- 2026-06-29 11:51 - [恋与深空女玩家不该被冒犯](https://www.blog.kurohicncr.top/Article/details/69994583842.shtml)
+- 2026-06-29 11:27 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/408074868105.shtml)
+- 2026-06-29 11:41 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.kurohicncr.top/Article/details/6521469.shtml)
+- 2026-06-29 11:31 - [吴海燕兰西雅漫步复兴岛](https://www.blog.minike.top/Article/details/62020.shtml)
+- 2026-06-29 11:46 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/6916595.shtml)
+- 2026-06-29 11:51 - [金价银价下跌 油价上涨](https://www.share.kurohicncr.top/Article/details/53874719424.shtml)
+- 2026-06-29 11:23 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/46962.shtml)
+- 2026-06-29 11:34 - [吴昕要助理买的药6年前已停产](http://www.share.kurohicncr.top/Article/details/465621736.shtml)
+- 2026-06-29 11:36 - [宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/12472.shtml)
+- 2026-06-29 11:52 - [男子撸铁后擦汗 脸部感染“脚气”](https://www.blog.minike.top/Article/details/92846703.shtml)
+- 2026-06-29 11:29 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/094051554600.shtml)
+- 2026-06-29 11:50 - [强⁶](http://www.share.kurohicncr.top/Article/details/98844847.shtml)
+- 2026-06-29 11:47 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/35547.shtml)
+- 2026-06-29 11:40 - [游戏数据竟被用于军事目的](https://www.blog.minike.top/Article/details/33508757.shtml)
+- 2026-06-29 11:31 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/2050354261.shtml)

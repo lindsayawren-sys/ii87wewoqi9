@@ -1,58 +1,57 @@
-# 今年以来地方债发行节奏提速
+# 2026年六五环境日国家主场活动在广州举办
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本报记者 韩 昱 2026年，我国继续实施更加积极的财政政策，其中安排地方政府专项债券4.4万亿元。今年新增专项债券的发行节奏较去年有所提速。数据显示，截至4月13日，各地发行新增专项债券规模约为11879亿元，发行进度为27%。而去年同期新增专项债券发行规模约为10183亿元，发行进度为23%。 “年初以
+中新网广州6月5日电 (记者 阮煜琳)6月5日是世界环境日。当日，生态环境部、中央精神文明建设办公室、广东省人民政府、香港特别行政区政府、澳门特别行政区政府在广州市联合举办2026年六五环境日国家主场活动。广东省委书记黄坤明出席活动并致辞。生态环境部部长黄润秋出席活动并讲话。广东省委副书记、省长孟凡利出席活动。中央宣传部部务会成员、中央精神文明建设办公室专职副主任胡凯红出席活动
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网广州6月5日电 (记者 阮煜琳)6月5日是世界环境日。
 
-本报记者 韩 昱 2026年，我国继续实施更加积极的财政政策，其中安排地方政府专项债券4.4万亿元。
+当日，生态环境部、中央精神文明建设办公室、广东省人民政府、香港特别行政区政府、澳门特别行政区政府在广州市联合举办2026年六五环境日国家主场活动。
 
-今年新增专项债券的发行节奏较去年有所提速。
+广东省委书记黄坤明出席活动并致辞。
 
-数据显示，截至4月13日，各地发行新增专项债券规模约为11879亿元，发行进度为27%。
+生态环境部部长黄润秋出席活动并讲话。
 
-而去年同期新增专项债券发行规模约为10183亿元，发行进度为23%。
+广东省委副书记、省长孟凡利出席活动。
 
-“年初以来，新增专项债券发行节奏明显加快，且呈现出化债类资金与非化债类资金均加快落地的特征。
+中央宣传部部务会成员、中央精神文明建设办公室专职副主任胡凯红出席活动并讲话。
 
-”中信证券首席经济学家明明在接受《证券日报》记者采访时表示，其中非化债类资金体量更大，对整体前置落地的贡献相对更为突出。
+黄坤明指出，广东着力厚植“绿色家底”，深入打好蓝天、碧水、净土保卫战，有力攻坚解决一批“绿色难题”。
 
-从地方债券整体发行情况看，截至4月13日，各地发行地方债券约33947亿元，发行规模同比增长11%，靠前发力特征明显。
+大力推进生态产业化和产业生态化，积极探索绿水青山转化为金山银山的实现路径，持续激活“绿色动能”，不断深化“绿色合作”、凝聚“绿色共识”，携手港澳共建绿色湾区、美丽湾区。
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:25 - [钦州港海关2026年4月份“关长接待日”公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:43 - [双象股份：拟每10股分红2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:33 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:24 - [搭建高端交流平台 深耕侨乡文脉传承——开平民建以学术交流赋能侨乡文化建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:31 - [强业绩提振，金山软件涨超8%，腾讯混元3.0发布在即，华宝基金港股互联网ETF（513770）涨超1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:29 - [海关总署：今年一季度我国货物进出口同比增长15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:46 - [从三分薄地到致富产业 山西大同黄花全产业链产值达25亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:40 - [视频 | 布林肯:霍尔木兹海峡问题就是特朗普搞出来的，现在纵火犯自己跑去灭火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:30 - [中金：维持腾讯控股“跑赢行业”评级 目标价666港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:32 - [特朗普与昔日盟友梅洛尼翻脸 称她“辜负了美国”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:30 - [不做下一个Temu：小红书Redshop的差异化突围之战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:39 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:27 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:37 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:48 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:34 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:47 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:33 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:48 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [伊朗内政部长指示边境省份“消除海上封锁威胁”](http://www.blog.kurohicncr.top/Article/details/438102.shtml)
-- 2026-06-29 11:34 - [英国石油称其石油交易业务表现“异常出色”](http://www.blog.kurohicncr.top/Article/details/97874.shtml)
-- 2026-06-29 11:27 - [人民币兑美元中间价较上日调升64点至6.8593 升值至2023年3月24日以来最高！](http://www.blog.kurohicncr.top/Article/details/299916790833.shtml)
-- 2026-06-29 11:45 - [东盟学子以艺架桥 欢庆广西“三月三”](http://www.share.kurohicncr.top/Article/details/66411876916.shtml)
-- 2026-06-29 11:27 - [贺兰山下的微醺时光：一杯尽揽岁月风华](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [第十二届“东方财富杯”全国大学生金融挑战赛正式启动 以金融实践赋能青年素养提升](http://www.share.minike.top/Article/details/16011954.shtml)
-- 2026-06-29 11:24 - [近一周“一口价”黄金产品最高下跌17%！机构依旧看好黄金后市](http://www.blog.kurohicncr.top/Article/details/45364.shtml)
-- 2026-06-29 11:38 - [美国称霍尔木兹封锁首日六船折返](http://www.blog.minike.top/Article/details/933990842.shtml)
-- 2026-06-29 11:45 - [浙江温州：园博园意大利馆开馆](http://www.share.minike.top/Article/details/6411745.shtml)
-- 2026-06-29 11:31 - [德林控股于4月13日斥资114.9万港元回购100万股](http://www.share.kurohicncr.top/Article/details/9969048760.shtml)
-- 2026-06-29 11:39 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](http://www.blog.minike.top/Article/details/0098717618.shtml)
-- 2026-06-29 11:24 - [2月马来西亚天然橡胶产量环比下降24.1%](http://www.blog.kurohicncr.top/Article/details/4554309.shtml)
-- 2026-06-29 11:23 - [青海玉树：三江源头添新绿 全民护绿促发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [特朗普发难后 教宗良十四世誓言继续发声批评伊朗战争](http://www.blog.minike.top/Article/details/787898.shtml)
-- 2026-06-29 11:32 - [A股收评：超3700只个股飘红，三大指数集体收涨](http://www.blog.kurohicncr.top/Article/details/332265.shtml)
+- 2026-06-29 11:27 - [韩国拟将部分刑责年龄降至13岁](https://www.blog.kurohicncr.top/Article/details/908434.shtml)
+- 2026-06-29 11:52 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/565555.shtml)
+- 2026-06-29 11:51 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/30559184384.shtml)
+- 2026-06-29 11:26 - [上海足协发布世界杯文明观赛倡议书](http://www.blog.minike.top/Article/details/4417616294.shtml)
+- 2026-06-29 11:35 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/8421631.shtml)
+- 2026-06-29 11:36 - [专家建议城乡居民养老金增至每月千元](http://www.share.kurohicncr.top/Article/details/58239.shtml)
+- 2026-06-29 11:39 - [极限挑战第一季](https://www.share.minike.top/Article/details/12359229832.shtml)
+- 2026-06-29 11:51 - [【自制动画】佐鸣抖肩舞！！！](http://www.blog.kurohicncr.top/Article/details/728192.shtml)
+- 2026-06-29 11:32 - [DSpark论文深度解读](https://www.blog.kurohicncr.top/Article/details/27843269747.shtml)
+- 2026-06-29 11:32 - [高考公平需要延伸到志愿填报这一环](https://www.blog.kurohicncr.top/Article/details/79053383.shtml)
+- 2026-06-29 11:51 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/506633108344.shtml)
+- 2026-06-29 11:52 - [记者暗访贵州和云南多个养老机构](http://www.blog.kurohicncr.top/Article/details/2783151640.shtml)
+- 2026-06-29 11:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/86177267947.shtml)
+- 2026-06-29 11:35 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/61494313705.shtml)
+- 2026-06-29 11:42 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/16730252.shtml)

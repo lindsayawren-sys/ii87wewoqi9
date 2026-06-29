@@ -1,60 +1,59 @@
-# 华尔街行情向好，摩根大通固定收益与投行业绩超预期
+# “2026·全球人权治理高端论坛”将在北京举行
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 核心要点 该银行公布业绩如下： 值得关注的是，作为银行盈利核心驱动力的 2026 年全年净利息收入指引，该行从此前的 1045 亿美元下调至约 1030 亿美元。 摩根大通周二公布一季度财报，受益于固定收益及投资银行业务营收超预期，整体业绩好于市场预期。 该银行具体业绩数据： 公司净利润同比增长 13%，至 164.9 亿美元，折合每股收益
+中新网北京6月8日电 (记者 李京泽 黄钰钦)中国外交部发言人林剑8日主持例行记者会。 有记者提问：据了解，“2026·全球人权治理高端论坛”将于6月11日至12日在北京举行，以纪念联合国《发展权利宣言》通过40周年为契机，探讨全球人权治理议题。中方能否介绍有关情况？ 林剑：“2026·全球人权治理高端论坛”将于6月11日至12日在北京举行，来自近百个国家和联合国等国际和地区组
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 核心要点 该银行公布业绩如下： 值得关注的是，作为银行盈利核心驱动力的 2026 年全年净利息收入指引，该行从此前的 1045 亿美元下调至约 1030 亿美元。
+中新网北京6月8日电 (记者 李京泽 黄钰钦)中国外交部发言人林剑8日主持例行记者会。
 
-摩根大通周二公布一季度财报，受益于固定收益及投资银行业务营收超预期，整体业绩好于市场预期。
+有记者提问：据了解，“2026·全球人权治理高端论坛”将于6月11日至12日在北京举行，以纪念联合国《发展权利宣言》通过40周年为契机，探讨全球人权治理议题。
 
-该银行具体业绩数据： 公司净利润同比增长 13%，至 164.9 亿美元，折合每股收益 5.94 美元；营收同比增长 10%，至 505.4 亿美元。
+中方能否介绍有关情况？
 
-受大宗商品、信贷、外汇及新兴市场交易活跃度提升推动，该行固定收益交易营收大涨 21%，至 70.8 亿美元，较 StreetAccount 预期高出约 3.7 亿美元。
+林剑：“2026·全球人权治理高端论坛”将于6月11日至12日在北京举行，来自近百个国家和联合国等国际和地区组织的400余名中外嘉宾将应邀与会。
 
-并购咨询与股票承销费用增长带动投行业务手续费大幅攀升 28%，至 28.8 亿美元，超出预期约 2.6 亿美元。
+论坛以“携手发展 共享人权：《发展权利宣言》通过40周年与全球人权治理新愿景”为主题，由中国国务院新闻办公室与外交部共同主办。
 
-推动该行本季度业绩超预期的另一因素是：其计提的贷款损失准备金低于分析师预期。
+除开幕式和全体会议外，论坛将围绕全球治理倡议的人权意义、发展权在全球人权发展中的地位和作用、人工智能时代的发展权利保障与新挑战、绿色发展与人权保障、现代化与人的自由全面发展等议题设5个分论坛。
 
-该行信贷损失拨备为 25 亿美元，较 StreetAccount 预期少约 5 亿美元，显示摩根大通的客户偿债能力保持稳健。
+中方期待各方围绕“以发展促进人权”理念交流互鉴、凝聚共识，携手实现《发展权利宣言》勾勒的美好愿景，共建公正合理包容的全球人权治理体系。
 
-具体来看，本季度该行释放了 1.39 亿美元个人消费信贷储备，同时商业信贷储备增加 3.27 亿美元；去年同期，该行信贷损失拨备为 33 亿美元。
+(完）
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [商务部、中国进出口银行：加大进出口信贷支持力度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:29 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:42 - [【惠誉评论】上市的中国资产管理公司尽管盈利承压，但业务活动持续增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:22 - [开局之年看中国·开放自贸港：文旅融合呈现产业新活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:35 - [“乔、灌、药”立体种植 新疆和田探索出治沙增收新模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:45 - [油价飙升之际 日本央行据悉考虑大幅上调通胀预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:46 - [甘肃环县九村联建一个厂 带富千户种粮人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:23 - [Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:20 - [OpenAI是否正脱离微软的掌控？与亚马逊的新联盟让利害关系进一步升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:41 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:20 - [欧洲债市：各期限收益率全线下行 市场下调对欧英央行的加息押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:32 - [五一视界早盘涨逾6% 日前获创始人增持765万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:23 - [中国正计划向伊朗提供武器？外交部：反对无根据的抹黑或恶意关联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:22 - [快讯：WTI原油日内大跌4.00%，现报88.37美元/桶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:30 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:42 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:45 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:26 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:36 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:29 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:30 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:29 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:43 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:51 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:33 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:29 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [总台海峡时评丨十项促进两岸交流合作新政将给台胞带来实实在在的和平利好](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [郑州银行12名董高离开，赵飞省了一大笔薪酬](http://www.blog.minike.top/Article/details/776532555.shtml)
-- 2026-06-29 11:48 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](http://www.blog.minike.top/Article/details/3122700.shtml)
-- 2026-06-29 11:43 - [中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月](http://www.share.kurohicncr.top/Article/details/872901396825.shtml)
-- 2026-06-29 11:25 - [巴西非遗乐团走进北京丰台奏响友谊乐章](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [富国基金27周年：深耕专业 迈向高质量发展新阶段](http://www.blog.minike.top/Article/details/206710.shtml)
-- 2026-06-29 11:42 - [优彩资源人事调整：戴泽新之女戴梦茜卸任董秘，投行出身赖嫣珩接棒 | 长三角资本局](http://www.blog.minike.top/Article/details/252301.shtml)
-- 2026-06-29 11:37 - [新加坡金管局上调汇率区间斜率 预计2026年核心通胀率为1.5%-2.5%](http://www.share.minike.top/Article/details/168779811.shtml)
-- 2026-06-29 11:46 - [“邮储银行号”遥感卫星升空！银行为何接力放卫星？](http://www.share.kurohicncr.top/Article/details/38043996.shtml)
-- 2026-06-29 11:38 - [国家安全“大事”，跟普通人有什么关系？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [习近平会见西班牙首相桑切斯](http://www.blog.minike.top/Article/details/58286991.shtml)
-- 2026-06-29 11:27 - [企业加速入驻 中国首个大模型创新生态社区“AI磁力”增强](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [国晟科技，浑身是谜](http://www.share.kurohicncr.top/Article/details/846946.shtml)
-- 2026-06-29 11:22 - [专家学者南京共商生态文明传播新路径](http://www.blog.minike.top/Article/details/147286133280.shtml)
-- 2026-06-29 11:33 - [新加坡第一季度经济增长放缓](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [温峥嵘直播回应恶评](http://www.blog.minike.top/Article/details/732804755470.shtml)
+- 2026-06-29 11:51 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/890336075920.shtml)
+- 2026-06-29 11:27 - [世界杯小组赛阶段过人榜：马扎居首](https://www.share.minike.top/Article/details/411482871.shtml)
+- 2026-06-29 11:48 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/2021806.shtml)
+- 2026-06-29 11:24 - [广州某高校辟谣禁止小米汽车入校](https://www.blog.minike.top/Article/details/74247.shtml)
+- 2026-06-29 11:25 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/572003915.shtml)
+- 2026-06-29 11:40 - [高超感谢女友王佳欣](http://www.share.kurohicncr.top/Article/details/22074471204.shtml)
+- 2026-06-29 11:25 - [高考结束了，你会让孩子在家玩手机吗？](https://www.share.minike.top/Article/details/814151812495.shtml)
+- 2026-06-29 11:34 - [沉睡花园](https://www.blog.minike.top/Article/details/338051324733.shtml)
+- 2026-06-29 11:36 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/564522579.shtml)
+- 2026-06-29 11:47 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/5587269936.shtml)
+- 2026-06-29 11:23 - [网友偶遇胡军和李乃文](http://www.blog.minike.top/Article/details/733946617669.shtml)
+- 2026-06-29 11:38 - [岭南电影为何迎来“南方热”](https://www.share.minike.top/Article/details/108464982.shtml)
+- 2026-06-29 11:48 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/54805112.shtml)
+- 2026-06-29 11:41 - [去美国加油？部分加拿大球迷陷入纠结](http://www.blog.minike.top/Article/details/286226527362.shtml)

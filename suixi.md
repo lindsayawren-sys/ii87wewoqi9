@@ -1,60 +1,59 @@
-# OpenAI是否正脱离微软的掌控？与亚马逊的新联盟让利害关系进一步升级
+# 招商证券：海外流动性冲击下 A股市场及科技方向后续如何演绎？
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-OpenAI首席营收官一份泄露的内部通知显示，该公司与微软的裂痕正在加深，与此同时，这家ChatGPT的缔造者正深化与亚马逊公司的关系。 亚马逊在2月份向OpenAI投资了500亿美元，并为该公司提供了2吉瓦的Trainium算力。 随著OpenAI转向亚马逊寻求增长动力，该公司与微软之间长久以来的合作关系可能正面临压力。 OpenAI首席营收官丹尼斯·德雷瑟在周日的一份内部通
+招商证券发布研报称，周五美元指数和美债利率推升，全球股票市场调整，尤其AI方向领跌，其导火索是5月非农超预期，使得市场开始正视美联储加息概率，并且当前全球资金在权益资产的高仓位以及科技抱团的极致化增大了市场的脆弱性。往后去看，这仅仅是一次流动性冲击，并非AI泡沫的破裂，加息对于AI方向的扰动更多在融资成本端，但也不是唯一影响因素；短期若市场风偏出现阶段性扰动，融资资金可能转为净
 
 ## 正文
 
-OpenAI首席营收官一份泄露的内部通知显示，该公司与微软的裂痕正在加深，与此同时，这家ChatGPT的缔造者正深化与亚马逊公司的关系。
+招商证券发布研报称，周五美元指数和美债利率推升，全球股票市场调整，尤其AI方向领跌，其导火索是5月非农超预期，使得市场开始正视美联储加息概率，并且当前全球资金在权益资产的高仓位以及科技抱团的极致化增大了市场的脆弱性。
 
-亚马逊在2月份向OpenAI投资了500亿美元，并为该公司提供了2吉瓦的Trainium算力。
+往后去看，这仅仅是一次流动性冲击，并非AI泡沫的破裂，加息对于AI方向的扰动更多在融资成本端，但也不是唯一影响因素；短期若市场风偏出现阶段性扰动，融资资金可能转为净流出，从而也会使得抱团的方向阶段性暂缓，增大未来一到两周的市场波动；中期来看，当前尚不到市场风格或主线切换的时点，6月下旬随着市场逐渐进入中报交易窗口，业绩确定性强、景气度最高的科技有望继续占优。
 
-随著OpenAI转向亚马逊寻求增长动力，该公司与微软之间长久以来的合作关系可能正面临压力。
+招商证券主要观点如下： 本周A股市场震荡走弱，主要原因包括：（1）盘面结构上，市场无增量资金进场，但AI硬件链交易拥挤度处于高位，导致资金集中兑现；（2）窗口期上，临近机构资金半年度考核，前期风格漂移的基金产品面临调仓压力，集中流出科技板块；（3）宏观方面，30年期美债收益率再度突破5%，欧、日央行加息预期升温，全球权益市场整体风险偏好收敛，资金避险情绪抬升、降低权益仓位。
 
-OpenAI首席营收官丹尼斯·德雷瑟在周日的一份内部通知中称，OpenAI与亚马逊的合作关系是开启企业市场AI商业化变现的关键。
+5月制造业PMI环比下行，存储器价格持续上涨。
 
-她补充说，微软限制了OpenAI满足企业客户现有需求的能力。
+本周景气改善的领域主要有：1）煤炭供给受限，需求因迎峰度夏预期改善，价格上涨；2）5月建筑业PMI环比修复，本周商品房成交同比转正，水泥价格指数上行；3）TMT持续景气，存储器价格持续上涨，4月北美PCB订单量三个月滚动同比增幅扩大。
 
-OpenAI的许多企业客户正通过亚马逊云科技上一个名为Bedrock的平台来使用其模型，德雷瑟称相关需求“惊人”。
+后续关注景气较高或有改善的煤炭、建材、农化制品、半导体、通信设备等。
 
-企业市场已成为顶尖AI公司争夺主导权的关键战场，2026年前几个月，Anthropic凭借其火箭般蹿升的收入增长震惊了市场。
+融资净流入与ETF净申购，基金发行回落。
 
-德雷瑟写道，Anthropic犯下了一个“战略性失误，即没有获得足够的算力”，并补充说：“市场将由我们主宰，让我们为此全力以赴。
+融资资金前四个交易日合计净流入87.6亿元；新成立偏股类公募基金107.2亿份，较前期下降175.2亿份；ETF净申购，对应净流出160.5亿元。
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [外交部谈美伊在巴基斯坦谈判：是朝有利于局势缓和方向迈出的一步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:27 - [美国财长贝森特：伊朗冲突期间美联储按兵不动是正确做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:40 - [高市再提修宪 引发日本民众广泛反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:30 - [台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:19 - [芝加哥期市：CBOT大豆期货收跌，预计美国种植面积将增加](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:43 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:19 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:46 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:37 - [违规超量投放共享自行车，哈啰公司被约谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:26 - [5年亏超120亿，“胖改”难救永辉超市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:44 - [CoreMarine与Jumbo Offshore合作开展阿根廷FLNG安装与连接项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:26 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:19 - [帝王国际投资：清盘呈请获撤回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:25 - [美媒：若美伊重返谈判桌 万斯将再次率团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:26 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:49 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:25 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:25 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:44 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:31 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:38 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:32 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:44 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:48 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:26 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:42 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:49 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [创业板增设第四套上市标准 更好支持优质创新企业发展](http://www.blog.kurohicncr.top/Article/details/827886340.shtml)
-- 2026-06-29 11:20 - [原油：油价下挫 美伊和谈预期缓解供应担忧](http://www.share.minike.top/Article/details/88403328408.shtml)
-- 2026-06-29 11:30 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](http://www.blog.kurohicncr.top/Article/details/1944599.shtml)
-- 2026-06-29 11:28 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](http://www.blog.kurohicncr.top/Article/details/8369802905.shtml)
-- 2026-06-29 11:40 - [Revolution Medicines胰腺癌药物取得成功](http://www.share.kurohicncr.top/Article/details/7557078.shtml)
-- 2026-06-29 11:27 - [甘肃省酒泉市：民族团结与经济发展同频共振](http://www.share.kurohicncr.top/Article/details/458048759.shtml)
-- 2026-06-29 11:20 - [中天策略:4月14日市场分析](http://www.share.minike.top/Article/details/178125220.shtml)
-- 2026-06-29 11:33 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](http://www.blog.kurohicncr.top/Article/details/870528360836.shtml)
-- 2026-06-29 11:30 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](http://www.share.kurohicncr.top/Article/details/28748.shtml)
-- 2026-06-29 11:40 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](http://www.share.kurohicncr.top/Article/details/157937.shtml)
-- 2026-06-29 11:21 - [今年以来地方债发行节奏提速](http://www.share.kurohicncr.top/Article/details/3262813.shtml)
-- 2026-06-29 11:43 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](http://www.share.kurohicncr.top/Article/details/005483886330.shtml)
-- 2026-06-29 11:30 - [收评：国内期货主力合约涨跌互现 PX涨超4%](http://www.blog.minike.top/Article/details/155438.shtml)
-- 2026-06-29 11:47 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](http://www.blog.minike.top/Article/details/0718460371.shtml)
-- 2026-06-29 11:27 - [马斯克的SpaceX新数据：星链成绝对核心](http://www.blog.minike.top/Article/details/114063149342.shtml)
+- 2026-06-29 11:47 - [成都震感](http://www.share.kurohicncr.top/Article/details/54556702.shtml)
+- 2026-06-29 11:35 - [天道](http://www.share.minike.top/Article/details/91238273.shtml)
+- 2026-06-29 11:50 - [退休化学教授帮医药研发人员制毒](https://www.blog.kurohicncr.top/Article/details/76237.shtml)
+- 2026-06-29 11:26 - [陈垣宇晋级WTT美国大满贯男单32强](https://www.share.minike.top/Article/details/1367281.shtml)
+- 2026-06-29 11:44 - [TOP 无畏契约](https://www.share.minike.top/Article/details/72191.shtml)
+- 2026-06-29 11:24 - [中国U17男篮78-87加拿大U17男篮](https://www.blog.kurohicncr.top/Article/details/785539574.shtml)
+- 2026-06-29 11:47 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/863745.shtml)
+- 2026-06-29 11:51 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.minike.top/Article/details/2027187277.shtml)
+- 2026-06-29 11:48 - [中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/47991.shtml)
+- 2026-06-29 11:28 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.share.kurohicncr.top/Article/details/826486.shtml)
+- 2026-06-29 11:42 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/746615.shtml)
+- 2026-06-29 11:35 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/0202303.shtml)
+- 2026-06-29 11:25 - [中国U17男篮78-87加拿大U17男篮](https://www.share.kurohicncr.top/Article/details/9778164.shtml)
+- 2026-06-29 11:27 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/565237960.shtml)
+- 2026-06-29 11:41 - [男子在家一丝不挂 邻居拍照发业主群](https://www.share.kurohicncr.top/Article/details/9324726.shtml)

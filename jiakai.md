@@ -1,47 +1,57 @@
-# 多国留学青年走进浙江丽水 沉浸式感受侨乡发展新貌
+# 罗马尼亚议员窜访台湾，我使馆回应：己所不欲勿施于人
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月14日 20:44 来源：中国新闻网 4月11日-13日，由浙江省欧美同学会、浙江大学中国学中心联合主办的“中外留学青年看浙江”走进丽水活动举行。浙江省欧美同学会、丽水市欧美同学会会员及浙江大学外籍留学生共 40 余人相聚丽水，走进莲都、青田，沉浸式领略侨乡文化、非遗技艺、农业遗产与美丽乡村。(王潇婧 孙杨洋） 责任编辑：【罗攀】
+中新网6月6日电 据中国驻罗马尼亚大使馆网站消息，6月6日，中国驻罗使馆发言人就台湾问题发表谈话。 发言人表示，台湾是中国的一部分，大陆和台湾同属一个中国，这是自古到今的事实，是台海真正的现状，也是二战后国际秩序的重要组成部分。承认中华人民共和国政府是代表全中国的唯一合法政府，坚持一个中国原则，是国际社会的普遍共识，也是遵守国际关系基本准则的应有之义。1949年，罗马尼亚同中华
 
 ## 正文
 
-发布时间：2026年04月14日 20:44 来源：中国新闻网 4月11日-13日，由浙江省欧美同学会、浙江大学中国学中心联合主办的“中外留学青年看浙江”走进丽水活动举行。
+中新网6月6日电 据中国驻罗马尼亚大使馆网站消息，6月6日，中国驻罗使馆发言人就台湾问题发表谈话。
 
-浙江省欧美同学会、丽水市欧美同学会会员及浙江大学外籍留学生共 40 余人相聚丽水，走进莲都、青田，沉浸式领略侨乡文化、非遗技艺、农业遗产与美丽乡村。
+发言人表示，台湾是中国的一部分，大陆和台湾同属一个中国，这是自古到今的事实，是台海真正的现状，也是二战后国际秩序的重要组成部分。
 
-(王潇婧 孙杨洋） 责任编辑：【罗攀】
+承认中华人民共和国政府是代表全中国的唯一合法政府，坚持一个中国原则，是国际社会的普遍共识，也是遵守国际关系基本准则的应有之义。
+
+1949年，罗马尼亚同中华人民共和国建立外交关系。
+
+一个中国原则成为双边关系的政治基础，保证了中罗关系历经国际风云变幻考验，始终向前发展。
+
+最近，罗马尼亚众议员亚历山德鲁·穆拉鲁先生窜访台湾，这本身已经违反了罗官方政策。
+
+他回到罗马尼亚后，还公开发表错误言论，替台湾民进党当局的“台独”分裂主张代言。
+
+我们对此表示严重关切和坚决反对。
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:28 - [今年以来多个细分赛道ETF实现大幅净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:25 - [浙江杭州：智能游艇畅游富春江](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:26 - [中国清洁技术优势扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:41 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:45 - [中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:26 - [郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:39 - [“停飞潮”全球蔓延，航空业陷高油价困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:27 - [愤怒的李想和遭到围攻的理想汽车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:38 - [顺丰、京东、中通、韵达、申通等回应快递涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:24 - [美国宣布封锁后，三艘油轮试图穿越霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:23 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:26 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:28 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:34 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:49 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:23 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:49 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:39 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:44 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:36 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [荷兰首相将与特朗普讨论阿斯麦出口限制](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [特朗普重申伊朗不能拥有核武器](http://www.share.minike.top/Article/details/4855590.shtml)
-- 2026-06-29 11:39 - [科技赋能防控秸秆焚烧 黑龙江“守田行动”筑牢春耕防线](http://www.share.minike.top/Article/details/446215795.shtml)
-- 2026-06-29 11:40 - [谷歌最新Gemini升级预示更大规模的机器人布局](http://www.blog.kurohicncr.top/Article/details/65179.shtml)
-- 2026-06-29 11:48 - [上交所就龙元建设相关事项下发监管工作函](http://www.blog.kurohicncr.top/Article/details/94117050147.shtml)
-- 2026-06-29 11:46 - [王毅同巴基斯坦副总理兼外长达尔通电话](http://www.share.kurohicncr.top/Article/details/7750666026.shtml)
-- 2026-06-29 11:32 - [五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联](http://www.blog.kurohicncr.top/Article/details/48339857.shtml)
-- 2026-06-29 11:26 - [两面针：公司目前已布局并推出电动牙刷产品](http://www.blog.kurohicncr.top/Article/details/13870.shtml)
-- 2026-06-29 11:28 - [新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”](http://www.blog.kurohicncr.top/Article/details/7754699455.shtml)
-- 2026-06-29 11:29 - [A股指数收红！锂矿板块午后放量拉升！](http://www.share.minike.top/Article/details/658105.shtml)
-- 2026-06-29 11:46 - [日本邮船采用3D技术设计建造新一代CTV](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [400辆网约车百余次故障？电动汽车质量纠纷该找谁](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [Anthropic联合创始人：正与特朗普政府讨论下一个人工智能模型](http://www.share.minike.top/Article/details/7388070862.shtml)
-- 2026-06-29 11:45 - [京津冀定向挑战赛天津落幕 四百余名选手花海寻春](http://www.blog.kurohicncr.top/Article/details/054377.shtml)
-- 2026-06-29 11:46 - [巴基斯坦防长称美伊谈判将很快重启](http://www.blog.minike.top/Article/details/6640054451.shtml)
+- 2026-06-29 11:31 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/1402082.shtml)
+- 2026-06-29 11:35 - [世界杯小组赛阶段过人榜：马扎居首](https://www.share.minike.top/Article/details/838341180.shtml)
+- 2026-06-29 11:25 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/4393207.shtml)
+- 2026-06-29 11:28 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/015662537.shtml)
+- 2026-06-29 11:52 - [海清白玉兰奖运](http://www.blog.minike.top/Article/details/477689011220.shtml)
+- 2026-06-29 11:43 - [乔家的儿女](https://www.blog.minike.top/Article/details/0107136226.shtml)
+- 2026-06-29 11:45 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/8986869.shtml)
+- 2026-06-29 11:30 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/72892218.shtml)
+- 2026-06-29 11:38 - [人民日报：伊朗队昂着头告别世界杯](http://www.share.minike.top/Article/details/006712288.shtml)
+- 2026-06-29 11:32 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/010212227060.shtml)
+- 2026-06-29 11:25 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/1529700.shtml)
+- 2026-06-29 11:46 - [Mrbeast的30天不吃饭挑战](https://www.share.kurohicncr.top/Article/details/83653.shtml)
+- 2026-06-29 11:33 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/115758737.shtml)
+- 2026-06-29 11:36 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/837711413.shtml)
+- 2026-06-29 11:29 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/4668839.shtml)

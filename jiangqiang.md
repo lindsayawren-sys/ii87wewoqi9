@@ -1,56 +1,57 @@
-# 平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书
+# 胜科纳米大宗交易成交418.80万元
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-近日，中国平安人寿保险股份有限公司(以下简称“平安人寿”“公司”)联合清华大学经济管理学院发布《中国寿险代理人高质量转型白皮书(2026)：迈向新范式》(以下简称“白皮书”)，基于覆盖全国316个城市的大规模行业调研，首次系统构建寿险代理人“四位一体”能力模型，全景描绘“千里骏马”人才画像，为中国寿险业从规模扩张向价值创造转型提供行业洞察。 白皮书指出，历经三十余年发展的中国寿
+胜科纳米6月5日大宗交易平台出现一笔成交，成交量10.00万股，成交金额418.80万元，大宗交易成交价为41.88元，相对今日收盘价折价0.71%。该笔交易的买方营业部为中信建投证券股份有限公司总部，卖方营业部为国泰海通证券股份有限公司上海普陀区铜川路证券营业部。进一步统计，近3个月内该股累计发生23笔大宗交易，合计成交金额为4.61亿元。证券时报·数据宝统计显示，胜科纳米今
 
 ## 正文
 
-近日，中国平安人寿保险股份有限公司(以下简称“平安人寿”“公司”)联合清华大学经济管理学院发布《中国寿险代理人高质量转型白皮书(2026)：迈向新范式》(以下简称“白皮书”)，基于覆盖全国316个城市的大规模行业调研，首次系统构建寿险代理人“四位一体”能力模型，全景描绘“千里骏马”人才画像，为中国寿险业从规模扩张向价值创造转型提供行业洞察。
+胜科纳米6月5日大宗交易平台出现一笔成交，成交量10.00万股，成交金额418.80万元，大宗交易成交价为41.88元，相对今日收盘价折价0.71%。
 
-白皮书指出，历经三十余年发展的中国寿险代理人制度正面临结构性变革。
+该笔交易的买方营业部为中信建投证券股份有限公司总部，卖方营业部为国泰海通证券股份有限公司上海普陀区铜川路证券营业部。
 
-当前行业核心矛盾已从“规模与质量的冲突”，演变为“客户对综合性风险管理解决方案的迫切需求与传统销售能力之间的系统性能力代差”。
+进一步统计，近3个月内该股累计发生23笔大宗交易，合计成交金额为4.61亿元。
 
-随着人口红利消退、客户需求升级、技术冲击等合力推动下，寿险行业正迎来范式革命的新阶段。
+证券时报·数据宝统计显示，胜科纳米今日收盘价为42.18元，上涨11.35%，日换手率为9.83%，成交额为7.36亿元，全天主力资金净流入3727.29万元，近5日该股累计上涨8.66%，近5日资金合计净流入2843.60万元。
 
-基于对12,001份客户问卷与5,214份潜在人才问卷的实证分析，白皮书提出未来代理人应具备“四位一体”能力体系：专业深度、资源广度、科技敏度与价值交付力，并具象化为“千里骏马”人才画像，推动代理人从“保险销售者”向“家庭风险管理伙伴”转型。
+两融数据显示，该股最新融资余额为3.79亿元，近5日增加5189.49万元，增幅为15.85%。
 
-研究强调，系统性平台赋能是关键，提出价值锚定、组织激励、培养体系、科技加持与生态赋能“五大支柱”，助力将“良驹”培育为“千里骏马”。
+据天眼查APP显示，胜科纳米(苏州)股份有限公司成立于2012年08月17日，注册资本40331.1486万人民币。
 
-清华大学经济管理学院讲席教授、中国保险与风险管理研究中心主任冯润桓表示：“这份研究旨在通过严谨学术框架，为行业提供客观转型路径。
+（数据宝）6月5日胜科纳米大宗交易一览注：本文系新闻报道，不构成投资建议，股市有风险，投资需谨慎。
 
-我们希望呈现代理人的职业化可能性，让客户看见行业变革的方向。
+（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [谷歌最新Gemini升级预示更大规模的机器人布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:46 - [上交所就龙元建设相关事项下发监管工作函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:22 - [王毅同巴基斯坦副总理兼外长达尔通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:28 - [五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:35 - [两面针：公司目前已布局并推出电动牙刷产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:21 - [新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:43 - [A股指数收红！锂矿板块午后放量拉升！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:44 - [日本邮船采用3D技术设计建造新一代CTV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:37 - [400辆网约车百余次故障？电动汽车质量纠纷该找谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:36 - [Anthropic联合创始人：正与特朗普政府讨论下一个人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:23 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:51 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:24 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:37 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:46 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:34 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:29 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:35 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:50 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:33 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:46 - [台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦](http://www.share.minike.top/Article/details/406591749.shtml)
-- 2026-06-29 11:43 - [芝加哥期市：CBOT大豆期货收跌，预计美国种植面积将增加](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](http://www.blog.minike.top/Article/details/280316471.shtml)
-- 2026-06-29 11:45 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](http://www.blog.minike.top/Article/details/752736064.shtml)
-- 2026-06-29 11:31 - [违规超量投放共享自行车，哈啰公司被约谈](http://www.share.minike.top/Article/details/009326.shtml)
-- 2026-06-29 11:34 - [5年亏超120亿，“胖改”难救永辉超市](http://www.blog.kurohicncr.top/Article/details/9330269992.shtml)
-- 2026-06-29 11:27 - [CoreMarine与Jumbo Offshore合作开展阿根廷FLNG安装与连接项目](http://www.share.kurohicncr.top/Article/details/1994084.shtml)
-- 2026-06-29 11:35 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](http://www.blog.kurohicncr.top/Article/details/8717215.shtml)
-- 2026-06-29 11:19 - [帝王国际投资：清盘呈请获撤回](http://www.share.minike.top/Article/details/573450.shtml)
-- 2026-06-29 11:44 - [美媒：若美伊重返谈判桌 万斯将再次率团](http://www.blog.kurohicncr.top/Article/details/57977.shtml)
-- 2026-06-29 11:46 - [ATFX汇市前瞻:褐皮书与PPI数据来袭 G20与原油月报本周发布](http://www.share.kurohicncr.top/Article/details/019357.shtml)
-- 2026-06-29 11:37 - [乌军对克里米亚发动大规模袭击](http://www.blog.kurohicncr.top/Article/details/237524920933.shtml)
-- 2026-06-29 11:43 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [对冲基金资本正重塑拥有180年历史的保险模式](http://www.share.minike.top/Article/details/342800.shtml)
+- 2026-06-29 11:34 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/19718749.shtml)
+- 2026-06-29 11:50 - [这位猫咪，请你自重！](http://www.blog.minike.top/Article/details/968094.shtml)
+- 2026-06-29 11:48 - [网友偶遇胡军和李乃文](https://www.blog.minike.top/Article/details/674486820.shtml)
+- 2026-06-29 11:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/0395132912.shtml)
+- 2026-06-29 11:52 - [绘画区你赢了](http://www.blog.minike.top/Article/details/91591545812.shtml)
+- 2026-06-29 11:31 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/2562739.shtml)
+- 2026-06-29 11:35 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/190202.shtml)
+- 2026-06-29 11:33 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/488221294369.shtml)
+- 2026-06-29 11:27 - [天道](http://www.blog.kurohicncr.top/Article/details/736525401026.shtml)
+- 2026-06-29 11:41 - [1年内值得期待的12大游戏](https://www.blog.kurohicncr.top/Article/details/8218959.shtml)
+- 2026-06-29 11:47 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/82944.shtml)
+- 2026-06-29 11:51 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.kurohicncr.top/Article/details/812679273.shtml)
+- 2026-06-29 11:34 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/775314.shtml)
+- 2026-06-29 11:30 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/983826746.shtml)
+- 2026-06-29 11:43 - [唐艺昕女儿接唐艺昕回家](http://www.share.kurohicncr.top/Article/details/963166277.shtml)

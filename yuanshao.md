@@ -1,61 +1,61 @@
-# 400辆网约车百余次故障？电动汽车质量纠纷该找谁
+# 孩子高低肩、总喊腰酸背痛？这些可能是脊柱侧弯的信号
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-重庆微笑出行起诉长安汽车，称旗下400台逸动EV460网约车中超过100台次出现电池故障，损失逾千万，并指出车辆存在线路改装隐患。长安汽车回应称仅涉及单一车辆，并谴责对方“歪曲夸大、以偏概全”。一边是网约车运营公司拿出大批故障记录，一边是车企否认问题规模——这种拉锯，在电动汽车质量纠纷中并不罕见。 电动汽车的快速普及，也带来了与之俱增的消费纠纷 【下载黑猫投诉客户端】。无论是私
+原标题：朝“问”健康丨孩子高低肩、总喊腰酸背痛？这些可能是脊柱侧弯的信号 每年6月是“脊柱侧弯唤醒月”，数据显示，我国中小学生脊柱侧弯整体患病率约1%，发生脊柱侧弯人数估算超过500万，每年新增确诊约30万人。脊柱侧弯继近视、肥胖后，已成为我国青少年第三大高发慢性病，今年刚纳入了国家确定的儿童青少年“五健”促进行动中专项防控，搭建筛查、干预、诊疗全链条防护网。 脊柱侧弯分“真假
 
 ## 正文
 
-重庆微笑出行起诉长安汽车，称旗下400台逸动EV460网约车中超过100台次出现电池故障，损失逾千万，并指出车辆存在线路改装隐患。
+原标题：朝“问”健康丨孩子高低肩、总喊腰酸背痛？
 
-长安汽车回应称仅涉及单一车辆，并谴责对方“歪曲夸大、以偏概全”。
+这些可能是脊柱侧弯的信号 每年6月是“脊柱侧弯唤醒月”，数据显示，我国中小学生脊柱侧弯整体患病率约1%，发生脊柱侧弯人数估算超过500万，每年新增确诊约30万人。
 
-一边是网约车运营公司拿出大批故障记录，一边是车企否认问题规模——这种拉锯，在电动汽车质量纠纷中并不罕见。
+脊柱侧弯继近视、肥胖后，已成为我国青少年第三大高发慢性病，今年刚纳入了国家确定的儿童青少年“五健”促进行动中专项防控，搭建筛查、干预、诊疗全链条防护网。
 
-电动汽车的快速普及，也带来了与之俱增的消费纠纷 【下载黑猫投诉客户端】。
+脊柱侧弯分“真假” 成因治疗方式不同不少家长发现孩子高低肩、后背不对称，就会归咎于歪坐、趴桌看书，误以为只要纠正坐姿就能把脊柱掰回正常。
 
-无论是私家车车主，还是以车辆为生产工具的网约车司机，在面对电池故障、续航虚标、质保推诿等问题时，维权路径往往不清晰，很多人在交涉数月后依然没有得到实质性回应。
+实际上，脊柱侧弯分真性特发性脊柱侧弯和假性姿势性侧弯，二者成因、治疗方式截然不同。
 
-了解正确的维权渠道和方法，对每一位电动汽车消费者都具有现实意义。
+其实临床上占青少年脊柱侧弯的大部分是真性的特发性脊柱侧弯，和坐姿坏习惯无关，也无法通过调整姿势来矫正，目前研究的结果显示可能与基因、激素分泌、神经系统等存在一定关系，但并不能确定为明确的病因。
 
-电动汽车最集中的几类消费纠纷 电池故障与续航虚标是投诉量最大的问题类型。
+北京大学人民医院脊柱外科主任医师、国家儿童青少年脊柱侧弯防控工作组组长 刘海鹰：特发性的侧弯是随着年龄增长，随着生长发育进入高峰出现的，这种需要早期发现，早期分步进行治疗，比如早期用特定的运动康复，中度是戴支具，如果是重一点的就得手术。
 
-实际续航远低于宣传数据，电池在三包期内突然出现衰减或故障，车企以“正常衰减”“使用不当”为由拒绝三包，这类纠纷占电动汽车投诉的相当大比例。
+特发性脊柱侧弯0—20°是轻度，20—40°是中度侧弯，大于40°的是重度。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [依必安派特亮相2026中国制冷展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:32 - [央行发布2026年一季度金融统计数据报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:46 - [贵州省人大常委会秘书长、办公厅主任潘荣接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:31 - [中方：愿同匈牙利新一届政府加强高层交往](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:35 - [大商所发布《服务实体经济白皮书（2025）》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:45 - [朝中社发文，批评日本自卫队改组“暴露危险野心”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:40 - [商务部、中国进出口银行：加大进出口信贷支持力度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:23 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:35 - [【惠誉评论】上市的中国资产管理公司尽管盈利承压，但业务活动持续增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:30 - [开局之年看中国·开放自贸港：文旅融合呈现产业新活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:34 - [“乔、灌、药”立体种植 新疆和田探索出治沙增收新模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:41 - [油价飙升之际 日本央行据悉考虑大幅上调通胀预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:42 - [甘肃环县九村联建一个厂 带富千户种粮人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:24 - [Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:42 - [OpenAI是否正脱离微软的掌控？与亚马逊的新联盟让利害关系进一步升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:32 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:42 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:32 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:50 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:49 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:38 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:40 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:38 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:25 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:41 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:42 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:42 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:43 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:44 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [能源价格回落后 交易员下调对欧洲央行加息的押注](http://www.share.kurohicncr.top/Article/details/994750182.shtml)
-- 2026-06-29 11:30 - [周黑鸭于4月13日斥资149.61万港元回购94.1万股](http://www.share.kurohicncr.top/Article/details/76211.shtml)
-- 2026-06-29 11:31 - [公用事业公司计划未来五年投入1.4万亿美元，助力人工智能热潮发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [海垦十大招商项目亮相“粤贸全国”广东—海南经贸交流对接会](http://www.share.minike.top/Article/details/0767723.shtml)
-- 2026-06-29 11:33 - [从滞销盘到区域标杆 远洋建管获委托方授予“最佳战友”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [特朗普称伊朗致电美方说希望达成协议](http://www.share.kurohicncr.top/Article/details/455132111.shtml)
-- 2026-06-29 11:43 - [总台海峡时评丨十项促进两岸交流合作新政将给台胞带来实实在在的和平利好](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [郑州银行12名董高离开，赵飞省了一大笔薪酬](http://www.share.kurohicncr.top/Article/details/32284.shtml)
-- 2026-06-29 11:47 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](http://www.share.kurohicncr.top/Article/details/382128469.shtml)
-- 2026-06-29 11:27 - [中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月](http://www.blog.kurohicncr.top/Article/details/42741663.shtml)
-- 2026-06-29 11:31 - [巴西非遗乐团走进北京丰台奏响友谊乐章](http://www.blog.minike.top/Article/details/490578496335.shtml)
-- 2026-06-29 11:30 - [富国基金27周年：深耕专业 迈向高质量发展新阶段](http://www.blog.minike.top/Article/details/546168453030.shtml)
-- 2026-06-29 11:31 - [优彩资源人事调整：戴泽新之女戴梦茜卸任董秘，投行出身赖嫣珩接棒 | 长三角资本局](http://www.blog.minike.top/Article/details/8437568.shtml)
-- 2026-06-29 11:32 - [新加坡金管局上调汇率区间斜率 预计2026年核心通胀率为1.5%-2.5%](http://www.blog.kurohicncr.top/Article/details/6491190054.shtml)
-- 2026-06-29 11:40 - [“邮储银行号”遥感卫星升空！银行为何接力放卫星？](http://www.blog.kurohicncr.top/Article/details/39037.shtml)
+- 2026-06-29 11:36 - [F1奥地利大奖赛正赛集锦](http://www.share.minike.top/Article/details/06534558.shtml)
+- 2026-06-29 11:43 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/956876606.shtml)
+- 2026-06-29 11:23 - [神23乘组太空出差满月](https://www.share.kurohicncr.top/Article/details/43044.shtml)
+- 2026-06-29 11:26 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.kurohicncr.top/Article/details/304222481.shtml)
+- 2026-06-29 11:24 - [房屋抵押权与租赁权如何协调](http://www.share.minike.top/Article/details/9384271825.shtml)
+- 2026-06-29 11:43 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.minike.top/Article/details/45444333.shtml)
+- 2026-06-29 11:38 - [韩媒破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/205727653821.shtml)
+- 2026-06-29 11:41 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/488852.shtml)
+- 2026-06-29 11:26 - [美加墨世界杯首支16强诞生](https://www.blog.minike.top/Article/details/25654.shtml)
+- 2026-06-29 11:44 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/83070.shtml)
+- 2026-06-29 11:50 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/74987621.shtml)
+- 2026-06-29 11:49 - [王中磊儿子邹市明儿子曹格儿子同框](http://www.blog.minike.top/Article/details/0068479.shtml)
+- 2026-06-29 11:51 - [乌拉圭出局之路](https://www.share.minike.top/Article/details/74773957939.shtml)
+- 2026-06-29 11:28 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/72582.shtml)
+- 2026-06-29 11:31 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/06793475.shtml)

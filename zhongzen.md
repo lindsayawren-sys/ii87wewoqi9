@@ -1,44 +1,47 @@
-# Revolution Medicines胰腺癌药物取得成功
+# 突发：菲律宾群岛地区附近发生8.2级左右地震
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-Revolution Medicines表示，daraxonrasib在既往接受过治疗的胰腺癌中达到了3期临床试验终点，将中位总生存期延长一倍至13.2个月（化疗组为6.7个月），并计划寻求FDA审查。责任编辑：张俊 SF065
+中新网6月8日电 据中国地震台网自动测定，6月8日7时37分在菲律宾群岛地区附近(北纬5.65度，东经125.27度)发生8.2级左右地震，最终结果以正式速报为准。
 
 ## 正文
 
-Revolution Medicines表示，daraxonrasib在既往接受过治疗的胰腺癌中达到了3期临床试验终点，将中位总生存期延长一倍至13.2个月（化疗组为6.7个月），并计划寻求FDA审查。
-
-责任编辑：张俊 SF065
+中新网6月8日电 据中国地震台网自动测定，6月8日7时37分在菲律宾群岛地区附近(北纬5.65度，东经125.27度)发生8.2级左右地震，最终结果以正式速报为准。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:40 - [收评：国内期货主力合约涨跌互现 PX涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:44 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:35 - [马斯克的SpaceX新数据：星链成绝对核心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:25 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:30 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:47 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:39 - [钦州港海关2026年4月份“关长接待日”公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:27 - [双象股份：拟每10股分红2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:20 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:38 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:22 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:32 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:36 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:46 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:42 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:39 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:24 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:34 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:32 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:42 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:22 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:43 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:32 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:33 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [西班牙首相：世界离不开中国](http://www.blog.kurohicncr.top/Article/details/93013046070.shtml)
-- 2026-06-29 11:36 - [分析师上调英特尔评级 凸显服务器芯片市场持续走强](http://www.blog.kurohicncr.top/Article/details/914841399.shtml)
-- 2026-06-29 11:29 - [中科宇航IPO：报告期内股份支付金额高达19亿元 技术独立性待考 实控人“双跨”问题仍未解决](http://www.blog.minike.top/Article/details/5058802258.shtml)
-- 2026-06-29 11:31 - [*ST万方面临“市值退” 4月14日开市起停牌](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [特一药业：根据米内网等第三方市场数据，硫酸氨基葡萄糖胶囊近年来的国内销售规模持续扩大](http://www.blog.kurohicncr.top/Article/details/372982.shtml)
-- 2026-06-29 11:35 - [A股午评：超2600只个股飘绿，三大指数集体收涨](http://www.blog.kurohicncr.top/Article/details/516667.shtml)
-- 2026-06-29 11:24 - [伊朗内政部长指示边境省份“消除海上封锁威胁”](http://www.share.kurohicncr.top/Article/details/59901588.shtml)
-- 2026-06-29 11:45 - [英国石油称其石油交易业务表现“异常出色”](http://www.blog.minike.top/Article/details/69662288.shtml)
-- 2026-06-29 11:29 - [人民币兑美元中间价较上日调升64点至6.8593 升值至2023年3月24日以来最高！](http://www.share.kurohicncr.top/Article/details/8142838524.shtml)
-- 2026-06-29 11:28 - [东盟学子以艺架桥 欢庆广西“三月三”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [贺兰山下的微醺时光：一杯尽揽岁月风华](http://www.share.kurohicncr.top/Article/details/487366771.shtml)
-- 2026-06-29 11:45 - [第十二届“东方财富杯”全国大学生金融挑战赛正式启动 以金融实践赋能青年素养提升](http://www.share.kurohicncr.top/Article/details/33159.shtml)
-- 2026-06-29 11:21 - [近一周“一口价”黄金产品最高下跌17%！机构依旧看好黄金后市](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [美国称霍尔木兹封锁首日六船折返](http://www.share.minike.top/Article/details/1124269.shtml)
-- 2026-06-29 11:26 - [浙江温州：园博园意大利馆开馆](http://www.blog.kurohicncr.top/Article/details/6655389.shtml)
+- 2026-06-29 11:29 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/645451.shtml)
+- 2026-06-29 11:51 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/38858709982.shtml)
+- 2026-06-29 11:34 - [詹姆斯下赛季会在哪里](http://www.blog.minike.top/Article/details/475503127.shtml)
+- 2026-06-29 11:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/037267567321.shtml)
+- 2026-06-29 11:41 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/5177376.shtml)
+- 2026-06-29 11:51 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/9482597773.shtml)
+- 2026-06-29 11:46 - [女子遭家暴两次起诉离婚均被驳回](http://www.blog.kurohicncr.top/Article/details/26626673432.shtml)
+- 2026-06-29 11:43 - [国乒男单资格赛全员出局](http://www.share.kurohicncr.top/Article/details/85549911612.shtml)
+- 2026-06-29 11:39 - [2026年Mac能玩游戏了吗](http://www.blog.minike.top/Article/details/030296272484.shtml)
+- 2026-06-29 11:46 - [毒液2](http://www.blog.kurohicncr.top/Article/details/795430046474.shtml)
+- 2026-06-29 11:38 - [三只羊线下课已下架](http://www.share.minike.top/Article/details/787694075941.shtml)
+- 2026-06-29 11:30 - [韩媒称韩国队遭中国网民嘲讽](http://www.blog.minike.top/Article/details/583042818.shtml)
+- 2026-06-29 11:30 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/9952159.shtml)
+- 2026-06-29 11:28 - [曾沛慈夺冠后人气](https://www.blog.kurohicncr.top/Article/details/569849.shtml)
+- 2026-06-29 11:24 - [腾讯回应做独立支付APP](https://www.share.minike.top/Article/details/8820137.shtml)

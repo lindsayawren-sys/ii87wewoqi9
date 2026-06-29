@@ -1,56 +1,55 @@
-# OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口
+# 国家发展改革委与老挝有关部门签署合作文件
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-石油输出国组织（OPEC）数据显示，该组织3月原油产量创下纪录最大单月跌幅，因为中东冲突导致主要成员国出口受限。 OPEC秘书处月度报告显示，3月该组织产量减少788万桶/日，至2079万桶/日，主要受伊拉克、沙特阿拉伯、阿联酋和科威特产量下降拖累。这是自上世纪80年代有数据以来的最大降幅。 美以联盟与伊朗之间的冲突已使波斯湾关键水道霍尔木兹海峡关闭六周，迫使地区产油国关停部分
+2026年6月5日，在中国和老挝两党两国最高领导人见证下，郑栅洁主任与老挝副总理、财政部部长兼老中合作委员会主席山迪帕·丰威汉签署《中华人民共和国国家发展和改革委员会与老挝人民民主共和国老中合作委员会关于推动绿色产业发展合作的谅解备忘录》。下一步，双方将加强节能降碳产业、环境保护产业、资源循环利用产业、能源绿色低碳转型、基础设施绿色升级、生态保护修复和利用、绿色服务等领域交流合
 
 ## 正文
 
-石油输出国组织（OPEC）数据显示，该组织3月原油产量创下纪录最大单月跌幅，因为中东冲突导致主要成员国出口受限。
+2026年6月5日，在中国和老挝两党两国最高领导人见证下，郑栅洁主任与老挝副总理、财政部部长兼老中合作委员会主席山迪帕·丰威汉签署《中华人民共和国国家发展和改革委员会与老挝人民民主共和国老中合作委员会关于推动绿色产业发展合作的谅解备忘录》。
 
-OPEC秘书处月度报告显示，3月该组织产量减少788万桶/日，至2079万桶/日，主要受伊拉克、沙特阿拉伯、阿联酋和科威特产量下降拖累。
+下一步，双方将加强节能降碳产业、环境保护产业、资源循环利用产业、能源绿色低碳转型、基础设施绿色升级、生态保护修复和利用、绿色服务等领域交流合作。
 
-这是自上世纪80年代有数据以来的最大降幅。
+此外，郑栅洁主任与老挝工业与贸易部部长玛莱通·贡玛西签署《中华人民共和国国家发展和改革委员会与老挝人民民主共和国工业与贸易部关于开展矿产资源领域合作的谅解备忘录》。
 
-美以联盟与伊朗之间的冲突已使波斯湾关键水道霍尔木兹海峡关闭六周，迫使地区产油国关停部分产能。
+下一步，双方将支持和鼓励双方企业按照“市场主导、商业运作、绿色发展”的原则开展矿产资源合作。
 
-此举推高航空燃油、柴油和汽油等产品价格，可能对全球经济构成新一轮通胀压力。
-
-报告显示，伊拉克3月产量降幅最大，减少256万桶/日，至163万桶/日。
-
-沙特紧随其后，减少231万桶/日，至780万桶/日。
-
-责任编辑：刘明亮
+(国家发展改革委微信公众号)
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [“停飞潮”全球蔓延，航空业陷高油价困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:36 - [愤怒的李想和遭到围攻的理想汽车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:34 - [顺丰、京东、中通、韵达、申通等回应快递涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:47 - [美国宣布封锁后，三艘油轮试图穿越霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:20 - [日上集团：公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:40 - [美国对伊朗海上交通封锁13日生效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:21 - [恒大集团、恒大地产及许家印案一审开庭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:38 - [开局之年看中国·开放自贸港：当“椰子之乡”牵手“沙漠面包”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:20 - [跨越四百年 西班牙首相感叹：中国依旧伟大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:28 - [“00”后藏族设计师班珠丹塔 让藏装焕发时代光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:39 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:35 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:31 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:33 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:46 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:39 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:25 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:37 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:49 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:42 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:23 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:52 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:36 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:44 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:34 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:23 - [两面针：公司目前已布局并推出电动牙刷产品](http://www.share.minike.top/Article/details/665157.shtml)
-- 2026-06-29 11:27 - [新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”](http://www.blog.kurohicncr.top/Article/details/64091.shtml)
-- 2026-06-29 11:38 - [A股指数收红！锂矿板块午后放量拉升！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [日本邮船采用3D技术设计建造新一代CTV](http://www.blog.minike.top/Article/details/886425328929.shtml)
-- 2026-06-29 11:27 - [400辆网约车百余次故障？电动汽车质量纠纷该找谁](http://www.blog.minike.top/Article/details/549972.shtml)
-- 2026-06-29 11:46 - [Anthropic联合创始人：正与特朗普政府讨论下一个人工智能模型](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [京津冀定向挑战赛天津落幕 四百余名选手花海寻春](http://www.share.kurohicncr.top/Article/details/244768.shtml)
-- 2026-06-29 11:32 - [巴基斯坦防长称美伊谈判将很快重启](http://www.blog.minike.top/Article/details/416067313884.shtml)
-- 2026-06-29 11:41 - [兴业证券：首予保利置业增持评级 毛利率有望企稳](http://www.share.kurohicncr.top/Article/details/0020609.shtml)
-- 2026-06-29 11:38 - [远大医药盘中涨超4% 重磅核药SIR-Spheres®钇\[90Y\]微球注射液再度迎来里程碑进展](http://www.blog.kurohicncr.top/Article/details/79230000834.shtml)
-- 2026-06-29 11:45 - [华尔街行情向好，摩根大通固定收益与投行业绩超预期](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [依必安派特亮相2026中国制冷展](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [央行发布2026年一季度金融统计数据报告](http://www.blog.minike.top/Article/details/30098607.shtml)
-- 2026-06-29 11:44 - [贵州省人大常委会秘书长、办公厅主任潘荣接受审查调查](http://www.share.kurohicncr.top/Article/details/212407414.shtml)
-- 2026-06-29 11:41 - [中方：愿同匈牙利新一届政府加强高层交往](http://www.share.minike.top/Article/details/944565060.shtml)
+- 2026-06-29 11:36 - [AG 钟意](https://www.blog.kurohicncr.top/Article/details/1512419679.shtml)
+- 2026-06-29 11:25 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/20621591.shtml)
+- 2026-06-29 11:40 - [黄灿灿恭喜自己拿到全季通告费](http://www.share.kurohicncr.top/Article/details/3530153088.shtml)
+- 2026-06-29 11:39 - [国乒全主力参加美国大满贯](https://www.blog.kurohicncr.top/Article/details/560956.shtml)
+- 2026-06-29 11:24 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://www.share.kurohicncr.top/Article/details/060505738.shtml)
+- 2026-06-29 11:40 - [吴昕要助理买的药6年前已停产](https://www.blog.kurohicncr.top/Article/details/5375683.shtml)
+- 2026-06-29 11:41 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/461179.shtml)
+- 2026-06-29 11:35 - [美加墨世界杯首支16强诞生](https://www.share.minike.top/Article/details/8212381.shtml)
+- 2026-06-29 11:26 - [高考公平需要延伸到志愿填报这一环](http://www.blog.kurohicncr.top/Article/details/971142.shtml)
+- 2026-06-29 11:42 - [毕业寄几百斤快递回家女生发声](http://www.blog.kurohicncr.top/Article/details/7389251.shtml)
+- 2026-06-29 11:36 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/65821265.shtml)
+- 2026-06-29 11:25 - [金牌调解](https://www.blog.minike.top/Article/details/13173921462.shtml)
+- 2026-06-29 11:42 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/27364.shtml)
+- 2026-06-29 11:44 - [温州学子高考数学满分 分享学习经验](http://www.blog.minike.top/Article/details/601657551.shtml)
+- 2026-06-29 11:45 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.kurohicncr.top/Article/details/0214465.shtml)

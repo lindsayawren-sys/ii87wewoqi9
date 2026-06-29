@@ -1,58 +1,59 @@
-# 顺丰、京东、中通、韵达、申通等回应快递涨价
+# 赛目科技与博泰车联及迅策科技订立合作框架协议
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-中新经纬4月14日电 (闫淑鑫)最近，快递涨价的消息引发关注。 有网友在社交平台上称，自己在电商平台上买东西，前一天晚上显示运费4元，第二天一早涨到了8元，一夜翻倍。对于运费涨价的原因，商家给出的解释是：中东战况影响运输成本，快递公司涨价了。 一位云南的网友也称，自己经常寄的一家快递，一单涨了四五元。 快递涨价，消费者还能买到“九块九包邮”“退货包邮”的商品吗？ 年内将不止一次
+赛目科技（02571）发布公告，于2026年6月7日，本公司与博泰车联网科技（上海）股份有限公司（博泰车联）及深圳迅策科技股份有限公司（迅策科技）订立合作框架协议，期限为自签署日期起计两年。根据合作框架协议，各方拟透过发挥其各自的技术能力及行业资源，建立战略合作关系。 根据合作框架协议，各方拟就按使用量计费的AI服务、车载操作系统应用、物理AI及世界模型应用探索合作。就本公告而
 
 ## 正文
 
-中新经纬4月14日电 (闫淑鑫)最近，快递涨价的消息引发关注。
+赛目科技（02571）发布公告，于2026年6月7日，本公司与博泰车联网科技（上海）股份有限公司（博泰车联）及深圳迅策科技股份有限公司（迅策科技）订立合作框架协议，期限为自签署日期起计两年。
 
-有网友在社交平台上称，自己在电商平台上买东西，前一天晚上显示运费4元，第二天一早涨到了8元，一夜翻倍。
+根据合作框架协议，各方拟透过发挥其各自的技术能力及行业资源，建立战略合作关系。
 
-对于运费涨价的原因，商家给出的解释是：中东战况影响运输成本，快递公司涨价了。
+根据合作框架协议，各方拟就按使用量计费的AI服务、车载操作系统应用、物理AI及世界模型应用探索合作。
 
-一位云南的网友也称，自己经常寄的一家快递，一单涨了四五元。
+就本公告而言，“Token”指AI模型调用、数据处理、场景化智能体任务及相关服务的内部计量及计费单位，并非指任何加密货币、虚拟资产、证券型代币、支付代币或其他受规管数字资产。
 
-快递涨价，消费者还能买到“九块九包邮”“退货包邮”的商品吗？
+拟议合作范围包括以下内容： 1．共同探索基于Token的用量计量机制：各方拟探索面向智能网联汽车的端侧用量计量基础设施，形成“车载硬件载体+按使用量计费系统+场景数据+场景智能体矩阵”的一体化机制。
 
-年内将不止一次涨价？
+2．共同探索车载按使用量计费标准：各方拟探索不同场景的计费模式，并推动车载AI服务由单纯模型调用计费升级为涵盖使用量消耗、智能体任务、数据资源、场景效果、评测验证的复合型价值计量体系。
 
-4月14日，中新经纬以消费者身份分别咨询了顺丰、中通、圆通、申通、韵达、极兔官方客服，顺丰客服明确表示近期未涨价，中通客服也称没有接到相关涨价通知；圆通、极兔客服称“以下单为准”“以网点为准”。
+3．车载AI智能体“即用即付”及多方结算：各方拟依托其各自的专业能力，探索端云协同调用、场景智能体编排及执行以及多方结算安排等场景。
 
-此外，韵达客服表示，“因受人力、物料以及运营成本攀升等影响，将对快件价格进行相应调整，具体咨询当地网点。
+4．车端数据及专业知识面向企业客户的资产化及变现：基于三方拟探索的按使用量定价标准，博泰车联及本公司拟探索通过迅策科技体系将其各自的技术资源变现。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [“00”后藏族设计师班珠丹塔 让藏装焕发时代光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:42 - [涉案3000万元 非法集资瞄准“银发旅游团”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:23 - [药捷安康-B拟折让约18.00%发行508.5万股配售股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:45 - [长安期货：美伊和谈暂无成果 关注CPI数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:22 - [恒大集团、恒大地产及许家印案一审开庭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:41 - [（乡村行·看振兴）湖光山色引客来 艺术唤醒“空心村”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:44 - [新华社：运动员因何频遭网暴？全红婵案警示几何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:33 - [微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:30 - [巴比食品投资东鹏饮料，“甜果”变“苦果”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:27 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:40 - [香港交易所推出两只科技指数 易方达香港获授权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:33 - [天风策略：特朗普TACO了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:48 - [哈尔滨“全城追菠萝蜜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:23 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:33 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:29 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:41 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:26 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:50 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:25 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:38 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:41 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:37 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:50 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:52 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [远大医药盘中涨超4% 重磅核药SIR-Spheres®钇\[90Y\]微球注射液再度迎来里程碑进展](http://www.share.kurohicncr.top/Article/details/727869143847.shtml)
-- 2026-06-29 11:31 - [华尔街行情向好，摩根大通固定收益与投行业绩超预期](http://www.blog.kurohicncr.top/Article/details/9775447.shtml)
-- 2026-06-29 11:37 - [依必安派特亮相2026中国制冷展](http://www.blog.kurohicncr.top/Article/details/1355078895.shtml)
-- 2026-06-29 11:41 - [央行发布2026年一季度金融统计数据报告](http://www.share.kurohicncr.top/Article/details/0628213784.shtml)
-- 2026-06-29 11:26 - [贵州省人大常委会秘书长、办公厅主任潘荣接受审查调查](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [中方：愿同匈牙利新一届政府加强高层交往](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [大商所发布《服务实体经济白皮书（2025）》](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [朝中社发文，批评日本自卫队改组“暴露危险野心”](http://www.blog.minike.top/Article/details/37211776672.shtml)
-- 2026-06-29 11:22 - [商务部、中国进出口银行：加大进出口信贷支持力度](http://www.blog.kurohicncr.top/Article/details/196560047.shtml)
-- 2026-06-29 11:39 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](http://www.share.minike.top/Article/details/012227859.shtml)
-- 2026-06-29 11:33 - [【惠誉评论】上市的中国资产管理公司尽管盈利承压，但业务活动持续增长](http://www.share.minike.top/Article/details/011850802.shtml)
-- 2026-06-29 11:22 - [开局之年看中国·开放自贸港：文旅融合呈现产业新活力](http://www.blog.kurohicncr.top/Article/details/863035.shtml)
-- 2026-06-29 11:30 - [“乔、灌、药”立体种植 新疆和田探索出治沙增收新模式](http://www.blog.kurohicncr.top/Article/details/22611.shtml)
-- 2026-06-29 11:45 - [油价飙升之际 日本央行据悉考虑大幅上调通胀预期](http://www.share.kurohicncr.top/Article/details/912959494162.shtml)
-- 2026-06-29 11:32 - [甘肃环县九村联建一个厂 带富千户种粮人](http://www.share.minike.top/Article/details/7968899944.shtml)
+- 2026-06-29 11:33 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/67412.shtml)
+- 2026-06-29 11:41 - [C罗关心罗德里戈伤情](http://www.blog.kurohicncr.top/Article/details/55455.shtml)
+- 2026-06-29 11:23 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/69316.shtml)
+- 2026-06-29 11:39 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/70070171643.shtml)
+- 2026-06-29 11:46 - [洪明甫发布会没有提问环节](https://www.share.minike.top/Article/details/19231.shtml)
+- 2026-06-29 11:32 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/2836881.shtml)
+- 2026-06-29 11:47 - [换个角度打开世界杯淘汰赛](http://www.blog.minike.top/Article/details/07295.shtml)
+- 2026-06-29 11:37 - [DSpark论文深度解读](http://www.blog.minike.top/Article/details/1100364.shtml)
+- 2026-06-29 11:22 - [一生一世](http://www.share.kurohicncr.top/Article/details/731608931909.shtml)
+- 2026-06-29 11:42 - [白玉兰下沉市场](http://www.blog.kurohicncr.top/Article/details/932738.shtml)
+- 2026-06-29 11:24 - [金牌调解](https://www.blog.minike.top/Article/details/5643973.shtml)
+- 2026-06-29 11:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/1479221.shtml)
+- 2026-06-29 11:41 - [韩媒一片哀嚎：没有奇迹](https://www.blog.kurohicncr.top/Article/details/656551995994.shtml)
+- 2026-06-29 11:23 - [人民日报评“AI脸看腻了”](https://www.share.minike.top/Article/details/97169997583.shtml)
+- 2026-06-29 11:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/286247539864.shtml)

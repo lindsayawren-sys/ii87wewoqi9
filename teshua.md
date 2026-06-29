@@ -1,57 +1,50 @@
-# 马克龙分别与伊朗、美国总统通电话 呼吁重启谈判
+# 韩国今年1至5月化妆品出口额突破56亿美元
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-中新社巴黎4月14日电(记者 李洋)法国总统马克龙14日通过社交媒体表示，他13日分别与伊朗总统佩泽希齐扬和美国总统特朗普通电话，呼吁伊美双方重启谈判。 马克龙表示，他在通话中敦促在巴基斯坦伊斯兰堡暂停的伊美谈判能够恢复，相关“误解”能够得到澄清，并避免局势的进一步升级。他强调所有各方均需严格遵守停火协议，并且相关停火协议应包括黎巴嫩。 伊朗与美国的代表团数天前已在伊斯兰堡进行
+据韩国产业部周日发布的数据，今年前五个月，韩国化妆品出口同比大幅增长，美妆产品一跃成为韩国第一大消费类出口商品。 韩国产业部数据显示，1至5月韩国化妆品出口总额达56亿美元，去年同期为46亿美元。 韩国化妆品出口额在2024年首次突破100亿美元，2025年更是创下114亿美元的历史新高。责任编辑：陈钰嘉
 
 ## 正文
 
-中新社巴黎4月14日电(记者 李洋)法国总统马克龙14日通过社交媒体表示，他13日分别与伊朗总统佩泽希齐扬和美国总统特朗普通电话，呼吁伊美双方重启谈判。
+据韩国产业部周日发布的数据，今年前五个月，韩国化妆品出口同比大幅增长，美妆产品一跃成为韩国第一大消费类出口商品。
 
-马克龙表示，他在通话中敦促在巴基斯坦伊斯兰堡暂停的伊美谈判能够恢复，相关“误解”能够得到澄清，并避免局势的进一步升级。
+韩国产业部数据显示，1至5月韩国化妆品出口总额达56亿美元，去年同期为46亿美元。
 
-他强调所有各方均需严格遵守停火协议，并且相关停火协议应包括黎巴嫩。
+韩国化妆品出口额在2024年首次突破100亿美元，2025年更是创下114亿美元的历史新高。
 
-伊朗与美国的代表团数天前已在伊斯兰堡进行了谈判，双方未达成共识。
-
-巴基斯坦官方已提议美国和伊朗在伊斯兰堡举行新一轮谈判。
-
-在谈及霍尔木兹海峡时，马克龙表示，霍尔木兹海峡应尽快“无条件重新开放”，不受任何限制也不应收取费用。
-
-马克龙还同时确认，法国和英国计划于本周五(17日)在巴黎举办一次视频会议，讨论在安全条件准许的情况下帮助恢复霍尔木兹海峡的航行自由。
-
-法国官方14日早些时候表示，马克龙和英国首相斯塔默将共同主持此次视频会议，并指出相关任务是“纯粹防御性”的，目的是确保霍尔木兹海峡安全。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [今年以来地方债发行节奏提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:46 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:37 - [收评：国内期货主力合约涨跌互现 PX涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:47 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:31 - [马斯克的SpaceX新数据：星链成绝对核心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:47 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:43 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:35 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:47 - [钦州港海关2026年4月份“关长接待日”公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:30 - [双象股份：拟每10股分红2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:25 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:28 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:44 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:40 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:23 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:30 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:29 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:38 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:46 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:38 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:47 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:40 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:45 - [价格大涨约50%！家电业部分塑料从进口转向国内供应](http://www.share.kurohicncr.top/Article/details/2794037.shtml)
-- 2026-06-29 11:20 - [西班牙首相：世界离不开中国](http://www.share.minike.top/Article/details/635978028.shtml)
-- 2026-06-29 11:35 - [分析师上调英特尔评级 凸显服务器芯片市场持续走强](http://www.blog.minike.top/Article/details/4846771191.shtml)
-- 2026-06-29 11:36 - [中科宇航IPO：报告期内股份支付金额高达19亿元 技术独立性待考 实控人“双跨”问题仍未解决](http://www.share.kurohicncr.top/Article/details/01249401.shtml)
-- 2026-06-29 11:19 - [*ST万方面临“市值退” 4月14日开市起停牌](http://www.blog.kurohicncr.top/Article/details/6892438263.shtml)
-- 2026-06-29 11:39 - [特一药业：根据米内网等第三方市场数据，硫酸氨基葡萄糖胶囊近年来的国内销售规模持续扩大](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [A股午评：超2600只个股飘绿，三大指数集体收涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [伊朗内政部长指示边境省份“消除海上封锁威胁”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [英国石油称其石油交易业务表现“异常出色”](http://www.blog.minike.top/Article/details/952591440.shtml)
-- 2026-06-29 11:37 - [人民币兑美元中间价较上日调升64点至6.8593 升值至2023年3月24日以来最高！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [东盟学子以艺架桥 欢庆广西“三月三”](http://www.blog.kurohicncr.top/Article/details/312774.shtml)
-- 2026-06-29 11:31 - [贺兰山下的微醺时光：一杯尽揽岁月风华](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [第十二届“东方财富杯”全国大学生金融挑战赛正式启动 以金融实践赋能青年素养提升](http://www.blog.kurohicncr.top/Article/details/7753912.shtml)
-- 2026-06-29 11:38 - [近一周“一口价”黄金产品最高下跌17%！机构依旧看好黄金后市](http://www.share.kurohicncr.top/Article/details/62088.shtml)
-- 2026-06-29 11:44 - [美国称霍尔木兹封锁首日六船折返](http://www.blog.minike.top/Article/details/04006.shtml)
+- 2026-06-29 11:37 - [李维嘉回应“人老了做什么都心酸”](https://www.share.minike.top/Article/details/3184542329.shtml)
+- 2026-06-29 11:49 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.minike.top/Article/details/484563448.shtml)
+- 2026-06-29 11:28 - [媒体：湖人把薪资空间玩明白了](https://www.blog.kurohicncr.top/Article/details/26105991948.shtml)
+- 2026-06-29 11:32 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.kurohicncr.top/Article/details/001335.shtml)
+- 2026-06-29 11:49 - [凯恩何时能拿到国际大赛冠军](http://www.blog.kurohicncr.top/Article/details/9102424.shtml)
+- 2026-06-29 11:46 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/29787664.shtml)
+- 2026-06-29 11:46 - [中国男篮抵达沈阳备战世预赛](https://www.blog.kurohicncr.top/Article/details/517960641029.shtml)
+- 2026-06-29 11:34 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.share.minike.top/Article/details/52548.shtml)
+- 2026-06-29 11:30 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/83259.shtml)
+- 2026-06-29 11:48 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/194313291.shtml)
+- 2026-06-29 11:32 - [曝太阳黄蜂完成阵容互换+签位置换](http://www.share.kurohicncr.top/Article/details/16258920.shtml)
+- 2026-06-29 11:30 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/15775255990.shtml)
+- 2026-06-29 11:39 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/71006534.shtml)
+- 2026-06-29 11:39 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/70091674.shtml)
+- 2026-06-29 11:45 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/704657.shtml)

@@ -1,52 +1,45 @@
-# 中国正计划向伊朗提供武器？外交部：反对无根据的抹黑或恶意关联
+# 美官员称击落伊朗数架无人机
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-澎湃新闻记者 杨文钦 朱郑勇 4月13日，外交部发言人郭嘉昆主持例行记者会。彭博社记者提问，有报道称“中国正计划向伊朗提供武器”、“中国已经向伊朗提供军民两用技术和相关组件”，中方对此有何回应？ 对此，郭嘉昆表示，中国在军品出口方面一贯采取慎重负责任态度，根据本国出口管制法律法规及承担的国际义务实施严格管控。我们反对无根据的抹黑或恶意关联。责任编辑：刘万里 SF014
+发布时间：2026年06月06日 13:21 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-澎湃新闻记者 杨文钦 朱郑勇 4月13日，外交部发言人郭嘉昆主持例行记者会。
-
-彭博社记者提问，有报道称“中国正计划向伊朗提供武器”、“中国已经向伊朗提供军民两用技术和相关组件”，中方对此有何回应？
-
-对此，郭嘉昆表示，中国在军品出口方面一贯采取慎重负责任态度，根据本国出口管制法律法规及承担的国际义务实施严格管控。
-
-我们反对无根据的抹黑或恶意关联。
-
-责任编辑：刘万里 SF014
+发布时间：2026年06月06日 13:21 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [芝加哥期市：CBOT大豆期货收跌，预计美国种植面积将增加](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:43 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:44 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:44 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:20 - [违规超量投放共享自行车，哈啰公司被约谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:39 - [5年亏超120亿，“胖改”难救永辉超市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:44 - [CoreMarine与Jumbo Offshore合作开展阿根廷FLNG安装与连接项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:23 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:35 - [帝王国际投资：清盘呈请获撤回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:41 - [美媒：若美伊重返谈判桌 万斯将再次率团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:41 - [ATFX汇市前瞻:褐皮书与PPI数据来袭 G20与原油月报本周发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:43 - [乌军对克里米亚发动大规模袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:51 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:37 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:32 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:32 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:23 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:34 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:41 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:31 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:48 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:36 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:29 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [Revolution Medicines胰腺癌药物取得成功](http://www.share.minike.top/Article/details/44914.shtml)
-- 2026-06-29 11:45 - [甘肃省酒泉市：民族团结与经济发展同频共振](http://www.blog.kurohicncr.top/Article/details/85604562.shtml)
-- 2026-06-29 11:46 - [中天策略:4月14日市场分析](http://www.share.kurohicncr.top/Article/details/201661120.shtml)
-- 2026-06-29 11:26 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](http://www.blog.minike.top/Article/details/482919953643.shtml)
-- 2026-06-29 11:22 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [今年以来地方债发行节奏提速](http://www.share.minike.top/Article/details/23598190.shtml)
-- 2026-06-29 11:48 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [收评：国内期货主力合约涨跌互现 PX涨超4%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [马斯克的SpaceX新数据：星链成绝对核心](http://www.share.kurohicncr.top/Article/details/23309.shtml)
-- 2026-06-29 11:36 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](http://www.share.kurohicncr.top/Article/details/76439.shtml)
-- 2026-06-29 11:28 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](http://www.share.kurohicncr.top/Article/details/75474382.shtml)
-- 2026-06-29 11:25 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](http://www.share.minike.top/Article/details/656334228311.shtml)
-- 2026-06-29 11:36 - [钦州港海关2026年4月份“关长接待日”公告](http://www.share.kurohicncr.top/Article/details/18892009631.shtml)
+- 2026-06-29 11:48 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/7018355.shtml)
+- 2026-06-29 11:50 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/917389752.shtml)
+- 2026-06-29 11:43 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/57608501.shtml)
+- 2026-06-29 11:37 - [森保一：日本队要亲手改写历史](https://www.blog.minike.top/Article/details/4602472959.shtml)
+- 2026-06-29 11:24 - [森保一：日本队要亲手改写历史](http://www.share.kurohicncr.top/Article/details/6997520988.shtml)
+- 2026-06-29 11:38 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/39380.shtml)
+- 2026-06-29 11:45 - [19家A股上市公司发布上半年业绩预告](http://www.blog.minike.top/Article/details/67093.shtml)
+- 2026-06-29 11:26 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/313915448.shtml)
+- 2026-06-29 11:23 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/7447979.shtml)
+- 2026-06-29 11:25 - [原来衣着打扮会影响对自己的感知](http://www.blog.minike.top/Article/details/854285690.shtml)
+- 2026-06-29 11:48 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.minike.top/Article/details/4885731770.shtml)
+- 2026-06-29 11:37 - [T1 3-0 TLAW数据雷达图](http://www.share.minike.top/Article/details/878746906318.shtml)
+- 2026-06-29 11:34 - [媒体人：警惕日本再次成战争加害国](http://www.share.kurohicncr.top/Article/details/00646.shtml)
+- 2026-06-29 11:41 - [《贺子珍》](https://www.blog.minike.top/Article/details/9682892.shtml)
+- 2026-06-29 11:33 - [张一山说杨紫早该拿奖了](http://www.blog.kurohicncr.top/Article/details/512975295.shtml)

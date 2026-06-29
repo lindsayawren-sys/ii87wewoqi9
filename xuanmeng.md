@@ -1,61 +1,44 @@
-# 富国基金27周年：深耕专业 迈向高质量发展新阶段
+# 印尼羽毛球公开赛：会师队友 国羽提前锁定一个混双决赛席位
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-4月13日，富国基金迎来成立27周年。自1999年成立以来，富国基金始终扎根资产管理本源，坚守“以持有人利益为先”的核心理念，以专业能力服务居民财富管理与实体经济发展。Wind数据显示，截至2025年末，富国基金为投资者累计盈利超2050亿元，服务客户突破1.39亿户。 随着公募基金高质量发展行动方案的持续深化，行业发展方向进一步明晰。与此同时，低利率时代来临，居民财富管理需求
+发布时间：2026年06月06日 15:23 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-4月13日，富国基金迎来成立27周年。
-
-自1999年成立以来，富国基金始终扎根资产管理本源，坚守“以持有人利益为先”的核心理念，以专业能力服务居民财富管理与实体经济发展。
-
-Wind数据显示，截至2025年末，富国基金为投资者累计盈利超2050亿元，服务客户突破1.39亿户。
-
-随着公募基金高质量发展行动方案的持续深化，行业发展方向进一步明晰。
-
-与此同时，低利率时代来临，居民财富管理需求加速向多元化、净值化方向演进；新质生产力加速培育，对金融资源配置提出更高要求。
-
-面对新机遇和挑战，富国基金以“三驾马车”的战略格局为依托，推动权益、固收、量化三大业务协同发力，持续锻造平台化、体系化的长期投资能力，在高质量发展新征程中书写自己的答卷。
-
-深耕投研主业，以均衡布局夯实长期回报能力 公募基金高质量发展的核心，在于恪守信义义务、以投资者为本，推动行业从规模扩张转向价值创造与回报提升。
-
-富国基金紧扣行业导向，在投研能力建设、业务均衡发展、投资者获得感三大维度扎实深耕。
+发布时间：2026年06月06日 15:23 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [国晟科技，浑身是谜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:32 - [专家学者南京共商生态文明传播新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:35 - [新加坡第一季度经济增长放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:39 - [创业板增设第四套上市标准 更好支持优质创新企业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:21 - [原油：油价下挫 美伊和谈预期缓解供应担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:22 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:43 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:35 - [Revolution Medicines胰腺癌药物取得成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:46 - [甘肃省酒泉市：民族团结与经济发展同频共振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:40 - [中天策略:4月14日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:44 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:23 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:26 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:36 - [今年以来地方债发行节奏提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:28 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:52 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:31 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:38 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:52 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:40 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:29 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:26 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:51 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:46 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:32 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:35 - [Gucci全球首席营销官发肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:26 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [海南文昌积极打造中国首个商业航天卫星数据加工贸易区](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [东亚银行发行149.27万股代息股份](http://www.share.minike.top/Article/details/569942265052.shtml)
-- 2026-06-29 11:42 - [尾盘，A股突然异动！大面积涨停！外围，传来利好](http://www.blog.minike.top/Article/details/756556.shtml)
-- 2026-06-29 11:38 - [中国工商银行深圳分行原党委委员、副行长姚玉平接受纪律审查和监察调查](http://www.share.kurohicncr.top/Article/details/07849.shtml)
-- 2026-06-29 11:44 - [世界正向东看，访华潮折射时代大势](http://www.blog.kurohicncr.top/Article/details/718127633584.shtml)
-- 2026-06-29 11:25 - [刚刚，利好来了！直线爆拉，中东大消息！](http://www.blog.kurohicncr.top/Article/details/374501.shtml)
-- 2026-06-29 11:22 - [英国财政大臣抨击美国贸然发动对伊战争是愚蠢之举](http://www.blog.kurohicncr.top/Article/details/63732.shtml)
-- 2026-06-29 11:25 - [中美“乒乓外交”55周年纪念活动在沪举行 亲历者冀两国青年接续友谊](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [中国科大先研院孵化科技企业362家 成果转化走上“快车道”](http://www.blog.minike.top/Article/details/9190157.shtml)
-- 2026-06-29 11:25 - [王沪宁会见越共中央总书记、国家主席苏林](http://www.share.minike.top/Article/details/0422236192.shtml)
-- 2026-06-29 11:41 - [特朗普猛烈抨击教皇利奥十四世对美外交政策的批评](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [修好政德才能出好政绩（思想纵横）](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [习近平会见西班牙首相桑切斯：共同捍卫真正的多边主义 守护全球和平与发展](http://www.share.kurohicncr.top/Article/details/816961.shtml)
-- 2026-06-29 11:27 - [价格大涨约50%！家电业部分塑料从进口转向国内供应](http://www.blog.minike.top/Article/details/18192629.shtml)
-- 2026-06-29 11:23 - [西班牙首相：世界离不开中国](http://www.share.minike.top/Article/details/87997378.shtml)
+- 2026-06-29 11:22 - [Gucci全球首席营销官发肖战](http://www.share.minike.top/Article/details/191459609.shtml)
+- 2026-06-29 11:49 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/0544156.shtml)
+- 2026-06-29 11:32 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/511162614335.shtml)
+- 2026-06-29 11:39 - [白玉兰下沉市场](https://www.blog.kurohicncr.top/Article/details/646707.shtml)
+- 2026-06-29 11:41 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/199544.shtml)
+- 2026-06-29 11:45 - [世界杯用球成部分门将噩梦](https://www.share.minike.top/Article/details/84348516437.shtml)
+- 2026-06-29 11:40 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/171263.shtml)
+- 2026-06-29 11:26 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/438124732.shtml)
+- 2026-06-29 11:35 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.kurohicncr.top/Article/details/6904767.shtml)
+- 2026-06-29 11:40 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/3396125.shtml)
+- 2026-06-29 11:44 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.minike.top/Article/details/0766237.shtml)
+- 2026-06-29 11:49 - [温峥嵘直播回应恶评](http://www.share.minike.top/Article/details/22244487.shtml)
+- 2026-06-29 11:37 - [加拿大92分钟绝杀南非](http://www.share.kurohicncr.top/Article/details/599233504001.shtml)
+- 2026-06-29 11:24 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.share.kurohicncr.top/Article/details/01653.shtml)
+- 2026-06-29 11:47 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/876940770.shtml)

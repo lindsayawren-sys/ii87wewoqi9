@@ -1,47 +1,50 @@
-# 网易云音乐于4月14日斥资1499.7万港元回购12.32万股
+# 沃顿科技：公司持续看好海水淡化、特种分离及资源提纯等领域
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-网易云音乐（09899）发布公告，于2026年4月14日该公司斥资1499.7万港元回购12.32万股，回购价格为每股120.2-124.8港元。责任编辑：卢昱君
+证券日报网6月5日讯 ，沃顿科技在接受调研者提问时表示，公司持续看好海水淡化、特种分离及资源提纯等领域。就市场关注的超纯水领域，公司正积极推进进口替代，产品性能取得显著进步并已实现应用，目前占总营收比例较小。整体看，传统化工领域与海水淡化仍是当前主要方向。（文章来源：证券日报）
 
 ## 正文
 
-网易云音乐（09899）发布公告，于2026年4月14日该公司斥资1499.7万港元回购12.32万股，回购价格为每股120.2-124.8港元。
+证券日报网6月5日讯 ，沃顿科技在接受调研者提问时表示，公司持续看好海水淡化、特种分离及资源提纯等领域。
 
-责任编辑：卢昱君
+就市场关注的超纯水领域，公司正积极推进进口替代，产品性能取得显著进步并已实现应用，目前占总营收比例较小。
+
+整体看，传统化工领域与海水淡化仍是当前主要方向。
+
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:39 - [两面针：公司目前已布局并推出电动牙刷产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:34 - [新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:32 - [A股指数收红！锂矿板块午后放量拉升！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:19 - [日本邮船采用3D技术设计建造新一代CTV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:23 - [400辆网约车百余次故障？电动汽车质量纠纷该找谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:30 - [Anthropic联合创始人：正与特朗普政府讨论下一个人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:19 - [京津冀定向挑战赛天津落幕 四百余名选手花海寻春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:26 - [巴基斯坦防长称美伊谈判将很快重启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:42 - [兴业证券：首予保利置业增持评级 毛利率有望企稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:20 - [远大医药盘中涨超4% 重磅核药SIR-Spheres®钇\[90Y\]微球注射液再度迎来里程碑进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:42 - [华尔街行情向好，摩根大通固定收益与投行业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:42 - [依必安派特亮相2026中国制冷展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:32 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:38 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:28 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:35 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:45 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:36 - [特里：法国是世界杯夺冠热门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:31 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:26 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:30 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:36 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:44 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:41 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](http://www.blog.kurohicncr.top/Article/details/984678872.shtml)
-- 2026-06-29 11:47 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](http://www.share.kurohicncr.top/Article/details/32238.shtml)
-- 2026-06-29 11:21 - [违规超量投放共享自行车，哈啰公司被约谈](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [5年亏超120亿，“胖改”难救永辉超市](http://www.blog.kurohicncr.top/Article/details/8976735243.shtml)
-- 2026-06-29 11:35 - [CoreMarine与Jumbo Offshore合作开展阿根廷FLNG安装与连接项目](http://www.blog.kurohicncr.top/Article/details/135332.shtml)
-- 2026-06-29 11:28 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](http://www.share.minike.top/Article/details/114436631803.shtml)
-- 2026-06-29 11:38 - [帝王国际投资：清盘呈请获撤回](http://www.share.minike.top/Article/details/1935920946.shtml)
-- 2026-06-29 11:24 - [美媒：若美伊重返谈判桌 万斯将再次率团](http://www.share.minike.top/Article/details/37260.shtml)
-- 2026-06-29 11:32 - [ATFX汇市前瞻:褐皮书与PPI数据来袭 G20与原油月报本周发布](http://www.share.kurohicncr.top/Article/details/87725090.shtml)
-- 2026-06-29 11:46 - [乌军对克里米亚发动大规模袭击](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](http://www.share.minike.top/Article/details/6711416171.shtml)
-- 2026-06-29 11:21 - [对冲基金资本正重塑拥有180年历史的保险模式](http://www.blog.minike.top/Article/details/146351102187.shtml)
-- 2026-06-29 11:22 - [能源价格回落后 交易员下调对欧洲央行加息的押注](http://www.blog.minike.top/Article/details/219554514131.shtml)
-- 2026-06-29 11:48 - [周黑鸭于4月13日斥资149.61万港元回购94.1万股](http://www.blog.minike.top/Article/details/99657396.shtml)
-- 2026-06-29 11:28 - [公用事业公司计划未来五年投入1.4万亿美元，助力人工智能热潮发展](http://www.blog.minike.top/Article/details/272550044.shtml)
+- 2026-06-29 11:27 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/2254445116.shtml)
+- 2026-06-29 11:29 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/499672099710.shtml)
+- 2026-06-29 11:29 - [唐艺昕女儿接唐艺昕回家](https://www.blog.kurohicncr.top/Article/details/922260696923.shtml)
+- 2026-06-29 11:41 - [林诗栋晋级WTT美国大满贯男单32强](https://www.share.kurohicncr.top/Article/details/678714451713.shtml)
+- 2026-06-29 11:44 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/10251042698.shtml)
+- 2026-06-29 11:47 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/51911780213.shtml)
+- 2026-06-29 11:41 - [唐艺昕女儿接唐艺昕回家](http://www.share.kurohicncr.top/Article/details/3516458167.shtml)
+- 2026-06-29 11:35 - [线路错接女子替7户邻居交17年电费](http://www.share.minike.top/Article/details/34235.shtml)
+- 2026-06-29 11:47 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/85317816128.shtml)
+- 2026-06-29 11:49 - [我和我的家乡](http://www.blog.minike.top/Article/details/4841166778.shtml)
+- 2026-06-29 11:47 - [宜宾5.5级地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/9419735.shtml)
+- 2026-06-29 11:49 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/4708570.shtml)
+- 2026-06-29 11:28 - [岭南电影为何迎来“南方热”](https://www.share.kurohicncr.top/Article/details/27033369.shtml)
+- 2026-06-29 11:26 - [流金岁月](https://www.share.minike.top/Article/details/605659713.shtml)
+- 2026-06-29 11:34 - [某高校学生被辅导员等人扭送至公安](https://www.share.minike.top/Article/details/801069428.shtml)

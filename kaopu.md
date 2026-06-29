@@ -1,61 +1,54 @@
-# 郑州银行12名董高离开，赵飞省了一大笔薪酬
+# 万车级汽车运输船“格罗灯塔”轮在沪整装待发 将于6月6日开启首航
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-文/瑞财经 许淑敏 2025年，郑州银行的年度关键词无疑是“变动”。 瑞财经说过几次了，过去一段时间，郑州银行的董事、高管变动频繁。 最新的财报显示，2025年，董事、高级管理人员变动就高达20次，其中，12名董高离任了。 非执行董事王丹、王世豪，以及独立非执行董事李燕燕、李淑贤、宋科均因为任期届满离任。 郑州银行离任了三名行长助理李红、刘久庆、李磊，还有三名副行长傅春乔、郭志
+中新网上海6月5日电 (记者 陈静)5日，上海外高桥造船有限公司(下称：外高桥造船)建造的首艘万车级汽车运输船“格罗灯塔”轮，提前办妥出境手续，将于6日开启首航。 作为首制10800车LNG双燃料汽车运输船，“格罗灯塔”轮的成功交付，标志着外高桥造船正式进入万车级汽车运输船建造新阶段。 据悉，该船总长230米、型宽40米，设有14层车辆甲板，其中包括5层液压可调活动甲板，最大载
 
 ## 正文
 
-文/瑞财经 许淑敏 2025年，郑州银行的年度关键词无疑是“变动”。
+中新网上海6月5日电 (记者 陈静)5日，上海外高桥造船有限公司(下称：外高桥造船)建造的首艘万车级汽车运输船“格罗灯塔”轮，提前办妥出境手续，将于6日开启首航。
 
-瑞财经说过几次了，过去一段时间，郑州银行的董事、高管变动频繁。
+作为首制10800车LNG双燃料汽车运输船，“格罗灯塔”轮的成功交付，标志着外高桥造船正式进入万车级汽车运输船建造新阶段。
 
-最新的财报显示，2025年，董事、高级管理人员变动就高达20次，其中，12名董高离任了。
+据悉，该船总长230米、型宽40米，设有14层车辆甲板，其中包括5层液压可调活动甲板，最大载车量达到10800辆，可高效装载乘用车、重型商用车以及新能源车辆等多种车型，具备极强的货物适配能力和运营灵活性。
 
-非执行董事王丹、王世豪，以及独立非执行董事李燕燕、李淑贤、宋科均因为任期届满离任。
+为保障新船顺利首航，外高桥边检站“量身定制”服务清单，组建专项勤务小组，为新造船舶交付手续申办、船体检查等提供“一船一策”精细化查验举措，通过提前办理手续、窗口前移一线、优化查验流程等，大幅压缩通关时间，保障船舶高效出境。
 
-郑州银行离任了三名行长助理李红、刘久庆、李磊，还有三名副行长傅春乔、郭志彬、孙海刚。
-
-另外，正式履职行长仅一年多时间的李红，也于今年2月官宣了离任。
-
-他们离任的原因，包括工作原因、身体原因、个人原因等，没有说得太过具体。
-
-之前讨论大批董高离任的影响，或说到内部震荡，业务待调整，或说到管理层人员不足，待补充新人。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [“邮储银行号”遥感卫星升空！银行为何接力放卫星？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:28 - [国家安全“大事”，跟普通人有什么关系？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:34 - [习近平会见西班牙首相桑切斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:46 - [企业加速入驻 中国首个大模型创新生态社区“AI磁力”增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:41 - [国晟科技，浑身是谜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:22 - [专家学者南京共商生态文明传播新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:42 - [新加坡第一季度经济增长放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:23 - [创业板增设第四套上市标准 更好支持优质创新企业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:27 - [原油：油价下挫 美伊和谈预期缓解供应担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:33 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:42 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:26 - [Revolution Medicines胰腺癌药物取得成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:22 - [甘肃省酒泉市：民族团结与经济发展同频共振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:28 - [中天策略:4月14日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:26 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:28 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:51 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:48 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:30 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:23 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:44 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:35 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:41 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:46 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:38 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:33 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:42 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:39 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:50 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:39 - [韩国3月ICT出口额达435亿美元，同比增长逾一倍](http://www.blog.kurohicncr.top/Article/details/948555.shtml)
-- 2026-06-29 11:22 - [探馆消博会|未来生活，能有多酷？](http://www.blog.minike.top/Article/details/880703840.shtml)
-- 2026-06-29 11:31 - [“海上名山”新潮出圈迎园博 浙江乐清全域联动谱文旅新篇](http://www.blog.kurohicncr.top/Article/details/2274103.shtml)
-- 2026-06-29 11:32 - [特朗普称若中方向伊朗供武就加征关税 中方回应](http://www.blog.kurohicncr.top/Article/details/2877973.shtml)
-- 2026-06-29 11:25 - [海南文昌积极打造中国首个商业航天卫星数据加工贸易区](http://www.blog.minike.top/Article/details/984173185868.shtml)
-- 2026-06-29 11:46 - [东亚银行发行149.27万股代息股份](http://www.share.minike.top/Article/details/8715230591.shtml)
-- 2026-06-29 11:37 - [尾盘，A股突然异动！大面积涨停！外围，传来利好](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [中国工商银行深圳分行原党委委员、副行长姚玉平接受纪律审查和监察调查](http://www.blog.kurohicncr.top/Article/details/14713.shtml)
-- 2026-06-29 11:32 - [世界正向东看，访华潮折射时代大势](http://www.share.kurohicncr.top/Article/details/33530.shtml)
-- 2026-06-29 11:45 - [刚刚，利好来了！直线爆拉，中东大消息！](http://www.share.kurohicncr.top/Article/details/24840.shtml)
-- 2026-06-29 11:48 - [英国财政大臣抨击美国贸然发动对伊战争是愚蠢之举](http://www.share.minike.top/Article/details/2940884755.shtml)
-- 2026-06-29 11:34 - [中美“乒乓外交”55周年纪念活动在沪举行 亲历者冀两国青年接续友谊](http://www.share.kurohicncr.top/Article/details/896707652.shtml)
-- 2026-06-29 11:41 - [中国科大先研院孵化科技企业362家 成果转化走上“快车道”](http://www.share.minike.top/Article/details/9328461341.shtml)
-- 2026-06-29 11:40 - [王沪宁会见越共中央总书记、国家主席苏林](http://www.share.kurohicncr.top/Article/details/80469720902.shtml)
-- 2026-06-29 11:46 - [特朗普猛烈抨击教皇利奥十四世对美外交政策的批评](http://www.blog.minike.top/Article/details/8346006.shtml)
+- 2026-06-29 11:32 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/17899.shtml)
+- 2026-06-29 11:46 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.kurohicncr.top/Article/details/5446206662.shtml)
+- 2026-06-29 11:46 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/6750251400.shtml)
+- 2026-06-29 11:32 - [张杰下沉市场](http://www.share.kurohicncr.top/Article/details/84676.shtml)
+- 2026-06-29 11:31 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/6030163281.shtml)
+- 2026-06-29 11:35 - [男子撸铁后擦汗 脸部感染“脚气”](http://www.blog.kurohicncr.top/Article/details/1856547575.shtml)
+- 2026-06-29 11:43 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/78135805.shtml)
+- 2026-06-29 11:43 - [这位天才台湾人第一次来大陆，开智了](http://www.share.minike.top/Article/details/21631376.shtml)
+- 2026-06-29 11:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/225074003.shtml)
+- 2026-06-29 11:27 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/833353656.shtml)
+- 2026-06-29 11:51 - [女心理师](http://www.share.kurohicncr.top/Article/details/8963349.shtml)
+- 2026-06-29 11:47 - [异世界一点都不好玩！](http://www.share.kurohicncr.top/Article/details/64944003.shtml)
+- 2026-06-29 11:49 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/6425308276.shtml)
+- 2026-06-29 11:51 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/86820264.shtml)
+- 2026-06-29 11:42 - [网友偶遇胡军和李乃文](https://www.share.minike.top/Article/details/431336972.shtml)

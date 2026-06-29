@@ -1,60 +1,58 @@
-# 协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径
+# 美国劳动力市场保持强韧 高盛不再预期美联储今年会降息
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-4月11日，长轻集团与北京协和医院合作的“4816营养食疗疗法临床试验”项目启动会在京召开，北京协和医院主任医师刘鹏举、长轻营养食疗副总经理王宗良、长轻首席营养师高丽萍出席活动并发表讲话。该项目现已正式启动受试者招募，标志着院企合作在营养食疗领域迈出实质性一步。 该试验全称为《4816营养食疗疗法对超重和肥胖人群体重以及相关指标控制效果的临床效果研究》，采用随机、盲法对照设计，
+由于劳动力市场强于预期，高盛经济学家不再预期美联储今年会降息。 该行将美联储最后两次降息的预测时点从之前的2026年12月和2027年3月推后至2027年6月和12。不过高盛首席美国经济学家David Mericle在周五的报告中写道，鉴于通胀“不太可能自我维持”，美联储加息的可能性依然很小。 此前公布的美国5月非农数据超出预期，表明劳动力市场具有韧性，推高了市场对美联储今年将
 
 ## 正文
 
-4月11日，长轻集团与北京协和医院合作的“4816营养食疗疗法临床试验”项目启动会在京召开，北京协和医院主任医师刘鹏举、长轻营养食疗副总经理王宗良、长轻首席营养师高丽萍出席活动并发表讲话。
+由于劳动力市场强于预期，高盛经济学家不再预期美联储今年会降息。
 
-该项目现已正式启动受试者招募，标志着院企合作在营养食疗领域迈出实质性一步。
+该行将美联储最后两次降息的预测时点从之前的2026年12月和2027年3月推后至2027年6月和12。
 
-该试验全称为《4816营养食疗疗法对超重和肥胖人群体重以及相关指标控制效果的临床效果研究》，采用随机、盲法对照设计，将长轻自主研发的“4816营养食疗”与标准限能量饮食对比，系统评估其对体重、血糖、血脂、炎症标志物等指标的改善效果及安全性。
+不过高盛首席美国经济学家David Mericle在周五的报告中写道，鉴于通胀“不太可能自我维持”，美联储加息的可能性依然很小。
 
-启动会上，项目主要研究者、北京协和医院主任医师刘鹏举指出，此次合作是多方协同、高效推进的成果，项目的顺利启动离不开长轻的全力支持与高效协调。
+此前公布的美国5月非农数据超出预期，表明劳动力市场具有韧性，推高了市场对美联储今年将加息以遏制伊朗战争所引发通胀压力的预期。
 
-他代表研究团队郑重承诺：将在研究全程坚守严谨的科研态度，恪守严格的伦理标准，全方位保障受试者权益，确保项目科学规范、保质保量地顺利实施，最终形成具有循证价值的科研结果。
+债券投资者预计美联储将在12月底前加息25个基点，引发纳斯达克100指数周五大跌5%。
 
-在此基础上，长轻营养食疗副总经理王宗良进一步阐述了双方合作的初心与愿景。
+高盛仍认为加息的可能性不大，但考虑到美联储官员采取了更偏鹰的立场，且经济活动依然保持韧性，把小幅加息的概率从10%调高到了20%。
 
-他表示，此次合作源于对“健康中国”事业的共同担当与对科研精神的一致追求。
+报告称，美联储的“长期点阵图在过去一年基本保持稳定，大多数参与者仍将当前政策立场描述为略具限制性，预计一旦通胀回落，政策将进一步正常化”。
 
-长轻愿成为守护国民健康的重要补充力量，希望此次项目能为慢病患者开辟安全有效的非药物干预路径，为行业建立服务标准，并通过科研验证助力营养食疗走向系统化与规模化。
+该行的基线预测仍是明年有两次25个基点的降息，但预计概率仅有30%，低于之前的40%。
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [特朗普称伊朗致电美方说希望达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:23 - [总台海峡时评丨十项促进两岸交流合作新政将给台胞带来实实在在的和平利好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:20 - [郑州银行12名董高离开，赵飞省了一大笔薪酬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:28 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:39 - [中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:41 - [巴西非遗乐团走进北京丰台奏响友谊乐章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:33 - [富国基金27周年：深耕专业 迈向高质量发展新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:35 - [优彩资源人事调整：戴泽新之女戴梦茜卸任董秘，投行出身赖嫣珩接棒 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:44 - [新加坡金管局上调汇率区间斜率 预计2026年核心通胀率为1.5%-2.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:33 - [“邮储银行号”遥感卫星升空！银行为何接力放卫星？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:41 - [国家安全“大事”，跟普通人有什么关系？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:23 - [习近平会见西班牙首相桑切斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:31 - [企业加速入驻 中国首个大模型创新生态社区“AI磁力”增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:24 - [国晟科技，浑身是谜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:47 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:35 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:48 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:36 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:41 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:33 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:28 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:26 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:50 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:37 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:30 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [海关总署：今年一季度我国货物进出口同比增长15%](http://www.blog.kurohicncr.top/Article/details/69344970650.shtml)
-- 2026-06-29 11:22 - [从三分薄地到致富产业 山西大同黄花全产业链产值达25亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [视频 | 布林肯:霍尔木兹海峡问题就是特朗普搞出来的，现在纵火犯自己跑去灭火](http://www.share.minike.top/Article/details/050462.shtml)
-- 2026-06-29 11:36 - [中金：维持腾讯控股“跑赢行业”评级 目标价666港元](http://www.share.kurohicncr.top/Article/details/861178.shtml)
-- 2026-06-29 11:43 - [特朗普与昔日盟友梅洛尼翻脸 称她“辜负了美国”](http://www.blog.kurohicncr.top/Article/details/142314522.shtml)
-- 2026-06-29 11:38 - [不做下一个Temu：小红书Redshop的差异化突围之战](http://www.share.minike.top/Article/details/55808.shtml)
-- 2026-06-29 11:43 - [中天策略:4月13日市场分析](http://www.share.minike.top/Article/details/0632305.shtml)
-- 2026-06-29 11:23 - [第六届中国国际消费品博览会启幕 超3400个品牌参展](http://www.share.kurohicncr.top/Article/details/855624.shtml)
-- 2026-06-29 11:32 - [安徽合肥加速竞逐未来产业](http://www.blog.minike.top/Article/details/856669011196.shtml)
-- 2026-06-29 11:23 - [韩国3月ICT出口额达435亿美元，同比增长逾一倍](http://www.share.kurohicncr.top/Article/details/689669398.shtml)
-- 2026-06-29 11:23 - [探馆消博会|未来生活，能有多酷？](http://www.blog.minike.top/Article/details/554773277.shtml)
-- 2026-06-29 11:39 - [“海上名山”新潮出圈迎园博 浙江乐清全域联动谱文旅新篇](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [特朗普称若中方向伊朗供武就加征关税 中方回应](http://www.share.minike.top/Article/details/342220.shtml)
-- 2026-06-29 11:42 - [海南文昌积极打造中国首个商业航天卫星数据加工贸易区](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [东亚银行发行149.27万股代息股份](http://www.share.minike.top/Article/details/831488389158.shtml)
+- 2026-06-29 11:47 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/661859075430.shtml)
+- 2026-06-29 11:42 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/79192419.shtml)
+- 2026-06-29 11:50 - [世界杯用球成部分门将噩梦](https://www.share.kurohicncr.top/Article/details/0101795144.shtml)
+- 2026-06-29 11:32 - [媒体：湖人把薪资空间玩明白了](http://www.blog.kurohicncr.top/Article/details/99186.shtml)
+- 2026-06-29 11:30 - [马斯克也站到了光里](https://www.share.kurohicncr.top/Article/details/38082783.shtml)
+- 2026-06-29 11:47 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/3459075913.shtml)
+- 2026-06-29 11:49 - [美国230斤男孩在家中去世父母被捕](https://www.share.minike.top/Article/details/773564.shtml)
+- 2026-06-29 11:37 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/754685411744.shtml)
+- 2026-06-29 11:43 - [中国U17男篮78-87加拿大U17男篮](https://www.share.kurohicncr.top/Article/details/302012732.shtml)
+- 2026-06-29 11:47 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/448989.shtml)
+- 2026-06-29 11:30 - [俄称继续在顿涅茨克两城镇推进](http://www.blog.minike.top/Article/details/8283153425.shtml)
+- 2026-06-29 11:39 - [高考志愿今起开始填报](http://www.share.kurohicncr.top/Article/details/834510724468.shtml)
+- 2026-06-29 11:22 - [张一山说杨紫早该拿奖了](https://www.share.kurohicncr.top/Article/details/3040963.shtml)
+- 2026-06-29 11:23 - [加拿大92分钟绝杀南非](https://www.share.kurohicncr.top/Article/details/19211149.shtml)
+- 2026-06-29 11:25 - [委内瑞拉地震死亡人数升至1450人](https://www.share.kurohicncr.top/Article/details/709031499373.shtml)

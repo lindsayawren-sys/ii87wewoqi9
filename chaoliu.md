@@ -1,59 +1,61 @@
-# 贝森特：关税水平或在7月初前恢复
+# 制冷剂延续高位震荡！化工板块冲高回落，华宝基金化工ETF（516020）小幅收红！75亿主力资金加码
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-【相关阅读】美国海关4月20日将启动关税退款 美国财政部长贝森特表示，特朗普的关税水平可能会在7月初前恢复到最高法院废除多项征收令之前的水平。在最高法院裁定特朗普利用紧急权力加征早期关税属于违宪后，贝森特正寻求利用不同的授权（如301调查等）来重建其“关税墙”。贝森特提到，虽然很难说对伊战争的后果何时会“波及”美国经济，但目前经济状况依然强劲。他认为，美国今年的增长率仍能轻易超
+化工板块周五（6月5日）冲高回落，反映化工板块整体走势的化工ETF华宝（516020）开盘后震荡拉升，盘中场内价格最高涨幅达到2.42%，午后回落，最终收涨0.35%。 成份股方面，钾肥、石化、氟化工等板块部分个股涨幅居前。截至收盘，昊华科技、亚钾国际双双涨超6%，瑞丰新材、新凤鸣、荣盛石化等亦涨幅居前。 资金面上，化工板块周五获主力资金大举涌入。数据显示，截至收盘，基础化工板
 
 ## 正文
 
-【相关阅读】美国海关4月20日将启动关税退款 美国财政部长贝森特表示，特朗普的关税水平可能会在7月初前恢复到最高法院废除多项征收令之前的水平。
+化工板块周五（6月5日）冲高回落，反映化工板块整体走势的化工ETF华宝（516020）开盘后震荡拉升，盘中场内价格最高涨幅达到2.42%，午后回落，最终收涨0.35%。
 
-在最高法院裁定特朗普利用紧急权力加征早期关税属于违宪后，贝森特正寻求利用不同的授权（如301调查等）来重建其“关税墙”。
+成份股方面，钾肥、石化、氟化工等板块部分个股涨幅居前。
 
-贝森特提到，虽然很难说对伊战争的后果何时会“波及”美国经济，但目前经济状况依然强劲。
+截至收盘，昊华科技、亚钾国际双双涨超6%，瑞丰新材、新凤鸣、荣盛石化等亦涨幅居前。
 
-他认为，美国今年的增长率仍能轻易超过3%甚至3.5%。
+资金面上，化工板块周五获主力资金大举涌入。
 
-他还补充称，剔除波动较大的能源和食品价格的核心通胀率持续下降是一个好迹象。
+数据显示，截至收盘，基础化工板块单日获主力资金净流入额高达75.28亿元，净流入额在30个中信一级行业中高居第3。
 
-贝森特表示：“我认为美联储在通胀问题上一直判断错误，核心通胀正在下降。
+细分行业消息面上，制冷剂市场整体延续高位震荡偏强的走势。
 
-如果他们想等到数据更清晰再采取行动，我表示理解，但那将意味着利率应该下调更多。
+制冷剂R22市场维持偏强态势，价格中枢稳中上移，供给端受二代制冷剂配额削减政策的硬性约束，厂家依托配额优势普遍执行控量保价策略，渠道流通以小包装为主。
 
-”责任编辑：张恒星
+制冷剂R134a市场延续高位向上整理走势，价格底部支撑稳固。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:33 - [多国留学青年走进浙江丽水 沉浸式感受侨乡发展新貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:29 - [四川荣县回应“男子献血十年要求免诊查费遭拒”：医院已当面致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:22 - [印尼的塑料袋与万里之外的战火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:35 - [花旗集团披露第四季度私募信贷敞口220亿美元 对BDC投入比例很低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:41 - [Anthropic据悉收到多家风投公司的投资提议，估值达8000亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:44 - [井泉大使会见菲律宾司法部长弗雷德里克·维达](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:43 - [苏富比向卖家提供7%利息以延后支付拍卖款项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:39 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:39 - [今年以来多个细分赛道ETF实现大幅净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:45 - [浙江杭州：智能游艇畅游富春江](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:30 - [中国清洁技术优势扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:38 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:51 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:41 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:52 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:47 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:35 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:40 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:37 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:48 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:22 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:29 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:44 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:32 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:40 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:25 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [参议员Scott：沃什的美联储主席提名确认听证会将于下周举行](http://www.blog.minike.top/Article/details/358657.shtml)
-- 2026-06-29 11:20 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.share.minike.top/Article/details/98517910403.shtml)
-- 2026-06-29 11:46 - [大众汽车集团交付量下滑，受中美市场疲软拖累](http://www.blog.kurohicncr.top/Article/details/0706125071.shtml)
-- 2026-06-29 11:29 - [海泰发展财务造假被罚，投资者索赔条件更新](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书](http://www.blog.kurohicncr.top/Article/details/227107959848.shtml)
-- 2026-06-29 11:45 - [戴尔和惠普股价大涨 据报英伟达正在洽购一家大企业](http://www.share.kurohicncr.top/Article/details/0813712797.shtml)
-- 2026-06-29 11:39 - [辽宁营商环境的“民生温度”与“投资信心”](http://www.blog.kurohicncr.top/Article/details/54860836566.shtml)
-- 2026-06-29 11:31 - [网易云音乐于4月14日斥资1499.7万港元回购12.32万股](http://www.share.kurohicncr.top/Article/details/97437234148.shtml)
-- 2026-06-29 11:29 - [荷兰首相将与特朗普讨论阿斯麦出口限制](http://www.share.kurohicncr.top/Article/details/34046270.shtml)
-- 2026-06-29 11:21 - [特朗普重申伊朗不能拥有核武器](http://www.share.minike.top/Article/details/6846016.shtml)
-- 2026-06-29 11:38 - [科技赋能防控秸秆焚烧 黑龙江“守田行动”筑牢春耕防线](http://www.share.minike.top/Article/details/56710870.shtml)
-- 2026-06-29 11:37 - [谷歌最新Gemini升级预示更大规模的机器人布局](http://www.blog.minike.top/Article/details/97754784.shtml)
-- 2026-06-29 11:38 - [上交所就龙元建设相关事项下发监管工作函](http://www.share.minike.top/Article/details/437828990.shtml)
-- 2026-06-29 11:41 - [王毅同巴基斯坦副总理兼外长达尔通电话](http://www.blog.minike.top/Article/details/362598377587.shtml)
-- 2026-06-29 11:47 - [五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联](http://www.blog.kurohicncr.top/Article/details/76661896.shtml)
+- 2026-06-29 11:41 - [国乒男单资格赛全员出局](http://www.blog.minike.top/Article/details/08879607.shtml)
+- 2026-06-29 11:23 - [为何加快“扩编”成欧盟战略要务](http://www.blog.minike.top/Article/details/5452359495.shtml)
+- 2026-06-29 11:34 - [男子月薪五千卖房借贷给女友转账百万](http://www.blog.kurohicncr.top/Article/details/589177.shtml)
+- 2026-06-29 11:35 - [某高校学生被辅导员等人扭送至公安](https://www.blog.minike.top/Article/details/1331578331.shtml)
+- 2026-06-29 11:38 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/35477354606.shtml)
+- 2026-06-29 11:26 - [本周做什么都顺的星座](http://www.blog.kurohicncr.top/Article/details/5508409260.shtml)
+- 2026-06-29 11:40 - [中国U17男篮78-87加拿大U17男篮](http://www.blog.minike.top/Article/details/04286.shtml)
+- 2026-06-29 11:32 - [乌拉圭出局之路](http://www.share.minike.top/Article/details/242634689539.shtml)
+- 2026-06-29 11:26 - [退休化学教授帮医药研发人员制毒](http://www.share.kurohicncr.top/Article/details/3323098.shtml)
+- 2026-06-29 11:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/7184013.shtml)
+- 2026-06-29 11:26 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/5098141126.shtml)
+- 2026-06-29 11:40 - [韩国队是怎么把自己“作死”的](https://www.blog.kurohicncr.top/Article/details/71680.shtml)
+- 2026-06-29 11:29 - [极限挑战第一季](http://www.blog.minike.top/Article/details/20674960.shtml)
+- 2026-06-29 11:26 - [吴海燕兰西雅漫步复兴岛](https://www.share.kurohicncr.top/Article/details/7808974501.shtml)
+- 2026-06-29 11:46 - [扫黑风暴](http://www.blog.minike.top/Article/details/08550624.shtml)

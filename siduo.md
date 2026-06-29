@@ -1,45 +1,59 @@
-# 中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月
+# 今日右玉绿生金
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-4月14日金融一线消息，为保持银行体系流动性充裕，2026年4月15日，中国人民银行将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为6个月（183天），到期日为2026年10月15日（遇节假日顺延）。 责任编辑：李琳琳
+今日右玉绿生金(树立和践行正确政绩观·一线见闻) 来山西省右玉县的人，大多都要去城南的南山森林公园转转。站在公园高处，只见山峰苍翠、林海荡漾。 “过去的南山，山坡陡峭、乱石遍野。”右玉县林业局局长沈强介绍，“参加义务植树的干部一点一点刨硬土、一块一块搬乱石，在乱石山上种活了一棵棵树……”目前，这里栽植各种树木百万余株，形成九大主题景观区。 70多年前，地处毛乌素沙地天然风口地带
 
 ## 正文
 
-4月14日金融一线消息，为保持银行体系流动性充裕，2026年4月15日，中国人民银行将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为6个月（183天），到期日为2026年10月15日（遇节假日顺延）。
+今日右玉绿生金(树立和践行正确政绩观·一线见闻) 来山西省右玉县的人，大多都要去城南的南山森林公园转转。
 
-责任编辑：李琳琳
+站在公园高处，只见山峰苍翠、林海荡漾。
+
+“过去的南山，山坡陡峭、乱石遍野。
+
+”右玉县林业局局长沈强介绍，“参加义务植树的干部一点一点刨硬土、一块一块搬乱石，在乱石山上种活了一棵棵树……”目前，这里栽植各种树木百万余株，形成九大主题景观区。
+
+70多年前，地处毛乌素沙地天然风口地带的右玉，林木绿化率不足0.3%，曾被称为“最不适宜人类生存的地区”；如今，这里林木绿化率跃升至57%。
+
+2024年，右玉获“新可持续城市与人居环境奖”。
+
+这是一场跨越70多年的绿色接力赛。
+
+新中国成立后，右玉首任县委书记带头跑遍全县村庄，提出治沙种树发展思路，“右玉要想富，就得风沙住；要想风沙住，就得多种树。
 
 ## 相关推荐
 
-- 2026-06-29 11:28 - [习近平会见西班牙首相桑切斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:31 - [企业加速入驻 中国首个大模型创新生态社区“AI磁力”增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:24 - [国晟科技，浑身是谜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:39 - [专家学者南京共商生态文明传播新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:22 - [新加坡第一季度经济增长放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:27 - [创业板增设第四套上市标准 更好支持优质创新企业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:37 - [原油：油价下挫 美伊和谈预期缓解供应担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:45 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:26 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:46 - [Revolution Medicines胰腺癌药物取得成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:21 - [甘肃省酒泉市：民族团结与经济发展同频共振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:44 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:51 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:25 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:29 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:36 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:33 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:26 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:30 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:38 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:31 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:36 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [“海上名山”新潮出圈迎园博 浙江乐清全域联动谱文旅新篇](http://www.share.minike.top/Article/details/98962.shtml)
-- 2026-06-29 11:25 - [特朗普称若中方向伊朗供武就加征关税 中方回应](http://www.share.minike.top/Article/details/931076776.shtml)
-- 2026-06-29 11:40 - [海南文昌积极打造中国首个商业航天卫星数据加工贸易区](http://www.share.minike.top/Article/details/24161073.shtml)
-- 2026-06-29 11:23 - [东亚银行发行149.27万股代息股份](http://www.blog.minike.top/Article/details/59786.shtml)
-- 2026-06-29 11:22 - [尾盘，A股突然异动！大面积涨停！外围，传来利好](http://www.blog.kurohicncr.top/Article/details/308331575.shtml)
-- 2026-06-29 11:23 - [中国工商银行深圳分行原党委委员、副行长姚玉平接受纪律审查和监察调查](http://www.blog.minike.top/Article/details/2320618399.shtml)
-- 2026-06-29 11:39 - [世界正向东看，访华潮折射时代大势](http://www.share.kurohicncr.top/Article/details/7814006697.shtml)
-- 2026-06-29 11:36 - [刚刚，利好来了！直线爆拉，中东大消息！](http://www.blog.minike.top/Article/details/76484.shtml)
-- 2026-06-29 11:25 - [英国财政大臣抨击美国贸然发动对伊战争是愚蠢之举](http://www.share.minike.top/Article/details/0503970109.shtml)
-- 2026-06-29 11:45 - [中美“乒乓外交”55周年纪念活动在沪举行 亲历者冀两国青年接续友谊](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [中国科大先研院孵化科技企业362家 成果转化走上“快车道”](http://www.share.kurohicncr.top/Article/details/769933.shtml)
-- 2026-06-29 11:45 - [王沪宁会见越共中央总书记、国家主席苏林](http://www.share.minike.top/Article/details/554098.shtml)
-- 2026-06-29 11:22 - [特朗普猛烈抨击教皇利奥十四世对美外交政策的批评](http://www.share.kurohicncr.top/Article/details/740189678272.shtml)
-- 2026-06-29 11:22 - [修好政德才能出好政绩（思想纵横）](http://www.blog.kurohicncr.top/Article/details/792154.shtml)
-- 2026-06-29 11:47 - [习近平会见西班牙首相桑切斯：共同捍卫真正的多边主义 守护全球和平与发展](http://www.blog.minike.top/Article/details/675721.shtml)
+- 2026-06-29 11:50 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/47926416.shtml)
+- 2026-06-29 11:32 - [恋与深空女玩家不该被冒犯](http://www.share.minike.top/Article/details/72997.shtml)
+- 2026-06-29 11:42 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.share.kurohicncr.top/Article/details/26499843.shtml)
+- 2026-06-29 11:46 - [美人鱼](http://www.blog.minike.top/Article/details/2701748547.shtml)
+- 2026-06-29 11:36 - [我和我的家乡](http://www.blog.minike.top/Article/details/319288.shtml)
+- 2026-06-29 11:40 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/174179136.shtml)
+- 2026-06-29 11:36 - [向佑说向佐是一生依靠](http://www.blog.minike.top/Article/details/410228882.shtml)
+- 2026-06-29 11:51 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/71059817912.shtml)
+- 2026-06-29 11:34 - [向佑说向佐是一生依靠](https://www.share.kurohicncr.top/Article/details/50868906.shtml)
+- 2026-06-29 11:46 - [温瑞博袁励岑晋级美国大满贯男双16强](http://www.share.minike.top/Article/details/73446995.shtml)
+- 2026-06-29 11:36 - [我们注定是一撮县城葱姜蒜](https://www.blog.kurohicncr.top/Article/details/48756636.shtml)
+- 2026-06-29 11:46 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/80799419812.shtml)
+- 2026-06-29 11:52 - [河南一考生高考703分](https://www.share.minike.top/Article/details/352572891863.shtml)
+- 2026-06-29 11:27 - [一见倾心](https://www.share.kurohicncr.top/Article/details/07864951501.shtml)
+- 2026-06-29 11:46 - [立陶宛为何此时生变](http://www.blog.minike.top/Article/details/673284947838.shtml)

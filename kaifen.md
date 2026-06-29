@@ -1,58 +1,61 @@
-# 重磅数据本周发布，中国经济有望迎“开门红”
+# 国际专家在都江堰见证中国生态惠民的人权实践
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-国家统计局将于4月16日发布一季度GDP增速等国民经济数据。 一季度经济数据发布在即，“十五五”开局之年中国经济能否迎来“开门红”备受关注。 国家统计局将于4月16日发布一季度GDP增速及工业、消费、投资等方面的经济数据。机构预计，一季度经济增速有望小幅回升，但春节假期偏晚对3月生产、消费等形成扰动，部分数据或小幅回落。 国务院总理李强近日主持召开经济形势专家和企业家座谈会时指
+中新社成都6月7日电 (记者 胡默达 岳依桐)站在鱼嘴分水堤前，看着岷江水依两千多年前的设计自动分流，多米尼加共和国外交部人权司司长内拉·保利诺·埃斯特韦斯7日参访都江堰后说，“这不是博物馆里的文物，而是仍在为千万人服务的中国古老智慧结晶。”当日，来自多个国家和地区、国际组织的官员和专家等来到四川都江堰参访。这座全球唯一同时拥有世界文化遗产、世界自然遗产和世界灌溉工程遗产的水利
 
 ## 正文
 
-国家统计局将于4月16日发布一季度GDP增速等国民经济数据。
+中新社成都6月7日电 (记者 胡默达 岳依桐)站在鱼嘴分水堤前，看着岷江水依两千多年前的设计自动分流，多米尼加共和国外交部人权司司长内拉·保利诺·埃斯特韦斯7日参访都江堰后说，“这不是博物馆里的文物，而是仍在为千万人服务的中国古老智慧结晶。
 
-一季度经济数据发布在即，“十五五”开局之年中国经济能否迎来“开门红”备受关注。
+”当日，来自多个国家和地区、国际组织的官员和专家等来到四川都江堰参访。
 
-国家统计局将于4月16日发布一季度GDP增速及工业、消费、投资等方面的经济数据。
+这座全球唯一同时拥有世界文化遗产、世界自然遗产和世界灌溉工程遗产的水利工程，正通过2200多年不曾断流的活水，向世界讲述中国治水智慧与生态惠民的人权故事。
 
-机构预计，一季度经济增速有望小幅回升，但春节假期偏晚对3月生产、消费等形成扰动，部分数据或小幅回落。
+赞比亚公民自由联盟(非政府组织)主席伊萨克·姆万扎表示，这座两千多年前建造的水利工程令人惊叹，并给世界带来了“人类与自然可以和谐共存”的启示。
 
-国务院总理李强近日主持召开经济形势专家和企业家座谈会时指出，经济运行起步有力。
+1872年德国地理学家李希霍芬亦称赞，都江堰灌溉方法之完善，世界各地无与伦比。
 
-他强调，要深刻认识我国经济稳中向好的内在驱动力，深入研判国际经贸格局的未来走向，集中力量办好自己的事，沉着应对各种风险挑战，牢牢把握发展主动权。
+国际社会对这座古代工程的认可，不仅因其“无坝引水、顺应自然”的科学设计，更因它在当代仍在灌溉8市41县(市、区)，滋养着数千万人的生计。
 
-第一财经研究院发布的最新一期“第一财经首席经济学家信心指数”为50.3，连续9个月高于荣枯线。
+姆万扎说，都江堰仍在惠及周边民众，防洪的同时满足土地灌溉的需求，还作为知名旅游景点进一步带动了区域经济发展。
 
-经济学家们认为，在外部不确定性持续扰动的情况下，我国经济一季度开局良好，GDP同比增速将高于去年第四季度4.5%的公布值，预测均值为4.8%。
+埃斯特韦斯则认为，都江堰水利工程展示了中国人在处理发展、民众与自然三者关系时的独特思维。
 
 ## 相关推荐
 
-- 2026-06-29 11:33 - [多国留学青年走进浙江丽水 沉浸式感受侨乡发展新貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:34 - [四川荣县回应“男子献血十年要求免诊查费遭拒”：医院已当面致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:44 - [印尼的塑料袋与万里之外的战火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:37 - [花旗集团披露第四季度私募信贷敞口220亿美元 对BDC投入比例很低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:45 - [Anthropic据悉收到多家风投公司的投资提议，估值达8000亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:39 - [井泉大使会见菲律宾司法部长弗雷德里克·维达](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:19 - [苏富比向卖家提供7%利息以延后支付拍卖款项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:40 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:19 - [今年以来多个细分赛道ETF实现大幅净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:38 - [浙江杭州：智能游艇畅游富春江](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:43 - [中国清洁技术优势扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:45 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:26 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:47 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:46 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:35 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:49 - [神23乘组太空出差满月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:49 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:41 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:27 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:30 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:29 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:41 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:22 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:24 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:46 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.blog.kurohicncr.top/Article/details/475750836.shtml)
-- 2026-06-29 11:29 - [大众汽车集团交付量下滑，受中美市场疲软拖累](http://www.share.kurohicncr.top/Article/details/024421.shtml)
-- 2026-06-29 11:23 - [海泰发展财务造假被罚，投资者索赔条件更新](http://www.blog.kurohicncr.top/Article/details/5234693177.shtml)
-- 2026-06-29 11:26 - [平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [戴尔和惠普股价大涨 据报英伟达正在洽购一家大企业](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [辽宁营商环境的“民生温度”与“投资信心”](http://www.blog.kurohicncr.top/Article/details/2321728.shtml)
-- 2026-06-29 11:26 - [网易云音乐于4月14日斥资1499.7万港元回购12.32万股](http://www.share.kurohicncr.top/Article/details/781117358237.shtml)
-- 2026-06-29 11:37 - [荷兰首相将与特朗普讨论阿斯麦出口限制](http://www.blog.kurohicncr.top/Article/details/970287.shtml)
-- 2026-06-29 11:22 - [特朗普重申伊朗不能拥有核武器](http://www.blog.kurohicncr.top/Article/details/030653.shtml)
-- 2026-06-29 11:41 - [科技赋能防控秸秆焚烧 黑龙江“守田行动”筑牢春耕防线](http://www.blog.kurohicncr.top/Article/details/7249095657.shtml)
-- 2026-06-29 11:28 - [谷歌最新Gemini升级预示更大规模的机器人布局](http://www.blog.minike.top/Article/details/9380866.shtml)
-- 2026-06-29 11:20 - [上交所就龙元建设相关事项下发监管工作函](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [王毅同巴基斯坦副总理兼外长达尔通电话](http://www.share.minike.top/Article/details/85940068.shtml)
-- 2026-06-29 11:37 - [五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联](http://www.share.kurohicncr.top/Article/details/42470958.shtml)
-- 2026-06-29 11:31 - [两面针：公司目前已布局并推出电动牙刷产品](http://www.blog.minike.top/Article/details/281778749907.shtml)
+- 2026-06-29 11:51 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/860653955604.shtml)
+- 2026-06-29 11:48 - [媒体人：警惕日本再次成战争加害国](http://www.share.kurohicncr.top/Article/details/546674759.shtml)
+- 2026-06-29 11:51 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/4044075260.shtml)
+- 2026-06-29 11:25 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/877557.shtml)
+- 2026-06-29 11:27 - [夏粮收购陆续展开 质优价稳购销两旺](https://www.blog.minike.top/Article/details/8208395351.shtml)
+- 2026-06-29 11:51 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/74773.shtml)
+- 2026-06-29 11:35 - [直击宜宾地震：监控剧烈摇晃](http://www.share.kurohicncr.top/Article/details/71865020871.shtml)
+- 2026-06-29 11:23 - [周生如故](http://www.share.minike.top/Article/details/95653574058.shtml)
+- 2026-06-29 11:31 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/605922984052.shtml)
+- 2026-06-29 11:38 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/689011.shtml)
+- 2026-06-29 11:39 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.share.minike.top/Article/details/36926300263.shtml)
+- 2026-06-29 11:29 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/1963328.shtml)
+- 2026-06-29 11:39 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/8294927.shtml)
+- 2026-06-29 11:42 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/61785.shtml)
+- 2026-06-29 11:33 - [加拿大92分钟绝杀](https://www.share.minike.top/Article/details/19601461.shtml)

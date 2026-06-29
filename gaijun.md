@@ -1,52 +1,56 @@
-# 药捷安康-B拟折让约18.00%发行508.5万股配售股份
+# “巧工匠心——华侨博物院藏雕刻精品展”在山西晋中开展
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-药捷安康-B（02617）发布公告，于2026年4月14日（交易时段后），本公司与配售代理订立配售协议，配售代理有条件同意作为本公司的配售代理，按尽力基准促使承配人按每股配售股份57.03港元的配售价购买508.5万股配售股份。 假设于本公告日期至交割日期期间已发行股份数目并无变动，则配售事项项下的508.5万股配售股份相当于本公告日期现有已发行H股数目的约1.67%及现有已发
+中新网晋中6月5日电 (高雨晴 王美晋)“巧工匠心——华侨博物院藏雕刻精品展”6月5日在山西省晋中市博物馆开展。本次展览旨在推动跨区域文物资源共享互鉴，弘扬中华优秀传统工艺美术，丰富城市公共文化供给。 展览以“匠心传承、精工雅韵”为主题，精选华侨博物院藏雕刻珍品89件(组)，涵盖宝玉石雕刻、竹木雕刻、彩石雕刻、牙雕等五大门类。 展陈纵向梳理雕刻艺术从远古至明清、民国的发展演变脉
 
 ## 正文
 
-药捷安康-B（02617）发布公告，于2026年4月14日（交易时段后），本公司与配售代理订立配售协议，配售代理有条件同意作为本公司的配售代理，按尽力基准促使承配人按每股配售股份57.03港元的配售价购买508.5万股配售股份。
+中新网晋中6月5日电 (高雨晴 王美晋)“巧工匠心——华侨博物院藏雕刻精品展”6月5日在山西省晋中市博物馆开展。
 
-假设于本公告日期至交割日期期间已发行股份数目并无变动，则配售事项项下的508.5万股配售股份相当于本公告日期现有已发行H股数目的约1.67%及现有已发行股份数目的1.27%，及紧随完成后经配发及发行配售股份扩大后的已发行 H股数目的约1.65%及已发行股份数目的约1.26%（假设配售股份已悉数配售）。
+本次展览旨在推动跨区域文物资源共享互鉴，弘扬中华优秀传统工艺美术，丰富城市公共文化供给。
 
-每股配售股份57.03港元的配售价较股份于2026年4月14日（即最后交易日）在联交所所报的收市价每股H股69.55港元折让约18.00%。
+展览以“匠心传承、精工雅韵”为主题，精选华侨博物院藏雕刻珍品89件(组)，涵盖宝玉石雕刻、竹木雕刻、彩石雕刻、牙雕等五大门类。
 
-假设所有配售股份获悉数配售及待完成后，预期配售事项所得款项总额及所得款项净额（经扣除配售佣金及配售事项的其他相关成本及开支后）将分别约为 2.9亿港元及2.82亿港元。
+展陈纵向梳理雕刻艺术从远古至明清、民国的发展演变脉络，横向呈现不同材质、不同流派的工艺特色与审美风格，生动诠释历代匠人因材施艺的巧思与精益求精的匠心精神。
 
-本公司拟按如下方式分配配售事项所得款项净额（经扣除发行费用后）： （i） 配售事项所得款项净额的约57%，用于研发，包括我们的核心产品Tinengotinib在晚期乳腺癌、肝细胞癌、去势抵抗性前列腺癌等适应症的临床开发，以及TT-00973的临床开发； （ii） 配售事项所得款项净额的约33%，用于我们的核心产品 Tinengotinib在中国的生产及其商业化，包括商业团队的组建及相关营销活动；及 （iii） 配售事项所得款项净额的约10%，用于营运资金及一般企业用途。
+值得关注的是，此次展出的珍贵雕刻精品，离不开以陈嘉庚先生为代表的广大海外华侨华人的奔走与慷慨捐献。
 
-责任编辑：卢昱君
+展览主办方表示，此次跨区域馆际交流，既实现了文物的活化传承，也推动文化资源从“历史遗存”转化为当代可感知、可传承、可发展的鲜活文化资源。
+
+本次展览由晋中市博物馆与福建华侨博物院联合举办，将持续至9月1日，面向公众免费开放。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:22 - [香港交易所推出两只科技指数 易方达香港获授权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:41 - [天风策略：特朗普TACO了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:26 - [3月黑猫投诉企业红黑榜：Agoda擅自取消订单且阻挠用户申诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:21 - [【新思想引领新征程】服务业扩能提质 锻造经济增长新引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:33 - [冰川消退预警峰值水量 奥地利能源转型提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:38 - [参议员Scott：沃什的美联储主席提名确认听证会将于下周举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:19 - [中国太保：总经理助理刘龙的任职资格获核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:36 - [大众汽车集团交付量下滑，受中美市场疲软拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:26 - [海泰发展财务造假被罚，投资者索赔条件更新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:31 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:48 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:26 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:45 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:24 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:25 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:33 - [特里：法国是世界杯夺冠热门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:25 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:25 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:28 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [【惠誉评论】上市的中国资产管理公司尽管盈利承压，但业务活动持续增长](http://www.blog.kurohicncr.top/Article/details/79617112.shtml)
-- 2026-06-29 11:37 - [开局之年看中国·开放自贸港：文旅融合呈现产业新活力](http://www.blog.minike.top/Article/details/4386803682.shtml)
-- 2026-06-29 11:47 - [“乔、灌、药”立体种植 新疆和田探索出治沙增收新模式](http://www.blog.minike.top/Article/details/43483.shtml)
-- 2026-06-29 11:44 - [油价飙升之际 日本央行据悉考虑大幅上调通胀预期](http://www.blog.kurohicncr.top/Article/details/993564.shtml)
-- 2026-06-29 11:44 - [甘肃环县九村联建一个厂 带富千户种粮人](http://www.share.minike.top/Article/details/21017805545.shtml)
-- 2026-06-29 11:33 - [Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势](http://www.share.kurohicncr.top/Article/details/55604886.shtml)
-- 2026-06-29 11:35 - [OpenAI是否正脱离微软的掌控？与亚马逊的新联盟让利害关系进一步升级](http://www.share.kurohicncr.top/Article/details/803169.shtml)
-- 2026-06-29 11:47 - [李强同阿联酋阿布扎比王储哈立德会谈](http://www.share.kurohicncr.top/Article/details/66497532783.shtml)
-- 2026-06-29 11:42 - [欧洲债市：各期限收益率全线下行 市场下调对欧英央行的加息押注](http://www.share.kurohicncr.top/Article/details/81521.shtml)
-- 2026-06-29 11:28 - [五一视界早盘涨逾6% 日前获创始人增持765万股](http://www.blog.kurohicncr.top/Article/details/249752405173.shtml)
-- 2026-06-29 11:36 - [中国正计划向伊朗提供武器？外交部：反对无根据的抹黑或恶意关联](http://www.share.kurohicncr.top/Article/details/1513532982.shtml)
-- 2026-06-29 11:48 - [快讯：WTI原油日内大跌4.00%，现报88.37美元/桶](http://www.blog.kurohicncr.top/Article/details/8640721.shtml)
-- 2026-06-29 11:32 - [向上转机就在四月，华宝基金创业板人工智能连创新高！最大港股通信息技术ETF（159131）涨超2%又跑赢！](http://www.blog.minike.top/Article/details/018522.shtml)
-- 2026-06-29 11:31 - [外交部谈美伊在巴基斯坦谈判：是朝有利于局势缓和方向迈出的一步](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/03030447796.shtml)
+- 2026-06-29 11:43 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/70192968.shtml)
+- 2026-06-29 11:48 - [DeepSeek联合北京大学发布论文](https://www.share.minike.top/Article/details/892000766432.shtml)
+- 2026-06-29 11:36 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/565489805.shtml)
+- 2026-06-29 11:50 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/41235898563.shtml)
+- 2026-06-29 11:44 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/6797440.shtml)
+- 2026-06-29 11:23 - [C罗关心罗德里戈伤情](http://www.blog.minike.top/Article/details/780327.shtml)
+- 2026-06-29 11:33 - [去了一趟潮汕。](http://www.share.kurohicncr.top/Article/details/225431869.shtml)
+- 2026-06-29 11:26 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/437797100194.shtml)
+- 2026-06-29 11:29 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/63648319.shtml)
+- 2026-06-29 11:50 - [中国男篮抵达沈阳备战世预赛](http://www.blog.minike.top/Article/details/535009.shtml)
+- 2026-06-29 11:48 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/79285285.shtml)
+- 2026-06-29 11:38 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.minike.top/Article/details/0177350371.shtml)
+- 2026-06-29 11:34 - [欧洲超1300例超额死亡与高温有关](https://www.share.kurohicncr.top/Article/details/035631487.shtml)
+- 2026-06-29 11:25 - [高超感谢女友王佳欣](http://www.blog.minike.top/Article/details/83684.shtml)

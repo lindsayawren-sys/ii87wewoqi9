@@ -1,57 +1,57 @@
-# 美国封锁霍尔木兹海峡之际，印度购买俄油豁免期恰好到期
+# ST星农大宗交易成交203.00万元
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-要点 尽管印度正向美国靠拢，却愈发发现华盛顿的政策对其不利，尤其是在能源安全问题上，而伊朗冲突更是让局势雪上加霜。 周一，和平谈判破裂后，美国开始封锁船只经霍尔木兹海峡进出伊朗港口。霍尔木兹海峡是全球最关键的石油咽喉要道之一，美国此举意在向德黑兰施压。 专家表示，这一举措对印度政府造成了打击。印度为在伊朗冲突期间满足能源需求，刚完成七年来首批伊朗原油进口。更雪上加霜的是，美国允
+ST星农（维权）6月5日大宗交易平台出现一笔成交，成交量35.00万股，成交金额203.00万元，大宗交易成交价为5.80元，相对今日收盘价溢价1.58%。该笔交易的买方营业部为浙商证券股份有限公司德清余英坊证券营业部，卖方营业部为广发证券股份有限公司湖州高富路证券营业部。进一步统计，近3个月内该股累计发生4笔大宗交易，合计成交金额为1010.10万元。证券时报·数据宝统计显示
 
 ## 正文
 
-要点 尽管印度正向美国靠拢，却愈发发现华盛顿的政策对其不利，尤其是在能源安全问题上，而伊朗冲突更是让局势雪上加霜。
+ST星农（维权）6月5日大宗交易平台出现一笔成交，成交量35.00万股，成交金额203.00万元，大宗交易成交价为5.80元，相对今日收盘价溢价1.58%。
 
-周一，和平谈判破裂后，美国开始封锁船只经霍尔木兹海峡进出伊朗港口。
+该笔交易的买方营业部为浙商证券股份有限公司德清余英坊证券营业部，卖方营业部为广发证券股份有限公司湖州高富路证券营业部。
 
-霍尔木兹海峡是全球最关键的石油咽喉要道之一，美国此举意在向德黑兰施压。
+进一步统计，近3个月内该股累计发生4笔大宗交易，合计成交金额为1010.10万元。
 
-专家表示，这一举措对印度政府造成了打击。
+证券时报·数据宝统计显示，ST星农今日收盘价为5.71元，下跌1.55%，日换手率为1.61%，成交额为2437.87万元，全天主力资金净流出54.47万元，近5日该股累计上涨2.51%，近5日资金合计净流出632.32万元。
 
-印度为在伊朗冲突期间满足能源需求，刚完成七年来首批伊朗原油进口。
+两融数据显示，该股最新融资余额为1863.16万元，近5日增加16.12万元，增幅为0.87%。
 
-更雪上加霜的是，美国允许各国购买俄罗斯原油的豁免权已于 4 月 11 日到期，在全球市场本就供应紧张的背景下，印度又失去了一个重要能源供应来源。
+据天眼查APP显示，星光农机股份有限公司成立于2004年02月25日，注册资本26521.46万人民币。
 
-能源情报机构 XAnalysts 首席石油分析师穆凯什・萨赫德夫对 CNBC 表示，随着伊朗原油供应中断，再加上无法继续获得俄罗斯原油，印度正面临日益严重的供应挤压。
-
-印度原油进口依赖度超过 85%，日均进口量约 550 万桶，是全球第三大石油进口国。
+（数据宝）6月5日ST星农大宗交易一览（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [3000亿元的大时代，公募如何构建FOF的护城河？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:37 - [哈萨克斯坦今年第一季度GDP同比增长3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:26 - [美联航据悉提议与美国航空合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:35 - [金蝶国际早盘高开逾8% 截至3月底ARR同比增长约19%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:37 - [美企员工对人工智能的采用存在分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:45 - [全球第二储能企业海辰储能代表福建亮相香港国际创科展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:44 - [五大险企2025年总投资收益率普升 新华保险6.6%领跑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:29 - [城堡证券：伊朗战争烈度升级风险减弱 股债市场存在反弹机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:47 - [新东方-S遭First Beijing Investment Limited减持67万股 每股均价约46.12港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:29 - [立遗嘱人群数量连续多年稳步增长 年轻群体已成为遗嘱规划新生力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:42 - [台湾自媒体人踏春入滇 共赴泼水节文化盛宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:27 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:48 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:40 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:38 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:31 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:36 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:35 - [三只羊线下课已下架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:42 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:50 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:30 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:49 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:48 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [井泉大使会见菲律宾司法部长弗雷德里克·维达](http://www.share.kurohicncr.top/Article/details/44212673.shtml)
-- 2026-06-29 11:47 - [苏富比向卖家提供7%利息以延后支付拍卖款项](http://www.share.kurohicncr.top/Article/details/59307420.shtml)
-- 2026-06-29 11:47 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [今年以来多个细分赛道ETF实现大幅净流入](http://www.blog.kurohicncr.top/Article/details/386273.shtml)
-- 2026-06-29 11:43 - [浙江杭州：智能游艇畅游富春江](http://www.blog.kurohicncr.top/Article/details/6548539.shtml)
-- 2026-06-29 11:32 - [中国清洁技术优势扩大](http://www.blog.minike.top/Article/details/6345120124.shtml)
-- 2026-06-29 11:37 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](http://www.share.minike.top/Article/details/528883160835.shtml)
-- 2026-06-29 11:42 - [中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%](http://www.blog.kurohicncr.top/Article/details/26698.shtml)
-- 2026-06-29 11:21 - [郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [“停飞潮”全球蔓延，航空业陷高油价困局](http://www.share.minike.top/Article/details/38447059344.shtml)
-- 2026-06-29 11:32 - [愤怒的李想和遭到围攻的理想汽车](http://www.share.kurohicncr.top/Article/details/870440587.shtml)
-- 2026-06-29 11:21 - [顺丰、京东、中通、韵达、申通等回应快递涨价](http://www.share.minike.top/Article/details/3545072406.shtml)
-- 2026-06-29 11:35 - [美国宣布封锁后，三艘油轮试图穿越霍尔木兹海峡](http://www.blog.minike.top/Article/details/93714101.shtml)
-- 2026-06-29 11:41 - [日上集团：公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务](http://www.share.minike.top/Article/details/557418104.shtml)
-- 2026-06-29 11:23 - [美国对伊朗海上交通封锁13日生效](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/967297492.shtml)
+- 2026-06-29 11:38 - [克洛普：加拿大主帅还能继续创造历史](http://www.blog.kurohicncr.top/Article/details/6020045963.shtml)
+- 2026-06-29 11:35 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/4038105770.shtml)
+- 2026-06-29 11:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/9849897669.shtml)
+- 2026-06-29 11:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/6553865054.shtml)
+- 2026-06-29 11:36 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.minike.top/Article/details/752598.shtml)
+- 2026-06-29 11:39 - [张杰下沉市场](https://www.share.minike.top/Article/details/10175861.shtml)
+- 2026-06-29 11:28 - [C罗关心罗德里戈伤情](https://www.share.minike.top/Article/details/16623883.shtml)
+- 2026-06-29 11:25 - [詹姆斯下赛季会在哪里](http://www.blog.kurohicncr.top/Article/details/58182.shtml)
+- 2026-06-29 11:25 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/28413.shtml)
+- 2026-06-29 11:27 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/304424293896.shtml)
+- 2026-06-29 11:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/09472.shtml)
+- 2026-06-29 11:45 - [加拿大92分钟绝杀成世界杯首个16强](https://www.share.kurohicncr.top/Article/details/157649456378.shtml)
+- 2026-06-29 11:39 - [曾沛慈夺冠后人气](http://www.blog.kurohicncr.top/Article/details/511984647255.shtml)
+- 2026-06-29 11:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/64050.shtml)

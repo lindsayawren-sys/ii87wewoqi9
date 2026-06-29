@@ -1,59 +1,61 @@
-# 这种防癌方式不仅有效，性价比也很高！丨肿瘤防治早知道
+# 中国首台初级智能机器人复原模型亮相
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-关注健康 预防癌症 癌症防治，关键在预防，核心在早筛。坚持关口前移是最经济有效的防癌策略。围绕一级预防、健康生活方式、防癌体检与常规体检的差异等公众关注的问题，本期邀请国家健康科普专家库成员、国家癌症中心/中国医学科学院肿瘤医院防癌科主任医师张凯，解读科学防癌核心要点，破解认知误区，为公众提供专业指导。 Q1 何为癌症一级预防？为什么它被称为性价比最高的防癌方式？A 一级预防即
+中新网南京6月7日电 (孙艳 吴涵玉 徐珊珊)6月6日，东南大学建校124周年之际，学校科学技术展示中心开展。展示中心总建筑面积约1000平方米，设校史沿革、科技成果两大展区，其中科技成果区共设置30个展位，系统梳理了学校百余年的科研脉络与创新成就。 展览入口处，中国首台初级智能机器人的等比例复原模型格外引人注目。该机器人由东南大学前身南京工学院研制，是中国机器人研究的起点。此
 
 ## 正文
 
-关注健康 预防癌症 癌症防治，关键在预防，核心在早筛。
+中新网南京6月7日电 (孙艳 吴涵玉 徐珊珊)6月6日，东南大学建校124周年之际，学校科学技术展示中心开展。
 
-坚持关口前移是最经济有效的防癌策略。
+展示中心总建筑面积约1000平方米，设校史沿革、科技成果两大展区，其中科技成果区共设置30个展位，系统梳理了学校百余年的科研脉络与创新成就。
 
-围绕一级预防、健康生活方式、防癌体检与常规体检的差异等公众关注的问题，本期邀请国家健康科普专家库成员、国家癌症中心/中国医学科学院肿瘤医院防癌科主任医师张凯，解读科学防癌核心要点，破解认知误区，为公众提供专业指导。
+展览入口处，中国首台初级智能机器人的等比例复原模型格外引人注目。
 
-Q1 何为癌症一级预防？
+该机器人由东南大学前身南京工学院研制，是中国机器人研究的起点。
 
-为什么它被称为性价比最高的防癌方式？
+此后六十余载，东大机器人学科创下多个“第一”：1985年创刊国内首个机器人专业期刊，1991年研制国内首台智能装配机器人，2015年获批全国首个机器人工程本科专业，2023年新增国内首个未来机器人交叉专业，完成了从样机攻关到全链条人才培养、多场景成果转化的完整闭环。
 
-A 一级预防即病因预防，是在癌症发生前，通过减少或消除致癌危险因素暴露、采取干预措施，从源头上阻断癌症发生。
+目前，东大机器人研究已稳居国内第一方阵，覆盖特种作业、智能制造、康复医学、低空物流等多个领域。
 
-人体接触致癌因素后，通常要经过数年甚至二三十年的诱发期，才有可能逐步发展为癌症。
+展示中心还集中呈现了东大在信息通信、空间科学、智慧交通、医工交叉、深海深地深空等领域的重大成果。
 
-癌症由多因素综合作用、分阶段推进，主要包括启动、促进、进展等过程。
+东南大学首席教授、科研院负责人殷国栋介绍，这是建校124年来首次对全校科技成果进行全方位、系统性集中展示。
 
 ## 相关推荐
 
-- 2026-06-29 11:21 - [下班上课夜间“充电” 杭州青年夜校AI培训受追捧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:22 - [正面硬刚亚马逊？ 京东再进军欧洲推行“211”配送，欧洲人买单吗？｜欧陆志](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:25 - [这个国之重器，干了件济世救人的事……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:41 - [直播海报：国务院政策例行吹风会：介绍健全全周期全渠道药品价格形成机制有关情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:28 - [天孚通信：无源稳健有源增长，光器件平台龙头尽享AI红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:23 - [万科拟调整“23万科MTN001”本金兑付安排：偿还40%，剩余60%展期一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:23 - [3000亿元的大时代，公募如何构建FOF的护城河？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:27 - [哈萨克斯坦今年第一季度GDP同比增长3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:19 - [美联航据悉提议与美国航空合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:47 - [金蝶国际早盘高开逾8% 截至3月底ARR同比增长约19%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:22 - [美企员工对人工智能的采用存在分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:32 - [全球第二储能企业海辰储能代表福建亮相香港国际创科展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:37 - [五大险企2025年总投资收益率普升 新华保险6.6%领跑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:33 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:46 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:23 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:32 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:37 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:33 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:30 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:27 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:50 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:25 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:23 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:26 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:48 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:42 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:45 - [长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨](http://www.blog.kurohicncr.top/Article/details/3282512974.shtml)
-- 2026-06-29 11:30 - [多国留学青年走进浙江丽水 沉浸式感受侨乡发展新貌](http://www.blog.kurohicncr.top/Article/details/6462805516.shtml)
-- 2026-06-29 11:27 - [四川荣县回应“男子献血十年要求免诊查费遭拒”：医院已当面致歉](http://www.blog.kurohicncr.top/Article/details/6734794692.shtml)
-- 2026-06-29 11:37 - [印尼的塑料袋与万里之外的战火](http://www.share.minike.top/Article/details/936429445.shtml)
-- 2026-06-29 11:42 - [花旗集团披露第四季度私募信贷敞口220亿美元 对BDC投入比例很低](http://www.blog.minike.top/Article/details/52705060.shtml)
-- 2026-06-29 11:47 - [Anthropic据悉收到多家风投公司的投资提议，估值达8000亿美元](http://www.share.minike.top/Article/details/250307311.shtml)
-- 2026-06-29 11:19 - [井泉大使会见菲律宾司法部长弗雷德里克·维达](http://www.blog.kurohicncr.top/Article/details/23147.shtml)
-- 2026-06-29 11:47 - [苏富比向卖家提供7%利息以延后支付拍卖款项](http://www.share.kurohicncr.top/Article/details/46623.shtml)
-- 2026-06-29 11:37 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [今年以来多个细分赛道ETF实现大幅净流入](http://www.share.minike.top/Article/details/957402.shtml)
-- 2026-06-29 11:40 - [浙江杭州：智能游艇畅游富春江](http://www.blog.kurohicncr.top/Article/details/28696.shtml)
-- 2026-06-29 11:38 - [中国清洁技术优势扩大](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](http://www.blog.minike.top/Article/details/35563708.shtml)
-- 2026-06-29 11:46 - [中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%](http://www.share.kurohicncr.top/Article/details/2783801.shtml)
-- 2026-06-29 11:28 - [郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情](http://www.blog.kurohicncr.top/Article/details/74494196.shtml)
+- 2026-06-29 11:32 - [未来5年 充电供热供暖将有大变化](http://www.blog.minike.top/Article/details/382727651520.shtml)
+- 2026-06-29 11:39 - [金牌调解](https://www.blog.minike.top/Article/details/645649312.shtml)
+- 2026-06-29 11:51 - [吴昕要助理买的药6年前已停产](https://www.share.kurohicncr.top/Article/details/043075.shtml)
+- 2026-06-29 11:23 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/49674664.shtml)
+- 2026-06-29 11:38 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/30432410.shtml)
+- 2026-06-29 11:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/326554184.shtml)
+- 2026-06-29 11:38 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/449697700232.shtml)
+- 2026-06-29 11:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/63214373342.shtml)
+- 2026-06-29 11:24 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.blog.kurohicncr.top/Article/details/546974207.shtml)
+- 2026-06-29 11:47 - [世界杯打成了欧洲杯和美洲杯](http://www.share.minike.top/Article/details/29678920.shtml)
+- 2026-06-29 11:48 - [詹姆斯下赛季会在哪里](https://www.blog.kurohicncr.top/Article/details/718892.shtml)
+- 2026-06-29 11:49 - [宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/2623550042.shtml)
+- 2026-06-29 11:29 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/96776.shtml)
+- 2026-06-29 11:35 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.minike.top/Article/details/0466631.shtml)
+- 2026-06-29 11:43 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/178850.shtml)

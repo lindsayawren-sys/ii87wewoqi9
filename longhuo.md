@@ -1,57 +1,60 @@
-# 李强同阿联酋阿布扎比王储哈立德会谈
+# 经济学家警告欧洲央行紧缩政策风险 呼吁警惕重蹈2011年“政策过头”覆辙
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-新华社北京4月13日电(记者孙楠)4月13日下午，国务院总理李强在北京人民大会堂同来华访问的阿联酋阿布扎比王储哈立德举行会谈。 李强表示，中国和阿联酋是全面战略伙伴，两国传统友谊深厚，在涉及彼此核心利益问题上长期相互支持。近年来，在习近平主席和穆罕默德总统战略引领下，中阿关系持续深化发展，各领域合作成果丰硕，为两国人民带来了实实在在的利益。中方愿同阿方继续在共同发展的道路上结伴
+欧洲中央银行本周将举行货币政策会议。多位经济学家和分析人士日前发出警告，认为欧洲央行为了维护其抑制通胀的政策信誉，正面临仓促加息、重蹈2011年“政策过头”覆辙的风险，恐将给疲态显露的欧元区经济带来代价高昂的负面影响。 自中东地区爆发伊朗冲突以来，欧洲央行此前一直维持现行利率不变。然而，鉴于能源价格飙升带来的潜在通胀传导压力，目前欧洲央行多位官员似乎倾向于采取加息举措。 多数市
 
 ## 正文
 
-新华社北京4月13日电(记者孙楠)4月13日下午，国务院总理李强在北京人民大会堂同来华访问的阿联酋阿布扎比王储哈立德举行会谈。
+欧洲中央银行本周将举行货币政策会议。
 
-李强表示，中国和阿联酋是全面战略伙伴，两国传统友谊深厚，在涉及彼此核心利益问题上长期相互支持。
+多位经济学家和分析人士日前发出警告，认为欧洲央行为了维护其抑制通胀的政策信誉，正面临仓促加息、重蹈2011年“政策过头”覆辙的风险，恐将给疲态显露的欧元区经济带来代价高昂的负面影响。
 
-近年来，在习近平主席和穆罕默德总统战略引领下，中阿关系持续深化发展，各领域合作成果丰硕，为两国人民带来了实实在在的利益。
+自中东地区爆发伊朗冲突以来，欧洲央行此前一直维持现行利率不变。
 
-中方愿同阿方继续在共同发展的道路上结伴前行，加强沟通协调，筑牢政治互信，推动中阿关系与合作不断迈上新台阶，取得更多实际成果，更好实现互利共赢。
+然而，鉴于能源价格飙升带来的潜在通胀传导压力，目前欧洲央行多位官员似乎倾向于采取加息举措。
 
-李强指出，中方愿同阿方夯实能源合作基础，拓展储能、氢能、新能源汽车、动力电池等领域合作，促进两国绿色转型。
+多数市场分析人士则持谨慎态度，呼吁欧洲央行应当继续保持观望。
 
-双方要打造更多贸易增长点，既扩大规模，也优化结构。
+宏观经济研究机构朗伯德街研究公司（TS Lombard）经济学家戴维德·奥内利亚（Davide Oneglia）指出，当前欧洲央行高度关注通胀预期，并深受2022年通胀危机教训的影响，似乎正不惜一切代价证明其政策信誉。
 
-中方愿进口阿方更多优质产品，欢迎阿方积极参与“共享大市场·出口中国”系列活动，用好中国进博会、服贸会等平台加大产品推介。
+他强调，2011年欧洲债务危机期间的加息已被证明是严重的政策失误，在当前欧元区经济复苏动力不足、投资者可能将加息误读为新一轮紧缩周期开端的背景下，“重蹈覆辙”将是欧洲央行当前面临的最大风险之一。
 
-中阿在创新发展领域的合作前景广阔，中方欢迎阿方加大在人工智能、数字经济、先进制造、生命科学等领域的对华投资，支持两国高校、科研机构和企业加强联合研究和人才培养，共同培育壮大新兴和未来产业。
+分析人士普遍认为，考虑到美国与伊朗目前正就达成和平协议进行接触，外部能源冲击的持续性仍有待评估，欧洲央行审慎行事的理由依然充分。
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [美国财长贝森特：伊朗冲突期间美联储按兵不动是正确做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:39 - [高市再提修宪 引发日本民众广泛反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:46 - [台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:45 - [芝加哥期市：CBOT大豆期货收跌，预计美国种植面积将增加](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:23 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:44 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:25 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:23 - [违规超量投放共享自行车，哈啰公司被约谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:40 - [5年亏超120亿，“胖改”难救永辉超市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:26 - [CoreMarine与Jumbo Offshore合作开展阿根廷FLNG安装与连接项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:26 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:49 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:39 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:24 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:37 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:40 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:35 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:39 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:23 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:41 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:39 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:35 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:47 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:31 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [原油：油价下挫 美伊和谈预期缓解供应担忧](http://www.share.minike.top/Article/details/78177.shtml)
-- 2026-06-29 11:31 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](http://www.share.kurohicncr.top/Article/details/11313681.shtml)
-- 2026-06-29 11:29 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [Revolution Medicines胰腺癌药物取得成功](http://www.share.kurohicncr.top/Article/details/482804.shtml)
-- 2026-06-29 11:32 - [甘肃省酒泉市：民族团结与经济发展同频共振](http://www.blog.minike.top/Article/details/06423.shtml)
-- 2026-06-29 11:40 - [中天策略:4月14日市场分析](http://www.blog.minike.top/Article/details/02025.shtml)
-- 2026-06-29 11:38 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](http://www.share.kurohicncr.top/Article/details/6451692132.shtml)
-- 2026-06-29 11:21 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [今年以来地方债发行节奏提速](http://www.share.minike.top/Article/details/176260642.shtml)
-- 2026-06-29 11:27 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [收评：国内期货主力合约涨跌互现 PX涨超4%](http://www.share.minike.top/Article/details/736680.shtml)
-- 2026-06-29 11:32 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](http://www.blog.minike.top/Article/details/933385188137.shtml)
-- 2026-06-29 11:41 - [马斯克的SpaceX新数据：星链成绝对核心](http://www.share.kurohicncr.top/Article/details/797123.shtml)
-- 2026-06-29 11:33 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](http://www.blog.minike.top/Article/details/6586905.shtml)
+- 2026-06-29 11:45 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/907101.shtml)
+- 2026-06-29 11:36 - [赵今麦客串电影版开端](https://www.share.minike.top/Article/details/4966574310.shtml)
+- 2026-06-29 11:49 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/44867422.shtml)
+- 2026-06-29 11:36 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/933708.shtml)
+- 2026-06-29 11:49 - [王楚钦3比0周启豪](https://www.blog.kurohicncr.top/Article/details/4186771348.shtml)
+- 2026-06-29 11:32 - [TOP 无畏契约](http://www.blog.minike.top/Article/details/21628.shtml)
+- 2026-06-29 11:50 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/7374866.shtml)
+- 2026-06-29 11:33 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/304212603275.shtml)
+- 2026-06-29 11:32 - [洪明甫发布会没有提问环节](http://www.share.minike.top/Article/details/37173447464.shtml)
+- 2026-06-29 11:52 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/6898665.shtml)
+- 2026-06-29 11:47 - [直击宜宾地震：监控剧烈摇晃](https://www.share.minike.top/Article/details/5523786.shtml)
+- 2026-06-29 11:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/08681616.shtml)
+- 2026-06-29 11:46 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/090701.shtml)
+- 2026-06-29 11:25 - [千与千寻](http://www.share.kurohicncr.top/Article/details/06434163.shtml)
+- 2026-06-29 11:42 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/731268274852.shtml)

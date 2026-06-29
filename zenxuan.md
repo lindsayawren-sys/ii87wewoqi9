@@ -1,60 +1,58 @@
-# 花旗集团披露第四季度私募信贷敞口220亿美元 对BDC投入比例很低
+# 市长、副市长化身12345接线员
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-花旗集团表示，其对私募信贷公司的敞口在第四季度为220亿美元。 该行周二在一份演示材料中称，这些贷款属于其对非银金融机构的整体贷款组合的一部分，该组合截至去年年底总规模为1180亿美元。花旗还表示，其企业私募信贷仓储融资具备“充足的权益缓冲”，并设有结构性保护措施以帮助公司应对重大压力。 作为直接贷款机构常用的投资工具，商业发展公司（BDC）近几个月受到冲击。因投资者对该行业愈
+“您好，我是包头市长孟庆维……”坐在热线电话前，孟庆维一边接听市民打来的电话，一边摊开桌前的纸张，在纸张上记录下市民反映问题的要点。 “没想到，市长的声音那么亲切。”6月3日上午，包头市12345政务服务便民热线受理中心业务主管曹玮智谈及不久前的市长接线活动，依然感触颇深。 “放在桌前的水，只喝了几口，中途一直在不停地接电话，不知不觉一个半小时就过去了。”曹玮智说，问题没有谈完
 
 ## 正文
 
-花旗集团表示，其对私募信贷公司的敞口在第四季度为220亿美元。
+“您好，我是包头市长孟庆维……”坐在热线电话前，孟庆维一边接听市民打来的电话，一边摊开桌前的纸张，在纸张上记录下市民反映问题的要点。
 
-该行周二在一份演示材料中称，这些贷款属于其对非银金融机构的整体贷款组合的一部分，该组合截至去年年底总规模为1180亿美元。
+“没想到，市长的声音那么亲切。
 
-花旗还表示，其企业私募信贷仓储融资具备“充足的权益缓冲”，并设有结构性保护措施以帮助公司应对重大压力。
+”6月3日上午，包头市12345政务服务便民热线受理中心业务主管曹玮智谈及不久前的市长接线活动，依然感触颇深。
 
-作为直接贷款机构常用的投资工具，商业发展公司（BDC）近几个月受到冲击。
+“放在桌前的水，只喝了几口，中途一直在不停地接电话，不知不觉一个半小时就过去了。
 
-因投资者对该行业愈发谨慎，与Blue Owl Capital和阿波罗全球管理等公司相关的BDC面临赎回压力。
+”曹玮智说，问题没有谈完，市长决定再延时半小时。
 
-花旗周二澄清称，其对非银行金融机构贷款中，投向BDC的比例不到1%。
+深耕热线服务工作多年、亲历无数次政务接诉场景的她坦言，此次市长零距离倾听民声、耐心回应诉求的履职画面，让一线热线工作人员深受触动。
 
-该公司表示，其企业私人信贷融资组合在整个存续期间“零损失”。
+作为热线工作者，曹玮智与很多人一样，她很快就感受到了网民热烈的反响，“网友的回应很及时，点赞数不断攀升。
 
-富国银行周二早些时候披露，截至3月底，其私人信贷敞口约为362亿美元，其中商业服务、软件和医疗保健行业公司约占抵押品总价值的一半。
+” 包头12345政务服务便民热线前身是2000年开通的市长热线，历经20余年迭代升级，早已成为当地民意收集、诉求处置、政民沟通的核心平台。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [中国清洁技术优势扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:30 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:48 - [中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:37 - [郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:23 - [“停飞潮”全球蔓延，航空业陷高油价困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:42 - [愤怒的李想和遭到围攻的理想汽车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:30 - [顺丰、京东、中通、韵达、申通等回应快递涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:34 - [美国宣布封锁后，三艘油轮试图穿越霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:21 - [日上集团：公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:21 - [美国对伊朗海上交通封锁13日生效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:28 - [恒大集团、恒大地产及许家印案一审开庭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:26 - [开局之年看中国·开放自贸港：当“椰子之乡”牵手“沙漠面包”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:34 - [跨越四百年 西班牙首相感叹：中国依旧伟大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:31 - [“00”后藏族设计师班珠丹塔 让藏装焕发时代光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:39 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:44 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:51 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:44 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:46 - [鬼畜区全明星拼接遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:47 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:23 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:43 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:24 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:35 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:23 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [谷歌最新Gemini升级预示更大规模的机器人布局](http://www.share.kurohicncr.top/Article/details/85274.shtml)
-- 2026-06-29 11:39 - [上交所就龙元建设相关事项下发监管工作函](http://www.blog.minike.top/Article/details/81011.shtml)
-- 2026-06-29 11:41 - [王毅同巴基斯坦副总理兼外长达尔通电话](http://www.blog.minike.top/Article/details/31874854.shtml)
-- 2026-06-29 11:33 - [五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [两面针：公司目前已布局并推出电动牙刷产品](http://www.share.kurohicncr.top/Article/details/60368.shtml)
-- 2026-06-29 11:44 - [新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”](http://www.share.minike.top/Article/details/514348325.shtml)
-- 2026-06-29 11:43 - [A股指数收红！锂矿板块午后放量拉升！](http://www.share.minike.top/Article/details/61714.shtml)
-- 2026-06-29 11:46 - [日本邮船采用3D技术设计建造新一代CTV](http://www.share.minike.top/Article/details/372145363.shtml)
-- 2026-06-29 11:31 - [400辆网约车百余次故障？电动汽车质量纠纷该找谁](http://www.blog.kurohicncr.top/Article/details/809184899396.shtml)
-- 2026-06-29 11:21 - [Anthropic联合创始人：正与特朗普政府讨论下一个人工智能模型](http://www.blog.kurohicncr.top/Article/details/0430989.shtml)
-- 2026-06-29 11:43 - [京津冀定向挑战赛天津落幕 四百余名选手花海寻春](http://www.blog.kurohicncr.top/Article/details/2373036166.shtml)
-- 2026-06-29 11:27 - [巴基斯坦防长称美伊谈判将很快重启](http://www.blog.kurohicncr.top/Article/details/0963499337.shtml)
-- 2026-06-29 11:26 - [兴业证券：首予保利置业增持评级 毛利率有望企稳](http://www.share.kurohicncr.top/Article/details/38814575950.shtml)
-- 2026-06-29 11:47 - [远大医药盘中涨超4% 重磅核药SIR-Spheres®钇\[90Y\]微球注射液再度迎来里程碑进展](http://www.blog.minike.top/Article/details/486854.shtml)
-- 2026-06-29 11:31 - [华尔街行情向好，摩根大通固定收益与投行业绩超预期](http://www.blog.kurohicncr.top/Article/details/04727.shtml)
+- 2026-06-29 11:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/546136564.shtml)
+- 2026-06-29 11:32 - [宜宾5.5级地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/022528.shtml)
+- 2026-06-29 11:28 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://www.blog.minike.top/Article/details/276359.shtml)
+- 2026-06-29 11:36 - [韩国队主帅洪明甫下课](http://www.share.minike.top/Article/details/7320084.shtml)
+- 2026-06-29 11:51 - [日本前锋言论激怒巴西](https://www.share.minike.top/Article/details/195558.shtml)
+- 2026-06-29 11:28 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.minike.top/Article/details/669016406112.shtml)
+- 2026-06-29 11:38 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/452327.shtml)
+- 2026-06-29 11:26 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/354305790.shtml)
+- 2026-06-29 11:24 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/2718188.shtml)
+- 2026-06-29 11:38 - [急先锋](https://www.blog.minike.top/Article/details/13628176740.shtml)
+- 2026-06-29 11:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/729250190959.shtml)
+- 2026-06-29 11:29 - [唐艺昕女儿接唐艺昕回家](http://www.share.minike.top/Article/details/401474431.shtml)
+- 2026-06-29 11:40 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/7636432.shtml)
+- 2026-06-29 11:51 - [普京：俄罗斯将坚定捍卫自身根本利益](http://www.share.minike.top/Article/details/5597875.shtml)
+- 2026-06-29 11:23 - [欧洲热死人不是开玩笑](https://www.share.kurohicncr.top/Article/details/0810326.shtml)

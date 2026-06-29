@@ -1,61 +1,59 @@
-# 花洒很干净，不用清洁……是真是假？| 谣言终结站
+# 宁夏烽燧750千伏输变电工程投运
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-很多人认为，花洒持续通水、本身就很干净，不需要特意清洁。事实上，长期未被清理的花洒的出水口和管道内壁会附着滑腻的生物膜，其中藏匿着军团菌、霉菌等致病菌。淋浴时，这些致病菌可通过呼吸或皮肤接触侵入人体，进而危害身体健康。在温暖、黑暗、潮湿的环境中，极易滋生非结核分枝杆菌，其中鸟分枝杆菌在花洒中检出率较高，可引发肺部感染、淋巴结炎等。健康人群接触后可能出现慢性轻度肺部感染，表现为疲
+中新社宁夏石嘴山6月5日电 (记者 于晶)宁夏烽燧750千伏输变电工程6月5日正式投运，标志着石嘴山电网从传统供电末端跃升为区域核心电网枢纽。 该工程位于石嘴山市惠农区，总投资约14.39亿元人民币，于2024年11月开工建设，包含四大单项工程。本期新建2组1500兆伏安主变压器，全线新建铁塔162基，线路总长150公里。 工程投运后，烽燧750千伏变电站与现有沙湖750千伏变
 
 ## 正文
 
-很多人认为，花洒持续通水、本身就很干净，不需要特意清洁。
+中新社宁夏石嘴山6月5日电 (记者 于晶)宁夏烽燧750千伏输变电工程6月5日正式投运，标志着石嘴山电网从传统供电末端跃升为区域核心电网枢纽。
 
-事实上，长期未被清理的花洒的出水口和管道内壁会附着滑腻的生物膜，其中藏匿着军团菌、霉菌等致病菌。
+该工程位于石嘴山市惠农区，总投资约14.39亿元人民币，于2024年11月开工建设，包含四大单项工程。
 
-淋浴时，这些致病菌可通过呼吸或皮肤接触侵入人体，进而危害身体健康。
+本期新建2组1500兆伏安主变压器，全线新建铁塔162基，线路总长150公里。
 
-在温暖、黑暗、潮湿的环境中，极易滋生非结核分枝杆菌，其中鸟分枝杆菌在花洒中检出率较高，可引发肺部感染、淋巴结炎等。
+工程投运后，烽燧750千伏变电站与现有沙湖750千伏变电站形成“立体双环网”供电格局，有效补齐了宁夏北部主网架短板，全面优化了区域供电格局。
 
-健康人群接触后可能出现慢性轻度肺部感染，表现为疲倦、乏力、长期干咳等症状；支气管扩张患者、老年人以及免疫力低下人群，感染风险更高，症状也更严重，严重者还可能出现全身播散性感染。
+预计近期可接入负荷达300万千瓦，远期规划接入负荷达600万千瓦，供电保障能力显著增强。
 
-可能有人会疑惑：“我家的花洒好几年没换了，但家人并没有觉得不舒服。
+该工程打通了贺兰山、黄河上游宁夏沿线新能源外送通道，不仅为石嘴山“双碳”目标落地提供有力支撑，也为后续重大能源项目落地、乡村振兴实施和地方经济社会高质量发展提供了坚实的电力保障。
 
-这种病菌真有这么厉害吗？
-
-”事实上，鸟分枝杆菌属于条件致病菌，免疫功能正常者通常不易发病，但仍存在健康隐患。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [肖远企在澳门葡语国家（地区）保险监管研讨会上的演讲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:29 - [永川海关2026年度信息化运维服务采购项目中标公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:25 - [赢家时尚：受托人根据股份奖励计划购买合共92.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:20 - [涨超六成！环氧丙烷价格快速走高 多股业绩有望翻倍增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:26 - [贝森特：关税水平或在7月初前恢复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:20 - [重磅数据本周发布，中国经济有望迎“开门红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:41 - [土耳其一中学发生枪击事件致16人受伤 枪手自杀身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:31 - [二十年爱心接力 澳门汇才慈善会情暖湖南江永瑶乡学子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:41 - [山水本身就是一间流动的自然课堂 春日文旅从“看风景”走向“读自然”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:26 - [乐氏国际控股附属拟1万元收购杭州一行物流有限公司100%股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:24 - [“挂床住院”现象近年来时有发生 专家：完善相关制度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:42 - [长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:46 - [多国留学青年走进浙江丽水 沉浸式感受侨乡发展新貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:46 - [四川荣县回应“男子献血十年要求免诊查费遭拒”：医院已当面致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:20 - [印尼的塑料袋与万里之外的战火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:49 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:52 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:50 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:44 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:32 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:50 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:45 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:25 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:47 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:46 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:35 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:37 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:33 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:30 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:50 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:38 - [恒大集团、恒大地产及许家印案一审开庭](http://www.blog.minike.top/Article/details/74067719.shtml)
-- 2026-06-29 11:43 - [（乡村行·看振兴）湖光山色引客来 艺术唤醒“空心村”](http://www.blog.kurohicncr.top/Article/details/26664.shtml)
-- 2026-06-29 11:37 - [新华社：运动员因何频遭网暴？全红婵案警示几何？](http://www.blog.minike.top/Article/details/8866975.shtml)
-- 2026-06-29 11:28 - [微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元](http://www.share.kurohicncr.top/Article/details/550321958.shtml)
-- 2026-06-29 11:22 - [巴比食品投资东鹏饮料，“甜果”变“苦果”](http://www.blog.minike.top/Article/details/475595.shtml)
-- 2026-06-29 11:28 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [香港交易所推出两只科技指数 易方达香港获授权](http://www.blog.kurohicncr.top/Article/details/027322.shtml)
-- 2026-06-29 11:44 - [天风策略：特朗普TACO了吗？](http://www.share.minike.top/Article/details/480092930.shtml)
-- 2026-06-29 11:28 - [3月黑猫投诉企业红黑榜：Agoda擅自取消订单且阻挠用户申诉](http://www.share.minike.top/Article/details/5444336001.shtml)
-- 2026-06-29 11:23 - [【新思想引领新征程】服务业扩能提质 锻造经济增长新引擎](http://www.blog.minike.top/Article/details/530270.shtml)
-- 2026-06-29 11:29 - [冰川消退预警峰值水量 奥地利能源转型提速](http://www.share.kurohicncr.top/Article/details/1528607881.shtml)
-- 2026-06-29 11:44 - [参议员Scott：沃什的美联储主席提名确认听证会将于下周举行](http://www.blog.kurohicncr.top/Article/details/240662430525.shtml)
-- 2026-06-29 11:48 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.share.kurohicncr.top/Article/details/113804130.shtml)
-- 2026-06-29 11:20 - [大众汽车集团交付量下滑，受中美市场疲软拖累](http://www.blog.kurohicncr.top/Article/details/0288962975.shtml)
-- 2026-06-29 11:26 - [海泰发展财务造假被罚，投资者索赔条件更新](http://www.share.minike.top/Article/details/02910553.shtml)
+- 2026-06-29 11:33 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/36665694708.shtml)
+- 2026-06-29 11:22 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/82248660.shtml)
+- 2026-06-29 11:50 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/90592409.shtml)
+- 2026-06-29 11:22 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/01354674120.shtml)
+- 2026-06-29 11:31 - [高超感谢女友王佳欣](https://www.share.minike.top/Article/details/99918.shtml)
+- 2026-06-29 11:42 - [拄拐少年高考663分：用行动回报社会](http://www.share.minike.top/Article/details/158413.shtml)
+- 2026-06-29 11:35 - [俄称继续在顿涅茨克两城镇推进](http://www.blog.kurohicncr.top/Article/details/3719139.shtml)
+- 2026-06-29 11:30 - [杨紫《生命树》播放量破百亿](http://www.share.minike.top/Article/details/623251409165.shtml)
+- 2026-06-29 11:25 - [重生赛伊德04](https://www.share.minike.top/Article/details/9704672.shtml)
+- 2026-06-29 11:34 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/036842849636.shtml)
+- 2026-06-29 11:41 - [林诗栋晋级WTT美国大满贯男单32强](http://www.share.kurohicncr.top/Article/details/219215761862.shtml)
+- 2026-06-29 11:30 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.minike.top/Article/details/1560864.shtml)
+- 2026-06-29 11:32 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/933553707.shtml)
+- 2026-06-29 11:31 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/276712068803.shtml)
+- 2026-06-29 11:49 - [日本主帅：对战胜巴西很有信心](https://www.share.kurohicncr.top/Article/details/52542175846.shtml)

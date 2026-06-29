@@ -1,55 +1,58 @@
-# 美媒：若美伊重返谈判桌 万斯将再次率团
+# 护航高考！北京开通身份证办理绿色通道 合肥推出免费乘车服务
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-中新网4月15日电 据美国有线电视新闻网(CNN)14日报道，如果美国和伊朗举行第二轮面对面谈判，美国副总统万斯预计将再次率领美方代表团。 报道称，消息人士透露，美国总统特朗普的女婿库什纳和特使威特科夫预计也将出席任何可能的第二次会谈。 自上周长达21小时的马拉松式会谈以来，万斯、威特科夫和库什纳一直在与伊朗方面及中间人接触。 报道称，一位美国官员表示：“未来的会谈正在讨论中，
+高考临近，北京警方已启动高考考生身份证办理绿色通道。6月10日之前申领，24小时内就可取证。本市户籍考生，可就近到全市任意户籍派出所申请办理，当日上午申请办理，下午可领取证件；当日下午申请，次日上午领取证件。两种领取方式可任选其一： 一是本人持相关凭证于当日16时后或次日11时后，前往北京市公安局人口管理和基层工作总队制证中心现场领取； 二是选择邮政速递送证上门，公安机关将在完
 
 ## 正文
 
-中新网4月15日电 据美国有线电视新闻网(CNN)14日报道，如果美国和伊朗举行第二轮面对面谈判，美国副总统万斯预计将再次率领美方代表团。
+高考临近，北京警方已启动高考考生身份证办理绿色通道。
 
-报道称，消息人士透露，美国总统特朗普的女婿库什纳和特使威特科夫预计也将出席任何可能的第二次会谈。
+6月10日之前申领，24小时内就可取证。
 
-自上周长达21小时的马拉松式会谈以来，万斯、威特科夫和库什纳一直在与伊朗方面及中间人接触。
+本市户籍考生，可就近到全市任意户籍派出所申请办理，当日上午申请办理，下午可领取证件；当日下午申请，次日上午领取证件。
 
-报道称，一位美国官员表示：“未来的会谈正在讨论中，但目前还没有安排任何事宜。
+两种领取方式可任选其一： 一是本人持相关凭证于当日16时后或次日11时后，前往北京市公安局人口管理和基层工作总队制证中心现场领取； 二是选择邮政速递送证上门，公安机关将在完成制证后将居民身份证速递至申请人指定地点。
 
-”
+同时，高考期间，公安机关将在全市各考场外设置服务点，为居民身份证到期、丢失、损坏无法及时到派出所办理相关手续的考生，开具《常住人口信息查询结果》，用作考试身份证明。
+
+免费乘车 增开班次 公交地铁护航考生 记者从安徽合肥教育招生考试院了解到，今年，合肥市共设6个分考区、58个考点。
+
+为方便考生和家长高考期间出行，合肥公交集团发布了途经考点及备用考点的公交线路、停靠站点一览表。
+
+高考期间，将增加考点沿线公交班次。
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [公用事业公司计划未来五年投入1.4万亿美元，助力人工智能热潮发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:35 - [海垦十大招商项目亮相“粤贸全国”广东—海南经贸交流对接会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:20 - [从滞销盘到区域标杆 远洋建管获委托方授予“最佳战友”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:21 - [特朗普称伊朗致电美方说希望达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:19 - [总台海峡时评丨十项促进两岸交流合作新政将给台胞带来实实在在的和平利好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:20 - [郑州银行12名董高离开，赵飞省了一大笔薪酬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:26 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:41 - [中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:24 - [巴西非遗乐团走进北京丰台奏响友谊乐章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:34 - [富国基金27周年：深耕专业 迈向高质量发展新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:38 - [优彩资源人事调整：戴泽新之女戴梦茜卸任董秘，投行出身赖嫣珩接棒 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:43 - [新加坡金管局上调汇率区间斜率 预计2026年核心通胀率为1.5%-2.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:34 - [“邮储银行号”遥感卫星升空！银行为何接力放卫星？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:34 - [国家安全“大事”，跟普通人有什么关系？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:46 - [习近平会见西班牙首相桑切斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:44 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:46 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:51 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:29 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:44 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:43 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:39 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:46 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:43 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:39 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:40 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](http://www.share.kurohicncr.top/Article/details/18656.shtml)
-- 2026-06-29 11:35 - [搭建高端交流平台 深耕侨乡文脉传承——开平民建以学术交流赋能侨乡文化建设](http://www.share.kurohicncr.top/Article/details/61276031.shtml)
-- 2026-06-29 11:32 - [强业绩提振，金山软件涨超8%，腾讯混元3.0发布在即，华宝基金港股互联网ETF（513770）涨超1%](http://www.blog.minike.top/Article/details/54060070996.shtml)
-- 2026-06-29 11:44 - [海关总署：今年一季度我国货物进出口同比增长15%](http://www.share.kurohicncr.top/Article/details/059697409443.shtml)
-- 2026-06-29 11:39 - [从三分薄地到致富产业 山西大同黄花全产业链产值达25亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [视频 | 布林肯:霍尔木兹海峡问题就是特朗普搞出来的，现在纵火犯自己跑去灭火](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [中金：维持腾讯控股“跑赢行业”评级 目标价666港元](http://www.share.kurohicncr.top/Article/details/63240.shtml)
-- 2026-06-29 11:24 - [特朗普与昔日盟友梅洛尼翻脸 称她“辜负了美国”](http://www.blog.minike.top/Article/details/623727141.shtml)
-- 2026-06-29 11:37 - [不做下一个Temu：小红书Redshop的差异化突围之战](http://www.blog.kurohicncr.top/Article/details/558531198.shtml)
-- 2026-06-29 11:25 - [中天策略:4月13日市场分析](http://www.blog.minike.top/Article/details/665922398.shtml)
-- 2026-06-29 11:41 - [第六届中国国际消费品博览会启幕 超3400个品牌参展](http://www.blog.minike.top/Article/details/094826293.shtml)
-- 2026-06-29 11:37 - [安徽合肥加速竞逐未来产业](http://www.blog.minike.top/Article/details/825729891.shtml)
-- 2026-06-29 11:35 - [韩国3月ICT出口额达435亿美元，同比增长逾一倍](http://www.blog.kurohicncr.top/Article/details/66845434.shtml)
-- 2026-06-29 11:45 - [探馆消博会|未来生活，能有多酷？](http://www.blog.kurohicncr.top/Article/details/51056221735.shtml)
-- 2026-06-29 11:48 - [“海上名山”新潮出圈迎园博 浙江乐清全域联动谱文旅新篇](http://www.blog.minike.top/Article/details/95837.shtml)
+- 2026-06-29 11:43 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/797653.shtml)
+- 2026-06-29 11:46 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/55771026.shtml)
+- 2026-06-29 11:23 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/0235231.shtml)
+- 2026-06-29 11:30 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/77372858.shtml)
+- 2026-06-29 11:34 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/4595272.shtml)
+- 2026-06-29 11:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/75966154.shtml)
+- 2026-06-29 11:23 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/334551237.shtml)
+- 2026-06-29 11:41 - [毒液2](https://www.share.kurohicncr.top/Article/details/8032788.shtml)
+- 2026-06-29 11:27 - [跑步机上“爬坡”减肥公式爆火](https://www.share.kurohicncr.top/Article/details/963510.shtml)
+- 2026-06-29 11:48 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/520143148.shtml)
+- 2026-06-29 11:34 - [BW2026游览指南](http://www.blog.kurohicncr.top/Article/details/034563078772.shtml)
+- 2026-06-29 11:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/284607496.shtml)
+- 2026-06-29 11:25 - [2025年人口增长10强城市出炉](http://www.share.minike.top/Article/details/40472081835.shtml)
+- 2026-06-29 11:43 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/2938162.shtml)
+- 2026-06-29 11:44 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/71069109919.shtml)

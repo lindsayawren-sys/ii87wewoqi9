@@ -1,56 +1,58 @@
-# AI叠加强基本面双轮驱动，储能板块再迎强催化
+# 伊朗战事冲击能源市场 欧盟称航空燃油供应暂无虞
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-储能板块经历前期超跌修复后，叠加AI叙事外溢与强劲基本面支撑，今日延续上涨动能。截至4月14日13时50分，储能电池ETF易方达(159566)上涨1.49%，电池ETF易方达(159175)上涨1.03%，储能板块整体成交活跃。个股方面，鹏辉能源(300438.SZ)、禾望电气(603063.SH)、盛弘股份(300693.SZ)、同力天启(605286.SH)、申菱环境(3
+欧盟运输事务专员向路透表示，尽管伊朗战争引发能源供应冲击，但未来几个月欧洲没有出现航空燃油短缺的迹象。不过，高昂的燃油价格正促使航空公司削减无利可图的航线。 霍尔木兹海峡作为连接海湾地区与全球市场的关键航道，过去三个月来大致处于关闭状态，导致全球石油供应每日减少约1400万桶，相当于全球需求量的约14%。 迄今为止，欧盟承受住了这波冲击。中东地区约占欧盟航空燃油进口量的20%，
 
 ## 正文
 
-储能板块经历前期超跌修复后，叠加AI叙事外溢与强劲基本面支撑，今日延续上涨动能。
+欧盟运输事务专员向路透表示，尽管伊朗战争引发能源供应冲击，但未来几个月欧洲没有出现航空燃油短缺的迹象。
 
-截至4月14日13时50分，储能电池ETF易方达(159566)上涨1.49%，电池ETF易方达(159175)上涨1.03%，储能板块整体成交活跃。
+不过，高昂的燃油价格正促使航空公司削减无利可图的航线。
 
-个股方面，鹏辉能源(300438.SZ)、禾望电气(603063.SH)、盛弘股份(300693.SZ)、同力天启(605286.SH)、申菱环境(301018.SZ)、英维克(002837.SZ)涨超5%，阳光电源(300274.SZ)、派能科技(688063.SH)、麦格米特(002851.SZ)、新风光(688663.SH)等跟涨。
+霍尔木兹海峡作为连接海湾地区与全球市场的关键航道，过去三个月来大致处于关闭状态，导致全球石油供应每日减少约1400万桶，相当于全球需求量的约14%。
 
-此前3月初战争后大量避险资金涌入储能板块，但在3月下旬因战事超预期升级，集中流出，受避险资金集中流出影响，储能经历了深度回调。
+迄今为止，欧盟承受住了这波冲击。
 
-随着资金压力释放和地缘局势缓和，强劲的基本面业绩带动板块反弹。
+中东地区约占欧盟航空燃油进口量的20%，而来自美国与尼日利亚的供应大致填补了缺口。
 
-反弹之后，板块上涨逻辑进一步明确，核心受益于AI叙事外溢与基本面超预期双重支撑。
+“目前欧洲没有航空燃油短缺。
 
-一方面，AI叙事外溢带动相关需求爆发，当前AI是市场资金共识最强的方向，AIAgent爆发推动AI硬件需求提速，人工智能数据中心(AIDC)需求预期显著提升，其配套储能空间也随之打开。
+我们没有迹象表明未来一段时间会出现短缺，”欧盟运输事务专员Apostolos Tzitzikostas在接受采访时表示，并补充说地区机场面临的风险最大。
 
-储能电池ETF易方达中约三成权重覆盖AIDC相关的液冷、HVDC、SST等领域，能够直接受益于本轮AI叙事的持续走强。
+主要担忧在于价格飙升。
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [马斯克的SpaceX新数据：星链成绝对核心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:24 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:26 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:26 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:42 - [钦州港海关2026年4月份“关长接待日”公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:41 - [双象股份：拟每10股分红2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:19 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:27 - [搭建高端交流平台 深耕侨乡文脉传承——开平民建以学术交流赋能侨乡文化建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:33 - [强业绩提振，金山软件涨超8%，腾讯混元3.0发布在即，华宝基金港股互联网ETF（513770）涨超1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:38 - [海关总署：今年一季度我国货物进出口同比增长15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:25 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:25 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:41 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:43 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:24 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:34 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:50 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:42 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:26 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:49 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:33 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:36 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [*ST万方面临“市值退” 4月14日开市起停牌](http://www.blog.kurohicncr.top/Article/details/41149118767.shtml)
-- 2026-06-29 11:37 - [特一药业：根据米内网等第三方市场数据，硫酸氨基葡萄糖胶囊近年来的国内销售规模持续扩大](http://www.blog.minike.top/Article/details/8610301.shtml)
-- 2026-06-29 11:28 - [A股午评：超2600只个股飘绿，三大指数集体收涨](http://www.blog.minike.top/Article/details/767989.shtml)
-- 2026-06-29 11:39 - [伊朗内政部长指示边境省份“消除海上封锁威胁”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [英国石油称其石油交易业务表现“异常出色”](http://www.blog.minike.top/Article/details/962896.shtml)
-- 2026-06-29 11:19 - [人民币兑美元中间价较上日调升64点至6.8593 升值至2023年3月24日以来最高！](http://www.blog.kurohicncr.top/Article/details/3470942.shtml)
-- 2026-06-29 11:22 - [东盟学子以艺架桥 欢庆广西“三月三”](http://www.share.minike.top/Article/details/26729.shtml)
-- 2026-06-29 11:43 - [贺兰山下的微醺时光：一杯尽揽岁月风华](http://www.blog.minike.top/Article/details/4750828688.shtml)
-- 2026-06-29 11:24 - [第十二届“东方财富杯”全国大学生金融挑战赛正式启动 以金融实践赋能青年素养提升](http://www.blog.minike.top/Article/details/6771450.shtml)
-- 2026-06-29 11:37 - [近一周“一口价”黄金产品最高下跌17%！机构依旧看好黄金后市](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [美国称霍尔木兹封锁首日六船折返](http://www.blog.kurohicncr.top/Article/details/82449280.shtml)
-- 2026-06-29 11:41 - [浙江温州：园博园意大利馆开馆](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [德林控股于4月13日斥资114.9万港元回购100万股](http://www.share.kurohicncr.top/Article/details/6389802.shtml)
-- 2026-06-29 11:22 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](http://www.blog.minike.top/Article/details/44766888235.shtml)
-- 2026-06-29 11:25 - [2月马来西亚天然橡胶产量环比下降24.1%](http://www.blog.kurohicncr.top/Article/details/38492767141.shtml)
+- 2026-06-29 11:47 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/922358.shtml)
+- 2026-06-29 11:32 - [DeepSeek联合北京大学发布论文](http://www.share.kurohicncr.top/Article/details/7691998.shtml)
+- 2026-06-29 11:28 - [高考志愿今起开始填报](http://www.share.minike.top/Article/details/844857.shtml)
+- 2026-06-29 11:40 - [中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/664501081109.shtml)
+- 2026-06-29 11:46 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.blog.minike.top/Article/details/82812634.shtml)
+- 2026-06-29 11:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/508839.shtml)
+- 2026-06-29 11:50 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/9503191.shtml)
+- 2026-06-29 11:46 - [普京：俄罗斯将坚定捍卫自身根本利益](https://www.blog.minike.top/Article/details/35320.shtml)
+- 2026-06-29 11:43 - [宜宾地震后顾客折返用餐0人逃单](https://www.blog.kurohicncr.top/Article/details/85004.shtml)
+- 2026-06-29 11:35 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/23314521580.shtml)
+- 2026-06-29 11:46 - [宜宾地震监控画面](http://www.blog.minike.top/Article/details/34880890683.shtml)
+- 2026-06-29 11:27 - [加拿大92分钟绝杀南非](http://www.share.kurohicncr.top/Article/details/003434.shtml)
+- 2026-06-29 11:46 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/870433631475.shtml)
+- 2026-06-29 11:51 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/43919.shtml)
+- 2026-06-29 11:43 - [换个角度打开世界杯淘汰赛](https://www.share.kurohicncr.top/Article/details/84635242.shtml)

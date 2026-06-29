@@ -1,50 +1,57 @@
-# 古兜控股获JYH Hong Kong Limited增持约1.07亿股 每股作价0.0603港元
+# 多地多部门联动护航“平安高考”
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，4月10日，JYH Hong Kong Limited增持古兜控股（08308）1.06992亿股，每股作价0.0603港元，总金额约为645.16万港元。增持后最新持股数目约为3.57亿股，最新持股比例为25.73%。责任编辑：卢昱君
+2026年全国统一高考将于6月7日开考，全国1290万名考生奔赴考场。考前，教育部会同网信、公安等部门联合部署开展“2026年高考护航行动”，全面做好考试组织、宣传引导、考生服务等各项工作，全力护航“平安高考”。据悉，各地集中力量，联动多部门确保考试期间治安安全、用电用火安全、考生人身安全，确保考试环境万无一失。海南省集中开展“打击手机作弊”“净化涉考网络环境”等6项“高考护航
 
 ## 正文
 
-香港联交所最新数据显示，4月10日，JYH Hong Kong Limited增持古兜控股（08308）1.06992亿股，每股作价0.0603港元，总金额约为645.16万港元。
+2026年全国统一高考将于6月7日开考，全国1290万名考生奔赴考场。
 
-增持后最新持股数目约为3.57亿股，最新持股比例为25.73%。
+考前，教育部会同网信、公安等部门联合部署开展“2026年高考护航行动”，全面做好考试组织、宣传引导、考生服务等各项工作，全力护航“平安高考”。
 
-责任编辑：卢昱君
+据悉，各地集中力量，联动多部门确保考试期间治安安全、用电用火安全、考生人身安全，确保考试环境万无一失。
+
+海南省集中开展“打击手机作弊”“净化涉考网络环境”等6项“高考护航”专项行动，全面整治各类涉考风险隐患；广东省公安厅推出28项护考措施，全省608个考点纳入“指挥一张图”和“1分钟快速反应圈”，实行“一考点一团队一方案”。
+
+在电力与基础设施保障方面，河北省石家庄市全部84个2026年高考考点实现双电源供电；福建省漳州市完成26个考点双电源自动投切改造。
+
+噪声污染治理方面，安徽省铜陵市、甘肃省合作市等明确考场周边500米范围内，考试期间禁止建筑施工、渣土运输、露天娱乐等产生噪声的活动。
+
+在公共卫生安全方面，四川省绵阳市等地在考点配备专业医护人员及专用救护车，开通考生就医绿色通道；辽宁省沈阳市出动救护车111辆、医护人员492人，精神卫生中心开设考生专属心理咨询门诊，24小时心理援助热线随时待命。
+
+此外，各地提供一系列暖心服务，开辟绿色通道，从出行、证件、心理等多方面提供保障，让考生暖心应考、从容赴考。
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [创新药“加速度”，商保角色重塑：从补充支付到核心参与！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:48 - [比亚迪又拿下两大电芯订单！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:39 - [多国政要排队访华 为何而来？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:43 - [肖远企在澳门葡语国家（地区）保险监管研讨会上的演讲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:27 - [永川海关2026年度信息化运维服务采购项目中标公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:47 - [赢家时尚：受托人根据股份奖励计划购买合共92.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:45 - [涨超六成！环氧丙烷价格快速走高 多股业绩有望翻倍增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:41 - [贝森特：关税水平或在7月初前恢复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:30 - [重磅数据本周发布，中国经济有望迎“开门红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:44 - [土耳其一中学发生枪击事件致16人受伤 枪手自杀身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:46 - [二十年爱心接力 澳门汇才慈善会情暖湖南江永瑶乡学子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:48 - [山水本身就是一间流动的自然课堂 春日文旅从“看风景”走向“读自然”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:41 - [乐氏国际控股附属拟1万元收购杭州一行物流有限公司100%股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:21 - [“挂床住院”现象近年来时有发生 专家：完善相关制度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:23 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:40 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:38 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:35 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:48 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:45 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:42 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:50 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:44 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:23 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:46 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [涉案3000万元 非法集资瞄准“银发旅游团”](http://www.blog.minike.top/Article/details/157601509.shtml)
-- 2026-06-29 11:43 - [药捷安康-B拟折让约18.00%发行508.5万股配售股份](http://www.share.minike.top/Article/details/1873781717.shtml)
-- 2026-06-29 11:28 - [长安期货：美伊和谈暂无成果 关注CPI数据](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [恒大集团、恒大地产及许家印案一审开庭](http://www.blog.kurohicncr.top/Article/details/77552.shtml)
-- 2026-06-29 11:42 - [（乡村行·看振兴）湖光山色引客来 艺术唤醒“空心村”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [新华社：运动员因何频遭网暴？全红婵案警示几何？](http://www.blog.kurohicncr.top/Article/details/39301097094.shtml)
-- 2026-06-29 11:47 - [微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元](http://www.share.kurohicncr.top/Article/details/55444276885.shtml)
-- 2026-06-29 11:37 - [巴比食品投资东鹏饮料，“甜果”变“苦果”](http://www.blog.minike.top/Article/details/14608881.shtml)
-- 2026-06-29 11:27 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](http://www.share.minike.top/Article/details/73121957.shtml)
-- 2026-06-29 11:23 - [香港交易所推出两只科技指数 易方达香港获授权](http://www.share.minike.top/Article/details/2077918308.shtml)
-- 2026-06-29 11:39 - [天风策略：特朗普TACO了吗？](http://www.share.minike.top/Article/details/66362173852.shtml)
-- 2026-06-29 11:46 - [3月黑猫投诉企业红黑榜：Agoda擅自取消订单且阻挠用户申诉](http://www.blog.kurohicncr.top/Article/details/2766235598.shtml)
-- 2026-06-29 11:42 - [【新思想引领新征程】服务业扩能提质 锻造经济增长新引擎](http://www.share.minike.top/Article/details/602776967263.shtml)
-- 2026-06-29 11:20 - [冰川消退预警峰值水量 奥地利能源转型提速](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [参议员Scott：沃什的美联储主席提名确认听证会将于下周举行](http://www.share.kurohicncr.top/Article/details/014477162295.shtml)
+- 2026-06-29 11:49 - [王中磊儿子邹市明儿子曹格儿子同框](https://www.blog.minike.top/Article/details/882767.shtml)
+- 2026-06-29 11:35 - [欧洲极端高温东扩](https://www.blog.minike.top/Article/details/460903845.shtml)
+- 2026-06-29 11:40 - [罗马诺：李刚仁已与马竞达成协议](https://www.share.minike.top/Article/details/00089.shtml)
+- 2026-06-29 11:38 - [成都震感](https://www.blog.minike.top/Article/details/1061191.shtml)
+- 2026-06-29 11:52 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/430089470.shtml)
+- 2026-06-29 11:47 - [乌拉圭出局之路](http://www.blog.minike.top/Article/details/4500046289.shtml)
+- 2026-06-29 11:37 - [ENC瓦中国香港负印度数据图](https://www.share.minike.top/Article/details/76298.shtml)
+- 2026-06-29 11:49 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/374541645181.shtml)
+- 2026-06-29 11:37 - [王楚钦3-0周启豪 晋级32强](http://www.share.kurohicncr.top/Article/details/339138.shtml)
+- 2026-06-29 11:29 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/9149706927.shtml)
+- 2026-06-29 11:41 - [高超感谢女友王佳欣](https://www.blog.kurohicncr.top/Article/details/2642761866.shtml)
+- 2026-06-29 11:27 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/541563806.shtml)
+- 2026-06-29 11:23 - [当地回应多辆“百吨王”强行冲卡](http://www.blog.kurohicncr.top/Article/details/486326403964.shtml)
+- 2026-06-29 11:44 - [逃狱兄弟](https://www.blog.minike.top/Article/details/621163572.shtml)
+- 2026-06-29 11:37 - [换个角度打开世界杯淘汰赛](https://www.blog.minike.top/Article/details/03950312.shtml)

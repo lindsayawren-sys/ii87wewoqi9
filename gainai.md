@@ -1,56 +1,57 @@
-# 即便油价飙升，市场是否已度过 “恐惧与抛售峰值”？
+# 伊朗与巴基斯坦两国内政部长会面 讨论地区局势等问题
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-核心要点 美国封锁关键水道霍尔木兹海峡的举动，引发了市场常见的连锁反应：原油价格飙升、国债收益率上行、美元走强。 但这一次，除油价外，市场整体反应明显克制。周一股市跌幅相对温和，表明投资者已基本消化地缘政治风险，对相关新闻的敏感度有所下降。 Global X ETF 投资策略师 Billy Leung 在谈及特朗普的声明时表示：“市场认为这在很大程度上属于谈判策略。不确定性已经
+当地时间6日晚，伊朗内政部长莫梅尼会见了到访的巴基斯坦内政部长纳克维。 莫梅尼表示，巴基斯坦内政部长此次访问的部分内容将聚焦双边问题，包括边境安全、禁毒和反恐。此外，双方在经济领域决定将两国间的年度贸易额从30亿美元提高到100亿美元。莫梅尼称，伊朗赞赏巴基斯坦在缓和伊朗与美国紧张关系方面发挥的积极作用。 纳克维表示，伊朗和巴基斯坦有着兄弟般的关系，希望在巴基斯坦官员的努力下，
 
 ## 正文
 
-核心要点 美国封锁关键水道霍尔木兹海峡的举动，引发了市场常见的连锁反应：原油价格飙升、国债收益率上行、美元走强。
+当地时间6日晚，伊朗内政部长莫梅尼会见了到访的巴基斯坦内政部长纳克维。
 
-但这一次，除油价外，市场整体反应明显克制。
+莫梅尼表示，巴基斯坦内政部长此次访问的部分内容将聚焦双边问题，包括边境安全、禁毒和反恐。
 
-周一股市跌幅相对温和，表明投资者已基本消化地缘政治风险，对相关新闻的敏感度有所下降。
+此外，双方在经济领域决定将两国间的年度贸易额从30亿美元提高到100亿美元。
 
-Global X ETF 投资策略师 Billy Leung 在谈及特朗普的声明时表示：“市场认为这在很大程度上属于谈判策略。
+莫梅尼称，伊朗赞赏巴基斯坦在缓和伊朗与美国紧张关系方面发挥的积极作用。
 
-不确定性已经见顶，市场反应不再像此前那样极端。
+纳克维表示，伊朗和巴基斯坦有着兄弟般的关系，希望在巴基斯坦官员的努力下，地区危机能够尽快结束。
 
-” 亚洲股市普遍走低，但跌幅显著缓和，多数主要股指下跌约 1%。
+本次访问是为了向伊朗最高领袖穆杰塔巴递交巴基斯坦陆军参谋长穆尼尔和总理谢里夫关于当前局势的特别信函。
 
-美国主要股指期货跌幅也不足 1%。
+纳克维提到，“我认为这条信息非常重要。
 
-现货黄金下跌约 0.5%，至每盎司 4720.28 美元，美元指数上涨 0.38%。
+希望一切顺利，危机早日结束。
 
 ## 相关推荐
 
-- 2026-06-29 11:47 - [美国封锁霍尔木兹海峡之际，印度购买俄油豁免期恰好到期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:43 - [下班上课夜间“充电” 杭州青年夜校AI培训受追捧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:35 - [正面硬刚亚马逊？ 京东再进军欧洲推行“211”配送，欧洲人买单吗？｜欧陆志](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:37 - [这个国之重器，干了件济世救人的事……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:39 - [直播海报：国务院政策例行吹风会：介绍健全全周期全渠道药品价格形成机制有关情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:26 - [天孚通信：无源稳健有源增长，光器件平台龙头尽享AI红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:22 - [万科拟调整“23万科MTN001”本金兑付安排：偿还40%，剩余60%展期一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:23 - [3000亿元的大时代，公募如何构建FOF的护城河？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:25 - [哈萨克斯坦今年第一季度GDP同比增长3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:37 - [美联航据悉提议与美国航空合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:28 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:23 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:25 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:23 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:43 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:46 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:43 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:52 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:31 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:44 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:22 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [“挂床住院”现象近年来时有发生 专家：完善相关制度](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨](http://www.blog.minike.top/Article/details/803230390446.shtml)
-- 2026-06-29 11:22 - [多国留学青年走进浙江丽水 沉浸式感受侨乡发展新貌](http://www.blog.kurohicncr.top/Article/details/09464.shtml)
-- 2026-06-29 11:25 - [四川荣县回应“男子献血十年要求免诊查费遭拒”：医院已当面致歉](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [印尼的塑料袋与万里之外的战火](http://www.share.minike.top/Article/details/81672625541.shtml)
-- 2026-06-29 11:22 - [花旗集团披露第四季度私募信贷敞口220亿美元 对BDC投入比例很低](http://www.share.minike.top/Article/details/77244647270.shtml)
-- 2026-06-29 11:39 - [Anthropic据悉收到多家风投公司的投资提议，估值达8000亿美元](http://www.blog.minike.top/Article/details/6980499.shtml)
-- 2026-06-29 11:44 - [井泉大使会见菲律宾司法部长弗雷德里克·维达](http://www.blog.kurohicncr.top/Article/details/804654834.shtml)
-- 2026-06-29 11:46 - [苏富比向卖家提供7%利息以延后支付拍卖款项](http://www.blog.minike.top/Article/details/432037.shtml)
-- 2026-06-29 11:45 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [今年以来多个细分赛道ETF实现大幅净流入](http://www.blog.kurohicncr.top/Article/details/21187.shtml)
-- 2026-06-29 11:39 - [浙江杭州：智能游艇畅游富春江](http://www.blog.minike.top/Article/details/941422.shtml)
-- 2026-06-29 11:39 - [中国清洁技术优势扩大](http://www.share.minike.top/Article/details/59292431.shtml)
-- 2026-06-29 11:20 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](http://www.share.kurohicncr.top/Article/details/7994934214.shtml)
-- 2026-06-29 11:34 - [中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%](http://www.share.minike.top/Article/details/68409.shtml)
+- 2026-06-29 11:29 - [韩国队启程回国众将回避镜头](https://www.share.kurohicncr.top/Article/details/482079.shtml)
+- 2026-06-29 11:43 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/652727354569.shtml)
+- 2026-06-29 11:44 - [宜宾5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/55858.shtml)
+- 2026-06-29 11:25 - [中国U17男篮78-87加拿大U17男篮](http://www.blog.kurohicncr.top/Article/details/336413995564.shtml)
+- 2026-06-29 11:41 - [香港航天员黎家盈带招牌笑容工作](https://www.blog.minike.top/Article/details/3805771998.shtml)
+- 2026-06-29 11:23 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/65181413025.shtml)
+- 2026-06-29 11:25 - [三轮车被自家狗“推”进池塘](http://www.blog.kurohicncr.top/Article/details/67091.shtml)
+- 2026-06-29 11:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/1584984.shtml)
+- 2026-06-29 11:37 - [晋城暴雨车辆被淹冰箱在水中漂](http://www.share.minike.top/Article/details/375060306.shtml)
+- 2026-06-29 11:46 - [埃博拉为何再次袭击非洲](http://www.share.minike.top/Article/details/423817.shtml)
+- 2026-06-29 11:32 - [高考志愿今起开始填报](http://www.blog.kurohicncr.top/Article/details/226258.shtml)
+- 2026-06-29 11:26 - [俄政府批准巩固俄语地位行动计划](http://www.share.kurohicncr.top/Article/details/660606592605.shtml)
+- 2026-06-29 11:52 - [啊啊啊](http://www.share.minike.top/Article/details/15466867.shtml)
+- 2026-06-29 11:24 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/36258.shtml)
+- 2026-06-29 11:25 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/1946782.shtml)

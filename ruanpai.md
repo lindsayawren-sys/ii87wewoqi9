@@ -1,59 +1,59 @@
-# 辽宁营商环境的“民生温度”与“投资信心”
+# 青海：政企“双向奔赴”推动民间投资向好向优
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-中新网沈阳4月13日电 (王涵)到4月13日，辽宁优化营商环境攻坚迎来百日节点。营商环境好不好，不是单纯的考核数字，而要看老百姓和企业切身的“体感温度”。百日来，辽宁从细微处着手，通过政务服务的“做减法”和民生保障的“做加法”，正悄然发生着从“管理”向“服务”的观念之变。这种变化，不仅让当地人感受到了实惠，更转化为外界投资辽宁的坚定信心。微观体感：从“折返跑”到“立等可取” “
+中新网西宁6月5日电 题：青海：政企“双向奔赴”推动民间投资向好向优 作者李隽 高原夏日，在青海省西宁经济技术开发区东川工业园区诺德股份青海诺德新材料有限公司，巨大的铜箔生产线正高速运转，薄如蝉翼的铜箔缓缓收卷。 “这片厚度仅4到6微米的铜箔，是锂离子电池的核心材料，相当于人类头发丝的十六分之一到二十分之一。就是这细小的材料，支撑着新能源汽车、储能产业的飞速发展。”诺德股份青海
 
 ## 正文
 
-中新网沈阳4月13日电 (王涵)到4月13日，辽宁优化营商环境攻坚迎来百日节点。
+中新网西宁6月5日电 题：青海：政企“双向奔赴”推动民间投资向好向优 作者李隽 高原夏日，在青海省西宁经济技术开发区东川工业园区诺德股份青海诺德新材料有限公司，巨大的铜箔生产线正高速运转，薄如蝉翼的铜箔缓缓收卷。
 
-营商环境好不好，不是单纯的考核数字，而要看老百姓和企业切身的“体感温度”。
+“这片厚度仅4到6微米的铜箔，是锂离子电池的核心材料，相当于人类头发丝的十六分之一到二十分之一。
 
-百日来，辽宁从细微处着手，通过政务服务的“做减法”和民生保障的“做加法”，正悄然发生着从“管理”向“服务”的观念之变。
+就是这细小的材料，支撑着新能源汽车、储能产业的飞速发展。
 
-这种变化，不仅让当地人感受到了实惠，更转化为外界投资辽宁的坚定信心。
+”诺德股份青海诺德新材料有限公司总经理助理兼技术顾问李永贞说，2007年，诺德股份来到青海，从最初的摸索到如今5万吨的年产能，再到规划中的8万吨，扎根高原近20年。
 
-微观体感：从“折返跑”到“立等可取” “以前打政务热线，要在语音导航里按半天键，现在一拨就有人接。
+“近些年，青海的营商环境一年一个样，尤其是这两年，实现了质的提升。
 
-”这是近期辽宁许多民众的共同感受。
+”李永贞说，如今多头检查、重复调研成为历史，联合执法、高效服务已成常态，企业能够心无旁骛抓生产、拓市场、谋发展，真正做到敢投资、敢扩产、敢创新。
 
-记者从辽宁省数据局了解到，除沈阳、大连外，辽宁已全面取消12345热线语音导航，直接转人工接听。
+近年来，青海省一系列举措让“多头管理”变为“联合检查”，让“被动应付”变为“主动服务”，政府角色的转变让民营企业有了实实在在的获得感。
 
-热线“秒接”的背后，是政务服务效率的系统性重构。
+今年4月，《青海省进一步促进民间投资发展的若干举措》印发，围绕扩准入、提质效、强保障、优环境四个方面推出18条硬核举措靶向发力，推动民间投资从“鼓励参与”向“制度性开放”转变，为民营企业松绑减负、赋能增效。
 
 ## 相关推荐
 
-- 2026-06-29 11:22 - [王毅同巴基斯坦副总理兼外长达尔通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:38 - [五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:33 - [两面针：公司目前已布局并推出电动牙刷产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:36 - [新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:41 - [A股指数收红！锂矿板块午后放量拉升！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:34 - [日本邮船采用3D技术设计建造新一代CTV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:28 - [400辆网约车百余次故障？电动汽车质量纠纷该找谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:22 - [Anthropic联合创始人：正与特朗普政府讨论下一个人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:45 - [京津冀定向挑战赛天津落幕 四百余名选手花海寻春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:33 - [巴基斯坦防长称美伊谈判将很快重启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:29 - [兴业证券：首予保利置业增持评级 毛利率有望企稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:42 - [远大医药盘中涨超4% 重磅核药SIR-Spheres®钇\[90Y\]微球注射液再度迎来里程碑进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:36 - [华尔街行情向好，摩根大通固定收益与投行业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:29 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:29 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:33 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:45 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:24 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:24 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:39 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:43 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:26 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:46 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](http://www.share.kurohicncr.top/Article/details/204069557794.shtml)
-- 2026-06-29 11:36 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](http://www.share.minike.top/Article/details/93875569308.shtml)
-- 2026-06-29 11:24 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](http://www.blog.minike.top/Article/details/84328277439.shtml)
-- 2026-06-29 11:44 - [违规超量投放共享自行车，哈啰公司被约谈](http://www.share.minike.top/Article/details/13623629.shtml)
-- 2026-06-29 11:33 - [5年亏超120亿，“胖改”难救永辉超市](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [CoreMarine与Jumbo Offshore合作开展阿根廷FLNG安装与连接项目](http://www.share.kurohicncr.top/Article/details/362792814140.shtml)
-- 2026-06-29 11:28 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](http://www.share.kurohicncr.top/Article/details/30302311339.shtml)
-- 2026-06-29 11:45 - [帝王国际投资：清盘呈请获撤回](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [美媒：若美伊重返谈判桌 万斯将再次率团](http://www.blog.minike.top/Article/details/556101397.shtml)
-- 2026-06-29 11:32 - [ATFX汇市前瞻:褐皮书与PPI数据来袭 G20与原油月报本周发布](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [乌军对克里米亚发动大规模袭击](http://www.blog.minike.top/Article/details/62723378528.shtml)
-- 2026-06-29 11:22 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](http://www.blog.kurohicncr.top/Article/details/44981910430.shtml)
-- 2026-06-29 11:37 - [对冲基金资本正重塑拥有180年历史的保险模式](http://www.share.kurohicncr.top/Article/details/77957312.shtml)
-- 2026-06-29 11:41 - [能源价格回落后 交易员下调对欧洲央行加息的押注](http://www.share.kurohicncr.top/Article/details/8428759.shtml)
-- 2026-06-29 11:34 - [周黑鸭于4月13日斥资149.61万港元回购94.1万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/82954.shtml)
+- 2026-06-29 11:47 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.share.kurohicncr.top/Article/details/45552817.shtml)
+- 2026-06-29 11:49 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/268860.shtml)
+- 2026-06-29 11:49 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/0357566835.shtml)
+- 2026-06-29 11:26 - [韩国主教练连夜下课](https://www.share.kurohicncr.top/Article/details/794778870.shtml)
+- 2026-06-29 11:44 - [丞磊莫离最后5集加起来集均3分钟戏份](https://www.blog.minike.top/Article/details/20214939092.shtml)
+- 2026-06-29 11:47 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/715644311227.shtml)
+- 2026-06-29 11:33 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/0674179.shtml)
+- 2026-06-29 11:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/12047596192.shtml)
+- 2026-06-29 11:35 - [海清白玉兰奖运](http://www.share.kurohicncr.top/Article/details/07113964515.shtml)
+- 2026-06-29 11:36 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.minike.top/Article/details/7794989.shtml)
+- 2026-06-29 11:46 - [换个角度打开世界杯淘汰赛](https://www.share.kurohicncr.top/Article/details/3964667702.shtml)
+- 2026-06-29 11:33 - [国乒全主力参加美国大满贯](http://www.blog.minike.top/Article/details/5741373192.shtml)
+- 2026-06-29 11:25 - [四川宜宾地震](http://www.share.kurohicncr.top/Article/details/92340.shtml)
+- 2026-06-29 11:40 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/527222624.shtml)

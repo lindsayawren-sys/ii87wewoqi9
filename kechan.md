@@ -1,44 +1,59 @@
-# 贵州省人大常委会秘书长、办公厅主任潘荣接受审查调查
+# 人民币兑美元中间价报6.8198，下调41点
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-中新网4月13日电 据贵州省纪委监委消息，贵州省人大常委会秘书长、办公厅主任潘荣涉嫌严重违纪违法，目前正接受贵州省纪委监委纪律审查和监察调查。
+6月8日，人民币兑美元中间价报6.8198，下调41点。 美联储6月维持利率不变的概率为97% 据CME“美联储观察”：美联储到6月维持利率不变的概率为97%，累计降息25个基点的概率为3%。美联储到7月维持利率不变的概率为81.9%，累计加息25个基点的概率15.5%，累计降息25个基点的概率为2.5%。 高盛：因劳动力市场强劲 不再预计美联储今年降息 高盛经济学家表示，由于
 
 ## 正文
 
-中新网4月13日电 据贵州省纪委监委消息，贵州省人大常委会秘书长、办公厅主任潘荣涉嫌严重违纪违法，目前正接受贵州省纪委监委纪律审查和监察调查。
+6月8日，人民币兑美元中间价报6.8198，下调41点。
+
+美联储6月维持利率不变的概率为97% 据CME“美联储观察”：美联储到6月维持利率不变的概率为97%，累计降息25个基点的概率为3%。
+
+美联储到7月维持利率不变的概率为81.9%，累计加息25个基点的概率15.5%，累计降息25个基点的概率为2.5%。
+
+高盛：因劳动力市场强劲 不再预计美联储今年降息 高盛经济学家表示，由于劳动力市场强于预期，不再预计美联储今年会降息。
+
+该行将美联储最后两次降息的预期时间从此前的2026年12月和2027年3月推迟至2027年6月和12月。
+
+但高盛首席美国经济学家梅里克指出，由于通胀“似乎不太可能变得自我持续”，美联储加息的可能性仍然不大。
+
+5月美国就业增长超出所有预期，显示劳动力市场具有韧性，并加剧了市场对央行将加息的押注。
+
+高盛继续认为加息可能性不大，但将小幅加息概率从10%上调至20%。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [开局之年看中国·开放自贸港：文旅融合呈现产业新活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:19 - [“乔、灌、药”立体种植 新疆和田探索出治沙增收新模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:40 - [油价飙升之际 日本央行据悉考虑大幅上调通胀预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:43 - [甘肃环县九村联建一个厂 带富千户种粮人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:34 - [Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:27 - [OpenAI是否正脱离微软的掌控？与亚马逊的新联盟让利害关系进一步升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:34 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:45 - [欧洲债市：各期限收益率全线下行 市场下调对欧英央行的加息押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:31 - [五一视界早盘涨逾6% 日前获创始人增持765万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:24 - [中国正计划向伊朗提供武器？外交部：反对无根据的抹黑或恶意关联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:24 - [快讯：WTI原油日内大跌4.00%，现报88.37美元/桶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:26 - [向上转机就在四月，华宝基金创业板人工智能连创新高！最大港股通信息技术ETF（159131）涨超2%又跑赢！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:36 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:26 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:35 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:51 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:27 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:38 - [宜宾5.5级地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:24 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:27 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:22 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:23 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:44 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:50 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月](http://www.blog.minike.top/Article/details/588977.shtml)
-- 2026-06-29 11:36 - [巴西非遗乐团走进北京丰台奏响友谊乐章](http://www.share.kurohicncr.top/Article/details/021545000.shtml)
-- 2026-06-29 11:24 - [富国基金27周年：深耕专业 迈向高质量发展新阶段](http://www.blog.kurohicncr.top/Article/details/168673048425.shtml)
-- 2026-06-29 11:46 - [优彩资源人事调整：戴泽新之女戴梦茜卸任董秘，投行出身赖嫣珩接棒 | 长三角资本局](http://www.share.minike.top/Article/details/05929.shtml)
-- 2026-06-29 11:48 - [新加坡金管局上调汇率区间斜率 预计2026年核心通胀率为1.5%-2.5%](http://www.share.minike.top/Article/details/943913.shtml)
-- 2026-06-29 11:36 - [“邮储银行号”遥感卫星升空！银行为何接力放卫星？](http://www.share.kurohicncr.top/Article/details/22909584973.shtml)
-- 2026-06-29 11:39 - [国家安全“大事”，跟普通人有什么关系？](http://www.share.kurohicncr.top/Article/details/65100809.shtml)
-- 2026-06-29 11:48 - [习近平会见西班牙首相桑切斯](http://www.share.minike.top/Article/details/84067.shtml)
-- 2026-06-29 11:45 - [企业加速入驻 中国首个大模型创新生态社区“AI磁力”增强](http://www.share.minike.top/Article/details/6062258.shtml)
-- 2026-06-29 11:27 - [国晟科技，浑身是谜](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [专家学者南京共商生态文明传播新路径](http://www.share.kurohicncr.top/Article/details/41288.shtml)
-- 2026-06-29 11:30 - [新加坡第一季度经济增长放缓](http://www.blog.kurohicncr.top/Article/details/108773943.shtml)
-- 2026-06-29 11:49 - [创业板增设第四套上市标准 更好支持优质创新企业发展](http://www.share.kurohicncr.top/Article/details/2316102.shtml)
-- 2026-06-29 11:27 - [原油：油价下挫 美伊和谈预期缓解供应担忧](http://www.blog.minike.top/Article/details/610549.shtml)
-- 2026-06-29 11:44 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](http://www.share.kurohicncr.top/Article/details/54912.shtml)
+- 2026-06-29 11:45 - [农业谣言岂能如此“变态”](http://www.blog.minike.top/Article/details/5496094225.shtml)
+- 2026-06-29 11:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/501294194061.shtml)
+- 2026-06-29 11:46 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/974286266.shtml)
+- 2026-06-29 11:49 - [成都震感](http://www.blog.minike.top/Article/details/50320416684.shtml)
+- 2026-06-29 11:40 - [游戏数据竟被用于军事目的](http://www.share.minike.top/Article/details/7230048.shtml)
+- 2026-06-29 11:50 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/897992.shtml)
+- 2026-06-29 11:43 - [本届世界杯黑马扎堆](http://www.blog.kurohicncr.top/Article/details/2387207167.shtml)
+- 2026-06-29 11:43 - [全球首发核电站彩蛋攻略](http://www.blog.minike.top/Article/details/3207832.shtml)
+- 2026-06-29 11:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/90644546216.shtml)
+- 2026-06-29 11:42 - [BW2026游览指南](https://www.share.minike.top/Article/details/271136067.shtml)
+- 2026-06-29 11:32 - [下半年A股怎么走](https://www.blog.kurohicncr.top/Article/details/600808607.shtml)
+- 2026-06-29 11:32 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/081789.shtml)
+- 2026-06-29 11:49 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/15551.shtml)
+- 2026-06-29 11:28 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/730925748.shtml)
+- 2026-06-29 11:37 - [韩体育部长回应李在明痛批](https://www.share.minike.top/Article/details/8110166629.shtml)

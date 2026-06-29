@@ -1,58 +1,61 @@
-# 巴西非遗乐团走进北京丰台奏响友谊乐章
+# 2026“寻找美丽中华”定向赛扬州站：500余名选手开启城市探索之旅
 
-> 更新时间：2026-06-29 11:49:03 UTC+8
+> 更新时间：2026-06-29 11:52:29 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月13日 11:15 来源：中国新闻网 4月11日，位于北京市丰台区的宛平城西城楼上，一曲熟悉的《茉莉花》旋律在春风中响起。演唱者是来自巴西里约州的非物质文化遗产“科帕卡巴纳要塞管弦乐团”的乐手们。 这是2026年“中巴文化年”开启之际举行的一场特别文化交流。远道而来的科帕卡巴纳要塞管弦乐团，从丰台区文化馆剧场到卢沟桥宛平城，以一场跨越剧场与古城的文化行
+中新网扬州6月6日电 (徐珊珊 任静)6月6日，2026年“寻找美丽中华”全国旅游城市定向系列赛江苏扬州站在生态科技新城繁花屿音乐公园开赛。这是该项国家级定向赛事连续第七年落户扬州生态科技新城。七年如约而至，“寻找美丽中华”早已不止是一场比赛，而成为区域“体育+旅游”的标杆核心IP，也是一把以运动丈量山河、以脚步读懂中国的钥匙。 上午9时许，随着发令笛声响起，500多名来自全国
 
 ## 正文
 
-发布时间：2026年04月13日 11:15 来源：中国新闻网 4月11日，位于北京市丰台区的宛平城西城楼上，一曲熟悉的《茉莉花》旋律在春风中响起。
+中新网扬州6月6日电 (徐珊珊 任静)6月6日，2026年“寻找美丽中华”全国旅游城市定向系列赛江苏扬州站在生态科技新城繁花屿音乐公园开赛。
 
-演唱者是来自巴西里约州的非物质文化遗产“科帕卡巴纳要塞管弦乐团”的乐手们。
+这是该项国家级定向赛事连续第七年落户扬州生态科技新城。
 
-这是2026年“中巴文化年”开启之际举行的一场特别文化交流。
+七年如约而至，“寻找美丽中华”早已不止是一场比赛，而成为区域“体育+旅游”的标杆核心IP，也是一把以运动丈量山河、以脚步读懂中国的钥匙。
 
-远道而来的科帕卡巴纳要塞管弦乐团，从丰台区文化馆剧场到卢沟桥宛平城，以一场跨越剧场与古城的文化行走，奏响中巴民间友谊的动人乐章。
+上午9时许，随着发令笛声响起，500多名来自全国各地的定向运动爱好者如离弦之箭，奔向湿地、林间与城市地标。
 
-在丰台区文化馆内，来自巴西的乐团以中文经典作品《如愿》开场，拉近了与观众的距离。
+本次赛事由国家体育总局航空无线电模型运动管理中心、中国无线电和定向运动协会主办，江苏省无线电和定向运动协会、扬州市生态科技新城农文体旅融合发展中心、扬州市万福城市投资发展有限公司、扬州越向体育文化发展有限公司联合承办，扬州市文化广电和旅游局、扬州市体育局、扬州市旅游协会支持。
 
-随后，一曲充满巴西民俗旋律的《伊帕内玛女孩》点燃全场。
+赛事设精英男子组、精英女子组、公开男子组、公开女子组及亲子组5个组别，充分兼顾专业竞技与全民参与。
 
-令观众惊喜的是，他们还特意演奏了《鸿雁》《星辰大海》等中国歌曲。
+精英组选手在复杂地形中展开速度与策略的激烈较量；公开组与亲子组则让更多家庭和爱好者以定向运动为媒，沉浸式感受新城的湿地风光与人文地标。
 
-在宛平城墙上，一身红衣的中国太极拳表演者手持太极扇缓缓起势，与三十余位巴西乐手们共同奏响中国乐曲《茉莉花》。
+与往年相比，今年赛事开幕式与主题活动实现升级。
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [企业加速入驻 中国首个大模型创新生态社区“AI磁力”增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:29 - [国晟科技，浑身是谜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:45 - [专家学者南京共商生态文明传播新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:33 - [新加坡第一季度经济增长放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:43 - [创业板增设第四套上市标准 更好支持优质创新企业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:31 - [原油：油价下挫 美伊和谈预期缓解供应担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:34 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:47 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:39 - [Revolution Medicines胰腺癌药物取得成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:22 - [甘肃省酒泉市：民族团结与经济发展同频共振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:35 - [中天策略:4月14日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:25 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:25 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:36 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:34 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:28 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:38 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:47 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:28 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:30 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:32 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:47 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:35 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:47 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:34 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:40 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:52 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [特朗普称若中方向伊朗供武就加征关税 中方回应](http://www.blog.minike.top/Article/details/9283451187.shtml)
-- 2026-06-29 11:48 - [海南文昌积极打造中国首个商业航天卫星数据加工贸易区](http://www.blog.kurohicncr.top/Article/details/156972.shtml)
-- 2026-06-29 11:24 - [东亚银行发行149.27万股代息股份](http://www.share.minike.top/Article/details/488096673.shtml)
-- 2026-06-29 11:39 - [尾盘，A股突然异动！大面积涨停！外围，传来利好](http://www.blog.kurohicncr.top/Article/details/837100.shtml)
-- 2026-06-29 11:29 - [中国工商银行深圳分行原党委委员、副行长姚玉平接受纪律审查和监察调查](http://www.blog.minike.top/Article/details/5895111.shtml)
-- 2026-06-29 11:42 - [世界正向东看，访华潮折射时代大势](http://www.blog.kurohicncr.top/Article/details/84669127.shtml)
-- 2026-06-29 11:41 - [刚刚，利好来了！直线爆拉，中东大消息！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [英国财政大臣抨击美国贸然发动对伊战争是愚蠢之举](http://www.share.minike.top/Article/details/29914.shtml)
-- 2026-06-29 11:39 - [中美“乒乓外交”55周年纪念活动在沪举行 亲历者冀两国青年接续友谊](http://www.blog.kurohicncr.top/Article/details/872190838531.shtml)
-- 2026-06-29 11:47 - [中国科大先研院孵化科技企业362家 成果转化走上“快车道”](http://www.blog.kurohicncr.top/Article/details/63907.shtml)
-- 2026-06-29 11:26 - [王沪宁会见越共中央总书记、国家主席苏林](http://www.blog.kurohicncr.top/Article/details/122385788.shtml)
-- 2026-06-29 11:32 - [特朗普猛烈抨击教皇利奥十四世对美外交政策的批评](http://www.blog.minike.top/Article/details/1067084771.shtml)
-- 2026-06-29 11:23 - [修好政德才能出好政绩（思想纵横）](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [习近平会见西班牙首相桑切斯：共同捍卫真正的多边主义 守护全球和平与发展](http://www.blog.minike.top/Article/details/51891.shtml)
-- 2026-06-29 11:47 - [价格大涨约50%！家电业部分塑料从进口转向国内供应](http://www.share.kurohicncr.top/Article/details/66425472806.shtml)
+- 2026-06-29 11:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/0017988.shtml)
+- 2026-06-29 11:31 - [双高胎](http://www.share.minike.top/Article/details/00433478.shtml)
+- 2026-06-29 11:39 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/0249353840.shtml)
+- 2026-06-29 11:25 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/74777462.shtml)
+- 2026-06-29 11:36 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/27491379.shtml)
+- 2026-06-29 11:33 - [民进党为什么拼命抹黑统战](https://www.blog.kurohicncr.top/Article/details/165455.shtml)
+- 2026-06-29 11:24 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/109053.shtml)
+- 2026-06-29 11:36 - [詹姆斯下赛季会在哪里](http://www.blog.kurohicncr.top/Article/details/084501750.shtml)
+- 2026-06-29 11:36 - [罗马诺：李刚仁已与马竞达成协议](http://www.share.minike.top/Article/details/84501016.shtml)
+- 2026-06-29 11:28 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/82592817.shtml)
+- 2026-06-29 11:33 - [本届世界杯黑马扎堆](http://www.share.kurohicncr.top/Article/details/196211621988.shtml)
+- 2026-06-29 11:37 - [南非门将单场77次成功传球](http://www.share.kurohicncr.top/Article/details/519482971.shtml)
+- 2026-06-29 11:48 - [张一山说杨紫早该拿奖了](http://www.blog.minike.top/Article/details/807787915780.shtml)
+- 2026-06-29 11:45 - [这位猫咪，请你自重！](http://www.share.kurohicncr.top/Article/details/15307.shtml)
+- 2026-06-29 11:26 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](http://www.share.minike.top/Article/details/4917606456.shtml)
