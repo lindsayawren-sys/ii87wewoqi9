@@ -1,56 +1,60 @@
-# 韩国推出173亿美元刺激计划，油价飙升施压经济
+# 股债背离加剧！华尔街大佬警告美股将回调，但别猜顶
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-韩国正提前采取行动，但压力正在迅速积聚。政策制定者已提出一项26.2万亿韩元（合173亿美元）的补充预算，以缓冲伊朗冲突对经济的影响，原因是油价上涨和供应中断开始波及家庭和企业。官员们表示，随着外部冲击开始加剧，可能需要采取先发制人的财政支持，以防止当前复苏失去动力。 拟议的方案重点在于能源纾困和定向支持。约10.1万亿韩元用于抵消飙升的燃料成本，包括全国性的价格上限和稳定石脑
+文章来源：金十数据 随着美国借贷成本不断攀升，大型投资机构开始对美股走势产生警惕。多位基金经理指出，在通胀压力抬头的背景下，债券市场已明显承压，但股票市场却持续走高，两者之间的脱节正在扩大。 自4月初起，科技股成为主要推动力，带动标普500指数在华尔街屡创新高。与此同时，中东地区一度传出临时停火的消息，这一进展迅速改善市场情绪，促使资金重新涌入股市。 然而，美国国债市场却呈现相
 
 ## 正文
 
-韩国正提前采取行动，但压力正在迅速积聚。
+文章来源：金十数据 随着美国借贷成本不断攀升，大型投资机构开始对美股走势产生警惕。
 
-政策制定者已提出一项26.2万亿韩元（合173亿美元）的补充预算，以缓冲伊朗冲突对经济的影响，原因是油价上涨和供应中断开始波及家庭和企业。
+多位基金经理指出，在通胀压力抬头的背景下，债券市场已明显承压，但股票市场却持续走高，两者之间的脱节正在扩大。
 
-官员们表示，随着外部冲击开始加剧，可能需要采取先发制人的财政支持，以防止当前复苏失去动力。
+自4月初起，科技股成为主要推动力，带动标普500指数在华尔街屡创新高。
 
-拟议的方案重点在于能源纾困和定向支持。
+与此同时，中东地区一度传出临时停火的消息，这一进展迅速改善市场情绪，促使资金重新涌入股市。
 
-约10.1万亿韩元用于抵消飙升的燃料成本，包括全国性的价格上限和稳定石脑油供应的措施；2.8万亿韩元用于支持低收入家庭、小企业和面临更具挑战性就业市场的年轻劳动者；另有2.6万亿韩元用于受物流和能源成本上升影响的行业，包括出口企业和石化公司，同时加强供应链并支持能源转型计划。
+然而，美国国债市场却呈现相反走势。
 
-其他资金包括用于地方政府的9.7万亿韩元和用于偿还债务的1万亿韩元。
+抛售压力将收益率推至一年多高位，投资者普遍押注油价维持在每桶100美元以上将持续推升通胀，并迫使包括美联储在内的主要央行维持或进一步收紧货币政策。
 
-该计划的大部分资金来源于与半导体出口和股市上涨相关的、强于预期的税收收入。
+这种分化引发资产管理机构的担忧：在融资成本不断上升的背景下，股市是否还能继续忽视债市释放的风险信号，尤其是针对当前估值已处于高位的AI概念股而言。
 
-宏观背景正变得愈加动荡。
+收益率与通胀指标同步走高 东方汇理（Amundi）首席投资官Vincent Mortier表示：“美股必然会迎来回调，在我看来，这只是时间问题，而不是会不会发生的问题。
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 15:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 15:06 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 15:01 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 14:53 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 15:04 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 14:59 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 15:06 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 15:03 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 14:44 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 15:12 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 15:03 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 14:55 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 15:12 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 15:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 15:05 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 15:13 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 15:17 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 15:01 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 15:10 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 15:14 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 14:54 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 15:17 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 14:51 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:03 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/8080887010.shtml)
-- 2026-06-29 14:45 - [Agent带来token消耗爆炸](https://www.share.minike.top/Article/details/797253696.shtml)
-- 2026-06-29 14:48 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/98871754.shtml)
-- 2026-06-29 15:11 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/53836361587.shtml)
-- 2026-06-29 15:00 - [国家体育总局政策法规司原副司长获刑](https://www.share.minike.top/Article/details/802588446.shtml)
-- 2026-06-29 15:07 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/8698287289.shtml)
-- 2026-06-29 15:06 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/15410938.shtml)
-- 2026-06-29 15:03 - [新一代影后杨紫](https://www.share.kurohicncr.top/Article/details/009728042.shtml)
-- 2026-06-29 14:49 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/44700558.shtml)
-- 2026-06-29 15:02 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/168625664162.shtml)
-- 2026-06-29 14:52 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/781177.shtml)
-- 2026-06-29 14:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/739346.shtml)
-- 2026-06-29 14:53 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/135194838.shtml)
-- 2026-06-29 14:58 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/546048036.shtml)
-- 2026-06-29 14:52 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/8653030782.shtml)
+- 2026-06-29 15:02 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/19801.shtml)
+- 2026-06-29 14:51 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/992510982.shtml)
+- 2026-06-29 15:12 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/929657.shtml)
+- 2026-06-29 15:17 - [加拿大绝杀南非晋级](http://www.share.minike.top/Article/details/342601092.shtml)
+- 2026-06-29 15:08 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/5468001299.shtml)
+- 2026-06-29 15:04 - [国家体育总局政策法规司原副司长获刑](http://www.share.kurohicncr.top/Article/details/59688447060.shtml)
+- 2026-06-29 15:07 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/2220988.shtml)
+- 2026-06-29 14:49 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/51704135512.shtml)
+- 2026-06-29 14:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/105396799.shtml)
+- 2026-06-29 15:12 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/851009863271.shtml)
+- 2026-06-29 14:56 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/648669.shtml)
+- 2026-06-29 14:57 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/294849.shtml)
+- 2026-06-29 14:56 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/32753390.shtml)
+- 2026-06-29 15:01 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/90836904516.shtml)
+- 2026-06-29 14:58 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/01185.shtml)

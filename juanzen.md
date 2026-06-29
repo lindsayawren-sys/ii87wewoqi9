@@ -1,57 +1,50 @@
-# 比亚迪年报：营收利润稳居第一 国内纳税533亿
+# 网连山海，文明共赴
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-3月27日晚，比亚迪（002594.SZ）发布2025年度报告，多项核心经营指标再创新高：营收8040亿元，净利润326亿元，同期国内纳税高达533亿元；此外，研发投入634亿元，同比增长17%，远高于同期净利润；更值得关注的是，现金储备达1678亿元，财务状况愈加稳健。 在汽车行业竞争加剧的大背景下，比亚迪各项指标均稳居行业前列，行业引领优势愈发明显，高质量发展势头持续巩固。
+发布时间：2026年05月19日 14:34 来源：中国新闻网 文明，是岁月沉淀的瑰宝，是山河孕育的华章；互鉴，是融通四海的胸怀，是时代前行的力量；互联网，让每一种文明都有被看见的温度，让每一份思想都有可奔赴的远方。5月19日，2026年中国网络文明大会网络文明国际交流互鉴分论坛在广西南宁举行。网络文明交流互鉴——网连山海，文明共赴！ 责任编辑：【任帅】
 
 ## 正文
 
-3月27日晚，比亚迪（002594.SZ）发布2025年度报告，多项核心经营指标再创新高：营收8040亿元，净利润326亿元，同期国内纳税高达533亿元；此外，研发投入634亿元，同比增长17%，远高于同期净利润；更值得关注的是，现金储备达1678亿元，财务状况愈加稳健。
+发布时间：2026年05月19日 14:34 来源：中国新闻网 文明，是岁月沉淀的瑰宝，是山河孕育的华章；互鉴，是融通四海的胸怀，是时代前行的力量；互联网，让每一种文明都有被看见的温度，让每一份思想都有可奔赴的远方。
 
-在汽车行业竞争加剧的大背景下，比亚迪各项指标均稳居行业前列，行业引领优势愈发明显，高质量发展势头持续巩固。
+5月19日，2026年中国网络文明大会网络文明国际交流互鉴分论坛在广西南宁举行。
 
-巨额研发夯实技术优势 颠覆性成果密集落地 业绩保持领先的背后，是比亚迪对于技术创新的长期坚守。
+网络文明交流互鉴——网连山海，文明共赴！
 
-2025年，公司研发投入达634亿元，同比增长17%，累计研发投入超2400亿元。
-
-保持狠砸研发的同时，比亚迪技术成果落地速度也同步提速。
-
-天神之眼辅助驾驶系统、第五代DM等颠覆性技术持续优化，不断突破技术极限，定义行业标准。
-
-今年3月初，比亚迪发布第二代刀片电池及闪充技术，常温下电量从10%充至70%仅需5分钟，从10%充至97%仅需9分钟，即便在零下30℃，从20%充至97%也仅需12分钟，创造全球量产最快充电速度纪录。
-
-国际化与高端化双线发力 增长结构持续向优 技术护城河的不断筑高，推动公司销量稳健增长。
+责任编辑：【任帅】
 
 ## 相关推荐
 
-- 2026-06-29 15:04 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 14:54 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 15:10 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 14:42 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 14:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 14:42 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 14:51 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 14:57 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 14:42 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 14:51 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 15:10 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 15:05 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 15:13 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 15:07 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 15:01 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 15:03 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 14:55 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 14:54 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 15:00 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 15:06 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 14:56 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 15:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 15:11 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/27531345221.shtml)
-- 2026-06-29 14:44 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/075406.shtml)
-- 2026-06-29 15:04 - [张真源解读相思锁](http://www.blog.kurohicncr.top/Article/details/50774153.shtml)
-- 2026-06-29 15:08 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/04091.shtml)
-- 2026-06-29 15:06 - [志愿选择倒计时！浙大学生送祝福](http://www.share.kurohicncr.top/Article/details/0761546987.shtml)
-- 2026-06-29 15:03 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/868612277.shtml)
-- 2026-06-29 14:43 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/6898692.shtml)
-- 2026-06-29 14:46 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/03418239.shtml)
-- 2026-06-29 14:58 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/8191888.shtml)
-- 2026-06-29 15:11 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/146468.shtml)
-- 2026-06-29 14:45 - [袁隆平院士 不容诋毁！](https://www.share.minike.top/Article/details/768676548.shtml)
-- 2026-06-29 15:09 - [血糖高的人能吃西瓜吗](http://www.blog.minike.top/Article/details/48962.shtml)
-- 2026-06-29 14:49 - [农发行总行专家委员会委员杜晓力被查](http://www.share.minike.top/Article/details/2985107.shtml)
-- 2026-06-29 14:43 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/666347940.shtml)
-- 2026-06-29 14:53 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/36931.shtml)
+- 2026-06-29 14:56 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/362926.shtml)
+- 2026-06-29 15:17 - [链博会上的机器人太全能了](http://www.share.minike.top/Article/details/684852809184.shtml)
+- 2026-06-29 14:55 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/0716345.shtml)
+- 2026-06-29 14:56 - [周深双眼皮贴又掉了](http://www.blog.minike.top/Article/details/3279496.shtml)
+- 2026-06-29 14:52 - [绘画区你赢了](https://www.share.minike.top/Article/details/12404147911.shtml)
+- 2026-06-29 15:00 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/213614383675.shtml)
+- 2026-06-29 14:55 - [梅朗雄主张法国退出北约](https://www.blog.kurohicncr.top/Article/details/9931590750.shtml)
+- 2026-06-29 15:11 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/3167195.shtml)
+- 2026-06-29 14:56 - [韩媒破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/35785.shtml)
+- 2026-06-29 14:57 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/512845.shtml)
+- 2026-06-29 15:17 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/996870643.shtml)
+- 2026-06-29 14:59 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/034057617503.shtml)
+- 2026-06-29 15:03 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/26191024966.shtml)
+- 2026-06-29 15:10 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/656291317.shtml)
+- 2026-06-29 15:10 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/489376283900.shtml)

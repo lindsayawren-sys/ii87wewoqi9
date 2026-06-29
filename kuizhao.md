@@ -1,60 +1,61 @@
-# 中金：维持华润万象生活跑赢行业评级 目标价48港元
+# 唯一纯债基金清盘！成立9年的凯石基金陷入规模困局
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-中金发布研报称，维持华润万象生活（01209）盈利预测基本不变，预计2026-27年核心净利润同比增12%/10%至44.1亿元/48.6亿元。维持跑赢行业评级和目标价48港元，对应22倍2026年核心P/E和9%上行空间。公司股票交易在20倍2026年核心P/E和4.9% 2026预期股息收益率。 中金主要观点如下： 2025年核心净利润略超市场预期 公司公布2025年业绩：
+记者|黄小聪 编辑|彭水萍 今日，凯石基金公告称，凯石岐短债基金的持有人大会表决通过了终止合同的议案，意味着该基金走向清盘。记者注意到，这是凯石基金自公司成立以来唯一的一只纯债基金。 数据显示，该基金成立6年多，累计收益不到10%，且过往规模多次围绕5000万元“上下波动”。 该基金清盘之后，凯石基金还有3只公募产品，但截至今年一季度末，规模仅1.45亿元，其中两只产品还是“迷
 
 ## 正文
 
-中金发布研报称，维持华润万象生活（01209）盈利预测基本不变，预计2026-27年核心净利润同比增12%/10%至44.1亿元/48.6亿元。
+记者|黄小聪 编辑|彭水萍 今日，凯石基金公告称，凯石岐短债基金的持有人大会表决通过了终止合同的议案，意味着该基金走向清盘。
 
-维持跑赢行业评级和目标价48港元，对应22倍2026年核心P/E和9%上行空间。
+记者注意到，这是凯石基金自公司成立以来唯一的一只纯债基金。
 
-公司股票交易在20倍2026年核心P/E和4.9% 2026预期股息收益率。
+数据显示，该基金成立6年多，累计收益不到10%，且过往规模多次围绕5000万元“上下波动”。
 
-中金主要观点如下： 2025年核心净利润略超市场预期 公司公布2025年业绩：收入180.2亿元，同比增长5%；核心净利润39.5亿元，同比增长14%，略超市场预期，主要由于购物中心板块毛利率提升等推动。
+该基金清盘之后，凯石基金还有3只公募产品，但截至今年一季度末，规模仅1.45亿元，其中两只产品还是“迷你”基金，发展困境凸显。
 
-公司全年派息比例100%（基于核心净利润，60%普通+40%特别派息），对应股息收益率4.4%。
+唯一纯债基金清盘 今日，凯石基金公告称，凯石岐短债近期召开的基金份额持有人大会，审议通过了《关于凯石岐短债债券型证券投资基金终止基金合同的议案》。
 
-购物中心表现强劲，市场份额稳步扩张 在管购物中心2025年零售额同比增长23.7%，其中同店增速12.2%（大幅跑赢社零总额增速），重奢购物中心同店增速15.3%优于整体。
+因此，基金将进行清盘，基金最后运作日为2026年5月18日，并从2026年5月19日起进入清算期。
 
-2025年购物中心板块运营效率进一步提升，毛利率同比提升3.3个百分点至75.9%；业主端净经营利润率同比提升0.6个百分点至65.7%。
+资料显示，凯石岐短债成立于2020年1月，初始规模近3亿元。
 
-公司全年新开业14个购物中心，总开业数量达到135个，其中105个项目零售额在当地市场排名前三；年内新拓展12个第三方项目，平均GFA超过10万平方米。
+但到2021年一季度末，规模就已经下降至5411万元。
 
 ## 相关推荐
 
-- 2026-06-29 15:07 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 14:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 14:54 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 14:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 15:02 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 14:46 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 14:57 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 14:43 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 14:59 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 14:43 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 15:11 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 15:03 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 15:09 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 14:52 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 14:50 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 15:07 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 15:17 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 14:52 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 14:55 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 15:06 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 14:59 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 14:48 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 14:48 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 14:52 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 15:07 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 15:06 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 14:53 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 14:54 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 15:13 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:11 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/74074.shtml)
-- 2026-06-29 14:43 - [恋与深空 731](http://www.blog.minike.top/Article/details/921438655267.shtml)
-- 2026-06-29 14:57 - [84岁英国教授成中国网红](https://www.share.minike.top/Article/details/912851472249.shtml)
-- 2026-06-29 14:46 - [记者率先试乘西十高铁](http://www.share.minike.top/Article/details/252095.shtml)
-- 2026-06-29 15:08 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/69935.shtml)
-- 2026-06-29 15:07 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/49132128657.shtml)
-- 2026-06-29 15:02 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/282852.shtml)
-- 2026-06-29 14:47 - [媒体：网络测评不能只剩“生意”](https://www.blog.minike.top/Article/details/125031186711.shtml)
-- 2026-06-29 15:05 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.kurohicncr.top/Article/details/15624070366.shtml)
-- 2026-06-29 14:45 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/359355713686.shtml)
-- 2026-06-29 15:11 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/752441177.shtml)
-- 2026-06-29 14:49 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/3411393.shtml)
-- 2026-06-29 14:54 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/461335.shtml)
-- 2026-06-29 14:44 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/79345.shtml)
-- 2026-06-29 14:43 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.minike.top/Article/details/99158878167.shtml)
+- 2026-06-29 15:15 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/19616993659.shtml)
+- 2026-06-29 14:54 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/882540.shtml)
+- 2026-06-29 14:59 - [扬名立万](https://www.share.minike.top/Article/details/608497348278.shtml)
+- 2026-06-29 15:00 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/697674386429.shtml)
+- 2026-06-29 15:13 - [宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/550275.shtml)
+- 2026-06-29 14:51 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/25639.shtml)
+- 2026-06-29 15:00 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/874629.shtml)
+- 2026-06-29 15:15 - [恋与深空 731](https://www.blog.minike.top/Article/details/948755889381.shtml)
+- 2026-06-29 15:16 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/030437.shtml)
+- 2026-06-29 14:58 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/14702922650.shtml)
+- 2026-06-29 15:13 - [20年前的周杰伦](http://www.share.kurohicncr.top/Article/details/145140646987.shtml)
+- 2026-06-29 14:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/4345480.shtml)
+- 2026-06-29 14:54 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/30379.shtml)
+- 2026-06-29 15:09 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/98012893670.shtml)
+- 2026-06-29 14:52 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.minike.top/Article/details/558148.shtml)

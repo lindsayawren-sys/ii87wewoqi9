@@ -1,61 +1,59 @@
-# 泽连斯基称部分盟友要求乌克兰停止打击俄罗斯石油设施
+# 美元与美债收益率同步泄力，高位还能撑几天？
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-乌克兰总统弗拉基米尔・泽连斯基表示，随着全球油价持续上涨，乌克兰的部分盟友已要求乌方缩减对俄罗斯能源设施的打击行动。 泽连斯基在发给记者的一段语音消息中称：“近期，受全球能源危机影响，我们确实收到了部分伙伴国的信号，希望我们减少针对俄罗斯联邦石油及能源领域的反击行动。” 这位乌克兰领导人并未透露提出该要求的具体国家，但明确表示基辅方面不太可能照此执行。 他强调：“我再次重申：如
+来源：汇通网 汇通财经APP讯——周二（5月19日），美元指数与美债收益率同步呈现偏强特征。美元指数最新报99.2402，处于布林带中轨上方偏强区间运行；美债10年期收益率最新报4.612%，位于布林带中轨与上轨之间，紧贴上轨，显示短期强势延续。海外主流机构报道指出，长端收益率在4.5%以上、30年期收益率在5%以上区间运行已较为适应，市场对通胀、地缘因素及财政供需的重新定价仍
 
 ## 正文
 
-乌克兰总统弗拉基米尔・泽连斯基表示，随着全球油价持续上涨，乌克兰的部分盟友已要求乌方缩减对俄罗斯能源设施的打击行动。
+来源：汇通网 汇通财经APP讯——周二（5月19日），美元指数与美债收益率同步呈现偏强特征。
 
-泽连斯基在发给记者的一段语音消息中称：“近期，受全球能源危机影响，我们确实收到了部分伙伴国的信号，希望我们减少针对俄罗斯联邦石油及能源领域的反击行动。
+美元指数最新报99.2402，处于布林带中轨上方偏强区间运行；美债10年期收益率最新报4.612%，位于布林带中轨与上轨之间，紧贴上轨，显示短期强势延续。
 
-” 这位乌克兰领导人并未透露提出该要求的具体国家，但明确表示基辅方面不太可能照此执行。
+海外主流机构报道指出，长端收益率在4.5%以上、30年期收益率在5%以上区间运行已较为适应，市场对通胀、地缘因素及财政供需的重新定价仍在持续。
 
-他强调：“我再次重申：如果俄罗斯愿意停止打击乌克兰的能源设施，我们也不会对其能源设施实施报复。
+短期内，数据面仅有一项待业销售指数发布，同时多位联储官员将发表讲话，市场关注点集中在政策信号与经济数据验证上。
 
-” 他还补充称，乌克兰 “愿意接受任何形式的停火”。
+美元指数：反弹高位震荡，动能边际放缓 美元指数自5月初97.62附近双底反弹后持续走高，最高触及99.4122，当前报99.2402，处于高位震荡阶段。
 
-中东冲突爆发后，乌克兰加大了对俄罗斯能源基础设施的打击力度，试图阻止俄罗斯借高油价牟利。
+技术面上，布林带中轨99.0652提供即时支撑，上轨99.5257构成短期压力，布林带开口呈现收敛迹象。
 
-仅上周，乌克兰无人机就袭击了俄罗斯多处炼油厂与出口终端。
+MACD指标显示DIFF与DEA处于0轴上方，但柱值小幅翻绿至-0.0438，表明短期上行动能有所减弱，存在高位回调需求，但中期上行趋势尚未被破坏。
 
-责任编辑：丁文武
+（美元指数 来源：易汇通） 基本面层面，近期通胀预期回升至2.7%-2.9%区间，叠加能源价格受地缘因素扰动，市场对联储政策路径的定价趋于谨慎。
 
 ## 相关推荐
 
-- 2026-06-29 14:54 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 14:52 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 15:09 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 14:44 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 15:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 15:03 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 15:09 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 15:08 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 14:59 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 14:53 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 14:53 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 14:44 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 15:00 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 15:11 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 15:04 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 14:54 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 14:48 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 15:11 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 15:00 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 15:12 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 15:07 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 14:48 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 15:15 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 15:13 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 14:49 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 15:04 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 15:15 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 15:13 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/503869537725.shtml)
-- 2026-06-29 15:00 - [恋与深空底线不该被娱乐化](https://www.share.kurohicncr.top/Article/details/5765964.shtml)
-- 2026-06-29 14:53 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/471096533.shtml)
-- 2026-06-29 14:42 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/41416236836.shtml)
-- 2026-06-29 14:53 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/837363407414.shtml)
-- 2026-06-29 15:06 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/174730.shtml)
-- 2026-06-29 14:59 - [世界杯十大帅哥必吃榜](https://www.share.minike.top/Article/details/49924308936.shtml)
-- 2026-06-29 15:07 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/419320.shtml)
-- 2026-06-29 15:05 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/367149303207.shtml)
-- 2026-06-29 14:42 - [内马尔能上场15分钟](https://www.share.kurohicncr.top/Article/details/76043558.shtml)
-- 2026-06-29 14:52 - [马斯克也站到了光里](https://www.share.kurohicncr.top/Article/details/50803287339.shtml)
-- 2026-06-29 14:54 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/30079.shtml)
-- 2026-06-29 14:45 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/45897935.shtml)
-- 2026-06-29 14:43 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/252920455.shtml)
-- 2026-06-29 14:57 - [急先锋](http://www.share.minike.top/Article/details/884640785636.shtml)
+- 2026-06-29 14:50 - [手游300亿数据或被军事化运用](http://www.blog.kurohicncr.top/Article/details/800126101673.shtml)
+- 2026-06-29 15:14 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/412158448197.shtml)
+- 2026-06-29 15:06 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/22096410796.shtml)
+- 2026-06-29 14:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/069003.shtml)
+- 2026-06-29 14:50 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/766137.shtml)
+- 2026-06-29 14:54 - [李在明称韩国足协任命了无能之人](https://www.share.minike.top/Article/details/93943.shtml)
+- 2026-06-29 15:06 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/5366148246.shtml)
+- 2026-06-29 15:07 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/430996350354.shtml)
+- 2026-06-29 14:52 - [NBA交易](https://www.share.kurohicncr.top/Article/details/57966340993.shtml)
+- 2026-06-29 15:05 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/29134496399.shtml)
+- 2026-06-29 14:50 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/862952806.shtml)
+- 2026-06-29 15:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/47415259950.shtml)
+- 2026-06-29 15:03 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.kurohicncr.top/Article/details/256106.shtml)
+- 2026-06-29 14:50 - [袁隆平院士 不容诋毁！](https://www.share.minike.top/Article/details/59118.shtml)
+- 2026-06-29 14:56 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/881760066.shtml)

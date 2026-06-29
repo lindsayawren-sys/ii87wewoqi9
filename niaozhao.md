@@ -1,58 +1,56 @@
-# 伊朗最高国家安全委员会：我方几乎已实现全部战争目标 同意停火两周
+# 重磅数据出炉！212万保险代理人平均月收入：约6000元
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-专题：突发！美伊停火两周 原油暴跌15% 伊朗最高国家安全委员会秘书处发文称， 伊朗人民必须知晓，得益于本国儿女的不懈努力及其在战场上的历史性表现，一个多月以来，敌人一直在乞求伊朗停止猛烈攻势。但伊朗自始至终决意将战争持续至实现既定目标——包括让敌人追悔莫及、陷入绝望，并消除对伊朗的长期威胁，因此拒绝了所有此类请求，战争也持续至今，已进入第四十天。此外，伊朗迄今已多次拒绝美国总
+来源：险联社 “险联社根据行业公开数据测算，212万保险代理人年收入约为5.73万-8.58万，平均数为7.14万。月均收入约为4700元-7100元，平均数约为6000元。” 根据保险公司最新公布的第一季度偿付能力报告，到3月底，60家人身险公司共计保险代理人2，126，294人。 而保险代理人收入数据始终是行业一个谜。 2025年年报，中国平安披露代理人平均月收入9299元
 
 ## 正文
 
-专题：突发！
+来源：险联社 “险联社根据行业公开数据测算，212万保险代理人年收入约为5.73万-8.58万，平均数为7.14万。
 
-美伊停火两周 原油暴跌15% 伊朗最高国家安全委员会秘书处发文称， 伊朗人民必须知晓，得益于本国儿女的不懈努力及其在战场上的历史性表现，一个多月以来，敌人一直在乞求伊朗停止猛烈攻势。
+月均收入约为4700元-7100元，平均数约为6000元。
 
-但伊朗自始至终决意将战争持续至实现既定目标——包括让敌人追悔莫及、陷入绝望，并消除对伊朗的长期威胁，因此拒绝了所有此类请求，战争也持续至今，已进入第四十天。
+” 根据保险公司最新公布的第一季度偿付能力报告，到3月底，60家人身险公司共计保险代理人2，126，294人。
 
-此外，伊朗迄今已多次拒绝美国总统提出的最后期限，并始终强调，不会重视敌人提出的任何形式的最后通牒。
+而保险代理人收入数据始终是行业一个谜。
 
-此刻，我们向伟大的伊朗人民宣告喜讯：我方几乎已实现全部战争目标，英勇的伊朗儿女已将敌人逼入历史性的绝境，使其遭遇永久性失败。
+2025年年报，中国平安披露代理人平均月收入9299元，太保寿险核心人力月人均首年佣金收入6696元，大家保险《2024年度社会责任报告》披露，2024年独立代理人举绩人员月均收入1.9万元。
 
-在全体国民万众一心的支持下，伊朗作出历史性决定：将根据需要继续作战，直至巩固现有重大战果，并在认可伊朗实力、主权与抵抗力量的基础上，构建地区全新的安全与政治格局。
+除此之外，很少有保险公司披露保险代理人收入数据。
 
-据此，遵照伊斯兰革命最高领袖穆杰塔巴的指示，经最高国家安全委员会批准，同时鉴于伊朗及抵抗力量在战场上占据优势、敌人虽百般叫嚣却无力实施威胁，且敌方已正式接受伊朗人民的全部合法诉求，伊朗决定在伊斯兰堡举行谈判，敲定相关细节，力争最长15天内，在伊朗取得战场胜利的基础上，通过政治谈判巩固这一成果。
+根据北京大学汇丰商学院发布的《2025年中国保险中介市场生态白皮书》，月收入3000元以下的占比约16%，3000元-1万元的占比约为47%。
 
-为此，伊朗在拒绝敌方所有方案的同时，拟定了一份十项条款的计划，并通过巴基斯坦转交美方。
+求职平台统计数据显示，约56.3%代理人月收入在8000元-2万元之间。
 
 ## 相关推荐
 
-- 2026-06-29 14:49 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 15:06 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 14:45 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 15:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 15:02 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 15:10 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 14:45 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 14:49 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 15:11 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 14:44 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 15:03 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 14:42 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 15:13 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 15:05 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 14:53 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 15:18 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 15:13 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 15:09 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 15:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 14:49 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 15:02 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 15:03 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:54 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/884439859086.shtml)
-- 2026-06-29 15:00 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/417451.shtml)
-- 2026-06-29 14:52 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.kurohicncr.top/Article/details/642287571.shtml)
-- 2026-06-29 14:52 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/34372879143.shtml)
-- 2026-06-29 15:10 - [恋与深空 731](http://www.blog.minike.top/Article/details/897791893893.shtml)
-- 2026-06-29 15:09 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/51497.shtml)
-- 2026-06-29 15:05 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/67457758694.shtml)
-- 2026-06-29 14:52 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/733860031.shtml)
-- 2026-06-29 15:10 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/2326894.shtml)
-- 2026-06-29 14:55 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.kurohicncr.top/Article/details/864528.shtml)
-- 2026-06-29 14:52 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/885004922574.shtml)
-- 2026-06-29 15:10 - [首尔商铺禁止洪明甫入内](http://www.share.minike.top/Article/details/4995899.shtml)
-- 2026-06-29 15:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/1607288086.shtml)
-- 2026-06-29 15:10 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/876253280934.shtml)
-- 2026-06-29 14:55 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/306278901.shtml)
+- 2026-06-29 15:10 - [中餐厅南北饮食差异](http://www.blog.minike.top/Article/details/8811272051.shtml)
+- 2026-06-29 15:08 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/8879219714.shtml)
+- 2026-06-29 14:57 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.minike.top/Article/details/104963.shtml)
+- 2026-06-29 15:00 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/46024769146.shtml)
+- 2026-06-29 14:49 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/749115187628.shtml)
+- 2026-06-29 15:10 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/31879916.shtml)
+- 2026-06-29 14:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/07559391.shtml)
+- 2026-06-29 15:08 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/6848185.shtml)
+- 2026-06-29 14:49 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/73705.shtml)
+- 2026-06-29 15:04 - [中方回应对日本相关出口管制措施](http://www.share.kurohicncr.top/Article/details/566053934.shtml)
+- 2026-06-29 14:51 - [7款商保创新药“转道”](https://www.blog.kurohicncr.top/Article/details/690743.shtml)
+- 2026-06-29 14:57 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/2887897782.shtml)
+- 2026-06-29 15:03 - [赵露思爸爸拍vlog翻车了](https://www.share.kurohicncr.top/Article/details/30824632469.shtml)
+- 2026-06-29 15:17 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/84696545.shtml)
+- 2026-06-29 14:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/13638.shtml)

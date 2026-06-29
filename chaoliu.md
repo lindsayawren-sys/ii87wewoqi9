@@ -1,61 +1,48 @@
-# 地缘冲突扰动亚太市场，机构：A股“避风港”属性有望逐步凸显
+# 习语｜“发展积极向上的网络文化”
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！国泰海通证券认为，在地缘冲突“新常态”下，中国较强的能源安全优势、完整工业体系与供应链韧性、中国特色稳市机制的完善提升等，让稳定成为中国经济与股市的底色，让中国市场具有更低的风险评价，加之中国资产本身与全球资产低相关带来的风险分散价值，其“避风港”属性有望逐步显现。 3月30日，日经225指数与韩国KOSP
+“发展积极向上的网络文化”“加快推动网络空间创新发展”……习近平总书记高度重视网络强国建设，2026中国网络文明大会今日举行，一起重温！ (人民日报客户端)
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+“发展积极向上的网络文化”“加快推动网络空间创新发展”……习近平总书记高度重视网络强国建设，2026中国网络文明大会今日举行，一起重温！
 
-国泰海通证券认为，在地缘冲突“新常态”下，中国较强的能源安全优势、完整工业体系与供应链韧性、中国特色稳市机制的完善提升等，让稳定成为中国经济与股市的底色，让中国市场具有更低的风险评价，加之中国资产本身与全球资产低相关带来的风险分散价值，其“避风港”属性有望逐步显现。
-
-3月30日，日经225指数与韩国KOSPI指数跌幅均超过2%，A股成为亚太市场中的一抹亮色。
-
-早盘A股主要指数集体低开，临近午间收盘时沪指拉升翻红。
-
-截至收盘，上证指数涨0.24%，深成指跌0.25%，创业板指、科创综指分别下跌0.68%、0.18%，全天市场成交额1.93万亿元。
-
-国家统计局披露的数据显示，1~2月工企利润累计10245.6亿元，同比上升15.2%，为近4个月以来最高值；营业收入2.08万亿元，同比上升5.3%，创2023年以来新高。
-
-国泰海通证券认为，在地缘冲突“新常态”下，中国较强的能源安全优势、完整工业体系与供应链韧性、中国特色稳市机制的完善提升等，让稳定成为中国经济与股市的底色，让中国市场具有更低的风险评价，加之中国资产本身与全球资产低相关带来的风险分散价值，其“避风港”属性有望逐步显现。
-
-一方面，从能源结构上看，中国一次能源消费以煤炭为主，且自给率长期在90%以上，石油、天然气占比不到30%，显著低于全球平均水平。
+(人民日报客户端)
 
 ## 相关推荐
 
-- 2026-06-29 15:10 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 15:01 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 15:05 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 15:01 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 15:08 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 15:08 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 15:10 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 15:04 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 15:01 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 15:08 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 15:09 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 15:08 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 14:59 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 14:46 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 14:54 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 14:50 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 15:03 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 15:04 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 15:05 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 15:14 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 15:15 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 14:49 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 15:14 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 15:03 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 15:09 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 15:11 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 14:50 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 15:07 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 15:10 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/85582969518.shtml)
-- 2026-06-29 14:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/7948696047.shtml)
-- 2026-06-29 14:54 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/583667843.shtml)
-- 2026-06-29 15:05 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/115360417.shtml)
-- 2026-06-29 15:00 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/972600198.shtml)
-- 2026-06-29 15:09 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/22241797835.shtml)
-- 2026-06-29 15:01 - [北极荒岛生存挑战](http://www.share.kurohicncr.top/Article/details/226301236.shtml)
-- 2026-06-29 15:07 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/3907085570.shtml)
-- 2026-06-29 15:06 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.kurohicncr.top/Article/details/52337210229.shtml)
-- 2026-06-29 15:03 - [广东一地发现极危植物新物种](http://www.blog.kurohicncr.top/Article/details/727685949.shtml)
-- 2026-06-29 14:44 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/6317796.shtml)
-- 2026-06-29 14:43 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/06838931.shtml)
-- 2026-06-29 14:55 - [游戏数据被用于军事目的 国安部提醒](http://www.blog.minike.top/Article/details/467945.shtml)
-- 2026-06-29 14:53 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/32040108113.shtml)
-- 2026-06-29 14:53 - [媒体：高考后消费应量力而行适度有度](http://www.share.minike.top/Article/details/2393354.shtml)
+- 2026-06-29 15:04 - [复盘曾沛慈浪姐夺冠之路](http://www.share.kurohicncr.top/Article/details/260363064.shtml)
+- 2026-06-29 15:05 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/174290.shtml)
+- 2026-06-29 15:13 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/884660938455.shtml)
+- 2026-06-29 14:56 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/978713561054.shtml)
+- 2026-06-29 15:07 - [行程万里不忘初心](http://www.share.minike.top/Article/details/61737.shtml)
+- 2026-06-29 15:08 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/478572357.shtml)
+- 2026-06-29 14:57 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/640531.shtml)
+- 2026-06-29 14:54 - [AG 钟意](https://www.blog.minike.top/Article/details/15804.shtml)
+- 2026-06-29 15:05 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/66543146.shtml)
+- 2026-06-29 15:07 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/972333902519.shtml)
+- 2026-06-29 14:51 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/64454.shtml)
+- 2026-06-29 14:49 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/20584140534.shtml)
+- 2026-06-29 14:57 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.minike.top/Article/details/469630886.shtml)
+- 2026-06-29 14:48 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/9181685.shtml)
+- 2026-06-29 15:02 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/892393762576.shtml)

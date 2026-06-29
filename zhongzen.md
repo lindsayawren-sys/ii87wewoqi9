@@ -1,49 +1,61 @@
-# 伊朗西北部一座圣地遭空袭 造成三人死亡
+# 美股与美债收益率相关性跌至1999年以来最低，格林斯潘难题重现？
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-据伊朗伊斯兰共和国通讯社报道，周二清晨美国和以色列对伊朗西北部城市赞詹（Zanjan）的一处宗教建筑群和朝圣地发动空袭，造成三人死亡，多人受伤。 报道称，袭击造成多栋建筑受损。责任编辑：何云
+根据嘉信理财策略师Kevin Gordon分享的数据，标普500指数与美国国债收益率之间的滚动30日相关性已降至1999年以来的最低水平，这一罕见信号引发市场关注。 相关性跌至负值区间 数据显示，标普500指数与10年期美债收益率的30日滚动相关系数已滑入负值区域，意味着两者在当前呈现反向走势，收益率攀升的同时股市承压。这种情况在过去25年间较为罕见，上一次出现类似水平的负相关
 
 ## 正文
 
-据伊朗伊斯兰共和国通讯社报道，周二清晨美国和以色列对伊朗西北部城市赞詹（Zanjan）的一处宗教建筑群和朝圣地发动空袭，造成三人死亡，多人受伤。
+根据嘉信理财策略师Kevin Gordon分享的数据，标普500指数与美国国债收益率之间的滚动30日相关性已降至1999年以来的最低水平，这一罕见信号引发市场关注。
 
-报道称，袭击造成多栋建筑受损。
+相关性跌至负值区间 数据显示，标普500指数与10年期美债收益率的30日滚动相关系数已滑入负值区域，意味着两者在当前呈现反向走势，收益率攀升的同时股市承压。
 
-责任编辑：何云
+这种情况在过去25年间较为罕见，上一次出现类似水平的负相关性正是在1999年互联网泡沫破灭前夕。
+
+通常情况下，在经济稳健增长阶段，收益率与股价呈正相关：收益率上升反映增长预期向好，股市随之走高。
+
+而当前两者的背离走势，更类似于因通胀或货币政策收紧引发的“避险模式”，投资者因担心高收益率压制估值而抛售股票。
+
+历史启示：互联网泡沫时期的镜像 市场环境与1999年的相似性不仅体现在相关性指标上。
+
+摩根士丹利MUFG证券的分析显示，当前市场的因子结构与互联网泡沫时期高度吻合：价值因子跑输、动量因子大幅跑赢、低波动与小市值因子走弱，这三大特征在1990年代末也曾同时出现。
+
+然而，也有研究指出，当前存在关键差异。
 
 ## 相关推荐
 
-- 2026-06-29 14:48 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-29 14:59 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 15:04 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 14:55 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 14:57 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 15:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 14:53 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 14:44 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 14:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 15:09 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 14:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 15:00 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 14:58 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 15:01 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 14:59 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 15:16 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 14:51 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 15:04 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 15:17 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 15:04 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 14:49 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 14:58 - [链博会上的机器人太全能了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 15:13 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 15:07 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 14:55 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 14:50 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 15:03 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 15:14 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:08 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/98144223.shtml)
-- 2026-06-29 15:01 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/5677403.shtml)
-- 2026-06-29 14:47 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/271139661.shtml)
-- 2026-06-29 15:10 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/112266.shtml)
-- 2026-06-29 14:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/721403560.shtml)
-- 2026-06-29 15:07 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/14090678.shtml)
-- 2026-06-29 14:44 - [女心理师](https://www.blog.minike.top/Article/details/939098.shtml)
-- 2026-06-29 15:01 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/708768678187.shtml)
-- 2026-06-29 15:10 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/48863.shtml)
-- 2026-06-29 14:54 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/5722656253.shtml)
-- 2026-06-29 14:45 - [妹妹的正确用法！](http://www.blog.kurohicncr.top/Article/details/593839101.shtml)
-- 2026-06-29 15:03 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/35871885.shtml)
-- 2026-06-29 14:46 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/64367095.shtml)
-- 2026-06-29 15:02 - [沉睡花园](https://www.blog.minike.top/Article/details/33218.shtml)
-- 2026-06-29 14:44 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/641325.shtml)
+- 2026-06-29 15:09 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/26373.shtml)
+- 2026-06-29 14:54 - [扬名立万](https://www.share.minike.top/Article/details/31497.shtml)
+- 2026-06-29 15:05 - [东部机场集团新增釜山航线](https://www.blog.minike.top/Article/details/6816193291.shtml)
+- 2026-06-29 15:02 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.minike.top/Article/details/03423941023.shtml)
+- 2026-06-29 14:58 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/71720.shtml)
+- 2026-06-29 14:52 - [毒液2](https://www.share.minike.top/Article/details/03364136.shtml)
+- 2026-06-29 14:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/2281667.shtml)
+- 2026-06-29 15:09 - [行程万里不忘初心](http://www.share.minike.top/Article/details/637294.shtml)
+- 2026-06-29 15:12 - [金牌调解](http://www.blog.minike.top/Article/details/473622432668.shtml)
+- 2026-06-29 15:04 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.minike.top/Article/details/930804516149.shtml)
+- 2026-06-29 14:51 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.kurohicncr.top/Article/details/018200192912.shtml)
+- 2026-06-29 15:16 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/8191841.shtml)
+- 2026-06-29 14:51 - [医院大厅放钢琴是形式主义吗](http://www.blog.minike.top/Article/details/133428417.shtml)
+- 2026-06-29 15:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/0440981.shtml)
+- 2026-06-29 15:05 - [逆天祖国人](http://www.blog.minike.top/Article/details/53517631225.shtml)

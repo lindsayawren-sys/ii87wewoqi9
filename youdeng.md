@@ -1,58 +1,59 @@
-# 慧择保险保费收入创新高，11年老将却卸任总经理，释放什么信号？
+# 长江有色：产能过剩与高库存 20日多晶硅或涨跌有限
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！ 来源 | 独角金融 作者 | 刘银平编辑 | 付影 近日，互联网保险中介平台、“保险电商第一股”慧择保险经纪有限公司（简称“慧择保险”），悄然完成了一次关键的人事交接。 公司11年老将蒋力卸下了董事、总经理的职务。这位在保险行业深耕23年的老兵，早年曾在头部外资险企积累下深厚经验，还是航延险发明者，201
+长江有色金属网 2026年5月20日，广州期货交易所多晶硅主力合约延续弱势。截至上午9时16分，主力合约报35，780元/吨，较前一交易日结算价下跌770元，跌幅2.11%。日内开盘于36，220元/吨，最高触及36，220元/吨后一路震荡下行，最低下探至35，605元/吨，成交量14，709手，持仓量48，184手，仓差增加992手。 供给端：产能过剩与高库存构成价格“两座大
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+长江有色金属网 2026年5月20日，广州期货交易所多晶硅主力合约延续弱势。
 
-来源 | 独角金融 作者 | 刘银平编辑 | 付影 近日，互联网保险中介平台、“保险电商第一股”慧择保险经纪有限公司（简称“慧择保险”），悄然完成了一次关键的人事交接。
+截至上午9时16分，主力合约报35，780元/吨，较前一交易日结算价下跌770元，跌幅2.11%。
 
-公司11年老将蒋力卸下了董事、总经理的职务。
+日内开盘于36，220元/吨，最高触及36，220元/吨后一路震荡下行，最低下探至35，605元/吨，成交量14，709手，持仓量48，184手，仓差增加992手。
 
-这位在保险行业深耕23年的老兵，早年曾在头部外资险企积累下深厚经验，还是航延险发明者，2015年加入慧择担任副总裁、首席运营官，一路见证了公司从高速发展到上市的完整周期。
+供给端：产能过剩与高库存构成价格“两座大山” 当前压制多晶硅价格的核心矛盾在于严重的供给过剩与高企的社会库存。
 
-接棒者李欣，同样是慧择内部培养出的高管。
+尽管价格已深度跌破成本线，迫使部分企业计划减产，但前期积累的庞大库存和仍在释放的产能，使得供应收缩的速度远不及需求下滑的幅度。
 
-他扎根一线，此前曾担任天津分公司主要负责人、业务管理中心总经理兼首席运营官，是一位业务骨干，还是一位消保专家。
+据行业数据，当月多晶硅排产预计环比有所增加。
 
-不过近期，慧择接连遭遇违规宣传争议与海外监管处罚事件，筑牢合规防线成为其上任之后的重要考题。
+从静态库存看，厂价库存从高位略有回落但整体仍偏高；期货仓单持续流入注册，已增至一定规模。
 
-根据上市主体慧择控股（HUIZ）公布的最新业绩报告，2025年总保费突破70亿元，创历史新高，扭亏为盈，但摆在李欣面前的任务并不轻：互联网流量红利消退、公司盈利基础不稳、股价持续承压、监管“报行合一”等政策持续深化，如何在多重压力之下将业绩回暖转化为可持续的增长动能？
+更严峻的是，全球供应格局正在重塑。
 
 ## 相关推荐
 
-- 2026-06-29 14:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 14:55 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 14:48 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 14:46 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 15:02 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 14:58 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 14:58 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 14:52 - [世界杯用球成部分门将噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 14:42 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 14:57 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 15:06 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 14:46 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 15:00 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 15:04 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 14:51 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 14:56 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 15:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 14:55 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 15:08 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 15:03 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 15:06 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 14:57 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 14:54 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 15:15 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 15:00 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:01 - [海军舰艇编队将赴香港](http://www.blog.minike.top/Article/details/666702261978.shtml)
-- 2026-06-29 15:08 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/712922354622.shtml)
-- 2026-06-29 14:47 - [实习期把公司领导开除了](https://www.share.kurohicncr.top/Article/details/086540.shtml)
-- 2026-06-29 15:10 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/5891569.shtml)
-- 2026-06-29 14:46 - [高考公平需要延伸到志愿填报这一环](http://www.share.minike.top/Article/details/886198.shtml)
-- 2026-06-29 14:58 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/3271331439.shtml)
-- 2026-06-29 15:07 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/451275356372.shtml)
-- 2026-06-29 15:10 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/6793409862.shtml)
-- 2026-06-29 15:11 - [恋与深空底线不该被娱乐化](http://www.blog.minike.top/Article/details/400575.shtml)
-- 2026-06-29 14:55 - [网约车司机转账15000元后被乘客拉黑](http://www.share.minike.top/Article/details/9527553368.shtml)
-- 2026-06-29 14:46 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/889008.shtml)
-- 2026-06-29 15:07 - [金价银价下跌 油价上涨](http://www.share.kurohicncr.top/Article/details/28627418.shtml)
-- 2026-06-29 15:04 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/5287726911.shtml)
-- 2026-06-29 15:00 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/30038605.shtml)
-- 2026-06-29 15:07 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/01482759.shtml)
+- 2026-06-29 15:06 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/787031368022.shtml)
+- 2026-06-29 14:59 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/8853823.shtml)
+- 2026-06-29 15:09 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/4459555.shtml)
+- 2026-06-29 14:49 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/522485398063.shtml)
+- 2026-06-29 15:17 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/5915771068.shtml)
+- 2026-06-29 15:01 - [天道](https://www.blog.minike.top/Article/details/1293194283.shtml)
+- 2026-06-29 15:12 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/509443566.shtml)
+- 2026-06-29 15:05 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/445129596.shtml)
+- 2026-06-29 14:54 - [美国近12万名科技员工被解雇](http://www.blog.minike.top/Article/details/03814.shtml)
+- 2026-06-29 14:58 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/127904624.shtml)
+- 2026-06-29 15:12 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/38138.shtml)
+- 2026-06-29 15:09 - [迈巴赫提车第二天发现大灯起雾](https://www.share.kurohicncr.top/Article/details/8685956025.shtml)
+- 2026-06-29 14:53 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/545920.shtml)
+- 2026-06-29 15:09 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/72885740.shtml)
+- 2026-06-29 14:55 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/65579.shtml)

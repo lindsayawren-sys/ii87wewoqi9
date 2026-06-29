@@ -1,61 +1,58 @@
-# 华泰期货：特朗普撤军预期落空，油价再度飙升
+# 登高“破圈” 赛事“生金” 浙江江山体旅融合引乘数效应
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 康远宁 市场要闻与重要数据 1、 截至当天收盘，纽约商品交易所5月交货的轻质原油期货价格上涨11.42美元，收于每桶111.54美元，涨幅为11.41%；6月交货的伦敦布伦特原油期货价格上涨7.87美元，收于每桶109.03美元，涨幅为7.78%。SC原油主力合约收涨3.75%，报713元/桶。（来源：Bloomberg） 2、 日本经济再生大臣赤泽亮正
+中新网衢州5月19日电(曹丹 柴煜)5月19日，“相约中国旅游日·登高就登江郎山”趣味登高赛在浙江衢州江山举行。同日，江山举行文旅高质量发展新闻发布会，发布系列惠企惠民政策与体育赛事计划，多措并举推动体旅深度融合，激活文旅消费新动能。 上午8时，江郎山景区山头铺岗停车场人头攒动，趣味登高赛在江山特色文化表演中启幕。近千名来自全国各地的游客从山头铺岗出发，沿十八曲、开明禅寺、会仙
 
 ## 正文
 
-来源：华泰期货 作者： 康远宁 市场要闻与重要数据 1、 截至当天收盘，纽约商品交易所5月交货的轻质原油期货价格上涨11.42美元，收于每桶111.54美元，涨幅为11.41%；6月交货的伦敦布伦特原油期货价格上涨7.87美元，收于每桶109.03美元，涨幅为7.78%。
+中新网衢州5月19日电(曹丹 柴煜)5月19日，“相约中国旅游日·登高就登江郎山”趣味登高赛在浙江衢州江山举行。
 
-SC原油主力合约收涨3.75%，报713元/桶。
+同日，江山举行文旅高质量发展新闻发布会，发布系列惠企惠民政策与体育赛事计划，多措并举推动体旅深度融合，激活文旅消费新动能。
 
-（来源：Bloomberg） 2、 日本经济再生大臣赤泽亮正：昨晚，与阿联酋能源部长、阿布扎比国有石油公司（ADNOC）CEO贾贝尔进行了在线会谈，就两国间的能源合作及其他领域的合作进行了意见交流。
+上午8时，江郎山景区山头铺岗停车场人头攒动，趣味登高赛在江山特色文化表演中启幕。
 
-（来源：Bloomberg） 3、 俄罗斯总统普京2日同沙特阿拉伯王储兼首相穆罕默德通电话，讨论当前中东地区军事冲突的快速升级及其影响。
+近千名来自全国各地的游客从山头铺岗出发，沿十八曲、开明禅寺、会仙岩、一线天，向终点登天坪稳步前行。
 
-克里姆林宫说，双方强调必须尽快停战。
+沿途丹霞奇峰林立，游客纷纷打卡拍照，领略江郎山“三爿石”雄奇壮丽与一线天险峻奇观。
 
-普京和穆罕默德王储指出，当前危机所引发的能源开采和运输问题正对全球能源安全造成负面影响。
+作为浙江省首个世界自然遗产地、国家5A级旅游景区，江郎山集丹霞奇峰、千年古寺、人文传说于一体。
 
-因此，双方强调俄罗斯与沙特在“欧佩克+”框架下开展协作对于稳定世界石油市场的重要意义。
+自今年年初以来，江山围绕江郎山登高品牌，结合中国旅游日、跑九山等节点面向全国特定群体策划专属登高活动，持续擦亮“登高就登江郎山”文旅名片。
 
-据沙特通讯社报道，普京重申，俄罗斯支持沙特维护主权和领土安全。
+在当日的新闻发布会上，江山市文化广电旅游局相关负责人介绍了文旅高质量发展系列举措。
 
 ## 相关推荐
 
-- 2026-06-29 15:08 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 15:02 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 14:56 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 15:10 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 15:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 15:00 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 15:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 15:02 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 15:09 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 14:51 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 14:43 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 14:49 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 15:05 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 14:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 14:42 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 15:02 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 15:03 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 14:54 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 14:59 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 15:06 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 15:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 15:11 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 14:55 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 15:10 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 15:14 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 15:00 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 14:54 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:02 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/096712.shtml)
-- 2026-06-29 14:55 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/15740506610.shtml)
-- 2026-06-29 14:43 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/255505.shtml)
-- 2026-06-29 15:01 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/4192415517.shtml)
-- 2026-06-29 15:02 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/7092626.shtml)
-- 2026-06-29 14:52 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/155693339496.shtml)
-- 2026-06-29 15:00 - [网警提醒4类高考查分陷阱考生速看](https://www.share.minike.top/Article/details/3729900033.shtml)
-- 2026-06-29 14:53 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/9919432.shtml)
-- 2026-06-29 15:09 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/8790022711.shtml)
-- 2026-06-29 15:02 - [韩国国脚无缘上亿韩元奖金](https://www.blog.kurohicncr.top/Article/details/958702.shtml)
-- 2026-06-29 14:55 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/1411585.shtml)
-- 2026-06-29 15:00 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/45182402665.shtml)
-- 2026-06-29 15:07 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/36678620222.shtml)
-- 2026-06-29 14:46 - [智界V9成为高端圈层共同选择](http://www.share.kurohicncr.top/Article/details/70326082418.shtml)
-- 2026-06-29 14:47 - [扬名立万](http://www.share.minike.top/Article/details/39514221447.shtml)
+- 2026-06-29 14:52 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/0223508470.shtml)
+- 2026-06-29 15:00 - [王楚钦3-0周启豪 晋级32强](https://www.blog.minike.top/Article/details/45782.shtml)
+- 2026-06-29 15:09 - [以前不让妆女二可以艳压女主](http://www.share.kurohicncr.top/Article/details/5823488.shtml)
+- 2026-06-29 14:57 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/6803860154.shtml)
+- 2026-06-29 15:00 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/73950.shtml)
+- 2026-06-29 14:54 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.kurohicncr.top/Article/details/1903254.shtml)
+- 2026-06-29 14:54 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/543191.shtml)
+- 2026-06-29 14:55 - [梅朗雄主张法国退出北约](http://www.blog.minike.top/Article/details/13226037.shtml)
+- 2026-06-29 14:57 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/170224.shtml)
+- 2026-06-29 14:56 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/805837083459.shtml)
+- 2026-06-29 15:11 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/8446718.shtml)
+- 2026-06-29 14:48 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/03461193526.shtml)
+- 2026-06-29 14:49 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/55866.shtml)
+- 2026-06-29 14:58 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/406321.shtml)
+- 2026-06-29 15:06 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/58964011826.shtml)

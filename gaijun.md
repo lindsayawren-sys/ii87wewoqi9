@@ -1,54 +1,43 @@
-# 教育部：不断提高随迁子女在公办学校就读比例
+# “洪迪厄斯”号邮轮出现汉坦病毒疫情 邮轮上为什么会出现汉坦病毒？
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-中新网4月3日电(记者 袁秀月)近日，教育部办公厅印发通知，对开展中小学阳光招生专项行动(2026年)作出部署。《通知》提到，保障重点群体公平入学。全面落实“两为主、两纳入、以居住证为主要依据”的随迁子女入学政策，进一步清理简化证明材料，有条件的地区要实现义务教育阶段随迁子女仅凭居住证入学，取消附加或限制条件。人口集中流入地区要持续加大公办学校学位供给和招生计划，不断提高随迁子
+发布时间：2026年05月19日 09:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网4月3日电(记者 袁秀月)近日，教育部办公厅印发通知，对开展中小学阳光招生专项行动(2026年)作出部署。
-
-《通知》提到，保障重点群体公平入学。
-
-全面落实“两为主、两纳入、以居住证为主要依据”的随迁子女入学政策，进一步清理简化证明材料，有条件的地区要实现义务教育阶段随迁子女仅凭居住证入学，取消附加或限制条件。
-
-人口集中流入地区要持续加大公办学校学位供给和招生计划，不断提高随迁子女在公办学校就读比例。
-
-服务农业转移人口市民化，因地制宜放宽在流入地参加中考报名条件。
+发布时间：2026年05月19日 09:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 15:01 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 14:50 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 15:03 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 14:55 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 14:44 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 15:07 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 14:53 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 14:51 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 14:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 14:52 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 14:48 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 14:53 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 15:10 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 14:47 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 15:08 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 14:57 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 15:16 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 15:13 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 14:52 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 15:07 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 15:00 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 15:10 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 15:14 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 15:15 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 15:10 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [四川宜宾地震](http://www.blog.minike.top/Article/details/050712141.shtml)
-- 2026-06-29 15:09 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/8873944109.shtml)
-- 2026-06-29 14:44 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/593192.shtml)
-- 2026-06-29 14:54 - [佛得角到底在哪个“角”](http://www.share.minike.top/Article/details/826297.shtml)
-- 2026-06-29 14:54 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/02278158.shtml)
-- 2026-06-29 14:54 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/844140.shtml)
-- 2026-06-29 15:06 - [叶一茜森碟一起回北京了](http://www.share.kurohicncr.top/Article/details/3093134.shtml)
-- 2026-06-29 14:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/097187218.shtml)
-- 2026-06-29 14:47 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/8999541218.shtml)
-- 2026-06-29 14:47 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/632310874.shtml)
-- 2026-06-29 14:43 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/38527109.shtml)
-- 2026-06-29 14:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/1311646.shtml)
-- 2026-06-29 14:52 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/71763048990.shtml)
-- 2026-06-29 14:55 - [德国VS巴拉圭前瞻](https://www.blog.minike.top/Article/details/77210.shtml)
-- 2026-06-29 15:05 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/2961988.shtml)
+- 2026-06-29 15:03 - [TOP 无畏契约](http://www.share.kurohicncr.top/Article/details/4144454914.shtml)
+- 2026-06-29 15:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/6889168142.shtml)
+- 2026-06-29 15:09 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/290743.shtml)
+- 2026-06-29 14:59 - [王楚钦欢迎晚宴上打台球](http://www.share.kurohicncr.top/Article/details/1956099328.shtml)
+- 2026-06-29 15:08 - [日本主帅：目标是冠军](https://www.share.minike.top/Article/details/8562978.shtml)
+- 2026-06-29 15:07 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/130908.shtml)
+- 2026-06-29 14:50 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/4313971.shtml)
+- 2026-06-29 14:51 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/24460.shtml)
+- 2026-06-29 14:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/313818412806.shtml)
+- 2026-06-29 14:53 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/95603142779.shtml)
+- 2026-06-29 14:58 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/52343353.shtml)
+- 2026-06-29 15:15 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/399884101996.shtml)
+- 2026-06-29 15:09 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/2171506.shtml)
+- 2026-06-29 14:50 - [上海一小区水池内出现一条鳄鱼](http://www.share.kurohicncr.top/Article/details/32135443.shtml)
+- 2026-06-29 15:04 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/51373635978.shtml)

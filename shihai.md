@@ -1,51 +1,61 @@
-# 交银国际：升福莱特玻璃评级至“买入” 目标价下调至10.65港元
+# 伯纳姆扬言若接替斯塔默上台，将推翻私有化政策、终结紧缩财政
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-交银国际发布研报称，福莱特玻璃（06865）去年第四季收入和盈利分别为31亿元人民币和3.43亿元人民币，按季降34%和9%，毛利率按季大幅提高7.5个百分点至24.3%，超出预期。由于光伏需求和反内卷成效不及预期，下调集团2026年和2027年盈利预测，其目标价由12.05港元下调至10.65港元，其评级由“中性”升至“买入”。 该行指，公司2025年光伏玻璃收入中境外占比提
+有望成为英国下一任首相的热门人选安迪・伯纳姆，开始抨击英国施行长达半个世纪的新自由主义经济政策，但他坚称不会废除英国现行财政规则。 这位出身中左翼阵营的大曼彻斯特市长，在成为接替基尔・斯塔默爵士的头号热门人选后，引发金融市场愈发强烈的担忧。他于周一表态，计划扭转私有化进程、取消财政紧缩政策并放宽行业监管。 但其团队随即安抚市场，表示伯纳姆不会推行不负责任的举债政策。伯纳姆发言人
 
 ## 正文
 
-交银国际发布研报称，福莱特玻璃（06865）去年第四季收入和盈利分别为31亿元人民币和3.43亿元人民币，按季降34%和9%，毛利率按季大幅提高7.5个百分点至24.3%，超出预期。
+有望成为英国下一任首相的热门人选安迪・伯纳姆，开始抨击英国施行长达半个世纪的新自由主义经济政策，但他坚称不会废除英国现行财政规则。
 
-由于光伏需求和反内卷成效不及预期，下调集团2026年和2027年盈利预测，其目标价由12.05港元下调至10.65港元，其评级由“中性”升至“买入”。
+这位出身中左翼阵营的大曼彻斯特市长，在成为接替基尔・斯塔默爵士的头号热门人选后，引发金融市场愈发强烈的担忧。
 
-该行指，公司2025年光伏玻璃收入中境外占比提升9.7个百分点至34.7%，境内和境外毛利率11.8%和24.3%，高毛利的境外收入占比大幅提升有力地拉动毛利率。
+他于周一表态，计划扭转私有化进程、取消财政紧缩政策并放宽行业监管。
 
-责任编辑：史丽君
+但其团队随即安抚市场，表示伯纳姆不会推行不负责任的举债政策。
+
+伯纳姆发言人称：“他支持现行财政规则，无意对其作出修改。
+
+” 发言人还补充道，伯纳姆不再打算将国防开支划出举债约束范围 —— 这一想法是他上月曾提出的设想。
+
+民调机构舆观针对工党党员开展的调查显示，在工党党内领袖一对一角逐中，伯纳姆将以 59% 对 37% 的支持率击败斯塔默；若与前卫生大臣、另一热门领袖竞选者韦斯・斯特林对阵，伯纳姆支持率更是高达 80%，对方仅为 10%。
+
+受工党领导层更迭猜测升温影响，英国 10 年期国债收益率上周五一度飙升至接近 5.2%，创下 2008 年以来新高。
 
 ## 相关推荐
 
-- 2026-06-29 15:02 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 15:03 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 14:56 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 14:47 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 15:09 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 15:05 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 15:06 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 15:10 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 14:47 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 15:11 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 15:09 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 14:51 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 14:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 15:07 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 15:07 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 14:55 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 15:15 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 14:49 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 15:03 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 14:58 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 14:50 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 15:06 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 14:57 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 15:12 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 14:48 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 14:56 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 14:50 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 15:14 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:06 - [高考志愿今起开始填报](http://www.blog.minike.top/Article/details/25287.shtml)
-- 2026-06-29 14:48 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/116760.shtml)
-- 2026-06-29 14:48 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/12212139417.shtml)
-- 2026-06-29 15:09 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/4874990381.shtml)
-- 2026-06-29 14:58 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/430448.shtml)
-- 2026-06-29 14:56 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/70996706.shtml)
-- 2026-06-29 14:59 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/280929425332.shtml)
-- 2026-06-29 15:10 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.minike.top/Article/details/93829030.shtml)
-- 2026-06-29 14:54 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/180106322302.shtml)
-- 2026-06-29 14:50 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/96976.shtml)
-- 2026-06-29 14:57 - [德国VS巴拉圭前瞻](https://www.blog.minike.top/Article/details/09385703.shtml)
-- 2026-06-29 15:07 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/7110828.shtml)
-- 2026-06-29 15:09 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.kurohicncr.top/Article/details/85235378.shtml)
-- 2026-06-29 15:07 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/2598113769.shtml)
-- 2026-06-29 15:11 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/6977641482.shtml)
+- 2026-06-29 14:54 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/119565495864.shtml)
+- 2026-06-29 15:03 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/8297952.shtml)
+- 2026-06-29 15:09 - [叶一茜森碟一起回北京了](http://www.blog.minike.top/Article/details/5267286393.shtml)
+- 2026-06-29 15:09 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/019563304073.shtml)
+- 2026-06-29 14:48 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/564864857427.shtml)
+- 2026-06-29 14:50 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/863935594.shtml)
+- 2026-06-29 14:57 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/222686447.shtml)
+- 2026-06-29 14:53 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/224563407376.shtml)
+- 2026-06-29 15:01 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/091073833280.shtml)
+- 2026-06-29 15:02 - [《贺子珍》](https://www.share.minike.top/Article/details/881350995.shtml)
+- 2026-06-29 15:01 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.minike.top/Article/details/18336988.shtml)
+- 2026-06-29 14:48 - [ENC瓦中国香港负印度数据图](https://www.blog.kurohicncr.top/Article/details/15128873.shtml)
+- 2026-06-29 15:06 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/345612.shtml)
+- 2026-06-29 14:53 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/1060887.shtml)
+- 2026-06-29 14:55 - [四川宜宾地震](http://www.share.kurohicncr.top/Article/details/966729.shtml)

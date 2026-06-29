@@ -1,60 +1,57 @@
-# 酒价内参3月31日价格发布 洋河梦之蓝M6+上涨3元
+# 美元走强压制避险需求，黄金维持震荡调整
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在3月31日整体微幅回调。如果主要单品各取一瓶整体打包售卖，今日总售价为9928元，较昨日下跌2元。市场整体表现偏弱，高端单品飞天茅台大幅上涨与中腰部产品回落并存，市场仍处于弱平衡整理阶段。 今日白酒市场涨跌互现，11大单品五涨五跌一平。上
+文章来源：汇通财经 国际黄金价格周二欧洲时段继续维持弱势，现货黄金（XAU/USD）运行于4550美元附近，接近此前触及的3月30日以来最低水平。虽然中东局势仍未完全缓和，但市场对于美国与伊朗可能达成协议的预期，正在削弱黄金的避险吸引力。 美国总统特朗普周一表示，应卡塔尔、沙特阿拉伯与阿联酋要求，美国已经暂缓原定针对伊朗的军事行动。特朗普同时强调，如果双方无法达成协议，美国军方
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在3月31日整体微幅回调。
+文章来源：汇通财经 国际黄金价格周二欧洲时段继续维持弱势，现货黄金（XAU/USD）运行于4550美元附近，接近此前触及的3月30日以来最低水平。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9928元，较昨日下跌2元。
+虽然中东局势仍未完全缓和，但市场对于美国与伊朗可能达成协议的预期，正在削弱黄金的避险吸引力。
 
-市场整体表现偏弱，高端单品飞天茅台大幅上涨与中腰部产品回落并存，市场仍处于弱平衡整理阶段。
+美国总统特朗普周一表示，应卡塔尔、沙特阿拉伯与阿联酋要求，美国已经暂缓原定针对伊朗的军事行动。
 
-今日白酒市场涨跌互现，11大单品五涨五跌一平。
+特朗普同时强调，如果双方无法达成协议，美国军方仍将为全面军事行动做好准备。
 
-上涨方面，飞天茅台涨幅居前，环比上涨10元/瓶，创半个月来新高，此次上涨与贵州茅台30日刚发布的调价政策有关；洋河梦之蓝M6+上涨3元/瓶；青花郎上涨2元/瓶；精品茅台与水晶剑南春均小幅上涨1元/瓶。
+虽然市场对潜在外交协议抱有一定乐观情绪，但伊朗方面的强硬表态仍令投资者保持谨慎。
 
-下跌方面，国窖1573跌幅居前，回落7元/瓶，再度跌破900元关口；习酒君品下跌6元/瓶；青花汾20下调4元/瓶；古井贡古20与五粮液普五八代均小幅回落1元/瓶。
+伊朗总统佩泽希齐扬回应特朗普“时间不多了”的警告时表示，伊朗不会向任何力量屈服，并强调相关谈判必须建立在维护国家权益基础上。
 
-五粮液1618价格环比保持不变。
+中东局势虽然暂时未进一步升级，但市场避险情绪已经较此前明显降温。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+随着市场对全面冲突风险的担忧有所缓解，部分此前流入黄金市场的避险资金开始回流美元资产。
 
 ## 相关推荐
 
-- 2026-06-29 14:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 14:45 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 14:44 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 15:11 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 15:03 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 14:50 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 14:47 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 15:09 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 14:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 14:59 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 14:59 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 14:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 15:11 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 15:05 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 15:05 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 14:51 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 14:49 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 15:16 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 15:02 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 14:52 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 15:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 15:10 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 15:00 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 15:05 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 15:13 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:04 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.kurohicncr.top/Article/details/20920.shtml)
-- 2026-06-29 15:00 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.minike.top/Article/details/374533353.shtml)
-- 2026-06-29 15:00 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/11669681382.shtml)
-- 2026-06-29 14:57 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/73535776.shtml)
-- 2026-06-29 14:58 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/31542.shtml)
-- 2026-06-29 15:02 - [T1 vs KC MSI](http://www.blog.kurohicncr.top/Article/details/641531.shtml)
-- 2026-06-29 14:59 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/4338479515.shtml)
-- 2026-06-29 15:06 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/77295.shtml)
-- 2026-06-29 14:56 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/32860293.shtml)
-- 2026-06-29 14:49 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/87126013916.shtml)
-- 2026-06-29 14:53 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/321238854.shtml)
-- 2026-06-29 15:06 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/591534628359.shtml)
-- 2026-06-29 15:05 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/8931661.shtml)
-- 2026-06-29 15:12 - [世界杯超牛补水广告出现了](http://www.blog.kurohicncr.top/Article/details/35761384.shtml)
-- 2026-06-29 14:51 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/5123093244.shtml)
+- 2026-06-29 15:06 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/5309251058.shtml)
+- 2026-06-29 15:04 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/277750.shtml)
+- 2026-06-29 15:17 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/069769227733.shtml)
+- 2026-06-29 15:13 - [爸爸当家](https://www.share.minike.top/Article/details/841166.shtml)
+- 2026-06-29 14:49 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/46812248433.shtml)
+- 2026-06-29 14:52 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/645108471552.shtml)
+- 2026-06-29 14:55 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/61514568948.shtml)
+- 2026-06-29 15:01 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/250804.shtml)
+- 2026-06-29 15:10 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/52274863154.shtml)
+- 2026-06-29 15:14 - [84岁英国教授成中国网红](http://www.share.minike.top/Article/details/49809115693.shtml)
+- 2026-06-29 15:15 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/5216451201.shtml)
+- 2026-06-29 15:14 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/843347680.shtml)
+- 2026-06-29 15:10 - [吴建豪老婆](http://www.blog.minike.top/Article/details/0824377.shtml)
+- 2026-06-29 15:13 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.kurohicncr.top/Article/details/2205592.shtml)
+- 2026-06-29 15:14 - [周生如故](http://www.share.minike.top/Article/details/11494110992.shtml)

@@ -1,61 +1,59 @@
-# ASML股价因美国国会计划进一步限制对华出口而下跌4.7%
+# 观点综述：AI热将提振资源丰富型新兴市场的货币
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-美国国会议员上周提出一项可能进一步限制该公司对华销售的法案后，芯片设备制造商 ASML（阿斯麦）的股价在周二（首个交易日）出现下跌。 分析师表示，若该法案获美国通过并由荷兰政府执行，可能会导致 ASML 自 2024 年 9 月以来首次面临新的出口限制，阻碍其向中国客户销售及维护深紫外（DUV）沉浸式光刻机。 ASML 是制造这类用于芯片电路的核心设备的主流厂商，不过也面临着日
+欧洲央行管委Nagel表示，面对战争带来的冲击，可能“必须采取行动”。巴克莱策略师称，AI热潮将提振资源丰富型新兴市场的货币，印尼等将受益。摩根大通高管Brunner表示，人工智能正从“炒作”走向实际应用。 欧洲央行管委Nagel：面对战争带来的冲击 可能“必须采取行动” 欧洲央行管委会成员Joachim Nagel表示，欧洲央行可能不得不应对中东冲突带来的经济挑战。 这位德国
 
 ## 正文
 
-美国国会议员上周提出一项可能进一步限制该公司对华销售的法案后，芯片设备制造商 ASML（阿斯麦）的股价在周二（首个交易日）出现下跌。
+欧洲央行管委Nagel表示，面对战争带来的冲击，可能“必须采取行动”。
 
-分析师表示，若该法案获美国通过并由荷兰政府执行，可能会导致 ASML 自 2024 年 9 月以来首次面临新的出口限制，阻碍其向中国客户销售及维护深紫外（DUV）沉浸式光刻机。
+巴克莱策略师称，AI热潮将提振资源丰富型新兴市场的货币，印尼等将受益。
 
-ASML 是制造这类用于芯片电路的核心设备的主流厂商，不过也面临着日本尼康（Nikon）和中国公司上海微电子（SMEE）的竞争。
+摩根大通高管Brunner表示，人工智能正从“炒作”走向实际应用。
 
-花旗（Citi）分析师在一份报告中表示：“我们对这一前景持负面看法”。
+欧洲央行管委Nagel：面对战争带来的冲击 可能“必须采取行动” 欧洲央行管委会成员Joachim Nagel表示，欧洲央行可能不得不应对中东冲突带来的经济挑战。
 
-ASML 股价一度下跌 4.7%，随后略有回升。
+这位德国央行行长周二接受采访时表示：“这次能源供应冲击更具持续性，因此我们正在偏离基线情境。
 
-截至格林尼治标准时间 11 点，阿姆斯特丹交易所股价下跌 4.1%，至 1114 欧元。
+”他说：“这意味着我们或许必须采取行动”。
 
-ASML 拒绝置评，荷兰政府则表示，美国立法机构的提案不由荷兰负责评价。
+巴克莱称AI热潮将提振资源丰富型新兴市场的货币 印尼等将受益 巴克莱表示，未来几年，生产人工智能关键金属与矿产资源的新兴市场国家的货币有望获得提振。
 
-分析师对财务影响观点不一 市场对该事件带来的财务影响看法存在分歧。
+巴克莱策略师在2026年股票与债券研究报告中指出，随着人工智能建设热潮推高大宗商品价格，智利、秘鲁、巴西、印尼等发展中国家都将从中受益。
 
 ## 相关推荐
 
-- 2026-06-29 14:58 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 15:02 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 15:03 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 15:06 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 14:44 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 14:54 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 14:55 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 14:58 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 14:47 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 14:53 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 15:02 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 14:45 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 14:47 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 14:59 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 14:53 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 15:00 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 15:00 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 15:09 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 15:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 14:51 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 14:55 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 15:15 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 15:01 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 14:49 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 14:53 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 14:52 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 14:50 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 15:16 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:03 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/741599204178.shtml)
-- 2026-06-29 15:02 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.minike.top/Article/details/553061911.shtml)
-- 2026-06-29 15:08 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/2253795.shtml)
-- 2026-06-29 14:49 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/93483918033.shtml)
-- 2026-06-29 14:49 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/793508598992.shtml)
-- 2026-06-29 15:01 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/18739.shtml)
-- 2026-06-29 14:55 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/209214698168.shtml)
-- 2026-06-29 15:05 - [42岁郭碧婷纯素颜状态](https://www.blog.kurohicncr.top/Article/details/2977088072.shtml)
-- 2026-06-29 15:02 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/700655.shtml)
-- 2026-06-29 15:07 - [吴磊爱上回收了](https://www.share.kurohicncr.top/Article/details/19567.shtml)
-- 2026-06-29 14:44 - [沙丘](http://www.blog.minike.top/Article/details/7446158753.shtml)
-- 2026-06-29 14:59 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.kurohicncr.top/Article/details/374705496175.shtml)
-- 2026-06-29 14:42 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/1857975401.shtml)
-- 2026-06-29 15:05 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/87174.shtml)
-- 2026-06-29 15:10 - [以前不让妆女二可以艳压女主](https://www.blog.kurohicncr.top/Article/details/3595739442.shtml)
+- 2026-06-29 14:52 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/996674.shtml)
+- 2026-06-29 14:51 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.minike.top/Article/details/5563433389.shtml)
+- 2026-06-29 15:05 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/7302881000.shtml)
+- 2026-06-29 14:53 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/647133028.shtml)
+- 2026-06-29 15:11 - [未来5年全国能源体系将呈现这些特征](http://www.blog.minike.top/Article/details/14200.shtml)
+- 2026-06-29 14:49 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/3455560415.shtml)
+- 2026-06-29 14:59 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/678363.shtml)
+- 2026-06-29 14:59 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.kurohicncr.top/Article/details/0964979534.shtml)
+- 2026-06-29 14:50 - [上海一小区水池内出现一条鳄鱼](http://www.share.minike.top/Article/details/6741843.shtml)
+- 2026-06-29 15:12 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/0816649.shtml)
+- 2026-06-29 15:10 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/5108778882.shtml)
+- 2026-06-29 15:07 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/9407829.shtml)
+- 2026-06-29 14:56 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/3434918218.shtml)
+- 2026-06-29 15:05 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/56440059.shtml)
+- 2026-06-29 14:53 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/5849635.shtml)

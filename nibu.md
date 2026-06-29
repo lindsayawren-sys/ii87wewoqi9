@@ -1,61 +1,61 @@
-# 伊朗袭击中东关键生产设施，引发金属铝长期供应中断风险
+# 英国GHO与新加坡康桥资本宣布合并 将组建新的医疗投资机构
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-随着地缘政治风险从源头上收紧供应，铝市场正经历实时价格重估。在伊朗袭击了中东两处生产设施后，伦敦金属交易所铝价在早盘交易中一度飙升6%，达到每吨3492美元。这一事态发展可能加剧该地区的供应中断，而该地区在全球产量中占有相当大份额。此次上涨建立在已然坚挺的定价背景之上，此前供应限制已逐渐推高金属价格。 从实地情况看，早期信号表明已造成切实的运营损失。阿联酋环球铝业公司表示，其阿
+总部位于伦敦的投资机构全球医疗健康机会基金（GHO）与新加坡康桥资本（CBC Group）联合宣布达成合并协议。双方合并后将组建全球资产管理规模最大的医疗健康专属投资机构，总资产超过210亿美元。 根据双方发表的联合声明，此次交易预计将于2027年初完成，并需获得相关监管部门批准及满足其他惯例条件。在交易最终完成前，两家机构将保持独立运营。声明指出，合并后现有基金和投资组合公司
 
 ## 正文
 
-随着地缘政治风险从源头上收紧供应，铝市场正经历实时价格重估。
+总部位于伦敦的投资机构全球医疗健康机会基金（GHO）与新加坡康桥资本（CBC Group）联合宣布达成合并协议。
 
-在伊朗袭击了中东两处生产设施后，伦敦金属交易所铝价在早盘交易中一度飙升6%，达到每吨3492美元。
+双方合并后将组建全球资产管理规模最大的医疗健康专属投资机构，总资产超过210亿美元。
 
-这一事态发展可能加剧该地区的供应中断，而该地区在全球产量中占有相当大份额。
+根据双方发表的联合声明，此次交易预计将于2027年初完成，并需获得相关监管部门批准及满足其他惯例条件。
 
-此次上涨建立在已然坚挺的定价背景之上，此前供应限制已逐渐推高金属价格。
+在交易最终完成前，两家机构将保持独立运营。
 
-从实地情况看，早期信号表明已造成切实的运营损失。
+声明指出，合并后现有基金和投资组合公司将继续由原投资团队管理，其投资授权、公司治理及所有权结构维持不变。
 
-阿联酋环球铝业公司表示，其阿布扎比设施遭受了“重大损失”，而巴林铝业公司则表示仍在评估其工厂的状况。
+目前，GHO和康桥资本的资产管理规模分别约为105亿美元和108亿美元。
 
-股市对此反应迅速，澳大利亚铝生产商股价走高，反映出市场预期供应趋紧将为受影响地区以外的生产商带来更有利的定价环境。
+在管理层架构方面，康桥资本创始人兼首席执行官傅唯将与GHO联合创始人兼管理合伙人迈克·莫蒂默（Mike Mortimer）出任合并后企业的联席首席执行官。
 
-更广泛的供应格局正变得更加紧张。
+合并后的机构将在北美、欧洲及亚太地区设立13个办事处，拥有超过200名投资与运营专业人员。
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 14:58 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 14:53 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 14:42 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 15:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 15:06 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 14:47 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 14:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 14:45 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 15:04 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 14:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 14:59 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 14:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 14:50 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 14:51 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 14:58 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 15:09 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 15:15 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 15:00 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 15:08 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 15:03 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 14:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 15:13 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 15:00 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 14:51 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 15:17 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 15:04 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 14:56 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 14:51 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 14:51 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:50 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/74519.shtml)
-- 2026-06-29 14:54 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/09394324494.shtml)
-- 2026-06-29 14:46 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.kurohicncr.top/Article/details/73625494690.shtml)
-- 2026-06-29 15:07 - [吴昕要助理买的药6年前已停产](https://www.share.minike.top/Article/details/0976284512.shtml)
-- 2026-06-29 15:05 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.minike.top/Article/details/88001257.shtml)
-- 2026-06-29 15:04 - [汪东城回应45岁婚约](https://www.share.minike.top/Article/details/296654769009.shtml)
-- 2026-06-29 14:49 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/27732969.shtml)
-- 2026-06-29 14:50 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/32273008512.shtml)
-- 2026-06-29 15:03 - [南非老帅布罗斯的梦没能做完](https://www.blog.kurohicncr.top/Article/details/20241.shtml)
-- 2026-06-29 15:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/1435561844.shtml)
-- 2026-06-29 14:42 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/19880361.shtml)
-- 2026-06-29 15:04 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/8018293.shtml)
-- 2026-06-29 14:46 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/819996.shtml)
-- 2026-06-29 15:08 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/035264826623.shtml)
-- 2026-06-29 15:09 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/498698509.shtml)
+- 2026-06-29 14:52 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/245782750147.shtml)
+- 2026-06-29 15:07 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/784857.shtml)
+- 2026-06-29 15:13 - [宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/04857165320.shtml)
+- 2026-06-29 15:10 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.kurohicncr.top/Article/details/6041462442.shtml)
+- 2026-06-29 14:51 - [张一山回应与杨紫友情](https://www.share.kurohicncr.top/Article/details/075457722.shtml)
+- 2026-06-29 14:58 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/56841071179.shtml)
+- 2026-06-29 15:10 - [中国避暑神器在欧洲卖爆了](https://www.blog.minike.top/Article/details/38284.shtml)
+- 2026-06-29 15:12 - [千与千寻](http://www.share.minike.top/Article/details/050305751.shtml)
+- 2026-06-29 14:49 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/408352168972.shtml)
+- 2026-06-29 15:04 - [世界杯十大帅哥必吃榜](https://www.blog.minike.top/Article/details/25407.shtml)
+- 2026-06-29 14:59 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/8460519409.shtml)
+- 2026-06-29 15:14 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/5275490.shtml)
+- 2026-06-29 15:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/826936.shtml)
+- 2026-06-29 15:15 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.minike.top/Article/details/687296043727.shtml)
+- 2026-06-29 14:50 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/23153680.shtml)

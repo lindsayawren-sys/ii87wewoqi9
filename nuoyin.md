@@ -1,57 +1,59 @@
-# 中东战争：十字路口的特朗普
+# 巴西天狼星粒子加速器启用四条新同步辐射光源
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！雪涛宏观笔记 时间不在特朗普这边，需要在接下来1-2周做出选择。进，未必能解决问题，反而可能造成升级；退，固然丢了政治声誉和国家利益，但中选还有半年，仍有时间修复支持率。TACO的选项还在桌子上，局势将逐步明朗。 文：国金宏观宋雪涛/赵宏鹤 时间不在特朗普这边。油价上涨已经严重冲击了特朗普的选情，路透/益普
+中新社圣保罗5月18日电 (记者 林春茵)当地时间18日，位于巴西圣保罗州坎皮纳斯市的巴西国家能源与材料研究中心(CNPEM)宣告天狼星粒子加速器启用4条新的同步辐射光源。巴西总统卢拉出席启动仪式时表示，这一项目“能够为巴西赢得世界尊重”。巴西是少数拥有第四代同步辐射光源技术的国家之一。作为巴西最复杂、规模最大的科学基础设施，天狼星粒子加速器总建筑面积达6.8万平方米，是全球最
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社圣保罗5月18日电 (记者 林春茵)当地时间18日，位于巴西圣保罗州坎皮纳斯市的巴西国家能源与材料研究中心(CNPEM)宣告天狼星粒子加速器启用4条新的同步辐射光源。
 
-雪涛宏观笔记 时间不在特朗普这边，需要在接下来1-2周做出选择。
+巴西总统卢拉出席启动仪式时表示，这一项目“能够为巴西赢得世界尊重”。
 
-进，未必能解决问题，反而可能造成升级；退，固然丢了政治声誉和国家利益，但中选还有半年，仍有时间修复支持率。
+巴西是少数拥有第四代同步辐射光源技术的国家之一。
 
-TACO的选项还在桌子上，局势将逐步明朗。
+作为巴西最复杂、规模最大的科学基础设施，天狼星粒子加速器总建筑面积达6.8万平方米，是全球最先进的第四代同步辐射光源之一，能分析不同材料的原子和分子结构，堪称一座“超级显微镜”。
 
-文：国金宏观宋雪涛/赵宏鹤 时间不在特朗普这边。
+当天启用的4条同步辐射光源分别命名为Tatu、Sapucaia、Quati和Sapê，总投资达2.3亿雷亚尔，将提升天狼星粒子加速器在健康、能源、气候、农业、纳米技术和新材料等战略领域的研究能力。
 
-油价上涨已经严重冲击了特朗普的选情，路透/益普索的最新民调显示，特朗普的支持率大幅下降至36%，创下第二任期以来的新低，持平于2020年大选共和党被横扫、2024年大选民主党被横扫之前的水平。
+至此，天狼星粒子加速器共有15条同步辐射光源投入运行。
 
-Polymarket显示共和党在今年中选被横扫的概率上升至50%左右，至少丢失众议院几乎是板上钉钉。
+巴西官方当天还通报了“猎户座”(Orion)项目建设进展。
 
-战争每持续一天，海峡每封锁一天，原油供需缺口就增加上千万桶，油价随时间升高，特朗普的境遇愈发不利。
+这是拉美首个最高级别生物安全实验室(NB-4)，并成为全球首个与同步辐射光源相连接的同类设施，以期提升病原体研究、疫苗开发、诊断及公共卫生应对能力，减少对进口技术的依赖。
 
 ## 相关推荐
 
-- 2026-06-29 15:02 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 14:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 14:58 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 15:07 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 14:49 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 14:47 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 15:07 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 15:00 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 15:08 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 15:11 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 15:03 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 14:51 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 14:51 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 15:06 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 14:53 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 15:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 14:57 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 15:03 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 15:04 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 15:17 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 15:13 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 15:13 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 15:01 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 14:57 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:48 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/63967.shtml)
-- 2026-06-29 15:04 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/571788390831.shtml)
-- 2026-06-29 15:09 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/612099149397.shtml)
-- 2026-06-29 14:43 - [上海一小区水池内出现一条鳄鱼](https://www.share.minike.top/Article/details/0249493720.shtml)
-- 2026-06-29 15:02 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/39637.shtml)
-- 2026-06-29 15:07 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/4624906895.shtml)
-- 2026-06-29 14:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/2041754.shtml)
-- 2026-06-29 14:44 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/048179.shtml)
-- 2026-06-29 14:59 - [普京：俄面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/038853013.shtml)
-- 2026-06-29 14:54 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/096317.shtml)
-- 2026-06-29 15:11 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/2887442941.shtml)
-- 2026-06-29 14:42 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/7262609.shtml)
-- 2026-06-29 14:43 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/6786473.shtml)
-- 2026-06-29 14:56 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/6341565.shtml)
-- 2026-06-29 14:57 - [上海一小区水池内出现一条鳄鱼](https://www.share.kurohicncr.top/Article/details/998955114.shtml)
+- 2026-06-29 15:16 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.minike.top/Article/details/591636611.shtml)
+- 2026-06-29 14:53 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/896073.shtml)
+- 2026-06-29 14:50 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/3502630664.shtml)
+- 2026-06-29 15:16 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/6596273613.shtml)
+- 2026-06-29 14:51 - [普京称考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/63820767618.shtml)
+- 2026-06-29 14:59 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/03541.shtml)
+- 2026-06-29 14:51 - [久坐小心“死臀综合征”](https://www.blog.minike.top/Article/details/20980870379.shtml)
+- 2026-06-29 15:01 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/516301827.shtml)
+- 2026-06-29 14:53 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/696431.shtml)
+- 2026-06-29 14:52 - [把古诗里的动作换成加班](http://www.blog.minike.top/Article/details/654850000439.shtml)
+- 2026-06-29 15:15 - [久坐小心“死臀综合征”](http://www.blog.kurohicncr.top/Article/details/465266.shtml)
+- 2026-06-29 15:02 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/3803538.shtml)
+- 2026-06-29 15:15 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/9518036.shtml)
+- 2026-06-29 15:07 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/03505.shtml)
+- 2026-06-29 14:50 - [明星大侦探第一季](https://www.share.minike.top/Article/details/64501475327.shtml)

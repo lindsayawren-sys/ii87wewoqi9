@@ -1,60 +1,61 @@
-# 杨德龙：近期A股韧性十足 “牛回头”带来布局良机
+# 酒店“一客一换”失守，监管力度要跟上
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-近期，受中东冲突影响，全球资本市场出现较大幅度调整，美股三大股指连续下跌，日韩股市更是一度大跌，而A股表现相对抗跌。随着中长期资金入市的成效逐步显现，长期投资的市场生态逐步完善，A股正在逐步构筑底部特征，市场调整反而是入场时机。本次调整主要是受到中东冲突的外部冲击，导致投资者情绪出现波动，并未改变A股市场慢牛长牛的格局。 A股市场近期能走出独立行情，也体现出本轮慢牛长牛行情背后
+秦春兰 5月16日，“多家酒店做不到床单一客一换”登上热搜。据媒体报道，有的酒店入住后次日枕套、床单未换新，有的酒店未使用的浴巾、面巾则不予更换，还有的酒店水杯未清洗消毒，涉及维也纳、城市便捷、麗枫等酒店。当地相关部门回应称媒体调查属实，已依法对涉事酒店立案调查。(5月17日上观新闻) 媒体记者的暗访揭开了多家酒店的卫生乱象。部分酒店凭肉眼判断布草洁净度，未使用的浴巾、面巾不予
 
 ## 正文
 
-近期，受中东冲突影响，全球资本市场出现较大幅度调整，美股三大股指连续下跌，日韩股市更是一度大跌，而A股表现相对抗跌。
+秦春兰 5月16日，“多家酒店做不到床单一客一换”登上热搜。
 
-随着中长期资金入市的成效逐步显现，长期投资的市场生态逐步完善，A股正在逐步构筑底部特征，市场调整反而是入场时机。
+据媒体报道，有的酒店入住后次日枕套、床单未换新，有的酒店未使用的浴巾、面巾则不予更换，还有的酒店水杯未清洗消毒，涉及维也纳、城市便捷、麗枫等酒店。
 
-本次调整主要是受到中东冲突的外部冲击，导致投资者情绪出现波动，并未改变A股市场慢牛长牛的格局。
+当地相关部门回应称媒体调查属实，已依法对涉事酒店立案调查。
 
-A股市场近期能走出独立行情，也体现出本轮慢牛长牛行情背后的逻辑非常强劲。
+(5月17日上观新闻) 媒体记者的暗访揭开了多家酒店的卫生乱象。
 
-地缘冲突对A股的影响逐步弱化，影响A股的核心因素是国内经济基本面、风险偏好和利率水平，目前来看，这些因素没有发生根本性变化。
+部分酒店凭肉眼判断布草洁净度，未使用的浴巾、面巾不予更换，客房水杯也未彻底清洗消毒，严重影响了消费者对酒店卫生的信任。
 
-A股中长期仍处于结构性缓慢上行的趋势。
+相关部门快速核查处置、开展全域整治，彰显了监管力度，也让公众再次聚焦酒店卫生治理的深层问题。
 
-中东冲突导致霍尔木兹海峡被封锁，国际油价一度大幅上涨，相较战前涨幅接近50%。
+“一客一换一消毒”是酒店行业的硬性卫生标准，更是保障消费者健康的底线准则。
 
-原油价格的上涨推高了全球通胀预期，对全球风险资产造成压制。
+一些连锁酒店凭借标准化管理、规范化服务赢得市场口碑，成为大众出行住宿的首选。
 
 ## 相关推荐
 
-- 2026-06-29 14:56 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 14:59 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 15:12 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 15:02 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 14:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 15:10 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 14:44 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 15:02 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 15:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 14:45 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 14:53 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 15:07 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 15:05 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 14:59 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 15:17 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 15:06 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 14:58 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 15:12 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 14:56 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 14:53 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 15:16 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 14:52 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 15:05 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 14:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 15:02 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 15:01 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 15:00 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 14:49 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 15:00 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/8906785882.shtml)
-- 2026-06-29 15:09 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/146239229.shtml)
-- 2026-06-29 14:57 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/75998.shtml)
-- 2026-06-29 14:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/06610479.shtml)
-- 2026-06-29 14:56 - [3D打印不是工业革命，它是……](https://www.blog.minike.top/Article/details/180856.shtml)
-- 2026-06-29 14:58 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/634275368.shtml)
-- 2026-06-29 15:11 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/18136.shtml)
-- 2026-06-29 14:53 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/537198129446.shtml)
-- 2026-06-29 14:55 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/567585210105.shtml)
-- 2026-06-29 15:07 - [A股](http://www.share.minike.top/Article/details/99869934.shtml)
-- 2026-06-29 14:47 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/62188.shtml)
-- 2026-06-29 15:11 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/371265.shtml)
-- 2026-06-29 15:02 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/49419966.shtml)
-- 2026-06-29 14:51 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/90555753407.shtml)
-- 2026-06-29 14:56 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/6098756805.shtml)
+- 2026-06-29 15:00 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/08178278460.shtml)
+- 2026-06-29 15:13 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/0202937441.shtml)
+- 2026-06-29 15:15 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/770299.shtml)
+- 2026-06-29 14:57 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.share.kurohicncr.top/Article/details/65878192212.shtml)
+- 2026-06-29 15:17 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/71181404243.shtml)
+- 2026-06-29 15:15 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/47132183.shtml)
+- 2026-06-29 14:57 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/6552107884.shtml)
+- 2026-06-29 15:05 - [宜宾5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/312682519.shtml)
+- 2026-06-29 15:12 - [高市早苗口齿不清被质疑醉酒](http://www.share.kurohicncr.top/Article/details/585571542.shtml)
+- 2026-06-29 15:13 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/40845.shtml)
+- 2026-06-29 15:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/4504978.shtml)
+- 2026-06-29 14:48 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/408685.shtml)
+- 2026-06-29 14:49 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/40878861.shtml)
+- 2026-06-29 14:53 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/55413.shtml)
+- 2026-06-29 14:59 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/3712836.shtml)

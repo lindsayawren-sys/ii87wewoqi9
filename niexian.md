@@ -1,57 +1,57 @@
-# 海南“镇”能量：文润加乐激活产业动能
+# 黄金白银，为何集体大跌？
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-中新网海南澄迈4月7日电 (郑丹丹)春满加乐，文润人心。作为2026年“文化澄迈·十二乐章”系列活动之一，最近刚落幕的“香知加乐，乐享未来”澄迈县加乐镇第二十一届家家乐文化月活动，六天时间里十余场活动接续上演，线上线下累计百万人次参与共享。 从非遗戏曲的方寸戏台到沉香技艺的沉浸体验，从体育竞技的激情挥洒到民生服务的温暖送达，加乐镇以“以文化人、以文塑城、以文兴业”为发力点，以“
+中新经纬5月20日电 (李自曼)据Wind，北京时间19日晚间，现货黄金失守4500美元/盎司，日跌超2%，现货白银一度跌至73美元/盎司附近，日跌5.93%。20日开盘，现货黄金报4478.45美元/盎司，现货白银报73.829美元/盎司。Wind数据显示，现货黄金5月12日至15日连跌4个交易日，累计跌幅约3.71%，5月18日反弹上涨0.59%，收于4566.39美元/盎
 
 ## 正文
 
-中新网海南澄迈4月7日电 (郑丹丹)春满加乐，文润人心。
+中新经纬5月20日电 (李自曼)据Wind，北京时间19日晚间，现货黄金失守4500美元/盎司，日跌超2%，现货白银一度跌至73美元/盎司附近，日跌5.93%。
 
-作为2026年“文化澄迈·十二乐章”系列活动之一，最近刚落幕的“香知加乐，乐享未来”澄迈县加乐镇第二十一届家家乐文化月活动，六天时间里十余场活动接续上演，线上线下累计百万人次参与共享。
+20日开盘，现货黄金报4478.45美元/盎司，现货白银报73.829美元/盎司。
 
-从非遗戏曲的方寸戏台到沉香技艺的沉浸体验，从体育竞技的激情挥洒到民生服务的温暖送达，加乐镇以“以文化人、以文塑城、以文兴业”为发力点，以“书香、沉香、油香”为引，将文化软实力转化为高质量发展硬支撑，生动诠释了新时代乡村振兴的“加乐路径”。
+Wind数据显示，现货黄金5月12日至15日连跌4个交易日，累计跌幅约3.71%，5月18日反弹上涨0.59%，收于4566.39美元/盎司。
 
-海南岛上的这个小镇，将家家乐文化月活动打造成文化惠民、产业赋能、凝聚民心的重要载体。
+现货白银5月12日至15日整体大幅走弱，累计跌幅约12.29%。
 
-自举办以来，该活动已走过二十一个年头，从最初的群众自娱自乐，逐步发展为集文化展演、体育竞技、民生服务、产业推介于一体的综合性文化品牌。
+其间，现货白银于13日小幅上涨后，14日、15日连续大跌，尤其是15日单日暴跌9.03%。
 
-今年的文化月活动紧扣“香知加乐、乐享未来”主题，以“三香”为脉络，把海南木偶戏、琼剧等非遗请回家门口，让装军巡游跨界融合焕发新活力；把义诊、培训、家风讲座办到群众身边，让文化惠民真正落到实处；更把沉香产业与文化IP深度绑定，为“中国沉香之乡”赋能增效。
+18日现货白银反弹上涨2.33%，收于77.66美元/盎司。
 
-加乐镇党委书记劳镫表示，加乐镇将继续守护好文化根脉、做强特色产业、办好民生实事，以实干笃行书写高质量发展新篇章，为“文化澄迈”建设注入更多加乐力量。
+北京师范大学教授、盘古智库学术委员会秘书长万喆对中新经纬分析称，近日黄金与白银下跌主要受美国4月通胀超预期影响，尤其是美国PPI显著走高，市场对美国高通胀长期化的担忧加剧，年内降息预期已基本消失，加息概率上升。
 
-家家乐文化月活动坚持以文化人、以文育人，深挖本土文化资源，在特色文化场景中厚植精神力量、涵养文明新风。
+美债收益率攀升，使持有黄金等无息资产的机会成本增加，资金撤离。
 
 ## 相关推荐
 
-- 2026-06-29 15:04 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 15:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 15:06 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 14:49 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 15:05 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 14:49 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 15:03 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 15:08 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 14:57 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 14:44 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 14:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 14:57 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 15:12 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 15:04 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 15:07 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 14:52 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 14:57 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 15:10 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 14:57 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 15:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 15:03 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 15:03 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:57 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/132057024731.shtml)
-- 2026-06-29 15:05 - [美媒：空警-3000服役即成全球最强](https://www.share.kurohicncr.top/Article/details/33741194.shtml)
-- 2026-06-29 14:57 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.minike.top/Article/details/64706940.shtml)
-- 2026-06-29 14:49 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/56954.shtml)
-- 2026-06-29 15:03 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/807234064.shtml)
-- 2026-06-29 14:49 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/80485.shtml)
-- 2026-06-29 14:54 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/25631046027.shtml)
-- 2026-06-29 14:59 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/6147265.shtml)
-- 2026-06-29 15:07 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/07970.shtml)
-- 2026-06-29 15:02 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/884541.shtml)
-- 2026-06-29 15:10 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/4048296.shtml)
-- 2026-06-29 14:57 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/8596485.shtml)
-- 2026-06-29 14:45 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/7448548859.shtml)
-- 2026-06-29 14:42 - [世界杯用球成部分门将噩梦](https://www.share.kurohicncr.top/Article/details/064968462132.shtml)
-- 2026-06-29 15:06 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/633004.shtml)
+- 2026-06-29 15:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/298518.shtml)
+- 2026-06-29 14:55 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/8042021565.shtml)
+- 2026-06-29 15:02 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/8793663703.shtml)
+- 2026-06-29 14:50 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/64787426287.shtml)
+- 2026-06-29 14:58 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/94796.shtml)
+- 2026-06-29 14:57 - [东部机场集团新增釜山航线](https://www.share.minike.top/Article/details/9248907.shtml)
+- 2026-06-29 15:13 - [日本主帅：对战胜巴西很有信心](https://www.blog.kurohicncr.top/Article/details/780976.shtml)
+- 2026-06-29 14:49 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/577576591.shtml)
+- 2026-06-29 15:13 - [A股](http://www.share.kurohicncr.top/Article/details/9506871761.shtml)
+- 2026-06-29 14:51 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/54148.shtml)
+- 2026-06-29 14:59 - [市民骑哈啰单车79分钟付30元](http://www.blog.kurohicncr.top/Article/details/210698420833.shtml)
+- 2026-06-29 14:51 - [高考公平需要延伸到志愿填报这一环](http://www.share.minike.top/Article/details/2461969373.shtml)
+- 2026-06-29 15:17 - [博主：全球股市进入“AI极端共振”](http://www.share.minike.top/Article/details/292452.shtml)
+- 2026-06-29 15:06 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/930460671443.shtml)
+- 2026-06-29 14:55 - [詹俊预测德国大胜巴拉圭](https://www.blog.kurohicncr.top/Article/details/91610.shtml)

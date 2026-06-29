@@ -1,56 +1,60 @@
-# 美经济学家警告：沃尔玛相关衰退指标飙升至金融危机以来最高水平
+# 603319承认：公众号文章不符合信披规则
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-一位华尔街资深人士表示，与美国最具标志性的经济支柱之一沃尔玛相关的指标正在发出可能出现经济衰退的警告。 吉姆·保尔森是一位资深经济学家，也是Leuthold Group前首席投资策略师。他维护着沃尔玛衰退信号（WRS），该指标衡量沃尔玛的股价相对于一篮子奢侈品股票的表现。其基本理念是，该指标越高，经济急剧下滑的风险就越大。 如下图所示，WRS指数达到了近二十年前全球金融危机以来
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月19日晚，美湖股份（603319）发布关于公司签署日常经营合同事项的监管工作函的回复公告，对此前上交所出具的监管工作函进行回复。 美湖股份称，本次与七腾机器人有限公司（简称“七腾”）签订的合同属于框架合同，合同销售额具有不确定性。七腾向公司的年度采购额9
 
 ## 正文
 
-一位华尔街资深人士表示，与美国最具标志性的经济支柱之一沃尔玛相关的指标正在发出可能出现经济衰退的警告。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-吉姆·保尔森是一位资深经济学家，也是Leuthold Group前首席投资策略师。
+5月19日晚，美湖股份（603319）发布关于公司签署日常经营合同事项的监管工作函的回复公告，对此前上交所出具的监管工作函进行回复。
 
-他维护着沃尔玛衰退信号（WRS），该指标衡量沃尔玛的股价相对于一篮子奢侈品股票的表现。
+美湖股份称，本次与七腾机器人有限公司（简称“七腾”）签订的合同属于框架合同，合同销售额具有不确定性。
 
-其基本理念是，该指标越高，经济急剧下滑的风险就越大。
+七腾向公司的年度采购额9.43亿元为可能的最高订单额，系根据合同最高采购量18万台估算而来，公司的最终销售额视七腾下达的具体订单情况而定。
 
-如下图所示，WRS指数达到了近二十年前全球金融危机以来的最高水平： 沃尔玛衰退信号背后的逻辑是，随着经济放缓，越来越多的消费者会从奢侈品店转向沃尔玛等平价零售商。
+本合同对于订单下达的时间、订单的数量不具有约束性，因此本合同的销售额具有不确定性。
 
-保尔森在谈到该指标时表示，这意味着沃尔玛衰退信号的上升可能预示着经济衰退或“显著的经济放缓”即将到来。
+截至本回复出具日，七腾向公司发放订单涉及执行器90台。
 
-沃尔玛长期以来一直是美国消费者健康状况的风向标，过去一年来表现强劲，股价在过去12个月里上涨了40%。
+美湖股份还表示，本次签订的合同涉及的产品为四足机器狗的零部件产品，不属于人形机器人产品。
 
-随着通胀担忧加剧，消费者寻求节省开支，沃尔玛股价因此受益匪浅。
+公司在微信公众号上发布关于签署具身智能合同订单信息，公司未能关注到市场对具身智能与人形机器人存在概念混同的情形，未在发布的信息中明确说明公司产品配套四足机器狗而非人形机器人，上述发布的信息可能存在对投资者的决策产生误导。
 
 ## 相关推荐
 
-- 2026-06-29 14:53 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 15:02 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 15:11 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 14:51 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 14:50 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 14:54 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 14:58 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 15:01 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 14:50 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 15:07 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 14:51 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 15:00 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 15:05 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 15:01 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 15:13 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 15:01 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 15:04 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 14:56 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 15:04 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 14:52 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 15:13 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 15:17 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 15:11 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 15:01 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:51 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/1322464367.shtml)
-- 2026-06-29 15:06 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/151215675153.shtml)
-- 2026-06-29 15:10 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/9997617562.shtml)
-- 2026-06-29 14:46 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/7457757700.shtml)
-- 2026-06-29 15:04 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/72124.shtml)
-- 2026-06-29 14:47 - [王楚钦3比0周启豪](https://www.blog.kurohicncr.top/Article/details/7696313954.shtml)
-- 2026-06-29 14:48 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/82823565119.shtml)
-- 2026-06-29 14:51 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/77290333.shtml)
-- 2026-06-29 14:45 - [詹俊预测德国大胜巴拉圭](http://www.share.minike.top/Article/details/292325260.shtml)
-- 2026-06-29 15:11 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.kurohicncr.top/Article/details/044093574393.shtml)
-- 2026-06-29 14:53 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/0015883.shtml)
-- 2026-06-29 14:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/8556845176.shtml)
-- 2026-06-29 14:48 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/109769.shtml)
-- 2026-06-29 15:01 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/13395424.shtml)
-- 2026-06-29 15:12 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/084998627679.shtml)
+- 2026-06-29 15:17 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/974663600103.shtml)
+- 2026-06-29 15:07 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/601664.shtml)
+- 2026-06-29 15:03 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.kurohicncr.top/Article/details/8395864.shtml)
+- 2026-06-29 14:51 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/74466583.shtml)
+- 2026-06-29 15:16 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/0124474.shtml)
+- 2026-06-29 14:53 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/20955465745.shtml)
+- 2026-06-29 15:09 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/279456.shtml)
+- 2026-06-29 14:53 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/99728.shtml)
+- 2026-06-29 14:49 - [王祖蓝现场观看美加墨世界杯](http://www.blog.minike.top/Article/details/278019245953.shtml)
+- 2026-06-29 15:11 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/116097.shtml)
+- 2026-06-29 15:10 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/789530694870.shtml)
+- 2026-06-29 14:56 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/84962.shtml)
+- 2026-06-29 15:13 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/29714851757.shtml)
+- 2026-06-29 14:55 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/19731670.shtml)
+- 2026-06-29 14:51 - [送你一朵小红花](http://www.blog.minike.top/Article/details/229211.shtml)

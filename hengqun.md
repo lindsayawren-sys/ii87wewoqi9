@@ -1,52 +1,59 @@
-# 白宫：特朗普希望4月6日前与伊朗达成协议
+# 致公党上海市委会爱心义卖十七载首次走进高校
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-【相关阅读】特朗普威胁摧毁伊朗石油设施 国际油价应声大涨 美参议员批特朗普擅自对伊开战将致全球动荡 人民财讯3月31日电，记者获悉，美国白宫新闻秘书莱维特30日表示，总统特朗普希望在4月6日截止日期前与伊朗达成协议。 特朗普此前曾表示，应伊朗政府请求，将暂停对伊朗能源设施的打击行动10天，至美东时间4月6日晚8时恢复。 延伸阅读 特朗普再就停火威胁伊朗 据央视新闻，美国总统特朗
+中新网上海5月19日电(范宇斌)近日，致公党上海市委会在复旦大学举办2026年爱心义卖暨“致·青春”活动。上海各级致公党组织的致公党党员、志愿者等500余人参加活动，以公益行动勾勒出一道温暖的奉献风景线。 上海致公爱心义卖始于2009年5月汶川地震一周年之际。当时，致公党青年党员提议以爱心义卖募集善款援助灾区，在致公党上海市委会支持下，当月便落地首场活动。十七载初心不改，该活动
 
 ## 正文
 
-【相关阅读】特朗普威胁摧毁伊朗石油设施 国际油价应声大涨 美参议员批特朗普擅自对伊开战将致全球动荡 人民财讯3月31日电，记者获悉，美国白宫新闻秘书莱维特30日表示，总统特朗普希望在4月6日截止日期前与伊朗达成协议。
+中新网上海5月19日电(范宇斌)近日，致公党上海市委会在复旦大学举办2026年爱心义卖暨“致·青春”活动。
 
-特朗普此前曾表示，应伊朗政府请求，将暂停对伊朗能源设施的打击行动10天，至美东时间4月6日晚8时恢复。
+上海各级致公党组织的致公党党员、志愿者等500余人参加活动，以公益行动勾勒出一道温暖的奉献风景线。
 
-延伸阅读 特朗普再就停火威胁伊朗 据央视新闻，美国总统特朗普当地时间30日表示，美伊谈判已取得进展。
+上海致公爱心义卖始于2009年5月汶川地震一周年之际。
 
-但同时，他发出强硬威胁称，如果不能很快达成协议，并且霍尔木兹海峡不能立即“开放”，美国将“彻底摧毁伊朗所有发电厂、油井及哈尔克岛”。
+当时，致公党青年党员提议以爱心义卖募集善款援助灾区，在致公党上海市委会支持下，当月便落地首场活动。
 
-截至目前，伊朗方面尚未就特朗普最新威胁作出回应。
+十七载初心不改，该活动已连续举办17年，成长为致公党上海市委会社会服务工作的一项重要品牌，善款用途也从单一支援汶川地震灾区，逐步拓展至扶弱帮困、民生帮扶等多元公益领域，今年所筹善款将全数纳入上海致公爱心基金，持续传递公益温度。
 
-责任编辑：张恒星
+活动现场，致公党上海市委会专职副主委刘新宇、童丽萍等与参加爱心义卖的致公党党员亲切交流，对致公党党员的热忱参与表示感谢，肯定大家以实际行动传承致公精神的善举，鼓励大家发扬“致力为公、侨海报国”优良传统，在社会服务中奉献爱心。
+
+据了解，今年是该爱心义卖活动首次走进高校。
+
+在复旦大学浓郁的书香氛围中，本次活动以“致·青春”为主题，在打击乐、独唱、武术等精彩节目的轮番上演中温情启幕。
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 15:06 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 15:10 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 14:55 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 14:55 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 14:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 15:06 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 14:53 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 14:42 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 14:54 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 14:49 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 14:56 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 14:51 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 15:11 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 14:49 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 14:56 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 15:07 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 14:54 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 14:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 15:10 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 14:48 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 15:17 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 15:06 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:42 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/9036003371.shtml)
-- 2026-06-29 14:48 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/1179596610.shtml)
-- 2026-06-29 14:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/095737990.shtml)
-- 2026-06-29 14:58 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/30515.shtml)
-- 2026-06-29 14:46 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/563848.shtml)
-- 2026-06-29 15:03 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/69705981586.shtml)
-- 2026-06-29 15:00 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/068053.shtml)
-- 2026-06-29 14:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/44485.shtml)
-- 2026-06-29 14:44 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/038093275.shtml)
-- 2026-06-29 15:07 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/919647486299.shtml)
-- 2026-06-29 14:45 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/811500.shtml)
-- 2026-06-29 14:57 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/69630.shtml)
-- 2026-06-29 15:06 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/2193790027.shtml)
-- 2026-06-29 14:42 - [血糖高的人能吃西瓜吗](https://www.blog.minike.top/Article/details/94513301.shtml)
-- 2026-06-29 14:55 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/609009.shtml)
+- 2026-06-29 14:56 - [给阿嬷的情书海外口碑](https://www.blog.kurohicncr.top/Article/details/97002918.shtml)
+- 2026-06-29 15:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/8538687.shtml)
+- 2026-06-29 14:51 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/397203.shtml)
+- 2026-06-29 15:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/43106525260.shtml)
+- 2026-06-29 15:11 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/7130867.shtml)
+- 2026-06-29 15:13 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/736318736134.shtml)
+- 2026-06-29 14:53 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/551605603.shtml)
+- 2026-06-29 14:52 - [爱很美味](http://www.share.kurohicncr.top/Article/details/206721907.shtml)
+- 2026-06-29 14:59 - [沙丘](https://www.share.kurohicncr.top/Article/details/40639428.shtml)
+- 2026-06-29 15:17 - [扫黑风暴](https://www.blog.minike.top/Article/details/026416889991.shtml)
+- 2026-06-29 14:58 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/7734087985.shtml)
+- 2026-06-29 15:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/14094.shtml)
+- 2026-06-29 14:49 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/6739382.shtml)
+- 2026-06-29 14:58 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.minike.top/Article/details/7745342.shtml)
+- 2026-06-29 15:14 - [王楚钦3比0周启豪](https://www.blog.minike.top/Article/details/96199.shtml)

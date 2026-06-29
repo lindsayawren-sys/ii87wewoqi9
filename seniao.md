@@ -1,56 +1,57 @@
-# 全品类车型销量冠军再进阶，吉利星愿536天达成60万交付，重磅宠粉权益同步上线
+# 有人听不懂、有人“吃不饱”——高校AI通识课怎样才能讲好
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！3月29日，“现象级爆款”吉利星愿迎来又一里程碑时刻——累计交付正式突破60万辆大关。作为2025年全品类车型销量冠军，这款国民纯电小车再次刷新行业纪录，上市仅536天便达成60万辆交付，成为最快实现这一成绩的车型。为回馈60万用户的支持，吉利星愿正式上新全新车色——樱花粉。同时，星愿也将与萌宠IP“卡皮巴
+下午两点，某高校阶梯教室。老师在讲台上讲“机器学习的基本原理”，PPT翻过一页又一页。前排几个女生盯着屏幕，眉头微蹙；中间一排，一个男生正用手机看篮球赛直播；最后排靠窗的位子上，一个男生已经趴着睡了十几分钟。“这门课最‘AI’的地方，就是大家都用AI把作业对付过去了。”坐在后排的小张合上笔记本电脑，压低声音对记者说。他选修这门人工智能通识课已过半个学期，“老师把人工智能的历史从
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+下午两点，某高校阶梯教室。
 
-3月29日，“现象级爆款”吉利星愿迎来又一里程碑时刻——累计交付正式突破60万辆大关。
+老师在讲台上讲“机器学习的基本原理”，PPT翻过一页又一页。
 
-作为2025年全品类车型销量冠军，这款国民纯电小车再次刷新行业纪录，上市仅536天便达成60万辆交付，成为最快实现这一成绩的车型。
+前排几个女生盯着屏幕，眉头微蹙；中间一排，一个男生正用手机看篮球赛直播；最后排靠窗的位子上，一个男生已经趴着睡了十几分钟。
 
-为回馈60万用户的支持，吉利星愿正式上新全新车色——樱花粉。
+“这门课最‘AI’的地方，就是大家都用AI把作业对付过去了。
 
-同时，星愿也将与萌宠IP“卡皮巴拉小黄豚”开启跨界合作，并同步上线卡皮巴拉盲盒等多重宠粉权益。
+”坐在后排的小张合上笔记本电脑，压低声音对记者说。
 
-自2024年10月上市以来，吉利星愿销量屡破新高，去年9月更是单月突破5万辆。
+他选修这门人工智能通识课已过半个学期，“老师把人工智能的历史从头讲到尾，图灵测试、专家系统、深度学习……每个概念都点了，但每个都没讲透。
 
-如今，星愿仅用536天，便完成了从0到60万辆的跨越，平均每分钟就有一台吉利星愿交付至用户手中。
+一学期下来，感觉就是在混学分。
 
-在竞争激烈的A0级市场，每卖出3台车，就有1台是吉利星愿，超过30%的市场占比，使其成为当之无愧的“国民小车首选”。
+” 这样的吐槽并非个例。
 
 ## 相关推荐
 
-- 2026-06-29 14:51 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 14:43 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 14:45 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 14:48 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 14:43 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 14:53 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 15:00 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 14:51 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 14:47 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 15:09 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 14:54 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 15:02 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 14:58 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 14:55 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 14:50 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-29 14:55 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 15:08 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 15:07 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 15:13 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 15:01 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 15:15 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:51 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/3747574797.shtml)
-- 2026-06-29 15:03 - [美国近12万名科技员工被解雇](https://www.blog.kurohicncr.top/Article/details/35453409728.shtml)
-- 2026-06-29 15:08 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/641039850873.shtml)
-- 2026-06-29 15:10 - [金价银价下跌 油价上涨](https://www.blog.kurohicncr.top/Article/details/21829.shtml)
-- 2026-06-29 15:11 - [高考志愿今起开始填报](http://www.share.minike.top/Article/details/332078.shtml)
-- 2026-06-29 14:57 - [美人鱼](http://www.blog.minike.top/Article/details/4225304254.shtml)
-- 2026-06-29 15:07 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/8598760259.shtml)
-- 2026-06-29 14:50 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/1095325611.shtml)
-- 2026-06-29 14:45 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.minike.top/Article/details/05439071.shtml)
-- 2026-06-29 14:43 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.kurohicncr.top/Article/details/41821479.shtml)
-- 2026-06-29 14:50 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/075912714960.shtml)
-- 2026-06-29 15:06 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/2789383276.shtml)
-- 2026-06-29 15:03 - [叶一茜森碟一起回北京了](https://www.share.minike.top/Article/details/64850757852.shtml)
-- 2026-06-29 15:08 - [央视起底直播诈骗连环套](http://www.share.minike.top/Article/details/273238815.shtml)
-- 2026-06-29 14:42 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/78903.shtml)
+- 2026-06-29 14:54 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/5081150.shtml)
+- 2026-06-29 15:01 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/66813787561.shtml)
+- 2026-06-29 14:49 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/498399000291.shtml)
+- 2026-06-29 15:10 - [上海一小区水池内出现一条鳄鱼](https://www.blog.minike.top/Article/details/938383320924.shtml)
+- 2026-06-29 14:48 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.kurohicncr.top/Article/details/107316033.shtml)
+- 2026-06-29 15:02 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/18487329.shtml)
+- 2026-06-29 14:58 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/626857920.shtml)
+- 2026-06-29 15:05 - [A股](https://www.share.kurohicncr.top/Article/details/815179.shtml)
+- 2026-06-29 14:55 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/4138113914.shtml)
+- 2026-06-29 14:57 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/218525668257.shtml)
+- 2026-06-29 14:55 - [普京称考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/7174325549.shtml)
+- 2026-06-29 15:04 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/6917498.shtml)
+- 2026-06-29 15:09 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/430532.shtml)
+- 2026-06-29 15:04 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/591435749.shtml)
+- 2026-06-29 15:11 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/202533284249.shtml)

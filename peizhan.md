@@ -1,60 +1,57 @@
-# 李强签署国务院令 公布《国务院关于产业链供应链安全的规定》
+# 习近平：以更高质量的中俄全面战略协作助力各自国家发展振兴
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-新华社北京4月7日电 国务院总理李强日前签署国务院令，公布《国务院关于产业链供应链安全的规定》(以下简称《规定》)，自公布之日起施行。 《规定》旨在防范产业链供应链安全风险，提升产业链供应链韧性和安全水平，维护经济社会稳定和国家安全。《规定》共18条，主要规定了以下内容。 一是明确产业链供应链安全工作原则。规定产业链供应链安全工作贯彻总体国家安全观，统筹发展和安全，统筹国内国际
+中新社北京5月20日电 5月20日上午，中国国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。 习近平指出，今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。中俄关系之所以一步一个脚印走到今天这个高度，就是因为我们能够以“千磨万击还坚劲”的毅力不断深化政治互信和战略协作，能够以“更上一层楼”的精神拓展各领域合作，能够以“乱云飞
 
 ## 正文
 
-新华社北京4月7日电 国务院总理李强日前签署国务院令，公布《国务院关于产业链供应链安全的规定》(以下简称《规定》)，自公布之日起施行。
+中新社北京5月20日电 5月20日上午，中国国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。
 
-《规定》旨在防范产业链供应链安全风险，提升产业链供应链韧性和安全水平，维护经济社会稳定和国家安全。
+习近平指出，今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。
 
-《规定》共18条，主要规定了以下内容。
+中俄关系之所以一步一个脚印走到今天这个高度，就是因为我们能够以“千磨万击还坚劲”的毅力不断深化政治互信和战略协作，能够以“更上一层楼”的精神拓展各领域合作，能够以“乱云飞渡仍从容”的勇气捍卫国际公道正义、推动构建人类命运共同体。
 
-一是明确产业链供应链安全工作原则。
+当前，国际形势变乱交织，单边霸权逆流横行，但求和平、谋发展、促合作仍是民心所向、大势所趋。
 
-规定产业链供应链安全工作贯彻总体国家安全观，统筹发展和安全，统筹国内国际，推进高水平对外开放，促进全球产业链供应链稳定畅通。
+作为联合国安理会常任理事国和世界重要大国，中俄两国要着眼战略长远，以更高质量的全面战略协作助力各自国家发展振兴，推动构建更加公正合理的全球治理体系。
 
-明确国家引导产业链供应链合理有序布局，加强产业链供应链领域国际合作，支持关键领域核心技术攻关，促进产业链供应链高质量发展。
-
-二是建立健全产业链供应链安全制度措施。
-
-建立健全产业链供应链安全工作机制。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:54 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 14:48 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 15:08 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 15:03 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 14:46 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 14:49 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 14:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 14:42 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 14:57 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 14:48 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 14:46 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 14:59 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 15:09 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 14:49 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 14:59 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 15:17 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 15:06 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 14:53 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 15:16 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 15:05 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 14:57 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 14:58 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 14:55 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 15:07 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 15:00 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 15:11 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 14:49 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 15:05 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 15:10 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:11 - [民进党为什么拼命抹黑统战](http://www.share.minike.top/Article/details/08319.shtml)
-- 2026-06-29 14:56 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/08969885.shtml)
-- 2026-06-29 14:49 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/918936.shtml)
-- 2026-06-29 14:50 - [Agent带来token消耗爆炸](https://www.share.kurohicncr.top/Article/details/90975078724.shtml)
-- 2026-06-29 14:59 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/665104737.shtml)
-- 2026-06-29 14:53 - [警方回应东鹏饮料董事长不喝东鹏](https://www.blog.minike.top/Article/details/05514467.shtml)
-- 2026-06-29 14:46 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/36074997573.shtml)
-- 2026-06-29 15:02 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/84386821793.shtml)
-- 2026-06-29 14:51 - [复盘曾沛慈浪姐夺冠之路](http://www.share.kurohicncr.top/Article/details/267398362.shtml)
-- 2026-06-29 14:45 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/84936357649.shtml)
-- 2026-06-29 15:07 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/24795989.shtml)
-- 2026-06-29 15:11 - [速度与激情9](https://www.blog.minike.top/Article/details/19353.shtml)
-- 2026-06-29 15:05 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/03181703.shtml)
-- 2026-06-29 14:48 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/617092.shtml)
-- 2026-06-29 14:51 - [农发行总行专家委员会委员杜晓力被查](http://www.share.minike.top/Article/details/91639053.shtml)
+- 2026-06-29 14:57 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/145243975151.shtml)
+- 2026-06-29 14:49 - [航空运输旅客服务质量国标将实施](https://www.share.kurohicncr.top/Article/details/2532020107.shtml)
+- 2026-06-29 15:09 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/67862.shtml)
+- 2026-06-29 14:52 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/933198.shtml)
+- 2026-06-29 15:13 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/070947629.shtml)
+- 2026-06-29 15:16 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/606200536.shtml)
+- 2026-06-29 14:59 - [勇敢的心第二部](https://www.share.minike.top/Article/details/052075208.shtml)
+- 2026-06-29 15:06 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/907245097353.shtml)
+- 2026-06-29 15:15 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/2326170872.shtml)
+- 2026-06-29 15:12 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/863644443.shtml)
+- 2026-06-29 15:05 - [天道](http://www.blog.minike.top/Article/details/3143992.shtml)
+- 2026-06-29 15:14 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/399476269.shtml)
+- 2026-06-29 14:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/12562.shtml)
+- 2026-06-29 14:56 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/45149.shtml)
+- 2026-06-29 15:05 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/3714773909.shtml)

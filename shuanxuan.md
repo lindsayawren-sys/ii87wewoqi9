@@ -1,58 +1,56 @@
-# 王练文：银保市场格局加速分化 新华保险明确“稳中有进”核心策略
+# 广西红十字会启动自然灾害Ⅲ级响应 全力投入柳州地震救援工作
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-3月30日金融一线消息，新华保险今日召开2025年度业绩发布会。副总裁王练文表示， 近年来，新华银保业务始终保持强劲增长态势，2025年将业务发展提升至战略层面后，不负期待创造历史峰值。数据显示，2025年新华银保新单保费达379.3亿元，同比增长52.3%；期缴保费179.7亿元，同比增长30%；新业务价值同比增长110%。从市场表现看，银保规模期交排名稳步提升，市场份额持续
+中新网南宁5月19日电(张广权)5月18日，广西柳州市柳南区连续发生地震灾害。灾情发生后，广西红十字会启动自然灾害Ⅲ级响应，迅速核实灾情需求，并组织力量开展救灾工作。 根据灾区实际需求，中国红十字会总会于18日向灾区调拨赈济家庭包、折叠床、冲锋衣等救灾物资共2000件(套)，广西红十字会向受灾地区调拨帐篷、家庭包、毛毯、牛奶、饮用水等救灾物资一批，用于支持灾区民众转移安置和生活
 
 ## 正文
 
-3月30日金融一线消息，新华保险今日召开2025年度业绩发布会。
+中新网南宁5月19日电(张广权)5月18日，广西柳州市柳南区连续发生地震灾害。
 
-副总裁王练文表示， 近年来，新华银保业务始终保持强劲增长态势，2025年将业务发展提升至战略层面后，不负期待创造历史峰值。
+灾情发生后，广西红十字会启动自然灾害Ⅲ级响应，迅速核实灾情需求，并组织力量开展救灾工作。
 
-数据显示，2025年新华银保新单保费达379.3亿元，同比增长52.3%；期缴保费179.7亿元，同比增长30%；新业务价值同比增长110%。
+根据灾区实际需求，中国红十字会总会于18日向灾区调拨赈济家庭包、折叠床、冲锋衣等救灾物资共2000件(套)，广西红十字会向受灾地区调拨帐篷、家庭包、毛毯、牛奶、饮用水等救灾物资一批，用于支持灾区民众转移安置和生活保障。
 
-从市场表现看，银保规模期交排名稳步提升，市场份额持续扩大；从内部贡献看，新单保费与新业务价值占比均超五成，对公司战略发展的支撑作用愈发凸显。
+上述物资已于19日凌晨1时许从南宁备灾仓库发往柳州，预计于19日发放到受灾民众手中。
 
-银保业务始终秉持规模与价值并重的理念，在竞争中稳步前行。
+中国红十字基金会根据受灾民众，特别是老年人和婴幼儿群体的实际需求，紧急调拨一批纯牛奶、婴幼儿奶粉、中老年奶粉。
 
-谈及差异化核心竞争力，王练文指出，新华银保凭借“稳中有进”的发展特点巩固既有优势，主要体现在三方面：一是客户经营稳中有进。
+首批物资已于18日运抵临时安置点，发放到有需要的民众手中，提供基本营养保障。
 
-二是渠道合作稳中有进。
+目前救灾物资正陆续运抵受灾一线，广西红十字会将继续密切关注灾情变化，配合做好受灾民众救助和安置保障工作。
 
-三是队伍建设稳中有进。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:02 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 15:01 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 15:11 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 15:08 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 15:05 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 15:06 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 14:49 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 14:44 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 15:03 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 14:55 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 14:57 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 15:00 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 15:16 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 14:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 15:06 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 15:15 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 14:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 14:56 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 14:55 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 14:52 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 15:13 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 15:02 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:43 - [普京称考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/18409148.shtml)
-- 2026-06-29 14:58 - [医药股集体爆发](https://www.blog.minike.top/Article/details/174840271673.shtml)
-- 2026-06-29 14:42 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.kurohicncr.top/Article/details/338994.shtml)
-- 2026-06-29 15:08 - [哈兰德之歌火到国外](https://www.share.kurohicncr.top/Article/details/450449989.shtml)
-- 2026-06-29 15:00 - [唐艺昕女儿接唐艺昕回家](http://www.blog.minike.top/Article/details/0996279.shtml)
-- 2026-06-29 14:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/98016661576.shtml)
-- 2026-06-29 14:50 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/50136700457.shtml)
-- 2026-06-29 15:01 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/9687252.shtml)
-- 2026-06-29 15:00 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/2690138.shtml)
-- 2026-06-29 14:49 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/711149043899.shtml)
-- 2026-06-29 15:08 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.minike.top/Article/details/892178201582.shtml)
-- 2026-06-29 15:06 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.kurohicncr.top/Article/details/4694458634.shtml)
-- 2026-06-29 14:55 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/235664540.shtml)
-- 2026-06-29 15:08 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/149327522.shtml)
-- 2026-06-29 15:09 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/6773724.shtml)
+- 2026-06-29 15:16 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/41485340989.shtml)
+- 2026-06-29 14:51 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/5841279963.shtml)
+- 2026-06-29 15:10 - [梅朗雄主张法国退出北约](http://www.share.kurohicncr.top/Article/details/7210279.shtml)
+- 2026-06-29 14:53 - [给阿嬷的情书海外口碑](https://www.share.minike.top/Article/details/2952004.shtml)
+- 2026-06-29 14:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/798359287227.shtml)
+- 2026-06-29 14:52 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.minike.top/Article/details/627667192331.shtml)
+- 2026-06-29 15:16 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/64185.shtml)
+- 2026-06-29 15:13 - [宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/99758.shtml)
+- 2026-06-29 15:07 - [逆天祖国人](http://www.blog.minike.top/Article/details/57210352.shtml)
+- 2026-06-29 15:11 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/298003895059.shtml)
+- 2026-06-29 15:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/90065555488.shtml)
+- 2026-06-29 15:05 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/0781420.shtml)
+- 2026-06-29 14:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/06231.shtml)
+- 2026-06-29 15:08 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/36557.shtml)
+- 2026-06-29 15:14 - [7款商保创新药“转道”](https://www.blog.kurohicncr.top/Article/details/0517629388.shtml)

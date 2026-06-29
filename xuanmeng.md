@@ -1,52 +1,51 @@
-# 日本三菱材料将投资于美国一家稀土公司
+# 湖北宣恩强降雨致3人死亡4人失联
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-日本金属生产商三菱材料株式会社将收购美国印第安纳州ReElement Technologies Corp．的股份，旨在使稀土成为自己的一个核心业务。 三菱材料周二在声明中表示，该公司计划通过承购和加工协议与这家美国回收公司合作。 执行董事高柳喜弘在东京举行的记者会上表示，持股比例仅占这家美国公司的一小部分，但没有透露更多细节。 社长田中徹也表示，稀土有望成为铜和钨之后公司第三大
+发布时间：2026年05月19日 13:52 来源：中国新闻网 记者从湖北省恩施州宣恩县防汛抗旱指挥部了解到，5月17日至18日，湖北省恩施州宣恩县沙道沟镇白水河村上游普降大到暴雨，最大降雨量达292.6毫米，导致河水暴涨，白水河村沿河区域多处房屋被淹、部分房屋倒塌、道路通讯中断。汛情发生后，恩施州和宣恩县两级防汛抗旱指挥部迅速启动应急响应，第一时间组织武警、公安、应急、消防、
 
 ## 正文
 
-日本金属生产商三菱材料株式会社将收购美国印第安纳州ReElement Technologies Corp．的股份，旨在使稀土成为自己的一个核心业务。
+发布时间：2026年05月19日 13:52 来源：中国新闻网 记者从湖北省恩施州宣恩县防汛抗旱指挥部了解到，5月17日至18日，湖北省恩施州宣恩县沙道沟镇白水河村上游普降大到暴雨，最大降雨量达292.6毫米，导致河水暴涨，白水河村沿河区域多处房屋被淹、部分房屋倒塌、道路通讯中断。
 
-三菱材料周二在声明中表示，该公司计划通过承购和加工协议与这家美国回收公司合作。
+汛情发生后，恩施州和宣恩县两级防汛抗旱指挥部迅速启动应急响应，第一时间组织武警、公安、应急、消防、交通、电力、通讯等部门赶赴现场，紧急转移群众287人，全力开展人员搜救、医疗救治、道路疏通、通讯抢修等应急救援工作。
 
-执行董事高柳喜弘在东京举行的记者会上表示，持股比例仅占这家美国公司的一小部分，但没有透露更多细节。
+截至5月18日20时，灾情已造成3人死亡、4人失联。
 
-社长田中徹也表示，稀土有望成为铜和钨之后公司第三大支柱产业。
+应急救援工作还在全力开展中。
 
-责任编辑：刘明亮
+(制作 税浪 邹浩 视频来源 宣恩县融媒体中心） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 15:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 15:07 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 14:43 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 15:01 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 14:54 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 15:04 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 15:02 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 14:44 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 14:43 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 14:43 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 14:47 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 15:13 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 15:06 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 14:56 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 15:05 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 15:02 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 15:16 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 14:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 14:54 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 15:05 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 15:16 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 15:11 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:51 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/396619.shtml)
-- 2026-06-29 14:57 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/34398.shtml)
-- 2026-06-29 14:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/809042044.shtml)
-- 2026-06-29 15:06 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/07724511927.shtml)
-- 2026-06-29 14:51 - [F1奥地利正赛战报](https://www.share.kurohicncr.top/Article/details/9836091417.shtml)
-- 2026-06-29 14:52 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/82649994566.shtml)
-- 2026-06-29 15:07 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/679769746.shtml)
-- 2026-06-29 14:47 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/31108818.shtml)
-- 2026-06-29 14:55 - [恋与深空底线不该被娱乐化](http://www.blog.kurohicncr.top/Article/details/110570029092.shtml)
-- 2026-06-29 15:07 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/67142.shtml)
-- 2026-06-29 14:56 - [王楚钦3比0周启豪](https://www.share.kurohicncr.top/Article/details/648522.shtml)
-- 2026-06-29 15:05 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/596772211453.shtml)
-- 2026-06-29 14:57 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/5611099044.shtml)
-- 2026-06-29 14:57 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.minike.top/Article/details/602062897.shtml)
-- 2026-06-29 14:53 - [辽宁葫芦岛一居民楼突发爆炸](http://www.blog.minike.top/Article/details/183388652.shtml)
+- 2026-06-29 15:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/387914.shtml)
+- 2026-06-29 14:53 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.kurohicncr.top/Article/details/07885.shtml)
+- 2026-06-29 15:11 - [ENC瓦中国香港负印度数据图](https://www.share.minike.top/Article/details/089662140632.shtml)
+- 2026-06-29 15:15 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/659471667.shtml)
+- 2026-06-29 15:10 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/80615925477.shtml)
+- 2026-06-29 15:14 - [一生一世](https://www.share.minike.top/Article/details/25317147108.shtml)
+- 2026-06-29 14:52 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/4676085.shtml)
+- 2026-06-29 14:48 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/04797396.shtml)
+- 2026-06-29 15:11 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/305702560.shtml)
+- 2026-06-29 15:02 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/80019211.shtml)
+- 2026-06-29 15:07 - [韩国记者：解码“合肥模式”](https://www.share.kurohicncr.top/Article/details/358521868.shtml)
+- 2026-06-29 15:04 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/33224.shtml)
+- 2026-06-29 14:54 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/293881012.shtml)
+- 2026-06-29 14:55 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/53797.shtml)
+- 2026-06-29 15:12 - [苹果回应恋与深空低分](https://www.blog.minike.top/Article/details/879932.shtml)

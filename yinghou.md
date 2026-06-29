@@ -1,61 +1,59 @@
-# 苹果将氛围编程应用下架App Store，打击力度升级
+# 新加坡超越印尼 登顶东南亚第一大股市
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-苹果将氛围编程应用下架 App Store，打击力度升级 苹果近期将一款氛围编程类应用下架 App Store，称其违反相关规定，此举显然升级了对该类应用的整治力度。 据开发该应用的同名初创公司联合创始人兼首席执行官德鲁夫・阿明透露，上周四，苹果已将应用Anything从应用商店移除。此前，《信息报》曾报道，苹果已禁止多款氛围编程应用更新 —— 这类应用借助 AI，让无编程经验
+印尼资本市场接连迎来不利局面，最新一项便是被新加坡反超，丢掉东南亚股市规模榜首的地位。汇总数据显示，印尼上市企业总市值从1月峰值跌至6180亿美元，而新加坡股市总市值已攀升至6450亿美元。近几个月来，印尼市场投资情绪持续低迷。一方面市场担忧其股指可能被下调至前沿市场行列，另一方面惠誉、穆迪两大评级机构均将印尼信用评级展望下调至负面。目前印尼股指表现位居全球主要市场末位，印尼盾
 
 ## 正文
 
-苹果将氛围编程应用下架 App Store，打击力度升级 苹果近期将一款氛围编程类应用下架 App Store，称其违反相关规定，此举显然升级了对该类应用的整治力度。
+印尼资本市场接连迎来不利局面，最新一项便是被新加坡反超，丢掉东南亚股市规模榜首的地位。
 
-据开发该应用的同名初创公司联合创始人兼首席执行官德鲁夫・阿明透露，上周四，苹果已将应用Anything从应用商店移除。
+汇总数据显示，印尼上市企业总市值从1月峰值跌至6180亿美元，而新加坡股市总市值已攀升至6450亿美元。
 
-此前，《信息报》曾报道，苹果已禁止多款氛围编程应用更新 —— 这类应用借助 AI，让无编程经验的普通用户也能开发应用 —— 但允许旧版本继续留在商店中，而此次苹果的行动距该报道仅一周。
+近几个月来，印尼市场投资情绪持续低迷。
 
-氛围编程工具是新兴软件品类，正推动 iPhone 等平台上新应用数量激增。
+一方面市场担忧其股指可能被下调至前沿市场行列，另一方面惠誉、穆迪两大评级机构均将印尼信用评级展望下调至负面。
 
-但与此同时，这类工具也可能给苹果带来麻烦：大量低质量应用或将充斥 App Store。
+目前印尼股指表现位居全球主要市场末位，印尼盾汇率更是接连创下历史新低。
 
-此外，这类工具还可能与苹果自家的开发者工具 Xcode 形成竞争，后者近期已接入 Anthropic 的 Claude 与 OpenAI 的 Codex 模型，实现 AI 编码功能。
+狮城环球投资基金经理Soh Chih Kai表示，当前印尼市场暂处不利态势，但未来仍存在回暖复苏的可能。
 
-苹果对这一新兴应用品类的打压，或引来监管机构审查，监管部门正密切关注大型科技平台滥用市场支配地位、构成不正当竞争的新案例。
+他称：“在全球政策充满不确定性的大环境下，资金持续青睐具备稳定确定性的市场，这进一步巩固了新加坡股市的相对优势地位。
 
-尽管通过氛围编程工具生成的应用大多功能简单、吸引力有限，但部分更复杂的应用有望发展成颇具规模的新业务。
+”责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 15:01 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 14:52 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 14:49 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 15:09 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 14:54 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 14:50 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 15:09 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 14:58 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 14:43 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 14:58 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 14:43 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 14:59 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 14:43 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-29 14:56 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 14:45 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 15:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 15:01 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 15:12 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 14:50 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 14:50 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 15:00 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 14:54 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 15:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 15:08 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 15:00 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 14:58 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 14:51 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 14:51 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:48 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/2914938.shtml)
-- 2026-06-29 15:09 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/63914150.shtml)
-- 2026-06-29 14:54 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/5802027847.shtml)
-- 2026-06-29 15:07 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/283640801.shtml)
-- 2026-06-29 15:01 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/3303446925.shtml)
-- 2026-06-29 14:48 - [20年前的周杰伦](https://www.share.minike.top/Article/details/469011.shtml)
-- 2026-06-29 14:59 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/588520879645.shtml)
-- 2026-06-29 14:44 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/85504614636.shtml)
-- 2026-06-29 15:10 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/51999.shtml)
-- 2026-06-29 14:57 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/825461153291.shtml)
-- 2026-06-29 15:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/658745116259.shtml)
-- 2026-06-29 14:48 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/46531.shtml)
-- 2026-06-29 15:11 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/28741.shtml)
-- 2026-06-29 14:46 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/146047.shtml)
-- 2026-06-29 14:58 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/023035397836.shtml)
+- 2026-06-29 14:55 - [北极荒岛生存挑战](https://www.blog.kurohicncr.top/Article/details/29198594.shtml)
+- 2026-06-29 15:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/115078851072.shtml)
+- 2026-06-29 15:03 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/428555.shtml)
+- 2026-06-29 15:04 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/313578.shtml)
+- 2026-06-29 14:59 - [光与夜之恋](https://www.share.minike.top/Article/details/4863775152.shtml)
+- 2026-06-29 15:02 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/595528.shtml)
+- 2026-06-29 14:53 - [105年初心滚烫](http://www.share.minike.top/Article/details/9587302637.shtml)
+- 2026-06-29 14:57 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/184799015119.shtml)
+- 2026-06-29 15:01 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/348395.shtml)
+- 2026-06-29 15:03 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.kurohicncr.top/Article/details/4234855.shtml)
+- 2026-06-29 15:10 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/702472835328.shtml)
+- 2026-06-29 14:49 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/742953669422.shtml)
+- 2026-06-29 15:11 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/7854146.shtml)
+- 2026-06-29 15:13 - [逃狱兄弟](http://www.blog.minike.top/Article/details/741366.shtml)
+- 2026-06-29 14:54 - [媒体：网络测评不能只剩“生意”](http://www.share.minike.top/Article/details/55425683273.shtml)

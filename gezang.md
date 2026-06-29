@@ -1,46 +1,57 @@
-# 输电线路遭袭 伊朗卡拉季部分地区电力供应中断
+# 广西完成首个5G-A技术海域超远覆盖技术测试
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰4月7日电据伊朗媒体7日报道，伊朗卡拉季部分地区电力供应中断，原因是输电线路遭炮击。（完）责任编辑：宋雅芳
+中新网北海5月19日电(张广权 韦啸嵩 张馨予)中国电信广西公司近日携手中兴通讯，在北部湾海域成功完成广西首个基于3.5G+2.1G频段的5G-A技术海域超远覆盖与智能化网络保障技术测试。本次试点通过多项创新技术组合，实现了海域通信从“近海通”到“远海优”的跨越。 北海作为北部湾经济区核心与“向海经济”枢纽，海域经济活动涵盖远洋渔业、海上风电、海事监管、海洋旅游等多个场景。随着
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北海5月19日电(张广权 韦啸嵩 张馨予)中国电信广西公司近日携手中兴通讯，在北部湾海域成功完成广西首个基于3.5G+2.1G频段的5G-A技术海域超远覆盖与智能化网络保障技术测试。
 
-新华社德黑兰4月7日电据伊朗媒体7日报道，伊朗卡拉季部分地区电力供应中断，原因是输电线路遭炮击。
+本次试点通过多项创新技术组合，实现了海域通信从“近海通”到“远海优”的跨越。
 
-（完）责任编辑：宋雅芳
+北海作为北部湾经济区核心与“向海经济”枢纽，海域经济活动涵盖远洋渔业、海上风电、海事监管、海洋旅游等多个场景。
+
+随着数字化转型深入，海上通信需求已从单一语音通话，升级为对高带宽、低时延的多元化业务需求。
+
+针对海域通信长期存在的信号衰减快、业务需求多样、运维成本高等挑战，本次试点取得关键突破。
+
+一方面，通过攻克“超远覆盖”难题，网络有效跨越了传统基站的覆盖局限，将优质信号稳定延伸至深远海；另一方面，通过构建“智能化业务差异化保障”能力，使网络得以精准识别并动态满足各类业务的独特需求，做到了“按需供网、精准保网”。
+
+本次试点在北海海域创新部署了包括DGN、智算单板、2.1GHz16TR设备和载波聚合等多项5G-A关键技术，通过在基站侧引入AI智能算力，网络可毫秒级识别各类业务，优先保障视频直播等重点应用。
+
+同时，利用低频段传播距离远的特性，结合高性能天线，实现了超远距离高质量覆盖。
 
 ## 相关推荐
 
-- 2026-06-29 14:58 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 15:05 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 14:48 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 15:09 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 14:56 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 14:56 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 14:52 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 14:55 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 14:58 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 14:51 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 14:54 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 15:09 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 14:54 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 15:00 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 14:52 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 15:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 15:00 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 14:58 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 15:17 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 14:58 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 14:49 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:05 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/94484663579.shtml)
-- 2026-06-29 15:03 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/322567717158.shtml)
-- 2026-06-29 14:47 - [84岁英国教授成中国网红](http://www.blog.minike.top/Article/details/035382995.shtml)
-- 2026-06-29 14:49 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/262755206.shtml)
-- 2026-06-29 14:55 - [北极荒岛生存挑战](https://www.share.kurohicncr.top/Article/details/382627.shtml)
-- 2026-06-29 14:45 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/08412511.shtml)
-- 2026-06-29 15:04 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/905867.shtml)
-- 2026-06-29 15:11 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/0590816804.shtml)
-- 2026-06-29 15:00 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/39779.shtml)
-- 2026-06-29 15:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/686182715.shtml)
-- 2026-06-29 14:47 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/1621537.shtml)
-- 2026-06-29 15:10 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/032388.shtml)
-- 2026-06-29 15:02 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/389110639688.shtml)
-- 2026-06-29 14:48 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/6098780.shtml)
-- 2026-06-29 14:54 - [医药股集体爆发](http://www.blog.kurohicncr.top/Article/details/887058247.shtml)
+- 2026-06-29 14:54 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/749906.shtml)
+- 2026-06-29 15:10 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/6956748647.shtml)
+- 2026-06-29 15:10 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/0795627.shtml)
+- 2026-06-29 15:05 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/80739184.shtml)
+- 2026-06-29 15:17 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/09302052979.shtml)
+- 2026-06-29 14:51 - [叶一茜森碟一起回北京了](http://www.blog.minike.top/Article/details/5011461301.shtml)
+- 2026-06-29 15:07 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/447643055.shtml)
+- 2026-06-29 15:16 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/4821608.shtml)
+- 2026-06-29 15:04 - [实习期把公司领导开除了](http://www.share.kurohicncr.top/Article/details/855578534053.shtml)
+- 2026-06-29 15:00 - [105年初心滚烫](https://www.blog.kurohicncr.top/Article/details/16133567.shtml)
+- 2026-06-29 14:58 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/819720749870.shtml)
+- 2026-06-29 15:15 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.minike.top/Article/details/30635384705.shtml)
+- 2026-06-29 15:10 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/999586257.shtml)
+- 2026-06-29 15:10 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/76882.shtml)
+- 2026-06-29 14:51 - [王祖蓝现场观看美加墨世界杯](http://www.share.minike.top/Article/details/05156.shtml)

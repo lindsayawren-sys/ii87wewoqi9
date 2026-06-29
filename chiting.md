@@ -1,57 +1,56 @@
-# 伊朗打击海湾铝厂 或引发供应危机
+# 周延礼：加快重塑金融体系 把养老金融作为金融改革重点
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-伊朗周末对波斯湾铝厂的打击可能令本就脆弱的市场陷入危机，或推动铝价创纪录。这种金属广泛应用于飞机、食品包装和太阳能板等各领域。 在两家主要生产商确认遭伊朗无人机和导弹袭击后的首个交易日，伦敦金属交易所（LME）铝期货一度大涨6%。中东地区约占全球产量的9%，但其影响被放大，因为其他地区产量受限导致库存被消耗，市场缺乏缓冲冲击的余地。 甚至在该行业成为直接打击目标之前，霍尔木兹海
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。 “长寿时代的金融体系重构”主题论坛上，原中国保监会党委副书记、副主席周延礼表示，改革养老金体系是一项复杂任务，涉及社会保障体系建设、老龄化社会形势以及现行制度
 
 ## 正文
 
-伊朗周末对波斯湾铝厂的打击可能令本就脆弱的市场陷入危机，或推动铝价创纪录。
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。
 
-这种金属广泛应用于飞机、食品包装和太阳能板等各领域。
+本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。
 
-在两家主要生产商确认遭伊朗无人机和导弹袭击后的首个交易日，伦敦金属交易所（LME）铝期货一度大涨6%。
+“长寿时代的金融体系重构”主题论坛上，原中国保监会党委副书记、副主席周延礼表示，改革养老金体系是一项复杂任务，涉及社会保障体系建设、老龄化社会形势以及现行制度运行状况。
 
-中东地区约占全球产量的9%，但其影响被放大，因为其他地区产量受限导致库存被消耗，市场缺乏缓冲冲击的余地。
+从国际实践看，各类养老体系均需要持续改革完善。
 
-甚至在该行业成为直接打击目标之前，霍尔木兹海峡关闭已使中东大型冶炼厂面临关键原料短缺，行业此前已在为未来几周可能出现的一连串减产做准备。
+首先要从宏观经济层面做好准备，思考经济政策、经济结构改革、财政政策能否支撑社会保障体系发展，同时应对出生率下降、人口老龄化等问题。
 
-周六，该地区最大供应商阿联酋环球铝业（Emirates Global Aluminium）表示，其位于阿布扎比的设施遭受“严重破坏”；巴林铝业（Aluminium Bahrain）称正在评估其设施的受损程度。
+其次要重塑金融体系，把养老金融作为金融改革重点，由政府加大支持，推出更有针对性的金融产品与服务。
 
-“交易员需直面中东供应大幅削减的现实，”混沌天成期货研究主管李学智表示。
+他提出改革需聚焦三个重点：一是优化三支柱体系，推动三支柱协同发力，更好应对老龄化、保障退休人员生活；二是管好用好养老资金，确保老年人退休后收入稳定、生活有保障；三是引导金融机构稳健投资，实现资金保值增值与安全运行。
 
-关闭和重启铝冶炼厂所需的时间长、成本高，对全球两大生产设施的打击带来的风险在于，即便霍尔木兹海峡重新开放，其对全球产量的影响仍可能持续很长时间。
+责任编辑：张文
 
 ## 相关推荐
 
-- 2026-06-29 15:08 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 14:59 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 15:04 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 15:10 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 14:58 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 14:55 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 14:53 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 14:49 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 14:49 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 14:58 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 15:05 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 15:13 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 14:50 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 15:00 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 15:00 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 15:02 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 15:08 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 15:16 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 15:13 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 15:11 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 14:50 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:42 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/0263910.shtml)
-- 2026-06-29 15:02 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/398908592.shtml)
-- 2026-06-29 14:45 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/28020.shtml)
-- 2026-06-29 14:46 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/754042.shtml)
-- 2026-06-29 14:47 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/027914911.shtml)
-- 2026-06-29 15:03 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/83333.shtml)
-- 2026-06-29 15:00 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/058463823.shtml)
-- 2026-06-29 14:52 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/294336787263.shtml)
-- 2026-06-29 14:51 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/2923088379.shtml)
-- 2026-06-29 14:55 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/262016556.shtml)
-- 2026-06-29 14:44 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/43041999829.shtml)
-- 2026-06-29 15:03 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/17290.shtml)
-- 2026-06-29 14:45 - [吴建豪老婆](https://www.share.minike.top/Article/details/02207211996.shtml)
-- 2026-06-29 14:49 - [每代父母都困在自己的时代里](http://www.share.kurohicncr.top/Article/details/5423711.shtml)
-- 2026-06-29 15:01 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/36226216121.shtml)
+- 2026-06-29 14:53 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/230434.shtml)
+- 2026-06-29 14:55 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/458502159.shtml)
+- 2026-06-29 14:59 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.minike.top/Article/details/39243306.shtml)
+- 2026-06-29 15:16 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/973753143062.shtml)
+- 2026-06-29 15:14 - [恋与深空 731](https://www.blog.kurohicncr.top/Article/details/65957893085.shtml)
+- 2026-06-29 14:57 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/1812513153.shtml)
+- 2026-06-29 15:12 - [崔韩率还以为韩娱来新人了](https://www.share.minike.top/Article/details/1288000840.shtml)
+- 2026-06-29 15:05 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/5736159.shtml)
+- 2026-06-29 14:52 - [斗破苍穹](http://www.blog.minike.top/Article/details/384219450459.shtml)
+- 2026-06-29 15:05 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/79455669736.shtml)
+- 2026-06-29 15:08 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/11073.shtml)
+- 2026-06-29 15:07 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/83980.shtml)
+- 2026-06-29 15:07 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/535148997646.shtml)
+- 2026-06-29 15:02 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/8660846982.shtml)
+- 2026-06-29 15:14 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/531801503885.shtml)

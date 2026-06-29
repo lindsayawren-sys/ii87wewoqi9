@@ -1,60 +1,60 @@
-# 得润电子因信披违法违规被处罚，适格股民可索赔损失！
+# 长城基金赵凤飞：关注AI基建、半导体等细分领域
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-2026年3月28日，深圳市得润电子股份有限公司发布《关于公司及相关当事人收到的公告》，因得润电子相关年报存在虚假记载，深圳证监局正式对得润电子给予行政处罚。 违法事实 深圳证监局经调查认定得润电子存在如下违法行为： 一、2020年至2021年，因得润电子主要客户等经营困难，无法偿还欠款，致使公司现金流紧张，得润电子实际控制人、时任董事长、总裁邱建民通过自有资金、对外借款等方式
+最近，“要站在光里，不要光站在那里”成为流行语。光模块行情火热，映射的是，以AI为代表的科技浪潮正在加速演进，资金也在密集涌入算力基建核心环节，推动板块热度居高不下。但与此同时，一季报显示AI板块内部分化明显——算力端业绩兑现强劲，而部分应用层公司仍处投入期，盈利尚未释放。 “AI盛宴”之下，市场也免不了担忧：当前科技成长行情是否过热？AI各细分机会后续又将如何演绎？来看看长城
 
 ## 正文
 
-2026年3月28日，深圳市得润电子股份有限公司发布《关于公司及相关当事人收到的公告》，因得润电子相关年报存在虚假记载，深圳证监局正式对得润电子给予行政处罚。
+最近，“要站在光里，不要光站在那里”成为流行语。
 
-违法事实 深圳证监局经调查认定得润电子存在如下违法行为： 一、2020年至2021年，因得润电子主要客户等经营困难，无法偿还欠款，致使公司现金流紧张，得润电子实际控制人、时任董事长、总裁邱建民通过自有资金、对外借款等方式，向得润电子客户、原子公司、设备供应商等提供资金支持，用于前述主体向得润电子归还历史欠款。
+光模块行情火热，映射的是，以AI为代表的科技浪潮正在加速演进，资金也在密集涌入算力基建核心环节，推动板块热度居高不下。
 
-邱建民未向得润电子报告上述资金实际来源，导致得润电子2020年、2021年分别虚构回款394，584，426.91元、112，960，100元，少计信用减值损失371，151，433.40元、66，393，093.51元；少计资本公积 321，316，487.76元、434，276，587.76 元。
+但与此同时，一季报显示AI板块内部分化明显——算力端业绩兑现强劲，而部分应用层公司仍处投入期，盈利尚未释放。
 
-二、2022年6月，邱建民指使得润电子子公司以预付货款的形式，间接向得润电子联营公司提供资金，用于到期归还得润电子的财务资助款，导致得润电子2022年上半年虚构回款26，836，923.99元，少计信用减值损失5，060，996.46元。
+“AI盛宴”之下，市场也免不了担忧：当前科技成长行情是否过热？
 
-上述行为导致得润电子披露的2020年年度报告、2021年年度报告及2022年半年度报告存在虚假记载。
+AI各细分机会后续又将如何演绎？
 
-2022年1月11日，得润电子在完成有关非公开发行后披露了《非公开发行A股股票发行情况报告书暨上市公告书》，引用公司2020年年度报告及2021年1月至 9 月财务数据，存在虚假记载。
+来看看长城“科技+”基金经理赵凤飞的最新研判。
 
-得润电子2020年年度报告、2021年年度报告、2022 年半年度报告及非公开发行文件存在虚假记载，涉嫌违反《证券法》（2019）第七十八条第二款的规定，构成《证券法》第一百九十七条第二款所述违法行为。
+赵凤飞表示，目前在AI领域，中美两国呈现共振加速的局面，产业链拉动效应显著，AI相关硬件迎来收入利润的兑现期。
 
-索赔相关 按照相关法律法规的规定，上市公司证券虚假陈述，给投资人造成的投资损失，应当负赔偿责任。
+尽管短期涨幅过大，但从整个上半年的维度来看，继续看好以AI为代表的科技板块，尤其是国内AI还有国产替代的逻辑支撑。
 
 ## 相关推荐
 
-- 2026-06-29 15:01 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 14:52 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 14:48 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 14:44 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 14:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 14:50 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 14:58 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 14:56 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 14:52 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 14:57 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 14:46 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 14:56 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 14:46 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 15:08 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 15:10 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 14:52 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 15:16 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 15:04 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 15:01 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 15:14 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 15:04 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 14:58 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 14:56 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 15:13 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 14:55 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 15:04 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 14:50 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 14:55 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:11 - [航空运输旅客服务质量国标将实施](http://www.blog.minike.top/Article/details/27672887.shtml)
-- 2026-06-29 14:52 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/86574100.shtml)
-- 2026-06-29 14:49 - [和阿根廷球员家属一起看球](https://www.share.kurohicncr.top/Article/details/97348.shtml)
-- 2026-06-29 14:54 - [吴建豪老婆](http://www.share.kurohicncr.top/Article/details/540941.shtml)
-- 2026-06-29 14:54 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/867816055.shtml)
-- 2026-06-29 15:00 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/192117123129.shtml)
-- 2026-06-29 15:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/093624715993.shtml)
-- 2026-06-29 14:44 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/4872805.shtml)
-- 2026-06-29 14:42 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/8624273.shtml)
-- 2026-06-29 14:55 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/87430198.shtml)
-- 2026-06-29 15:04 - [王祖蓝现场观看美加墨世界杯](http://www.share.minike.top/Article/details/6974362.shtml)
-- 2026-06-29 14:48 - [吴昕要助理买的药6年前已停产](https://www.blog.minike.top/Article/details/547800.shtml)
-- 2026-06-29 14:52 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.kurohicncr.top/Article/details/97529.shtml)
-- 2026-06-29 14:59 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/7001254248.shtml)
-- 2026-06-29 14:55 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/32646094641.shtml)
+- 2026-06-29 14:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/6078092750.shtml)
+- 2026-06-29 15:06 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/46132113598.shtml)
+- 2026-06-29 14:50 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/230189128.shtml)
+- 2026-06-29 14:57 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/17757829.shtml)
+- 2026-06-29 14:59 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/746042.shtml)
+- 2026-06-29 15:07 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/141314504.shtml)
+- 2026-06-29 15:08 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/955801765062.shtml)
+- 2026-06-29 14:51 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/9609767160.shtml)
+- 2026-06-29 15:07 - [久坐小心“死臀综合征”](http://www.share.kurohicncr.top/Article/details/721151598546.shtml)
+- 2026-06-29 15:12 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/1499002389.shtml)
+- 2026-06-29 15:02 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/3871591133.shtml)
+- 2026-06-29 14:55 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/097951.shtml)
+- 2026-06-29 15:07 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/5199903913.shtml)
+- 2026-06-29 15:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/2291884.shtml)
+- 2026-06-29 14:51 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/35576403.shtml)

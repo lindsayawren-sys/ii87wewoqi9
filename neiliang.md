@@ -1,56 +1,58 @@
-# 医疗股异动，九安医疗涨停走出2连板！华宝基金医疗ETF（512170）收复10日线
+# 6456亿元！上市银行分红分化：大行“高派息”可持续，中小行“保经营”优先
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-3月30日，大市盘整之际，医疗板块局部异动，引发关注！九安医疗涨停走出两连板，英科医疗涨超6%，昭衍新药涨超5%。全市场规模最大医疗ETF（512170）涨近1%，收复10日均线，实时成交5.5亿元！ 消息面，九安医疗AI医疗布局或带来估值重估预期。据悉，该公司AIoT糖尿病家庭医助项目已组建30余人AI团队，预计二季度上线完整版模块并灰度测试。今年2月，九安医疗与阿里巴巴、腾
+界面新闻记者 | 曾令俊 随着工商银行（601398.SH）、农业银行（601288.SH）于近日发放2025年末期现金股息，A股上市银行2025年度分红大幕正式拉开。 据Wind数据统计，42家A股上市银行2025年全年累计派发现金红利6456.37亿元，较2024年增加近135亿元，再创历史新高，不过增速有所放缓。 在总量攀升的表象之下，银行板块内部的分红策略却呈现出显著的
 
 ## 正文
 
-3月30日，大市盘整之际，医疗板块局部异动，引发关注！
+界面新闻记者 | 曾令俊 随着工商银行（601398.SH）、农业银行（601288.SH）于近日发放2025年末期现金股息，A股上市银行2025年度分红大幕正式拉开。
 
-九安医疗涨停走出两连板，英科医疗涨超6%，昭衍新药涨超5%。
+据Wind数据统计，42家A股上市银行2025年全年累计派发现金红利6456.37亿元，较2024年增加近135亿元，再创历史新高，不过增速有所放缓。
 
-全市场规模最大医疗ETF（512170）涨近1%，收复10日均线，实时成交5.5亿元！
+在总量攀升的表象之下，银行板块内部的分红策略却呈现出显著的分化态势，国有大行稳坐“分红王座”，而部分中小银行则在资本补充压力下选择了下调分红比例，甚至郑州银行（002936.SZ）选择了不分红。
 
-消息面，九安医疗AI医疗布局或带来估值重估预期。
+畅力资产董事长宝晓辉对界面新闻记者表示，增量不增势核心问题就出在大小银行分红能力分化极大。
 
-据悉，该公司AIoT糖尿病家庭医助项目已组建30余人AI团队，预计二季度上线完整版模块并灰度测试。
+“现在能明显看到，不少中小银行已经主动下调分红比例，甚至直接暂停分红，反观国有大行，依旧能保持大手笔的高额分红，而站在长远角度看，国有大行的高分红模式后续大概率会延续。
 
-今年2月，九安医疗与阿里巴巴、腾讯等联合领投月之暗面超7亿美元。
+” 六大行是分红的主力军 A股41家实施分红的上市银行2025年末现金分红合计3459亿元，叠加中期分红后，全年累计现金分红高达6456.37亿元。
 
-就CXO产业，浙商医药团队分析指出，在CXO产业持续出清，股价相对低位背景下，看好本土头部CDMO企业和受益国内需求复苏CRO企业底部投资机会。
+在A股约2.4万亿元的总分红额中，银行板块占比近三成，继续担当“分红压舱石”。
 
-从财务、需求和供给数据分析，CXO基本面拐点已经出现，并有望持续复苏。
+不过，从增速来看已出现放缓迹象。
 
 ## 相关推荐
 
-- 2026-06-29 14:56 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 14:45 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 14:48 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 14:43 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 15:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 14:43 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 14:45 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 14:42 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 15:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 15:06 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 15:12 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 15:14 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 14:49 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 15:10 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 15:13 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 15:03 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 15:10 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 15:01 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 14:50 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 15:01 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 14:59 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 15:05 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:47 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/47586119.shtml)
-- 2026-06-29 14:48 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/0721043287.shtml)
-- 2026-06-29 15:02 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/28597.shtml)
-- 2026-06-29 14:57 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/0434526.shtml)
-- 2026-06-29 15:05 - [德国队前往比赛场地遭遇囧途](http://www.share.kurohicncr.top/Article/details/896644.shtml)
-- 2026-06-29 14:59 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/8636119.shtml)
-- 2026-06-29 15:08 - [周深双眼皮贴又掉了](http://www.share.kurohicncr.top/Article/details/7536329457.shtml)
-- 2026-06-29 15:05 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/754306687634.shtml)
-- 2026-06-29 14:55 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/399030175918.shtml)
-- 2026-06-29 14:56 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/953677.shtml)
-- 2026-06-29 15:02 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/038247270640.shtml)
-- 2026-06-29 15:00 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/4216559609.shtml)
-- 2026-06-29 15:03 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/066730917470.shtml)
-- 2026-06-29 14:44 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/17406863.shtml)
-- 2026-06-29 14:53 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/505869.shtml)
+- 2026-06-29 15:14 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/840358273.shtml)
+- 2026-06-29 15:17 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/293143077144.shtml)
+- 2026-06-29 15:04 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.minike.top/Article/details/66089862.shtml)
+- 2026-06-29 15:10 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.kurohicncr.top/Article/details/81060436113.shtml)
+- 2026-06-29 15:17 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/9890722520.shtml)
+- 2026-06-29 15:09 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/29170386.shtml)
+- 2026-06-29 15:07 - [未来5年全国能源体系将呈现这些特征](http://www.blog.minike.top/Article/details/28652839474.shtml)
+- 2026-06-29 15:03 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/71355170289.shtml)
+- 2026-06-29 15:05 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/16665765.shtml)
+- 2026-06-29 15:13 - [国家体育总局政策法规司原副司长获刑](http://www.blog.minike.top/Article/details/109852.shtml)
+- 2026-06-29 15:13 - [韩媒破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/506462603076.shtml)
+- 2026-06-29 14:49 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/42141.shtml)
+- 2026-06-29 15:00 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/7501693620.shtml)
+- 2026-06-29 14:59 - [世界杯用球成部分门将噩梦](http://www.share.kurohicncr.top/Article/details/5077473.shtml)
+- 2026-06-29 15:05 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/1569316732.shtml)

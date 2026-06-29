@@ -1,60 +1,59 @@
-# 中行副行长杨军：当好跨境业务的主渠道、离岸市场发展的主力军和业务创新的领军者
+# “熊猫专列·锦绣天府号”首发 蜀锦宋韵解锁高端文旅出行新范式
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-3月30日金融一线消息，中国银行今日召开2025年度业绩发布会。副行长杨军表示，中国银行长期以来作为人民币跨境服务的主渠道，银行在各项业务领域都积极推动，取得了一系列的积极进展。 一是不断扩大服务网络，构建人民币国际使用生态。中行境外机构覆盖了64个国家和地区，高质量的清算服务也得到了市场的充分认可，跨境人民币清算量快速增长。 二是持续提高人民币跨境支付结算的效率和便利性。20
+中新网成都5月19日电 (记者 王鹏)蜀锦宋韵主题高端旅游列车“熊猫专列·锦绣天府号”19日在成都首发，标志着“熊猫专列”家族再添新成员。 据了解，自2021年“熊猫专列”旅游产品推出以来，已先后在贵州、云南、山东、新疆、甘肃、黑龙江等30多个省区市开行。旅游列车将观光与出行深度融合，以“快旅慢游、一线多游、省心便捷、环境舒适”的特点，满足游客多元化的出行需求，目前已形成“安逸
 
 ## 正文
 
-3月30日金融一线消息，中国银行今日召开2025年度业绩发布会。
+中新网成都5月19日电 (记者 王鹏)蜀锦宋韵主题高端旅游列车“熊猫专列·锦绣天府号”19日在成都首发，标志着“熊猫专列”家族再添新成员。
 
-副行长杨军表示，中国银行长期以来作为人民币跨境服务的主渠道，银行在各项业务领域都积极推动，取得了一系列的积极进展。
+据了解，自2021年“熊猫专列”旅游产品推出以来，已先后在贵州、云南、山东、新疆、甘肃、黑龙江等30多个省区市开行。
 
-一是不断扩大服务网络，构建人民币国际使用生态。
+旅游列车将观光与出行深度融合，以“快旅慢游、一线多游、省心便捷、环境舒适”的特点，满足游客多元化的出行需求，目前已形成“安逸号”“什邡号”“成都号”及“锦绣天府号”四代谱系化产品体系。
 
-中行境外机构覆盖了64个国家和地区，高质量的清算服务也得到了市场的充分认可，跨境人民币清算量快速增长。
+“锦绣天府号”列车聚焦高端文旅赛道，以“蜀锦宋韵”为核心美学定位，将东方古典美学与轻奢旅居体验深度融合。
 
-二是持续提高人民币跨境支付结算的效率和便利性。
+全列编组18节，定员92席，设46间私密客房，构建起锦榻、锦卧、锦雅、锦食、锦集五大主题空间，复刻《营造法式》建筑美学，兼具住宿、餐饮、休闲、观景、非遗体验等多元功能。
 
-2025年，中行境内分行办理的跨境人民币结算量约18万亿元，全市场占比超过20%，货物贸易项下的跨境人民币结算占比超过30%。
+“第一个要体验的，当然就是在火车上有非常好的房间可以睡觉。
 
-跨境电商头部客户的覆盖率超过80%，人民币结算量超过了1万亿，占比超过50%。
+”旅客丁月惠说，她和朋友听说“熊猫专列·锦绣天府号”首发，专程前来体验，“南北疆一起玩只要16天，又可以在火车上过夜，很适合我们退休人员长途旅行。
 
-三是支持更多市场主体发行人民币债券。
+” 据了解，本次首发线路为16天南北疆全景深度之旅，列车从成都出发，串联天山天池、喀纳斯、赛里木湖等新疆标志性景点，一站式领略雪山、湖泊、草原、丝路遗迹等极致风光。
 
 ## 相关推荐
 
-- 2026-06-29 14:51 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 15:04 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 15:08 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 14:44 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 14:59 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 14:42 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 14:59 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 15:08 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 15:08 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 14:53 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 14:48 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 14:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 14:59 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 14:47 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 15:11 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 15:13 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 15:10 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 15:01 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 15:17 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 15:14 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 14:52 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 15:17 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 14:58 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 14:56 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 14:54 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 15:16 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 14:56 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:43 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/461196706.shtml)
-- 2026-06-29 15:01 - [20年前的周杰伦](http://www.blog.kurohicncr.top/Article/details/29881.shtml)
-- 2026-06-29 15:00 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/949774289201.shtml)
-- 2026-06-29 14:42 - [四川宜宾地震致13人受轻微伤](http://www.blog.minike.top/Article/details/47426768.shtml)
-- 2026-06-29 14:55 - [NBA交易](https://www.share.kurohicncr.top/Article/details/698218407294.shtml)
-- 2026-06-29 14:58 - [叶一茜森碟一起回北京了](https://www.share.minike.top/Article/details/91393754796.shtml)
-- 2026-06-29 14:56 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/171810.shtml)
-- 2026-06-29 14:51 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/557533278.shtml)
-- 2026-06-29 15:08 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/4775353012.shtml)
-- 2026-06-29 14:55 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/84555780.shtml)
-- 2026-06-29 14:51 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.minike.top/Article/details/02927830.shtml)
-- 2026-06-29 14:59 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.kurohicncr.top/Article/details/994861879380.shtml)
-- 2026-06-29 15:11 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/114992.shtml)
-- 2026-06-29 15:03 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/21997.shtml)
-- 2026-06-29 15:01 - [海军舰艇编队将赴香港](http://www.blog.kurohicncr.top/Article/details/68658.shtml)
+- 2026-06-29 15:06 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.minike.top/Article/details/87576972.shtml)
+- 2026-06-29 15:11 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/08042.shtml)
+- 2026-06-29 14:54 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/503949853.shtml)
+- 2026-06-29 15:10 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/9712028576.shtml)
+- 2026-06-29 15:09 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/258236.shtml)
+- 2026-06-29 14:56 - [未来5年全国能源体系将呈现这些特征](http://www.blog.minike.top/Article/details/1542296577.shtml)
+- 2026-06-29 15:17 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/62290.shtml)
+- 2026-06-29 14:58 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.minike.top/Article/details/84141583.shtml)
+- 2026-06-29 15:04 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/319798187.shtml)
+- 2026-06-29 15:10 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/5359782.shtml)
+- 2026-06-29 14:56 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/45624989183.shtml)
+- 2026-06-29 14:58 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/97621.shtml)
+- 2026-06-29 15:01 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/121831.shtml)
+- 2026-06-29 15:17 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.minike.top/Article/details/538079789512.shtml)
+- 2026-06-29 14:56 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/5237490.shtml)

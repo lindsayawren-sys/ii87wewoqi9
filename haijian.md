@@ -1,57 +1,55 @@
-# 华尔街迎新利好 特朗普政府拟强化401(k)纳入另类资产的法律保护
+# 港股异动 | 劲方医药-B(02595)午前涨超6% GDF15/IL-6双抗注射液获CDE临床受理
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-根据特朗普政府的一项新提案，在退休储蓄计划中提供另类资产的公司将获得更多法律保护，这可能会为黑石集团和阿波罗全球管理等公司在这个规模达14万亿美元的市场中打开机会。 这些变化可能会让401（k）计划更容易纳入私募信贷、私募股权、加密货币和房地产投资。美国劳工部的这项计划目前正征求公众意见，目的是减轻集体诉讼威胁，因为正是这种威胁让一些雇主不愿在401（k）计划中加入另类投资。
+来源：智通财经网 劲方医药-B（02595）午前涨超6%，截至发稿，涨5.08%，报35.96港元，成交额1681.63万港元。 消息面上，CDE官网最新公示显示，劲方医药申报的GFS202A注射液临床试验申请，已于5月12日正式获得受理，受理号为CXSL2600491。公开资料显示，GFS202A为全球首款靶向GDF15与IL-6的双特异性抗体。 西南证券发布研报称，公司以产
 
 ## 正文
 
-根据特朗普政府的一项新提案，在退休储蓄计划中提供另类资产的公司将获得更多法律保护，这可能会为黑石集团和阿波罗全球管理等公司在这个规模达14万亿美元的市场中打开机会。
+来源：智通财经网 劲方医药-B（02595）午前涨超6%，截至发稿，涨5.08%，报35.96港元，成交额1681.63万港元。
 
-这些变化可能会让401（k）计划更容易纳入私募信贷、私募股权、加密货币和房地产投资。
+消息面上，CDE官网最新公示显示，劲方医药申报的GFS202A注射液临床试验申请，已于5月12日正式获得受理，受理号为CXSL2600491。
 
-美国劳工部的这项计划目前正征求公众意见，目的是减轻集体诉讼威胁，因为正是这种威胁让一些雇主不愿在401（k）计划中加入另类投资。
+公开资料显示，GFS202A为全球首款靶向GDF15与IL-6的双特异性抗体。
 
-“这项拟议规则将说明，各种计划如何能够考虑那些更好反映当今投资格局的产品，”美国劳工部长洛丽·查韦斯-德雷默周一在一份声明中表示。
+西南证券发布研报称，公司以产品矩阵进军胰腺癌、非小细胞肺癌、恶病质等大适应症市场，力求覆盖 1L 及各线治疗，产品进度全球领先；预计 2026-2028 年收入分别为 0.85/1.02/3.11亿元，分别同比-35%/+20%/+205%，首次覆盖，建议积极关注。
 
-这项酝酿已久的提案被普遍视为华尔街的一场胜利。
-
-但与此同时，一些向401（k）计划参与者推介产品的业内大型机构，正面临越来越多的赎回要求，因此不得不限制投资者赎回资金。
-
-最近几周，阿瑞斯管理公司和阿波罗都出现了私募信贷客户撤资。
-
-这些变革长期以来一直是另类资产管理公司争取推动的方向，也将更新有关计划发起人如何履行对员工受托责任的指引。
+责任编辑：孙同怀
 
 ## 相关推荐
 
-- 2026-06-29 14:53 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 15:06 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 15:08 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 14:50 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 14:48 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 14:53 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 14:43 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 14:54 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 15:10 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 14:52 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 14:44 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 15:17 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 14:48 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 15:16 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 15:09 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 15:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 14:48 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 14:48 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 15:16 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 14:59 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 15:16 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 15:10 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 15:16 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 14:55 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 15:02 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 14:56 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:08 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/009556.shtml)
-- 2026-06-29 15:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/783849804.shtml)
-- 2026-06-29 14:45 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/03552064798.shtml)
-- 2026-06-29 14:55 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/770739.shtml)
-- 2026-06-29 15:07 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/0959357566.shtml)
-- 2026-06-29 14:59 - [请回答王牌2019](http://www.blog.minike.top/Article/details/30034305198.shtml)
-- 2026-06-29 15:07 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/26544.shtml)
-- 2026-06-29 14:54 - [四川宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/2481915.shtml)
-- 2026-06-29 14:54 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.minike.top/Article/details/645684139.shtml)
-- 2026-06-29 15:00 - [扬名立万](http://www.blog.minike.top/Article/details/576613926032.shtml)
-- 2026-06-29 14:58 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/724590586.shtml)
-- 2026-06-29 15:10 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/14015678312.shtml)
-- 2026-06-29 15:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/60083964.shtml)
-- 2026-06-29 15:04 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/83094.shtml)
-- 2026-06-29 15:11 - [极限挑战第一季](https://www.share.minike.top/Article/details/123518.shtml)
+- 2026-06-29 14:57 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/570729.shtml)
+- 2026-06-29 15:15 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/07684412.shtml)
+- 2026-06-29 15:05 - [青春环游记第三季](http://www.blog.minike.top/Article/details/26423.shtml)
+- 2026-06-29 14:58 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/903388464363.shtml)
+- 2026-06-29 15:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/23139615.shtml)
+- 2026-06-29 15:15 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.minike.top/Article/details/23180.shtml)
+- 2026-06-29 14:51 - [光与夜之恋](http://www.share.minike.top/Article/details/412620600.shtml)
+- 2026-06-29 14:59 - [四川宜宾地震](https://www.share.kurohicncr.top/Article/details/7537987326.shtml)
+- 2026-06-29 14:55 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/87333910773.shtml)
+- 2026-06-29 15:17 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/4873546625.shtml)
+- 2026-06-29 15:17 - [吴昕要助理买的药6年前已停产](https://www.blog.kurohicncr.top/Article/details/78399112.shtml)
+- 2026-06-29 15:00 - [东部机场集团新增釜山航线](https://www.share.minike.top/Article/details/306326998902.shtml)
+- 2026-06-29 15:15 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/25537452130.shtml)
+- 2026-06-29 15:08 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.kurohicncr.top/Article/details/446964.shtml)
+- 2026-06-29 14:54 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/026286.shtml)

@@ -1,61 +1,56 @@
-# 300067，重大资产重组！明天停牌！
+# 海南禁塑攻坚行动三个月查扣违禁塑料制品7.7万余件
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月7日晚间，安诺其（300067）发布公告称，公司正在筹划发行股份及支付现金购买资产并募集配套资金事项，拟由公司通过发行股份及支付现金的方式购买标的公司广州烽云信息科技有限公司（以下简称“广州烽云”）控制权，并募集配套资金。 经公司申请，公司股票将自4月8日开市起开始停牌，预计在不超过10个交易日的时间内
+中新网海口5月19日电 (记者 王晓斌)记者从海南省新闻办公室5月19日召开的新闻发布会获悉，今年1月海南省开展了禁塑重点环节专项打击攻坚行动，三个月共查办案件154宗，查扣违禁塑料制品7.7万余件，涉案货值超500万元。据介绍，行动结束后，相关工作正在走向常态化、长效化。海南2020年12月1日起实施《海南经济特区禁止一次性不可降解塑料制品规定》。禁塑工作是国家生态文明试验区
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网海口5月19日电 (记者 王晓斌)记者从海南省新闻办公室5月19日召开的新闻发布会获悉，今年1月海南省开展了禁塑重点环节专项打击攻坚行动，三个月共查办案件154宗，查扣违禁塑料制品7.7万余件，涉案货值超500万元。
 
-4月7日晚间，安诺其（300067）发布公告称，公司正在筹划发行股份及支付现金购买资产并募集配套资金事项，拟由公司通过发行股份及支付现金的方式购买标的公司广州烽云信息科技有限公司（以下简称“广州烽云”）控制权，并募集配套资金。
+据介绍，行动结束后，相关工作正在走向常态化、长效化。
 
-经公司申请，公司股票将自4月8日开市起开始停牌，预计在不超过10个交易日的时间内披露本次交易方案。
+海南2020年12月1日起实施《海南经济特区禁止一次性不可降解塑料制品规定》。
 
-公司预计本次交易可能构成重大资产重组。
+禁塑工作是国家生态文明试验区建设的标志性工程。
 
-公告称，本次交易事项尚处于筹划阶段，公司目前正与标的公司各股东接洽，初步确定的交易对方为合计持有标的公司100%股权的冯树彬、广东福能投资控股有限公司（以下简称“福能投资”）等股东。
+今年1至3月，海南在全省范围内开展为期三个月的禁塑重点环节专项打击攻坚行动，聚焦违禁塑料制品的生产、运输、储存和销售四大关键环节，围绕违规生产循线深挖、港口码头联合执法、物流寄递集中清查等五项任务实施全链条打击。
 
-其中，福能投资持有的标的公司21%股权拟通过产权交易所公开挂牌转让，公司拟依法参与竞买，最终能否成功摘牌存在不确定性。
+整个行动期间，海南全省共查办案件154宗，查扣各类违禁塑料制品77509箱(件)，涉案货值超过500万元，分别达到2025年全年总数的57%和60%以上。
 
-值得一提的是，福能投资正是A股上市公司ST福能（维权）（300173）的全资子公司。
+查办违规运输案件52宗、违规储存案件53宗、违规销售案件49宗，分别占2025年全年查办的同类案件数的42%、71%、66%。
 
-同样是在4月7日晚间，ST福能也发布公告，公司子公司福能投资拟通过公开挂牌方式转让其持有参股公司广州烽云21%的股权，与安诺其及广州烽云其余股东就安诺其拟收购广州烽云100%股权事宜初步达成意向，并于2026年4月7日签署《交易意向协议》。
+海南省生态环境厅副厅长李小山介绍，攻坚行动有效打破了部门壁垒，推动长效监管机制逐步健全。
 
 ## 相关推荐
 
-- 2026-06-29 14:45 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 14:44 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 15:00 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 15:06 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 14:47 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 14:45 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 14:57 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 14:47 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 14:58 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 14:47 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 14:47 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 14:43 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 14:48 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 15:02 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 15:00 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 15:07 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 15:15 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 14:55 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 14:56 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 14:56 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 14:49 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 14:48 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 15:02 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 15:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 15:08 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:44 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/36497898.shtml)
-- 2026-06-29 14:45 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/09326.shtml)
-- 2026-06-29 14:56 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/0714840246.shtml)
-- 2026-06-29 14:52 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/254143125.shtml)
-- 2026-06-29 14:51 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/403305622.shtml)
-- 2026-06-29 15:00 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.minike.top/Article/details/26356931788.shtml)
-- 2026-06-29 15:00 - [把古诗里的动作换成加班](http://www.blog.kurohicncr.top/Article/details/31855027498.shtml)
-- 2026-06-29 15:11 - [世界杯十大帅哥必吃榜](http://www.blog.kurohicncr.top/Article/details/22734285155.shtml)
-- 2026-06-29 15:08 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/77735900739.shtml)
-- 2026-06-29 14:49 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/464066132.shtml)
-- 2026-06-29 14:53 - [速度与激情9](http://www.blog.minike.top/Article/details/74257956.shtml)
-- 2026-06-29 15:06 - [灿如繁星定档](https://www.blog.kurohicncr.top/Article/details/8280024.shtml)
-- 2026-06-29 15:09 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/887589.shtml)
-- 2026-06-29 14:49 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.kurohicncr.top/Article/details/1858926.shtml)
-- 2026-06-29 14:46 - [媒体：网络测评不能只剩“生意”](http://www.blog.kurohicncr.top/Article/details/95680.shtml)
+- 2026-06-29 14:48 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/393237.shtml)
+- 2026-06-29 14:58 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/97258223496.shtml)
+- 2026-06-29 15:01 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/38989.shtml)
+- 2026-06-29 14:51 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/867366704.shtml)
+- 2026-06-29 14:48 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/857342877.shtml)
+- 2026-06-29 15:11 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/24756.shtml)
+- 2026-06-29 15:01 - [崔韩率还以为韩娱来新人了](http://www.blog.kurohicncr.top/Article/details/340628916.shtml)
+- 2026-06-29 14:48 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.minike.top/Article/details/422930729.shtml)
+- 2026-06-29 15:16 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/8213557156.shtml)
+- 2026-06-29 15:03 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/93438067.shtml)
+- 2026-06-29 15:10 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/09234117.shtml)
+- 2026-06-29 15:14 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/18570196568.shtml)
+- 2026-06-29 14:49 - [105年初心滚烫](http://www.share.minike.top/Article/details/2892032889.shtml)
+- 2026-06-29 14:53 - [乔家的儿女](http://www.blog.minike.top/Article/details/77960.shtml)
+- 2026-06-29 15:13 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/4177157491.shtml)

@@ -1,56 +1,58 @@
-# 食品价格涨幅放缓 东京CPI降至两年来最低水平
+# 深夜，金价大跳水！芯片股大跌！
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-随着食品成本涨幅持续回落，东京通胀增速降至近两年来最低点。 日本总务省周二公布的数据显示，3月份东京剔除生鲜食品后的消费者价格指数（CPI）同比上涨1.7%，为2024年4月以来最小涨幅。经济学家此前预期该增速将维持在1.8%。 通胀增速放缓一定程度上反映出加工食品价格涨幅从上月的5.5%回落至4.9%。整体通胀指标从2月经修正后的1.5%放缓至1.4%，而剔除能源价格的核心通
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！美股开盘，纳指跌0.56%，标普500指数跌0.45%，道指跌0.43%。芯片股走低，费城半导体指数下跌2.2%。 个股方面，西部数据、闪迪、希捷科技跌超3%，英特尔、美光、高通、应用材料、ARM、AMD、博通、台积电跌超2%。 现货黄金向下跌破4500美元，日内下跌1.46%。现货白银日内跌幅扩大至5%，
 
 ## 正文
 
-随着食品成本涨幅持续回落，东京通胀增速降至近两年来最低点。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-日本总务省周二公布的数据显示，3月份东京剔除生鲜食品后的消费者价格指数（CPI）同比上涨1.7%，为2024年4月以来最小涨幅。
+美股开盘，纳指跌0.56%，标普500指数跌0.45%，道指跌0.43%。
 
-经济学家此前预期该增速将维持在1.8%。
+芯片股走低，费城半导体指数下跌2.2%。
 
-通胀增速放缓一定程度上反映出加工食品价格涨幅从上月的5.5%回落至4.9%。
+个股方面，西部数据、闪迪、希捷科技跌超3%，英特尔、美光、高通、应用材料、ARM、AMD、博通、台积电跌超2%。
 
-整体通胀指标从2月经修正后的1.5%放缓至1.4%，而剔除能源价格的核心通胀指标则从2.5%降至2.3%。
+现货黄金向下跌破4500美元，日内下跌1.46%。
 
-东京数据是日本全国通胀走势的先行指标。
+现货白银日内跌幅扩大至5%，报73.63美元/盎司。
 
-日本央行已提示，截至2025年，物价涨幅已连续四年高于2%的政策目标，后续通胀将出现阶段性放缓。
+美股黄金股盘初普跌，科尔黛伦矿业跌超4%，纽曼矿业跌超3%。
 
-受中东冲突影响，油价持续高企，日本当局正密切监控其对整体经济物价的冲击。
+美元指数短线拉升，现报99.36点，日内涨幅为0.4%。
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 15:09 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 15:00 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 14:49 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 14:51 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 14:59 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 14:44 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 14:43 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 14:51 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 14:54 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 14:54 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 14:58 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 14:57 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 14:56 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 15:07 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 15:14 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 14:53 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 15:03 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 15:11 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 14:49 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 15:00 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 15:09 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/39668997793.shtml)
-- 2026-06-29 15:07 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/5000728.shtml)
-- 2026-06-29 15:05 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/89302985.shtml)
-- 2026-06-29 15:02 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/25097.shtml)
-- 2026-06-29 14:49 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/31363827.shtml)
-- 2026-06-29 14:57 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/101255413.shtml)
-- 2026-06-29 14:52 - [汪东城回应45岁婚约](https://www.blog.minike.top/Article/details/4520109.shtml)
-- 2026-06-29 14:43 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/97723808026.shtml)
-- 2026-06-29 14:42 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/24407149339.shtml)
-- 2026-06-29 15:03 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/179925415099.shtml)
-- 2026-06-29 14:48 - [流金岁月](https://www.share.minike.top/Article/details/980885465093.shtml)
-- 2026-06-29 14:59 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/50001700.shtml)
-- 2026-06-29 15:05 - [内马尔能上场15分钟](https://www.share.kurohicncr.top/Article/details/328513343.shtml)
-- 2026-06-29 15:03 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/220585184.shtml)
-- 2026-06-29 14:55 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/7790561713.shtml)
+- 2026-06-29 15:16 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/405507597859.shtml)
+- 2026-06-29 14:48 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/61204062.shtml)
+- 2026-06-29 15:15 - [苹果回应恋与深空低分](https://www.share.kurohicncr.top/Article/details/766357752.shtml)
+- 2026-06-29 14:56 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/2545767.shtml)
+- 2026-06-29 15:09 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/96160053.shtml)
+- 2026-06-29 15:09 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/135076994.shtml)
+- 2026-06-29 15:11 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/578825.shtml)
+- 2026-06-29 14:56 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/68070018106.shtml)
+- 2026-06-29 14:49 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/235824.shtml)
+- 2026-06-29 15:00 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/5004597869.shtml)
+- 2026-06-29 14:49 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/80444055.shtml)
+- 2026-06-29 15:03 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/294865.shtml)
+- 2026-06-29 15:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/458192265.shtml)
+- 2026-06-29 15:06 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/01988666940.shtml)
+- 2026-06-29 14:55 - [事关个税 明日截止请抓紧办理](https://www.share.kurohicncr.top/Article/details/31549877.shtml)

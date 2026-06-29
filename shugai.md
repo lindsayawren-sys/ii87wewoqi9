@@ -1,60 +1,52 @@
-# 股海导航_2026年4月1日_沪深股市公告与交易提示
+# 广东中山启动防汛Ⅲ级应急响应 珠海斗门区停课
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【停牌】 603182 嘉华股份 【复牌】 600249 两面针 300736 百邦科技 000909 *ST数源 【品大事】 法尔胜：业务不涉及光纤、特种光纤，不存在重组、被借壳情形 法尔胜发布股票交易异常波动暨风险提示的公告，公司股票于3月27日、3月30日、3月31日连续3个交易日收盘
+总台记者从广东省中山市三防指挥部获悉，目前，中山市三角镇3小时雨量已达100毫米，预计强降雨仍将持续，中山市气象台5月20日6时29分将三角镇暴雨预警信号升级为红色，目前小榄镇、黄圃镇、南头镇、东凤镇、阜沙镇、板芙镇、大涌镇、三角镇暴雨红色预警，其余镇街暴雨橙色预警继续生效。根据《中山市防汛防旱防风防冻应急预案》规定，中山市三防指挥部于5月20日5时16分启动防汛(防暴雨)Ⅲ级
 
 ## 正文
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+总台记者从广东省中山市三防指挥部获悉，目前，中山市三角镇3小时雨量已达100毫米，预计强降雨仍将持续，中山市气象台5月20日6时29分将三角镇暴雨预警信号升级为红色，目前小榄镇、黄圃镇、南头镇、东凤镇、阜沙镇、板芙镇、大涌镇、三角镇暴雨红色预警，其余镇街暴雨橙色预警继续生效。
 
-【停牌】 603182 嘉华股份 【复牌】 600249 两面针 300736 百邦科技 000909 *ST数源 【品大事】 法尔胜：业务不涉及光纤、特种光纤，不存在重组、被借壳情形 法尔胜发布股票交易异常波动暨风险提示的公告，公司股票于3月27日、3月30日、3月31日连续3个交易日收盘价格涨幅偏离值累计达到26.40%。
+根据《中山市防汛防旱防风防冻应急预案》规定，中山市三防指挥部于5月20日5时16分启动防汛(防暴雨)Ⅲ级应急响应。
 
-根据相关规定，属于股票交易异常波动的情况。
+珠海市双预警生效 珠海市气象台5月20日7时15分发布消息，珠海全市雷雨大风黄色预警信号和全市(除斗门区)暴雨黄色预警信号已生效，斗门区暴雨红色预警信号继续生效。
 
-公司业务不涉及“光纤”、“特种光纤”，不存在“重组”、“被借壳”的情形。
+根据《珠海市斗门区台风暴雨期间停课联动工作机制》相关要求，斗门区中、小学校，幼儿园停课(含寄宿制高中、职业学校)。
 
-网络传闻提及的江苏法尔胜光通信科技有限公司、江苏法尔胜光电科技有限公司均为公司控股股东下属子公司，与上市公司之间不存在股权关系，亦不存在业务往来。
-
-截至本公告披露日，公司未有重组上述两家企业的安排。
-
-鸿泉技术：两轮车业务销售收入占公司营收比重较小 鸿泉技术发布异动公告，公司主要为商用车和乘用车提供智能网联、智能座舱等车载终端产品和服务。
-
-公司两轮车业务主要为客户提供包括智能仪表、智能网联、控制器等终端，以及提供数据管理平台和手机APP等联网管理服务，但目前销售收入占公司营收比重较小，对公司的经营业绩不构成重大影响。
+(总台记者 黄东旭 曲柏宇)
 
 ## 相关推荐
 
-- 2026-06-29 14:53 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 14:52 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 14:48 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 14:52 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 14:54 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 15:06 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 14:55 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 14:47 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 14:50 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-29 14:59 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 15:02 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 15:04 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 14:52 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 14:45 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 14:50 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 15:06 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 14:59 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 14:54 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 14:53 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 15:10 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 14:52 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 15:05 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 15:11 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 14:54 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 15:06 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 14:53 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:53 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/21982.shtml)
-- 2026-06-29 15:06 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/83589573625.shtml)
-- 2026-06-29 15:00 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/357400555459.shtml)
-- 2026-06-29 14:49 - [这一刀 会很帅](http://www.share.minike.top/Article/details/06253734265.shtml)
-- 2026-06-29 15:10 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/277491944497.shtml)
-- 2026-06-29 14:55 - [一生一世](https://www.share.kurohicncr.top/Article/details/7392840.shtml)
-- 2026-06-29 15:04 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/790131004.shtml)
-- 2026-06-29 14:45 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/75471.shtml)
-- 2026-06-29 14:49 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/68074.shtml)
-- 2026-06-29 15:02 - [高考志愿今起开始填报](http://www.share.minike.top/Article/details/995689.shtml)
-- 2026-06-29 15:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/12058402.shtml)
-- 2026-06-29 15:01 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/9968828737.shtml)
-- 2026-06-29 15:03 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/008450.shtml)
-- 2026-06-29 14:46 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/74208.shtml)
-- 2026-06-29 14:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/90431019.shtml)
+- 2026-06-29 14:57 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/87509.shtml)
+- 2026-06-29 15:15 - [博主：全球股市进入“AI极端共振”](https://www.blog.kurohicncr.top/Article/details/809367281769.shtml)
+- 2026-06-29 15:07 - [拄拐少年高考663分：用行动回报社会](http://www.share.kurohicncr.top/Article/details/05711115905.shtml)
+- 2026-06-29 15:16 - [博主：全球股市进入“AI极端共振”](http://www.share.kurohicncr.top/Article/details/25165296.shtml)
+- 2026-06-29 15:01 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/48882686101.shtml)
+- 2026-06-29 14:51 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/094719.shtml)
+- 2026-06-29 14:51 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/98457.shtml)
+- 2026-06-29 15:15 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/45519986558.shtml)
+- 2026-06-29 15:14 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/34124228270.shtml)
+- 2026-06-29 15:16 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/77980.shtml)
+- 2026-06-29 15:06 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/49436688378.shtml)
+- 2026-06-29 15:14 - [航空运输旅客服务质量国标将实施](https://www.blog.kurohicncr.top/Article/details/9485386.shtml)
+- 2026-06-29 15:16 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/336193894.shtml)
+- 2026-06-29 14:48 - [网警提醒4类高考查分陷阱考生速看](https://www.share.minike.top/Article/details/941556002783.shtml)
+- 2026-06-29 14:52 - [志愿选择倒计时！浙大学生送祝福](http://www.share.minike.top/Article/details/290193828.shtml)

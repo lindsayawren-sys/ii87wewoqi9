@@ -1,60 +1,61 @@
-# 百年人寿戴文浩：个险是险企稳定性来源，中小公司切勿对标大公司
+# 黄海洲：强大货币与强大资本市场、国际贸易相辅相成
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-来源：慧保天下 又是一年春天，多家人身险公司开启了新一轮的代理人招募高潮。这些险企以头部公司居多，但也有例外，百年人寿，作为中小公司的代表，也在近期举行了“启行工程”二周年成果展暨2026年“启行新伙伴”优才战略发布会，推出全方位代理人支持赋能体系，目标直指精英代理人。 自2019年代理人数量达到顶点以来，6年时间，国内保险代理人数量一路下行，个险渠道承压不可谓不重，叠加银保渠
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。 在2026中国经济展望暨《2026中国金融政策报告》发布环节，中国人民银行货币政策委员会委员、清华大学五道口金融学院特聘教授黄海洲表示，强大的货币既与强大的资
 
 ## 正文
 
-来源：慧保天下 又是一年春天，多家人身险公司开启了新一轮的代理人招募高潮。
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。
 
-这些险企以头部公司居多，但也有例外，百年人寿，作为中小公司的代表，也在近期举行了“启行工程”二周年成果展暨2026年“启行新伙伴”优才战略发布会，推出全方位代理人支持赋能体系，目标直指精英代理人。
+本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。
 
-自2019年代理人数量达到顶点以来，6年时间，国内保险代理人数量一路下行，个险渠道承压不可谓不重，叠加银保渠道受“报行合一”政策推动再度快速崛起等因素影响，业界对于个险渠道的疑虑有增无减，关于“中小公司该不该做个险”的争论一度甚嚣尘上，百年人寿的选择却非常坚定，做个险，而且必须做好。
+在2026中国经济展望暨《2026中国金融政策报告》发布环节，中国人民银行货币政策委员会委员、清华大学五道口金融学院特聘教授黄海洲表示，强大的货币既与强大的资本市场相关联，也与强大的国际贸易紧密相关。
 
-近期，慧保天下专访百年人寿执行董事、总裁戴文浩，试图管窥该公司抉择背后的逻辑基础、信心来源与发展规划。
+如果没有国际贸易打通国际体系，强大货币和强大资本市场的建立都会面临困难。
 
-戴文浩的回答也很直接，简而言之： 高质量发展时代需要重塑个险认知，中小公司也无需对标大公司；个险的核心不是获客，而是专业的、有温度的服务，这是一份注重积累的工作，这是一份AI取代不了的工作。
+美国主要依靠进口全球商品满足国内消费来实现循环，中国与美国的体系具有互补性。
 
-01 延续高增长态势，百年人寿开启新一轮精英代理人招募 2026年3月20日，百年人寿启行工程二周年成果展暨2026年“启行新伙伴”优才战略发布会在复旦大学邯郸校区举行。
+我国在制造业、新能源、新能源汽车、生物制药等一系列新兴产业领域出口呈现爆发式增长，外贸出口有利于推进人民币国际化。
 
-来自百年人寿、复旦大学以及主流媒体嘉宾齐聚一堂，共同见证百年人寿开启新一轮精英代理人招募。
+对于市场存在的 “贸易盈余不利于人民币国际化” 的看法，黄海洲认为这一观点并不完全成立。
 
-此次会议之所以选择在复旦大学举行，也是因为当天百年人寿与复旦大学保险应用创新研究院正式签署了战略合作备忘录，约定双方将共建专属培养体系，助力精英人才实现专业进阶与内外勤价值共生。
+1945 年以后，美元曾长期处于贸易盈余状态，并非只有贸易赤字才能实现货币国际化，其关键在于建立强大的资本市场。
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 14:46 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 15:04 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 14:48 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 14:47 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 15:02 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 14:50 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 15:08 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 15:06 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 14:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 14:57 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 15:02 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 15:04 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 14:44 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 14:59 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 15:14 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 15:15 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 15:02 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 15:02 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 15:16 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 15:06 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 14:51 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 14:55 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 14:58 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 14:55 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 15:07 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 15:00 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 14:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 15:16 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:52 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/69200124835.shtml)
-- 2026-06-29 15:10 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/19639451.shtml)
-- 2026-06-29 14:42 - [和阿根廷球员家属一起看球](http://www.share.kurohicncr.top/Article/details/084325704156.shtml)
-- 2026-06-29 15:11 - [赵露思爸爸拍vlog翻车了](http://www.share.kurohicncr.top/Article/details/43410240613.shtml)
-- 2026-06-29 14:59 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/205155.shtml)
-- 2026-06-29 14:49 - [毒液2](http://www.share.minike.top/Article/details/39277.shtml)
-- 2026-06-29 14:53 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/020167003134.shtml)
-- 2026-06-29 14:45 - [链博会上的机器人太全能了](http://www.share.kurohicncr.top/Article/details/72490.shtml)
-- 2026-06-29 14:42 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/8375753304.shtml)
-- 2026-06-29 15:03 - [金牌调解](https://www.share.minike.top/Article/details/65543559.shtml)
-- 2026-06-29 15:06 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/76210685.shtml)
-- 2026-06-29 14:44 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/82721295093.shtml)
-- 2026-06-29 14:45 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/920992966264.shtml)
-- 2026-06-29 15:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/4115055461.shtml)
-- 2026-06-29 15:07 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/200707849.shtml)
+- 2026-06-29 15:09 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/76950497445.shtml)
+- 2026-06-29 15:07 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/9058569.shtml)
+- 2026-06-29 15:01 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/0513557.shtml)
+- 2026-06-29 15:05 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/3726100.shtml)
+- 2026-06-29 14:56 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/487425777.shtml)
+- 2026-06-29 15:16 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/440675188.shtml)
+- 2026-06-29 14:56 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/780722369.shtml)
+- 2026-06-29 15:00 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/24450225492.shtml)
+- 2026-06-29 15:10 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/1504263483.shtml)
+- 2026-06-29 14:50 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/003072724506.shtml)
+- 2026-06-29 15:01 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/8406156797.shtml)
+- 2026-06-29 14:58 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/4977910697.shtml)
+- 2026-06-29 15:00 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/231016270853.shtml)
+- 2026-06-29 15:13 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/63631.shtml)
+- 2026-06-29 14:50 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/00667.shtml)

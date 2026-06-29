@@ -1,47 +1,56 @@
-# 报道： 美伊间接谈判持续推进 进展有限
+# 合规失守、业绩腰斩、市值缩水近九成，江西银行何以沦为“仙股”？
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-据报道，知情官员透露，美国及地区调解方周二继续推动达成一项为期45天的临时停火协议，以期最终彻底结束与伊朗的战争，但目前几乎未取得任何进展。 官员们表示，伊朗方面的调解代表仍拒绝接受以临时停火为条件，来换取重新开放霍尔木兹海峡，或是放弃该国的高浓缩铀库存。责任编辑：陈钰嘉
+监管高压下，区域性城商行的合规短板持续暴露。5月15日，国家金融监督管理总局江西监管局的一纸罚单，将江西银行（01916.HK）再次推上舆论风口。因贷款管理不到位、以贷还贷掩盖不良等违法违规行为，江西银行总行被罚款40万元，南昌进贤支行被罚款50万元，合计被罚款90万元，4名相关责任人被给予警告及罚款处罚，罚没金额合计达118万元。同一天，江西银行九江分行也因贷款管理问题被罚2
 
 ## 正文
 
-据报道，知情官员透露，美国及地区调解方周二继续推动达成一项为期45天的临时停火协议，以期最终彻底结束与伊朗的战争，但目前几乎未取得任何进展。
+监管高压下，区域性城商行的合规短板持续暴露。
 
-官员们表示，伊朗方面的调解代表仍拒绝接受以临时停火为条件，来换取重新开放霍尔木兹海峡，或是放弃该国的高浓缩铀库存。
+5月15日，国家金融监督管理总局江西监管局的一纸罚单，将江西银行（01916.HK）再次推上舆论风口。
 
-责任编辑：陈钰嘉
+因贷款管理不到位、以贷还贷掩盖不良等违法违规行为，江西银行总行被罚款40万元，南昌进贤支行被罚款50万元，合计被罚款90万元，4名相关责任人被给予警告及罚款处罚，罚没金额合计达118万元。
+
+同一天，江西银行九江分行也因贷款管理问题被罚25万元。
+
+作为江西省属重点法人银行、港股上市城商行，江西银行自2018年6月登陆港交所以来，曾凭借区域资源优势实现快速扩张，巅峰时期总市值一度达366亿港元。
+
+但短短8年间，该行却陷入“处罚频发、业绩下滑、市值缩水”的三重困境，盈利规模较峰值腰斩，港股股价沦为“仙股”，与同类型城商行的差距持续拉大。
+
+罚单密集落地，违规顽疾贯穿核心业务2026年以来，银行业监管力度持续加码，《银行业监督管理法》大修落地后，监管关注重心延伸至“资金—股权—治理—经营—外包—数据—消费者”的完整链条，违法成本大幅提升。
+
+但从年初至今，江西银行似乎陷入了一场“罚单连续剧”——贷款管理失位、票据业务违规、柜面操作漏洞，从总行到分行，合规短板全面暴露。
 
 ## 相关推荐
 
-- 2026-06-29 14:47 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 14:48 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 14:51 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 14:51 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 14:52 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 15:01 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 15:05 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 14:55 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 15:01 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 15:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 14:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 15:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 15:02 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 14:59 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 14:48 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 14:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 15:00 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 14:55 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 14:49 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 15:14 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 14:58 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:50 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/302249.shtml)
-- 2026-06-29 15:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/085392240723.shtml)
-- 2026-06-29 14:59 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/857939.shtml)
-- 2026-06-29 15:09 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/549745336.shtml)
-- 2026-06-29 15:07 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/13078.shtml)
-- 2026-06-29 15:03 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/281666.shtml)
-- 2026-06-29 15:08 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/07513410541.shtml)
-- 2026-06-29 14:54 - [如何“亲菌子”又“远小人儿”](https://www.blog.minike.top/Article/details/29831786577.shtml)
-- 2026-06-29 14:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/08242329.shtml)
-- 2026-06-29 15:04 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.minike.top/Article/details/01757158.shtml)
-- 2026-06-29 14:44 - [锐评浪姐7总决赛](https://www.share.kurohicncr.top/Article/details/0228435.shtml)
-- 2026-06-29 14:52 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/2413232359.shtml)
-- 2026-06-29 14:46 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/58802268613.shtml)
-- 2026-06-29 15:00 - [森保一：日本队要亲手改写历史](http://www.share.kurohicncr.top/Article/details/04678.shtml)
-- 2026-06-29 14:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/447779.shtml)
+- 2026-06-29 15:08 - [84岁英国教授成中国网红](http://www.blog.minike.top/Article/details/82953418147.shtml)
+- 2026-06-29 14:53 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/01993.shtml)
+- 2026-06-29 15:07 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/09293.shtml)
+- 2026-06-29 15:09 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/1236616.shtml)
+- 2026-06-29 15:14 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/9741247.shtml)
+- 2026-06-29 14:53 - [海军舰艇编队将赴香港](http://www.blog.kurohicncr.top/Article/details/05619435426.shtml)
+- 2026-06-29 14:54 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/87422646.shtml)
+- 2026-06-29 14:56 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/292201012570.shtml)
+- 2026-06-29 15:04 - [给阿嬷的情书海外口碑](http://www.blog.minike.top/Article/details/124870180.shtml)
+- 2026-06-29 14:56 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.minike.top/Article/details/89653606568.shtml)
+- 2026-06-29 14:49 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/3943588447.shtml)
+- 2026-06-29 15:09 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.minike.top/Article/details/475374.shtml)
+- 2026-06-29 14:50 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/90448100285.shtml)
+- 2026-06-29 15:06 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/76437.shtml)
+- 2026-06-29 15:08 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/9331016.shtml)

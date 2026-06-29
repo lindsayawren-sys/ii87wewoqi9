@@ -1,57 +1,56 @@
-# 山金国际递表港交所：毛利率仅1.4%的贸易业务撑起近六成收益，核心矿山面临“超采”与技术合规风险
+# 水利建设投资连续4年超万亿元 下一步还有哪些重大部署？
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|蔡鼎 每经编辑|魏官红 深交所主板上市公司山金国际（SZ000975）于3月27日再次向港交所递交上市申请文件，中信证券、中金公司和瑞银集团为联席保荐人。招股书（草拟版本，下同）显示，截至2025年末，山金国际的黄金资源量达到280.9吨，2025年度黄金全维持成本为每盎司902.3美元，处于全球
+如今，一条条调水线穿行群山，一座座大坝耸立江河，国家水网主骨架和大动脉正逐步完善。当前和今后一个时期国家水网建设还将有哪些重大部署，对于稳增长、扩内需又有什么重要意义？ 国家水网建设，是当前和今后一个时期扩内需、稳投资的重要载体和抓手，具有吸纳投资大、产业链条长、创造就业多的优势。2025年，全国完成水利建设投资12848亿元，连续4年超万亿元，“十四五”时期全国累计完成水利建
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+如今，一条条调水线穿行群山，一座座大坝耸立江河，国家水网主骨架和大动脉正逐步完善。
 
-每经记者|蔡鼎 每经编辑|魏官红 深交所主板上市公司山金国际（SZ000975）于3月27日再次向港交所递交上市申请文件，中信证券、中金公司和瑞银集团为联席保荐人。
+当前和今后一个时期国家水网建设还将有哪些重大部署，对于稳增长、扩内需又有什么重要意义？
 
-招股书（草拟版本，下同）显示，截至2025年末，山金国际的黄金资源量达到280.9吨，2025年度黄金全维持成本为每盎司902.3美元，处于全球黄金开采全维持成本曲线的前10%。
+国家水网建设，是当前和今后一个时期扩内需、稳投资的重要载体和抓手，具有吸纳投资大、产业链条长、创造就业多的优势。
 
-《每日经济新闻》记者（以下简称“每经记者”）梳理发现，山金国际在收益结构、境内外矿山合规以及核心项目技术验证方面存在多处风险。
+2025年，全国完成水利建设投资12848亿元，连续4年超万亿元，“十四五”时期全国累计完成水利建设投资56841亿元，是“十三五”时期的1.6倍，有效发挥了稳增长、促发展作用。
 
-例如，山金国际2025年58.4%的收益来自毛利率仅1.4%的金属贸易业务。
+水利部规划计划司副司长 杨威：“十五五”时期，水利部将组织实施一批重大水利工程，加快建设现代化水网，完善水资源配置和供水保障体系，加快构建国家水网主骨架和大动脉，推进南水北调后续工程高质量发展，基本建成中线引江补汉工程，建设东线二期工程，实施灌区现代化建设与改造，夯实粮食稳产增产水利基石。
 
-同时，公司境内矿山曾多次出现采矿量超过采矿许可证指明规模的情况，核心资产芒市华盛金矿停产10年至今仍未取得采矿权变更批准。
+水利部水利水电规划设计总院副院长 李云玲：水网建设直接拉动有效投资，形成长期增长动力，已成为扩内需、稳增长的重要载体。
 
-此外，其既有矿区面临入选品位下滑的挑战，新收购的海外Osino Resources Corp．（以下简称“Osino”）项目亦面临多项逾期风险。
+带动上下游产业链，激活多元市场活力，可以拉动建筑材料、土木施工、机械装备等传统产业发展。
 
-招股书显示，山金国际的收益在过去三年呈现出高速增长的态势，但驱动这一收益规模增长的核心动力并非高利润的黄金开采业务，而是利润空间相对较小的金属贸易业务。
+专家表示，部分水网工程兼具交通运输、生态环保、旅游景观等功能，可以带动旅游、康养产业发展，催生文旅融合的新增长点。
 
 ## 相关推荐
 
-- 2026-06-29 15:06 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 14:43 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 15:08 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 14:58 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 14:58 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 14:57 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 15:00 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 14:45 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 15:00 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 15:01 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 14:47 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 14:52 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 15:02 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 14:48 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 15:05 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 14:52 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 14:59 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 15:07 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 14:57 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 14:58 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 15:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:58 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/783435584.shtml)
-- 2026-06-29 15:02 - [王楚钦3比0周启豪](https://www.blog.kurohicncr.top/Article/details/598250.shtml)
-- 2026-06-29 15:07 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/440342926346.shtml)
-- 2026-06-29 15:09 - [陈靖可虞书欣领衔主演](https://www.share.kurohicncr.top/Article/details/811613354497.shtml)
-- 2026-06-29 14:59 - [哈兰德之歌火到国外](https://www.share.kurohicncr.top/Article/details/7389413.shtml)
-- 2026-06-29 14:54 - [海军舰艇编队将赴香港](https://www.blog.kurohicncr.top/Article/details/442755.shtml)
-- 2026-06-29 14:53 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.minike.top/Article/details/288322.shtml)
-- 2026-06-29 15:08 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/393767328924.shtml)
-- 2026-06-29 14:43 - [宜宾5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/81673.shtml)
-- 2026-06-29 15:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/5130903.shtml)
-- 2026-06-29 14:47 - [海军舰艇编队将赴香港](http://www.blog.kurohicncr.top/Article/details/4152780.shtml)
-- 2026-06-29 15:04 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/41654557895.shtml)
-- 2026-06-29 14:51 - [斗破苍穹](http://www.blog.minike.top/Article/details/5335033846.shtml)
-- 2026-06-29 14:46 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/937710621.shtml)
-- 2026-06-29 14:52 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/23626.shtml)
+- 2026-06-29 14:53 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/620713236.shtml)
+- 2026-06-29 14:51 - [媒体人：警惕日本再次成战争加害国](http://www.blog.kurohicncr.top/Article/details/62800.shtml)
+- 2026-06-29 14:56 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/7828275.shtml)
+- 2026-06-29 15:09 - [逃狱兄弟](http://www.share.minike.top/Article/details/32976.shtml)
+- 2026-06-29 14:59 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/321642696.shtml)
+- 2026-06-29 14:58 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/6770114.shtml)
+- 2026-06-29 15:13 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/878742.shtml)
+- 2026-06-29 15:00 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/65197639485.shtml)
+- 2026-06-29 15:05 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/0965282.shtml)
+- 2026-06-29 14:50 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/0261855.shtml)
+- 2026-06-29 15:08 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.minike.top/Article/details/2156722.shtml)
+- 2026-06-29 15:01 - [流金岁月](http://www.share.minike.top/Article/details/2103582.shtml)
+- 2026-06-29 14:58 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/53970246926.shtml)
+- 2026-06-29 15:05 - [扫黑风暴](https://www.share.minike.top/Article/details/5183518595.shtml)
+- 2026-06-29 14:52 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/57851.shtml)

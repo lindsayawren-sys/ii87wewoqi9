@@ -1,57 +1,61 @@
-# 全球地缘风险扰动，A股为何“更抗打”？高盛：“独特性”和“低波动性”增加吸引力
+# 2026年中国网络文明大会在南宁举行 李书磊出席并发表主旨演讲
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-【相关阅读】地缘冲突扰动亚太市场，机构：A股“避风港”属性有望逐步凸显 A股韧性凸显 两大主线逆势吸金，二季度如何布局？ 长线资金最新重仓股曝光 机构认为A股市场调整就是机会 外围大跌，A股靠什么稳住？二季度配置思路曝光 3月30日，亚太市场主要股指再度调整，日经225指数与韩国KOSPI指数跌幅均超过2%，不过，上证综指收盘涨0.24%，报3923.29点。 美以伊战事开打已
+新华社南宁5月19日电 2026年中国网络文明大会19日在南宁举行。中共中央政治局委员、中宣部部长李书磊出席并发表主旨演讲。 与会嘉宾认为，党的十八大以来，在以习近平同志为核心的党中央坚强领导下，我们成功走出一条中国特色治网之道，网络强国建设迈出新步伐。习近平总书记围绕网络文明建设发表一系列重要论述，为推动共建网上美好精神家园提供了根本遵循。要深入学习领会、全面贯彻落实，以网络
 
 ## 正文
 
-【相关阅读】地缘冲突扰动亚太市场，机构：A股“避风港”属性有望逐步凸显 A股韧性凸显 两大主线逆势吸金，二季度如何布局？
+新华社南宁5月19日电 2026年中国网络文明大会19日在南宁举行。
 
-长线资金最新重仓股曝光 机构认为A股市场调整就是机会 外围大跌，A股靠什么稳住？
+中共中央政治局委员、中宣部部长李书磊出席并发表主旨演讲。
 
-二季度配置思路曝光 3月30日，亚太市场主要股指再度调整，日经225指数与韩国KOSPI指数跌幅均超过2%，不过，上证综指收盘涨0.24%，报3923.29点。
+与会嘉宾认为，党的十八大以来，在以习近平同志为核心的党中央坚强领导下，我们成功走出一条中国特色治网之道，网络强国建设迈出新步伐。
 
-美以伊战事开打已有月余，中东局势的变化对市场造成明显的扰动，中国资产为何“更抗打”？
+习近平总书记围绕网络文明建设发表一系列重要论述，为推动共建网上美好精神家园提供了根本遵循。
 
-高盛首席中国股票策略分析师刘劲津等发布的最新研报指出，在石油供应冲击的背景下，中国的处境优于大多数国家，仍维持对中国A股和H股的“增持”评级，并建议投资者在当前价格水平上建立战略性敞口。
+要深入学习领会、全面贯彻落实，以网络文明建设新成效助力精神文明建设高质量发展。
 
-中国经济处于相对有利地位 刘劲津等发布的最新研报指出，在石油供应冲击的背景下，中国的处境优于大多数国家，主要原因包括，首先，战略性能源多元化布局。
+与会嘉宾表示，“十五五”规划纲要对加强网络文明建设作出全面部署，要不断丰富网络优质内容供给，壮大网上主流价值、主流舆论、主流文化。
 
-2024年，原油与液化天然气仅占中国一次能源消费（Primary Energy Consumption）的28%，属于全球最低水平。
+要健全网络生态治理长效机制，持续营造风清气正的网络空间。
 
-与此同时，以核能、风能、太阳能及水电为代表的替代能源/可再生能源，目前已占中国发电总量的40%，较十年前的26%大幅提升。
+要一体推进网上网下文明建设，推动文明培育、文明实践、文明创建向网络延伸，形成网络文明共建共享的良好局面，让互联网更好造福于民。
 
 ## 相关推荐
 
-- 2026-06-29 15:04 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 14:57 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 14:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 14:53 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 14:48 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 14:51 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 15:08 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 14:53 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 15:11 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 14:44 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 14:48 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 15:01 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 15:00 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 15:12 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 15:04 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 15:03 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 15:08 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 15:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 15:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 14:55 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 14:49 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 15:05 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 14:57 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 15:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 15:09 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 14:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/00926.shtml)
-- 2026-06-29 14:42 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/33963737.shtml)
-- 2026-06-29 15:10 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.kurohicncr.top/Article/details/5266313.shtml)
-- 2026-06-29 15:00 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/5424115275.shtml)
-- 2026-06-29 15:04 - [天道](https://www.share.kurohicncr.top/Article/details/960529.shtml)
-- 2026-06-29 14:56 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/24104870.shtml)
-- 2026-06-29 14:47 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/098262.shtml)
-- 2026-06-29 15:03 - [四川宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/1382539530.shtml)
-- 2026-06-29 15:09 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.minike.top/Article/details/316239158.shtml)
-- 2026-06-29 15:03 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.minike.top/Article/details/49205897475.shtml)
-- 2026-06-29 14:49 - [急先锋](http://www.share.minike.top/Article/details/42655029821.shtml)
-- 2026-06-29 14:49 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/291122025.shtml)
-- 2026-06-29 15:04 - [中国战机大片上新](https://www.share.minike.top/Article/details/8184762.shtml)
-- 2026-06-29 14:51 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/98635227.shtml)
-- 2026-06-29 14:52 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/05420084.shtml)
+- 2026-06-29 15:12 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/40796352.shtml)
+- 2026-06-29 15:16 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/47428.shtml)
+- 2026-06-29 15:03 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/469762251901.shtml)
+- 2026-06-29 15:08 - [扬名立万](https://www.share.kurohicncr.top/Article/details/5918757.shtml)
+- 2026-06-29 15:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/3703952095.shtml)
+- 2026-06-29 15:17 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/59800182.shtml)
+- 2026-06-29 15:08 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/11670296901.shtml)
+- 2026-06-29 14:58 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/186498860626.shtml)
+- 2026-06-29 15:05 - [美人鱼](http://www.blog.minike.top/Article/details/3200804.shtml)
+- 2026-06-29 15:01 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/98464155.shtml)
+- 2026-06-29 15:10 - [世界杯看到肖战了](http://www.blog.kurohicncr.top/Article/details/66807343101.shtml)
+- 2026-06-29 15:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/776744993.shtml)
+- 2026-06-29 15:12 - [沙丘](http://www.blog.minike.top/Article/details/977191515549.shtml)
+- 2026-06-29 15:08 - [血糖高的人能吃西瓜吗](https://www.blog.minike.top/Article/details/20446.shtml)
+- 2026-06-29 14:52 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/32756173965.shtml)

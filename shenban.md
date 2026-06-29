@@ -1,58 +1,61 @@
-# 中银香港盘中涨超5% 2025年股东应占溢利同比增长4.9%
+# 金价持续回调
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-中银香港（02388）盘中涨超5%，截至发稿，股价上涨3.95%，现报42.14港元，成交额3.38亿港元。 中银香港发布年度年度业绩，期内股东应占溢利401.21亿港元，同比增长4.9%。集团派末期息1.255港元，连同前3次中期息，全年共派2.125港元，同比增长6.8%。派息比率为56%，提升1个百分点。 西部证券此前指出，中银香港具备集团平台、品牌、跨境业务三重优势，业
+文章来源：中国经营报 中经记者 秦玉芳 广州报道 5月中旬以来，国际现货黄金价格持续下跌。截至5月18日开盘，伦敦现货黄金价格跌破4542美元/盎司，盘中一度跌至4480美元/盎司。 5月18日，摩根大通将2026年平均黄金价格预测由此前的5708美元/盎司下调至5243美元/盎司。 对于近期金价持续回调的原因，上海息壤实业首席分析师蒋舒分析认为，美伊冲突爆发后不久金价就与油价
 
 ## 正文
 
-中银香港（02388）盘中涨超5%，截至发稿，股价上涨3.95%，现报42.14港元，成交额3.38亿港元。
+文章来源：中国经营报 中经记者 秦玉芳 广州报道 5月中旬以来，国际现货黄金价格持续下跌。
 
-中银香港发布年度年度业绩，期内股东应占溢利401.21亿港元，同比增长4.9%。
+截至5月18日开盘，伦敦现货黄金价格跌破4542美元/盎司，盘中一度跌至4480美元/盎司。
 
-集团派末期息1.255港元，连同前3次中期息，全年共派2.125港元，同比增长6.8%。
+5月18日，摩根大通将2026年平均黄金价格预测由此前的5708美元/盎司下调至5243美元/盎司。
 
-派息比率为56%，提升1个百分点。
+对于近期金价持续回调的原因，上海息壤实业首席分析师蒋舒分析认为，美伊冲突爆发后不久金价就与油价呈现反向关系，这种反向关系的形成背后有着油价影响通胀、通胀影响美元货币政策的逻辑链条。
 
-西部证券此前指出，中银香港具备集团平台、品牌、跨境业务三重优势，业绩表现优异，ROE 保持同业领先，为香港地区兼具业绩韧性与成长潜力的中资大行。
+本轮金价下跌的驱动因素主要来自高油价下的通胀预期引发的美联储货币政策收紧预期。
 
-同时，公司积极落实资负动态管理，净息差预计平稳运行，此外审慎的用资策略为稳健资产质量奠定保障，拓展东盟市场打造业务第二增长极，中银香港未来业绩有望持续稳健增长。
+蒋舒进一步指出，由于目前油价尚没有快速跌落到60美元/桶的迹象，因此高油价提升通胀而通胀影响美联储政策的传导过程仍在展开，今年二、三季度很可能震荡回调是金价主基调。
 
-责任编辑：卢昱君
+“这意味着美伊冲突影响了金价在一季度高速上扬后回调的时间，金价要摆脱美伊冲突的影响、迎来较为持久的上扬态势或许要等到四季度。
+
+” 苏商银行特约研究员高政扬也表示，黄金价格下跌主要源于油价中枢上行推升通胀水平。
 
 ## 相关推荐
 
-- 2026-06-29 14:58 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 15:01 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 15:09 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 14:53 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 14:47 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 14:59 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 15:02 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 15:04 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 14:45 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 14:49 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 14:47 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 14:45 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 14:50 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 14:47 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 15:09 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 15:07 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 15:05 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 15:17 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 15:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 15:16 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 14:50 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 14:50 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 15:17 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 15:02 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 15:08 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 15:04 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 15:07 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 14:59 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 15:14 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/69597081.shtml)
-- 2026-06-29 14:42 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/310209047773.shtml)
-- 2026-06-29 14:55 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.minike.top/Article/details/330676030086.shtml)
-- 2026-06-29 15:07 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/18434112763.shtml)
-- 2026-06-29 15:00 - [直击宜宾地震：监控剧烈摇晃](https://www.share.minike.top/Article/details/2341879.shtml)
-- 2026-06-29 15:09 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/5516125452.shtml)
-- 2026-06-29 14:42 - [农发行总行专家委员会委员杜晓力被查](http://www.share.minike.top/Article/details/604513025182.shtml)
-- 2026-06-29 15:11 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/37170935356.shtml)
-- 2026-06-29 14:59 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/44202673419.shtml)
-- 2026-06-29 15:03 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/3360527.shtml)
-- 2026-06-29 14:42 - [F1奥地利正赛战报](http://www.blog.kurohicncr.top/Article/details/1921096242.shtml)
-- 2026-06-29 14:47 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/58870351701.shtml)
-- 2026-06-29 15:05 - [美媒：空警-3000服役即成全球最强](https://www.blog.kurohicncr.top/Article/details/4563210611.shtml)
-- 2026-06-29 15:02 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/878941653149.shtml)
-- 2026-06-29 15:08 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/876440.shtml)
+- 2026-06-29 14:56 - [日本主帅：目标是冠军](http://www.blog.minike.top/Article/details/51841.shtml)
+- 2026-06-29 15:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/63609.shtml)
+- 2026-06-29 15:10 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/483332523230.shtml)
+- 2026-06-29 15:06 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/2597634.shtml)
+- 2026-06-29 14:55 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/190063271.shtml)
+- 2026-06-29 14:49 - [四川宜宾地震](https://www.blog.minike.top/Article/details/29575544375.shtml)
+- 2026-06-29 15:04 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/0057317.shtml)
+- 2026-06-29 14:54 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/184232591.shtml)
+- 2026-06-29 15:07 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/052194.shtml)
+- 2026-06-29 14:56 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.minike.top/Article/details/615493683493.shtml)
+- 2026-06-29 15:11 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/292004812.shtml)
+- 2026-06-29 14:50 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/340109.shtml)
+- 2026-06-29 14:59 - [双高胎](https://www.blog.kurohicncr.top/Article/details/77139.shtml)
+- 2026-06-29 15:15 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/47765.shtml)
+- 2026-06-29 15:09 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/686106446654.shtml)

@@ -1,60 +1,56 @@
-# 603182、300736，拟易主！
+# 华南地区有强降水 新疆南疆盆地等地有沙尘天气
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！两家A股公司或易主。 3月31日晚，嘉华股份（603182）公告，公司近日收到实控人张冠玲出具的通知，张冠玲及公司主要股东正筹划公司股份转让事宜，可能导致公司实际控制人发生变更，公司股票将自2026年4月1日开市起停牌，预计停牌时间不超过2个交易日。 嘉华股份是国内最早的大豆蛋白生产企业之一，主要产品有大豆
+中新网5月20日电 据中央气象台网站消息，昨日江南、华南及贵州等地部分地区出现大到暴雨，局地大暴雨。预计20日华南地区有强降水，21日至23日中东部将有新一轮较大范围降雨过程，关注对农业生产、交通运输、城市运行等影响，并加强防范局地山洪、地质灾害；20日至21日西北部分地区有沙尘天气，关注对交通运输、人体健康等的影响。 华南地区有强降水 预计，5月20日8时至21日8时，广西中
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网5月20日电 据中央气象台网站消息，昨日江南、华南及贵州等地部分地区出现大到暴雨，局地大暴雨。
 
-两家A股公司或易主。
+预计20日华南地区有强降水，21日至23日中东部将有新一轮较大范围降雨过程，关注对农业生产、交通运输、城市运行等影响，并加强防范局地山洪、地质灾害；20日至21日西北部分地区有沙尘天气，关注对交通运输、人体健康等的影响。
 
-3月31日晚，嘉华股份（603182）公告，公司近日收到实控人张冠玲出具的通知，张冠玲及公司主要股东正筹划公司股份转让事宜，可能导致公司实际控制人发生变更，公司股票将自2026年4月1日开市起停牌，预计停牌时间不超过2个交易日。
+华南地区有强降水 预计，5月20日8时至21日8时，广西中北部和南部沿海、广东中西部和北部、江西南部、海南岛东南部等地部分地区有大到暴雨，其中，广西东北部和南部沿海、广东西北部和西南部沿海等地局地有大暴雨(100～180毫米)。
 
-嘉华股份是国内最早的大豆蛋白生产企业之一，主要产品有大豆蛋白、大豆油、大豆膳食纤维、低温食用豆粕等。
+上述部分地区伴有短时强降水(最大小时降雨量30～50毫米，局地可超过70毫米)，局地有雷暴大风等强对流天气。
 
-大豆蛋白产品广泛应用于肉制品、休闲豆制品、乳制品、营养制品、火锅料、烘焙制品、宠物食品、特医膳食和医药等多个领域。
+中央气象台5月20日6时发布暴雨蓝色预警。
 
-2025年前三季度，嘉华股份实现营业收入10.27亿元，同比下降7.19%；实现归母净利润8217万元，同比增长7.46%。
+此外，21-23日，中东部将有新一轮较大范围降雨过程，西北地区东部、华北、黄淮及东北地区有小到中雨，局地大雨；江汉南部、江淮、江南、华南北部等地有中到大雨，局地暴雨或大暴雨，并伴有雷暴大风、短时强降水等强对流天气。
 
-2025年三季报显示，嘉华股份第一大股东为张冠玲，其直接持股比例为13.6%。
+新疆南疆盆地等地有沙尘天气 受冷空气大风影响，预计5月20日8时至21日8时，新疆东部和南部、青海西北部、内蒙古西部、甘肃西部、宁夏西部等地有扬沙或浮尘天气，其中，新疆东部、内蒙古西部等地的局部地区有沙尘暴。
 
-截至3月31日，嘉华股份市值约27亿元。
+中央气象台5月20日6时继续发布沙尘暴蓝色预警。
 
 ## 相关推荐
 
-- 2026-06-29 14:51 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 14:51 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 15:01 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 14:58 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 14:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 14:57 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 14:44 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 15:04 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 14:47 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 14:59 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 14:50 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 15:04 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 14:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 14:48 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 14:54 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 15:11 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 14:48 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 15:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 15:14 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 15:06 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 15:15 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 14:59 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 15:12 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 15:11 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:58 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/727760741643.shtml)
-- 2026-06-29 14:49 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/73480671100.shtml)
-- 2026-06-29 15:01 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/809052933154.shtml)
-- 2026-06-29 15:10 - [新一代影后杨紫](https://www.blog.kurohicncr.top/Article/details/9266758.shtml)
-- 2026-06-29 15:01 - [女心理师](http://www.blog.kurohicncr.top/Article/details/710257850245.shtml)
-- 2026-06-29 14:49 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/15269624558.shtml)
-- 2026-06-29 15:11 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/449611367641.shtml)
-- 2026-06-29 15:02 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/93635717.shtml)
-- 2026-06-29 14:51 - [20年前的周杰伦](http://www.blog.kurohicncr.top/Article/details/28735004463.shtml)
-- 2026-06-29 14:58 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/4123434.shtml)
-- 2026-06-29 14:57 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/39253.shtml)
-- 2026-06-29 15:10 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/6900668808.shtml)
-- 2026-06-29 14:55 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.kurohicncr.top/Article/details/8103542.shtml)
-- 2026-06-29 15:02 - [东部机场集团新增釜山航线](https://www.share.minike.top/Article/details/62685840.shtml)
-- 2026-06-29 14:43 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/770515709709.shtml)
+- 2026-06-29 15:06 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/174849587.shtml)
+- 2026-06-29 15:09 - [崔韩率还以为韩娱来新人了](http://www.blog.minike.top/Article/details/06500697.shtml)
+- 2026-06-29 14:48 - [世界杯用球成部分门将噩梦](https://www.share.kurohicncr.top/Article/details/1668068629.shtml)
+- 2026-06-29 15:06 - [急先锋](https://www.blog.kurohicncr.top/Article/details/15053312.shtml)
+- 2026-06-29 15:03 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/356742147683.shtml)
+- 2026-06-29 15:02 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/3064620934.shtml)
+- 2026-06-29 15:02 - [爸爸当家](https://www.blog.minike.top/Article/details/90014696911.shtml)
+- 2026-06-29 15:11 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/94781077.shtml)
+- 2026-06-29 15:01 - [四川宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/821928866729.shtml)
+- 2026-06-29 14:52 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/476251474011.shtml)
+- 2026-06-29 15:05 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/3546616.shtml)
+- 2026-06-29 15:17 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/2314157907.shtml)
+- 2026-06-29 15:14 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/606608.shtml)
+- 2026-06-29 15:04 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/164317352.shtml)
+- 2026-06-29 15:07 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/66460960429.shtml)

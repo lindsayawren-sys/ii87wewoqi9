@@ -1,57 +1,59 @@
-# 黄金延续承压，全球金融市场受流动性冲击加剧
+# 政策与需求双轮驱动 电力板块表现活跃
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-黄金ETF博时基金经理 王祥 中东地缘局势未见缓和迹象，全球金融市场受到的流动性冲击愈演愈烈。CTA（商品交易顾问）趋势策略交易者的离场行为继续放大下行波动。国内投资者上周情绪开始弱化，ETF流出开始显现，幅度仍较为平稳。 市场观点方面，上周（3.23~3.27），黄金市场延续承压表现。中东地缘局势未见缓和迹象，全球金融市场受到的流动性冲击愈演愈烈。CTA趋势策略交易者的离场行
+5月19日，同花顺数据显示，电力板块上涨3.45%，跑赢同期上涨0.92%的上证指数，板块内有8只个股涨停。资金流向方面，5月19日电力板块DDE大单资金整体净流入额为48.18亿元。其中，长江电力、上海电力和豫能控股的大单资金净流入均超过5亿元。研究机构普遍认为，电力板块稳步抬升主要受政策支持、用电需求预期升温及板块配置价值凸显三重因素驱动。首先，政策支持加速新型电力系统建设
 
 ## 正文
 
-黄金ETF博时基金经理 王祥 中东地缘局势未见缓和迹象，全球金融市场受到的流动性冲击愈演愈烈。
+5月19日，同花顺数据显示，电力板块上涨3.45%，跑赢同期上涨0.92%的上证指数，板块内有8只个股涨停。
 
-CTA（商品交易顾问）趋势策略交易者的离场行为继续放大下行波动。
+资金流向方面，5月19日电力板块DDE大单资金整体净流入额为48.18亿元。
 
-国内投资者上周情绪开始弱化，ETF流出开始显现，幅度仍较为平稳。
+其中，长江电力、上海电力和豫能控股的大单资金净流入均超过5亿元。
 
-市场观点方面，上周（3.23~3.27），黄金市场延续承压表现。
+研究机构普遍认为，电力板块稳步抬升主要受政策支持、用电需求预期升温及板块配置价值凸显三重因素驱动。
 
-中东地缘局势未见缓和迹象，全球金融市场受到的流动性冲击愈演愈烈。
+首先，政策支持加速新型电力系统建设。
 
-CTA趋势策略交易者的离场行为继续放大下行波动。
+5月18日，上海市人民政府新闻办公室举行新闻发布会。
 
-上周中东局势未见缓和迹象，反而继续升级。
+有关负责人表示，在能源保障方面，深入推动新型电力系统建设，打造4个千万千瓦级绿电基地。
 
-虽然特朗普号称与伊朗正在谈判中，并推后了打击伊朗能源设施的时间，但伊朗不断驳斥其继续向中东调派兵力的行为。
+同时，“算电协同”被写入今年《政府工作报告》，这一新基建工程持续获得政策支持。
 
 ## 相关推荐
 
-- 2026-06-29 14:57 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 14:57 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 14:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 15:11 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 14:44 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 15:09 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 14:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 14:42 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 15:00 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 14:59 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 15:03 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 14:55 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 14:54 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 14:56 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 15:01 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 14:51 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 14:52 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 15:10 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 15:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 15:01 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 15:05 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 15:04 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 14:59 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 14:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:04 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/195641978505.shtml)
-- 2026-06-29 15:06 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/8090900.shtml)
-- 2026-06-29 14:59 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.minike.top/Article/details/02818234424.shtml)
-- 2026-06-29 15:00 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/988981568805.shtml)
-- 2026-06-29 14:46 - [TOP 无畏契约](https://www.share.kurohicncr.top/Article/details/555754047.shtml)
-- 2026-06-29 15:02 - [久坐小心“死臀综合征”](http://www.blog.minike.top/Article/details/3089146858.shtml)
-- 2026-06-29 14:52 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/119835596.shtml)
-- 2026-06-29 15:05 - [游戏数据被用于军事目的 国安部提醒](https://www.share.minike.top/Article/details/0653039653.shtml)
-- 2026-06-29 14:45 - [东部机场集团新增釜山航线](http://www.share.kurohicncr.top/Article/details/5980773.shtml)
-- 2026-06-29 15:07 - [德国VS巴拉圭前瞻](http://www.share.kurohicncr.top/Article/details/7992836786.shtml)
-- 2026-06-29 15:03 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/047558.shtml)
-- 2026-06-29 15:06 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/488142600978.shtml)
-- 2026-06-29 15:06 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/993450896.shtml)
-- 2026-06-29 15:05 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/20191524.shtml)
-- 2026-06-29 14:56 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/83785303273.shtml)
+- 2026-06-29 15:13 - [毒液2](https://www.blog.minike.top/Article/details/48661.shtml)
+- 2026-06-29 15:11 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/199138206613.shtml)
+- 2026-06-29 15:03 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/694045116745.shtml)
+- 2026-06-29 14:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/85621928530.shtml)
+- 2026-06-29 15:15 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/24026215810.shtml)
+- 2026-06-29 14:54 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/3518294972.shtml)
+- 2026-06-29 14:56 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/05731.shtml)
+- 2026-06-29 15:09 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/36063.shtml)
+- 2026-06-29 14:52 - [人民日报评“AI脸看腻了”](https://www.blog.minike.top/Article/details/42223799180.shtml)
+- 2026-06-29 15:15 - [一生一世](https://www.blog.kurohicncr.top/Article/details/83918.shtml)
+- 2026-06-29 14:48 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/657965303612.shtml)
+- 2026-06-29 14:54 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/016412588961.shtml)
+- 2026-06-29 15:17 - [宜宾5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/70771500.shtml)
+- 2026-06-29 15:03 - [袁隆平院士 不容诋毁！](http://www.blog.minike.top/Article/details/7557631.shtml)
+- 2026-06-29 15:11 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/92571844.shtml)

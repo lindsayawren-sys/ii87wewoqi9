@@ -1,59 +1,60 @@
-# 蚂蚁28亿收购耀才证券完成交割，蚂蚁财富郑艳兰获任执行董事
+# 全国存款十强城市出炉
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！蚂蚁集团收购耀才证券金融集团有限公司（耀才证券金融，01428.HK，以下简称“耀才证券”）正式完成。 3月30日，耀才证券公告宣布，蚂蚁财富以28.14亿港元成功收购公司50.55%的股权。此前，所有必要的监管审批及交割先决条件均已满足。 此外，本次公告还披露了耀才证券的董事变化，除了该公司执行董事及行政
+记者|程浩 编辑|李果 蒋韵 本外币存款余额越高的城市，其对各类资源配置的能力越强。 《21城市观》通过梳理今年一季度各大城市的本外币存款余额（俗称“资金总量”），发现北京、上海、深圳、广州、杭州、成都、南京、重庆、苏州、天津是内地10个最“吸金”的城市。 其中，北京成为中国首个30万亿元之城；广州成为中国内地第四个10万亿元之城，增速高达11.2%。上海是过去一年增量最多的城
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+记者|程浩 编辑|李果 蒋韵 本外币存款余额越高的城市，其对各类资源配置的能力越强。
 
-蚂蚁集团收购耀才证券金融集团有限公司（耀才证券金融，01428.HK，以下简称“耀才证券”）正式完成。
+《21城市观》通过梳理今年一季度各大城市的本外币存款余额（俗称“资金总量”），发现北京、上海、深圳、广州、杭州、成都、南京、重庆、苏州、天津是内地10个最“吸金”的城市。
 
-3月30日，耀才证券公告宣布，蚂蚁财富以28.14亿港元成功收购公司50.55%的股权。
+其中，北京成为中国首个30万亿元之城；广州成为中国内地第四个10万亿元之城，增速高达11.2%。
 
-此前，所有必要的监管审批及交割先决条件均已满足。
+上海是过去一年增量最多的城市，本外币存款净增2.857万亿元，南京则是过去一年增速最快的城市，同比增长14.03%。
 
-此外，本次公告还披露了耀才证券的董事变化，除了该公司执行董事及行政总裁许绎彬外，董事会其余6名成员均提出辞任，蚂蚁集团将在新董事会获得4个席位。
+从城市排名看，除北京、上海、深圳牢据前三外，其他城市在近几年持续展开位次博弈。
 
-具体来看，郑艳兰获委任为执行董事，黄浩、刘政及林致求获委任为非执行董事，林怡仲、蒋国荣、洪长福及张黔获委任为独立非执行董事。
+比如，广州、杭州展开对“第四城”的持久角力，成都、南京、重庆、苏州在6万亿元区间激烈角逐。
 
-资料显示，本次委任的执行董事郑艳兰现任蚂蚁科技集团内蚂蚁财富板块海外业务筹备组组长。
+从区域发展来看，长三角城市群的集体崛起，成渝双城加速突围，粤港澳大湾区则凭借制度创新构建起新优势。
 
-郑艳兰2009年加入蚂蚁集团，参与并主导蚂蚁财富的筹备设立，是蚂蚁集团多项核心业务的创始负责人，包括余额宝（蚂蚁集团的货币市场基金产品）、其他多元化的基金产品线等。
+南京成“增速黑马” 从增量来看，上海过去一年的本外币存款净增2.86万亿元，排名第一。
 
 ## 相关推荐
 
-- 2026-06-29 15:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 14:45 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 14:46 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 15:01 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 15:05 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 14:58 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 14:45 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 15:07 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 14:46 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 14:47 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 14:43 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 14:48 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 14:50 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 15:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 15:10 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 15:06 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 14:53 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 14:55 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 14:54 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 14:55 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 15:17 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 15:06 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 14:57 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 15:16 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 15:03 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 15:15 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 15:04 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:09 - [李连杰回应网传不管前妻俩女儿](https://www.share.kurohicncr.top/Article/details/63366.shtml)
-- 2026-06-29 15:02 - [农发行总行专家委员会委员杜晓力被查](http://www.blog.kurohicncr.top/Article/details/71263184588.shtml)
-- 2026-06-29 15:00 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/6603433.shtml)
-- 2026-06-29 14:53 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/609254886731.shtml)
-- 2026-06-29 14:55 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/07603245319.shtml)
-- 2026-06-29 15:00 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/617721414488.shtml)
-- 2026-06-29 14:51 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/7562435.shtml)
-- 2026-06-29 14:51 - [国家体育总局政策法规司原副司长获刑](https://www.share.kurohicncr.top/Article/details/2798286.shtml)
-- 2026-06-29 14:49 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/84755435820.shtml)
-- 2026-06-29 14:43 - [这一刀 会很帅](http://www.share.minike.top/Article/details/0314582543.shtml)
-- 2026-06-29 15:10 - [5万块的威力](http://www.blog.minike.top/Article/details/31626716618.shtml)
-- 2026-06-29 14:43 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/59725010638.shtml)
-- 2026-06-29 14:55 - [双高胎](https://www.share.minike.top/Article/details/37632840784.shtml)
-- 2026-06-29 14:42 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/812509359747.shtml)
-- 2026-06-29 15:11 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/73694.shtml)
+- 2026-06-29 15:11 - [张真源解读相思锁](http://www.blog.kurohicncr.top/Article/details/127648.shtml)
+- 2026-06-29 15:08 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/921722.shtml)
+- 2026-06-29 15:07 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/2357776.shtml)
+- 2026-06-29 15:14 - [王楚钦3-0周启豪 晋级32强](http://www.blog.kurohicncr.top/Article/details/350163889496.shtml)
+- 2026-06-29 15:12 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/854318.shtml)
+- 2026-06-29 14:52 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/92716.shtml)
+- 2026-06-29 14:58 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/1925898138.shtml)
+- 2026-06-29 15:07 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/35335.shtml)
+- 2026-06-29 15:12 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/052950789552.shtml)
+- 2026-06-29 14:59 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/85743040335.shtml)
+- 2026-06-29 14:51 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/026183203480.shtml)
+- 2026-06-29 14:50 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/533428104188.shtml)
+- 2026-06-29 14:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/377145189.shtml)
+- 2026-06-29 14:58 - [7款商保创新药“转道”](http://www.share.minike.top/Article/details/86954486621.shtml)
+- 2026-06-29 15:03 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/559448.shtml)

@@ -1,58 +1,48 @@
-# 两大“美股七巨头”个股惨遭暴跌，跌幅惊人
+# 京东健康于5月19日斥资9325.8万港元回购224.83万股
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-“美股七巨头” 的本轮大跌中，微软（MSFT）与元宇宙平台（META） 受伤尤为惨重。 微软股价较去年 10 月的历史高点已下跌约35%，元宇宙平台则较去年 8 月的历史高点重挫约34%。令人咋舌的是，这两只股票目前已跌至或接近 2025 年 4 月特朗普关税风波期间的低点，而标普 500 指数仍较当时点位高出32%。 22V Research 策略师杰夫・雅各布森表示：“20
+京东健康（06618）发布公告，于2026年5月19日斥资9325.8万港元回购224.83万股。责任编辑：卢昱君
 
 ## 正文
 
-“美股七巨头” 的本轮大跌中，微软（MSFT）与元宇宙平台（META） 受伤尤为惨重。
+京东健康（06618）发布公告，于2026年5月19日斥资9325.8万港元回购224.83万股。
 
-微软股价较去年 10 月的历史高点已下跌约35%，元宇宙平台则较去年 8 月的历史高点重挫约34%。
-
-令人咋舌的是，这两只股票目前已跌至或接近 2025 年 4 月特朗普关税风波期间的低点，而标普 500 指数仍较当时点位高出32%。
-
-22V Research 策略师杰夫・雅各布森表示：“2025 年 4 月的抛售是整个市场同步暴跌，关税取消后便迅速反弹；而本轮抛售明显是个股结构性行情。
-
-” 雅虎财经数据显示，七巨头全部个股较 52 周高点跌幅均达到两位数。
-
-七巨头集体下挫的主要原因 高油价重燃通胀，高利率压制科技估值 “史诗怒火行动” 推高油价，顽固通胀再度抬头，迫使美联储维持更高更久的利率政策。
-
-长期高利率会折现未来盈利，是成长型科技股估值的天然利空。
-
-AI 基建资本开支激增，引发投资者担忧 年初以来，科技巨头为搭建 AI 基础设施承诺的巨额资本开支令投资者恐慌。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:45 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 15:03 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 14:47 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 14:45 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 14:57 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 15:09 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 14:52 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 15:09 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 14:58 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 14:46 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 15:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 15:06 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 14:57 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 15:15 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 15:14 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 15:00 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 14:56 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 15:10 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 15:00 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 15:17 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 14:48 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 14:52 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 15:01 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 15:13 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 15:13 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 14:57 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/58338.shtml)
-- 2026-06-29 14:55 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/243992344.shtml)
-- 2026-06-29 14:42 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/2093556620.shtml)
-- 2026-06-29 14:55 - [拄拐少年高考663分：用行动回报社会](http://www.blog.kurohicncr.top/Article/details/47156204.shtml)
-- 2026-06-29 15:06 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/711965.shtml)
-- 2026-06-29 14:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/56305553.shtml)
-- 2026-06-29 14:49 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/48029183069.shtml)
-- 2026-06-29 14:44 - [市民骑哈啰单车79分钟付30元](http://www.blog.minike.top/Article/details/745300929.shtml)
-- 2026-06-29 14:42 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/253537280411.shtml)
-- 2026-06-29 14:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/393530602.shtml)
-- 2026-06-29 14:46 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.kurohicncr.top/Article/details/67413.shtml)
-- 2026-06-29 14:52 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/52639.shtml)
-- 2026-06-29 14:42 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/00860166.shtml)
-- 2026-06-29 14:55 - [5万块的威力](https://www.blog.minike.top/Article/details/9709770427.shtml)
-- 2026-06-29 14:53 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/658487821.shtml)
+- 2026-06-29 14:49 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/292146760.shtml)
+- 2026-06-29 15:09 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/759205006.shtml)
+- 2026-06-29 14:52 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/06711.shtml)
+- 2026-06-29 15:04 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/89001974309.shtml)
+- 2026-06-29 15:11 - [马斯克也站到了光里](https://www.share.kurohicncr.top/Article/details/05876570.shtml)
+- 2026-06-29 14:54 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/058145099.shtml)
+- 2026-06-29 15:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/7702110633.shtml)
+- 2026-06-29 15:00 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/69552090230.shtml)
+- 2026-06-29 15:03 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/48351782595.shtml)
+- 2026-06-29 14:53 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/691236710776.shtml)
+- 2026-06-29 15:08 - [以前不让妆女二可以艳压女主](http://www.share.kurohicncr.top/Article/details/54325278.shtml)
+- 2026-06-29 15:15 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/3384089514.shtml)
+- 2026-06-29 15:10 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/82000663.shtml)
+- 2026-06-29 15:13 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/024101622392.shtml)
+- 2026-06-29 14:48 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/02899052.shtml)

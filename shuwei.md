@@ -1,57 +1,57 @@
-# 东京3月份核心CPI同比上涨1.7%，连续两月低于日本央行目标
+# 习近平同俄罗斯总统普京会谈
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-专题：布局中国资产窗口已现 调整即机遇 周二公布的官方数据显示，日本东京3月份核心消费者价格指数（CPI）同比上涨1.7%，连续第二个月低于日本央行2%的目标。燃油补贴抵消了日元疲软带来的成本上涨。 分析师预计，此次涨幅放缓只是暂时的，因为中东冲突导致油价飙升，以及日元疲软推高进口成本，加剧了经济的通胀压力。 数据显示，剔除生鲜食品和燃油价格影响后的所谓“核心的核心”CPI（日
+新华社北京5月20日电(记者杨依军、温馨)5月20日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。两国元首一致同意《中俄睦邻友好合作条约》继续延期。 两国元首先后举行小范围、大范围会谈。 习近平指出，今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。中俄两国签署睦邻友好合作条约，以法律形式确立了长期睦邻友好、全面战略
 
 ## 正文
 
-专题：布局中国资产窗口已现 调整即机遇 周二公布的官方数据显示，日本东京3月份核心消费者价格指数（CPI）同比上涨1.7%，连续第二个月低于日本央行2%的目标。
+新华社北京5月20日电(记者杨依军、温馨)5月20日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。
 
-燃油补贴抵消了日元疲软带来的成本上涨。
+两国元首一致同意《中俄睦邻友好合作条约》继续延期。
 
-分析师预计，此次涨幅放缓只是暂时的，因为中东冲突导致油价飙升，以及日元疲软推高进口成本，加剧了经济的通胀压力。
+两国元首先后举行小范围、大范围会谈。
 
-数据显示，剔除生鲜食品和燃油价格影响后的所谓“核心的核心”CPI（日本央行密切关注该指数，认为其更能反映通胀趋势）在3月份上涨了2.3%，略低于2月份2.5%的涨幅。
+习近平指出，今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。
 
-日本央行在去年12月将利率上调至30年来的最高点0.75%，这是结束数十年来巨额货币支持的又一里程碑式举措，表明其坚信日本正在朝着持久实现2%的通胀目标迈进。
+中俄两国签署睦邻友好合作条约，以法律形式确立了长期睦邻友好、全面战略协作的制度基础，中俄关系由此实现跨越式发展。
 
-责任编辑：于健 SF069
+中俄关系一步一个脚印走到今天这个高度，是因为双方以“千磨万击还坚劲”的毅力不断深化政治互信和战略协作，以“更上一层楼”的精神拓展各领域合作，以“乱云飞渡仍从容”的勇气捍卫国际公道正义、推动构建人类命运共同体。
+
+当前国际形势下，作为联合国安理会常任理事国和世界重要大国，中俄两国要着眼战略长远，以更高质量的全面战略协作助力各自国家发展振兴，推动构建更加公正合理的全球治理体系。
+
+习近平指出，中俄两国坚持在平等相待、相互尊重、重信守义、合作共赢的基础上发展新时代全面战略协作伙伴关系，政治互信不断深化，经贸、投资、能源、科技、人文、地方等合作持续推进，民心相通更加牢固。
 
 ## 相关推荐
 
-- 2026-06-29 15:05 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 14:48 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 15:08 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 14:56 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 14:47 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 15:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 14:53 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 14:58 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 14:47 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 15:10 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 15:08 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 15:00 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 14:49 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 14:54 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 15:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 15:17 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 14:53 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 15:02 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 15:02 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 15:02 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 14:55 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 15:04 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 15:14 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 14:59 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 15:00 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 14:57 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:46 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/2501171464.shtml)
-- 2026-06-29 14:57 - [行程万里不忘初心](https://www.share.minike.top/Article/details/790351.shtml)
-- 2026-06-29 14:47 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/985422.shtml)
-- 2026-06-29 14:47 - [沙丘](https://www.blog.kurohicncr.top/Article/details/826658922624.shtml)
-- 2026-06-29 15:08 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/2513309.shtml)
-- 2026-06-29 14:43 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/51640868457.shtml)
-- 2026-06-29 14:54 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/5035739.shtml)
-- 2026-06-29 15:07 - [42岁郭碧婷纯素颜状态](http://www.share.minike.top/Article/details/2494794240.shtml)
-- 2026-06-29 14:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/08852234.shtml)
-- 2026-06-29 15:10 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.minike.top/Article/details/24514.shtml)
-- 2026-06-29 15:00 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/9168203.shtml)
-- 2026-06-29 15:08 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/950281243933.shtml)
-- 2026-06-29 14:50 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/153933.shtml)
-- 2026-06-29 15:08 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/2539676756.shtml)
-- 2026-06-29 15:04 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.minike.top/Article/details/2774108523.shtml)
+- 2026-06-29 15:14 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/83650712.shtml)
+- 2026-06-29 15:00 - [欧委会总部只给高层开空调](https://www.share.minike.top/Article/details/93326880.shtml)
+- 2026-06-29 14:56 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/8814661412.shtml)
+- 2026-06-29 14:53 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/23431315.shtml)
+- 2026-06-29 15:12 - [久坐小心“死臀综合征”](https://www.blog.kurohicncr.top/Article/details/09916122.shtml)
+- 2026-06-29 14:55 - [沙丘](http://www.blog.minike.top/Article/details/36791642276.shtml)
+- 2026-06-29 15:17 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/615087.shtml)
+- 2026-06-29 15:05 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/8472253.shtml)
+- 2026-06-29 15:07 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/9935911.shtml)
+- 2026-06-29 15:00 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/5557288.shtml)
+- 2026-06-29 15:17 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/350832875.shtml)
+- 2026-06-29 15:09 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/82165148.shtml)
+- 2026-06-29 14:55 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/5486981926.shtml)
+- 2026-06-29 15:01 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/9111383.shtml)
+- 2026-06-29 15:16 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/055192.shtml)

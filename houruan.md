@@ -1,58 +1,47 @@
-# 埃及与塞浦路斯签署新合作框架 深化天然气合作关系
+# 中国宝力科技拟折让约19.23%发行合共1977万股认购股份 净筹约800万港元
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-埃及与塞浦路斯周一在2026年埃及能源展上签署了天然气合作框架协议。 塞浦路斯总统府发言人表示，这份不具约束力的协议将成为两国进一步谈判开发利用塞浦路斯油气储备相关协议的基础。 另一位塞浦路斯政府官员补充称，该协议将使两国能够就塞浦路斯克罗诺斯和阿芙洛狄特海上气田向埃及或埃及国有企业出售天然气进行谈判。 塞浦路斯官员表示，他们可能从2027年或2028年开始从克罗诺斯气田开采天
+中国宝力科技（00164）公布，于2026年5月19日，该公司拟向8名认购人发行合共1977万股认购股份，每股认购股份0.420 港元，较当日收市价每股0． 520港元折让约19.23%。净筹约800万港元，拟用于蒙古国干磨干选项目的一般营运资金。责任编辑：卢昱君
 
 ## 正文
 
-埃及与塞浦路斯周一在2026年埃及能源展上签署了天然气合作框架协议。
+中国宝力科技（00164）公布，于2026年5月19日，该公司拟向8名认购人发行合共1977万股认购股份，每股认购股份0.420 港元，较当日收市价每股0． 520港元折让约19.23%。
 
-塞浦路斯总统府发言人表示，这份不具约束力的协议将成为两国进一步谈判开发利用塞浦路斯油气储备相关协议的基础。
+净筹约800万港元，拟用于蒙古国干磨干选项目的一般营运资金。
 
-另一位塞浦路斯政府官员补充称，该协议将使两国能够就塞浦路斯克罗诺斯和阿芙洛狄特海上气田向埃及或埃及国有企业出售天然气进行谈判。
-
-塞浦路斯官员表示，他们可能从2027年或2028年开始从克罗诺斯气田开采天然气。
-
-去年，埃及与塞浦路斯签署协议，允许将塞浦路斯海上气田的天然气出口至埃及进行液化处理，再重新出口至欧洲。
-
-两国均希望借此加强东地中海作为能源枢纽的地位。
-
-埃及正承受着伊朗战争的溢出效应，尤其是在能源领域，因为该国依赖进口燃料。
-
-随着中东地区油气生产和贸易的中断，相关成本已急剧膨胀。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 14:47 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 14:58 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 15:05 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 14:56 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 15:12 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 14:59 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 15:04 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 14:43 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 14:45 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 14:48 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 15:06 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 15:15 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 14:53 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 15:10 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 14:53 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 15:13 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 15:11 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 14:55 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 15:01 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 15:10 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 14:49 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 15:12 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/9607905455.shtml)
-- 2026-06-29 15:01 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/88479803.shtml)
-- 2026-06-29 15:02 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/287788334837.shtml)
-- 2026-06-29 14:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/117587.shtml)
-- 2026-06-29 14:54 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/16070353.shtml)
-- 2026-06-29 14:50 - [巴基斯坦军方打死29名武装分子](http://www.share.minike.top/Article/details/29050890852.shtml)
-- 2026-06-29 14:47 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/2173021.shtml)
-- 2026-06-29 15:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/145954366864.shtml)
-- 2026-06-29 15:01 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/11870086.shtml)
-- 2026-06-29 14:54 - [A股](https://www.blog.minike.top/Article/details/0169551.shtml)
-- 2026-06-29 14:52 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/71277204950.shtml)
-- 2026-06-29 15:05 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/99265235756.shtml)
-- 2026-06-29 15:02 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/551346327503.shtml)
-- 2026-06-29 14:51 - [Canna纳尔8-0对位单杀Doran](https://www.blog.kurohicncr.top/Article/details/0700960.shtml)
-- 2026-06-29 15:11 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/424642.shtml)
+- 2026-06-29 14:54 - [T1 vs KC MSI](http://www.share.kurohicncr.top/Article/details/88153006329.shtml)
+- 2026-06-29 15:02 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/34218531.shtml)
+- 2026-06-29 15:08 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/38963357.shtml)
+- 2026-06-29 15:07 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/39957.shtml)
+- 2026-06-29 15:15 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.kurohicncr.top/Article/details/24442.shtml)
+- 2026-06-29 15:10 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/7993926104.shtml)
+- 2026-06-29 15:01 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/086839.shtml)
+- 2026-06-29 15:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/90011058.shtml)
+- 2026-06-29 15:12 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/139606007730.shtml)
+- 2026-06-29 14:57 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/1077905766.shtml)
+- 2026-06-29 14:57 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/383514602.shtml)
+- 2026-06-29 15:09 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/8583280069.shtml)
+- 2026-06-29 15:11 - [明星大侦探第一季](http://www.share.minike.top/Article/details/63631520397.shtml)
+- 2026-06-29 15:04 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/2241168.shtml)
+- 2026-06-29 14:59 - [南非老帅布罗斯的梦没能做完](https://www.blog.kurohicncr.top/Article/details/492104153.shtml)

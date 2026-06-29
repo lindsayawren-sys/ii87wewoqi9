@@ -1,59 +1,57 @@
-# 4月黑色系或回归基本面逻辑——东海期货黑色金属4月月度投资策略
+# 可灵AI携中美韩三国导演亮相戛纳，打造AI影视工业化全球范式
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-分析师： 刘慧峰 从业资格证号：F3033924 投资咨询证号：Z0013026 电话：021-68751490 邮箱：Liuhf@qh168.com.cn 投资要点： 1.3月份黑色板块走势回顾 3月份，黑色板块整体呈现震荡上行格局，原料走势强于成材。截止到3月24日，螺纹、热卷主力合约分别收于3145元/吨和3315元/吨，相比2月底分别上涨78元/吨和109元/吨，涨幅分
+5月18日，在第79届戛纳国际电影节上，可灵AI举办主题论坛《从创意构想到影视工业级落地：可灵AI赋能电影创作流程》。来自中、美、韩三国导演，围绕AI技术在真实影视工作流中的应用，聚焦制作流程升级、创作挑战、商业交付与行业应用前景，分享了从好莱坞工业级剧集到纯AI院线电影和AI动画电影，可灵AI进入全球影视工业制作的三条路径。 成本、周期、规模：数据先说话 乔恩·欧文(Jon
 
 ## 正文
 
-分析师： 刘慧峰 从业资格证号：F3033924 投资咨询证号：Z0013026 电话：021-68751490 邮箱：Liuhf@qh168.com.cn 投资要点： 1.3月份黑色板块走势回顾 3月份，黑色板块整体呈现震荡上行格局，原料走势强于成材。
+5月18日，在第79届戛纳国际电影节上，可灵AI举办主题论坛《从创意构想到影视工业级落地：可灵AI赋能电影创作流程》。
 
-截止到3月24日，螺纹、热卷主力合约分别收于3145元/吨和3315元/吨，相比2月底分别上涨78元/吨和109元/吨，涨幅分别为2.5%和3.3%。
+来自中、美、韩三国导演，围绕AI技术在真实影视工作流中的应用，聚焦制作流程升级、创作挑战、商业交付与行业应用前景，分享了从好莱坞工业级剧集到纯AI院线电影和AI动画电影，可灵AI进入全球影视工业制作的三条路径。
 
-铁矿石主力合约收于824元/吨，相比2月底上涨73.5元/吨，涨幅9.8%。
+成本、周期、规模：数据先说话 乔恩·欧文(Jon Erwin)执导的剧集《大卫王朝》(House of David)第一季观看人数超过5000万，登上亚马逊Prime多国榜首，其成本仅为传统制片厂报价的三分之一，同时，创造了约600个就业岗位。
 
-螺矿比4.03，相比2月底回落0.26。
+他的新剧、由奥斯卡影帝本·金斯利领衔的《摩西》(The Old Stories: Moses)同样也使用了可灵AI制作：一月份有创意，二月份写完剧本，三月份开机，第一集已于论坛前一天在美国上线。
 
-图1 螺纹钢期现价差走势 图2 铁矿石期现价差走势 3月之后，钢材需求改善并不明显；截止到3月20日，五大品种钢材表观消费量同比依然下降了38.47万吨。
+“正常情况下，从创意到签约这一阶段就需要三年”，他表示。
 
-所以这轮黑色的反弹主要是因为两会的政策预期以及中东局势升级、原油价格反弹导致成本支撑增强两大因素所致。
+韩国导演梁益準(Eekjun)正在制作院线科幻长片《RAPHAEL》(拉斐尔)，若按传统方式拍摄，至少需要150至300名工作人员，预算可能高达200万美元。
 
-可以看到，这轮反弹启动的时间点正值两会召开前夕，同时整个3月中东局势持续升级，布伦特原油最高上冲至120美元/吨附近，这也带动了矿石、焦煤的炉料价格反弹，进一步支撑了钢材价格。
+而这个项目团队只有7人，大部分预算花在了可灵AI等工具上。
 
-铁矿石价格的强势，除了受原油价格反弹带动外，BHP部分铁矿品种禁售也是一个重要原因。
+中国动画导演李炜的《疍家风云》将AI与传统动画流程结合，制作时间相比传统流程缩短约三分之一。
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 15:00 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 15:01 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 14:45 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 14:50 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 15:02 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 15:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 14:49 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 14:47 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 15:04 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 14:48 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 15:11 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 14:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 15:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 15:05 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 15:12 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 15:06 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 14:51 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 14:48 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 15:02 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 14:51 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 14:57 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 14:50 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 14:50 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:49 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/740979942781.shtml)
-- 2026-06-29 14:59 - [实习期把公司领导开除了](https://www.blog.minike.top/Article/details/25560.shtml)
-- 2026-06-29 14:53 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/27535745745.shtml)
-- 2026-06-29 14:56 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/2148468174.shtml)
-- 2026-06-29 14:58 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/093454531.shtml)
-- 2026-06-29 15:09 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/8457993386.shtml)
-- 2026-06-29 14:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/390782.shtml)
-- 2026-06-29 15:02 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.kurohicncr.top/Article/details/32696447189.shtml)
-- 2026-06-29 15:06 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/96811978758.shtml)
-- 2026-06-29 14:51 - [教育部发布高考志愿填报预警](https://www.blog.kurohicncr.top/Article/details/39212273908.shtml)
-- 2026-06-29 14:52 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/787378968.shtml)
-- 2026-06-29 15:00 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/4542908631.shtml)
-- 2026-06-29 14:50 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/93369904.shtml)
-- 2026-06-29 14:53 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/88073.shtml)
-- 2026-06-29 14:51 - [俄军新型无人机战力如何](http://www.share.kurohicncr.top/Article/details/711057539.shtml)
+- 2026-06-29 15:10 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/966558912848.shtml)
+- 2026-06-29 14:57 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/428998795.shtml)
+- 2026-06-29 15:08 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.kurohicncr.top/Article/details/9903400.shtml)
+- 2026-06-29 15:08 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/04779166024.shtml)
+- 2026-06-29 15:05 - [给阿嬷的情书海外口碑](https://www.blog.minike.top/Article/details/38649687.shtml)
+- 2026-06-29 15:14 - [以前不让妆女二可以艳压女主](http://www.blog.minike.top/Article/details/620788736.shtml)
+- 2026-06-29 15:11 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/5629232917.shtml)
+- 2026-06-29 15:09 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/9475574.shtml)
+- 2026-06-29 14:49 - [NBA交易](http://www.blog.minike.top/Article/details/173291912538.shtml)
+- 2026-06-29 15:04 - [苹果回应恋与深空低分](https://www.blog.minike.top/Article/details/73489261.shtml)
+- 2026-06-29 14:57 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.minike.top/Article/details/5151775128.shtml)
+- 2026-06-29 14:58 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/194017447210.shtml)
+- 2026-06-29 14:53 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/96409022590.shtml)
+- 2026-06-29 15:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/143338029.shtml)
+- 2026-06-29 15:05 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/858854.shtml)

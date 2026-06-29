@@ -1,61 +1,56 @@
-# 神火股份首季业绩暴增 净利润预计增长217.68%
+# 2026广州服务消费季暨大湾区美食嘉年华正式启幕
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-神火股份（000933）4月7日发布首季业绩预增公告，预计实现净利润为22.50亿元，净利润同比增长217.68%。证券时报·数据宝统计显示，神火股份今日收于31.98元，上涨3.97%，日换手率为1.88%，成交额为13.36亿元，近5日上涨0.57%。通过对首季业绩预增50%以上的个股走势进行统计发现，预告发布后当日股价上涨的占比78.57%，股价发布当日股价涨停的有4家。
+2026广州服务消费季暨大湾区美食嘉年华正式启幕 美食嘉年华邀您来穗“叹一夏” 文/广州日报全媒体记者曾繁莹 五月羊城，夏意渐浓。昨日，2026广州服务消费季暨大湾区美食嘉年华在广州塔启幕，本次活动以“来广州，叹一夏”为主题，为市民游客带来一场集美食、文化、音乐、体育、休闲于一体的城市消费嘉年华，市民游客可沉浸式畅享一站式吃喝玩乐全新体验，感受广州夏日消费新风尚。作为本年度服务
 
 ## 正文
 
-神火股份（000933）4月7日发布首季业绩预增公告，预计实现净利润为22.50亿元，净利润同比增长217.68%。
+2026广州服务消费季暨大湾区美食嘉年华正式启幕 美食嘉年华邀您来穗“叹一夏” 文/广州日报全媒体记者曾繁莹 五月羊城，夏意渐浓。
 
-证券时报·数据宝统计显示，神火股份今日收于31.98元，上涨3.97%，日换手率为1.88%，成交额为13.36亿元，近5日上涨0.57%。
+昨日，2026广州服务消费季暨大湾区美食嘉年华在广州塔启幕，本次活动以“来广州，叹一夏”为主题，为市民游客带来一场集美食、文化、音乐、体育、休闲于一体的城市消费嘉年华，市民游客可沉浸式畅享一站式吃喝玩乐全新体验，感受广州夏日消费新风尚。
 
-通过对首季业绩预增50%以上的个股走势进行统计发现，预告发布后当日股价上涨的占比78.57%，股价发布当日股价涨停的有4家。
+作为本年度服务消费季的首场活动，这场美食嘉年华将从5月18日持续至24日，本次活动也标志着为期半年的“1+8+N”全市域多场景服务消费盛宴正式开启。
 
-预告发布后5日股价上涨的占比85.71%。
+可吃可玩可打卡 美食嘉年华的现场更像一座“城市生活体验馆”。
 
-资金面上，该股今日主力资金净流入1920.81万元，近5日资金净流入4626.00万元。
+两大美食街区“叹经典·广府老字号”与“叹创意·新潮粤味”汇聚超50家餐饮品牌，广州酒家、陶陶居、新兴家喻等老字号与大董、蚝门九式、海门鱼仔等新锐品牌同台亮相，涵盖粤菜、日料、西餐、甜品、茶饮等多元品类，“叹创意”街区集结了天南地北的多元风味，有米其林、黑珍珠双料餐厅。
 
-最新（4月3日）两融余额15.52亿元，其中，融资余额15.41亿元，环比前一交易日增长1.00%，近5日融资余额累计增长16.34%。
+在“叹经典”街区，记者现场见到，广州酒家带来红烧乳鸽、脆皮梅子叉烧包和经典糖沙翁，同时展出文创IP“饮茶咩”，将饮食文化与潮流设计结合。
 
-从机构评级来看，近一个月该股被11家机构评级买入。
+此次美食嘉年华现场特设榴莲专区，七鲜超市带来马来西亚猫山王、黑刺以及泰国金枕榴莲等顶级鲜果，这些榴莲是产地直采、自然树熟，保留新鲜榴莲风味。
 
-预计目标价最高的是华创证券，3月25日华创证券发布的研报给予公司目标价位40.10元。
+现场还设有四大主题打卡点：7米高的“大厨师”气模、“520甜蜜广州”打卡墙、与CAMEL骆驼联名的城市露营用餐区，以及隐藏机位“圆洞视界”。
 
 ## 相关推荐
 
-- 2026-06-29 14:48 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 14:56 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 15:04 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 15:02 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 14:55 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-29 15:09 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 15:10 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 14:52 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 15:02 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 15:09 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 15:06 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 14:44 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 14:56 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 14:54 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 14:46 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 15:05 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 15:03 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 15:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 15:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 14:50 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 15:08 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 15:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 14:57 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 15:02 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 15:07 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:02 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/665381643.shtml)
-- 2026-06-29 14:42 - [巴基斯坦军方打死29名武装分子](https://www.share.kurohicncr.top/Article/details/22997.shtml)
-- 2026-06-29 14:51 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/86384.shtml)
-- 2026-06-29 14:50 - [韩国记者：解码“合肥模式”](https://www.share.minike.top/Article/details/383763.shtml)
-- 2026-06-29 14:51 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/855753906.shtml)
-- 2026-06-29 15:09 - [复盘曾沛慈浪姐夺冠之路](http://www.share.minike.top/Article/details/321970450.shtml)
-- 2026-06-29 14:52 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/647320715508.shtml)
-- 2026-06-29 14:42 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/54630958.shtml)
-- 2026-06-29 15:09 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/259929428300.shtml)
-- 2026-06-29 15:04 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/848217266.shtml)
-- 2026-06-29 15:05 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/3978534136.shtml)
-- 2026-06-29 14:47 - [金刚川](http://www.share.minike.top/Article/details/8019739.shtml)
-- 2026-06-29 14:51 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/571822.shtml)
-- 2026-06-29 14:47 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/421114939.shtml)
-- 2026-06-29 14:58 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/2150174807.shtml)
+- 2026-06-29 14:54 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/24706856275.shtml)
+- 2026-06-29 15:14 - [AG 钟意](http://www.blog.minike.top/Article/details/6287866.shtml)
+- 2026-06-29 15:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/56260.shtml)
+- 2026-06-29 15:04 - [记者暗访贵州和云南多个养老机构](http://www.blog.kurohicncr.top/Article/details/84984.shtml)
+- 2026-06-29 14:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/97999551.shtml)
+- 2026-06-29 15:11 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/5297242.shtml)
+- 2026-06-29 14:48 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/742958078179.shtml)
+- 2026-06-29 15:13 - [恋与深空底线不该被娱乐化](http://www.blog.kurohicncr.top/Article/details/627494608.shtml)
+- 2026-06-29 15:03 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/7490031480.shtml)
+- 2026-06-29 15:06 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/2844537.shtml)
+- 2026-06-29 14:48 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.minike.top/Article/details/091768694288.shtml)
+- 2026-06-29 14:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/69834252.shtml)
+- 2026-06-29 15:10 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/035609724109.shtml)
+- 2026-06-29 14:50 - [欧委会总部只给高层开空调](http://www.blog.kurohicncr.top/Article/details/73678.shtml)
+- 2026-06-29 15:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/46364156732.shtml)

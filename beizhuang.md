@@ -1,53 +1,60 @@
-# 摩根士丹利：霍尔木兹冲击消耗石油缓冲库存 维持高油价预期
+# 阿联酋称针对巴拉卡核电站的无人机均来自伊拉克境内
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-摩根士丹利分析师Martijn Rats的团队发表报告称，石油市场“在冲击来临前有过的充足缓冲库存，但如今正被持续消耗”。 “我们现在预计，经合组织商业库存今年将转为下降，而不是此前预测的大幅增加。” 该机构估计，目前约有1，020万桶/日的原油产量、120万桶/日的天然气凝液产量以及200万桶/日的中东炼油产能处于停摆状态 “压力如今正向西蔓延至与布伦特挂钩的市场，原油品质溢
+中新网北京5月20日电 据美联社报道，阿联酋国防部当地时间19日称，袭击该国巴拉卡核电站的无人机全部来自伊拉克境内。 美联社称，这很可能表明由伊朗支持的什叶派民兵武装发动了此次袭击。 当地时间5月17日，巴拉卡核电站外围一台发电机当天遭无人机袭击后起火，阿联酋方面称，现场没有人员伤亡或放射性物质泄漏的报告。 目前尚无组织声称对此次袭击负责，但自以色列和美国于2月28日对伊朗开战
 
 ## 正文
 
-摩根士丹利分析师Martijn Rats的团队发表报告称，石油市场“在冲击来临前有过的充足缓冲库存，但如今正被持续消耗”。
+中新网北京5月20日电 据美联社报道，阿联酋国防部当地时间19日称，袭击该国巴拉卡核电站的无人机全部来自伊拉克境内。
 
-“我们现在预计，经合组织商业库存今年将转为下降，而不是此前预测的大幅增加。
+美联社称，这很可能表明由伊朗支持的什叶派民兵武装发动了此次袭击。
 
-” 该机构估计，目前约有1，020万桶/日的原油产量、120万桶/日的天然气凝液产量以及200万桶/日的中东炼油产能处于停摆状态 “压力如今正向西蔓延至与布伦特挂钩的市场，原油品质溢价、运费以及近月期限结构同时趋紧。
+当地时间5月17日，巴拉卡核电站外围一台发电机当天遭无人机袭击后起火，阿联酋方面称，现场没有人员伤亡或放射性物质泄漏的报告。
 
-” 该机构假设，霍尔木兹海峡将一直处于事实上的关闭状态，直至4月底。
+目前尚无组织声称对此次袭击负责，但自以色列和美国于2月28日对伊朗开战以来，伊朗及其支持的武装力量已对海湾阿拉伯国家发动多起无人机袭击。
 
-摩根士丹利维持对布伦特原油价格的预测不变，预计第二季度均价为每桶110美元，第三季度为每桶100美元。
+国际原子能机构总干事格罗西19日在联合国安理会紧急会议上警告，如果巴拉卡核电站遭到直接打击，可能导致环境遭受极高水平的放射性污染。
 
-责任编辑：李肇孚
+伊政府发言人巴西姆·阿瓦迪19日发表声明，称伊拉克强烈谴责最近针对阿联酋的无人机袭击，强调有效开展区域和国际合作的重要性，以防止任何升级或损害地区稳定，或“针对兄弟友好国家安全和主权的任何袭击”。
+
+巴拉卡核电站由阿联酋与韩国合作建造，耗资200亿美元，2020年投入运行，能够满足阿联酋四分之一的能源需求。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:45 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 15:10 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 14:45 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 14:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 14:48 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 15:11 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 14:56 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 14:48 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 14:55 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 15:05 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 15:03 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 14:49 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 15:05 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 14:55 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 15:04 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 14:56 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 14:54 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 15:16 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 15:15 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 15:08 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 15:15 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 15:10 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 15:00 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 15:11 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 14:50 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:53 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/0976963444.shtml)
-- 2026-06-29 14:47 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/669826265613.shtml)
-- 2026-06-29 14:42 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/12669751.shtml)
-- 2026-06-29 14:56 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/2544040762.shtml)
-- 2026-06-29 14:42 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/908519170723.shtml)
-- 2026-06-29 14:52 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/513146.shtml)
-- 2026-06-29 14:43 - [中餐厅南北饮食差异](https://www.share.minike.top/Article/details/02888682.shtml)
-- 2026-06-29 15:09 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/293401066.shtml)
-- 2026-06-29 15:00 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/199566646534.shtml)
-- 2026-06-29 14:58 - [张真源解读相思锁](http://www.share.minike.top/Article/details/369297439316.shtml)
-- 2026-06-29 14:42 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/272285777435.shtml)
-- 2026-06-29 15:04 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/2310096438.shtml)
-- 2026-06-29 14:55 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/960586.shtml)
-- 2026-06-29 14:55 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/045447646.shtml)
-- 2026-06-29 15:05 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/028524676.shtml)
+- 2026-06-29 14:51 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/30575502156.shtml)
+- 2026-06-29 15:07 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/0092789.shtml)
+- 2026-06-29 14:50 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/691646368.shtml)
+- 2026-06-29 14:53 - [起风了](https://www.blog.minike.top/Article/details/5965589.shtml)
+- 2026-06-29 15:08 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/4378184.shtml)
+- 2026-06-29 15:16 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/826438114490.shtml)
+- 2026-06-29 14:56 - [毒液2](http://www.share.minike.top/Article/details/1115538086.shtml)
+- 2026-06-29 14:52 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/8619586198.shtml)
+- 2026-06-29 14:57 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/763684.shtml)
+- 2026-06-29 15:12 - [汪东城回应45岁婚约](http://www.blog.minike.top/Article/details/3578394234.shtml)
+- 2026-06-29 15:02 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/65062624.shtml)
+- 2026-06-29 15:14 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/81785.shtml)
+- 2026-06-29 15:02 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/701806899.shtml)
+- 2026-06-29 15:08 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/55054441.shtml)
+- 2026-06-29 15:05 - [A股](http://www.blog.minike.top/Article/details/1776290.shtml)

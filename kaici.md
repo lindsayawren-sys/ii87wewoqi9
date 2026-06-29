@@ -1,61 +1,59 @@
-# 原油美元走低、黄金美债上涨 此前特朗普宣布停火
+# 传记《一代传奇陈翰笙》推出 全景呈现传主人生轨迹
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-专题：突发！美伊停火两周 原油暴跌15% 原油价格下跌，美国股指期货上涨，此前美国总统唐纳德·特朗普同意暂停轰炸伊朗两周，使市场得以从持续六周的中东冲突引发的波动中稍事喘息。 WTI原油期货价格跌幅扩大至逾15%，跌至每桶95美元左右。特朗普在他自己给伊朗设定的最后期限之前数小时，宣布了即将停火的消息。 纳斯达克100指数期货上涨2%。美元兑所有G10货币都走弱。现货黄金价格上
+中新网北京5月19日电 (记者 应妮)传记作品《一代传奇陈翰笙：学术与革命的双重人生》日前由三联书店出版，该书作者美国历史学家史蒂芬·R.麦金农历时四十余年，遍访当事人、挖掘多国档案，首次完整呈现了这位知识分子鲜活立体的生命轨迹。 陈翰笙(1897—2004)一生涉猎广泛，研究成果广博。他既是一个心怀共产主义理念且自觉践行的革命家，又是一个在中国农村经济与社会、亚太区域历史、政
 
 ## 正文
 
-专题：突发！
+中新网北京5月19日电 (记者 应妮)传记作品《一代传奇陈翰笙：学术与革命的双重人生》日前由三联书店出版，该书作者美国历史学家史蒂芬·R.麦金农历时四十余年，遍访当事人、挖掘多国档案，首次完整呈现了这位知识分子鲜活立体的生命轨迹。
 
-美伊停火两周 原油暴跌15% 原油价格下跌，美国股指期货上涨，此前美国总统唐纳德·特朗普同意暂停轰炸伊朗两周，使市场得以从持续六周的中东冲突引发的波动中稍事喘息。
+陈翰笙(1897—2004)一生涉猎广泛，研究成果广博。
 
-WTI原油期货价格跌幅扩大至逾15%，跌至每桶95美元左右。
+他既是一个心怀共产主义理念且自觉践行的革命家，又是一个在中国农村经济与社会、亚太区域历史、政治与外交关系等领域都留下开拓性研究业绩的渊博学者。
 
-特朗普在他自己给伊朗设定的最后期限之前数小时，宣布了即将停火的消息。
+他的人生充满传奇，既是中国社会科学的重要奠基者，也在与佐尔格、尾崎秀实、史沫特莱等人的交往中，做了许多革命地下工作。
 
-纳斯达克100指数期货上涨2%。
+美国学者麦金农从1979年开始，对陈翰笙本人、家人和同事进行采访，并对文件、著作和档案进行了详尽考察，以全面理解陈翰笙和他的世界。
 
-美元兑所有G10货币都走弱。
+全书系统梳理陈翰笙跨越三个世纪的传奇人生轨迹，深度呈现20世纪上半叶中国知识分子在民族危亡之际，以学术为武器、以革命为使命的艰难求索与崇高信仰，并依托大量首次公开的共产国际档案、太平洋国际学会原始文献、陈翰笙生前口述记录及亲友回忆资料，全景式还原了陈翰笙从留美博士到马克思主义社会科学奠基人，从秘密革命工作者到国际反法西斯斗士的波澜壮阔一生，填补了国内关于陈翰笙综合研究的诸多空白。
 
-现货黄金价格上涨超过2.5%。
+该书责任编辑卫纯回溯了陈翰笙与三联书店的历史渊源，三联书店旗下的“新知书店”脱胎于中国农村经济研究会，该研究会是在陈翰笙的影响下，集结了钱俊瑞、孙冶方等一批经济学家，他们的学术理念受到陈翰笙的深刻影响。
 
-10年期美国国债收益率下跌近4个基点。
+而后这批人创办新知书店并接盘出版《中国农村》月刊，书店和杂志选题运作也都受到陈翰笙的巨大影响。
 
 ## 相关推荐
 
-- 2026-06-29 14:50 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 15:05 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 14:51 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 14:47 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 14:43 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 14:43 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 14:50 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 14:55 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 14:51 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 15:08 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 14:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 14:49 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 14:44 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 14:42 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 14:44 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 15:16 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 15:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 15:05 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 14:51 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 14:54 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 14:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 15:16 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 14:59 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 14:57 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 15:02 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 15:02 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 15:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 14:55 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:52 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/724789361190.shtml)
-- 2026-06-29 14:45 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/76895347.shtml)
-- 2026-06-29 14:44 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/08555110.shtml)
-- 2026-06-29 14:57 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/58932412588.shtml)
-- 2026-06-29 14:45 - [吴昕要助理买的药6年前已停产](http://www.share.minike.top/Article/details/034781357538.shtml)
-- 2026-06-29 14:57 - [比亚迪市值为何蒸发8000亿](http://www.share.kurohicncr.top/Article/details/165918607.shtml)
-- 2026-06-29 14:49 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.kurohicncr.top/Article/details/5197861825.shtml)
-- 2026-06-29 15:07 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/13195658816.shtml)
-- 2026-06-29 14:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/04235699407.shtml)
-- 2026-06-29 15:04 - [我和我的家乡](http://www.blog.minike.top/Article/details/226776470.shtml)
-- 2026-06-29 15:04 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/944476.shtml)
-- 2026-06-29 15:11 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/09491971.shtml)
-- 2026-06-29 14:42 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/0863420996.shtml)
-- 2026-06-29 14:58 - [周杰伦演唱会真的好多人啊](http://www.share.minike.top/Article/details/2760697239.shtml)
-- 2026-06-29 14:51 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/7066946664.shtml)
+- 2026-06-29 14:57 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/7703669228.shtml)
+- 2026-06-29 15:03 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/502080.shtml)
+- 2026-06-29 14:53 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/5257516.shtml)
+- 2026-06-29 14:50 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.kurohicncr.top/Article/details/913403682178.shtml)
+- 2026-06-29 15:02 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/765070496.shtml)
+- 2026-06-29 15:14 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/65357209960.shtml)
+- 2026-06-29 14:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/28459.shtml)
+- 2026-06-29 14:51 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/958635.shtml)
+- 2026-06-29 15:14 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/75234.shtml)
+- 2026-06-29 15:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/530950235967.shtml)
+- 2026-06-29 15:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/5969291.shtml)
+- 2026-06-29 14:59 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/43959772.shtml)
+- 2026-06-29 14:57 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/61541323350.shtml)
+- 2026-06-29 14:49 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/13222577142.shtml)
+- 2026-06-29 14:56 - [我和我的家乡](https://www.blog.minike.top/Article/details/57844462351.shtml)

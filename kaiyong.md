@@ -1,56 +1,58 @@
-# 中国推动电动汽车迈向五分钟充电时代
+# 美联储新掌门周五正式就职 但通胀是摆在沃什面前最大难题
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-电动汽车制造商们正竞相开发速度最快的电池充电器以获取竞争优势，而中国生产商再次脱颖而出。消费者对电动汽车最大的诟病之一，是与内燃机汽车加油相比，电动汽车充电所需时间太长。这促使多家电动汽车制造商在过去十年中大力投资充电技术的研发。一些电动汽车生产商现在认为他们可能已经找到了解决方案——超快充电器。 2022年，中国汽车制造商小鹏汽车推出了其S4超快充技术，称其为其G9 SUV充
+财联社5月19日讯（编辑 刘蕊）美东时间周一，一名白宫官员表示，美国总统特朗普将于本周五为凯文·沃什举行宣誓就职仪式，使其成为美国联邦储备委员会主席。 这意味着这位56岁的律师兼金融家即将接替现任主席鲍威尔，正式执掌美联储。 尽管沃什被外界广泛看作“降息派”，然而当下美联储正面临不断加剧的通货膨胀问题，这可能会使其难以实现特朗普所期望的降息目标。 特朗普异常重视的美联储新掌门
 
 ## 正文
 
-电动汽车制造商们正竞相开发速度最快的电池充电器以获取竞争优势，而中国生产商再次脱颖而出。
+财联社5月19日讯（编辑 刘蕊）美东时间周一，一名白宫官员表示，美国总统特朗普将于本周五为凯文·沃什举行宣誓就职仪式，使其成为美国联邦储备委员会主席。
 
-消费者对电动汽车最大的诟病之一，是与内燃机汽车加油相比，电动汽车充电所需时间太长。
+这意味着这位56岁的律师兼金融家即将接替现任主席鲍威尔，正式执掌美联储。
 
-这促使多家电动汽车制造商在过去十年中大力投资充电技术的研发。
+尽管沃什被外界广泛看作“降息派”，然而当下美联储正面临不断加剧的通货膨胀问题，这可能会使其难以实现特朗普所期望的降息目标。
 
-一些电动汽车生产商现在认为他们可能已经找到了解决方案——超快充电器。
+特朗普异常重视的美联储新掌门 据白宫官员透露，特朗普总统将于本周五在白宫主持凯文·沃什就任美联储主席的宣誓仪式。
 
-2022年，中国汽车制造商小鹏汽车推出了其S4超快充技术，称其为其G9 SUV充电五分钟可提供210公里的续航里程，此后，开发最有效的超快充电器的竞赛便拉开了序幕。
+无论是仪式地点，还是总统的出席，都表明特朗普对这项任命非常重视。
 
-今年3月，中国增长最快的电动汽车制造商比亚迪宣布，其最新的闪充充电器能够提供高达1.5兆瓦的功率，约为美国现有“超快速”350千瓦系统功率的四倍。
+近年来，美联储主席的就职仪式都在美联储总部举行。
 
-测试显示，比亚迪的电池可在短短五分钟内从10%充至70%，在约九分钟内从10%充至97%。
+上一次在白宫宣誓就职的美联储主席是1987年的艾伦·格林斯潘。
 
-这意味着驾驶员或许能在略高于加满一箱油所需的时间内获得高达600英里的续航里程。
+此外，美国总统近年来也很少出席美联储主席就职典礼。
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 15:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 14:59 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 14:59 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 14:56 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 14:51 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 14:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 14:42 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 15:03 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 14:45 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 15:00 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 14:59 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 14:49 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 14:59 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 15:09 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 14:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 14:59 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 14:55 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 14:55 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 15:06 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 15:16 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 15:15 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:07 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/983353411.shtml)
-- 2026-06-29 15:05 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/263604.shtml)
-- 2026-06-29 15:09 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/1593421612.shtml)
-- 2026-06-29 14:48 - [请回答王牌2019](http://www.share.minike.top/Article/details/3799325020.shtml)
-- 2026-06-29 14:50 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/39765.shtml)
-- 2026-06-29 14:52 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/37639362.shtml)
-- 2026-06-29 14:52 - [游戏数据被用于军事目的 国安部提醒](http://www.blog.kurohicncr.top/Article/details/2360807.shtml)
-- 2026-06-29 15:10 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/96588701.shtml)
-- 2026-06-29 15:04 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.kurohicncr.top/Article/details/22823473889.shtml)
-- 2026-06-29 15:06 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/1034845.shtml)
-- 2026-06-29 14:47 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/8868442955.shtml)
-- 2026-06-29 15:00 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/31383.shtml)
-- 2026-06-29 14:52 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/39406339.shtml)
-- 2026-06-29 15:06 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/102249.shtml)
-- 2026-06-29 15:05 - [韩国记者：解码“合肥模式”](http://www.share.minike.top/Article/details/6725966976.shtml)
+- 2026-06-29 15:03 - [记者暗访贵州和云南多个养老机构](http://www.share.kurohicncr.top/Article/details/157662.shtml)
+- 2026-06-29 15:03 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/195709.shtml)
+- 2026-06-29 15:12 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/020411632.shtml)
+- 2026-06-29 15:12 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/689337.shtml)
+- 2026-06-29 15:05 - [周生如故](https://www.blog.minike.top/Article/details/340964371.shtml)
+- 2026-06-29 15:14 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.kurohicncr.top/Article/details/603197.shtml)
+- 2026-06-29 14:48 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/60845648398.shtml)
+- 2026-06-29 14:48 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/918921386.shtml)
+- 2026-06-29 15:07 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/643144453481.shtml)
+- 2026-06-29 15:14 - [84岁英国教授成中国网红](https://www.share.minike.top/Article/details/5722277.shtml)
+- 2026-06-29 15:01 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/715957534.shtml)
+- 2026-06-29 14:50 - [ENC瓦中国香港负印度数据图](http://www.share.kurohicncr.top/Article/details/800104487539.shtml)
+- 2026-06-29 15:11 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/49453.shtml)
+- 2026-06-29 14:48 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/24025.shtml)
+- 2026-06-29 15:08 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.minike.top/Article/details/28832314.shtml)

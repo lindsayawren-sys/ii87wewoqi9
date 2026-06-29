@@ -1,56 +1,59 @@
-# 无惧特朗普“灭亡”威胁 德黑兰强硬派释放长期多线作战意愿
+# 国家金融监管总局：加大重点产业链上下游小微企业信贷投放
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-随着特朗普要求伊朗同意停火协议的最后期限临近，德黑兰当前掌权的强硬派正对局势升级乃至地区性冲突表现出强烈意愿。 在持续近六周的战争中，美国和以色列已消灭伊斯兰革命卫队多名高级指挥官，但剩余力量正准备打一场持久战，对特朗普威胁摧毁民用基础设施的言论几无畏惧。这可能引发战事升级，进一步波及中东国家，并加剧当前的全球能源危机。 一个与伊斯兰革命卫队有关联的伊拉克民兵组织周二警告称，若
+中新经纬5月19日电 国家金融监督管理总局网站19日消息，国家金融监管总局近日印发了《关于做好2026年小微企业金融服务工作的通知》(简称《通知》)。 此举意在深入贯彻落实中央经济工作会议和全国金融系统工作会议精神，引导金融机构加力支持小微和民营企业经营发展，提升金融服务质量。 《通知》指出，2026年要坚持稳中求进工作总基调和“两个毫不动摇”，深刻把握金融工作的政治性和人民性
 
 ## 正文
 
-随着特朗普要求伊朗同意停火协议的最后期限临近，德黑兰当前掌权的强硬派正对局势升级乃至地区性冲突表现出强烈意愿。
+中新经纬5月19日电 国家金融监督管理总局网站19日消息，国家金融监管总局近日印发了《关于做好2026年小微企业金融服务工作的通知》(简称《通知》)。
 
-在持续近六周的战争中，美国和以色列已消灭伊斯兰革命卫队多名高级指挥官，但剩余力量正准备打一场持久战，对特朗普威胁摧毁民用基础设施的言论几无畏惧。
+此举意在深入贯彻落实中央经济工作会议和全国金融系统工作会议精神，引导金融机构加力支持小微和民营企业经营发展，提升金融服务质量。
 
-这可能引发战事升级，进一步波及中东国家，并加剧当前的全球能源危机。
+《通知》指出，2026年要坚持稳中求进工作总基调和“两个毫不动摇”，深刻把握金融工作的政治性和人民性，树立和践行正确政绩观，充分发挥支持小微企业融资协调工作机制作用，推动小微企业金融服务“稳投放、优结构、提质量、可持续”，提升民营企业金融服务水平，助力经济持续稳中向好，激发高质量发展的动力活力。
 
-一个与伊斯兰革命卫队有关联的伊拉克民兵组织周二警告称，若特朗普落实对伊朗全面打击的威胁，该组织将攻击红海的延布港，“将世界拖入一场能源战争”。
+稳投放，即推动银行业金融机构提供与经济发展相适应，与小微企业、民营企业需求相匹配的信贷供给，实现贷款质的有效提升和量的合理增长。
 
-沙特目前通过延布港每天出口近500万桶石油，以绕开伊朗对霍尔木兹海峡的封锁。
+优结构，即做好首贷、信用贷、中长期贷款支持，增加小微企业法人贷款投放，重点支持科技、消费、外贸等领域。
 
-伦敦查塔姆研究所中东和北非项目主任Sanam Vakil表示：“那些在制度上和个人层面都与政权的韧性和生存息息相关的人如今掌握着指挥权和控制权，他们很难信服现在是达成协议的时机，也正因此，伊朗不断提出如此苛刻的条款及条件。
+具体看，《通知》提到，优化信贷结构。
 
-” 伊朗的要求包括保证不再遭受美以的攻击、拥有霍尔木兹海峡的控制权及解除长期经济制裁。
+银行业金融机构要围绕发展新质生产力，加强科技和创新型小微企业金融服务，助力高水平科技自立自强。
 
-特朗普则希望德黑兰重新开放霍尔木兹海峡、放弃其核计划、停止支持代理武装组织，并接受对其导弹计划的限制。
+创新优化消费领域小微和民营企业金融产品，支持构建多元化消费场景，助力提振消费扩大内需。
 
 ## 相关推荐
 
-- 2026-06-29 15:07 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 14:57 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 15:01 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 15:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 14:45 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 15:07 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 14:44 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 14:47 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 14:49 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 14:58 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 15:11 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 14:52 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 15:01 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 15:01 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 14:53 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 14:49 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 14:59 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 15:14 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 15:01 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 15:02 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 15:10 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 15:14 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 14:56 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:43 - [恋与深空底线不该被娱乐化](https://www.share.kurohicncr.top/Article/details/20266414235.shtml)
-- 2026-06-29 15:00 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/77728540020.shtml)
-- 2026-06-29 15:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/40622982.shtml)
-- 2026-06-29 14:59 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/85765188.shtml)
-- 2026-06-29 15:05 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/77991.shtml)
-- 2026-06-29 15:08 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/5501693.shtml)
-- 2026-06-29 15:10 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/23154666568.shtml)
-- 2026-06-29 14:48 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.minike.top/Article/details/656312052559.shtml)
-- 2026-06-29 14:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/73220797522.shtml)
-- 2026-06-29 14:49 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/6876488.shtml)
-- 2026-06-29 14:57 - [TI2026参赛战队出炉](https://www.blog.kurohicncr.top/Article/details/03877056.shtml)
-- 2026-06-29 15:01 - [北极荒岛生存挑战](https://www.blog.minike.top/Article/details/355431725070.shtml)
-- 2026-06-29 14:42 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/25333774.shtml)
-- 2026-06-29 15:01 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/3546355.shtml)
-- 2026-06-29 15:06 - [给阿嬷的情书海外口碑](http://www.share.kurohicncr.top/Article/details/6998214762.shtml)
+- 2026-06-29 14:55 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/123000774227.shtml)
+- 2026-06-29 15:03 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/2313207112.shtml)
+- 2026-06-29 14:49 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/121071010007.shtml)
+- 2026-06-29 14:54 - [未来5年全国能源体系将呈现这些特征](http://www.share.minike.top/Article/details/6914915.shtml)
+- 2026-06-29 15:06 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/14999.shtml)
+- 2026-06-29 14:49 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/4663996.shtml)
+- 2026-06-29 15:05 - [双高胎](https://www.share.minike.top/Article/details/8141039724.shtml)
+- 2026-06-29 15:01 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/380704.shtml)
+- 2026-06-29 14:56 - [流金岁月](https://www.share.minike.top/Article/details/588274065720.shtml)
+- 2026-06-29 14:52 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/4495580.shtml)
+- 2026-06-29 15:17 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/79027.shtml)
+- 2026-06-29 15:12 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/410345.shtml)
+- 2026-06-29 14:59 - [扫黑风暴](https://www.blog.minike.top/Article/details/60095.shtml)
+- 2026-06-29 15:05 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/81803433377.shtml)
+- 2026-06-29 15:10 - [A股](https://www.blog.minike.top/Article/details/7858749960.shtml)

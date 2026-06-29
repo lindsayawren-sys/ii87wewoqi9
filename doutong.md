@@ -1,60 +1,47 @@
-# 邮储银行行长芦苇：不到100天的时间里，我深刻感受到邮储银行是一家年轻而富有特色的国有大行
+# 警方通报山西临县一驾校“快速学车，文盲包过”：将严肃追究相关人员责任
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-3月30日金融一线消息，邮储银行今日召开2025年度业绩发布会，行长芦苇表示：“我是去年12月底到邮储银行工作的一名新兵，不到100天的时间里，我也是紧锣密鼓的了解邮储银行各方面的情况，结合去年的经营表现，我深刻感受到邮储银行是一家年轻而富有特色的国有大行。” 芦苇进一步表示，第一是规模体量足够大，拥有坚实的底盘。首先是强大的网络，数量之多，下沉之深、布局之密，这在中国银行业是
+中新网吕梁5月19日电 (记者 李庭耀)山西省吕梁市临县一帆驾校宣称“快速学车，文盲包过”，临县公安局18日晚发布通报称：针对媒体曝光临县一帆驾校问题，公安机关已成立专班开展调查，将严肃追究相关人员责任，从严整治驾培行业乱象，坚决维护驾考公平公正。涉事驾校已于2026年4月22日被停业整顿。(完)
 
 ## 正文
 
-3月30日金融一线消息，邮储银行今日召开2025年度业绩发布会，行长芦苇表示：“我是去年12月底到邮储银行工作的一名新兵，不到100天的时间里，我也是紧锣密鼓的了解邮储银行各方面的情况，结合去年的经营表现，我深刻感受到邮储银行是一家年轻而富有特色的国有大行。
+中新网吕梁5月19日电 (记者 李庭耀)山西省吕梁市临县一帆驾校宣称“快速学车，文盲包过”，临县公安局18日晚发布通报称：针对媒体曝光临县一帆驾校问题，公安机关已成立专班开展调查，将严肃追究相关人员责任，从严整治驾培行业乱象，坚决维护驾考公平公正。
 
-” 芦苇进一步表示，第一是规模体量足够大，拥有坚实的底盘。
+涉事驾校已于2026年4月22日被停业整顿。
 
-首先是强大的网络，数量之多，下沉之深、布局之密，这在中国银行业是独一无二的。
-
-其次是庞大客群数量居行业第四、遍布城乡，是个巨大的宝库。
-
-再者是资产负债率规模。
-
-2025年末，资产总额达到18.68万亿，贷款规模9.65万亿，存款规模16.54万亿，均居行业第五，增速都保持在国有大行前列。
-
-资本实力方面，一级资本在英国银行家、全球银行一千强排名中稳居第12位。
-
-去年国家财政注资1300亿，进一步增强了资本实力。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:47 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 14:51 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 15:05 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 14:50 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 14:50 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 14:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 14:50 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 14:59 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 14:53 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 14:45 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 14:44 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 14:42 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 14:43 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 14:45 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 15:01 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 14:52 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 14:51 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 14:53 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 15:03 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 15:09 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 14:56 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 14:57 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 15:04 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 15:17 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 15:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:48 - [TOP 无畏契约](http://www.share.kurohicncr.top/Article/details/3610599852.shtml)
-- 2026-06-29 15:00 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/6568121.shtml)
-- 2026-06-29 14:48 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/14096.shtml)
-- 2026-06-29 14:46 - [王楚钦3-0周启豪 晋级32强](http://www.blog.minike.top/Article/details/49021.shtml)
-- 2026-06-29 15:05 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/7089490.shtml)
-- 2026-06-29 15:07 - [AG 钟意](http://www.share.minike.top/Article/details/98472475133.shtml)
-- 2026-06-29 14:54 - [去了一趟潮汕。](http://www.share.minike.top/Article/details/7289953.shtml)
-- 2026-06-29 15:10 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/590107.shtml)
-- 2026-06-29 15:02 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/40391.shtml)
-- 2026-06-29 14:47 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.minike.top/Article/details/499114.shtml)
-- 2026-06-29 14:42 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/15997114329.shtml)
-- 2026-06-29 15:02 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/63559370240.shtml)
-- 2026-06-29 15:10 - [一生一世](https://www.share.minike.top/Article/details/68724305.shtml)
-- 2026-06-29 14:58 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/21191720487.shtml)
-- 2026-06-29 15:07 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/96828410.shtml)
+- 2026-06-29 14:56 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/24166.shtml)
+- 2026-06-29 15:00 - [国家体育总局政策法规司原副司长获刑](https://www.share.kurohicncr.top/Article/details/97309657174.shtml)
+- 2026-06-29 14:57 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/64939549.shtml)
+- 2026-06-29 14:56 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/081856.shtml)
+- 2026-06-29 14:58 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/62891.shtml)
+- 2026-06-29 14:48 - [德国VS巴拉圭前瞻](http://www.blog.minike.top/Article/details/2830180804.shtml)
+- 2026-06-29 15:15 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/45628.shtml)
+- 2026-06-29 14:53 - [世界杯十大帅哥必吃榜](https://www.blog.minike.top/Article/details/15544451.shtml)
+- 2026-06-29 14:53 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/035190807923.shtml)
+- 2026-06-29 14:48 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/260373471.shtml)
+- 2026-06-29 15:06 - [张真源解读相思锁](http://www.blog.minike.top/Article/details/8793318036.shtml)
+- 2026-06-29 15:04 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/8339496.shtml)
+- 2026-06-29 15:17 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/644842466296.shtml)
+- 2026-06-29 14:57 - [美人鱼](https://www.blog.minike.top/Article/details/0441843.shtml)
+- 2026-06-29 15:08 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/865815958798.shtml)

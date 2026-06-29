@@ -1,61 +1,57 @@
-# 痛风药企新元素药业递表港交所：公司估值达36亿元，多年研发“长跑”后核心产品仍未上市
+# 直击拓璞数控、驭势科技港交所挂牌
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-记者|孔泽思 编辑|张益铭 近日，由海归博士史东方创立的创新药企——杭州新元素药业股份有限公司（以下简称新元素药业）二次向港交所递交上市申请。这家专注于痛风药领域的公司，凭借核心在研药物ABP-671，在IPO（首次公开募股）前已获得多轮融资，投后估值高达36亿元。 不过光环之下，新元素药业仍无任何产品上市销售、持续巨额亏损，其核心产品研发进度晚于部分国内同行，且面临资金与商业
+5月20日港交所将有两只新股挂牌，分别为“港股商业航天第一股”拓璞数控（7688.HK）和“全场景 L4 级自驾第一股”驭势科技（1511.HK）。 拓璞数控以每股 26.39 港元定价，全球发售 6533 万股 H 股，募资总额约 17.24 亿港元，公开发售部分超额认购倍数超过 3700 倍，无强制回拨条款，国泰君安国际、建银国际担任联席保荐人。 本次 IPO 引入14 家
 
 ## 正文
 
-记者|孔泽思 编辑|张益铭 近日，由海归博士史东方创立的创新药企——杭州新元素药业股份有限公司（以下简称新元素药业）二次向港交所递交上市申请。
+5月20日港交所将有两只新股挂牌，分别为“港股商业航天第一股”拓璞数控（7688.HK）和“全场景 L4 级自驾第一股”驭势科技（1511.HK）。
 
-这家专注于痛风药领域的公司，凭借核心在研药物ABP-671，在IPO（首次公开募股）前已获得多轮融资，投后估值高达36亿元。
+拓璞数控以每股 26.39 港元定价，全球发售 6533 万股 H 股，募资总额约 17.24 亿港元，公开发售部分超额认购倍数超过 3700 倍，无强制回拨条款，国泰君安国际、建银国际担任联席保荐人。
 
-不过光环之下，新元素药业仍无任何产品上市销售、持续巨额亏损，其核心产品研发进度晚于部分国内同行，且面临资金与商业化挑战。
+本次 IPO 引入14 家基石，包括高盛、RBC 环球资产管理、高瓴资本、博裕资本等，认购总额约 10.34 亿港元，占全球发售股份的 60%。
 
-如此看来，本次IPO将是新元素药业维持研发、补充现金流的关键一仗。
+据招股书显示，2025 年拓璞数控在中国航空航天五轴数控机床市场排名首位。
 
-新元素药业由一位归国博士创立，据媒体报道，公司创始人史东方1995年在英国诺丁汉大学获得药物化学和有机化学博士学位，师从英国皇家科学院院士、抗脑瘤药发明人Malcolm F.G． Stevens教授。
+公司核心产品矩阵覆盖火箭制造全流程，包括箱底双五轴镜像铣、火箭燃料箱筒段纵缝焊接系统、环缝焊接系统等关键设备等。
 
-1996年，他远赴美国，开启了药物化学博士后历程，并先后在美国加州Genelabs生物制药公司、Metabolex制药公司任高级研究员，从事包括抗肿瘤、抗丙型肝炎（HCV）、抗真菌感染以及2型糖尿病等领域First-in-Class（全球首创）创新药物的研发工作。
+驭势科技以每股 59.8 港元定价，全球发售 1446.12 万股 H 股，募资总额约 8.65 亿港元，中信证券担任独家保荐人。
 
-积累了十余年的创新药物研发经验后，史东方意识到了国内创新药与海外的差距。
+本次 IPO 引入雄安自动驾驶、58 同城、星合财富3名基石投资者，合计认购约 2.612 亿港元，占全球发售股份总数的约 29.96%。
 
-2012年，他回国创办了新元素药业，并将研发焦点放在了慢性痛风治疗领域。
+驭势科技的业务模式主要包括自动驾驶解决方案、自动驾驶套件、软件解决方案及租赁服务四大板块。
 
 ## 相关推荐
 
-- 2026-06-29 15:07 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 15:04 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 14:51 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 14:59 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 14:45 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 15:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 14:51 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 14:43 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 14:59 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 15:06 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 15:11 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 14:53 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 14:42 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 14:44 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 14:54 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 15:10 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 14:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 15:02 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 15:06 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 15:01 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 15:17 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 15:18 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 15:13 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 14:59 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 15:05 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 14:57 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:07 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/67986900.shtml)
-- 2026-06-29 15:06 - [手游300亿数据或被军事化运用](http://www.share.kurohicncr.top/Article/details/1020424098.shtml)
-- 2026-06-29 14:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/61802421.shtml)
-- 2026-06-29 15:00 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/965305757727.shtml)
-- 2026-06-29 14:50 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/903502965.shtml)
-- 2026-06-29 15:00 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/38565.shtml)
-- 2026-06-29 14:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/25686.shtml)
-- 2026-06-29 14:44 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/10278845210.shtml)
-- 2026-06-29 14:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/04042862094.shtml)
-- 2026-06-29 15:09 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/325370.shtml)
-- 2026-06-29 15:01 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/0077445.shtml)
-- 2026-06-29 15:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/01630872977.shtml)
-- 2026-06-29 15:03 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/86898777453.shtml)
-- 2026-06-29 15:01 - [每代父母都困在自己的时代里](http://www.share.kurohicncr.top/Article/details/2231654483.shtml)
-- 2026-06-29 14:48 - [美媒：空警-3000服役即成全球最强](http://www.share.minike.top/Article/details/796047052732.shtml)
+- 2026-06-29 15:10 - [T1零封KC MSI](http://www.share.minike.top/Article/details/602712137328.shtml)
+- 2026-06-29 15:12 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/16357813019.shtml)
+- 2026-06-29 15:14 - [流金岁月](http://www.share.kurohicncr.top/Article/details/490144829.shtml)
+- 2026-06-29 14:52 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/5433328036.shtml)
+- 2026-06-29 14:54 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/5346186276.shtml)
+- 2026-06-29 15:12 - [世界杯超牛补水广告出现了](http://www.share.kurohicncr.top/Article/details/36143051999.shtml)
+- 2026-06-29 14:53 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/985116165738.shtml)
+- 2026-06-29 14:51 - [詹俊预测德国大胜巴拉圭](http://www.blog.minike.top/Article/details/834519864989.shtml)
+- 2026-06-29 15:06 - [A股](https://www.blog.kurohicncr.top/Article/details/7438558.shtml)
+- 2026-06-29 15:01 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/6753611.shtml)
+- 2026-06-29 15:05 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/9488156.shtml)
+- 2026-06-29 14:48 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/1534550.shtml)
+- 2026-06-29 15:09 - [恋与深空 731](https://www.blog.kurohicncr.top/Article/details/7431918106.shtml)
+- 2026-06-29 15:13 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/744704515.shtml)
+- 2026-06-29 14:56 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/638978844.shtml)

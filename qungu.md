@@ -1,46 +1,57 @@
-# 盛龙锦秀国际发布年度业绩 股东应占溢利7584.8万元同比增长59.6%
+# 同一天两袋“生命种子”从太原出发 为生命“续航”
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-盛龙锦秀国际（08481）发布截至2025年12月31日止财政年度全年业绩，集团收益人民币5.86亿元；股东应占溢利7584.8万元，同比增长59.6%；每股盈利17.8分。责任编辑：卢昱君
+中新网太原5月19日电 (范丽芳 张梦)5月19日上午，在山西省一家采集医院，来自太原的刘先生与朔州的吴先生在同天完成造血干细胞采集捐献，分别成为山西省第363例和第364例非血缘造血干细胞捐献者。两袋带着体温的“生命种子”分别被送往患者所在医院，为素不相识的血液病患者生命“续航”。 太原的刘先生是一名国企员工，常年坚持无偿献血。2020年献血时，他留下血样加入中华骨髓库，成为
 
 ## 正文
 
-盛龙锦秀国际（08481）发布截至2025年12月31日止财政年度全年业绩，集团收益人民币5.86亿元；股东应占溢利7584.8万元，同比增长59.6%；每股盈利17.8分。
+中新网太原5月19日电 (范丽芳 张梦)5月19日上午，在山西省一家采集医院，来自太原的刘先生与朔州的吴先生在同天完成造血干细胞采集捐献，分别成为山西省第363例和第364例非血缘造血干细胞捐献者。
 
-责任编辑：卢昱君
+两袋带着体温的“生命种子”分别被送往患者所在医院，为素不相识的血液病患者生命“续航”。
+
+太原的刘先生是一名国企员工，常年坚持无偿献血。
+
+2020年献血时，他留下血样加入中华骨髓库，成为造血干细胞志愿捐献者。
+
+2026年4月，刘先生得知自己与一名患者配型成功后，仅用3天就完成再动员、高分辨血样采集和捐前体检流程；5月，他正式进入捐献准备阶段，并于今天顺利完成采集。
+
+“一切都是为了救人，所有的这些都是值得的。
+
+”刘先生说。
+
+朔州的吴先生同样在今天完成造血干细胞捐献，这天，恰好是他加入中华骨髓库的第999天。
 
 ## 相关推荐
 
-- 2026-06-29 15:07 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 15:03 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 14:52 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 14:52 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 14:45 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 14:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 15:05 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 15:11 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 15:05 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 14:46 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 15:08 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 14:53 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 15:13 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 15:12 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 14:58 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 15:00 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 15:11 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 14:57 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 14:59 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 14:58 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 15:14 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 15:14 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 15:06 - [媒体：网络测评不能只剩“生意”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:55 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/9141593440.shtml)
-- 2026-06-29 14:52 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/20113564399.shtml)
-- 2026-06-29 15:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/8471996.shtml)
-- 2026-06-29 15:00 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/1305841.shtml)
-- 2026-06-29 15:08 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.minike.top/Article/details/790373789.shtml)
-- 2026-06-29 15:09 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.minike.top/Article/details/630163087.shtml)
-- 2026-06-29 14:59 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/687596848.shtml)
-- 2026-06-29 15:10 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/57826898853.shtml)
-- 2026-06-29 15:00 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/8711637193.shtml)
-- 2026-06-29 14:54 - [《贺子珍》](https://www.share.minike.top/Article/details/9229303918.shtml)
-- 2026-06-29 15:05 - [事关个税 明日截止请抓紧办理](https://www.blog.minike.top/Article/details/84311.shtml)
-- 2026-06-29 15:10 - [爸爸当家](http://www.blog.minike.top/Article/details/240951024.shtml)
-- 2026-06-29 14:57 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/24947256.shtml)
-- 2026-06-29 15:09 - [勇敢的心第二部](https://www.share.minike.top/Article/details/970956220.shtml)
-- 2026-06-29 14:55 - [给阿嬷的情书海外口碑](https://www.share.minike.top/Article/details/845611.shtml)
+- 2026-06-29 15:02 - [扬名立万](http://www.share.kurohicncr.top/Article/details/02753219679.shtml)
+- 2026-06-29 14:58 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/58663747.shtml)
+- 2026-06-29 14:50 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/7251404756.shtml)
+- 2026-06-29 15:17 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/2492816102.shtml)
+- 2026-06-29 15:00 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/0245106.shtml)
+- 2026-06-29 15:02 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/09025.shtml)
+- 2026-06-29 14:58 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/352607405856.shtml)
+- 2026-06-29 15:14 - [上班主打一个薪尽自然凉](https://www.blog.minike.top/Article/details/878850.shtml)
+- 2026-06-29 14:58 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/9148786.shtml)
+- 2026-06-29 15:14 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/301163346.shtml)
+- 2026-06-29 14:58 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/51478121702.shtml)
+- 2026-06-29 15:12 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/46909324770.shtml)
+- 2026-06-29 14:48 - [教育部发布高考志愿填报预警](https://www.share.kurohicncr.top/Article/details/407527.shtml)
+- 2026-06-29 14:54 - [金刚川](https://www.blog.minike.top/Article/details/38133479.shtml)
+- 2026-06-29 15:05 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/41141440.shtml)

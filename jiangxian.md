@@ -1,44 +1,58 @@
-# 山金国际：一季度归母净利润同比预增94.57%-107.54%
+# 银行投科技，市场买账吗？
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-山金国际4月7日公告，预计一季度归母净利润13.5亿元-14.4亿元，同比增长94.57%-107.54%，上年同期盈利6.94亿元。
+来源：看懂经济 如果把银行的科技投入和股价走势这两个变量放在一起来看，会发生什么样的化学反应？ 看懂经济把15家A股上市银行近十年的科技投入、A股股价走势拉到一起，做了一次梳理分析。看看这些年持续投向科技的钱，最后有没有变成资本市场愿意定价的长期能力？ 从数据看，2019年至2025年，样本银行科技投入总额从约1030亿元增长至约1887亿元，七年累计增幅约83%。 更有意思的
 
 ## 正文
 
-山金国际4月7日公告，预计一季度归母净利润13.5亿元-14.4亿元，同比增长94.57%-107.54%，上年同期盈利6.94亿元。
+来源：看懂经济 如果把银行的科技投入和股价走势这两个变量放在一起来看，会发生什么样的化学反应？
+
+看懂经济把15家A股上市银行近十年的科技投入、A股股价走势拉到一起，做了一次梳理分析。
+
+看看这些年持续投向科技的钱，最后有没有变成资本市场愿意定价的长期能力？
+
+从数据看，2019年至2025年，样本银行科技投入总额从约1030亿元增长至约1887亿元，七年累计增幅约83%。
+
+更有意思的是，如果用Pearson相关系数做量化测算，国有大行科技投入与股价收益率呈中度正相关，Pearson相关系数为+0.461；股份制银行几乎没有相关性，相关系数为-0.014。
+
+（简单说，就是把各家银行一定周期内的科技投入作为一组变量，把对应年度的股价收益率作为另一组变量，观察两者是否同向变化、同向程度有多强。
+
+相关系数越接近1，说明正相关越强；越接近-1，说明负相关越强；越接近0，则说明线性关系越弱。
+
+） 需要强调的是，相关性不等于因果关系。
 
 ## 相关推荐
 
-- 2026-06-29 15:05 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 15:03 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 14:59 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 14:58 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 15:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 14:59 - [中国战机大片上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 14:52 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 14:42 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 14:51 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 15:06 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 14:46 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 14:49 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 15:09 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 14:57 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 14:55 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 14:52 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 15:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 14:58 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 15:16 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 14:54 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 15:10 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 14:55 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 15:10 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 15:08 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/6515376449.shtml)
-- 2026-06-29 15:06 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/0329549.shtml)
-- 2026-06-29 14:47 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/981822.shtml)
-- 2026-06-29 14:44 - [高考志愿今起开始填报](https://www.share.minike.top/Article/details/625827.shtml)
-- 2026-06-29 15:09 - [送你一朵小红花](https://www.blog.minike.top/Article/details/728009101085.shtml)
-- 2026-06-29 14:48 - [李在明称韩国足协任命了无能之人](https://www.blog.kurohicncr.top/Article/details/3341741.shtml)
-- 2026-06-29 15:01 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/4712954181.shtml)
-- 2026-06-29 15:12 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/616348963505.shtml)
-- 2026-06-29 15:02 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/5178830174.shtml)
-- 2026-06-29 14:48 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/9123407.shtml)
-- 2026-06-29 15:10 - [迈巴赫提车第二天发现大灯起雾](http://www.share.minike.top/Article/details/506139437431.shtml)
-- 2026-06-29 14:49 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/653119420370.shtml)
-- 2026-06-29 14:45 - [李在明称韩国足协任命了无能之人](http://www.blog.kurohicncr.top/Article/details/608617868.shtml)
-- 2026-06-29 14:47 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/67426129915.shtml)
-- 2026-06-29 14:56 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/559739.shtml)
+- 2026-06-29 15:07 - [斗破苍穹](http://www.blog.minike.top/Article/details/84265.shtml)
+- 2026-06-29 15:10 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/071612209.shtml)
+- 2026-06-29 15:16 - [央视起底直播诈骗连环套](http://www.blog.minike.top/Article/details/181988810.shtml)
+- 2026-06-29 15:00 - [韩媒破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/69624687.shtml)
+- 2026-06-29 15:01 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/20402499.shtml)
+- 2026-06-29 15:17 - [世界杯十大帅哥必吃榜](https://www.share.kurohicncr.top/Article/details/34928.shtml)
+- 2026-06-29 15:08 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/617843326.shtml)
+- 2026-06-29 14:58 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/0637584.shtml)
+- 2026-06-29 14:57 - [网警提醒4类高考查分陷阱考生速看](http://www.share.kurohicncr.top/Article/details/626648511429.shtml)
+- 2026-06-29 14:54 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/2311029.shtml)
+- 2026-06-29 15:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/2736805.shtml)
+- 2026-06-29 14:48 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/90466.shtml)
+- 2026-06-29 14:58 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/40919314744.shtml)
+- 2026-06-29 15:07 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.kurohicncr.top/Article/details/30540.shtml)
+- 2026-06-29 15:16 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/089530.shtml)

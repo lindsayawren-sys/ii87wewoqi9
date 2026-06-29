@@ -1,56 +1,60 @@
-# 韩国35年来首次“放大招”？能源危机下欲全民限行，120美元油价为红线！
+# 重构燃料油研究：一文拆解“渣油定价”的逻辑
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-来源：财联社 财联社3月30日讯（编辑 黄君芝）随着美伊战争愈演愈烈，能源危机正在持续扩散和蔓延。韩国财政部长具润哲周日表示，如果油价突破每桶120美元，韩国可能会扩大驾车限制范围，将普通民众出行也纳入其中，以缓解伊朗战争对其能源供应的影响。 具润哲在接受最新采访时说道，“我们正在考虑是否将限制措施推广到私人领域，以鼓励普通民众配合，但我们希望战争尽快结束，这样的话就不需要采取
+作者：陈通/F3012946、Z0013383/ 一德期货能源化工分析师 要点速览版 产品与生产 燃料油是原油加工较重剩余产物，粘度大、杂质多。2020年起低硫燃料油成主流，主要通过低硫蒸馏、混兑调合或高硫渣油脱硫生产。 全球供需格局 全球年产约5亿吨，亚太消费占比超45%。新加坡是最大消费地与集散中心，核心流向为欧美、中东及拉美资源汇聚新加坡。 中国供需格局 2025年产量4
 
 ## 正文
 
-来源：财联社 财联社3月30日讯（编辑 黄君芝）随着美伊战争愈演愈烈，能源危机正在持续扩散和蔓延。
+作者：陈通/F3012946、Z0013383/ 一德期货能源化工分析师 要点速览版 产品与生产 燃料油是原油加工较重剩余产物，粘度大、杂质多。
 
-韩国财政部长具润哲周日表示，如果油价突破每桶120美元，韩国可能会扩大驾车限制范围，将普通民众出行也纳入其中，以缓解伊朗战争对其能源供应的影响。
+2020年起低硫燃料油成主流，主要通过低硫蒸馏、混兑调合或高硫渣油脱硫生产。
 
-具润哲在接受最新采访时说道，“我们正在考虑是否将限制措施推广到私人领域，以鼓励普通民众配合，但我们希望战争尽快结束，这样的话就不需要采取此类措施了。
+全球供需格局 全球年产约5亿吨，亚太消费占比超45%。
 
-” 上周早些时候，韩国政府对公共机构公务车辆实施了类似的“尾号限行制”。
+新加坡是最大消费地与集散中心，核心流向为欧美、中东及拉美资源汇聚新加坡。
 
-根据韩国政府的要求，车牌尾号“1”和“6”的车辆周一禁行，尾号“2”和“7”的车辆周二禁行，以此类推，即“5日轮换制”。
+中国供需格局 2025年产量4193万吨，表观消费量4290万吨，进口2161万吨。
 
-而如果将限制范围扩大到私人领域，这将是自1991年海湾战争以来韩国首次采取此类措施。
+保税船燃为核心需求，炼化需求集中山东地炼，工业需求萎缩。
 
-此举也表明，作为全球科技供应链关键参与者的韩国，对即将到来的能源冲击日益担忧。
+低硫燃料油产能3315万吨，中石油、中石化主导，渤海湾产能占比最高。
 
-目前，虽然关于美伊和谈的消息频频传出，但没有明确证据表明这场战争很快结束。
+定价与成本 国际定价锚定新加坡MOPS，纸货市场活跃。
 
 ## 相关推荐
 
-- 2026-06-29 14:56 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 14:50 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 15:08 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 14:54 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 14:55 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 14:44 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 14:43 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 14:42 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 15:05 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 14:44 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 14:49 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 15:00 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 15:06 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 15:11 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 14:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 14:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 15:10 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 15:14 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 15:16 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 15:09 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 14:52 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 15:08 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 15:05 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 14:53 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:44 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/46278.shtml)
-- 2026-06-29 14:43 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/7349662640.shtml)
-- 2026-06-29 14:56 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/980940.shtml)
-- 2026-06-29 14:48 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/30766913.shtml)
-- 2026-06-29 14:44 - [叶一茜森碟一起回北京了](https://www.blog.minike.top/Article/details/690493212226.shtml)
-- 2026-06-29 15:00 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/4946417527.shtml)
-- 2026-06-29 14:58 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/2993232.shtml)
-- 2026-06-29 14:52 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/09614.shtml)
-- 2026-06-29 15:11 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/843283.shtml)
-- 2026-06-29 14:45 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/68669231.shtml)
-- 2026-06-29 14:56 - [时光音乐会](http://www.blog.minike.top/Article/details/627151.shtml)
-- 2026-06-29 14:43 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/19479.shtml)
-- 2026-06-29 14:54 - [中国避暑神器在欧洲卖爆了](https://www.blog.minike.top/Article/details/5348065.shtml)
-- 2026-06-29 15:03 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/32446833.shtml)
-- 2026-06-29 14:50 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/4200787659.shtml)
+- 2026-06-29 15:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/610930.shtml)
+- 2026-06-29 15:17 - [恋与深空 731](http://www.share.minike.top/Article/details/737461341607.shtml)
+- 2026-06-29 15:01 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/570596348301.shtml)
+- 2026-06-29 14:52 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/41806462551.shtml)
+- 2026-06-29 14:58 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/617957195216.shtml)
+- 2026-06-29 15:03 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/024581734871.shtml)
+- 2026-06-29 15:13 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.kurohicncr.top/Article/details/7913513.shtml)
+- 2026-06-29 15:13 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/396660.shtml)
+- 2026-06-29 15:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/56548555.shtml)
+- 2026-06-29 15:09 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/4906866984.shtml)
+- 2026-06-29 14:55 - [逆天祖国人](http://www.blog.minike.top/Article/details/00528.shtml)
+- 2026-06-29 15:13 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/93309377.shtml)
+- 2026-06-29 15:17 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/27711807800.shtml)
+- 2026-06-29 15:11 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/80026.shtml)
+- 2026-06-29 14:58 - [高考公平需要延伸到志愿填报这一环](http://www.blog.minike.top/Article/details/220347.shtml)

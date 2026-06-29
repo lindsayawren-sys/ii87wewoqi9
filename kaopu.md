@@ -1,59 +1,53 @@
-# 西班牙对外银行以6.8亿美元将罗马尼亚业务卖了
+# 新加坡国务资政李显龙到访广西：在南宁体验打油茶
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-该交易预计于第四季度完成，尚需监管机构批准 西班牙对外银行（BBVA）表示，已同意将旗下 Garanti BBVA 的罗马尼亚子公司，以 5.91 亿欧元（合 6.802 亿美元）的价格出售给奥地利莱夫艾森国际银行（Raiffeisen Bank International）。 这家奥地利银行周六称，交易完成后，其罗马尼亚子公司将按总资产规模跃居该国第三大银行。 西班牙毕尔巴鄂
+发布时间：2026年05月19日 15:15 来源：中国新闻网 5月19日，新加坡国务资政李显龙在南宁参观中国—东盟特色商品汇聚中心时体验打油茶。“打油茶”是瑶族油茶习俗的俗称。油茶主要流传于广西侗族、瑶族等少数民族聚居区，拥有千年历史。(陈秋霞 制作 徐妙巧） 责任编辑：【罗攀】
 
 ## 正文
 
-该交易预计于第四季度完成，尚需监管机构批准 西班牙对外银行（BBVA）表示，已同意将旗下 Garanti BBVA 的罗马尼亚子公司，以 5.91 亿欧元（合 6.802 亿美元）的价格出售给奥地利莱夫艾森国际银行（Raiffeisen Bank International）。
+发布时间：2026年05月19日 15:15 来源：中国新闻网 5月19日，新加坡国务资政李显龙在南宁参观中国—东盟特色商品汇聚中心时体验打油茶。
 
-这家奥地利银行周六称，交易完成后，其罗马尼亚子公司将按总资产规模跃居该国第三大银行。
+“打油茶”是瑶族油茶习俗的俗称。
 
-西班牙毕尔巴鄂比斯开银行表示，旗下 Garanti BBVA 罗马尼亚子公司为该国第十大金融机构，总资产达 40 亿欧元，截至去年年底市场份额为 2%。
+油茶主要流传于广西侗族、瑶族等少数民族聚居区，拥有千年历史。
 
-莱夫艾森国际银行表示，计划将此次收购的业务与自身在罗马尼亚的现有运营业务合并，并认为罗马尼亚市场对零售银行、企业银行及投资银行业务均具备吸引力。
-
-莱夫艾森银行首席执行官约翰・施特罗布尔表示：“这笔交易是中东欧最具吸引力的银行市场之一的重大战略举措，我们对这个国家十分熟悉。
-
-” BBVA 称，预计此次出售将使其核心一级资本充足率（衡量财务实力的指标）提升约 10 个基点，并为集团利润表带来 1.12 亿欧元的收益。
-
-莱夫艾森银行则表示，剔除俄罗斯业务后，该交易将使其集团核心一级资本充足率下降 60 个基点。
-
-双方预计交易将于第四季度完成，尚需获得监管批准。
+(陈秋霞 制作 徐妙巧） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 15:10 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 14:43 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 15:09 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-29 14:57 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 14:44 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 15:11 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 14:49 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 14:53 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 15:00 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 15:06 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 14:57 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 14:45 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 14:55 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 15:08 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 14:53 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 15:10 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 14:51 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 15:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 14:56 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 14:50 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 15:14 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 14:50 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 15:02 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 15:04 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 15:10 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 15:16 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 14:59 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 15:14 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/27283.shtml)
-- 2026-06-29 14:55 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/1437296.shtml)
-- 2026-06-29 14:57 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/161610396.shtml)
-- 2026-06-29 15:07 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/662979.shtml)
-- 2026-06-29 14:53 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/248100.shtml)
-- 2026-06-29 14:49 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/587490340220.shtml)
-- 2026-06-29 15:00 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/732716.shtml)
-- 2026-06-29 14:55 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.minike.top/Article/details/53722258727.shtml)
-- 2026-06-29 15:06 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/332149864297.shtml)
-- 2026-06-29 15:00 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/445540.shtml)
-- 2026-06-29 14:50 - [血糖高的人能吃西瓜吗](http://www.share.kurohicncr.top/Article/details/914319479675.shtml)
-- 2026-06-29 15:08 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/5032435.shtml)
-- 2026-06-29 14:59 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/853358.shtml)
-- 2026-06-29 15:02 - [李在明称韩国足协任命了无能之人](https://www.share.minike.top/Article/details/25463.shtml)
-- 2026-06-29 14:46 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/866887468905.shtml)
+- 2026-06-29 14:59 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/540003624.shtml)
+- 2026-06-29 15:06 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/389565187560.shtml)
+- 2026-06-29 14:51 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/2388712.shtml)
+- 2026-06-29 15:16 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/471483909.shtml)
+- 2026-06-29 14:54 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/5301109996.shtml)
+- 2026-06-29 15:16 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/0911764.shtml)
+- 2026-06-29 14:58 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/948508.shtml)
+- 2026-06-29 15:07 - [周生如故](https://www.share.kurohicncr.top/Article/details/19130.shtml)
+- 2026-06-29 15:15 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/26276185.shtml)
+- 2026-06-29 15:08 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/73981239.shtml)
+- 2026-06-29 15:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/74357524028.shtml)
+- 2026-06-29 14:49 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.kurohicncr.top/Article/details/343115011565.shtml)
+- 2026-06-29 15:06 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/136754.shtml)
+- 2026-06-29 15:09 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/88710844801.shtml)
+- 2026-06-29 15:08 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/533127840.shtml)

@@ -1,56 +1,57 @@
-# 晶合集成冲刺港股：年营收104亿，净利同比降3% 华勤技术去年斥资24亿买老股
+# 普京发表视频讲话：俄中关系达到前所未有水平
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-来源：雷递 雷递网 雷建平 4月7日 合肥晶合集成电路股份有限公司（简称“晶合集成”）日前更新招股书，准备在港交所上市。 晶合集成2023年5月在科创板上市，是安徽省首家成功登陆资本市场的纯晶圆代工企业。 截至今日收盘，晶合集成股价为28.31元，市值为568亿元。一旦在港股上市，晶合集成形成“A+H”的格局。 年营收104亿 净利同比降3% 晶合集成成立于2015年5月，由合
+中新社莫斯科5月19日电 应中国国家主席习近平邀请，俄罗斯总统普京于5月19日至20日对中国进行国事访问。访华前，普京发表视频讲话。他表示，很高兴应习近平主席邀请再次访华，定期互访和举行元首会晤，是俄中全方位发展两国关系、挖掘其真正无限潜力的重要且不可或缺的一部分。这是普京首次在出访前发表视频讲话。他说：“我由衷珍视习近平主席对同俄罗斯开展长远合作的意愿。我们之间的密切友好往来
 
 ## 正文
 
-来源：雷递 雷递网 雷建平 4月7日 合肥晶合集成电路股份有限公司（简称“晶合集成”）日前更新招股书，准备在港交所上市。
+中新社莫斯科5月19日电 应中国国家主席习近平邀请，俄罗斯总统普京于5月19日至20日对中国进行国事访问。
 
-晶合集成2023年5月在科创板上市，是安徽省首家成功登陆资本市场的纯晶圆代工企业。
+访华前，普京发表视频讲话。
 
-截至今日收盘，晶合集成股价为28.31元，市值为568亿元。
+他表示，很高兴应习近平主席邀请再次访华，定期互访和举行元首会晤，是俄中全方位发展两国关系、挖掘其真正无限潜力的重要且不可或缺的一部分。
 
-一旦在港股上市，晶合集成形成“A+H”的格局。
+这是普京首次在出访前发表视频讲话。
 
-年营收104亿 净利同比降3% 晶合集成成立于2015年5月，由合肥市建设投资控股（集团）有限公司与力晶创新投资控股股份有限公司合资建设。
+他说：“我由衷珍视习近平主席对同俄罗斯开展长远合作的意愿。
 
-晶合集成主要从事 12 英寸晶圆代工业务，致力于研发及应用行业先进的工艺，为客户提供不同工艺平台、多种制程节点的晶圆代工服务。
+我们之间的密切友好往来，有助于我们擘画最为宏伟的蓝图，并将其付诸实践。
 
-在晶圆代工制程节点方面，晶合集成已实现150nm至40nm制程平台的量产，28nmOLED产品持续验证中，28nm 逻辑工艺平台已完成开发。
+” 普京说，25年前俄罗斯与中国签署了《俄中睦邻友好合作条约》，为建立真正意义上的战略协作与全面伙伴关系奠定了坚实基础，造福两国人民。
 
-在工艺平台应用方面，公司目前已具备DDIC、CIS、PMIC、Logic、MCU 等工艺平台晶圆代工的技术能力。
+他表示，当前，俄中关系达到了前所未有的水平。
 
 ## 相关推荐
 
-- 2026-06-29 15:06 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 15:05 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 14:55 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 15:05 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 15:10 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 14:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 14:47 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 15:06 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 14:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 15:04 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 15:09 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 15:03 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 14:55 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 15:17 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 14:48 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 15:12 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 14:58 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 15:05 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 15:15 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 15:17 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 15:11 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:11 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/2255376908.shtml)
-- 2026-06-29 14:51 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/330261.shtml)
-- 2026-06-29 14:53 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.kurohicncr.top/Article/details/174952073.shtml)
-- 2026-06-29 14:46 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/32123.shtml)
-- 2026-06-29 14:56 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/57842516275.shtml)
-- 2026-06-29 15:06 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/679863751851.shtml)
-- 2026-06-29 14:50 - [比亚迪为什么卖得越多市值越低](https://www.blog.minike.top/Article/details/6104189.shtml)
-- 2026-06-29 14:42 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/716998603836.shtml)
-- 2026-06-29 14:52 - [扫黑风暴](http://www.share.minike.top/Article/details/88328.shtml)
-- 2026-06-29 15:05 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/1949625591.shtml)
-- 2026-06-29 14:58 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/164873672.shtml)
-- 2026-06-29 15:05 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/448304.shtml)
-- 2026-06-29 15:05 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/18047.shtml)
-- 2026-06-29 14:53 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/14608463.shtml)
-- 2026-06-29 15:00 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/33028188.shtml)
+- 2026-06-29 14:52 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/82923494.shtml)
+- 2026-06-29 15:07 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/243261154728.shtml)
+- 2026-06-29 15:03 - [叶一茜森碟一起回北京了](https://www.share.kurohicncr.top/Article/details/627943374210.shtml)
+- 2026-06-29 14:48 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/3384865350.shtml)
+- 2026-06-29 15:16 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.minike.top/Article/details/90598.shtml)
+- 2026-06-29 15:12 - [千与千寻](https://www.blog.minike.top/Article/details/742128719.shtml)
+- 2026-06-29 14:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/843573315.shtml)
+- 2026-06-29 14:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/52383.shtml)
+- 2026-06-29 14:53 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/0808850.shtml)
+- 2026-06-29 15:03 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/653869401.shtml)
+- 2026-06-29 15:16 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.minike.top/Article/details/90241340248.shtml)
+- 2026-06-29 15:10 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/771792038988.shtml)
+- 2026-06-29 14:59 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/2417763904.shtml)
+- 2026-06-29 15:12 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/72957332032.shtml)
+- 2026-06-29 15:00 - [扬名立万](http://www.share.minike.top/Article/details/1841276212.shtml)

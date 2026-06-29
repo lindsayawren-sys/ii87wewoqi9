@@ -1,59 +1,61 @@
-# 从5419高点跌15%后，黄金迎来转机？
+# 印度交易所首席执行官：本土投资者力挽狂澜，稳住市场避免崩盘
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-来源：汇通网 汇通财经APP讯——3月30日周一，现货黄金价格在亚洲时段一度触及4419美元低点，随后快速反弹至4570美元附近。这一走势发生在美债收益率从多月高位小幅回落、美元指数维持强势的背景下，同时中东地区冲突风险显著升级，为避险资产注入支撑。交易员正密切关注能源价格高企对经济增长的潜在拖累，以及美联储货币政策预期的微妙转变。 黄金价格当前动态与近期表现 现货黄金逆转早盘
+核心要点 印度历史最悠久证券交易所负责人周二在 CNBC《亚洲财经论坛》节目中表示，去年外资大举抛售印度股票之际，本土投资者发挥关键作用，成功避免印度股市出现断崖式暴跌。 孟买证券交易所董事总经理桑达拉马南・拉马穆尔蒂称：“印度经济仍在增长，还有大量民众尚未进入资本市场。” 他透露，过去一年已有 3500 万印度投资者在孟买证券交易所完成开户注册。 他表示，以往外资在印度股市持
 
 ## 正文
 
-来源：汇通网 汇通财经APP讯——3月30日周一，现货黄金价格在亚洲时段一度触及4419美元低点，随后快速反弹至4570美元附近。
+核心要点 印度历史最悠久证券交易所负责人周二在 CNBC《亚洲财经论坛》节目中表示，去年外资大举抛售印度股票之际，本土投资者发挥关键作用，成功避免印度股市出现断崖式暴跌。
 
-这一走势发生在美债收益率从多月高位小幅回落、美元指数维持强势的背景下，同时中东地区冲突风险显著升级，为避险资产注入支撑。
+孟买证券交易所董事总经理桑达拉马南・拉马穆尔蒂称：“印度经济仍在增长，还有大量民众尚未进入资本市场。
 
-交易员正密切关注能源价格高企对经济增长的潜在拖累，以及美联储货币政策预期的微妙转变。
+” 他透露，过去一年已有 3500 万印度投资者在孟买证券交易所完成开户注册。
 
-黄金价格当前动态与近期表现 现货黄金逆转早盘跌势，盘中从200日均线附近获得明显支撑，显示短期买盘力度有所恢复。
+他表示，以往外资在印度股市持股规模高于本土机构，如今这一格局已然彻底逆转。
 
-尽管美元仍保持坚挺，但收益率的温和回落为金价提供了喘息空间。
+该高管补充道，去年外资从印度股市净流出 350 亿美元，而印度本土机构投资者逆势向股市净投资 9100 亿美元。
 
-数据显示，3月黄金一度触及5419美元的阶段高位，之后累计回落近15%，本月正面临结束连续七个月上涨的局面。
+拉马穆尔蒂在新加坡举办的 2026 年莫蒂拉尔・奥斯瓦尔印度企业日活动间隙受访时说道：“本土资金不仅填补了外资流出的缺口，还极大稳固了敏感指数走势，成功避免股市崩盘式下跌。
 
-这一跌幅反映出高利率环境对非收益资产的持续挤压，但地缘因素的突然发酵正在改变短期供需平衡。
+” 受企业盈利疲软、中东局势推高国际油价拖累印度经济等因素影响，外资对印度股市依旧持悲观看空态度。
 
-黄金作为传统避险工具，其价格敏感度正从单纯利率路径转向复合风险定价。
+虽说印度是全球信息技术产业强国，但本土并未诞生具备规模的头部人工智能生态企业，这进一步打击了外资投资意愿。
 
 ## 相关推荐
 
-- 2026-06-29 14:47 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 14:55 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 14:49 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 14:59 - [医药股集体爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 15:01 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 14:44 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 14:46 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 15:01 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 14:48 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 14:43 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 15:01 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 14:59 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 15:07 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 15:07 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 15:17 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 15:07 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 14:56 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 14:55 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 15:00 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 15:10 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 15:04 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 15:10 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 15:00 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 15:09 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 14:48 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 15:10 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 14:48 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 14:48 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:44 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/5826653.shtml)
-- 2026-06-29 14:43 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/4703816.shtml)
-- 2026-06-29 15:10 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/063035.shtml)
-- 2026-06-29 14:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/575180186792.shtml)
-- 2026-06-29 15:05 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/69863143.shtml)
-- 2026-06-29 14:57 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/687787409.shtml)
-- 2026-06-29 14:43 - [斗破苍穹](http://www.share.minike.top/Article/details/7495106.shtml)
-- 2026-06-29 15:01 - [20年前的周杰伦](http://www.share.minike.top/Article/details/608378054496.shtml)
-- 2026-06-29 15:01 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/2582746714.shtml)
-- 2026-06-29 14:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/931881144.shtml)
-- 2026-06-29 14:48 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/656347.shtml)
-- 2026-06-29 14:56 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/61330697106.shtml)
-- 2026-06-29 15:01 - [媒体：网络测评不能只剩“生意”](https://www.blog.minike.top/Article/details/588245.shtml)
-- 2026-06-29 15:07 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/57882515.shtml)
-- 2026-06-29 14:57 - [俄称继续推进 乌称打击俄军设施](https://www.blog.kurohicncr.top/Article/details/499205735033.shtml)
+- 2026-06-29 15:04 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/840719450.shtml)
+- 2026-06-29 15:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/271072.shtml)
+- 2026-06-29 15:11 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.kurohicncr.top/Article/details/78672.shtml)
+- 2026-06-29 14:56 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/461663129923.shtml)
+- 2026-06-29 15:07 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/730771140.shtml)
+- 2026-06-29 15:06 - [女心理师](https://www.share.minike.top/Article/details/16543614.shtml)
+- 2026-06-29 14:54 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/708186756.shtml)
+- 2026-06-29 14:57 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/4251977412.shtml)
+- 2026-06-29 15:09 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/201907.shtml)
+- 2026-06-29 14:58 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/52303143.shtml)
+- 2026-06-29 14:48 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/696016773366.shtml)
+- 2026-06-29 15:01 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/71243558.shtml)
+- 2026-06-29 15:17 - [Agent带来token消耗爆炸](https://www.blog.minike.top/Article/details/93510.shtml)
+- 2026-06-29 14:58 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/71426394789.shtml)
+- 2026-06-29 14:52 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/628728789181.shtml)

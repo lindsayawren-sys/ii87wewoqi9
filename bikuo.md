@@ -1,58 +1,61 @@
-# 碳酸锂继续大涨！华宝基金化工ETF（516020）盘中逆市涨近1%！机构：化工行业自由现金流有望持续增厚
+# 在美国开电动车每年或将多花130美元
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-化工板块今日（3月30日）震荡盘整，反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速冲高，盘中场内价格一度涨近1%，后有所回落，截至发稿，涨0.53%。 成份股方面，锂电、涂料、农药等板块部分个股涨幅居前。截至发稿，三棵树飙涨近6%，扬农化工大涨超4%，鲁西化工、华峰化学、卫星化学等多股涨超3%。 消息面上，广期所碳酸锂主力合约突破16万元/吨。东莞证券最新研报指
+为筹措公路养护资金，美国国会一项新法案拟对电动汽车车主征收年度费用 内容速览 美国众议院一项两党联合提案计划向电动汽车车主收取年度注册费，以此为公路基建项目筹集资金。 车主加油时，每加仑汽油缴纳的税费每年可为全美洲际公路养护提供 300 亿美元资金。但完全不使用汽油的电动汽车该如何承担道路使用成本？ 美国众议院一项提案若正式立法，全美电动汽车车主每年需缴纳一笔注册费，用于道路修
 
 ## 正文
 
-化工板块今日（3月30日）震荡盘整，反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速冲高，盘中场内价格一度涨近1%，后有所回落，截至发稿，涨0.53%。
+为筹措公路养护资金，美国国会一项新法案拟对电动汽车车主征收年度费用 内容速览 美国众议院一项两党联合提案计划向电动汽车车主收取年度注册费，以此为公路基建项目筹集资金。
 
-成份股方面，锂电、涂料、农药等板块部分个股涨幅居前。
+车主加油时，每加仑汽油缴纳的税费每年可为全美洲际公路养护提供 300 亿美元资金。
 
-截至发稿，三棵树飙涨近6%，扬农化工大涨超4%，鲁西化工、华峰化学、卫星化学等多股涨超3%。
+但完全不使用汽油的电动汽车该如何承担道路使用成本？
 
-消息面上，广期所碳酸锂主力合约突破16万元/吨。
+美国众议院一项提案若正式立法，全美电动汽车车主每年需缴纳一笔注册费，用于道路修缮。
 
-东莞证券最新研报指出，3月锂电池产业链排产显著复苏，4月预排产将环比继续提升，显示下游需求旺盛。
+不过电动车行业支持者认为，这项收费标准对车主而言负担过重。
 
-资源端津巴布韦锂矿出口禁令仍未解除，增加供给的不确定性，或为上游材料带来涨价支撑。
+该法案由密苏里州共和党众议员萨姆・格雷夫斯与华盛顿州民主党众议员里克・拉森联合发起，属于两党共同提案。
 
-全年来看，产业链供需格局有望继续趋于改善，量价齐升可期。
+法案拟定电动车年度注册费初始标准为130 美元，此后每两年上调一次，最终涨至 150 美元。
 
-展望后市，国海证券指出，国内化工行业未来新增产能审批难度提高，新增产能增速放缓，供给持续优化。
+仍需烧油、但燃油经济性优于传统燃油车的插电混动汽车车主也无法豁免，每年需缴纳 35 美元，后续逐步上调至 50 美元。
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 14:59 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 15:03 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 15:08 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 14:53 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 15:08 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 14:58 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 14:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 15:10 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 14:42 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 15:07 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 15:05 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 14:49 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 15:09 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 14:55 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 15:14 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 14:52 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 15:07 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 14:54 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 15:09 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 15:07 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 15:16 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 14:50 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 14:58 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 15:15 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 15:07 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 14:55 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/714294.shtml)
-- 2026-06-29 15:00 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/37435740.shtml)
-- 2026-06-29 15:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/80318386.shtml)
-- 2026-06-29 14:45 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/544961852962.shtml)
-- 2026-06-29 15:11 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/6810675555.shtml)
-- 2026-06-29 14:51 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/23871972311.shtml)
-- 2026-06-29 14:55 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/9778748.shtml)
-- 2026-06-29 15:02 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/955470.shtml)
-- 2026-06-29 14:56 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/765257.shtml)
-- 2026-06-29 14:53 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/11703483657.shtml)
-- 2026-06-29 14:54 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/80478756947.shtml)
-- 2026-06-29 14:50 - [美人鱼](https://www.blog.minike.top/Article/details/049884404588.shtml)
-- 2026-06-29 14:44 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/323083.shtml)
-- 2026-06-29 14:43 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/213411837507.shtml)
-- 2026-06-29 14:51 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/04636.shtml)
+- 2026-06-29 15:12 - [宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/352685427152.shtml)
+- 2026-06-29 15:07 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/2656066.shtml)
+- 2026-06-29 15:06 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/827344.shtml)
+- 2026-06-29 15:09 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/77164.shtml)
+- 2026-06-29 15:09 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.minike.top/Article/details/4086407849.shtml)
+- 2026-06-29 15:15 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/5472536.shtml)
+- 2026-06-29 14:58 - [袁隆平院士 不容诋毁！](https://www.share.minike.top/Article/details/3507240.shtml)
+- 2026-06-29 15:12 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/411287.shtml)
+- 2026-06-29 15:05 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/4590952649.shtml)
+- 2026-06-29 15:08 - [大范围炎热天气将至](https://www.blog.minike.top/Article/details/597727079.shtml)
+- 2026-06-29 15:17 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/292221956926.shtml)
+- 2026-06-29 14:48 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/33338.shtml)
+- 2026-06-29 15:15 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/7997413211.shtml)
+- 2026-06-29 15:17 - [女心理师](https://www.share.minike.top/Article/details/10387.shtml)
+- 2026-06-29 15:03 - [上海一小区水池内出现一条鳄鱼](https://www.share.kurohicncr.top/Article/details/667430.shtml)

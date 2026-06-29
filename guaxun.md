@@ -1,60 +1,56 @@
-# 巴菲特称仍在伯克希尔主导投资决策 透露进行了一笔“小额”新买入
+# 黑猫投诉4月数据说：受五一影响OTA投诉环比增长近三成
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-沃伦・巴菲特表示，即便已卸任首席执行官，他仍深度参与伯克希尔・哈撒韦的投资决策，并补充称近期完成了一笔“小额”新买入。 这位95岁的投资大师称，他仍每天到办公室上班，持续关注市场，并与同事共同开展交易操作。巴菲特介绍了自己的日常工作流程：开盘前会致电伯克希尔金融资产主管马克・米勒德，讨论市场走势。 他表示，米勒德的办公室距离他仅约20英尺，交易指令会根据两人沟通结果执行。这凸显
+黑猫大数据中心联合黑猫投诉 【下载黑猫投诉客户端】平台发布4月数据说，截至2026年4月底，黑猫投诉平台累计收到消费者有效投诉近3507万件，企业回复近2727万件，投诉解决超2311万件，其中4月有效投诉近90万件。 黑猫大数据中心依托消费投诉数据，从分布、趋势、行业热点问题等多个角度全面梳理、盘点消费者投诉情况及关注热点，全面客观地反映消费行业发展动态、热点舆情事件、企业服
 
 ## 正文
 
-沃伦・巴菲特表示，即便已卸任首席执行官，他仍深度参与伯克希尔・哈撒韦的投资决策，并补充称近期完成了一笔“小额”新买入。
+黑猫大数据中心联合黑猫投诉 【下载黑猫投诉客户端】平台发布4月数据说，截至2026年4月底，黑猫投诉平台累计收到消费者有效投诉近3507万件，企业回复近2727万件，投诉解决超2311万件，其中4月有效投诉近90万件。
 
-这位95岁的投资大师称，他仍每天到办公室上班，持续关注市场，并与同事共同开展交易操作。
+黑猫大数据中心依托消费投诉数据，从分布、趋势、行业热点问题等多个角度全面梳理、盘点消费者投诉情况及关注热点，全面客观地反映消费行业发展动态、热点舆情事件、企业服务质量。
 
-巴菲特介绍了自己的日常工作流程：开盘前会致电伯克希尔金融资产主管马克・米勒德，讨论市场走势。
+随着五一小长假临近，4月黑猫投诉平台旅游出行相关领域投诉增长显著。
 
-他表示，米勒德的办公室距离他仅约20英尺，交易指令会根据两人沟通结果执行。
+其中，OTA领域投诉近2万件，环比增长27.42%，投诉以酒店、机票预订为主，火车票投诉占比同比回落。
 
-这凸显出尽管2026年初已将CEO职位移交格雷格・阿贝尔，巴菲特仍亲自掌控投资事务。
+航司领域投诉超5000件，退改手续费乱象突出，油价上涨致使航班取消相关投诉增多。
 
-“我不会做任何格雷格认为错误的投资……格雷格每天都会收到投资持仓报表。
+此外，娱乐票务投诉环比大涨，演出门票不退票、高额退票费问题频发。
 
-”巴菲特表示。
+五一节前OTA投诉量增势迅猛 4月黑猫投诉平台OTA领域投诉量近2万件，环比增长27.42%。
 
-被问及是否有新投资时，他回应称近期进行了“一笔小额买入”，但未透露具体细节。
+投诉量变化与节假日节奏高度相关：月初，受清明节出行带动，投诉量小幅攀升；月中，进入五一出行预订高峰，消费者集中预订机票、酒店、门票，订单量激增直接推动投诉量显著上涨；月底，人们陆续启程前往目的地，出行需求集中释放，进一步带动投诉量快速走高。
 
 ## 相关推荐
 
-- 2026-06-29 14:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 14:44 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 15:02 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 14:47 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 14:47 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 14:58 - [唐艺昕女儿接唐艺昕回家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 14:59 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 14:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 14:56 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 15:08 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 15:08 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 14:47 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 14:52 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 14:55 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 14:52 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 14:58 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 15:16 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 14:56 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 15:02 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 14:50 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 15:12 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 14:51 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 14:51 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 14:52 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:09 - [流金岁月](https://www.share.minike.top/Article/details/6060874301.shtml)
-- 2026-06-29 14:49 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/198546.shtml)
-- 2026-06-29 14:43 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/313109237.shtml)
-- 2026-06-29 15:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/399018.shtml)
-- 2026-06-29 15:09 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/2883397.shtml)
-- 2026-06-29 14:54 - [东部机场集团新增釜山航线](https://www.share.kurohicncr.top/Article/details/811821.shtml)
-- 2026-06-29 14:42 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/423228.shtml)
-- 2026-06-29 14:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/9203512.shtml)
-- 2026-06-29 14:58 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/3644729629.shtml)
-- 2026-06-29 14:57 - [教育部发布高考志愿填报预警](https://www.share.kurohicncr.top/Article/details/4238811.shtml)
-- 2026-06-29 14:43 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/19299095813.shtml)
-- 2026-06-29 15:09 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/740561.shtml)
-- 2026-06-29 14:48 - [警方回应东鹏饮料董事长不喝东鹏](https://www.blog.minike.top/Article/details/9544096643.shtml)
-- 2026-06-29 14:46 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/42624994.shtml)
-- 2026-06-29 14:55 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/377748029.shtml)
+- 2026-06-29 15:01 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/146800063.shtml)
+- 2026-06-29 15:17 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.kurohicncr.top/Article/details/09454087469.shtml)
+- 2026-06-29 15:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/42635.shtml)
+- 2026-06-29 15:03 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/524729.shtml)
+- 2026-06-29 15:06 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/211166.shtml)
+- 2026-06-29 15:07 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/277359.shtml)
+- 2026-06-29 15:16 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/6911135.shtml)
+- 2026-06-29 14:53 - [世界杯十大帅哥必吃榜](https://www.blog.minike.top/Article/details/512519485722.shtml)
+- 2026-06-29 15:12 - [世界杯超牛补水广告出现了](http://www.blog.kurohicncr.top/Article/details/705234458.shtml)
+- 2026-06-29 14:57 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/30287859905.shtml)
+- 2026-06-29 15:12 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/008837318244.shtml)
+- 2026-06-29 15:03 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/07914700.shtml)
+- 2026-06-29 15:04 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/4110890884.shtml)
+- 2026-06-29 14:57 - [王楚钦3比0周启豪](https://www.blog.minike.top/Article/details/681586755.shtml)
+- 2026-06-29 14:48 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.kurohicncr.top/Article/details/302025539713.shtml)

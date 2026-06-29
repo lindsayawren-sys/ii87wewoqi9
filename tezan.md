@@ -1,57 +1,60 @@
-# 特朗普：美国撤离后霍尔木兹海峡将“自动”开放
+# 上海黄浦“星侨荟”换届焕新 启动“北极星传承计划”
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-在被问关于其考虑在未重新开放霍尔木兹海峡的情况下结束对伊行动的报道时，美国总统特朗普表示：“一旦我们离开，海峡就会自动重新开放。” 他说：“我认为它会自动开放，我的看法是，我们已经把这个国家摧毁了。他们已经没有实力了，让那些使用这条海峡的国家自己去把它打开。因为我想，无论是谁在控制石油，都会非常乐意重新开放这条海峡”。 特朗普还表示：“我们不会在那里停留太久，不过在消灭他们的进
+中新网上海5月19日电(范宇斌)19日，黄浦“星侨荟”换届焕新大会暨“北极星传承计划”启动仪式在上海市黄浦区举行。本次活动进一步夯实侨界青年联络平台，聚焦华裔新生代培育赋能，搭建海内外资源联动桥梁，助力侨界青年扎根上海、聚力发展。 作为上海中心城区核心区，黄浦区侨务资源富集、侨界精英荟萃，是海内外侨胞融入祖国发展的重要窗口。黄浦“星侨荟”作为凝聚华裔新生代、侨二代、家族企业传承
 
 ## 正文
 
-在被问关于其考虑在未重新开放霍尔木兹海峡的情况下结束对伊行动的报道时，美国总统特朗普表示：“一旦我们离开，海峡就会自动重新开放。
+中新网上海5月19日电(范宇斌)19日，黄浦“星侨荟”换届焕新大会暨“北极星传承计划”启动仪式在上海市黄浦区举行。
 
-” 他说：“我认为它会自动开放，我的看法是，我们已经把这个国家摧毁了。
+本次活动进一步夯实侨界青年联络平台，聚焦华裔新生代培育赋能，搭建海内外资源联动桥梁，助力侨界青年扎根上海、聚力发展。
 
-他们已经没有实力了，让那些使用这条海峡的国家自己去把它打开。
+作为上海中心城区核心区，黄浦区侨务资源富集、侨界精英荟萃，是海内外侨胞融入祖国发展的重要窗口。
 
-因为我想，无论是谁在控制石油，都会非常乐意重新开放这条海峡”。
+黄浦“星侨荟”作为凝聚华裔新生代、侨二代、家族企业传承人的核心平台，在赋能区域发展、开展民间外交、深化联络联谊等方面发挥重要作用。
 
-特朗普还表示：“我们不会在那里停留太久，不过在消灭他们的进攻能力、无论他们还剩下什么进攻能力方面，我们还有更多工作要做”。
+活动现场举行黄浦“星侨荟”理事会聘任仪式，上海新东苑投资集团有限公司总裁、上海悦星文旅投资控股有限公司总裁陈星言新任黄浦“星侨荟”会长。
 
-责任编辑：李桐
+陈星言表示，未来，黄浦“星侨荟”将紧扣上海对外开放战略与黄浦区发展定位，以“北极星传承计划”为核心抓手，精准培育侨界新生代力量；同时，持续深化中外合作交流，广泛汇聚侨智、贴心服务侨青，团结带领黄浦“星侨荟”成员，充分发挥侨界青年优势，为区域高质量发展贡献力量。
+
+当日，黄浦“星侨荟”全新打造的品牌项目——“北极星传承计划”正式启动。
+
+上海市侨联主席齐全胜，黄浦区委常委、黄浦海外联谊会会长陈颖，上海市侨联青年委员会会长姚珩，黄浦“星侨荟”名誉会长吴斌共同点亮启动装置。
 
 ## 相关推荐
 
-- 2026-06-29 14:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 14:46 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 15:06 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 15:00 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 14:58 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 15:00 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 14:51 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 15:07 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 15:10 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 15:10 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 14:50 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 14:57 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 14:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 15:03 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 15:04 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 15:00 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 14:50 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 14:53 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 15:09 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 15:08 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 14:59 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 15:06 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 15:12 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 15:02 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 15:01 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 15:10 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 15:05 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 14:55 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 15:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/50097730822.shtml)
-- 2026-06-29 15:02 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/2322768186.shtml)
-- 2026-06-29 14:55 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/07002616.shtml)
-- 2026-06-29 14:44 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/5664278.shtml)
-- 2026-06-29 15:09 - [海军舰艇编队将赴香港](http://www.blog.kurohicncr.top/Article/details/0834142284.shtml)
-- 2026-06-29 14:58 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/2695414482.shtml)
-- 2026-06-29 14:50 - [爸爸当家](https://www.share.minike.top/Article/details/130619937983.shtml)
-- 2026-06-29 14:45 - [迈巴赫提车第二天发现大灯起雾](http://www.share.minike.top/Article/details/9423665287.shtml)
-- 2026-06-29 15:02 - [以前不让妆女二可以艳压女主](https://www.blog.minike.top/Article/details/7753723183.shtml)
-- 2026-06-29 15:10 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/16611.shtml)
-- 2026-06-29 15:04 - [首尔商铺禁止洪明甫入内](http://www.blog.minike.top/Article/details/44175502678.shtml)
-- 2026-06-29 14:48 - [吴昕要助理买的药6年前已停产](https://www.blog.kurohicncr.top/Article/details/687306295.shtml)
-- 2026-06-29 14:51 - [久坐小心“死臀综合征”](http://www.share.minike.top/Article/details/7053871.shtml)
-- 2026-06-29 15:08 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/2665860226.shtml)
-- 2026-06-29 14:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/4033231.shtml)
+- 2026-06-29 15:01 - [行程万里不忘初心](http://www.blog.minike.top/Article/details/71575.shtml)
+- 2026-06-29 15:08 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.minike.top/Article/details/17264152.shtml)
+- 2026-06-29 15:09 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/019735248.shtml)
+- 2026-06-29 15:01 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/124755.shtml)
+- 2026-06-29 15:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/8072062.shtml)
+- 2026-06-29 15:17 - [大范围炎热天气将至](https://www.blog.kurohicncr.top/Article/details/263098192.shtml)
+- 2026-06-29 15:00 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/7991635.shtml)
+- 2026-06-29 14:52 - [NBA交易](http://www.blog.minike.top/Article/details/20571.shtml)
+- 2026-06-29 14:54 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/3866507134.shtml)
+- 2026-06-29 15:12 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/37576249042.shtml)
+- 2026-06-29 15:01 - [崔韩率还以为韩娱来新人了](https://www.share.minike.top/Article/details/34439.shtml)
+- 2026-06-29 14:49 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/138315213274.shtml)
+- 2026-06-29 15:01 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/723572.shtml)
+- 2026-06-29 14:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/6539871058.shtml)
+- 2026-06-29 14:48 - [把古诗里的动作换成加班](https://www.share.minike.top/Article/details/79091.shtml)

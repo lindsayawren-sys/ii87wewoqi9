@@ -1,54 +1,52 @@
-# 美国原油期货收于52周新高，特朗普设定的最后期限在即
+# 第一拖拉机股份拟1979.25万元收购黑龙江北大荒垦征农机装备39%股权
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-周二，美国石油期货连续第三个交易日上涨，结算价报每桶约113美元。这不仅创下52周新高，也是自2022年6月以来的最高结算水平。 此番行情凸显出，市场对中东地区的消息面依然高度敏感。美国总统特朗普为伊朗设定的最后期限是晚上8点，随著这一时刻的临近，投资者正惴惴不安。交易员们正在权衡，是该为冲突的显著升级做准备，还是押注特朗普会再次收回其最极端的威胁。责任编辑：李桐
+第一拖拉机股份（00038）发布公告，公司已获悉成功中标销售股权，最终竞投价格为人民币1979.25万元。于2026年5月18日，公司与智能研究院公司订立股权转让协议，据此，智能研究院公司已同意出售而公司已同意按最终竞投价格购买目标公司黑龙江北大荒垦征农机装备有限公司的39%股权。 此次股权投资有助于深化公司与北大荒农垦集团有限公司合作关系，回应国家“建设大型大马力高端智慧农机
 
 ## 正文
 
-周二，美国石油期货连续第三个交易日上涨，结算价报每桶约113美元。
+第一拖拉机股份（00038）发布公告，公司已获悉成功中标销售股权，最终竞投价格为人民币1979.25万元。
 
-这不仅创下52周新高，也是自2022年6月以来的最高结算水平。
+于2026年5月18日，公司与智能研究院公司订立股权转让协议，据此，智能研究院公司已同意出售而公司已同意按最终竞投价格购买目标公司黑龙江北大荒垦征农机装备有限公司的39%股权。
 
-此番行情凸显出，市场对中东地区的消息面依然高度敏感。
+此次股权投资有助于深化公司与北大荒农垦集团有限公司合作关系，回应国家“建设大型大马力高端智慧农机装备研发制造推广应用先导区”政策，依托北大荒农垦集团有限公司高端智慧农机装备的规模化应用场景，持续优化核心技术性能，加速推进公司高端产品的研发、制造、推广、应用，更好地服务及保障国家粮食安全。
 
-美国总统特朗普为伊朗设定的最后期限是晚上8点，随著这一时刻的临近，投资者正惴惴不安。
-
-交易员们正在权衡，是该为冲突的显著升级做准备，还是押注特朗普会再次收回其最极端的威胁。
-
-责任编辑：李桐
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:51 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 15:01 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 14:43 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 15:05 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 15:09 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 15:02 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 14:44 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 14:44 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 14:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 14:46 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 14:46 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 14:48 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 15:07 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 14:52 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 15:15 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 14:56 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 15:04 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 15:14 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 15:01 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 14:55 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 15:02 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 15:02 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 14:58 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 15:14 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 15:11 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 14:55 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:04 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/0961415526.shtml)
-- 2026-06-29 15:11 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/33441419122.shtml)
-- 2026-06-29 14:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/8070850372.shtml)
-- 2026-06-29 15:08 - [金刚川](http://www.share.kurohicncr.top/Article/details/2263250548.shtml)
-- 2026-06-29 14:57 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/46651014.shtml)
-- 2026-06-29 15:06 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.minike.top/Article/details/05504.shtml)
-- 2026-06-29 14:56 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/930441.shtml)
-- 2026-06-29 14:51 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/62371.shtml)
-- 2026-06-29 14:46 - [周生如故](http://www.blog.kurohicncr.top/Article/details/493926915.shtml)
-- 2026-06-29 15:07 - [美国近12万名科技员工被解雇](http://www.blog.minike.top/Article/details/0898326.shtml)
-- 2026-06-29 14:46 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/100514174.shtml)
-- 2026-06-29 15:02 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/0733044.shtml)
-- 2026-06-29 14:58 - [俄军新型无人机战力如何](http://www.blog.kurohicncr.top/Article/details/36189189.shtml)
-- 2026-06-29 14:58 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/8638930.shtml)
-- 2026-06-29 14:44 - [宜宾5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/1479086467.shtml)
+- 2026-06-29 14:58 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/944393464.shtml)
+- 2026-06-29 15:09 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/49177009202.shtml)
+- 2026-06-29 14:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/840395446.shtml)
+- 2026-06-29 15:06 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/144922.shtml)
+- 2026-06-29 14:54 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/731926.shtml)
+- 2026-06-29 15:01 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/70840925.shtml)
+- 2026-06-29 14:51 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/44655476.shtml)
+- 2026-06-29 14:48 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/345887008876.shtml)
+- 2026-06-29 15:06 - [行程万里不忘初心](http://www.share.minike.top/Article/details/62739.shtml)
+- 2026-06-29 15:08 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/87121989976.shtml)
+- 2026-06-29 14:58 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.kurohicncr.top/Article/details/53377.shtml)
+- 2026-06-29 14:56 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/2547992.shtml)
+- 2026-06-29 15:10 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/1411708483.shtml)
+- 2026-06-29 14:58 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/119624812.shtml)
+- 2026-06-29 15:08 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/4831050.shtml)

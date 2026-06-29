@@ -1,60 +1,58 @@
-# 礼来深化AI制药布局，与英矽智能达成新协议，交易总价值可达27.5亿美元
+# 理财节扎堆，银行、理财子花式“揽客”！产品上新、费率优惠、线上线下联动......
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-礼来通过与英矽智能（Insilico）达成一项潜在价值高达27.5亿美元的新协议，扩大了其在药物研发领域的人工智能战略。 该协议授予礼来在全球范围内开发及销售合作产生的任何疗法的独家权利。英矽智能将获得一笔预付款，此外还可能根据未来的进展获得里程碑付款和特许权使用费。 该协议拓展了双方始于2023年的合作，表明礼来比以往任何时候都更坚定地在研发中采用人工智能。英矽智能以其利用人
+财联社5月19日讯 （编辑 王蔚）进入5月中下旬，多家银行及理财机构扎堆开启“理财节”活动。从产品上新、费率优惠，到线上线下联动、资产配置方案定制，各家机构围绕客户理财需求展开新一轮“花式揽客”，试图在利率下行、资产荒持续的背景下，为投资者提供更多元、更稳健的财富管理选择。 恒丰银行近日启动理财节，期间定期发布新品，同时加大保险、基金、贵金属、商业养老金等产品的推广力度。其苏州
 
 ## 正文
 
-礼来通过与英矽智能（Insilico）达成一项潜在价值高达27.5亿美元的新协议，扩大了其在药物研发领域的人工智能战略。
+财联社5月19日讯 （编辑 王蔚）进入5月中下旬，多家银行及理财机构扎堆开启“理财节”活动。
 
-该协议授予礼来在全球范围内开发及销售合作产生的任何疗法的独家权利。
+从产品上新、费率优惠，到线上线下联动、资产配置方案定制，各家机构围绕客户理财需求展开新一轮“花式揽客”，试图在利率下行、资产荒持续的背景下，为投资者提供更多元、更稳健的财富管理选择。
 
-英矽智能将获得一笔预付款，此外还可能根据未来的进展获得里程碑付款和特许权使用费。
+恒丰银行近日启动理财节，期间定期发布新品，同时加大保险、基金、贵金属、商业养老金等产品的推广力度。
 
-该协议拓展了双方始于2023年的合作，表明礼来比以往任何时候都更坚定地在研发中采用人工智能。
+其苏州分行重点推出的代销产品中，保险类产品的管理费已由0.8%/年临时优惠至0.6%/年，在费用端主动让利。
 
-英矽智能以其利用人工智能比传统方法更快地发现生物靶点和构建潜在治疗方法而闻名。
+苏银理财则是第五届举办“518理财节”，产品线覆盖短期周转、中期配置、长期增值及收益进阶等多种类型，力图满足不同风险偏好和资金使用周期的客户需求。
 
-这一合作的时机对礼来至关重要。
+上海银行于5月18日正式启动“518财富理想节”，打法更为系统。
 
-该公司在肥胖症领域的药物组合正带来巨额收入，而它正将这笔资金用于收购工具，以助力其进一步扩张。
+产品方面，除推出专属理财产品、加大稀缺资源类产品供给外，还集中上架多款保险产品，覆盖健康保障、养老规划、财富传承等场景。
 
-人工智能如今已成为这一努力的重要组成部分，此外还有对更多算力和研究的投入。
+更值得关注的是，该行针对两类特定客群推出了精细化的配置方案：一是针对理财持仓需要调换的客户，提供专属产品与资金承接方案，帮助资金平稳过渡；二是针对长期存款面临到期的客户，提供多元化的财富配置方案，协助客户在收益性与流动性之间做合理平衡。
 
 ## 相关推荐
 
-- 2026-06-29 14:59 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 15:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 14:47 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 15:07 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 14:54 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 14:47 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 14:46 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 14:59 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 15:10 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 14:54 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 15:06 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 14:50 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 14:57 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 15:08 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 14:52 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 15:06 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 15:04 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 15:05 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 15:03 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 15:06 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 15:15 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 14:48 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 15:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 15:04 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 15:17 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 14:51 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:58 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/43553339.shtml)
-- 2026-06-29 15:08 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/7935824.shtml)
-- 2026-06-29 14:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/58182902370.shtml)
-- 2026-06-29 15:08 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/75822388735.shtml)
-- 2026-06-29 15:05 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/45153.shtml)
-- 2026-06-29 14:43 - [中餐厅南北饮食差异](http://www.blog.minike.top/Article/details/567509914.shtml)
-- 2026-06-29 14:54 - [事关个税 明日截止请抓紧办理](http://www.blog.kurohicncr.top/Article/details/9269836.shtml)
-- 2026-06-29 15:09 - [新一代影后杨紫](http://www.share.kurohicncr.top/Article/details/2052518406.shtml)
-- 2026-06-29 14:50 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/507943934.shtml)
-- 2026-06-29 15:07 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/385387044033.shtml)
-- 2026-06-29 14:47 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/65357433.shtml)
-- 2026-06-29 15:06 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/693662087.shtml)
-- 2026-06-29 14:43 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/0757608.shtml)
-- 2026-06-29 14:47 - [教育部发布高考志愿填报预警](https://www.share.kurohicncr.top/Article/details/3989023808.shtml)
-- 2026-06-29 14:49 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/528729.shtml)
+- 2026-06-29 14:50 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/943994655775.shtml)
+- 2026-06-29 14:55 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.kurohicncr.top/Article/details/90144.shtml)
+- 2026-06-29 15:08 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/809773.shtml)
+- 2026-06-29 15:00 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/207777.shtml)
+- 2026-06-29 14:57 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/2838290053.shtml)
+- 2026-06-29 15:08 - [叶一茜森碟一起回北京了](http://www.blog.minike.top/Article/details/9182033.shtml)
+- 2026-06-29 15:13 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/44256453.shtml)
+- 2026-06-29 15:00 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/647038.shtml)
+- 2026-06-29 15:11 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/131741911.shtml)
+- 2026-06-29 15:11 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/78500548.shtml)
+- 2026-06-29 15:10 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/8461894965.shtml)
+- 2026-06-29 15:05 - [毒液2](https://www.blog.minike.top/Article/details/7133778686.shtml)
+- 2026-06-29 15:10 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/2655112148.shtml)
+- 2026-06-29 14:51 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/6856299.shtml)
+- 2026-06-29 14:48 - [世界杯看到肖战了](http://www.blog.minike.top/Article/details/41874.shtml)

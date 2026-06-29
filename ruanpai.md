@@ -1,51 +1,58 @@
-# 凯莱英获Schroders PLC增持8.85万股 每股作价约79.03港元
+# 特朗普：或将再次“沉重打击”伊朗！以色列一处“铁穹”被摧毁！美国公布新一轮制裁名单！大A延续结构行情
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，3月26日，Schroders PLC增持凯莱英（06821）8.85万股，每股作价79.0296港元，总金额约为699.41万港元。增持后最新持股数目为562.14万股，持股比例为20.2%。责任编辑：卢昱君
+来源：期货日报 各位粉丝，早上好！ 截至5月19日收盘，纽约现货黄金价格下跌1.83%，报4482.85美元/盎司；COMEX黄金期货价格跌1.57%，报4486.30美元/盎司。纽约现货白银价格跌5.13%，报73.7275美元/盎司；COMEX白银期货价格跌4.37%，报74.060美元/盎司。 沪金期货主力合约夜盘疑似上演“乌龙指”，盘中一度暴跌约17%，最低触及830.
 
 ## 正文
 
-香港联交所最新资料显示，3月26日，Schroders PLC增持凯莱英（06821）8.85万股，每股作价79.0296港元，总金额约为699.41万港元。
+来源：期货日报 各位粉丝，早上好！
 
-增持后最新持股数目为562.14万股，持股比例为20.2%。
+截至5月19日收盘，纽约现货黄金价格下跌1.83%，报4482.85美元/盎司；COMEX黄金期货价格跌1.57%，报4486.30美元/盎司。
 
-责任编辑：卢昱君
+纽约现货白银价格跌5.13%，报73.7275美元/盎司；COMEX白银期货价格跌4.37%，报74.060美元/盎司。
+
+沪金期货主力合约夜盘疑似上演“乌龙指”，盘中一度暴跌约17%，最低触及830.52元/克，随后价格快速回升收复失地，收盘报989.5元/克。
+
+为何瞬间暴跌？
+
+期货日报记者深夜赶稿，最新解读已发布在期货日报微信公众号，请你尝鲜。
+
+接下来，一起来看重要资讯。
+
+特朗普称美国或将再次“沉重打击”伊朗 据新华社报道，美国总统特朗普19日称，美国或将再次对伊朗发起“沉重打击”。
 
 ## 相关推荐
 
-- 2026-06-29 14:44 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 14:59 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 14:42 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 15:01 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 14:45 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 14:45 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 14:46 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-29 15:04 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 15:09 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 15:09 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 14:51 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 14:53 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 15:02 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 14:49 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 15:02 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 14:51 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 15:13 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 15:16 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 14:49 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 15:06 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 15:03 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 14:51 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 15:09 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 15:04 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 15:09 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 14:49 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 14:51 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:44 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/05643672.shtml)
-- 2026-06-29 14:51 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/64330.shtml)
-- 2026-06-29 15:01 - [事关个税 明日截止请抓紧办理](http://www.share.minike.top/Article/details/06971119959.shtml)
-- 2026-06-29 15:11 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/20761691400.shtml)
-- 2026-06-29 15:03 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/74306144357.shtml)
-- 2026-06-29 15:07 - [李在明称韩国足协任命了无能之人](http://www.blog.minike.top/Article/details/54618127599.shtml)
-- 2026-06-29 15:06 - [双高胎](http://www.share.kurohicncr.top/Article/details/55442385.shtml)
-- 2026-06-29 14:42 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/40729444.shtml)
-- 2026-06-29 14:51 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/56533487488.shtml)
-- 2026-06-29 14:59 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/83623410595.shtml)
-- 2026-06-29 15:04 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/199545499987.shtml)
-- 2026-06-29 14:42 - [双高胎](http://www.share.kurohicncr.top/Article/details/82747.shtml)
-- 2026-06-29 14:54 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.kurohicncr.top/Article/details/210968451839.shtml)
-- 2026-06-29 14:42 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/7881514.shtml)
-- 2026-06-29 14:52 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/649669764124.shtml)
+- 2026-06-29 14:49 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/01169901.shtml)
+- 2026-06-29 15:05 - [金牌调解](https://www.blog.minike.top/Article/details/8178188.shtml)
+- 2026-06-29 15:11 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.kurohicncr.top/Article/details/679770.shtml)
+- 2026-06-29 15:09 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/677639976781.shtml)
+- 2026-06-29 15:13 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.minike.top/Article/details/198001228.shtml)
+- 2026-06-29 15:03 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/85587.shtml)
+- 2026-06-29 14:58 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/5715446.shtml)
+- 2026-06-29 14:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/200907.shtml)
+- 2026-06-29 14:56 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/0420222.shtml)
+- 2026-06-29 15:01 - [世界杯用球成部分门将噩梦](http://www.share.kurohicncr.top/Article/details/188131.shtml)
+- 2026-06-29 14:58 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/446848376.shtml)
+- 2026-06-29 15:15 - [森保一：日本队要亲手改写历史](http://www.share.kurohicncr.top/Article/details/5194630147.shtml)
+- 2026-06-29 14:48 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/59883.shtml)
+- 2026-06-29 15:05 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/143730204832.shtml)
+- 2026-06-29 15:05 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/521388433174.shtml)

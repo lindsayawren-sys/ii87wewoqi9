@@ -1,59 +1,58 @@
-# 涉人员管理及内控销售等问题，华夏基金及高管被出具警示函，已完成全面整改
+# 蔡徐坤正式担任林里LINLEE全球品牌代言人
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 原标题：19家公募披露去年罚单：合规内控成“重灾区”，多家被暂停产品注册 伴随着公募产品2025年报的集中披露，过去一年基金公司受到监管处罚的情况曝光。 据澎湃新闻记者不完全统计，2025年全年，至少有19家公募收到来自监管部门出具的警示函、责令改正通知书等行政监管措施，部分公募还面临暂停产品注册或业务申请的处罚。从处罚原因来看
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月19日，日前，现制手打柠檬茶品牌林里LINLEE正式宣布蔡徐坤成为林里全球品牌代言人，同时还特别推出代言人限定典藏礼盒。 在产品端，焕新升级的林里招牌手打柠檬茶茶底选用斯里兰卡高海拔限定庄园茶叶，坚持“小壶小火慢煮”与“八手拉茶，五次过滤”的工艺，呈现三段式层次结构。 在香水柠檬端，林里合作香水柠檬果园
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 原标题：19家公募披露去年罚单：合规内控成“重灾区”，多家被暂停产品注册 伴随着公募产品2025年报的集中披露，过去一年基金公司受到监管处罚的情况曝光。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据澎湃新闻记者不完全统计，2025年全年，至少有19家公募收到来自监管部门出具的警示函、责令改正通知书等行政监管措施，部分公募还面临暂停产品注册或业务申请的处罚。
+5月19日，日前，现制手打柠檬茶品牌林里LINLEE正式宣布蔡徐坤成为林里全球品牌代言人，同时还特别推出代言人限定典藏礼盒。
 
-从处罚原因来看，内控管理不完善、合规内控缺陷、投资运作违规、公司治理及人员管理问题成为被监管点名的集中领域。
+在产品端，焕新升级的林里招牌手打柠檬茶茶底选用斯里兰卡高海拔限定庄园茶叶，坚持“小壶小火慢煮”与“八手拉茶，五次过滤”的工艺，呈现三段式层次结构。
 
-多家头部机构在列 在已披露的信息中，多家头部公募基金公司在列。
+在香水柠檬端，林里合作香水柠檬果园超3万亩，年收果量2万吨。
 
-2025年11月5日，易方达基金因投资运作、合规内控、其他问题（销售管理），被广东证监局出具警示函。
+同时，还建立自有柠檬分拣中心，精选70-100克“一级果”，日均分拣10万斤，冷链覆盖全国80余城，柠檬在6℃-10℃恒温配送，核心城市24小时内到货。
 
-公司已及时通过完善制度、优化流程和系统功能等措施完成整改，整改成果已经监管部门验收通过。
+茶叶端，全资建立超7000平方米生产车间，日均产能超16000斤，保障茶汤的优质出品。
 
-据华夏基金旗下产品年报，2025年11月4日，华夏基金因人员管理、其他问题（内部控制、销售管理等），被北京证监局出具警示函。
+2026年1月，林里在广州举办品牌3.0焕新升级发布会，正式官宣“大柠檬锤醒人生”全新品牌理念，发布会同步呈现林里鸭IP全新形象。
 
-同年12月26日，公司一位高级管理人员也因上述问题被出具警示函。
+公开信息显示，2025年林里门店数量突破2000家，覆盖超190个城市，全年GMV超过27亿元，消费者复购率稳居27%。
 
 ## 相关推荐
 
-- 2026-06-29 14:50 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-29 14:54 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 14:45 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 14:59 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 14:51 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 14:55 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 15:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 15:04 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 14:47 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 14:43 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 15:07 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 15:01 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 14:42 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 14:53 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 14:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 15:16 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 15:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 15:02 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 14:49 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 15:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 15:09 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 14:58 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 15:16 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 15:02 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 15:14 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:53 - [日本主帅：目标是冠军](https://www.blog.kurohicncr.top/Article/details/9218862966.shtml)
-- 2026-06-29 14:48 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/05507910.shtml)
-- 2026-06-29 15:09 - [AG 宫斗](https://www.blog.minike.top/Article/details/3882954701.shtml)
-- 2026-06-29 14:48 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/771591078.shtml)
-- 2026-06-29 14:48 - [高考志愿今起开始填报](http://www.blog.kurohicncr.top/Article/details/28865246646.shtml)
-- 2026-06-29 14:49 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/345181205.shtml)
-- 2026-06-29 14:55 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/042456756527.shtml)
-- 2026-06-29 14:56 - [行程万里不忘初心](https://www.share.minike.top/Article/details/57071.shtml)
-- 2026-06-29 14:59 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/84432.shtml)
-- 2026-06-29 14:53 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/506889.shtml)
-- 2026-06-29 15:07 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/84732074022.shtml)
-- 2026-06-29 14:57 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/548499537977.shtml)
-- 2026-06-29 14:48 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/60534801319.shtml)
-- 2026-06-29 15:08 - [欧委会总部只给高层开空调](https://www.blog.kurohicncr.top/Article/details/6775571.shtml)
-- 2026-06-29 14:51 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/70657.shtml)
+- 2026-06-29 15:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/8441287172.shtml)
+- 2026-06-29 14:58 - [巴基斯坦军方打死29名武装分子](http://www.share.minike.top/Article/details/3723388.shtml)
+- 2026-06-29 15:01 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/877847.shtml)
+- 2026-06-29 15:10 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.kurohicncr.top/Article/details/613710715.shtml)
+- 2026-06-29 14:54 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/52354350.shtml)
+- 2026-06-29 14:49 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/903959658200.shtml)
+- 2026-06-29 14:49 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/7469209182.shtml)
+- 2026-06-29 15:02 - [南非老帅布罗斯的梦没能做完](http://www.share.minike.top/Article/details/8655494311.shtml)
+- 2026-06-29 14:51 - [上海一小区水池内出现一条鳄鱼](https://www.share.minike.top/Article/details/45054339.shtml)
+- 2026-06-29 14:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/1948234705.shtml)
+- 2026-06-29 14:55 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/10725.shtml)
+- 2026-06-29 15:12 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/597998263.shtml)
+- 2026-06-29 15:07 - [中方回应对日本相关出口管制措施](https://www.share.kurohicncr.top/Article/details/64766.shtml)
+- 2026-06-29 14:56 - [詹俊预测德国大胜巴拉圭](https://www.blog.kurohicncr.top/Article/details/652059.shtml)
+- 2026-06-29 15:16 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/69949103.shtml)

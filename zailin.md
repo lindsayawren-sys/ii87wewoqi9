@@ -1,57 +1,58 @@
-# 亚洲数国干预债市 抑制因能源危机而飙升的收益率
+# Bimzelx头对头III期研究告捷，斑块状银屑病关节炎指标显著优于Skyrizi
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-在亚洲各地，本月债券收益率飙升引发了加码购债，政府纷纷寻求限制能源价格上涨对本地借贷成本的影响。 从韩国到印度再到印度尼西亚，政府和央行都在向债券市场投放资金，试图抑制已然升至多年高位的收益率。市场担心油价上涨将拖累这些能源净进口国的经济，当地收益率因此持续攀升。 韩国政府上周宣布，它将在两个交易日内合计买入5万亿韩元（33亿美元）的主权债券。印度央行宣布，本月将从公开市场买入
+ACR50关节获益达统计学意义 比利时生物制药企业优时比（UCB）公布了其IL-17A/IL-17F抑制剂Bimzelx®的III期BE BOLD研究详细数据。结果显示，Bimzelx在治疗活动性银屑病关节炎患者的关键指标上，击败了艾伯维的重磅IL-23抑制剂Skyrizi®。 数据显示，在16周时，Bimzelx组有49.1%的患者达到了严格的ACR50反应，而Skyrizi
 
 ## 正文
 
-在亚洲各地，本月债券收益率飙升引发了加码购债，政府纷纷寻求限制能源价格上涨对本地借贷成本的影响。
+ACR50关节获益达统计学意义 比利时生物制药企业优时比（UCB）公布了其IL-17A/IL-17F抑制剂Bimzelx®的III期BE BOLD研究详细数据。
 
-从韩国到印度再到印度尼西亚，政府和央行都在向债券市场投放资金，试图抑制已然升至多年高位的收益率。
+结果显示，Bimzelx在治疗活动性银屑病关节炎患者的关键指标上，击败了艾伯维的重磅IL-23抑制剂Skyrizi®。
 
-市场担心油价上涨将拖累这些能源净进口国的经济，当地收益率因此持续攀升。
+数据显示，在16周时，Bimzelx组有49.1%的患者达到了严格的ACR50反应，而Skyrizi组这一比例为38.4%，Bimzelx成为首个在银屑病关节炎头对头研究中证明关节结局优越性的获批生物制剂。
 
-韩国政府上周宣布，它将在两个交易日内合计买入5万亿韩元（33亿美元）的主权债券。
+早期起效与多重指标优势 研究还观察到，Bimzelx展现出了更快的起效速度。
 
-印度央行宣布，本月将从公开市场买入1万亿卢比（106亿美元）的债券。
+早在治疗第4周，Bimzelx组达到ACR50的患者比例便显著高于Skyrizi组。
 
-印尼央行已发出继续干预政府债券市场的信号。
+虽然关键次要终点在预设的统计检验层级中未达显著性，但Bimzelx在所有次要终点上均显示出数值上的优势。
 
-市场计入了油价上涨和供应链中断的更持久溢出效应，“官方购买债券更应该被视为限制市场无序波动之举”，安本驻新加坡的投资经理Fesa Wibawa称。
+在同时患有银屑病的患者亚组中，Bimzelx组有53.4%的患者在第16周实现了皮损完全清除，而Skyrizi组为46.6%。
 
-他说：“我们不排除亚洲各地还会采取进一步干预措施，尤其是在市场局部出现压力，且当局认为他们有足够的政策空间来应对的情况下。
+安全性分析 在安全性方面，研究未发现新的安全信号。
 
 ## 相关推荐
 
-- 2026-06-29 14:49 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 15:04 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 14:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 15:01 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 14:50 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 14:42 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 14:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 15:05 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 15:06 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 14:56 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 15:10 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 15:14 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 14:51 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 14:55 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 14:48 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 15:04 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 14:52 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 14:48 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 15:11 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 15:06 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 15:11 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 15:06 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 15:01 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:44 - [比亚迪为什么卖得越多市值越低](http://www.blog.kurohicncr.top/Article/details/22883286.shtml)
-- 2026-06-29 15:04 - [媒体：网络测评不能只剩“生意”](http://www.blog.kurohicncr.top/Article/details/11507.shtml)
-- 2026-06-29 15:08 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/02761138.shtml)
-- 2026-06-29 14:55 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/3518338.shtml)
-- 2026-06-29 14:44 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/221995853.shtml)
-- 2026-06-29 15:06 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/2328326046.shtml)
-- 2026-06-29 14:44 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/91643.shtml)
-- 2026-06-29 14:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/951959233091.shtml)
-- 2026-06-29 14:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/01176652.shtml)
-- 2026-06-29 14:49 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/987500.shtml)
-- 2026-06-29 15:04 - [医药股集体爆发](http://www.share.kurohicncr.top/Article/details/008870.shtml)
-- 2026-06-29 14:55 - [国家体育总局政策法规司原副司长获刑](http://www.blog.minike.top/Article/details/242684.shtml)
-- 2026-06-29 15:08 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/138687410477.shtml)
-- 2026-06-29 14:53 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/040682.shtml)
-- 2026-06-29 14:55 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/842029270022.shtml)
+- 2026-06-29 15:08 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/313051.shtml)
+- 2026-06-29 15:13 - [教育部发布高考志愿填报预警](https://www.share.kurohicncr.top/Article/details/75469.shtml)
+- 2026-06-29 15:05 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/9398845.shtml)
+- 2026-06-29 14:49 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/902505.shtml)
+- 2026-06-29 15:11 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/0359830885.shtml)
+- 2026-06-29 14:49 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.kurohicncr.top/Article/details/766029184.shtml)
+- 2026-06-29 15:07 - [高考公平需要延伸到志愿填报这一环](http://www.share.kurohicncr.top/Article/details/15723.shtml)
+- 2026-06-29 15:03 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/57357103.shtml)
+- 2026-06-29 15:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/11274.shtml)
+- 2026-06-29 14:50 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/7387876.shtml)
+- 2026-06-29 15:05 - [比亚迪市值为何蒸发8000亿](https://www.share.minike.top/Article/details/57278016.shtml)
+- 2026-06-29 15:15 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/24016566881.shtml)
+- 2026-06-29 15:13 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/314338.shtml)
+- 2026-06-29 15:14 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/2992007.shtml)
+- 2026-06-29 15:11 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/01140.shtml)

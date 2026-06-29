@@ -1,60 +1,50 @@
-# 上海出台新规“松绑”国资基金：强调领投能力，畅通退出渠道
+# 习近平：中俄关系进入更有作为、更快发展的新阶段
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-上海出台16条举措为国资基金松绑。 4月7日，上海市国资委出台《关于进一步推动市国资委监管企业私募股权投资基金高质量发展的指导意见》（以下简称《指导意见》），从强导向、提能力、优机制3方面形成16条工作举措，推动国有资本成为服务产业发展的长期资本、耐心资本、战略资本。一是强化市场化、法治化、专业化导向，二是提升募投管退能力，三是完善基金管理机制。 澎湃新闻记者根据《指导意见》梳
+中新社北京5月20日电 5月20日上午，中国国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。 习近平指出，近年来，面对变乱交织的国际形势，中俄两国坚持在平等相待、相互尊重、重信守义、合作共赢的基础上发展新时代全面战略协作伙伴关系，双方政治互信不断深化，经贸、投资、能源、科技、人文、地方等合作持续推进，民心相通更加牢固。中俄关系进入更有作为、更快发展的新
 
 ## 正文
 
-上海出台16条举措为国资基金松绑。
+中新社北京5月20日电 5月20日上午，中国国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。
 
-4月7日，上海市国资委出台《关于进一步推动市国资委监管企业私募股权投资基金高质量发展的指导意见》（以下简称《指导意见》），从强导向、提能力、优机制3方面形成16条工作举措，推动国有资本成为服务产业发展的长期资本、耐心资本、战略资本。
+习近平指出，近年来，面对变乱交织的国际形势，中俄两国坚持在平等相待、相互尊重、重信守义、合作共赢的基础上发展新时代全面战略协作伙伴关系，双方政治互信不断深化，经贸、投资、能源、科技、人文、地方等合作持续推进，民心相通更加牢固。
 
-一是强化市场化、法治化、专业化导向，二是提升募投管退能力，三是完善基金管理机制。
+中俄关系进入更有作为、更快发展的新阶段。
 
-澎湃新闻记者根据《指导意见》梳理了六大要点。
-
-要点一：锚定三大导向 《指导意见》与前期出台的《市国资委监管企业私募股权投资基金业务管理办法》（以下简称《基金管理办法》）、《市国资委监管企业私募股权投·资基金考核评价及尽职免责试行办法》（以下简称《考核评价和尽职免责办法》）形成相互支撑、有机衔接的“三位一体”服务基金高质量发展的监管制度体系。
-
-上海市国资委表示，私募股权投资基金本质上是通过专业管理权与资本所有权相分离的治理结构设计，形成的市场化金融产品。
-
-《指导意见》《指导意见》坚守产品初心，遵循内在逻辑，进一步强化市场化、法治化、专业化导向，是基金制度的应有之义，也是贯穿始终的政策主线。
-
-一是市场化。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:53 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 14:49 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 14:50 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 14:53 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 15:09 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 14:59 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 15:08 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 15:05 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 14:43 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 15:08 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 14:44 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 15:06 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 15:11 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 15:01 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 15:02 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 14:48 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 15:08 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 15:05 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 14:51 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 15:04 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 15:09 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 15:10 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 15:12 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 15:06 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 15:06 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 15:08 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:54 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/70238401.shtml)
-- 2026-06-29 15:05 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/46940.shtml)
-- 2026-06-29 15:09 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/11077801.shtml)
-- 2026-06-29 14:55 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/0915921.shtml)
-- 2026-06-29 15:02 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/393700.shtml)
-- 2026-06-29 14:58 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/76553.shtml)
-- 2026-06-29 14:56 - [北极荒岛生存挑战](http://www.share.minike.top/Article/details/4687013390.shtml)
-- 2026-06-29 15:09 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/359246992698.shtml)
-- 2026-06-29 15:08 - [金刚川](https://www.blog.kurohicncr.top/Article/details/353972261523.shtml)
-- 2026-06-29 14:55 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/75178131338.shtml)
-- 2026-06-29 15:04 - [普京介绍前线战事](http://www.share.minike.top/Article/details/853375.shtml)
-- 2026-06-29 15:05 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/621518.shtml)
-- 2026-06-29 14:48 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.minike.top/Article/details/934436293.shtml)
-- 2026-06-29 14:43 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.minike.top/Article/details/19823822.shtml)
-- 2026-06-29 14:54 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/6065746.shtml)
+- 2026-06-29 15:01 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/122723149333.shtml)
+- 2026-06-29 14:59 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/020438650818.shtml)
+- 2026-06-29 15:06 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/5829708.shtml)
+- 2026-06-29 14:56 - [吴昕要助理买的药6年前已停产](https://www.share.kurohicncr.top/Article/details/4484644.shtml)
+- 2026-06-29 15:03 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/39004.shtml)
+- 2026-06-29 15:04 - [上班主打一个薪尽自然凉](http://www.blog.minike.top/Article/details/88336907.shtml)
+- 2026-06-29 14:53 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/79050.shtml)
+- 2026-06-29 14:49 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/6851561307.shtml)
+- 2026-06-29 14:51 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/132792.shtml)
+- 2026-06-29 15:04 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/74364517432.shtml)
+- 2026-06-29 15:16 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/6396126.shtml)
+- 2026-06-29 14:48 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/9984831.shtml)
+- 2026-06-29 15:08 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/08725286524.shtml)
+- 2026-06-29 15:06 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/9511515047.shtml)
+- 2026-06-29 14:48 - [爱很美味](http://www.share.kurohicncr.top/Article/details/58070321.shtml)

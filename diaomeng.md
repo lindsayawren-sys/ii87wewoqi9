@@ -1,52 +1,49 @@
-# 粤港湾控股发布年度业绩 股东应占溢利7304.9万元同比扭亏为盈
+# 晋艺坊赴美拓市场 以匠心架起中外文化桥梁
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-粤港湾控股（01396）发布截至2025年12月31日止年度全年业绩，集团收入人民币10.03亿元；股东应占溢利7304.9万元，同比扭亏为盈；每股基本盈利8.4分。 2025年10月，本集团成功完成对国内算力技术服务头部企业“深圳天顿数据科技有限公司”（“天顿数据”）的全面收购，标志着本集团正式从“传统产城开发运营商”跨越至“AI算力基建运营商”。得益于境外美元债重组的成功实
+中新网5月19日电 近日，“三晋老字号”晋艺坊远赴美国芝加哥麦考密会展中心，参加芝加哥国际酒店用品餐饮博览会。展会现场，晋艺坊与美国中餐联盟正式签订战略合作协议，借助专业平台顺利进军美国市场。 晋艺坊源自山西晋城，深耕千年冶铁技艺，深挖本土历史底蕴，倾力传承晋城冶铁文化、晋商万里茶道文化，将传统匠心工艺与地域文化精髓相融。 此次海外参展，晋艺坊不仅推动晋城铁壶、铸铁厨具走向国际
 
 ## 正文
 
-粤港湾控股（01396）发布截至2025年12月31日止年度全年业绩，集团收入人民币10.03亿元；股东应占溢利7304.9万元，同比扭亏为盈；每股基本盈利8.4分。
+中新网5月19日电 近日，“三晋老字号”晋艺坊远赴美国芝加哥麦考密会展中心，参加芝加哥国际酒店用品餐饮博览会。
 
-2025年10月，本集团成功完成对国内算力技术服务头部企业“深圳天顿数据科技有限公司”（“天顿数据”）的全面收购，标志着本集团正式从“传统产城开发运营商”跨越至“AI算力基建运营商”。
+展会现场，晋艺坊与美国中餐联盟正式签订战略合作协议，借助专业平台顺利进军美国市场。
 
-得益于境外美元债重组的成功实施及资产负债结构的优化，本集团已轻装上阵，将AI算力技术服务提升为引领高质量发展的绝对核心。
+晋艺坊源自山西晋城，深耕千年冶铁技艺，深挖本土历史底蕴，倾力传承晋城冶铁文化、晋商万里茶道文化，将传统匠心工艺与地域文化精髓相融。
 
-截至目前，本集团已交付及运营的FP16稠密算力规模超 42，000PFLOPS，稳居行业第一梯队；同时手握算力订单总额超人民币150亿元，行业头部的品牌及口碑效应同时也带来了源源不断高速增长的新订单，充沛的订单储备为未来3至5年的现金流稳定性提供了坚实保障，更彰显了市场对其行业龙头地位的高度认可。
-
-此外，本集团持有专利及软着合计超100件，并已入围了深圳市算力券服务商名单，这将直接带动AI算力订单的进一步增长。
-
-责任编辑：卢昱君
+此次海外参展，晋艺坊不仅推动晋城铁壶、铸铁厨具走向国际市场，更以实业为纽带，积极搭建中外文化交流平台，用心讲好晋城故事，传承非遗冶铸技艺，让源远流长的晋城铁器走出太行、走向世界，进一步增进中外文化互通互鉴，助力地域特色文化在国际舞台绽放光彩。
 
 ## 相关推荐
 
-- 2026-06-29 14:59 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 15:08 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 15:09 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 14:52 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 14:46 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 14:47 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 14:53 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 14:57 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 14:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 15:08 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 15:15 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 14:57 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 15:08 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 15:02 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 15:04 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 14:52 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 14:52 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 15:08 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 15:14 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 15:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 15:02 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:53 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/8669349.shtml)
-- 2026-06-29 14:57 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/4804715.shtml)
-- 2026-06-29 15:05 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/62872374.shtml)
-- 2026-06-29 14:54 - [上班主打一个薪尽自然凉](https://www.share.minike.top/Article/details/84961623.shtml)
-- 2026-06-29 14:59 - [速度与激情9](https://www.share.minike.top/Article/details/0708809.shtml)
-- 2026-06-29 14:45 - [斛珠夫人](http://www.blog.minike.top/Article/details/269253520184.shtml)
-- 2026-06-29 14:53 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/186290.shtml)
-- 2026-06-29 14:51 - [媒体人：警惕日本再次成战争加害国](https://www.blog.kurohicncr.top/Article/details/678626034.shtml)
-- 2026-06-29 14:52 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/03924831.shtml)
-- 2026-06-29 15:05 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/49822852.shtml)
-- 2026-06-29 14:59 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/4809305567.shtml)
-- 2026-06-29 15:01 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/913718877141.shtml)
-- 2026-06-29 14:53 - [青春环游记第三季](https://www.blog.minike.top/Article/details/1096306543.shtml)
-- 2026-06-29 14:50 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/71324029.shtml)
-- 2026-06-29 15:04 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/99948644343.shtml)
+- 2026-06-29 15:09 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/03081033.shtml)
+- 2026-06-29 14:58 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/8177491856.shtml)
+- 2026-06-29 15:00 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.kurohicncr.top/Article/details/967336827347.shtml)
+- 2026-06-29 14:55 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/09185.shtml)
+- 2026-06-29 14:52 - [逃狱兄弟](https://www.blog.minike.top/Article/details/137263236.shtml)
+- 2026-06-29 14:53 - [媒体：网络测评不能只剩“生意”](http://www.blog.kurohicncr.top/Article/details/220240.shtml)
+- 2026-06-29 14:53 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/97302302186.shtml)
+- 2026-06-29 14:55 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/669541618.shtml)
+- 2026-06-29 15:06 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/4338376.shtml)
+- 2026-06-29 14:49 - [航空运输旅客服务质量国标将实施](http://www.blog.minike.top/Article/details/200260691.shtml)
+- 2026-06-29 15:02 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/37048980188.shtml)
+- 2026-06-29 14:48 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/001777927709.shtml)
+- 2026-06-29 14:57 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.kurohicncr.top/Article/details/4004031.shtml)
+- 2026-06-29 15:02 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/8608766911.shtml)
+- 2026-06-29 14:53 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/973259.shtml)

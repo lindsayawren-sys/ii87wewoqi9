@@ -1,59 +1,61 @@
-# 二手车价格升至 2023 年夏季以来最高点
+# 日本日经指数回吐涨幅连续第四日收跌 受科技股下跌拖累
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-据一项备受市场关注的汽车行业指标显示，受供应持续偏紧影响，二手车价格继续走高。 考克斯汽车旗下的曼海姆二手车价值指数（追踪美国二手车批发拍卖价格）周二公布，该指数上月同比上涨 6.2%，同时创下 2023 年夏季以来的最高水平。 曼海姆拍卖数据显示，尽管地缘政治紧张、油价高企以及伊朗战争持续，二手车需求依然坚挺。 考克斯汽车首席经济学家杰里米・罗布在公告中表示：“我们原本预计中
+日本股市日经指数周二回吐先前涨幅收跌。尽管正面的经济数据促使投资者买入经济敏感型股票，但科技权重股仍跟随隔夜美国同业跌势走低。日经指数下跌0.44%，收于60，550.59点，连续第四个交易日收跌，盘中曾上涨逾1%。东证股价指数上涨0.63%，收于3，850.67点。 芯片制造设备制造商东京电子下跌4.26%，成为日经指数跌幅最大的成分股。爱德万测试下跌3.29%，软银集团下跌
 
 ## 正文
 
-据一项备受市场关注的汽车行业指标显示，受供应持续偏紧影响，二手车价格继续走高。
+日本股市日经指数周二回吐先前涨幅收跌。
 
-考克斯汽车旗下的曼海姆二手车价值指数（追踪美国二手车批发拍卖价格）周二公布，该指数上月同比上涨 6.2%，同时创下 2023 年夏季以来的最高水平。
+尽管正面的经济数据促使投资者买入经济敏感型股票，但科技权重股仍跟随隔夜美国同业跌势走低。
 
-曼海姆拍卖数据显示，尽管地缘政治紧张、油价高企以及伊朗战争持续，二手车需求依然坚挺。
+日经指数下跌0.44%，收于60，550.59点，连续第四个交易日收跌，盘中曾上涨逾1%。
 
-考克斯汽车首席经济学家杰里米・罗布在公告中表示：“我们原本预计中东冲突会带来一些影响，这种情况未来仍有可能出现。
+东证股价指数上涨0.63%，收于3，850.67点。
 
-但目前数据十分明确：二手车需求表现稳健，库存水平相对紧张。
+芯片制造设备制造商东京电子下跌4.26%，成为日经指数跌幅最大的成分股。
 
-” 考克斯报告称，3 月份二手车库存周转天数（对经销商和消费者都极为关键的指标）已降至 40 天以下，为 2026 年最低水平，且低于去年同期。
+爱德万测试下跌3.29%，软银集团下跌4.15%，铠侠下跌3.27%。
 
-消费者终端零售价通常会跟随批发价变动，但近年来零售价的回落速度一直慢于批发价。
+受经济数据提振，价值股上涨。
 
-责任编辑：郭明煜
+数据显示，得益于强劲的出口和消费，日本一季度经济增长超出预期。
 
 ## 相关推荐
 
-- 2026-06-29 14:54 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 14:53 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 15:09 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 14:42 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 15:01 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 15:07 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 14:52 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 14:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 14:57 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 15:10 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 14:57 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 14:50 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 15:11 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 14:48 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 14:58 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 15:03 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 14:56 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 14:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 15:12 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 14:49 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 14:57 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 14:48 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 15:08 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 14:55 - [光与夜之恋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 15:04 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 15:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 15:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 14:56 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:07 - [5万块的威力](https://www.share.minike.top/Article/details/335088171.shtml)
-- 2026-06-29 14:47 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/311712431186.shtml)
-- 2026-06-29 14:45 - [流金岁月](https://www.blog.minike.top/Article/details/837804008128.shtml)
-- 2026-06-29 14:56 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/93606.shtml)
-- 2026-06-29 14:46 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/01773558149.shtml)
-- 2026-06-29 14:46 - [金牌调解](https://www.share.minike.top/Article/details/1018677657.shtml)
-- 2026-06-29 15:07 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/6590048640.shtml)
-- 2026-06-29 14:43 - [央视起底直播诈骗连环套](http://www.share.minike.top/Article/details/73239728.shtml)
-- 2026-06-29 15:03 - [新一代影后杨紫](http://www.share.minike.top/Article/details/13637292215.shtml)
-- 2026-06-29 15:11 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/179604897929.shtml)
-- 2026-06-29 15:11 - [李连杰回应网传不管前妻俩女儿](http://www.share.kurohicncr.top/Article/details/1644425860.shtml)
-- 2026-06-29 14:43 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/16108496.shtml)
-- 2026-06-29 15:09 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/15419.shtml)
-- 2026-06-29 15:03 - [灿如繁星定档](http://www.blog.minike.top/Article/details/692573.shtml)
-- 2026-06-29 14:44 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/75418.shtml)
+- 2026-06-29 15:09 - [林昀儒不敌17岁小将止步首轮](https://www.share.minike.top/Article/details/36263432079.shtml)
+- 2026-06-29 15:10 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/104369401438.shtml)
+- 2026-06-29 14:49 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/407875064.shtml)
+- 2026-06-29 14:49 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/5418735.shtml)
+- 2026-06-29 14:56 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/525209772.shtml)
+- 2026-06-29 15:07 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/325051.shtml)
+- 2026-06-29 15:12 - [以前不让妆女二可以艳压女主](http://www.blog.minike.top/Article/details/633596459.shtml)
+- 2026-06-29 15:13 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/6516131.shtml)
+- 2026-06-29 15:06 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.kurohicncr.top/Article/details/1271093055.shtml)
+- 2026-06-29 14:49 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/29016646866.shtml)
+- 2026-06-29 15:06 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/81537900.shtml)
+- 2026-06-29 15:13 - [锐评浪姐7总决赛](https://www.blog.minike.top/Article/details/186543.shtml)
+- 2026-06-29 15:14 - [国家体育总局政策法规司原副司长获刑](https://www.share.kurohicncr.top/Article/details/279601205.shtml)
+- 2026-06-29 15:04 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/55882547.shtml)
+- 2026-06-29 15:08 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.kurohicncr.top/Article/details/085453034.shtml)

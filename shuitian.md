@@ -1,61 +1,58 @@
-# 小摩：中银香港业绩符预期 逾5%股息收益率足以支撑股价
+# （乡村行·看振兴）广西贺州平桂区：一把剪刀“剪”出葡萄“致富经”
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-摩根大通发布研报称，中银香港（02388）2025年度业绩符合预期，营运前利润增长被较高信贷成本所抵销。该行微调其2026/27年度盈利预测1%/-1%，维持“中性”评级，目标价43.3港元不变。 该行指，中银香港2025年度净利润401亿元，同比增长5%，略低于该行预期0.3%，年化股本回报率为11.5%，受惠于拨备前利润增长9%，但部分被较高信贷成本所抵销。公司宣派末期息1
+中新网广西贺州5月19日电 题：广西贺州平桂区：一把剪刀“剪”出葡萄“致富经” 作者 陶胜平 黄庆健 近日，在广西贺州市平桂区公会镇解元村乡村振兴实践区葡萄园，村民杨春花手握一把剪刀，轻轻拨开绿叶，麻利地剪掉几颗小果、病果。“让果粒之间留出‘呼吸缝’，长大后才均匀饱满。”杨春花说。 眼下，该葡萄园连片大棚内，夏黑、阳光玫瑰、巨峰等品种的葡萄藤郁郁葱葱，一串串青涩果实垂挂枝头。村
 
 ## 正文
 
-摩根大通发布研报称，中银香港（02388）2025年度业绩符合预期，营运前利润增长被较高信贷成本所抵销。
+中新网广西贺州5月19日电 题：广西贺州平桂区：一把剪刀“剪”出葡萄“致富经” 作者 陶胜平 黄庆健 近日，在广西贺州市平桂区公会镇解元村乡村振兴实践区葡萄园，村民杨春花手握一把剪刀，轻轻拨开绿叶，麻利地剪掉几颗小果、病果。
 
-该行微调其2026/27年度盈利预测1%/-1%，维持“中性”评级，目标价43.3港元不变。
+“让果粒之间留出‘呼吸缝’，长大后才均匀饱满。
 
-该行指，中银香港2025年度净利润401亿元，同比增长5%，略低于该行预期0.3%，年化股本回报率为11.5%，受惠于拨备前利润增长9%，但部分被较高信贷成本所抵销。
+”杨春花说。
 
-公司宣派末期息1.255港元，2025年派息比率为56%，高于2024年的55%。
+眼下，该葡萄园连片大棚内，夏黑、阳光玫瑰、巨峰等品种的葡萄藤郁郁葱葱，一串串青涩果实垂挂枝头。
 
-2025年第四季信贷成本上升至74个基点，全年为49个基点，高于2024年的30个基点，主要因为中国内地及香港房地产贷款拨备增加，分别占总贷款的4.4%及14.6%。
+村民们正抢抓时节，忙着保果、疏果，为7月上市打下底子。
 
-摩通认为，中银香港营运趋势及2025年度派息政策与市场预期相若。
+“我家种有8亩葡萄，这几年效益好，盖了楼、买了车，日子越过越红火。
 
-超过5%的股息收益率虽不吸引但足以支撑股价，而新批准的股东回报计划或会提高市场对2026年8月中期业绩前回购或特别股息的预期。
+”杨春花说，葡萄园紧邻平桂区公会乡村振兴产业融合园，风景好、果质优，每到成熟季，客户、游客、务工人员直接上门订购采摘，“销路根本不用愁”。
 
-责任编辑：史丽君
+解元村党支部书记黎合盛指着树干说：“限根、限产，给每株葡萄足够空间；人工除草、有机种植、生物除虫——这样结出的果子，绿色有机，甜脆多汁。
 
 ## 相关推荐
 
-- 2026-06-29 15:08 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 14:47 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 14:56 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 14:51 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 14:43 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 15:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 14:50 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 14:58 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 14:49 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 14:54 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 15:01 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 14:43 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 15:03 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 14:57 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 14:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 14:53 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 15:06 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 15:11 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 14:56 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 14:51 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 15:13 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 15:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 14:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 15:15 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 15:14 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 15:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-29 15:06 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.minike.top/Article/details/0676822022.shtml)
-- 2026-06-29 14:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/760500.shtml)
-- 2026-06-29 14:43 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/08782690711.shtml)
-- 2026-06-29 14:58 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/920841751363.shtml)
-- 2026-06-29 14:49 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/17249.shtml)
-- 2026-06-29 14:50 - [时光音乐会](http://www.share.minike.top/Article/details/668101.shtml)
-- 2026-06-29 15:11 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/72917168429.shtml)
-- 2026-06-29 14:46 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/31210.shtml)
-- 2026-06-29 14:47 - [唐艺昕女儿接唐艺昕回家](https://www.share.kurohicncr.top/Article/details/2970298.shtml)
-- 2026-06-29 14:53 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/4751839214.shtml)
-- 2026-06-29 15:00 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/633256.shtml)
-- 2026-06-29 14:55 - [佛得角到底在哪个“角”](http://www.share.kurohicncr.top/Article/details/99162273.shtml)
-- 2026-06-29 14:45 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/99233.shtml)
-- 2026-06-29 14:48 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/3349387.shtml)
-- 2026-06-29 15:06 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/587357.shtml)
+- 2026-06-29 15:03 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/83311.shtml)
+- 2026-06-29 15:06 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/346549695657.shtml)
+- 2026-06-29 15:00 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/956612833354.shtml)
+- 2026-06-29 14:51 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/9112143687.shtml)
+- 2026-06-29 15:17 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/51536605.shtml)
+- 2026-06-29 14:54 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/1172093.shtml)
+- 2026-06-29 15:05 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/31972568.shtml)
+- 2026-06-29 14:53 - [媒体：高考后消费应量力而行适度有度](https://www.blog.kurohicncr.top/Article/details/4470910264.shtml)
+- 2026-06-29 15:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/2782449944.shtml)
+- 2026-06-29 14:48 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/689485940.shtml)
+- 2026-06-29 14:54 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/64470204140.shtml)
+- 2026-06-29 15:16 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/492448356360.shtml)
+- 2026-06-29 15:06 - [7款商保创新药“转道”](https://www.blog.kurohicncr.top/Article/details/540895721.shtml)
+- 2026-06-29 14:56 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/5927225.shtml)
+- 2026-06-29 15:17 - [美媒：空警-3000服役即成全球最强](https://www.share.kurohicncr.top/Article/details/88239268.shtml)

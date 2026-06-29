@@ -1,47 +1,59 @@
-# 百龙创园业绩快报：一季度归母净利润1.21亿元，同比增长48.11%
+# 通胀担忧升温 美国30年期国债收益率创2007年以来新高
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-百龙创园4月7日发布2026年第一季度业绩快报，报告期内实现营业收入3.93亿元，同比增长25.32%；归属于上市公司股东的净利润1.21亿元，同比增长48.11%；基本每股收益0.29元。
+随着投资者对通胀加速的担忧加剧，引发全球债券市场抛售，最长期限的美国国债收益率升至近二十年来最高水平。 30年期美国国债收益率周二上涨5个基点，至5.18%。这一水平上一次出现，还是在2007年时全球金融危机爆发前夕。 在经历数周抛售后，全球政府债券收益率已被推升至多年高位，而此次则进一步刷新高点。由于担忧战争推动能源价格飙升以及担心财政赤字问题，投资者如今要求获得更高回报，才
 
 ## 正文
 
-百龙创园4月7日发布2026年第一季度业绩快报，报告期内实现营业收入3.93亿元，同比增长25.32%；归属于上市公司股东的净利润1.21亿元，同比增长48.11%；基本每股收益0.29元。
+随着投资者对通胀加速的担忧加剧，引发全球债券市场抛售，最长期限的美国国债收益率升至近二十年来最高水平。
+
+30年期美国国债收益率周二上涨5个基点，至5.18%。
+
+这一水平上一次出现，还是在2007年时全球金融危机爆发前夕。
+
+在经历数周抛售后，全球政府债券收益率已被推升至多年高位，而此次则进一步刷新高点。
+
+由于担忧战争推动能源价格飙升以及担心财政赤字问题，投资者如今要求获得更高回报，才愿意持有长期债券。
+
+巴克莱全球研究部主席Ajay Rajadhyaksha周一在一份报告中写道，“债务增速快于经济增长、通胀形势恶化、且缺乏财政改革的政治意愿，在这种情况下，没有太多理由去押注长期债券。
+
+”责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 14:59 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 14:45 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 15:02 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 14:59 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 14:42 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 14:49 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 14:54 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 15:03 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 14:50 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 14:49 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 15:07 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 14:50 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 15:06 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 15:02 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 14:56 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 14:51 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 15:13 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 14:48 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 15:16 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 14:50 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 15:13 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 15:01 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 15:09 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 14:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 15:10 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 15:16 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 14:52 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 14:54 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 15:05 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:02 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/262687513576.shtml)
-- 2026-06-29 14:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/690677336886.shtml)
-- 2026-06-29 14:49 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/7570748836.shtml)
-- 2026-06-29 14:46 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/347616231.shtml)
-- 2026-06-29 14:49 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/621739988107.shtml)
-- 2026-06-29 14:54 - [比亚迪市值为何蒸发8000亿](http://www.share.minike.top/Article/details/99722596.shtml)
-- 2026-06-29 14:48 - [志愿选择倒计时！浙大学生送祝福](http://www.share.minike.top/Article/details/52925749.shtml)
-- 2026-06-29 14:55 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/4440059.shtml)
-- 2026-06-29 15:04 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/66799951797.shtml)
-- 2026-06-29 14:54 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/309103.shtml)
-- 2026-06-29 14:53 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/286828169.shtml)
-- 2026-06-29 14:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/7527780689.shtml)
-- 2026-06-29 14:47 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/45445.shtml)
-- 2026-06-29 15:05 - [韩媒破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/5221292.shtml)
-- 2026-06-29 14:59 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.kurohicncr.top/Article/details/471856658.shtml)
+- 2026-06-29 14:57 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/1023845.shtml)
+- 2026-06-29 14:54 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/84401404250.shtml)
+- 2026-06-29 15:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/784406741.shtml)
+- 2026-06-29 15:09 - [起风了](https://www.share.kurohicncr.top/Article/details/839306234616.shtml)
+- 2026-06-29 14:55 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/0193312213.shtml)
+- 2026-06-29 15:06 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/547701801.shtml)
+- 2026-06-29 15:06 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/71644247.shtml)
+- 2026-06-29 15:08 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/322041180.shtml)
+- 2026-06-29 14:49 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/183913447.shtml)
+- 2026-06-29 15:13 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/3894497.shtml)
+- 2026-06-29 15:12 - [森保一：日本队要亲手改写历史](http://www.blog.minike.top/Article/details/077115598.shtml)
+- 2026-06-29 15:11 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/45688701259.shtml)
+- 2026-06-29 15:12 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/9778324830.shtml)
+- 2026-06-29 15:10 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/20584.shtml)
+- 2026-06-29 15:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/539967037.shtml)

@@ -1,56 +1,59 @@
-# 原油：美油收于100美元上方 特朗普威胁升级对伊打击
+# 光大期货0520热点追踪：碳酸锂跌破18万关口，关注本周库存数据调整
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-美国原油价格周一收于每桶100美元上方，为伊朗战争爆发以来首次。美国总统唐纳德·特朗普威胁将进一步升级打击行动，包括针对德黑兰的关键能源基础设施。 WTI期货上涨逾3%，收于每桶102.88美元，为2022年7月以来最高水平。 随着更多美军抵达中东地区，以及伊朗支持的也门胡塞武装加入冲突，油价受到进一步提振。 交易员警告称，如果冲突无法很快结束，能源价格可能迎来更大幅上涨。 E
+本周以来，碳酸锂价格重心继续回落，周三价格跌破18万整数关口，主力资金进一步流出。消息面来看，5月18日，Mineral Resources宣布，因锂价显著持续回升，将重启其全资持有的Bald Hill锂矿。不过，考虑到产能增量有限且下半年兑现增产，短期下跌更多为配合供需状态转向宽松的情绪扰动。 基本面来看，供给端，周度产量环比增加122吨至26016吨；5月碳酸锂产量预计环比
 
 ## 正文
 
-美国原油价格周一收于每桶100美元上方，为伊朗战争爆发以来首次。
+本周以来，碳酸锂价格重心继续回落，周三价格跌破18万整数关口，主力资金进一步流出。
 
-美国总统唐纳德·特朗普威胁将进一步升级打击行动，包括针对德黑兰的关键能源基础设施。
+消息面来看，5月18日，Mineral Resources宣布，因锂价显著持续回升，将重启其全资持有的Bald Hill锂矿。
 
-WTI期货上涨逾3%，收于每桶102.88美元，为2022年7月以来最高水平。
+不过，考虑到产能增量有限且下半年兑现增产，短期下跌更多为配合供需状态转向宽松的情绪扰动。
 
-随着更多美军抵达中东地区，以及伊朗支持的也门胡塞武装加入冲突，油价受到进一步提振。
+基本面来看，供给端，周度产量环比增加122吨至26016吨；5月碳酸锂产量预计环比增加3.4%至113780吨；2026年4月智利碳酸锂总出口29526吨，环比增3.40%，同比增35.63%，其中出口中国22956吨，环比增21.29%，同比增47.66%。
 
-交易员警告称，如果冲突无法很快结束，能源价格可能迎来更大幅上涨。
+需求端，5月三元材料产量预计环比增加9%至87920吨、磷酸铁锂产量预计环比增加8%至503700吨、钴酸锂产量预计环比增加23%至9480吨、锰酸锂产量预计环比增加7%至13000吨；5月锂电池产量预计环比增加7%至239.3GWh，其中三元电池环比增加6%至33.3GWh，磷酸铁锂电池环比增加7%至196.4GWh，其他电池环比增加7%至9.5GWh。
 
-Enverus Inc．石油与天然气分析师Carl Larry表示，“市场意识到上行风险大于下行风险，当前的策略是在短期内出现回落迹象前，先做最坏的打算”。
+库存端，周度社会库存环比减少1255吨至101418吨，其中下游库存环比减少3421吨至37147吨，其他环节库存环比增加1870吨至45180吨，上游库存环比增加296吨至19091吨。
 
-布伦特期货在流动性较低的情况下剧烈波动，交易员越来越倾向于观望。
+本周库存口径或将有调整，整体或表现库存绝对量上升，但周度数据短期仍在去库的节奏中，社会库存周转天数环比延续小幅下降。
 
-5月合约在周二到期前出现波动，收于每桶接近113美元。
+短期价格货仍表现震荡整理，等待新驱动，另需关注江西项目是否有复产动作。
 
 ## 相关推荐
 
-- 2026-06-29 14:55 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 15:06 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 15:01 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 14:50 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 14:52 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 14:49 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 14:59 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 15:04 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 14:58 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 15:08 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 15:07 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 14:52 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 14:54 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 14:57 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 14:57 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 15:04 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 15:04 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 15:06 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 15:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 15:06 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 15:07 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 14:59 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 15:03 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:54 - [复盘曾沛慈浪姐夺冠之路](http://www.share.kurohicncr.top/Article/details/196430473901.shtml)
-- 2026-06-29 15:11 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/87985667489.shtml)
-- 2026-06-29 15:05 - [光与夜之恋](https://www.share.minike.top/Article/details/73685692.shtml)
-- 2026-06-29 14:47 - [普京称考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/44885973561.shtml)
-- 2026-06-29 14:54 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/94016800.shtml)
-- 2026-06-29 15:04 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/87531465095.shtml)
-- 2026-06-29 15:07 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/29128.shtml)
-- 2026-06-29 14:52 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/00839677525.shtml)
-- 2026-06-29 14:44 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/848717965193.shtml)
-- 2026-06-29 14:59 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/833811319815.shtml)
-- 2026-06-29 14:57 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.minike.top/Article/details/26072466.shtml)
-- 2026-06-29 15:05 - [把古诗里的动作换成加班](https://www.share.minike.top/Article/details/514295.shtml)
-- 2026-06-29 15:02 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/983611150.shtml)
-- 2026-06-29 15:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/917277.shtml)
-- 2026-06-29 15:08 - [赵露思爸爸拍vlog翻车了](http://www.share.minike.top/Article/details/01951077.shtml)
+- 2026-06-29 15:04 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/406402.shtml)
+- 2026-06-29 15:13 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/21184.shtml)
+- 2026-06-29 14:50 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/67565.shtml)
+- 2026-06-29 14:56 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/78976695073.shtml)
+- 2026-06-29 15:15 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/72958352.shtml)
+- 2026-06-29 14:56 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/0164412.shtml)
+- 2026-06-29 15:11 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/39075807.shtml)
+- 2026-06-29 14:59 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/359052.shtml)
+- 2026-06-29 15:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/651608975.shtml)
+- 2026-06-29 14:48 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/688662177194.shtml)
+- 2026-06-29 15:05 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/4437214.shtml)
+- 2026-06-29 14:55 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/27923805418.shtml)
+- 2026-06-29 15:00 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/60380662517.shtml)
+- 2026-06-29 15:09 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/5225179.shtml)
+- 2026-06-29 14:54 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/4359393.shtml)

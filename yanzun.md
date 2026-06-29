@@ -1,57 +1,57 @@
-# 美国招聘速度降至2011年以来最低水平（疫情期间除外）
+# 美媒称北约考虑“协助船只”通过霍尔木兹海峡
 
-> 更新时间：2026-06-29 15:12:02 UTC+8
+> 更新时间：2026-06-29 15:18:02 UTC+8
 
 ## 摘要
 
-市场普遍预期美国 2 月份职位数量有所下降，当前美国劳动力市场仍处于 “低招聘、低解雇” 状态。经济学家预计，职位空缺数将从 1 月份的 695 万个降至 684 万个。 周二公布的最新数据显示，美国企业新增员工的速度创下 15 年来最弱水平（疫情暴发初期除外）。这一迹象表明，在中东冲突可能冲击美国经济之前，劳动力市场就已出现更深度的降温。 美国劳工统计局最新发布的职位空缺与劳
+新华社华盛顿5月19日电(记者黄强 徐剑梅)据美国彭博社19日援引一名北约高级官员的话报道，如果霍尔木兹海峡未能在7月初重新开放，北约将考虑是否“协助船只”通过该水道。 报道说，这一提议已获得多个北约成员国支持，但尚未达到其获通过所需的全体一致支持。北约高级官员说，尽管部分北约国家目前仍反对授权北约针对该海峡开展联合行动，但若封锁局面持续下去，他们最终将会支持这一提议。 北约欧
 
 ## 正文
 
-市场普遍预期美国 2 月份职位数量有所下降，当前美国劳动力市场仍处于 “低招聘、低解雇” 状态。
+新华社华盛顿5月19日电(记者黄强 徐剑梅)据美国彭博社19日援引一名北约高级官员的话报道，如果霍尔木兹海峡未能在7月初重新开放，北约将考虑是否“协助船只”通过该水道。
 
-经济学家预计，职位空缺数将从 1 月份的 695 万个降至 684 万个。
+报道说，这一提议已获得多个北约成员国支持，但尚未达到其获通过所需的全体一致支持。
 
-周二公布的最新数据显示，美国企业新增员工的速度创下 15 年来最弱水平（疫情暴发初期除外）。
+北约高级官员说，尽管部分北约国家目前仍反对授权北约针对该海峡开展联合行动，但若封锁局面持续下去，他们最终将会支持这一提议。
 
-这一迹象表明，在中东冲突可能冲击美国经济之前，劳动力市场就已出现更深度的降温。
+北约欧洲盟军最高司令格林克维奇19日在新闻发布会上被问及相关可能性时称，他正在考虑这一问题，“先要确立政治方向，随后才会展开正式的规划工作”。
 
-美国劳工统计局最新发布的职位空缺与劳动力流动调查（JOLTS）显示，截至 2 月末，招聘人数占总就业人数的比例降至 3.1%。
+报道还说，北约成员国领导人将于7月7日至8日在土耳其首都安卡拉举行会议。
 
-这一水平为 2020 年 4 月以来最低，在此之前则要追溯到 2011 年。
+目前尚不清楚北约将如何为商业船只通过该海峡提供安全保障。
 
-Indeed 招聘实验室北美经济研究主管劳拉・乌尔里希指出，招聘率从 1 月份的 3.4% 大幅回落，是疫情以来 2016 年之后最剧烈的单月降幅。
+报道同时指出，此举将标志着北约相关策略发生转变。
 
-她在周二的一份报告中写道：“考虑到伊朗冲突仍在持续产生影响，这一情况令人担忧。
+美国的北约盟国此前一直坚称，只有在各方停止敌对行动且组建一个包含非北约国家的广泛联盟之后，才会介入霍尔木兹海峡事务。
 
 ## 相关推荐
 
-- 2026-06-29 15:08 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 14:59 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 14:53 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 15:04 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 14:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 14:54 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 15:02 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 15:06 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 15:01 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 15:08 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 15:04 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 14:56 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 15:08 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 15:02 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 15:13 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 14:56 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 15:17 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 15:03 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 15:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 15:06 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 15:16 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 14:50 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:48 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/72950.shtml)
-- 2026-06-29 15:04 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/40287.shtml)
-- 2026-06-29 14:42 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/915226.shtml)
-- 2026-06-29 14:48 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/06101.shtml)
-- 2026-06-29 14:43 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/1725909571.shtml)
-- 2026-06-29 14:51 - [逃狱兄弟](https://www.share.minike.top/Article/details/175451983.shtml)
-- 2026-06-29 15:06 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/0445147.shtml)
-- 2026-06-29 14:45 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/547062828143.shtml)
-- 2026-06-29 14:54 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/66321154.shtml)
-- 2026-06-29 14:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/45640.shtml)
-- 2026-06-29 14:55 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/075148.shtml)
-- 2026-06-29 14:51 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/03557019.shtml)
-- 2026-06-29 15:02 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/8701960.shtml)
-- 2026-06-29 14:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/685970.shtml)
-- 2026-06-29 15:07 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.minike.top/Article/details/63891207.shtml)
+- 2026-06-29 14:56 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/6557326500.shtml)
+- 2026-06-29 14:53 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/47745771751.shtml)
+- 2026-06-29 15:02 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/938682485.shtml)
+- 2026-06-29 15:13 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/955804333.shtml)
+- 2026-06-29 14:48 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/466633149409.shtml)
+- 2026-06-29 15:06 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/2536115222.shtml)
+- 2026-06-29 14:58 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/523954.shtml)
+- 2026-06-29 15:01 - [李连杰回应网传不管前妻俩女儿](http://www.share.kurohicncr.top/Article/details/835091.shtml)
+- 2026-06-29 14:48 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/46521163241.shtml)
+- 2026-06-29 15:02 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/009168.shtml)
+- 2026-06-29 14:56 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/06953.shtml)
+- 2026-06-29 14:59 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/74940981.shtml)
+- 2026-06-29 14:56 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/238443442.shtml)
+- 2026-06-29 15:04 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/977767206650.shtml)
+- 2026-06-29 15:13 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/239234585849.shtml)
