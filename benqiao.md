@@ -1,49 +1,59 @@
-# 祥源文旅：公司从低空经济产业投资基金中退出主要基于公司低空战略规划及投资模式的调整
+# 山西大同算网发展实践入选《算网协同发展研究报告》
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 4月7日，祥源文旅（维权）在互动平台回答投资者提问时表示，公司从低空经济产业投资基金中退出主要基于公司低空战略规划及投资模式的调整，为进一步聚焦对于低空文旅业态投资而做出。公司将结合新项目自身持续盈利能力、与公司主营业务的协同效应及公司资金情况等因素综合考虑新项目的推进。
+中新网大同5月19日电 (胡健 马静波)记者19日从山西省大同市新闻中心获悉，《算网协同发展研究报告》日前在第九届数字中国建设峰会“数算一体驱动未来”主题交流活动中发布，大同市在算力基础设施建设、数算一体融合发展、绿色算力产业集聚等方面的实践与先进经验纳入报告典型案例，为全国算网协同建设提供“大同样板”。该报告由国家信息中心大数据发展部牵头，在国家发展改革委高技术司、国家数据局
 
 ## 正文
 
-证券日报网讯 4月7日，祥源文旅（维权）在互动平台回答投资者提问时表示，公司从低空经济产业投资基金中退出主要基于公司低空战略规划及投资模式的调整，为进一步聚焦对于低空文旅业态投资而做出。
+中新网大同5月19日电 (胡健 马静波)记者19日从山西省大同市新闻中心获悉，《算网协同发展研究报告》日前在第九届数字中国建设峰会“数算一体驱动未来”主题交流活动中发布，大同市在算力基础设施建设、数算一体融合发展、绿色算力产业集聚等方面的实践与先进经验纳入报告典型案例，为全国算网协同建设提供“大同样板”。
 
-公司将结合新项目自身持续盈利能力、与公司主营业务的协同效应及公司资金情况等因素综合考虑新项目的推进。
+该报告由国家信息中心大数据发展部牵头，在国家发展改革委高技术司、国家数据局科技司指导下，联合30多家单位共同编写，系统总结了算网协同的建设现状、总体框架、运营模式和应用实践，并对算网协同未来发展趋势和对策建议进行了阐述，旨在为行业发展提供权威指引和决策参考。
+
+报告中提到，算网协同发展不仅是技术演进的必然趋势，更是驱动智能经济高质量发展的必然选择，关乎国家发展与安全大局，成为构筑数字时代核心竞争力的战略基石。
+
+其深远意义体现在：能够拓展多元场景应用空间，为数字经济提速发展注入新动能；优化算力资源配置效能，为算力使用成本压降开辟新路径；深化数字技术融合创新，为全球科技竞争博弈构筑新优势。
+
+近年来，大同立足自身资源禀赋与区位优势，持续做强算力基础设施，深耕数算一体融合发展，算力产业集聚度、绿色发展水平、市场活跃度持续提升，产业发展质效稳步走在行业前列。
+
+旺盛的市场需求、稳定的运营态势，为数字经济提质扩容筑牢了坚实支撑。
+
+此次大同多项发展成果入选国家级研究报告，既是业内对全市绿色算力产业发展成效的高度认可，也标志着大同算力建设经验具备可复制、可推广的示范价值。
+
+下一步，大同市将把握数字经济发展时代机遇，持续完善算力全产业链布局，深挖算网融合发展潜力，持续壮大绿色算力产业集群，全力打造环首都优质算力枢纽，以实打实的产业成果，为全国一体化算力网络建设、数字中国建设持续贡献大同力量。
 
 ## 相关推荐
 
-- 2026-06-30 02:57 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 02:44 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-30 02:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-30 02:39 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 02:41 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 02:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 02:46 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 02:38 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 02:47 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 02:52 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 02:59 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 02:39 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 02:44 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 02:52 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 02:40 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 02:39 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 02:57 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 02:51 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 02:43 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 02:57 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 03:04 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 02:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 03:03 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 02:42 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 02:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 03:03 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 02:49 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 02:51 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:32 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/45178298.shtml)
-- 2026-06-30 02:33 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/7283062.shtml)
-- 2026-06-30 02:58 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/7071662.shtml)
-- 2026-06-30 02:31 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/5580061469.shtml)
-- 2026-06-30 02:53 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/476963.shtml)
-- 2026-06-30 02:53 - [美人鱼](https://www.share.minike.top/Article/details/55269942.shtml)
-- 2026-06-30 02:39 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/8130233.shtml)
-- 2026-06-30 02:46 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/1981894608.shtml)
-- 2026-06-30 02:59 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/78941.shtml)
-- 2026-06-30 02:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/72272942.shtml)
-- 2026-06-30 02:59 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/26657718.shtml)
-- 2026-06-30 02:44 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/77437803367.shtml)
-- 2026-06-30 02:41 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/49078679494.shtml)
-- 2026-06-30 02:35 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/87278943.shtml)
-- 2026-06-30 02:49 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/47254129.shtml)
+- 2026-06-30 02:36 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/55288708.shtml)
+- 2026-06-30 02:40 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/44422828.shtml)
+- 2026-06-30 02:47 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/69703.shtml)
+- 2026-06-30 02:41 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/53932482.shtml)
+- 2026-06-30 02:52 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/902550541719.shtml)
+- 2026-06-30 02:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/26530097.shtml)
+- 2026-06-30 03:03 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/58916721.shtml)
+- 2026-06-30 02:47 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/04318.shtml)
+- 2026-06-30 03:02 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/388851.shtml)
+- 2026-06-30 02:56 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/2314435.shtml)
+- 2026-06-30 02:40 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/46628374.shtml)
+- 2026-06-30 02:43 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/75042246792.shtml)
+- 2026-06-30 02:48 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/67314169.shtml)
+- 2026-06-30 02:53 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/04662565.shtml)
+- 2026-06-30 02:53 - [一见倾心](https://www.share.minike.top/Article/details/63160326941.shtml)

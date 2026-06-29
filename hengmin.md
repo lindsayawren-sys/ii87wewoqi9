@@ -1,55 +1,58 @@
-# 香港特区政府向法庭申请充公黎智英罪行相关财产
+# 孩之宝Q1 2026财报前瞻：市场预期每股收益0.97美元
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-新华社香港4月2日电 香港特区政府新闻处2日消息，根据《中华人民共和国香港特别行政区维护国家安全法》(以下简称“香港国安法”)及《中华人民共和国香港特别行政区维护国家安全法第四十三条实施细则》(以下简称“实施细则”)向原讼法庭提交申请充公黎智英的罪行相关财产，以达致防范和制止危害国家安全行为和活动的重要目的。香港特区政府发言人表示，高等法院原讼法庭早前裁定黎智英三项危害国家安全
+孩之宝将于周三（5月20日）盘前发布2026年第一季度财报。市场普遍预期公司受益于威世智部门的持续强劲表现，但网络攻击事件导致财报延迟发布成为关注焦点。 核心财务预期 根据公开数据，Zacks Research预计孩之宝Q1每股收益为0.97美元，较去年同期的1.04美元下降6.7%；营收预计为9.09亿美元，同比增长2.5%。值得注意的是，不同机构预测存在差异，另有分析师预计
 
 ## 正文
 
-新华社香港4月2日电 香港特区政府新闻处2日消息，根据《中华人民共和国香港特别行政区维护国家安全法》(以下简称“香港国安法”)及《中华人民共和国香港特别行政区维护国家安全法第四十三条实施细则》(以下简称“实施细则”)向原讼法庭提交申请充公黎智英的罪行相关财产，以达致防范和制止危害国家安全行为和活动的重要目的。
+孩之宝将于周三（5月20日）盘前发布2026年第一季度财报。
 
-香港特区政府发言人表示，高等法院原讼法庭早前裁定黎智英三项危害国家安全罪行罪名成立。
+市场普遍预期公司受益于威世智部门的持续强劲表现，但网络攻击事件导致财报延迟发布成为关注焦点。
 
-法庭指出黎智英为案中主脑和推手，有意识地利用《苹果日报》和个人的影响力进行持续不断的活动以达致削弱中央政府、特区政府及其机构的合法性或权威；损害中央政府和特区政府与香港居民的关系，远超出法律所允许的范围；他更多次亲自勾结外国势力，乞求对中央和特区政府实施制裁，进行敌对行动，法庭最终判处黎智英监禁20年。
+核心财务预期 根据公开数据，Zacks Research预计孩之宝Q1每股收益为0.97美元，较去年同期的1.04美元下降6.7%；营收预计为9.09亿美元，同比增长2.5%。
 
-根据香港国安法第三十二条，“因实施本法规定的犯罪而获得的资助、收益、报酬等违法所得以及用于或意图用于犯罪的资金和工具，应当予以追缴、没收”；而充公令的申请和发出都必须依照“实施细则”附表三订明的严格条件，须由原讼法庭如在律政司司长提出申请后信纳拟充公的财产符合相关条件，才可将该财产充公。
+值得注意的是，不同机构预测存在差异，另有分析师预计EPS为1.09美元，营收9.84亿美元。
 
-发言人指出，香港特区是法治社会，一直秉持有法必依、违法必究的原则。
+过去30天内，EPS预估出现2.1%的下调。
 
-其中，向法庭提出充公令申请是有效打击严重罪行、保护公众利益的做法之一，充公罪行相关财产的法律及机制也常见于世界各地。
+网络攻击导致财报推迟 公司于3月28日遭遇网络安全攻击，原定财报发布日期被迫推迟，后于4月下旬提前披露初步业绩。
 
-就维护国家安全所需而作出的充公令，可以防止干犯危害国家安全罪行的人、其同谋或其代理人运用其罪行相关财产，继续从事危害国家安全的行为和活动，以切断危害国家安全罪行的资金链，并削弱其干犯危害国家安全罪行的能力。
+分析师指出，系统恢复期间公司优先保障了利润率最高业务——主要为威世智部门的订单履行。
+
+威世智与万智牌成核心驱动力 威世智与数字游戏部门预计将成为业绩亮点。
 
 ## 相关推荐
 
-- 2026-06-30 02:34 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 02:58 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 02:48 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 02:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 02:33 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 02:49 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 02:55 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 02:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 02:37 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 02:57 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 02:55 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 02:59 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 03:04 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 02:42 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 02:41 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 02:52 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 02:56 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 02:58 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 02:47 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 03:02 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 02:47 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 02:46 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-30 02:36 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:53 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/38017.shtml)
-- 2026-06-30 02:50 - [青春环游记第三季](https://www.blog.minike.top/Article/details/96056.shtml)
-- 2026-06-30 02:46 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/612634431694.shtml)
-- 2026-06-30 02:58 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/13068.shtml)
-- 2026-06-30 02:53 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/2883168639.shtml)
-- 2026-06-30 02:48 - [月亮](http://www.share.minike.top/Article/details/0886423.shtml)
-- 2026-06-30 02:53 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/89684499982.shtml)
-- 2026-06-30 02:47 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/73582.shtml)
-- 2026-06-30 02:34 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/735777.shtml)
-- 2026-06-30 02:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/250060.shtml)
-- 2026-06-30 02:43 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/462127761716.shtml)
-- 2026-06-30 02:44 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/14213898494.shtml)
-- 2026-06-30 02:54 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/30039299961.shtml)
-- 2026-06-30 02:52 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/7626016.shtml)
-- 2026-06-30 02:57 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/98063263.shtml)
+- 2026-06-30 03:02 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/119970847.shtml)
+- 2026-06-30 03:03 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/96137.shtml)
+- 2026-06-30 02:57 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/30387.shtml)
+- 2026-06-30 03:01 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/790383323937.shtml)
+- 2026-06-30 03:04 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/899651561794.shtml)
+- 2026-06-30 02:52 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/63711.shtml)
+- 2026-06-30 03:02 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/3049396.shtml)
+- 2026-06-30 03:01 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/2016722284.shtml)
+- 2026-06-30 02:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/88980655229.shtml)
+- 2026-06-30 02:36 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/87529611984.shtml)
+- 2026-06-30 02:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/21210.shtml)
+- 2026-06-30 02:43 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/10032.shtml)
+- 2026-06-30 03:00 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/6569820067.shtml)
+- 2026-06-30 02:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/7530173093.shtml)
+- 2026-06-30 02:43 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/0949342474.shtml)

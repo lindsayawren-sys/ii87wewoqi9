@@ -1,60 +1,59 @@
-# 中国央行连续17个月增持黄金
+# 海口海关缉私局车棚及单身公寓消防梯修缮改造项目比选公告
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-中新社北京4月7日电 (陶思阅)中国央行7日发布的数据显示，3月末黄金储备报7438万盎司，较2月末的7422万盎司增加16万盎司。此为中国央行连续第17个月增持黄金。 国家金融与发展实验室特聘高级研究员庞溟接受中新社采访时表示，过去一年多来，全球央行普遍提高黄金配置比例，以对冲美元资产波动、分散地缘政治风险。中国央行连续17个月增持黄金，体现了在外汇储备结构中提升“非信用资产
+一、采购条件 海口海关缉私局车棚及单身公寓消防梯修缮改造项目已获批准实施，项目业主为海口海关缉私局，项目资金来自财政资金，项目出资比例为100%，采购人为海口海关缉私局。项目已具备采购条件，现对该项目进行比选采购。 二、项目概况与采购范围 (一)项目名称：海口海关缉私局车棚及单身公寓消防梯修缮改造项目；(二)项目建设内容：近年影响海南海口的台风较多，如去年的“麦德姆”、“桦加沙
 
 ## 正文
 
-中新社北京4月7日电 (陶思阅)中国央行7日发布的数据显示，3月末黄金储备报7438万盎司，较2月末的7422万盎司增加16万盎司。
+一、采购条件 海口海关缉私局车棚及单身公寓消防梯修缮改造项目已获批准实施，项目业主为海口海关缉私局，项目资金来自财政资金，项目出资比例为100%，采购人为海口海关缉私局。
 
-此为中国央行连续第17个月增持黄金。
+项目已具备采购条件，现对该项目进行比选采购。
 
-国家金融与发展实验室特聘高级研究员庞溟接受中新社采访时表示，过去一年多来，全球央行普遍提高黄金配置比例，以对冲美元资产波动、分散地缘政治风险。
+二、项目概况与采购范围 (一)项目名称：海口海关缉私局车棚及单身公寓消防梯修缮改造项目；(二)项目建设内容：近年影响海南海口的台风较多，如去年的“麦德姆”、“桦加沙”，局机关办公区的车棚棚顶破损、塌陷，车棚顶部横梁基础松动沉降变形，在接缝处存在严重漏水渗水迹象，排水系统失效，抗风能力不足，在强风天气下棚顶易被掀翻、骨架变形等风险。
 
-中国央行连续17个月增持黄金，体现了在外汇储备结构中提升“非信用资产”比重的明确取向，也反映出在全球货币体系调整加速的背景下，中国央行更重视储备资产的安全性与长期稳定性。
+单身公寓楼自2017年投入使用以来，消防楼梯至今未进行过维修维护，经过近期安全检查发现，该消防楼梯锈蚀严重，13块平台、145级台阶均存在钢板锈穿透迹象，存在安全隐患；该楼东侧的电动自行车棚棚顶锈蚀情况较为严重，主体框架漆面脱落，损坏程度日益严重，周围排水沟盖板损坏、强度较差，人员通过时存在严重安全隐患。
 
-庞溟认为，在全球央行纷纷“屯金”的背景下，中国央行低量、多次、小幅的补仓节奏，更易于平滑市场波动、把握成本窗口、降低一次性大批量购入对金价的冲击。
+拟通过对车棚及单身公寓楼消防梯进行修缮改造，提升办公人员办公区域、生活区域环境，消除消防梯老旧出现安全隐患等问题。
 
-此举既提前对冲了全球宏观风险，又可以在关键节点提供“官方预期”信号，持续为市场预期提供“稳定器”功效。
+项目具体内容及需求详见比选文件《海口海关缉私局车棚及单身公寓消防梯修缮改造项目需求书》。
 
-展望未来，瑞银在近期研报中指出，官方部门购金的结构性趋势并未改变，全球央行仍将是黄金净买家，但购金量会逐渐减少。
+(三)施工工期：自下达开工令起30日历天； (四)质保期：验收合格当天起计算，质保期2年； (五)质量要求：达到国家及相关行业的合格标准； (六)最高限价：人民币95156.32元； (七)施工地点：海口海关缉私局。
 
-(完)
+三、比选投标人资格要求 (一)在中华人民共和国注册、具有独立承担民事责任的能力(企业需提供三证合一营业执照复印件、事业单位需提供事业单位法人证书复印件)； (二)具备能承办本项目的有效合法证照(证照中营业范围、业务范围与本项目相关)； (三)截至报名截止之日未被列入“信用中国”网站(www.creditchina.gov.cn)的“失信被执行人”“重大税收违法失信主体”名单，未被列入政府采购严重违法失信行为记录名单(提供比选公告发布之日起10日内的查询截图加盖公章)； (四)具有履行合同所必需的设备和专业技术能力(需提供书面承诺函并加盖投标人公章并单位负责人签字或盖章)； (五)参加本项目比选活动前三年内，在经营活动中没有重大违法记录(需提供书面声明函并加盖投标人公章并单位负责人签字或盖章)； (六)投标人须具备有效的安全生产许可证，拟派项目专职安全
 
 ## 相关推荐
 
-- 2026-06-30 02:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 02:54 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 02:32 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 02:36 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 02:37 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 02:53 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 02:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 02:31 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 02:51 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-30 02:58 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 02:39 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 02:56 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 02:42 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 02:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 02:56 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 03:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 02:45 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 03:05 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 02:38 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 03:04 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 02:55 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 03:02 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 03:01 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 02:47 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 02:44 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 02:42 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 02:49 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:54 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/71733672922.shtml)
-- 2026-06-30 02:42 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/7548096764.shtml)
-- 2026-06-30 02:42 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/78636482.shtml)
-- 2026-06-30 02:46 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/032437493677.shtml)
-- 2026-06-30 02:42 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/7342976.shtml)
-- 2026-06-30 02:34 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/008783071904.shtml)
-- 2026-06-30 02:58 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/136676.shtml)
-- 2026-06-30 02:48 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/607053.shtml)
-- 2026-06-30 02:40 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/2543989778.shtml)
-- 2026-06-30 02:50 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/332617540964.shtml)
-- 2026-06-30 02:52 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/530151034168.shtml)
-- 2026-06-30 02:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/260984830303.shtml)
-- 2026-06-30 02:46 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/16477.shtml)
-- 2026-06-30 02:52 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/06026989632.shtml)
-- 2026-06-30 02:46 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/9368216390.shtml)
+- 2026-06-30 02:51 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/0315682575.shtml)
+- 2026-06-30 02:57 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/47631288.shtml)
+- 2026-06-30 02:36 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/267064253.shtml)
+- 2026-06-30 02:50 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/5648378.shtml)
+- 2026-06-30 02:55 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/9050718239.shtml)
+- 2026-06-30 03:05 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/681328.shtml)
+- 2026-06-30 02:54 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/4053604121.shtml)
+- 2026-06-30 02:43 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/2738876338.shtml)
+- 2026-06-30 02:55 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/20851862518.shtml)
+- 2026-06-30 02:41 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/28748613154.shtml)
+- 2026-06-30 03:00 - [月亮](https://www.blog.minike.top/Article/details/43113089846.shtml)
+- 2026-06-30 03:00 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/610620.shtml)
+- 2026-06-30 02:53 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/689796956.shtml)
+- 2026-06-30 02:40 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/7268624840.shtml)
+- 2026-06-30 02:53 - [周生如故](https://www.blog.kurohicncr.top/Article/details/073957212.shtml)

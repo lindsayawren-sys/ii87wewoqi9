@@ -1,45 +1,57 @@
-# 我国成功发射千帆星座第7批组网卫星
+# 进出口银行中高层调整 纪检监察组组长卸任
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-新华社海南文昌4月7日电(记者陈凯姿)7日21时32分，长征八号运载火箭在海南商业航天发射场以“一箭十八星”方式，将千帆星座第7批组网卫星送入预定轨道，发射任务获得圆满成功。(完)
+来源：金融人事mini 近日，进出口银行发布2025年年报，其中披露了部分高管变动情况。2026年3月，曾明子不再担任该行党委委员、中央纪委国家监委驻行纪检监察组组长。 曾明子，1964年4月生，大学学历、文学学士学位，曾任中央纪委办公厅检查员、监察员，中央纪委中国方正出版社副社长，中央巡视领导小组办公室副主任，中纪委宣传部副部长兼中国纪检监察杂志社社长等职务。 2018年7月
 
 ## 正文
 
-新华社海南文昌4月7日电(记者陈凯姿)7日21时32分，长征八号运载火箭在海南商业航天发射场以“一箭十八星”方式，将千帆星座第7批组网卫星送入预定轨道，发射任务获得圆满成功。
+来源：金融人事mini 近日，进出口银行发布2025年年报，其中披露了部分高管变动情况。
 
-(完)
+2026年3月，曾明子不再担任该行党委委员、中央纪委国家监委驻行纪检监察组组长。
+
+曾明子，1964年4月生，大学学历、文学学士学位，曾任中央纪委办公厅检查员、监察员，中央纪委中国方正出版社副社长，中央巡视领导小组办公室副主任，中纪委宣传部副部长兼中国纪检监察杂志社社长等职务。
+
+2018年7月，曾明子出任进出口银行党委委员、纪委书记；2019年1月起任中央纪委国家监委驻进出口银行纪检监察组组长，直至近期卸任。
+
+目前，官网领导名单已不再显示其信息。
+
+今年3月初，曾明子最后一次主持会议，对派驻组及行内纪检机构学习教育作出部署安排。
+
+其表示要聚焦理论武装、职责使命、严督实抓、以学促干，加强对内设纪检机构的督促指导，领导干部以身作则，从一体推进“三不腐”的政治高度深入查摆政绩观方面存在问题。
+
+银行人事还了解到，驻进出口银行纪检监察组副组长谌奇也已到龄。
 
 ## 相关推荐
 
-- 2026-06-30 02:30 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 02:36 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-30 02:50 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 02:38 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 02:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 02:54 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 02:35 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 02:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 02:44 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 02:48 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 02:56 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 02:38 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 02:58 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 02:39 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 03:03 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 02:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 02:37 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 03:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 02:49 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 02:58 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 02:50 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 02:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/60978.shtml)
-- 2026-06-30 02:52 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/285983991691.shtml)
-- 2026-06-30 02:46 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/595764736746.shtml)
-- 2026-06-30 02:30 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/24759366.shtml)
-- 2026-06-30 02:46 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/16986433.shtml)
-- 2026-06-30 02:47 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/71658670.shtml)
-- 2026-06-30 02:43 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/36028166854.shtml)
-- 2026-06-30 02:31 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/2894798619.shtml)
-- 2026-06-30 02:30 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/3962762.shtml)
-- 2026-06-30 02:52 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/355556.shtml)
-- 2026-06-30 02:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/191806516.shtml)
-- 2026-06-30 02:36 - [周生如故](https://www.share.kurohicncr.top/Article/details/31159973.shtml)
-- 2026-06-30 02:44 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/61644530952.shtml)
-- 2026-06-30 02:40 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/02157029559.shtml)
-- 2026-06-30 02:45 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/00532056332.shtml)
+- 2026-06-30 03:00 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/132018.shtml)
+- 2026-06-30 02:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/7311630.shtml)
+- 2026-06-30 02:55 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/393287554256.shtml)
+- 2026-06-30 02:39 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/81357118434.shtml)
+- 2026-06-30 02:55 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/224647.shtml)
+- 2026-06-30 02:55 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/39105.shtml)
+- 2026-06-30 03:03 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/794521018.shtml)
+- 2026-06-30 02:45 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/120417.shtml)
+- 2026-06-30 02:47 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/993188179117.shtml)
+- 2026-06-30 02:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/5250657469.shtml)
+- 2026-06-30 02:54 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/505498.shtml)
+- 2026-06-30 02:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/132345.shtml)
+- 2026-06-30 02:46 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/93163.shtml)
+- 2026-06-30 02:56 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/50843.shtml)
+- 2026-06-30 03:01 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/59141781987.shtml)

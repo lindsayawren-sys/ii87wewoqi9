@@ -1,61 +1,58 @@
-# 春假清明“拼”出长线游：赏花、乐园、出境都“热”了
+# 财报倒计时！美银断言英伟达业绩“超预期”！AI算力新一轮行情有望开启？
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月07日 18:00 来源：中国新闻网 4月6日，首个“春假+清明小长假”的联动假期迎来收官。记者从多家在线旅游平台了解到，今年清明小长假因与多地春假连休，旅游市场格外火热。在春日盛景中，赏花游成为清明假期的核心主题。同时，主题乐园也成为这个“含娃量”最高假期的热门选择。 “双假”联动也激发了中国游客的出境游热情。清明假期，免签目的地成为出境游的首选。同
+美银证券分析师Vivek Arya团队发布英伟达Q1财报前瞻指出，鉴于该公司过去十个季度实际营收平均超出管理层指引7%至8%的历史规律，结合管理层此前给出的780亿美元营收指引，推算英伟达Q1实际营收大概率将落在830亿至840亿美元区间，大幅高于市场一致的787亿美元预期，这意味着财报“超预期”或成定局，英伟达财报将于美东时间5月20日收盘后公布。 英伟达作为创业板人工智能先
 
 ## 正文
 
-发布时间：2026年04月07日 18:00 来源：中国新闻网 4月6日，首个“春假+清明小长假”的联动假期迎来收官。
+美银证券分析师Vivek Arya团队发布英伟达Q1财报前瞻指出，鉴于该公司过去十个季度实际营收平均超出管理层指引7%至8%的历史规律，结合管理层此前给出的780亿美元营收指引，推算英伟达Q1实际营收大概率将落在830亿至840亿美元区间，大幅高于市场一致的787亿美元预期，这意味着财报“超预期”或成定局，英伟达财报将于美东时间5月20日收盘后公布。
 
-记者从多家在线旅游平台了解到，今年清明小长假因与多地春假连休，旅游市场格外火热。
+英伟达作为创业板人工智能先行指标，其财报表现往往对A股AI板块形成直接催化，有望进一步提振市场对AI算力产业链的信心。
 
-在春日盛景中，赏花游成为清明假期的核心主题。
+在此背景下，聚焦光模块龙头等海外算力链的创业板人工智能ETF华宝（159363）值得重点关注，最新光模块含量超50%，一键布局“易中天”等龙头。
 
-同时，主题乐园也成为这个“含娃量”最高假期的热门选择。
+热点追踪 英伟达即将公布的第一财季财报备受市场瞩目，多家华尔街机构对这一“AI龙头”的表现持高度乐观态度。
 
-“双假”联动也激发了中国游客的出境游热情。
+美银（Morgan Stanley）分析师Vivek Arya将英伟达目标价上调至320美元，并预测其2026年营收有望超过1900亿美元，创下商业公司历史最高纪录。
 
-清明假期，免签目的地成为出境游的首选。
+根据市场共识，英伟达Q1每股收益预计为1.76美元，营收约为787.5亿美元，远超去年同期的440.6亿美元。
 
-同时，入境游活力也进一步释放，清明祭祖传统吸引华人入境，港澳台、马来西亚等客源成为入境主力。
+另有观点认为，英伟达Q1实际营收可能高达830至840亿美元，这一数据大概率将超出市场预期，再次验证“业绩超预期并上调指引”的强劲势头。
 
-(记者 郎佳慧 北京报道） 责任编辑：【于晓】
+驱动这一强劲表现的核心动力来自于数据中心业务的爆发式增长，预计该板块收入将达728.5亿美元，其中计算领域贡献超605亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 02:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-30 02:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 02:36 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 02:41 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 02:44 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 02:31 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 02:38 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-30 02:37 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 02:49 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 02:38 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 02:45 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 02:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 02:49 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 02:37 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 02:32 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 02:50 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 02:53 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 02:40 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 02:55 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 02:41 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 02:52 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 02:46 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 03:03 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 02:37 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 03:05 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 02:49 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 03:00 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:44 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/78295570.shtml)
-- 2026-06-30 02:49 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/38870965.shtml)
-- 2026-06-30 02:51 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/371997.shtml)
-- 2026-06-30 02:55 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/20143943644.shtml)
-- 2026-06-30 02:37 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/763311856454.shtml)
-- 2026-06-30 02:52 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/84187022692.shtml)
-- 2026-06-30 02:37 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/172743.shtml)
-- 2026-06-30 02:37 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/200470345.shtml)
-- 2026-06-30 02:55 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/2522954489.shtml)
-- 2026-06-30 02:38 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/52614292679.shtml)
-- 2026-06-30 02:44 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/62111414233.shtml)
-- 2026-06-30 02:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/1377875.shtml)
-- 2026-06-30 02:41 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/39219560.shtml)
-- 2026-06-30 02:46 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/160160.shtml)
-- 2026-06-30 02:51 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/182835.shtml)
+- 2026-06-30 03:05 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/91958242.shtml)
+- 2026-06-30 02:39 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/923270088005.shtml)
+- 2026-06-30 02:37 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/18725.shtml)
+- 2026-06-30 02:49 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/86562784.shtml)
+- 2026-06-30 02:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/91761797480.shtml)
+- 2026-06-30 02:37 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/371001605539.shtml)
+- 2026-06-30 02:46 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/56653.shtml)
+- 2026-06-30 02:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/693918875927.shtml)
+- 2026-06-30 03:03 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/86336863.shtml)
+- 2026-06-30 02:45 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/62850157.shtml)
+- 2026-06-30 02:48 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/6400931.shtml)
+- 2026-06-30 02:36 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/01242838795.shtml)
+- 2026-06-30 03:05 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/149906689.shtml)
+- 2026-06-30 02:43 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/45769.shtml)
+- 2026-06-30 02:44 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/6196604.shtml)

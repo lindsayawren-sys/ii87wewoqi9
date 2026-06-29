@@ -1,60 +1,57 @@
-# 皇氏集团从“减亏”到巨亏，祸起一家合营企业
+# “熊猫专列·锦绣天府号”首发 蜀锦宋韵解锁高端文旅出行新范式
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 近日，皇氏集团（维权）（002329.SZ）发布的一则业绩预告修正公告，再次将原本改善的业绩“打回原形”。 今年1月，皇氏集团发布公告称，预计2025年度归母净利润亏损1.9亿元至2.8亿元，虽然仍在亏损，但较2024年同期6.81亿元的巨亏
+中新网成都5月19日电 (记者 王鹏)蜀锦宋韵主题高端旅游列车“熊猫专列·锦绣天府号”19日在成都首发，标志着“熊猫专列”家族再添新成员。 据了解，自2021年“熊猫专列”旅游产品推出以来，已先后在贵州、云南、山东、新疆、甘肃、黑龙江等30多个省区市开行。旅游列车将观光与出行深度融合，以“快旅慢游、一线多游、省心便捷、环境舒适”的特点，满足游客多元化的出行需求，目前已形成“安逸
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网成都5月19日电 (记者 王鹏)蜀锦宋韵主题高端旅游列车“熊猫专列·锦绣天府号”19日在成都首发，标志着“熊猫专列”家族再添新成员。
 
-来源：证券之星 近日，皇氏集团（维权）（002329.SZ）发布的一则业绩预告修正公告，再次将原本改善的业绩“打回原形”。
+据了解，自2021年“熊猫专列”旅游产品推出以来，已先后在贵州、云南、山东、新疆、甘肃、黑龙江等30多个省区市开行。
 
-今年1月，皇氏集团发布公告称，预计2025年度归母净利润亏损1.9亿元至2.8亿元，虽然仍在亏损，但较2024年同期6.81亿元的巨亏已有大幅收窄。
+旅游列车将观光与出行深度融合，以“快旅慢游、一线多游、省心便捷、环境舒适”的特点，满足游客多元化的出行需求，目前已形成“安逸号”“什邡号”“成都号”及“锦绣天府号”四代谱系化产品体系。
 
-然而，短短两个月后，皇氏集团直接将亏损额修正至4.2亿元至4.9亿元，修正幅度超过75%。
+“锦绣天府号”列车聚焦高端文旅赛道，以“蜀锦宋韵”为核心美学定位，将东方古典美学与轻奢旅居体验深度融合。
 
-证券之星注意到，受限于年度审计工作尚未全面开展，皇氏集团对泰安数智城市运营有限公司（以下简称“数智运营”）的长期股权投资减值测算并不准确完整。
+全列编组18节，定员92席，设46间私密客房，构建起锦榻、锦卧、锦雅、锦食、锦集五大主题空间，复刻《营造法式》建筑美学，兼具住宿、餐饮、休闲、观景、非遗体验等多元功能。
 
-随着独立评估机构介入，数智运营的可收回金额远低于此前估算，这笔计补充提直接吞噬了公司数亿元利润。
+“第一个要体验的，当然就是在火车上有非常好的房间可以睡觉。
 
-数智运营是一家怎样的公司，能让皇氏集团在业绩预告发布后两个月内被迫“紧急加亏”？
+”旅客丁月惠说，她和朋友听说“熊猫专列·锦绣天府号”首发，专程前来体验，“南北疆一起玩只要16天，又可以在火车上过夜，很适合我们退休人员长途旅行。
 
-而这家昔日“水牛奶第一股”的经营，又将驶向什么方向？
+” 据了解，本次首发线路为16天南北疆全景深度之旅，列车从成都出发，串联天山天池、喀纳斯、赛里木湖等新疆标志性景点，一站式领略雪山、湖泊、草原、丝路遗迹等极致风光。
 
 ## 相关推荐
 
-- 2026-06-30 02:36 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 02:43 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-30 02:38 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 02:51 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 02:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 02:44 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 02:39 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 02:44 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 02:51 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 02:30 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-30 02:58 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 02:58 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 02:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 02:56 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 02:49 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-30 02:40 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 02:49 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 02:57 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 02:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 02:43 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 02:47 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 02:45 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 02:51 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 02:40 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 02:39 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:34 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/701352475.shtml)
-- 2026-06-30 02:50 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/3791512.shtml)
-- 2026-06-30 02:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/6929594488.shtml)
-- 2026-06-30 02:41 - [月亮](http://www.share.kurohicncr.top/Article/details/7481931947.shtml)
-- 2026-06-30 02:37 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/38790065953.shtml)
-- 2026-06-30 02:50 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/86368953276.shtml)
-- 2026-06-30 02:31 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/064349777.shtml)
-- 2026-06-30 02:54 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/966065.shtml)
-- 2026-06-30 02:47 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/8592439.shtml)
-- 2026-06-30 02:56 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/57745387825.shtml)
-- 2026-06-30 02:37 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/14350865.shtml)
-- 2026-06-30 02:41 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/03186885545.shtml)
-- 2026-06-30 02:32 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/33629818.shtml)
-- 2026-06-30 02:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/06860.shtml)
-- 2026-06-30 02:37 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/53986.shtml)
+- 2026-06-30 02:38 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/6084963.shtml)
+- 2026-06-30 02:42 - [月亮](https://www.blog.minike.top/Article/details/495277028.shtml)
+- 2026-06-30 02:36 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/4925519.shtml)
+- 2026-06-30 02:52 - [沙丘](https://www.blog.minike.top/Article/details/47754365336.shtml)
+- 2026-06-30 02:48 - [孙兴慜道歉](https://www.share.minike.top/Article/details/9253723063.shtml)
+- 2026-06-30 02:55 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/851616747.shtml)
+- 2026-06-30 02:50 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/6912586.shtml)
+- 2026-06-30 02:36 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/900283678.shtml)
+- 2026-06-30 03:03 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/205587368.shtml)
+- 2026-06-30 03:01 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/520732322696.shtml)
+- 2026-06-30 02:38 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/71424.shtml)
+- 2026-06-30 02:40 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/818143717.shtml)
+- 2026-06-30 03:00 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/59191.shtml)
+- 2026-06-30 02:50 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/14283324620.shtml)
+- 2026-06-30 03:02 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/650922.shtml)

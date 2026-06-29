@@ -1,59 +1,51 @@
-# 博时市场点评4月7日：两市震荡上涨，成交持续缩量
+# 日经指数或下跌，因对能源和材料成本的担忧持续
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-🌟【博时市场点评4月7日】两市震荡上涨，成交持续缩量 📝每日观点 🎈今日沪深三大指数震荡收涨，两市成交较上周五继续缩量至1.62万亿。从基本面看，国内3月PMI指标重返扩展区间，供需指标均有所上行，显示经济景气度在春节后季节性回升的基础上，叠加政策发力，实现了超季节性的改善，后续需关注原材料价格大幅上行对中下游企业利润的挤压程度，以及价格能否向下游传导。海外方面，美国3月新增非
+在中东冲突持续之际，由于对能源和材料成本上升的担忧持续，日本股市可能下跌。新加坡交易所的日经指数期货下跌0.1%，报60780点。投资者正关注中东局势的发展，以及日本政府和企业为应对能源和其他产品短缺而采取的措施。日经指数周二下跌0.4%，至60550.59点。责任编辑：王永生
 
 ## 正文
 
-🌟【博时市场点评4月7日】两市震荡上涨，成交持续缩量 📝每日观点 🎈今日沪深三大指数震荡收涨，两市成交较上周五继续缩量至1.62万亿。
+在中东冲突持续之际，由于对能源和材料成本上升的担忧持续，日本股市可能下跌。
 
-从基本面看，国内3月PMI指标重返扩展区间，供需指标均有所上行，显示经济景气度在春节后季节性回升的基础上，叠加政策发力，实现了超季节性的改善，后续需关注原材料价格大幅上行对中下游企业利润的挤压程度，以及价格能否向下游传导。
+新加坡交易所的日经指数期货下跌0.1%，报60780点。
 
-海外方面，美国3月新增非农就业高于预期，失业率也超预期回落，由于统计变化使得1-3月非农就业数据波动较大，但从均值来看仍较去年四季度有所好转，整体仍有韧性，后续受到高油价对增长的拖累，就业市场中枢或有所回落。
+投资者正关注中东局势的发展，以及日本政府和企业为应对能源和其他产品短缺而采取的措施。
 
-近期扰动全球市场的美伊冲突仍有不确定性，由此引发的类滞胀交易仍然难以消散。
+日经指数周二下跌0.4%，至60550.59点。
 
-短期防御策略或仍是较好选择，权益上或可考虑红利低波+确定性成长的配置。
-
-在中长期视角下，地缘冲突反复可能加速全球资本对安全资产的配置需求，国内更好的安全环境和基本面的逐步向好或吸引跨境资本布局。
-
-🔥消息面 🎈4月6日，交通运输部数据显示，清明假期（4月4日至6日），全社会跨区域人员流动量预计84537.8万人次，日均28179万人次，同比增长6%。
-
-铁路、公路、民航首日客运量均超历史同期峰值。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 02:53 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 02:39 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 02:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 02:32 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 02:38 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 02:43 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 02:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 02:31 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 02:55 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 02:51 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 02:54 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 02:50 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 02:59 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 02:42 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 02:39 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 02:53 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 03:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 02:52 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 02:57 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 03:01 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 03:03 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 02:47 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 02:41 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/115179615316.shtml)
-- 2026-06-30 02:47 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/282412648184.shtml)
-- 2026-06-30 02:43 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/5513969.shtml)
-- 2026-06-30 02:54 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/24550.shtml)
-- 2026-06-30 02:48 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/69036595356.shtml)
-- 2026-06-30 02:53 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/79329446062.shtml)
-- 2026-06-30 02:59 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/92031975.shtml)
-- 2026-06-30 02:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/90517300518.shtml)
-- 2026-06-30 02:53 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/4102322420.shtml)
-- 2026-06-30 02:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/40222.shtml)
-- 2026-06-30 02:49 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/92346.shtml)
-- 2026-06-30 02:36 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/303630496.shtml)
-- 2026-06-30 02:59 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/1411400.shtml)
-- 2026-06-30 02:37 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/98388300.shtml)
-- 2026-06-30 02:53 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/89822965.shtml)
+- 2026-06-30 02:55 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/2147493.shtml)
+- 2026-06-30 02:48 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/386950.shtml)
+- 2026-06-30 03:02 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/712742330475.shtml)
+- 2026-06-30 03:00 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/585656989534.shtml)
+- 2026-06-30 02:44 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/41678958.shtml)
+- 2026-06-30 02:46 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/40638.shtml)
+- 2026-06-30 03:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/8250930883.shtml)
+- 2026-06-30 02:38 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/28395690467.shtml)
+- 2026-06-30 02:38 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/15783219.shtml)
+- 2026-06-30 03:04 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/69802.shtml)
+- 2026-06-30 02:44 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/858257.shtml)
+- 2026-06-30 02:54 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/543579834.shtml)
+- 2026-06-30 03:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/714410348351.shtml)
+- 2026-06-30 02:59 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/1667277.shtml)
+- 2026-06-30 02:52 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/1230304.shtml)

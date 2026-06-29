@@ -1,57 +1,50 @@
-# 央行货币政策委员会第一季度例会提出 加强货币政策调控 维护金融市场稳定运行
+# 杨子家族旗下巨力索具连续跌停
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-中国人民银行3月31日消息，日前召开的央行货币政策委员会2026年第一季度例会提出，发挥增量政策和存量政策集成效应，综合运用多种工具，加强货币政策调控；维护金融市场稳定运行。 会议分析了国内外经济金融形势，认为当前外部环境变化影响加深，世界经济动能疲弱，地缘冲突和经贸冲突多发频发，主要经济体经济表现有所分化，通胀走势和货币政策调整存在不确定性。我国经济运行总体平稳、稳中有进，高
+发布时间：2026年05月19日 15:50 来源：中国新闻网 19日，巨力索具连续第二日跌停。消息面上，5月15日晚间，由知名演员杨子家族掌控的A股上市公司巨力索具发布公告，因公司涉嫌信息披露误导性陈述违法违规，收到《中国证券监督管理委员会立案告知书》。此前靠着商业航天概念，半年时间内巨力索具股价最高涨近三倍。与此同时，杨子家族上市以来累计套现超28亿元，远超公司16年来净利
 
 ## 正文
 
-中国人民银行3月31日消息，日前召开的央行货币政策委员会2026年第一季度例会提出，发挥增量政策和存量政策集成效应，综合运用多种工具，加强货币政策调控；维护金融市场稳定运行。
+发布时间：2026年05月19日 15:50 来源：中国新闻网 19日，巨力索具连续第二日跌停。
 
-会议分析了国内外经济金融形势，认为当前外部环境变化影响加深，世界经济动能疲弱，地缘冲突和经贸冲突多发频发，主要经济体经济表现有所分化，通胀走势和货币政策调整存在不确定性。
+消息面上，5月15日晚间，由知名演员杨子家族掌控的A股上市公司巨力索具发布公告，因公司涉嫌信息披露误导性陈述违法违规，收到《中国证券监督管理委员会立案告知书》。
 
-我国经济运行总体平稳、稳中有进，高质量发展取得新成效，但仍面临供强需弱、外部冲击等问题和挑战。
+此前靠着商业航天概念，半年时间内巨力索具股价最高涨近三倍。
 
-要继续实施适度宽松的货币政策，加大逆周期和跨周期调节力度，更好发挥货币政策工具的总量和结构双重功能，加强货币财政政策协同配合，促进经济稳定增长和物价合理回升。
+与此同时，杨子家族上市以来累计套现超28亿元，远超公司16年来净利润总和。
 
-会议研究了下阶段货币政策主要思路，建议发挥增量政策和存量政策集成效应，综合运用多种工具，加强货币政策调控，根据国内外经济金融形势和金融市场运行情况，把握好政策实施的力度、节奏和时机。
-
-保持流动性充裕，使社会融资规模、货币供应量增长同经济增长、价格总水平预期目标相匹配。
-
-强化央行政策利率引导，完善市场化利率形成传导机制，发挥市场利率定价自律机制作用，加强利率政策执行和监督。
-
-规范信贷市场经营行为，降低融资中间费用，促进社会综合融资成本低位运行。
+(记者 谢艺观） 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-30 02:31 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 02:40 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 02:58 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 02:30 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 02:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 02:53 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 02:36 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 02:42 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 02:39 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 02:45 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 02:56 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 02:58 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 02:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-30 03:00 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 02:47 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 02:52 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 02:50 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 02:54 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 02:46 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 02:42 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 02:49 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/771891.shtml)
-- 2026-06-30 02:33 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/7926255552.shtml)
-- 2026-06-30 02:57 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/942905.shtml)
-- 2026-06-30 02:31 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/21914884.shtml)
-- 2026-06-30 02:33 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/812499819.shtml)
-- 2026-06-30 02:36 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/7347562340.shtml)
-- 2026-06-30 02:36 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/238562775432.shtml)
-- 2026-06-30 02:56 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/790996.shtml)
-- 2026-06-30 02:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/76295354690.shtml)
-- 2026-06-30 02:43 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/09798051.shtml)
-- 2026-06-30 02:37 - [斗破苍穹](http://www.blog.minike.top/Article/details/72939886041.shtml)
-- 2026-06-30 02:45 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/05821989638.shtml)
-- 2026-06-30 02:33 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/60912888596.shtml)
-- 2026-06-30 02:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/186916.shtml)
-- 2026-06-30 02:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/69486542.shtml)
+- 2026-06-30 02:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/82231567982.shtml)
+- 2026-06-30 03:00 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/695215470.shtml)
+- 2026-06-30 02:50 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/408689471841.shtml)
+- 2026-06-30 02:47 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/638729.shtml)
+- 2026-06-30 02:37 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/0768078.shtml)
+- 2026-06-30 02:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/8395222359.shtml)
+- 2026-06-30 02:51 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/03397.shtml)
+- 2026-06-30 02:46 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/2351957.shtml)
+- 2026-06-30 02:38 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/9969966904.shtml)
+- 2026-06-30 03:04 - [小娘惹](http://www.share.minike.top/Article/details/25844525793.shtml)
+- 2026-06-30 02:42 - [千香](https://www.share.minike.top/Article/details/8437822.shtml)
+- 2026-06-30 02:50 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/262167247.shtml)
+- 2026-06-30 02:36 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/581991.shtml)
+- 2026-06-30 02:41 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/953587.shtml)
+- 2026-06-30 02:57 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/973731503.shtml)

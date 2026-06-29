@@ -1,59 +1,61 @@
-# “十五五”规划纲要关注民生福祉 7项指标传递暖意
+# 40.98万元起，标配第二代刀片电池及闪充技术，腾势N9闪充版上市
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-覆盖人民群众最关心最直接最现实的问题—— 民生福祉，7项指标传递暖意(20项主要指标，描绘未来五年中国发展新图景③) 就业、收入、教育、健康、养老、托育……“十五五”规划纲要列出20项经济社会发展主要指标，其中民生福祉类有7项，占比超过1/3，覆盖人民群众最关心最直接最现实的问题。 从居民人均可支配收入增长与GDP增长同步，到养老机构护理型床位占比增加、3岁以下婴幼儿入托率提高
+5月18日，科技驾控旗舰SUV——腾势N9闪充版上市，推出闪充尊荣型、闪充尊越型、闪充旗舰型三款车型，官方指导价40.98万元—46.98万元。华语乐坛巨星王力宏，成为腾势汽车第50万辆车主，也是腾势N9闪充版首位车主。新车全系标配第二代刀片电池及闪充技术、易三方、云辇-A闭式双腔空悬、天神之眼5.0辅助驾驶系统、全新一代AI智能座舱等科技豪华配置，并带来五大旗舰升级。腾势N9
 
 ## 正文
 
-覆盖人民群众最关心最直接最现实的问题—— 民生福祉，7项指标传递暖意(20项主要指标，描绘未来五年中国发展新图景③) 就业、收入、教育、健康、养老、托育……“十五五”规划纲要列出20项经济社会发展主要指标，其中民生福祉类有7项，占比超过1/3，覆盖人民群众最关心最直接最现实的问题。
+5月18日，科技驾控旗舰SUV——腾势N9闪充版上市，推出闪充尊荣型、闪充尊越型、闪充旗舰型三款车型，官方指导价40.98万元—46.98万元。
 
-从居民人均可支配收入增长与GDP增长同步，到养老机构护理型床位占比增加、3岁以下婴幼儿入托率提高，一系列明确的指标，意味着未来5年居民生活的诸多方面都将迎来新变化。
+华语乐坛巨星王力宏，成为腾势汽车第50万辆车主，也是腾势N9闪充版首位车主。
 
-正如有网友评价，“这不仅是国家蓝图，更是14亿多人触手可及的美好生活。
+新车全系标配第二代刀片电池及闪充技术、易三方、云辇-A闭式双腔空悬、天神之眼5.0辅助驾驶系统、全新一代AI智能座舱等科技豪华配置，并带来五大旗舰升级。
 
-”“一增一调一转”，增强群众获得感 7项民生福祉指标都有啥？
+腾势N9闪充版，以科技旗舰，纵享从容，加速新能源全球化布局。
 
-根据“十五五”规划纲要，这7项分别是：未来5年，城镇调查失业率低于5.5%；居民人均可支配收入增长与GDP增长同步；劳动年龄人口平均受教育年限再增长0.4年，也就是从2025年的11.3年增长到2030年的11.7年；每千人口拥有医护人员数中，执业医师数到2030年增加到3.7人，注册护士数到2030年增加到5.1人；养老机构护理型床位占比提升5个百分点，2030年达73%；3岁以下婴幼儿入托率5年提高6个百分点；人均预期寿命到2030年达80岁。
+即日下订腾势N9闪充版，可享至高价值11万元限时购车权益！
 
-其中，劳动年龄人口平均受教育年限为约束性指标，其他为预期性指标。
+包含至高7万元选装权益、至高贴息约2万元金融方案、至高2万元置换补贴、1年免费闪充权益等，诚意满满！
 
-“这体现出以人民为中心的发展思想贯穿民生发展各领域。
+发布会上，王力宏分享了自己关于音乐的初心与坚守，盛赞腾势汽车的原创设计和创新技术。
 
-”国家发展改革委社会发展研究所室主任李璐认为，主要民生指标相较“十四五”有较强的延续性，在目标值设置上科学合理，呈现问题导向与目标导向相结合、满足需求与引导预期相结合的特征。
+他还表示，祝愿今天在场的每一位朋友，都能守住心中的热爱，在人生的道路上，奔赴“最好的地方”。
 
 ## 相关推荐
 
-- 2026-06-30 02:49 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 02:51 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 02:55 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 02:37 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 02:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 02:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 02:37 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 02:45 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 02:43 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 02:37 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 02:55 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 02:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 02:55 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 02:59 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 02:47 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 02:42 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 02:47 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 02:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 02:46 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 02:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 02:37 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 02:39 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 02:41 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 02:59 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 02:36 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 02:59 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 02:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-30 03:03 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:52 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/974377601506.shtml)
-- 2026-06-30 02:59 - [美股](https://www.blog.kurohicncr.top/Article/details/1003126118.shtml)
-- 2026-06-30 02:50 - [沉睡花园](http://www.blog.minike.top/Article/details/305526108.shtml)
-- 2026-06-30 02:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/00694991.shtml)
-- 2026-06-30 02:34 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/136267.shtml)
-- 2026-06-30 02:39 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/049963.shtml)
-- 2026-06-30 02:31 - [日本进球](https://www.blog.minike.top/Article/details/799367059.shtml)
-- 2026-06-30 02:50 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/08078470244.shtml)
-- 2026-06-30 02:43 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/329426.shtml)
-- 2026-06-30 02:43 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/724011176.shtml)
-- 2026-06-30 02:32 - [金牌调解](http://www.share.minike.top/Article/details/02019541984.shtml)
-- 2026-06-30 02:31 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/568326.shtml)
-- 2026-06-30 02:30 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/4599542734.shtml)
-- 2026-06-30 02:38 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/19342.shtml)
-- 2026-06-30 02:43 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/879364637.shtml)
+- 2026-06-30 02:52 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/121619586.shtml)
+- 2026-06-30 02:39 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/75910.shtml)
+- 2026-06-30 03:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/01197990.shtml)
+- 2026-06-30 02:41 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/85233745.shtml)
+- 2026-06-30 02:48 - [流金岁月](https://www.share.kurohicncr.top/Article/details/6256207601.shtml)
+- 2026-06-30 02:45 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/8950191.shtml)
+- 2026-06-30 02:53 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/37066.shtml)
+- 2026-06-30 02:54 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/42589657215.shtml)
+- 2026-06-30 02:44 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/3489099991.shtml)
+- 2026-06-30 03:01 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/349030.shtml)
+- 2026-06-30 02:42 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/68794369591.shtml)
+- 2026-06-30 03:02 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/05812634.shtml)
+- 2026-06-30 02:45 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/18497439.shtml)
+- 2026-06-30 02:45 - [巴西vs日本](http://www.blog.minike.top/Article/details/208942.shtml)
+- 2026-06-30 02:39 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/75562356.shtml)

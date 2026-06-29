@@ -1,54 +1,43 @@
-# 冲突背景下 印度拟推出规模最高达 269 亿美元的信贷担保计划
+# 国家主席习近平指出，以更高质量的中俄全面战略协作助力各自国家发展振兴
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-据印度《经济时报》援引未具名知情人士报道，印度正在拟定一项规模最高达 2.5 万亿卢比（269 亿美元）的全新信贷担保计划，以保护本国工业免受中东冲突带来的冲击。 该拟议计划旨在为面临原材料及物流成本上涨压力的企业缓解融资难题。 计划将于两周内公布。 方案大概率参照新冠疫情期间推出的紧急信贷额度担保计划制定。责任编辑：王永生
+新华社快讯：国家主席习近平指出，以更高质量的中俄全面战略协作助力各自国家发展振兴。
 
 ## 正文
 
-据印度《经济时报》援引未具名知情人士报道，印度正在拟定一项规模最高达 2.5 万亿卢比（269 亿美元）的全新信贷担保计划，以保护本国工业免受中东冲突带来的冲击。
-
-该拟议计划旨在为面临原材料及物流成本上涨压力的企业缓解融资难题。
-
-计划将于两周内公布。
-
-方案大概率参照新冠疫情期间推出的紧急信贷额度担保计划制定。
-
-责任编辑：王永生
+新华社快讯：国家主席习近平指出，以更高质量的中俄全面战略协作助力各自国家发展振兴。
 
 ## 相关推荐
 
-- 2026-06-30 02:42 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-30 02:53 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 02:36 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 02:52 - [巴西扳平比分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 02:33 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 02:53 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 02:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 02:32 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 02:45 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 02:46 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 02:33 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 02:55 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 02:52 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 02:32 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 03:00 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 02:45 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 02:47 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 02:39 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 02:37 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 03:05 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 02:36 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 02:39 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 02:42 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 02:39 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 02:42 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:34 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/2650619710.shtml)
-- 2026-06-30 02:44 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/963690229838.shtml)
-- 2026-06-30 02:31 - [极限挑战第一季](http://www.share.minike.top/Article/details/125573487.shtml)
-- 2026-06-30 02:42 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/86505.shtml)
-- 2026-06-30 02:47 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/59419.shtml)
-- 2026-06-30 02:32 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/321983.shtml)
-- 2026-06-30 02:34 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/16179132.shtml)
-- 2026-06-30 02:34 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/74784232486.shtml)
-- 2026-06-30 02:33 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/90326.shtml)
-- 2026-06-30 02:57 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/584793.shtml)
-- 2026-06-30 02:35 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/6727533.shtml)
-- 2026-06-30 02:34 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/04959531.shtml)
-- 2026-06-30 02:57 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/62856.shtml)
-- 2026-06-30 02:56 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/1637189.shtml)
-- 2026-06-30 02:34 - [美人鱼](https://www.share.minike.top/Article/details/35435530255.shtml)
+- 2026-06-30 02:39 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/22139.shtml)
+- 2026-06-30 02:43 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/0333394.shtml)
+- 2026-06-30 02:36 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/428164615584.shtml)
+- 2026-06-30 02:39 - [日本进球](https://www.blog.kurohicncr.top/Article/details/0716095.shtml)
+- 2026-06-30 02:55 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/220254727042.shtml)
+- 2026-06-30 02:43 - [流金岁月](http://www.blog.minike.top/Article/details/030117.shtml)
+- 2026-06-30 02:37 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/549542906.shtml)
+- 2026-06-30 02:59 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/3038514981.shtml)
+- 2026-06-30 02:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/09552718.shtml)
+- 2026-06-30 02:47 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/49838498257.shtml)
+- 2026-06-30 02:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/378600.shtml)
+- 2026-06-30 03:02 - [美人鱼](https://www.blog.minike.top/Article/details/2731610016.shtml)
+- 2026-06-30 02:47 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/92031048.shtml)
+- 2026-06-30 02:57 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/255126347437.shtml)
+- 2026-06-30 02:55 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/234075.shtml)

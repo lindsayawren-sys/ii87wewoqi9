@@ -1,56 +1,50 @@
-# 中东追踪：最后通牒倒计时 特朗普威胁再加码 巴基斯坦提议延长两周
+# 中国华电直属单位原专职董事赵伟被“双开”
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-距离美国总统特朗普为伊朗设定的达成协议、开放霍尔木兹海峡的大限——周二美东时间晚上8点——仅剩数小时，全球都在焦虑不安中观望事态的发展。 特朗普周二加码威胁，称伊朗“整个文明将在今晚灭亡”。伊朗第一副总统则针锋相对地宣称，已经制定了应对各种情境的必要方案。 正在斡旋调停的巴基斯坦总理表示，已经请求特朗普将最后期限延长两周，也请求伊朗在此期间开放霍尔木兹海峡。特朗普就此表示正在进
+中新网5月20日电 据中央纪委国家监委驻中国华电纪检监察组、甘肃省纪委监委消息：日前，经中央纪委国家监委批准，中央纪委国家监委驻中国华电纪检监察组和甘肃省天水市监委对中国华电直属单位原专职董事赵伟严重违纪违法问题进行了立案审查调查。经查，赵伟对中央八项规定精神置若罔闻，毫无敬畏、顶风违纪，长期违规收受管理和服务对象赠送的礼品、礼金，多次接受可能影响公正执行公务的宴请和旅游活动安
 
 ## 正文
 
-距离美国总统特朗普为伊朗设定的达成协议、开放霍尔木兹海峡的大限——周二美东时间晚上8点——仅剩数小时，全球都在焦虑不安中观望事态的发展。
+中新网5月20日电 据中央纪委国家监委驻中国华电纪检监察组、甘肃省纪委监委消息：日前，经中央纪委国家监委批准，中央纪委国家监委驻中国华电纪检监察组和甘肃省天水市监委对中国华电直属单位原专职董事赵伟严重违纪违法问题进行了立案审查调查。
 
-特朗普周二加码威胁，称伊朗“整个文明将在今晚灭亡”。
+经查，赵伟对中央八项规定精神置若罔闻，毫无敬畏、顶风违纪，长期违规收受管理和服务对象赠送的礼品、礼金，多次接受可能影响公正执行公务的宴请和旅游活动安排；违反廉洁纪律，违规经商办企业；毫无纪法底线，将公权力异化为谋取私利的工具，利用职务上的便利或职权形成的便利条件，为他人在招投标、项目承揽、工程结算等方面谋取利益，并非法收受巨额财物。
 
-伊朗第一副总统则针锋相对地宣称，已经制定了应对各种情境的必要方案。
+赵伟严重违反党的廉洁纪律，构成严重职务违法并涉嫌受贿罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-正在斡旋调停的巴基斯坦总理表示，已经请求特朗普将最后期限延长两周，也请求伊朗在此期间开放霍尔木兹海峡。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中国华电党组研究，决定给予赵伟开除党籍处分；经中央纪委国家监委驻中国华电纪检监察组研究，决定给予赵伟开除公职处分；收缴其违纪违法所得。
 
-特朗普就此表示正在进行“激烈谈判”。
-
-最新进展 特朗普周二早间在社交媒体上发文称，若伊朗不接受美方提出的条件，“整个文明将在今晚灭亡，而且永远无法再被带回来，”但与此同时，他也表示，新的伊朗领导人具有“不同的、更聪明的、没那么激进的头脑”，也许能在最后期限前达成协议。
-
-美国副总统万斯在布达佩斯表示，他有信心伊朗会在最后期限之前作出回应，而且美军在伊朗的军事目标已达成，战争将“很快”结束。
-
-伊朗高级官员称，伊朗已经停止了与美国的停火谈判。
+甘肃省天水市监委将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 02:43 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 02:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 02:49 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 02:36 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 02:57 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 02:47 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 02:41 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 02:30 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 02:33 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 02:41 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 02:47 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 02:55 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 03:05 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 02:42 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 02:41 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 02:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 02:55 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 02:52 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 02:53 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:31 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/649432082.shtml)
-- 2026-06-30 02:43 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/66836296.shtml)
-- 2026-06-30 02:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/163329124.shtml)
-- 2026-06-30 02:41 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/3221535.shtml)
-- 2026-06-30 02:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/02185.shtml)
-- 2026-06-30 02:35 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/96563475.shtml)
-- 2026-06-30 02:59 - [千与千寻](https://www.share.minike.top/Article/details/8007617639.shtml)
-- 2026-06-30 02:50 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/0706463.shtml)
-- 2026-06-30 02:34 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/5532049.shtml)
-- 2026-06-30 02:47 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/57593.shtml)
-- 2026-06-30 02:55 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/463593008829.shtml)
-- 2026-06-30 02:44 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/56757323631.shtml)
-- 2026-06-30 02:35 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/21237.shtml)
-- 2026-06-30 02:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/83053297212.shtml)
-- 2026-06-30 02:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/677022417.shtml)
+- 2026-06-30 03:03 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/334361479.shtml)
+- 2026-06-30 02:48 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/490960740015.shtml)
+- 2026-06-30 03:02 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/600469862451.shtml)
+- 2026-06-30 02:56 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/66035.shtml)
+- 2026-06-30 03:02 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/54989.shtml)
+- 2026-06-30 02:43 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/7042805208.shtml)
+- 2026-06-30 03:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/210410.shtml)
+- 2026-06-30 02:43 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/275418441.shtml)
+- 2026-06-30 03:04 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/10912.shtml)
+- 2026-06-30 02:54 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/009342957726.shtml)
+- 2026-06-30 03:04 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/04127239518.shtml)
+- 2026-06-30 02:53 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/794284.shtml)
+- 2026-06-30 03:03 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/4420645417.shtml)
+- 2026-06-30 02:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/715963207.shtml)
+- 2026-06-30 02:41 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/868144776.shtml)

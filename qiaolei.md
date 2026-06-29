@@ -1,60 +1,60 @@
-# 巴菲特：尽管有爱泼斯坦丑闻，他仍不后悔向盖茨基金会捐款
+# 杭州：2028年基本建成城乡建设领域“人工智能+”生态体系
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-沃伦・巴菲特表示，尽管比尔・盖茨与已定罪性犯罪者杰弗里・爱泼斯坦关系密切的内幕被曝光，他仍不后悔向盖茨基金会捐赠的数十亿美元，但他已不再与密友盖茨交谈。 已向盖茨基金会捐赠了价值数百亿美元股票的巴菲特周二对美国消费者新闻与商业频道（CNBC）表示：“我希望某些事情从未发生过。” 但谈到基金会的工作时，他说：“他们又不是在为自己侵吞钱财。” 据基金会披露，截至 2022 年，巴菲
+中新网杭州5月19日电(鲍梦妮)据杭州市建委19日消息，近日，《杭州市城乡建设领域“人工智能+”行动方案(2026—2028年)》发布。 该方案提出，到2026年底，该市聚焦城乡建设领域8个重点方面，建成不少于5个城乡建设领域高质量数据集，推进13项“人工智能+”重点应用场景和N个企业创新人工智能实践案例；到2028年底，8个重点方面“人工智能+”应用取得明显成效，基本建成杭州
 
 ## 正文
 
-沃伦・巴菲特表示，尽管比尔・盖茨与已定罪性犯罪者杰弗里・爱泼斯坦关系密切的内幕被曝光，他仍不后悔向盖茨基金会捐赠的数十亿美元，但他已不再与密友盖茨交谈。
+中新网杭州5月19日电(鲍梦妮)据杭州市建委19日消息，近日，《杭州市城乡建设领域“人工智能+”行动方案(2026—2028年)》发布。
 
-已向盖茨基金会捐赠了价值数百亿美元股票的巴菲特周二对美国消费者新闻与商业频道（CNBC）表示：“我希望某些事情从未发生过。
+该方案提出，到2026年底，该市聚焦城乡建设领域8个重点方面，建成不少于5个城乡建设领域高质量数据集，推进13项“人工智能+”重点应用场景和N个企业创新人工智能实践案例；到2028年底，8个重点方面“人工智能+”应用取得明显成效，基本建成杭州市城乡建设领域“人工智能+”生态体系。
 
-” 但谈到基金会的工作时，他说：“他们又不是在为自己侵吞钱财。
+上述8个重点方面包括“人工智能+设计与审查”“人工智能+招投标与造价”“人工智能+质量安全管理”“人工智能+智能建造”“人工智能+智慧住区”等。
 
-” 据基金会披露，截至 2022 年，巴菲特的捐款总额已达 360 亿美元，此后他每年仍继续捐赠。
+在“人工智能+设计与审查”方面，杭州将推进智能辅助设计，鼓励设计企业应用AI技术，实现建筑方案的智能生成、结构参数的自动校核与设计成果的优化；探索以三维BIM正向设计替代二维CAD平面图纸传统设计模式，培育具备BIM正向设计能力的企业；推进智能辅助审查，支持设计院、图审单位与软件开发单位合作，探索研究人工智能辅助施工图审查、消防审查、节能审查，至2028年消防安全、结构安全强制性条文人工智能辅助审查率达到80%以上。
 
-不过，他尚未决定原定今年 6 月进行的下一笔捐款将如何处理。
+聚焦“人工智能+质量安全管理”，杭州将构建施工安全智能监管辅助体系，打造“气象风险基础数据+AI风险预判技术”智能预警场景，探索塔吊、升降机等大型机械设备智能监测预警。
 
-美国司法部公布的超过 300 万页爱泼斯坦相关文件中，包含大量盖茨与爱泼斯坦之间的邮件，显示二人曾协调会面、并讨论盖茨的慈善工作。
+同时，该市将构建检测机构动态信息库，借助系统智能分析功能，对检测重点环节的异常情况进行预警，并构建文明施工智能辅助监管体系，实现文明施工缺位情形自动识别和预警。
 
-文件中还有爱泼斯坦本人写下的内容，暗示盖茨存在性不端行为。
+围绕“人工智能+智能建造”，该市将开展智能建造应用试点，培育一批智能建造骨干企业，至2028年，实施60个智能建造试点项目，培育10家智能建造试点企业。
 
-据报道，盖茨已就与爱泼斯坦的关联向基金会员工道歉，称这段关系是 “一个巨大的错误”，但坚决否认有关个人不当行为的指控，称其 “不实”。
+此外，杭州还提出推进智慧住区建设，加快推进道路照明、停车场、充电桩等公共设施智能化升级。
 
 ## 相关推荐
 
-- 2026-06-30 02:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 02:45 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 02:49 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 02:34 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 02:32 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 02:33 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 02:53 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 02:39 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 02:45 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 02:57 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 02:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 02:43 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 02:35 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 02:31 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 02:48 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 02:47 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 03:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-30 03:03 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 02:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 02:41 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 02:42 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 03:04 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 02:42 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 02:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 02:36 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 03:04 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 02:59 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 02:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:51 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/415892.shtml)
-- 2026-06-30 02:33 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/90786715884.shtml)
-- 2026-06-30 02:54 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/077523088.shtml)
-- 2026-06-30 02:41 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/9378873.shtml)
-- 2026-06-30 02:49 - [美人鱼](https://www.share.minike.top/Article/details/627962670264.shtml)
-- 2026-06-30 02:48 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/938543318.shtml)
-- 2026-06-30 02:30 - [起风了](https://www.blog.kurohicncr.top/Article/details/046775.shtml)
-- 2026-06-30 02:46 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/28206791107.shtml)
-- 2026-06-30 02:45 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/0687823.shtml)
-- 2026-06-30 02:34 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/218981250.shtml)
-- 2026-06-30 02:39 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/950927528252.shtml)
-- 2026-06-30 02:50 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/208871298.shtml)
-- 2026-06-30 02:47 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/1244791.shtml)
-- 2026-06-30 02:57 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/359614165413.shtml)
-- 2026-06-30 02:52 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/802396856030.shtml)
+- 2026-06-30 02:43 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/1853689417.shtml)
+- 2026-06-30 02:58 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/0933141.shtml)
+- 2026-06-30 02:59 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/46001358620.shtml)
+- 2026-06-30 02:54 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/871642519.shtml)
+- 2026-06-30 02:59 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/154141721422.shtml)
+- 2026-06-30 03:02 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/749560.shtml)
+- 2026-06-30 02:51 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/71806334.shtml)
+- 2026-06-30 02:48 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/1226372974.shtml)
+- 2026-06-30 03:01 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/322702.shtml)
+- 2026-06-30 02:37 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/3976362338.shtml)
+- 2026-06-30 03:04 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/8130448540.shtml)
+- 2026-06-30 02:56 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/29489036.shtml)
+- 2026-06-30 02:47 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/71153438640.shtml)
+- 2026-06-30 02:36 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/005419.shtml)
+- 2026-06-30 02:49 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/499332824752.shtml)

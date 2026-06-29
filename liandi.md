@@ -1,58 +1,54 @@
-# 山金国际发布首季预增公告 净利润同比增长94.57%~107.54%
+# 浦发银行：龚德雄董事的任职资格获核准
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-山金国际（000975）4月7日发布首季业绩预增公告，预计实现净利润为13.50亿元~14.40亿元，净利润同比增长94.57%~107.54%。证券时报·数据宝统计显示，山金国际今日收于29.35元，下跌2.17%，日换手率为0.78%，成交额为5.80亿元，近5日下跌1.74%。通过对首季业绩预增50%以上的个股走势进行统计发现，预告发布后当日股价上涨的占比78.57%，股
+5月19日金融一线消息，浦发银行公告，近日，公司收到《国家金融监督管理总局关于龚德雄浦发银行董事任职资格的批复》（金复〔2026〕262号），国家金融监督管理总局已核准龚德雄先生公司董事的任职资格。根据相关规定，自2026年5月18日起龚德雄先生就任公司董事。 简历显示，龚德雄，男，1969年10月出生，中共党员，高级管理人员工商管理硕士，经济师。现任申能（集团）有限公司副总裁
 
 ## 正文
 
-山金国际（000975）4月7日发布首季业绩预增公告，预计实现净利润为13.50亿元~14.40亿元，净利润同比增长94.57%~107.54%。
+5月19日金融一线消息，浦发银行公告，近日，公司收到《国家金融监督管理总局关于龚德雄浦发银行董事任职资格的批复》（金复〔2026〕262号），国家金融监督管理总局已核准龚德雄先生公司董事的任职资格。
 
-证券时报·数据宝统计显示，山金国际今日收于29.35元，下跌2.17%，日换手率为0.78%，成交额为5.80亿元，近5日下跌1.74%。
+根据相关规定，自2026年5月18日起龚德雄先生就任公司董事。
 
-通过对首季业绩预增50%以上的个股走势进行统计发现，预告发布后当日股价上涨的占比78.57%，股价发布当日股价涨停的有4家。
+简历显示，龚德雄，男，1969年10月出生，中共党员，高级管理人员工商管理硕士，经济师。
 
-预告发布后5日股价上涨的占比85.71%。
+现任申能（集团）有限公司副总裁，申能财产保险股份有限公司董事长，申能投资管理有限公司执行董事、总经理，上海国际集团有限公司总裁、总经理。
 
-资金面上，该股今日主力资金净流出808.20万元，近5日资金净流出269.05万元。
-
-最新（4月3日）两融余额9.11亿元，其中，融资余额8.99亿元，环比前一交易日下降3.00%，近5日融资余额累计下降1.28%。
-
-从机构评级来看，近一个月该股被11家机构评级买入。
-
-预计目标价最高的是华泰证券，3月8日华泰证券发布的研报给予公司目标价位50.50元。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 02:49 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 02:48 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 02:34 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 02:53 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 02:56 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 02:39 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 02:34 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 02:51 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 02:34 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 02:56 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 02:40 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 02:57 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 02:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 02:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 02:45 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 02:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 03:05 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 02:47 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 02:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 03:00 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 02:52 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 02:45 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 02:46 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 02:40 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 02:55 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 02:58 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:50 - [日本进球](https://www.share.minike.top/Article/details/24702131297.shtml)
-- 2026-06-30 02:53 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/32804387.shtml)
-- 2026-06-30 02:35 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/5260982.shtml)
-- 2026-06-30 02:49 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/68187.shtml)
-- 2026-06-30 02:36 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/28659704.shtml)
-- 2026-06-30 02:53 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/5639630164.shtml)
-- 2026-06-30 02:41 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/147706553.shtml)
-- 2026-06-30 02:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/03419124.shtml)
-- 2026-06-30 02:32 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/15091585399.shtml)
-- 2026-06-30 02:57 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/8795635.shtml)
-- 2026-06-30 02:55 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/110793714265.shtml)
-- 2026-06-30 02:50 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/791834.shtml)
-- 2026-06-30 02:34 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/906170402182.shtml)
-- 2026-06-30 02:34 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/33704.shtml)
-- 2026-06-30 02:51 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/23116232.shtml)
+- 2026-06-30 02:58 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/1847224407.shtml)
+- 2026-06-30 02:43 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/39114.shtml)
+- 2026-06-30 03:01 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/33914807.shtml)
+- 2026-06-30 03:01 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/0185650.shtml)
+- 2026-06-30 03:01 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/87208639559.shtml)
+- 2026-06-30 02:39 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/22924.shtml)
+- 2026-06-30 02:44 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/3226902.shtml)
+- 2026-06-30 02:42 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/710694153243.shtml)
+- 2026-06-30 02:45 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/98825596079.shtml)
+- 2026-06-30 02:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/688367.shtml)
+- 2026-06-30 02:55 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/978338193.shtml)
+- 2026-06-30 02:44 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/94780.shtml)
+- 2026-06-30 03:05 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/26582.shtml)
+- 2026-06-30 02:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/11315664175.shtml)
+- 2026-06-30 02:40 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/143598.shtml)

@@ -1,56 +1,56 @@
-# 欧洲央行管委：必须防止战争引发的通胀推高工资
+# “打不过就加入”？又一老牌基金坐不住了，5万亿赛道再添新玩家，业内共识来了：ETF将演变为基础设施
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-欧洲央行管理委员会成员Fabio Panetta表示，决策者必须防止战争引发的通胀推高工资，同时提醒称政策反应不宜过强。 意大利央行行长Panetta周二在罗马出席该行年度股东大会时表示，伊朗危机的影响可能比当前席卷中东的冲突持续更久。 “高度不确定的环境正在形成，并可能延续至剧烈冲突阶段之后，”他表示，“必须密切关注预期，防止工资-价格螺旋式上升，同时确保货币政策行动保持适度
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】农银汇理基金也坐不住了？5万亿元级ETF赛道再添新玩家 见习记者 闫军 又一家基金公司布局首只ETF。证监会网站显示，5月18日，监管接收了农银汇理基金沪深300质量ETF、沪深300质量指数产品的上报材料。 这意味着，继兴全、交银施罗德、东方红资管之后，再有老牌基金公司加入5万亿
 
 ## 正文
 
-欧洲央行管理委员会成员Fabio Panetta表示，决策者必须防止战争引发的通胀推高工资，同时提醒称政策反应不宜过强。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-意大利央行行长Panetta周二在罗马出席该行年度股东大会时表示，伊朗危机的影响可能比当前席卷中东的冲突持续更久。
+来源：中国基金报 【导读】农银汇理基金也坐不住了？
 
-“高度不确定的环境正在形成，并可能延续至剧烈冲突阶段之后，”他表示，“必须密切关注预期，防止工资-价格螺旋式上升，同时确保货币政策行动保持适度，与欧洲央行的使命相一致。
+5万亿元级ETF赛道再添新玩家 见习记者 闫军 又一家基金公司布局首只ETF。
 
-” Panetta的言论反映出，随着战争进入第二个月，欧洲央行的政策思路可能正在演变。
+证监会网站显示，5月18日，监管接收了农银汇理基金沪深300质量ETF、沪深300质量指数产品的上报材料。
 
-“与2022年俄乌冲突后类似，在高度不确定的情况下，货币政策再次面临负面供给冲击，”Panetta表示，同时补充道，现在的利率设置已经不同。
+这意味着，继兴全、交银施罗德、东方红资管之后，再有老牌基金公司加入5万亿元级ETF“江湖”的角逐。
 
-“与2022年相比，当前货币政策在维护价格稳定方面处于更有利的位置。
+在业内人士看来，当前时点上报ETF，已不仅关乎产品本身，更关乎一张通往未来创新产品布局的“入场券”。
 
-” 他援引欧洲央行预测称，无论事态如何发展，今年通胀都将高于2%的目标，同时经济增长将更为疲弱。
+这张券的背后，是今年有望落地的主动ETF、北交所ETF、REITs ETF，以及未来可能推出的股债恒定ETF、商品期货ETF等一系列创新品种。
 
-“如果能源冲击比基准情景更强、更持久，通胀将进一步上升，而经济增长将更加疲弱，”他补充道。
+“按照行业惯例，创新产品的首批管理人资格，通常会给到具备一定管理规模和丰富经验的公司。
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 02:56 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 02:55 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 02:42 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 02:45 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 02:45 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 02:36 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 02:41 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 02:58 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 02:47 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 03:00 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 02:54 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 02:52 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 02:43 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 02:37 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 02:37 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 02:56 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 02:55 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 02:59 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 03:00 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:47 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/186346.shtml)
-- 2026-06-30 02:41 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/61893.shtml)
-- 2026-06-30 02:47 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/936417431.shtml)
-- 2026-06-30 02:58 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/35904200015.shtml)
-- 2026-06-30 02:47 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/16612638.shtml)
-- 2026-06-30 02:42 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/1319064.shtml)
-- 2026-06-30 02:37 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/126356651.shtml)
-- 2026-06-30 02:41 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/29561598.shtml)
-- 2026-06-30 02:54 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/626798636818.shtml)
-- 2026-06-30 02:58 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/9477735.shtml)
-- 2026-06-30 02:53 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/69957354240.shtml)
-- 2026-06-30 02:30 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/1519238.shtml)
-- 2026-06-30 02:52 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/905643158.shtml)
-- 2026-06-30 02:57 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/9982220.shtml)
-- 2026-06-30 02:54 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/0407362.shtml)
+- 2026-06-30 03:04 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/91419168.shtml)
+- 2026-06-30 03:03 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/816770056.shtml)
+- 2026-06-30 02:43 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/2923627434.shtml)
+- 2026-06-30 02:57 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/4544631147.shtml)
+- 2026-06-30 02:38 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/946343.shtml)
+- 2026-06-30 02:37 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/72672888729.shtml)
+- 2026-06-30 02:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/677415.shtml)
+- 2026-06-30 02:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/5336176.shtml)
+- 2026-06-30 02:56 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/925295.shtml)
+- 2026-06-30 02:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/4157048.shtml)
+- 2026-06-30 03:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/88232821552.shtml)
+- 2026-06-30 02:47 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/001452419719.shtml)
+- 2026-06-30 02:52 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/492765475.shtml)
+- 2026-06-30 02:43 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/998502691.shtml)
+- 2026-06-30 03:02 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/07058891779.shtml)

@@ -1,56 +1,61 @@
-# 亚马逊将向第三方卖家征收3.5%燃油附加费
+# 数读卫浴制品年报 | 松霖科技、建霖家居靠机器人“翻盘”？ 惠达卫浴存货、应收账款周转天数双高
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-亚马逊将于本月晚些时候对其平台上的独立商家征收3.5%的燃油附加费，此举可能导致消费者面临物价上涨。 这项临时费用将于4月17日生效，适用于大多数使用亚马逊仓储及配送服务（FBA）存储库存、配送订单的卖家。随着伊朗冲突进入第二个月，能源成本持续攀升，这家电商巨头成为最新一家征收附加费以抵消成本上涨的企业。 亚马逊表示，此前一直自行承担燃油与物流成本的上涨。公司一位女发言人称：“
+出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。这意味着，存
 
 ## 正文
 
-亚马逊将于本月晚些时候对其平台上的独立商家征收3.5%的燃油附加费，此举可能导致消费者面临物价上涨。
+出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。
 
-这项临时费用将于4月17日生效，适用于大多数使用亚马逊仓储及配送服务（FBA）存储库存、配送订单的卖家。
+国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。
 
-随着伊朗冲突进入第二个月，能源成本持续攀升，这家电商巨头成为最新一家征收附加费以抵消成本上涨的企业。
+与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。
 
-亚马逊表示，此前一直自行承担燃油与物流成本的上涨。
+这意味着，存量房翻新已正式取代新房装修，成为家居消费的主要需求来源。
 
-公司一位女发言人称：“但与其他大型快递公司一样，当成本持续高企时，我们会实施临时附加费，以部分弥补这些成本。
+另一方面，“以旧换新”政策持续释放红利。
 
-” 联合包裹（UPS）与联邦快递（FedEx）近期也因油价上涨上调了燃油附加费。
+2025年，社会消费品零售总额达50.12万亿元，同比增长3.7%。
 
-上周，美国邮政总局更是宣布史上首次征收燃油附加费：计划从4月26日至1月17日对包裹收取8%的费用。
+其中，家具类消费品全年零售额实现同比增长14.6%，较2024年显著提速，智能家居和适老化改造成为新增长极；建筑及装潢材料类受房地产市场转型期影响，零售额同比下降约2.7%，但降幅已明显收窄。
 
-自4月17日起，亚马逊这项燃油及物流相关附加费将适用于使用亚马逊配送（FBA）的美国及加拿大卖家；使用Prime专送（Buy with Prime）及多渠道配送服务的卖家，则从5月2日起开始征收。
+截至4月30日，A股6家卫浴制品（按申万三级行业分类）上市公司均已披露2025年报。
 
 ## 相关推荐
 
-- 2026-06-30 02:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 02:32 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 02:42 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 02:39 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 02:51 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-30 02:41 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 02:42 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 02:58 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 02:40 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 02:39 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 02:43 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 02:50 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 02:44 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 02:45 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 02:41 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 03:01 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 02:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 02:51 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 03:02 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 02:48 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 03:05 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 02:59 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 02:59 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 02:54 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 02:48 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/257838181.shtml)
-- 2026-06-30 02:55 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/074241490.shtml)
-- 2026-06-30 02:50 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/57279.shtml)
-- 2026-06-30 02:59 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/58753818.shtml)
-- 2026-06-30 02:31 - [美股](http://www.blog.kurohicncr.top/Article/details/8669854834.shtml)
-- 2026-06-30 02:32 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/459218.shtml)
-- 2026-06-30 02:42 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/1027036.shtml)
-- 2026-06-30 02:42 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/6122895740.shtml)
-- 2026-06-30 02:38 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/493867083091.shtml)
-- 2026-06-30 02:35 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/5082237729.shtml)
-- 2026-06-30 02:43 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/4317019850.shtml)
-- 2026-06-30 02:50 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/016968426.shtml)
-- 2026-06-30 02:41 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/605641.shtml)
-- 2026-06-30 02:54 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/586253072.shtml)
-- 2026-06-30 02:56 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/691027273.shtml)
+- 2026-06-30 03:02 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/7473271.shtml)
+- 2026-06-30 02:40 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/63842.shtml)
+- 2026-06-30 02:52 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/5343998.shtml)
+- 2026-06-30 02:46 - [起风了](https://www.blog.minike.top/Article/details/5685187859.shtml)
+- 2026-06-30 02:57 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/93211.shtml)
+- 2026-06-30 03:00 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/224616125.shtml)
+- 2026-06-30 02:45 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/029902208.shtml)
+- 2026-06-30 02:40 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/3317159.shtml)
+- 2026-06-30 02:59 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/001751.shtml)
+- 2026-06-30 02:36 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/9503326.shtml)
+- 2026-06-30 02:36 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/3100816216.shtml)
+- 2026-06-30 02:57 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/42115871.shtml)
+- 2026-06-30 02:57 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/21427871.shtml)
+- 2026-06-30 02:42 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/343903443286.shtml)
+- 2026-06-30 02:37 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/946679761.shtml)

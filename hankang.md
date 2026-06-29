@@ -1,56 +1,59 @@
-# 河南第四届职业技能大赛：新增工业机器人系统运维等前沿项目
+# 周小川：银行AI从“岗位智能化”迈向“AI原生重构”，监管黑箱难题待解
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-中新网郑州4月8日电 (王佳宁)河南省政府新闻办8日发布消息称，河南省第四届职业技能大赛将于4月20日在新乡开幕。在逾1300名参赛选手中，25岁以下青年构成赛场主力阵容。 本届大赛以“人人奋勇争先、出彩技能河南”为主题，由河南省政府主办，河南省人力资源和社会保障厅、新乡市政府联合承办。共有26个代表团参赛，选手总数达1306名，其中25岁以下青年占比高达67%。 河南省人力资
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 文/华夏时报卢梦雪 5月18日，2026清华五道口全球金融论坛在成都举行，会上，第十二届全国政协副主席、中国人民银行原行长周小川，与中国工商银行原首席技术官吕仲涛，就银行领域AI应用的现状与未来趋势进行了讨论。他们认为，当前银行AI应用仍以“岗位智能化”为主，未来必将走向“AI原生重构”，但监管面临的“黑箱”难
 
 ## 正文
 
-中新网郑州4月8日电 (王佳宁)河南省政府新闻办8日发布消息称，河南省第四届职业技能大赛将于4月20日在新乡开幕。
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 文/华夏时报卢梦雪 5月18日，2026清华五道口全球金融论坛在成都举行，会上，第十二届全国政协副主席、中国人民银行原行长周小川，与中国工商银行原首席技术官吕仲涛，就银行领域AI应用的现状与未来趋势进行了讨论。
 
-在逾1300名参赛选手中，25岁以下青年构成赛场主力阵容。
+他们认为，当前银行AI应用仍以“岗位智能化”为主，未来必将走向“AI原生重构”，但监管面临的“黑箱”难题不容忽视。
 
-本届大赛以“人人奋勇争先、出彩技能河南”为主题，由河南省政府主办，河南省人力资源和社会保障厅、新乡市政府联合承办。
+周小川指出，目前银行业主要聚焦在具体岗位引入AI工具，如风险评估、定价与贷款决策等环节，整体银行结构并未改变。
 
-共有26个代表团参赛，选手总数达1306名，其中25岁以下青年占比高达67%。
+他以自动驾驶为例：早期电动汽车通过雷达、信号等模块化功能叠加实现辅助驾驶，而新一代做法（如特斯拉）直接利用海量感知数据，通过大模型“黑箱”一步到位输出驾驶决策。
 
-河南省人力资源和社会保障厅副厅长、一级巡视员王曙辉在发布会上介绍，大赛共设置70个竞赛项目，包括60个比赛项目和10个表演赛项目。
+周小川认为，AI潜力远超岗位赋能，未来将逐步替代人的思维和机构职能，重构银行组织架构。
 
-项目设置紧密贴合河南省产业链群发展需求，新增工业4.0、增材制造、人工智能训练师、服务机器人应用技术、工业机器人系统运维等前沿项目。
+但他也坦言，这种方式给监管带来两大挑战：一是模型不可解释，安全难以验证；二是出问题后无法明确追责主体。
 
-科技“新元素”是本届大赛的亮点之一。
+吕仲涛补充道，在强监管环境下，银行只能对固有流程做局部工具嵌入，难以像海外初创公司那样从零孵化全新场景。
 
-大赛首次全面应用信息化办赛系统，从报名到成绩发布全流程数字化管理。
+他预测，未来银行必然从“流程银行”演进为“AI原生银行”。
 
 ## 相关推荐
 
-- 2026-06-30 02:46 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 02:35 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 02:37 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 02:44 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 02:32 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 02:59 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 02:45 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 02:42 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 02:49 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 02:49 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 03:02 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 02:53 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 02:37 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 02:58 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 02:48 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 02:44 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 03:05 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 02:39 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 02:36 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 02:49 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 03:00 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 02:41 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 02:45 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:57 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/96508.shtml)
-- 2026-06-30 02:40 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/390716588.shtml)
-- 2026-06-30 02:47 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/04244138583.shtml)
-- 2026-06-30 02:33 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/629252749.shtml)
-- 2026-06-30 02:37 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/32385.shtml)
-- 2026-06-30 02:58 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/5388319.shtml)
-- 2026-06-30 02:52 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/875392672349.shtml)
-- 2026-06-30 02:52 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/29489738890.shtml)
-- 2026-06-30 02:39 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/5910944.shtml)
-- 2026-06-30 02:35 - [金刚川](http://www.blog.kurohicncr.top/Article/details/29733.shtml)
-- 2026-06-30 02:44 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/1279998.shtml)
-- 2026-06-30 02:49 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/693334620.shtml)
-- 2026-06-30 02:44 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/76434.shtml)
-- 2026-06-30 02:30 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/52202379663.shtml)
-- 2026-06-30 02:55 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/4111687.shtml)
+- 2026-06-30 02:53 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/1637834.shtml)
+- 2026-06-30 02:49 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/3820933.shtml)
+- 2026-06-30 02:50 - [千香](http://www.share.kurohicncr.top/Article/details/10585.shtml)
+- 2026-06-30 02:45 - [TOP Prada](http://www.share.minike.top/Article/details/41843502.shtml)
+- 2026-06-30 02:37 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/51926.shtml)
+- 2026-06-30 03:00 - [乔家的儿女](http://www.blog.minike.top/Article/details/9903130.shtml)
+- 2026-06-30 02:50 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/8669750.shtml)
+- 2026-06-30 03:03 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/792400582.shtml)
+- 2026-06-30 02:52 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/16362648893.shtml)
+- 2026-06-30 03:03 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/18356957.shtml)
+- 2026-06-30 02:59 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/208638713523.shtml)
+- 2026-06-30 02:57 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/217229.shtml)
+- 2026-06-30 02:59 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/670012.shtml)
+- 2026-06-30 02:50 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/86591904.shtml)
+- 2026-06-30 02:37 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/48937462.shtml)

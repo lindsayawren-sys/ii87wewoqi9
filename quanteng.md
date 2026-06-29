@@ -1,45 +1,61 @@
-# 日韩股市高开高走
+# 东西问｜魏德汉：如何让《黄帝内经》在跨文化语境“活”起来？
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-中新网4月3日电(记者 谢艺观)4月3日，日经225指数高开1.10%，报53039.40点；韩国综指高开2.70%，报5375.50点。截至发稿时，日经225指数和韩国综合指数涨幅扩大。
+中新社莫斯科5月19日电 题：如何让《黄帝内经》在跨文化语境“活”起来？ ——专访俄罗斯汉学家魏德汉 中新社记者 田冰 俄文版《黄帝内经》在俄罗斯最大电商平台之一的OZON上收获不少好评，其中一条评论写道：有人告诉我这是中国流传2000多年的医学书，但在我看来，这就是一本关于生命的哲学书，它的思维方式和逻辑令我着迷。有趣的是，该书译者曾直接对委托方放话，“你们拿来的中文白话文版
 
 ## 正文
 
-中新网4月3日电(记者 谢艺观)4月3日，日经225指数高开1.10%，报53039.40点；韩国综指高开2.70%，报5375.50点。
+中新社莫斯科5月19日电 题：如何让《黄帝内经》在跨文化语境“活”起来？
 
-截至发稿时，日经225指数和韩国综合指数涨幅扩大。
+——专访俄罗斯汉学家魏德汉 中新社记者 田冰 俄文版《黄帝内经》在俄罗斯最大电商平台之一的OZON上收获不少好评，其中一条评论写道：有人告诉我这是中国流传2000多年的医学书，但在我看来，这就是一本关于生命的哲学书，它的思维方式和逻辑令我着迷。
+
+有趣的是，该书译者曾直接对委托方放话，“你们拿来的中文白话文版翻译得不好，我要根据文言文翻译。
+
+” 这位译者就是俄罗斯知名汉学家布罗尼斯拉夫·布罗尼斯拉沃维奇·维诺格拉茨基，中文名“魏德汉”。
+
+日前，魏德汉接受中新社“东西问”专访，分享他对译介《黄帝内经》的体会及与中国文化结下的深厚渊源。
+
+现将访谈实录摘要如下： 中新社记者：您深耕中国文化译介数十年，此前已翻译《易经》《道德经》等经典，为何会选择翻译《黄帝内经》？
+
+魏德汉：事实上，我自1985年起便开始尝试翻译和理解《黄帝内经》，因为那年我开始翻译其他中国医学书籍时发现，这些书籍引用了大量《黄帝内经》的内容。
+
+在翻译这些著作的同时，我也研读了《道德经》和《易经》，发现它们是一个统一、完整的宏大体系的一部分。
 
 ## 相关推荐
 
-- 2026-06-30 02:44 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 02:44 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 02:38 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 02:37 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 02:30 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-30 02:51 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 02:47 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 02:57 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 02:51 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 02:45 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 02:35 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 02:55 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 02:46 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 02:43 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 02:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 02:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 02:37 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 02:54 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 03:06 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 03:00 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 02:56 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 02:39 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 02:41 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 02:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 02:55 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 02:59 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:42 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/97494.shtml)
-- 2026-06-30 02:44 - [流金岁月](http://www.share.kurohicncr.top/Article/details/930827945347.shtml)
-- 2026-06-30 02:35 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/0644743276.shtml)
-- 2026-06-30 02:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/918124871961.shtml)
-- 2026-06-30 02:55 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/522527863399.shtml)
-- 2026-06-30 02:49 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/607281.shtml)
-- 2026-06-30 02:36 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/864244760494.shtml)
-- 2026-06-30 02:47 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/9370394225.shtml)
-- 2026-06-30 02:54 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/1122557.shtml)
-- 2026-06-30 02:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/231013543.shtml)
-- 2026-06-30 02:59 - [点菜也要教吗](https://www.share.minike.top/Article/details/2879565.shtml)
-- 2026-06-30 02:40 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/09225723131.shtml)
-- 2026-06-30 02:30 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/10988460239.shtml)
-- 2026-06-30 02:53 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/2318992.shtml)
-- 2026-06-30 02:47 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/1970323861.shtml)
+- 2026-06-30 02:37 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/85913056451.shtml)
+- 2026-06-30 02:45 - [月亮](http://www.blog.minike.top/Article/details/885134.shtml)
+- 2026-06-30 02:41 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/6132804256.shtml)
+- 2026-06-30 02:56 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/11773617185.shtml)
+- 2026-06-30 02:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/22459603.shtml)
+- 2026-06-30 02:46 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/512383.shtml)
+- 2026-06-30 02:38 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/09424687.shtml)
+- 2026-06-30 02:36 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/89584605.shtml)
+- 2026-06-30 02:43 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/798344.shtml)
+- 2026-06-30 02:55 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/938359.shtml)
+- 2026-06-30 02:50 - [流金岁月](http://www.share.minike.top/Article/details/871137141574.shtml)
+- 2026-06-30 02:42 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/39707.shtml)
+- 2026-06-30 02:39 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/38320.shtml)
+- 2026-06-30 02:46 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/1206487505.shtml)
+- 2026-06-30 02:42 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/4019051.shtml)

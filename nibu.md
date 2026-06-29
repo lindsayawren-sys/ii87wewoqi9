@@ -1,58 +1,57 @@
-# 特朗普首次承认：美国人被黑吃黑了
+# 欧盟扫清与美国达成贸易协议的关键障碍
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-► 文 观察者网 阮佳琪 岁末年初，伊朗首都德黑兰爆发大规模示威游行，民众抗议国内恶性通胀与货币暴跌。这场抗议始于德黑兰商业核心区大巴扎，随后迅速蔓延至全国多座城市，成为伊朗自2022年“头巾事件”以来规模最大的抗议活动。 彼时，美国总统特朗普多次煽风点火，扬言若伊朗当局实施所谓“暴力镇压”，美国将“出手营救”抗议者，还以“援助即将到来”鼓动抗议者走上街头、夺取政权机构。但从明
+核心要点 欧盟委员会主席乌尔苏拉・冯德莱恩于周三对该项临时立法协议表示欢迎，该协议旨在取消美国商品进口关祱；她同时呼吁立法合作方迅速推进后续流程，完成最终审批。 经过彻夜逾五小时谈判，欧盟议员对这一突破性进展表示认可，称此举大概率能让欧盟（27 国集团）避开美国总统特朗普的威胁 —— 若协议再度拖延，将对欧盟加征惩罚性高额关祱。 协议中的保障机制明确：一旦美国进口产品对欧盟产业
 
 ## 正文
 
-► 文 观察者网 阮佳琪 岁末年初，伊朗首都德黑兰爆发大规模示威游行，民众抗议国内恶性通胀与货币暴跌。
+核心要点 欧盟委员会主席乌尔苏拉・冯德莱恩于周三对该项临时立法协议表示欢迎，该协议旨在取消美国商品进口关祱；她同时呼吁立法合作方迅速推进后续流程，完成最终审批。
 
-这场抗议始于德黑兰商业核心区大巴扎，随后迅速蔓延至全国多座城市，成为伊朗自2022年“头巾事件”以来规模最大的抗议活动。
+经过彻夜逾五小时谈判，欧盟议员对这一突破性进展表示认可，称此举大概率能让欧盟（27 国集团）避开美国总统特朗普的威胁 —— 若协议再度拖延，将对欧盟加征惩罚性高额关祱。
 
-彼时，美国总统特朗普多次煽风点火，扬言若伊朗当局实施所谓“暴力镇压”，美国将“出手营救”抗议者，还以“援助即将到来”鼓动抗议者走上街头、夺取政权机构。
+协议中的保障机制明确：一旦美国进口产品对欧盟产业造成损害，布鲁塞尔有权暂停关祱减免。
 
-但从明面上来看，这些表态更像是“雷声大雨点小”，除了“打嘴炮”，特朗普似乎并未采取实质性举措。
+此外，协议授权欧盟委员会（欧盟执行机构）在 2026 年底前，若美国对欧盟钢铁及铝衍生品维持 15% 以上关祱，可暂停关祱优惠待遇。
 
-不过，共和党“御用”媒体福克斯新闻的首席外事记者特里·英斯特（Trey Yingst）近日爆料称，特朗普在电话采访中首次承认，美国在此次抗议期间曾试图秘密武装伊朗抗议者，然而运送的大量枪支并未送达目标人群，他怀疑是被作为中间人的库尔德反政府武装扣下了。
+该临时协议达成之际，距欧盟与美国在苏格兰特朗普特恩贝里高尔夫度假村首次敲定贸易框架已近一年。
 
-伊朗库尔德方面对此全盘否认。
+根据协议条款，欧盟同意取消美国工业品关祱，特朗普政府则承诺将大部分欧洲商品关祱上限设定为 15%。
 
-据《耶路撒冷邮报》报道，多数库尔德团体已发表声明，否认充当美方武器转运中间人的说法。
+冯德莱恩周三在社交平台 X 上表示：“协议既定，欧盟信守承诺。
 
-而在爆料次日，特朗普亲自证实了相关内容。
+我们携手共建稳定、可预期、平衡且互利的跨大西洋贸易格局。
 
 ## 相关推荐
 
-- 2026-06-30 02:37 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 02:58 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 02:59 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 02:32 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 02:52 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 02:56 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 02:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-30 02:46 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 02:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 02:40 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 02:38 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 02:32 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-30 02:47 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 02:53 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 02:53 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 02:43 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 03:01 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 02:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 02:38 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 03:02 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 02:44 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 03:03 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 02:56 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:33 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/50918.shtml)
-- 2026-06-30 02:53 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/83148.shtml)
-- 2026-06-30 02:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/21900480.shtml)
-- 2026-06-30 02:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/978284.shtml)
-- 2026-06-30 02:54 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/271167594537.shtml)
-- 2026-06-30 02:46 - [孙兴慜道歉](https://www.share.minike.top/Article/details/2164819.shtml)
-- 2026-06-30 02:41 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/460565.shtml)
-- 2026-06-30 02:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/44893.shtml)
-- 2026-06-30 02:41 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/48679182283.shtml)
-- 2026-06-30 02:30 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/7114681898.shtml)
-- 2026-06-30 02:33 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/60275614.shtml)
-- 2026-06-30 02:38 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/67029565.shtml)
-- 2026-06-30 02:42 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/75422387.shtml)
-- 2026-06-30 02:49 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/8559621241.shtml)
-- 2026-06-30 02:43 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/23576417.shtml)
+- 2026-06-30 02:58 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/186850.shtml)
+- 2026-06-30 02:59 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/6834991.shtml)
+- 2026-06-30 02:50 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/69608801.shtml)
+- 2026-06-30 02:55 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/114430.shtml)
+- 2026-06-30 02:48 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/8750039.shtml)
+- 2026-06-30 02:40 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/16976856087.shtml)
+- 2026-06-30 02:56 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/140705.shtml)
+- 2026-06-30 02:56 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/54067611993.shtml)
+- 2026-06-30 02:59 - [金牌调解](http://www.blog.minike.top/Article/details/07800530511.shtml)
+- 2026-06-30 02:50 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/659159436.shtml)
+- 2026-06-30 02:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/7031465.shtml)
+- 2026-06-30 02:53 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/2502999.shtml)
+- 2026-06-30 02:39 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/2105754.shtml)
+- 2026-06-30 02:50 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/10073678.shtml)
+- 2026-06-30 02:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/9941800.shtml)

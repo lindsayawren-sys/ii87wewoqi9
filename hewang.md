@@ -1,60 +1,44 @@
-# PIMCO据悉考虑为甲骨文密歇根数据中心提供140亿美元债务融资
+# 中天期货:碳酸锂重心继续下移 白糖承压下行
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-据媒体周二援引知情人士报道，太平洋投资管理公司（PIMCO）正与美国银行洽谈，拟为甲骨文在密歇根州的一座大型数据中心提供约140亿美元的债务融资。 这项融资若最终敲定，将使这家债券巨头成为甲骨文在萨林镇（Saline Township）数据中心园区的主要支持者。该数据中心旨在为微软支持的OpenAI提供算力支持。 据报道，该融资可能以债券形式进行，PIMCO可能会将部分债务银团
+热点品种分析 一、商品指数 二、股指 中国上证综指5月20日（周三）收盘下跌7.35点，跌幅0.18%，报4162.18点； 中国深证成指5月20日（周三）收盘上涨0.07点，涨幅0.00%，报15569.98点； 中国沪深300 5月20日（周三）收盘下跌2.18点，跌幅0.04%，报4850.70点； 中国创业板指5月20日（周三）收盘上涨13.35点，涨幅0.34%，报3
 
 ## 正文
 
-据媒体周二援引知情人士报道，太平洋投资管理公司（PIMCO）正与美国银行洽谈，拟为甲骨文在密歇根州的一座大型数据中心提供约140亿美元的债务融资。
+热点品种分析 一、商品指数 二、股指 中国上证综指5月20日（周三）收盘下跌7.35点，跌幅0.18%，报4162.18点； 中国深证成指5月20日（周三）收盘上涨0.07点，涨幅0.00%，报15569.98点； 中国沪深300 5月20日（周三）收盘下跌2.18点，跌幅0.04%，报4850.70点； 中国创业板指5月20日（周三）收盘上涨13.35点，涨幅0.34%，报3921.79点； 中国科创50 5月20日（周三）收盘上涨56.89点，涨幅3.20%，报1832.02点。
 
-这项融资若最终敲定，将使这家债券巨头成为甲骨文在萨林镇（Saline Township）数据中心园区的主要支持者。
-
-该数据中心旨在为微软支持的OpenAI提供算力支持。
-
-据报道，该融资可能以债券形式进行，PIMCO可能会将部分债务银团化，分销给其他投资者。
-
-融资可能采用144A条款，即通过向大型机构投资者私募债券的方式筹集债务，而非传统银行贷款或完全公开发行债券。
-
-背景与相关进展 随着甲骨文债务攀升，投资者对其人工智能基础设施的建设投入一直密切关注。
-
-今年2月，甲骨文表示计划通过债务和股权销售相结合的方式，在年内筹集高达500亿美元资金。
-
-就在上周，曾有报道称数据中心开发商Related Digital即将为萨林镇的一个甲骨文数据中心完成约160亿美元的融资。
+三、原油2607 四、白银2608 五、碳酸锂 2609 六、螺纹 2610 七、焦煤2609 八、 PTA 2609 九、棉花2609 十、白糖 2609 十一、橡胶 2609 十二、PVC 2609 十三、棕榈2609 十四、纯碱2609 十五、玻璃2609 十六、豆粕2609 十七、生猪2609 十八、红枣2609 责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-30 02:43 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 02:55 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 02:55 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 02:55 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 02:54 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 02:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 02:45 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 02:34 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 02:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 02:41 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 02:48 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 02:56 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 02:58 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 02:52 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 02:37 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 02:43 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 02:40 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 02:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 02:49 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 02:51 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 02:55 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 02:56 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 03:00 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 02:39 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:53 - [美人鱼](http://www.share.minike.top/Article/details/51041.shtml)
-- 2026-06-30 02:52 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/168009944809.shtml)
-- 2026-06-30 02:35 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/80203436.shtml)
-- 2026-06-30 02:41 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/2944549.shtml)
-- 2026-06-30 02:47 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/981755726.shtml)
-- 2026-06-30 02:59 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/20953626516.shtml)
-- 2026-06-30 02:32 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/3156721093.shtml)
-- 2026-06-30 02:53 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/0472532611.shtml)
-- 2026-06-30 02:54 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/5160988.shtml)
-- 2026-06-30 02:54 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/665429790.shtml)
-- 2026-06-30 02:30 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/83539007.shtml)
-- 2026-06-30 02:48 - [周生如故](http://www.blog.minike.top/Article/details/781523327104.shtml)
-- 2026-06-30 02:55 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/32575.shtml)
-- 2026-06-30 02:58 - [女心理师](https://www.blog.kurohicncr.top/Article/details/80774.shtml)
-- 2026-06-30 02:47 - [第一炉香](https://www.blog.minike.top/Article/details/17419298337.shtml)
+- 2026-06-30 02:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/736276478.shtml)
+- 2026-06-30 02:41 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/84051.shtml)
+- 2026-06-30 02:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/652374391319.shtml)
+- 2026-06-30 02:49 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/04464700481.shtml)
+- 2026-06-30 02:55 - [请回答王牌2019](http://www.blog.minike.top/Article/details/8526193071.shtml)
+- 2026-06-30 03:02 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/93609.shtml)
+- 2026-06-30 02:42 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/8998852.shtml)
+- 2026-06-30 02:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/25580.shtml)
+- 2026-06-30 02:39 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/87352934785.shtml)
+- 2026-06-30 02:49 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/397968.shtml)
+- 2026-06-30 02:54 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/0649929.shtml)
+- 2026-06-30 02:58 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/9599118.shtml)
+- 2026-06-30 02:48 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/633894.shtml)
+- 2026-06-30 02:51 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/67999348036.shtml)
+- 2026-06-30 02:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/63945866428.shtml)

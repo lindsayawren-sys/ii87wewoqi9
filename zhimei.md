@@ -1,60 +1,59 @@
-# 甲骨文任命Hilary Maxson为首席财务官
+# 科创板“一哥”即将易主！合肥赢麻了
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-甲骨文已任命Hilary Maxson为其新任首席财务官。她于4月6日上任。这是该公司通过调整领导团队来支持其持续增长努力的一部分。 Maxson从施耐德电气加入甲骨文，此前她担任执行副总裁兼集团首席财务官。在新职位上，她将负责甲骨文的全球财务部门，并直接向首席执行官Clay Magouyrk汇报。 据该公司称，她将接替Doug Kehring，后者此前担任首席财务官，现在将专
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：投行圈子 2026年5月17日深夜，一份招股书让整个中国资本市场炸了锅。 国产DRAM芯片龙头长鑫科技正在加速冲刺科创板。5月17日，长鑫科技更新招股书，审核状态从“中止”恢复为“已问询”，距离上市又近了一步。 这家DRAM（动态随机存取存储器）领域的国产独苗，用一份炸裂的业绩宣告了自己的存在，今年一
 
 ## 正文
 
-甲骨文已任命Hilary Maxson为其新任首席财务官。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-她于4月6日上任。
+来源：投行圈子 2026年5月17日深夜，一份招股书让整个中国资本市场炸了锅。
 
-这是该公司通过调整领导团队来支持其持续增长努力的一部分。
+国产DRAM芯片龙头长鑫科技正在加速冲刺科创板。
 
-Maxson从施耐德电气加入甲骨文，此前她担任执行副总裁兼集团首席财务官。
+5月17日，长鑫科技更新招股书，审核状态从“中止”恢复为“已问询”，距离上市又近了一步。
 
-在新职位上，她将负责甲骨文的全球财务部门，并直接向首席执行官Clay Magouyrk汇报。
+这家DRAM（动态随机存取存储器）领域的国产独苗，用一份炸裂的业绩宣告了自己的存在，今年一季度营收508亿元，同比增长719%；归母净利润247.6亿元。
 
-据该公司称，她将接替Doug Kehring，后者此前担任首席财务官，现在将专注于市场运营。
+科创板所有已经上市的600多家公司，一季度加在一起净利润只有216.4亿元。
 
-这一领导层变动意味着，随着甲骨文企业云和人工智能服务的发展，它们将承担新的职责。
+长鑫一家利润，超过整个科创板总和。
 
-甲骨文目前正在大力投资云基础设施和人工智能能力，这意味着他们需要在资金及支出方面非常谨慎。
+上市后，妥妥的科创板一哥。
 
 ## 相关推荐
 
-- 2026-06-30 02:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 02:50 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 02:48 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 02:55 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 02:32 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 02:55 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 02:39 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 02:55 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 02:44 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-30 02:56 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 02:53 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 02:47 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 02:56 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 02:57 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 02:58 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 02:39 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 02:57 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 02:56 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 02:41 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 02:49 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 02:40 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 02:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 02:51 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 02:36 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 03:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 02:39 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 02:46 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:31 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/73055936.shtml)
-- 2026-06-30 02:47 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/0002731688.shtml)
-- 2026-06-30 02:51 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/41976667598.shtml)
-- 2026-06-30 02:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/6147858227.shtml)
-- 2026-06-30 02:58 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/400244.shtml)
-- 2026-06-30 02:35 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/4696348.shtml)
-- 2026-06-30 02:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/32931426491.shtml)
-- 2026-06-30 02:38 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/63023094271.shtml)
-- 2026-06-30 02:42 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/194687104935.shtml)
-- 2026-06-30 02:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/069993243.shtml)
-- 2026-06-30 02:51 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/42297.shtml)
-- 2026-06-30 02:45 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/747531009155.shtml)
-- 2026-06-30 02:48 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/3593860210.shtml)
-- 2026-06-30 02:45 - [日本16强魔咒](http://www.blog.minike.top/Article/details/0776479.shtml)
-- 2026-06-30 02:38 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/9559923725.shtml)
+- 2026-06-30 02:57 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/16922.shtml)
+- 2026-06-30 02:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/56809.shtml)
+- 2026-06-30 02:47 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/566011777463.shtml)
+- 2026-06-30 02:37 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/23416285291.shtml)
+- 2026-06-30 02:43 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/431646277466.shtml)
+- 2026-06-30 02:58 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/25652882383.shtml)
+- 2026-06-30 02:51 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/95210.shtml)
+- 2026-06-30 02:49 - [我们的少年时代2](http://www.share.minike.top/Article/details/584228799.shtml)
+- 2026-06-30 02:50 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/8723479.shtml)
+- 2026-06-30 02:48 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/491228566.shtml)
+- 2026-06-30 02:41 - [小娘惹](https://www.blog.minike.top/Article/details/644449961.shtml)
+- 2026-06-30 02:39 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/2571007912.shtml)
+- 2026-06-30 02:54 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/451337852655.shtml)
+- 2026-06-30 02:58 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/8312386607.shtml)
+- 2026-06-30 02:56 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/46797853.shtml)

@@ -1,61 +1,60 @@
-# 瞧瞧菜篮子里的新变化（经济聚焦·农田里的新鲜事）
+# 中国—东盟商贸资讯平台在广西南宁启动
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-特色高品质品种兴起，种业创新体系持续健全 瞧瞧菜篮子里的新变化(经济聚焦·农田里的新鲜事) 人民日报 本报记者 郁静娴 李晓晴软糯的莲藕、爽口的萝卜、脆嫩多汁的卷心菜……一菜一蔬，为美好生活增添了多重滋味。 我国是蔬菜生产和消费第一大国，常年种植面积超过3亿亩。缤纷的菜篮子，折射出哪些新变化？记者进行了采访。 多元化细分需求，打造特色蔬菜矩阵 江苏常州亚非万连青种植基地内，一棵
+中新网南宁5月19日电(阚枫 陈秋霞)19日，中国—东盟商贸资讯平台在广西南宁正式启动，该平台是服务于中国与东盟经贸合作的综合性信息服务与国际传播平台。 当日，在南宁举行的2026年中国网络文明大会网络文明国际交流互鉴分论坛上，中央统战部副部长王瑞军，广西壮族自治区政协副主席、党组副书记徐绍川，中央网信办、国家网信办总工程师吴东，中国新闻社社长陈陆军，中宣部国际联络局副局长马大
 
 ## 正文
 
-特色高品质品种兴起，种业创新体系持续健全 瞧瞧菜篮子里的新变化(经济聚焦·农田里的新鲜事) 人民日报 本报记者 郁静娴 李晓晴软糯的莲藕、爽口的萝卜、脆嫩多汁的卷心菜……一菜一蔬，为美好生活增添了多重滋味。
+中新网南宁5月19日电(阚枫 陈秋霞)19日，中国—东盟商贸资讯平台在广西南宁正式启动，该平台是服务于中国与东盟经贸合作的综合性信息服务与国际传播平台。
 
-我国是蔬菜生产和消费第一大国，常年种植面积超过3亿亩。
+当日，在南宁举行的2026年中国网络文明大会网络文明国际交流互鉴分论坛上，中央统战部副部长王瑞军，广西壮族自治区政协副主席、党组副书记徐绍川，中央网信办、国家网信办总工程师吴东，中国新闻社社长陈陆军，中宣部国际联络局副局长马大为，中国网络空间研究院副院长李斐共同启动了中国—东盟商贸资讯平台。
 
-缤纷的菜篮子，折射出哪些新变化？
+该平台由中国新闻网建设运营，重点面向东盟商贸部门、行业协会、华侨华人、跨境企业等群体，提供一站式商贸信息服务。
 
-记者进行了采访。
+目前，平台已初步建成覆盖海内外的商贸资讯传播矩阵，内容涵盖政策解读、市场动态、招商引资、合作对接、产业分析等板块，为跨境商贸提供全流程信息服务。
 
-多元化细分需求，打造特色蔬菜矩阵 江苏常州亚非万连青种植基地内，一棵棵皱叶甘蓝在阳光下长势旺盛。
+平台启动前夕，来自中国及东盟多国政府部门、媒体、智库和高校的代表，就中国同东盟国家经贸信息交流、中国—东盟商贸资讯平台建设等进行座谈交流。
 
-“这是亚非万连青皱叶菜。
+陈陆军表示，近年来，中国—东盟关系持续深化，经贸合作不断拓展，产业链供应链联系更加紧密。
 
-”基地负责人安燕兵说，除常州外，内蒙古、湖北、云南等地均有布局种植，可实现四季稳定供应。
+作为中国以对外报道为主要新闻业务的国家通讯社，中国新闻社将立足自身特色，着力把中国—东盟商贸资讯平台打造成有内容、有服务、有影响、有持续生命力的传播渠道，为促进中国—东盟经贸合作和民心相通贡献力量。
 
-上前一瞧，这种甘蓝跟常见品种不太一样，叶片深绿、卷曲，布满了褶皱。
+柬埔寨驻南宁总领事馆总领事唐肃安、缅甸驻南宁总领事馆总领事凯素林、越南驻南宁总领事馆副领事苏宇力等东盟国家驻南宁总领事馆官员，表达了以信息共享促进中国—东盟经贸畅通和民心相通的期待。
 
 ## 相关推荐
 
-- 2026-06-30 02:30 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 02:53 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 02:45 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 02:59 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 02:36 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 02:54 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 02:44 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 02:52 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 02:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 02:45 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-30 02:45 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 02:56 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-30 02:52 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 02:52 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 02:44 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 03:03 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 02:49 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 02:58 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 02:48 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 02:37 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 02:45 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 02:56 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 02:57 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 03:01 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 02:53 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 02:51 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 02:44 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 03:02 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 02:48 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:58 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/9581162855.shtml)
-- 2026-06-30 02:33 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/67739188.shtml)
-- 2026-06-30 02:57 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/22383632058.shtml)
-- 2026-06-30 02:59 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/360490367.shtml)
-- 2026-06-30 02:30 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/4554686580.shtml)
-- 2026-06-30 02:32 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/63546242.shtml)
-- 2026-06-30 02:57 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/970340.shtml)
-- 2026-06-30 02:45 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/307921051.shtml)
-- 2026-06-30 02:40 - [月亮](http://www.blog.minike.top/Article/details/043095784450.shtml)
-- 2026-06-30 02:47 - [孙兴慜道歉](http://www.share.minike.top/Article/details/788178517346.shtml)
-- 2026-06-30 02:38 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/678885.shtml)
-- 2026-06-30 02:41 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/70131951.shtml)
-- 2026-06-30 02:45 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/710743593.shtml)
-- 2026-06-30 02:47 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/4300690082.shtml)
-- 2026-06-30 02:35 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/211653349324.shtml)
+- 2026-06-30 02:39 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/9125501.shtml)
+- 2026-06-30 02:48 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/38856.shtml)
+- 2026-06-30 02:41 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/96643471.shtml)
+- 2026-06-30 02:39 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/6693191.shtml)
+- 2026-06-30 02:40 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/67021026.shtml)
+- 2026-06-30 02:54 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/008864381975.shtml)
+- 2026-06-30 02:55 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/884715.shtml)
+- 2026-06-30 03:02 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/54521306.shtml)
+- 2026-06-30 02:58 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/096881.shtml)
+- 2026-06-30 02:59 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/2529746859.shtml)
+- 2026-06-30 02:43 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/992707.shtml)
+- 2026-06-30 02:56 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/372932.shtml)
+- 2026-06-30 02:37 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/52847288.shtml)
+- 2026-06-30 02:49 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/2973340629.shtml)
+- 2026-06-30 02:39 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/220299432862.shtml)

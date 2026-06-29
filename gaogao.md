@@ -1,60 +1,56 @@
-# 2026年中小学阳光招生专项行动如何开展？教育部详解
+# 北京天坛的奠基土来自山西后土祠？探访9位皇帝24次亲临的“中华祖祠”
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-中新网4月3日电 据“微言教育”微信公众号消息，近日，教育部办公厅印发了《关于开展中小学阳光招生专项行动(2026年)的通知》。教育部基础教育司负责人就相关问题回答了记者提问。 1 请简要介绍下《通知》出台的背景。 为全面推进教育公平，解决义务教育阶段“掐尖招生”“暗箱操作”等违规招生问题，2024-2025年，教育部连续两年部署开展义务教育阳光招生专项行动，全面规范义务教育招
+发布时间：2026年05月19日 16:16 来源：中国新闻网 近日，山西运城，记者探访位于万荣县的“北京天坛之源”后土祠。后土祠是中国最古老的祭祀后土的祠庙，有“中华祖祠”“海内祠庙之冠”之美誉。自轩辕黄帝在这里“扫地为坛祭后土”至宋真宗皇帝，先后有9位皇帝24次在这里祭祀。汉武帝更是6次到此，并写下千古名篇《秋风辞》。直到明代，皇家祭祀后土的仪式从万荣移往北京。1996年，
 
 ## 正文
 
-中新网4月3日电 据“微言教育”微信公众号消息，近日，教育部办公厅印发了《关于开展中小学阳光招生专项行动(2026年)的通知》。
+发布时间：2026年05月19日 16:16 来源：中国新闻网 近日，山西运城，记者探访位于万荣县的“北京天坛之源”后土祠。
 
-教育部基础教育司负责人就相关问题回答了记者提问。
+后土祠是中国最古老的祭祀后土的祠庙，有“中华祖祠”“海内祠庙之冠”之美誉。
 
-1 请简要介绍下《通知》出台的背景。
+自轩辕黄帝在这里“扫地为坛祭后土”至宋真宗皇帝，先后有9位皇帝24次在这里祭祀。
 
-为全面推进教育公平，解决义务教育阶段“掐尖招生”“暗箱操作”等违规招生问题，2024-2025年，教育部连续两年部署开展义务教育阳光招生专项行动，全面规范义务教育招生入学工作。
+汉武帝更是6次到此，并写下千古名篇《秋风辞》。
 
-两年来，专项行动取得了积极成效，但部分地方、部分学校在学区划片调整、特定类型招生、均衡分班等关键环节还存在不足之处，政策执行的“最后一公里”仍需强化，必须进一步强化规范治理、健全常态化机制。
+直到明代，皇家祭祀后土的仪式从万荣移往北京。
 
-2026年是“十五五”规划实施的起步之年，也是教育强国建设三年行动计划承上启下关键之年，组织实施中小学阳光招生专项行动(2026年)，对进一步健全公平入学长效机制，切实维护良好教育生态，推进我国基础教育规范化、科学化、高质量发展具有十分重要的意义。
+1996年，后土祠被列为全国重点文物保护单位。
 
-2 与前两年相比，2026年专项行动有哪些新变化？
+高32.6米的秋风楼，也因藏有《秋风辞》碑刻而名扬天下。
 
-与前两年相比，今年专项行动实现了三个重要转变，体现了工作思路、工作目标的优化升级。
+(王惠琳 高雨晴） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 02:38 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 02:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 02:40 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 02:47 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 02:56 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 02:55 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-30 02:47 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 02:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 02:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 02:30 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-30 02:55 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 02:40 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 02:35 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 02:38 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 02:58 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 02:40 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 02:57 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 03:05 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 02:58 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 02:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 03:02 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 02:51 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 02:46 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 02:51 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:52 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/193289.shtml)
-- 2026-06-30 02:56 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/057198849.shtml)
-- 2026-06-30 02:42 - [急先锋](https://www.share.kurohicncr.top/Article/details/498298115801.shtml)
-- 2026-06-30 02:33 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/220656623.shtml)
-- 2026-06-30 02:50 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/620707841.shtml)
-- 2026-06-30 02:37 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/0138037202.shtml)
-- 2026-06-30 02:51 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/5400993175.shtml)
-- 2026-06-30 02:42 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/58493366.shtml)
-- 2026-06-30 02:33 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/026281.shtml)
-- 2026-06-30 02:52 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/83349251402.shtml)
-- 2026-06-30 02:56 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/7168878.shtml)
-- 2026-06-30 02:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/88184.shtml)
-- 2026-06-30 02:37 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/43278906.shtml)
-- 2026-06-30 02:38 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/726903143568.shtml)
-- 2026-06-30 02:55 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/5342738.shtml)
+- 2026-06-30 02:40 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/60410.shtml)
+- 2026-06-30 03:05 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/23864.shtml)
+- 2026-06-30 02:37 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/6591947459.shtml)
+- 2026-06-30 02:50 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/0518111095.shtml)
+- 2026-06-30 03:05 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/737514875.shtml)
+- 2026-06-30 02:40 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/69475878.shtml)
+- 2026-06-30 02:39 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/30147159.shtml)
+- 2026-06-30 03:04 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/3799828101.shtml)
+- 2026-06-30 02:45 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/59034390886.shtml)
+- 2026-06-30 03:00 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/273146290.shtml)
+- 2026-06-30 02:52 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/586942.shtml)
+- 2026-06-30 02:51 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/460987057.shtml)
+- 2026-06-30 02:45 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/6402959784.shtml)
+- 2026-06-30 02:43 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/176783577.shtml)
+- 2026-06-30 02:37 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/829466636285.shtml)

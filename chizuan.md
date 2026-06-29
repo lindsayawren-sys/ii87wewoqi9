@@ -1,58 +1,56 @@
-# 暴力反弹，这一幕似曾相识！沪指百点长阳，全A上涨家数创年内新高
+# 国家能源局：4月份全社会用电量同比增长6.0%
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-记者|肖芮冬 编辑|赵云 4月8日，市场集体反弹，沪指百点长阳，创业板指涨近6%、科创50指数涨超6%。截至收盘，沪指涨2.7%，深成指涨4.79%，创业板指涨5.91%。 板块来看，AI产业链集体爆发，算力硬件概念快速拉升，AI应用端表现活跃，贵金属概念集体走高。下跌方面，油气概念集体调整。 全市场超5100只个股上涨，其中135只个股涨停，连续两日超百股涨停。沪深两市成交额
+5月19日，国家能源局发布4月份全社会用电量等数据。 4月份，全社会用电量8205亿千瓦时，同比增长6.0%。从分产业用电看，第一产业用电量112亿千瓦时，同比增长2.0%。第二产业用电量5584亿千瓦时，同比增长5.3%；其中，工业用电量5538亿千瓦时，同比增长5.5%，高技术装备制造业用电量1050亿千瓦时，同比增长10.1%。第三产业用电量1517亿千瓦时，同比增长8.
 
 ## 正文
 
-记者|肖芮冬 编辑|赵云 4月8日，市场集体反弹，沪指百点长阳，创业板指涨近6%、科创50指数涨超6%。
+5月19日，国家能源局发布4月份全社会用电量等数据。
 
-截至收盘，沪指涨2.7%，深成指涨4.79%，创业板指涨5.91%。
+4月份，全社会用电量8205亿千瓦时，同比增长6.0%。
 
-板块来看，AI产业链集体爆发，算力硬件概念快速拉升，AI应用端表现活跃，贵金属概念集体走高。
+从分产业用电看，第一产业用电量112亿千瓦时，同比增长2.0%。
 
-下跌方面，油气概念集体调整。
+第二产业用电量5584亿千瓦时，同比增长5.3%；其中，工业用电量5538亿千瓦时，同比增长5.5%，高技术装备制造业用电量1050亿千瓦时，同比增长10.1%。
 
-全市场超5100只个股上涨，其中135只个股涨停，连续两日超百股涨停。
+第三产业用电量1517亿千瓦时，同比增长8.9%；其中，充换电服务业、互联网数据服务用电量分别为137亿、82亿千瓦时，增速分别达到61.9%、42.8%。
 
-沪深两市成交额2.43万亿元，较上一个交易日放量8201亿。
+城乡居民生活用电量992亿千瓦时，同比增长6.0%。
 
-从昨天到今天，A股市场似乎有意“致敬”去年的走势，先探底、后普涨。
+1~4月，全社会用电量累计33345亿千瓦时，同比增长5.4%。
 
-节奏似曾相识，但不一样的是：昨天既没有砸出去年“4·7”的深坑，今天更是直接暴力修复，涨幅远超去年“4·8”，加快了上涨速度。
+从分产业用电看，第一产业用电量449亿千瓦时，同比增长5.8%。
 
 ## 相关推荐
 
-- 2026-06-30 02:57 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 02:58 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 02:56 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 02:32 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 02:41 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 02:30 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 02:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 02:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 02:47 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 02:40 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 02:49 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-30 02:33 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 02:42 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 03:03 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 02:45 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 02:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 03:03 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 03:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 02:42 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 02:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 02:47 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 02:43 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:44 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/72818278858.shtml)
-- 2026-06-30 02:34 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/89711461.shtml)
-- 2026-06-30 02:39 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/684383.shtml)
-- 2026-06-30 02:32 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/42283812055.shtml)
-- 2026-06-30 02:57 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/711851808717.shtml)
-- 2026-06-30 02:57 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/057025604.shtml)
-- 2026-06-30 02:34 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/675519786.shtml)
-- 2026-06-30 02:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/44061876069.shtml)
-- 2026-06-30 02:48 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/02573567.shtml)
-- 2026-06-30 02:53 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/2993235.shtml)
-- 2026-06-30 02:31 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/598138092.shtml)
-- 2026-06-30 02:59 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/752960.shtml)
-- 2026-06-30 02:46 - [内马尔替补](https://www.blog.minike.top/Article/details/010472198.shtml)
-- 2026-06-30 02:40 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/187894.shtml)
-- 2026-06-30 02:32 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/888608592.shtml)
+- 2026-06-30 02:46 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/821219.shtml)
+- 2026-06-30 02:59 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/6154441137.shtml)
+- 2026-06-30 02:46 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/6207088.shtml)
+- 2026-06-30 03:00 - [一见倾心](https://www.share.minike.top/Article/details/269292693360.shtml)
+- 2026-06-30 02:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/52075687497.shtml)
+- 2026-06-30 02:50 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/6554049.shtml)
+- 2026-06-30 02:56 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/202038100133.shtml)
+- 2026-06-30 03:01 - [沙丘](http://www.blog.kurohicncr.top/Article/details/814082154.shtml)
+- 2026-06-30 02:55 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/83200.shtml)
+- 2026-06-30 02:55 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/05349975.shtml)
+- 2026-06-30 02:52 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/083463522215.shtml)
+- 2026-06-30 02:53 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/9282346.shtml)
+- 2026-06-30 02:53 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/900715775054.shtml)
+- 2026-06-30 03:03 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/777826601994.shtml)
+- 2026-06-30 02:40 - [女心理师](https://www.share.minike.top/Article/details/149448531.shtml)

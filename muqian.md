@@ -1,61 +1,61 @@
-# 清明假期广西多措并举 助推消费市场火热
+# 三星电子劳资谈判破裂后 韩国总统李在明称工会行动须有适当限度
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-中新网南宁4月8日电(韦佳秀)广西商务厅8日介绍，今年清明假期(4月4日—6日)期间，该部门紧扣“今年春假来广西 畅游畅购三月三”主题，推出系列促消费举措，创新打造多元沉浸式消费场景，为春季消费市场注入新活力。 清明假期期间，广西各地扎实推进消费品以旧换新活动。贵港、防城港、贺州等市推出新车购车补贴，消费者购车最高可享补贴4000元。南宁、柳州等地部分4S店推出置换补贴加码活动
+韩国总统李在明在内阁会议上呼吁，对集体劳工行动设定“适当的界限”，此时正值政府斡旋的三星电子与工会谈判破裂，导致罢工风险上升。 李在明虽未点名三星，但就在他发言前不久，这家全球芯片巨头的工会领导人表示，由于谈判再次陷入僵局，原定于周四开始的为期18天停工将如期进行。三星方面则指责工会提出“过高”要求。 根据内阁会议直播画面，李在明表示：“部分工会通过行使权利来维护自身利益是可以
 
 ## 正文
 
-中新网南宁4月8日电(韦佳秀)广西商务厅8日介绍，今年清明假期(4月4日—6日)期间，该部门紧扣“今年春假来广西 畅游畅购三月三”主题，推出系列促消费举措，创新打造多元沉浸式消费场景，为春季消费市场注入新活力。
+韩国总统李在明在内阁会议上呼吁，对集体劳工行动设定“适当的界限”，此时正值政府斡旋的三星电子与工会谈判破裂，导致罢工风险上升。
 
-清明假期期间，广西各地扎实推进消费品以旧换新活动。
+李在明虽未点名三星，但就在他发言前不久，这家全球芯片巨头的工会领导人表示，由于谈判再次陷入僵局，原定于周四开始的为期18天停工将如期进行。
 
-贵港、防城港、贺州等市推出新车购车补贴，消费者购车最高可享补贴4000元。
+三星方面则指责工会提出“过高”要求。
 
-南宁、柳州等地部分4S店推出置换补贴加码活动，部分车型可享4000元置换补贴、3年0息等多重优惠。
+根据内阁会议直播画面，李在明表示：“部分工会通过行使权利来维护自身利益是可以理解的，但同时也必须有一个适当的限制。
 
-京东电器、苏宁易购等单台家电最高补贴5000元。
+” 此次争议的核心在于薪酬分配机制。
 
-南宁市还创新推出“以旧换新+有奖发票”活动，截至4月6日，活动累计参与36万人次，上传发票174.2万张，拉动消费8.6亿元。
+三星工会要求取消现行奖金上限、将公司15%的营业利润提拨作为员工奖金，并将相关条款正式纳入劳动合约中。
 
-广西175家零售企业商品销售额同比(下同)增长10.1%，其中汽车类、通讯器材类、石油及制品类分别增长6.7%、21.8%和24.6%。
+三星曾提议将营业利润的10%用于发放奖金，外加一笔高于业界标准的特别一次性补偿方案。
 
-清明假期适逢各地“春假”，“双假”叠加带动出行消费活跃，短途游、自驾游成主流。
+公司高层则认为，工会的要求难以长期维持。
 
 ## 相关推荐
 
-- 2026-06-30 02:37 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 02:53 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 02:49 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 02:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 02:52 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 02:48 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 02:43 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 02:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 02:54 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 02:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 02:59 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 02:46 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 02:41 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 02:35 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-30 02:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 02:42 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 02:36 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 03:03 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 02:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 02:40 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 02:36 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 02:59 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 02:43 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 02:55 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 03:05 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 02:37 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 02:51 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 02:38 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 02:37 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-30 02:55 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:54 - [时光音乐会](http://www.blog.minike.top/Article/details/23600186568.shtml)
-- 2026-06-30 02:49 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/12040681.shtml)
-- 2026-06-30 02:43 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/16018231.shtml)
-- 2026-06-30 02:38 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/65248.shtml)
-- 2026-06-30 02:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/910650443.shtml)
-- 2026-06-30 02:58 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/61642.shtml)
-- 2026-06-30 02:32 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/511628790945.shtml)
-- 2026-06-30 02:32 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/9026402716.shtml)
-- 2026-06-30 02:48 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/02080278.shtml)
-- 2026-06-30 02:38 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/02681.shtml)
-- 2026-06-30 02:42 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/36076920.shtml)
-- 2026-06-30 02:33 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/31335835246.shtml)
-- 2026-06-30 02:33 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/9995055.shtml)
-- 2026-06-30 02:59 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/33664357.shtml)
-- 2026-06-30 02:48 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/73346297.shtml)
+- 2026-06-30 03:03 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/39477247.shtml)
+- 2026-06-30 02:59 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/86216070625.shtml)
+- 2026-06-30 02:58 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/2653866.shtml)
+- 2026-06-30 02:42 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/7113310.shtml)
+- 2026-06-30 02:49 - [美股](https://www.share.kurohicncr.top/Article/details/968097425.shtml)
+- 2026-06-30 03:05 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/85143.shtml)
+- 2026-06-30 02:56 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/7810310206.shtml)
+- 2026-06-30 02:50 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/929939.shtml)
+- 2026-06-30 03:01 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/16593803097.shtml)
+- 2026-06-30 02:48 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/5190980044.shtml)
+- 2026-06-30 02:49 - [毒液2](http://www.share.kurohicncr.top/Article/details/953893856.shtml)
+- 2026-06-30 02:39 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/75158941978.shtml)
+- 2026-06-30 02:49 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/3670930170.shtml)
+- 2026-06-30 02:48 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/1394945601.shtml)
+- 2026-06-30 02:43 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/0832425.shtml)

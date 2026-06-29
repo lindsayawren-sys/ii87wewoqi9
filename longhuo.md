@@ -1,57 +1,61 @@
-# 辽宁提升医疗服务水平出新招：变“抢号”为“排队”
+# 沈阳辽中深耕特色种养 订单农业助农增收
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-中新网沈阳4月7日电(王涵 禹瑞斋 李雪飞)“本来没抱多大希望，结果第二天发现候补成功了，我赶紧就把号挂上了。”在沈阳，专程从外地赶来的王艳凤向记者展示着手机上的挂号成功通知。她说，为了找心仪的专家看病，以前挂不上号就得在沈阳滞留等待，“现在有了候补功能，看完当天就能走，不用再为了挂号在沈阳多待两天，省心多了。” 王艳凤的便捷体验，源于中国医科大学的两家附属医院近期推出的便民新
+中新网沈阳5月20日电(杨茜茜)记者20日从沈阳市农业农村局获悉，辽宁省沈阳市辽中区大黑岗子镇春耕生产正在有序推进，通过订单农业和全程机械化，花生、稻米两大特色产业实现产销对接，有效带动农户增收。 据了解，在钱缝村，花生播种机正在作业，全村6000多亩耕地中80%种植花生。今年该村与葫芦岛正业集团签订有机花生订单，种植面积1000亩，回收价高于市场价，产品将出口。村党支部书记王
 
 ## 正文
 
-中新网沈阳4月7日电(王涵 禹瑞斋 李雪飞)“本来没抱多大希望，结果第二天发现候补成功了，我赶紧就把号挂上了。
+中新网沈阳5月20日电(杨茜茜)记者20日从沈阳市农业农村局获悉，辽宁省沈阳市辽中区大黑岗子镇春耕生产正在有序推进，通过订单农业和全程机械化，花生、稻米两大特色产业实现产销对接，有效带动农户增收。
 
-”在沈阳，专程从外地赶来的王艳凤向记者展示着手机上的挂号成功通知。
+据了解，在钱缝村，花生播种机正在作业，全村6000多亩耕地中80%种植花生。
 
-她说，为了找心仪的专家看病，以前挂不上号就得在沈阳滞留等待，“现在有了候补功能，看完当天就能走，不用再为了挂号在沈阳多待两天，省心多了。
+今年该村与葫芦岛正业集团签订有机花生订单，种植面积1000亩，回收价高于市场价，产品将出口。
 
-” 王艳凤的便捷体验，源于中国医科大学的两家附属医院近期推出的便民新举措。
+村党支部书记王凤先表示，订单让农户没有后顾之忧。
 
-作为东北地区医疗行业影响力较广的三甲医院，中国医科大学附属医院承载着区域核心诊疗重任。
+该村还推广精量播种、绿色防控等节本增效技术。
 
-针对民众反映强烈的“挂号难”、号贩子“倒号”等痛点，中国医科大学附属第一医院与中国医科大学附属盛京医院借鉴铁路售票机制，先后上线了“候补挂号”服务。
+当地农业龙头企业沈阳鸿腾粮食有限公司不仅开展稻米精深加工，还与辽宁花生集团合作，进行有机花生种植、收购、加工全链条合作。
 
-“我们医院有近50%的患者来自沈阳市外。
+据厂长徐九山介绍，预计每年输送有机花生近600吨，花生与大米销售额突破4000万元，每亩可为农户增加纯收入200元。
 
-”中国医科大学附属第一医院信息中心主任全宇介绍，为了最大限度方便异地患者，优化就医流程，该院致力于打造更加友好的就医环境。
+据悉，大黑岗子镇依托科技赋能做强特色种养，机械化作业与订单种植相结合，保障农户稳定增收，为乡村产业振兴注入动力。
 
 ## 相关推荐
 
-- 2026-06-30 02:35 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 02:47 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 02:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 02:47 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 02:45 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 02:59 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-30 02:52 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 02:32 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 02:58 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 02:33 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 02:36 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 02:59 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 02:42 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 02:53 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 03:04 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 02:44 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 02:54 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 02:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 02:56 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 02:40 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 02:54 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 03:02 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 02:45 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 02:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 03:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 02:48 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:49 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/62007883829.shtml)
-- 2026-06-30 02:47 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/440903011645.shtml)
-- 2026-06-30 02:59 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/8859939.shtml)
-- 2026-06-30 02:42 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/3966857.shtml)
-- 2026-06-30 02:46 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/95172324.shtml)
-- 2026-06-30 02:45 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/58123851.shtml)
-- 2026-06-30 02:36 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/73507900.shtml)
-- 2026-06-30 02:41 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/864849392396.shtml)
-- 2026-06-30 02:42 - [斛珠夫人](https://www.blog.minike.top/Article/details/1659004133.shtml)
-- 2026-06-30 02:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/78377.shtml)
-- 2026-06-30 02:41 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/74127016.shtml)
-- 2026-06-30 02:56 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/28235.shtml)
-- 2026-06-30 02:32 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/39674553708.shtml)
-- 2026-06-30 02:58 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/020860871.shtml)
-- 2026-06-30 02:46 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/67404105.shtml)
+- 2026-06-30 02:37 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/861787176605.shtml)
+- 2026-06-30 02:41 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/90944098762.shtml)
+- 2026-06-30 02:52 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/53316895.shtml)
+- 2026-06-30 02:57 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/32599889.shtml)
+- 2026-06-30 02:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/8560329521.shtml)
+- 2026-06-30 02:46 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/00441987267.shtml)
+- 2026-06-30 02:36 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/9314339.shtml)
+- 2026-06-30 02:49 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/242204071.shtml)
+- 2026-06-30 03:01 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/38237677.shtml)
+- 2026-06-30 02:54 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/176298.shtml)
+- 2026-06-30 02:41 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/8877079.shtml)
+- 2026-06-30 02:39 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/0115780.shtml)
+- 2026-06-30 03:04 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/30623809.shtml)
+- 2026-06-30 02:42 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/6165766.shtml)
+- 2026-06-30 02:40 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/80825026377.shtml)

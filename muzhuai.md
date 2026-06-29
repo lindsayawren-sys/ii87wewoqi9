@@ -1,58 +1,60 @@
-# 郑州—迪拜定期国际货运航线开通
+# 开盘：美股周三开盘涨跌不一 交易员静待英伟达财报
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-中新社郑州4月7日电 (记者 韩章云)阿联酋航空一架满载跨境电商货物的货机7日从郑州新郑国际机场飞往迪拜，标志着郑州—迪拜定期国际货运航线开通，这也是阿联酋航空首次在郑州运营货运航线。 该航线为郑州机场今年新开通的第5条货运航线，计划每周3班，班期为每周二、周五、周日，主要运载跨境电商货物。 该货运航线由中豫航空集团有限公司负责运营。该公司相关负责人受访时称，迪拜是中东地区的交
+北京时间5月20日晚，美股周三开盘涨跌不一。油价下跌，同时交易员正屏息以待英伟达第一季度财报的公布。 道指跌15.05点，跌幅为0.03%，报49348.83点；标普500指数涨15.58点，涨幅为0.21%，报7369.19点；纳指涨128.733点，涨幅为0.50%，报25999.442点。 周三早间，西得克萨斯中质原油期货下跌1%，交易价格高于每桶102美元。布伦特原油期
 
 ## 正文
 
-中新社郑州4月7日电 (记者 韩章云)阿联酋航空一架满载跨境电商货物的货机7日从郑州新郑国际机场飞往迪拜，标志着郑州—迪拜定期国际货运航线开通，这也是阿联酋航空首次在郑州运营货运航线。
+北京时间5月20日晚，美股周三开盘涨跌不一。
 
-该航线为郑州机场今年新开通的第5条货运航线，计划每周3班，班期为每周二、周五、周日，主要运载跨境电商货物。
+油价下跌，同时交易员正屏息以待英伟达第一季度财报的公布。
 
-该货运航线由中豫航空集团有限公司负责运营。
+道指跌15.05点，跌幅为0.03%，报49348.83点；标普500指数涨15.58点，涨幅为0.21%，报7369.19点；纳指涨128.733点，涨幅为0.50%，报25999.442点。
 
-该公司相关负责人受访时称，迪拜是中东地区的交通枢纽，该货运航线的开通，架起了河南及中部地区联通阿联酋的“空中桥梁”，也为跨境电商货物出口搭建便捷高效的物流通道。
+周三早间，西得克萨斯中质原油期货下跌1%，交易价格高于每桶102美元。
 
-今年以来，该公司已新开通郑州—河内等4条货运航线。
+布伦特原油期货回落2%，至每桶109美元附近。
 
-今年一季度郑州机场共完成货邮吞吐量23.7万吨，国际地区货邮吞吐量16.3万吨。
+投资者正将注意力转向英伟达，该公司将在周三美股收盘后公布第一季度财报。
 
-(完)
+这份报告将成为考察人工智能交易的重要窗口，并提供关于芯片需求的最新动态。
+
+高盛首席美国股票策略师Ben Snider指出，这家芯片制造商兼AI宠儿今年以来对标普500指数涨幅的贡献率约为20%，对这个大盘指数2026年的盈利增长贡献也接近该比例。
 
 ## 相关推荐
 
-- 2026-06-30 02:51 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 02:44 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 02:52 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-30 02:30 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 02:31 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 02:46 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 02:46 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 02:52 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 02:35 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 02:58 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 02:34 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 02:43 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 02:49 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 02:30 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 02:50 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 02:49 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 03:03 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 02:49 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 02:57 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 02:55 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 02:57 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 02:55 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 03:03 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 02:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 02:56 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 02:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 03:04 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 03:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:54 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/14149.shtml)
-- 2026-06-30 02:42 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/8639164332.shtml)
-- 2026-06-30 02:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/55729014.shtml)
-- 2026-06-30 02:34 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/45243284.shtml)
-- 2026-06-30 02:45 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/48462646.shtml)
-- 2026-06-30 02:30 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/0061036.shtml)
-- 2026-06-30 02:31 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/650008784769.shtml)
-- 2026-06-30 02:34 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/7609343.shtml)
-- 2026-06-30 02:53 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/86418005.shtml)
-- 2026-06-30 02:56 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/058640031299.shtml)
-- 2026-06-30 02:47 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/373115919.shtml)
-- 2026-06-30 02:57 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/996869.shtml)
-- 2026-06-30 02:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/84289637002.shtml)
-- 2026-06-30 02:31 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/623689.shtml)
-- 2026-06-30 02:53 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/83004.shtml)
+- 2026-06-30 03:05 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/066582.shtml)
+- 2026-06-30 02:55 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/5216952.shtml)
+- 2026-06-30 02:45 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/581487.shtml)
+- 2026-06-30 02:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/686164313377.shtml)
+- 2026-06-30 02:52 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/31869350271.shtml)
+- 2026-06-30 02:56 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/302861.shtml)
+- 2026-06-30 02:36 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/76533728680.shtml)
+- 2026-06-30 03:03 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/58529302845.shtml)
+- 2026-06-30 02:52 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/72179311.shtml)
+- 2026-06-30 02:52 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/2540329.shtml)
+- 2026-06-30 02:41 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/4323897.shtml)
+- 2026-06-30 02:36 - [日本反击率先破门](http://www.share.minike.top/Article/details/1528452.shtml)
+- 2026-06-30 03:00 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/86694948306.shtml)
+- 2026-06-30 02:51 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/196550229.shtml)
+- 2026-06-30 02:44 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/2902007.shtml)

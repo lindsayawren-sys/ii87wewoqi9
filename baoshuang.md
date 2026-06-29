@@ -1,58 +1,52 @@
-# 受伊朗战争影响，分析师以有记录以来最大幅度上调年度油价预测
+# 金价因可能的技术性反弹而微涨
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-霍尔木兹海峡石油运输受阻以及伊朗战争导致供应干扰，促使分析师以路透调查记录中最大幅度上调年度油价预测。 路透在3月进行的调查显示，布兰特原油2026年均价预计为每桶82.85美元，较战事爆发前、2月调查中预测的63.85美元高出约30%。调查结果基于38位经济学家和分析师的回复。 根据路透自2005年开始的月度油市调查数据，这一19美元的上调幅度创下年度价格预测上修幅度之最。
+隔夜近月黄金期货结算价下跌1%后，金价因可能的技术性反弹而微涨。然而，由于美国和伊朗在潜在的和平协议上分歧依然很大，涨幅可能受限，在此背景下，总统特朗普先是取消使用武力，随后又再次发出武力威胁。FFA Kings的Fadi Al Kurdi在一封电子邮件中表示：“在收益率上升和美元坚挺的情况下，金价可能会继续面临一些压力。“这位创始人兼首席执行官表示：“中东地缘政治局势持续的不
 
 ## 正文
 
-霍尔木兹海峡石油运输受阻以及伊朗战争导致供应干扰，促使分析师以路透调查记录中最大幅度上调年度油价预测。
+隔夜近月黄金期货结算价下跌1%后，金价因可能的技术性反弹而微涨。
 
-路透在3月进行的调查显示，布兰特原油2026年均价预计为每桶82.85美元，较战事爆发前、2月调查中预测的63.85美元高出约30%。
+然而，由于美国和伊朗在潜在的和平协议上分歧依然很大，涨幅可能受限，在此背景下，总统特朗普先是取消使用武力，随后又再次发出武力威胁。
 
-调查结果基于38位经济学家和分析师的回复。
+FFA Kings的Fadi Al Kurdi在一封电子邮件中表示：“在收益率上升和美元坚挺的情况下，金价可能会继续面临一些压力。
 
-根据路透自2005年开始的月度油市调查数据，这一19美元的上调幅度创下年度价格预测上修幅度之最。
+“这位创始人兼首席执行官表示：“中东地缘政治局势持续的不确定性以及由此导致的高油价可能会继续支撑美元和美债收益率，从而拖累黄金等无收益资产。
 
-美国原油2026年均价预计为每桶76.78美元，2月的预测为60.38美元。
+“现货黄金上涨0.2%，报每盎司4，489.57美元。
 
-自2月28日冲突爆发以来，两大指标均已大涨约60%，布兰特原油势将录得创纪录月线涨幅。
-
-这场已经持续一个月的冲突导致霍尔木兹海峡事实上处于关闭状态，该航道承担着全球约20%的石油和液化天然气运输，促使海湾产油国被迫削减产量。
-
-盛宝银行大宗商品策略主管Ole Hansen称：“如果干扰再持续几周，苏伊士运河以西的石油期货，可能会追上苏伊士以东已经出现的高位。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 02:31 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 02:40 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 02:41 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 02:39 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 02:48 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 02:57 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 02:43 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 02:45 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 02:38 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 02:42 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 02:42 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-30 02:52 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 02:38 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 02:42 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 02:48 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 02:47 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 02:42 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 03:04 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 02:50 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 02:46 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 02:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 02:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:35 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/356534.shtml)
-- 2026-06-30 02:45 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/1134703.shtml)
-- 2026-06-30 02:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/0510698719.shtml)
-- 2026-06-30 02:56 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/895204137137.shtml)
-- 2026-06-30 02:32 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/33579372.shtml)
-- 2026-06-30 02:30 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/21668.shtml)
-- 2026-06-30 02:36 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/69029826411.shtml)
-- 2026-06-30 02:45 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/632689.shtml)
-- 2026-06-30 02:43 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/433670796.shtml)
-- 2026-06-30 02:44 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/6355146740.shtml)
-- 2026-06-30 02:58 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/49828938735.shtml)
-- 2026-06-30 02:48 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/66244031361.shtml)
-- 2026-06-30 02:49 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/794973.shtml)
-- 2026-06-30 02:40 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/057231989.shtml)
-- 2026-06-30 02:45 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/8625514.shtml)
+- 2026-06-30 03:02 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/48676912.shtml)
+- 2026-06-30 02:43 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/01223757964.shtml)
+- 2026-06-30 02:50 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/46128.shtml)
+- 2026-06-30 02:38 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/76921.shtml)
+- 2026-06-30 02:41 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/653095568.shtml)
+- 2026-06-30 03:03 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/399109525.shtml)
+- 2026-06-30 02:42 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/1624095366.shtml)
+- 2026-06-30 02:38 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/66930253641.shtml)
+- 2026-06-30 02:43 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/327254.shtml)
+- 2026-06-30 02:44 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/502515468157.shtml)
+- 2026-06-30 02:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/65734.shtml)
+- 2026-06-30 03:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/380319780.shtml)
+- 2026-06-30 02:51 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/15768.shtml)
+- 2026-06-30 02:39 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/01774364788.shtml)
+- 2026-06-30 02:47 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/1667157552.shtml)

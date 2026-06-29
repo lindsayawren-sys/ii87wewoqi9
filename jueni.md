@@ -1,57 +1,56 @@
-# “牛市旗手”券商板块表现强势，证券ETF富国（515850）盘中涨幅达3.90%
+# 长岛铁路罢工事件达成和解协议
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-今日盘中，大金融板块持续反弹，券商板块强势上涨，截至发稿，证券ETF富国（515850）盘中涨幅高达3.90%。成分股中，第一创业涨停，财通证券涨超6%，东方财富、东吴证券涨超5%，其余成分股均表现突出。 消息面上，截至2026年4月3日，共有30家上市券商或券商母公司发布年报或业绩快报，合计归母净利润1930亿元，同比增长44%。 2025年上市券商及金融科技公司业绩集体高增
+因薪资纠纷，约 3500 名员工停工三日 周一，代表长岛铁路员工的各大工会与纽约大都会运输署正式达成协议。此次罢工已持续三天，致使这条全美最繁忙的通勤铁路全线停运。 纽约州州长凯茜・霍楚尔宣布，铁路将于周二中午逐步恢复通车。她表示，大都会运输署与五家员工工会已于周一晚间敲定一份公平合理的协议。 工会与身为民主党人的州长均未公开协议具体条款，但霍楚尔称，这份协议既能为员工涨薪，也
 
 ## 正文
 
-今日盘中，大金融板块持续反弹，券商板块强势上涨，截至发稿，证券ETF富国（515850）盘中涨幅高达3.90%。
+因薪资纠纷，约 3500 名员工停工三日 周一，代表长岛铁路员工的各大工会与纽约大都会运输署正式达成协议。
 
-成分股中，第一创业涨停，财通证券涨超6%，东方财富、东吴证券涨超5%，其余成分股均表现突出。
+此次罢工已持续三天，致使这条全美最繁忙的通勤铁路全线停运。
 
-消息面上，截至2026年4月3日，共有30家上市券商或券商母公司发布年报或业绩快报，合计归母净利润1930亿元，同比增长44%。
+纽约州州长凯茜・霍楚尔宣布，铁路将于周二中午逐步恢复通车。
 
-2025年上市券商及金融科技公司业绩集体高增。
+她表示，大都会运输署与五家员工工会已于周一晚间敲定一份公平合理的协议。
 
-机构分析，当前券商板块处于政策红利释放期+流动性宽松友好期+市场活跃度高位的三重叠加阶段。
+工会与身为民主党人的州长均未公开协议具体条款，但霍楚尔称，这份协议既能为员工涨薪，也能保障通勤民众与纳税人的切身利益。
 
-虽然短期板块beta受市场情绪波动影响可能震荡，但中长期多条线业绩确定性较强，行业景气有保障，具备攻守兼备的配置价值。
+负责管辖长岛铁路的大都会运输署负责人詹诺・利伯表示，此次罢工将于午夜正式结束。
 
-证券ETF富国（515850）紧密跟踪中证全指证券公司指数，成分股以大型券商为主，兼纳中小型券商，在市场回暖期，大市值标的或能够发挥突出的龙头效应，小而美的潜力股则具备较充足的盈利弹性。
+铁路全面恢复运营尚需时间，运输署仍建议民众周二尽量居家办公。
 
-责任编辑：郭栩彤
+历经数月谈判，工会始终未能与运输署达成一致，约 3500 名长岛铁路员工于上周末正式发起罢工。
 
 ## 相关推荐
 
-- 2026-06-30 02:35 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 02:58 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 02:54 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 02:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 02:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 02:50 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 02:45 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 02:49 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 02:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 02:30 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 02:52 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 02:43 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 02:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 03:05 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 02:58 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 02:52 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 02:41 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 02:41 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 03:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 03:01 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 03:03 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:53 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/617842.shtml)
-- 2026-06-30 02:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/327122292.shtml)
-- 2026-06-30 02:54 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/733776227.shtml)
-- 2026-06-30 02:31 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/8104335.shtml)
-- 2026-06-30 02:51 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/646043.shtml)
-- 2026-06-30 02:52 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/7388212.shtml)
-- 2026-06-30 02:44 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/306247749.shtml)
-- 2026-06-30 02:59 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/722855534198.shtml)
-- 2026-06-30 02:41 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/498964247744.shtml)
-- 2026-06-30 02:46 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/56960358856.shtml)
-- 2026-06-30 02:33 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/77588015361.shtml)
-- 2026-06-30 02:31 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/270864094950.shtml)
-- 2026-06-30 02:39 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/84150866.shtml)
-- 2026-06-30 02:32 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/247887.shtml)
-- 2026-06-30 02:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/0165810.shtml)
+- 2026-06-30 02:49 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/4744371847.shtml)
+- 2026-06-30 02:57 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/92012.shtml)
+- 2026-06-30 02:56 - [斗破苍穹](https://www.blog.minike.top/Article/details/215792410350.shtml)
+- 2026-06-30 02:47 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/912783138.shtml)
+- 2026-06-30 02:37 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/3013263.shtml)
+- 2026-06-30 02:56 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/27885110.shtml)
+- 2026-06-30 02:43 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/922353892.shtml)
+- 2026-06-30 02:41 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/303571.shtml)
+- 2026-06-30 03:02 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/63914.shtml)
+- 2026-06-30 02:45 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/6310768098.shtml)
+- 2026-06-30 02:47 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/928605.shtml)
+- 2026-06-30 03:02 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/01323881.shtml)
+- 2026-06-30 02:56 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/13389809608.shtml)
+- 2026-06-30 03:02 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/698323.shtml)
+- 2026-06-30 02:42 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/0161240.shtml)

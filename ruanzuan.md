@@ -1,60 +1,54 @@
-# 特朗普决定对伊朗开战：事件六大要点
+# 壁仞科技盘中涨超5% 里昂将目标价上调至67.40港元
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-美国启动对伊朗大规模军事行动前的两周半内，一小圈顾问聚集在白宫战情室，召开了一系列关键会议。根据为即将出版的《政权更迭：唐纳德・特朗普的帝王总统内幕》一书所做的报道，此前未披露的那段时期的细节显示，特朗普总统与以色列总理本雅明・内塔尼亚胡的结盟，以及总统核心圈中除一人外均未持续提出反对，最终将美国推向了战争轨道。 以下是该报道梳理出的六大要点。 一、内塔尼亚胡在战情室向特朗普及
+壁仞科技（06082）盘中涨超5%，截至发稿，股价上涨3.72%，现报49.62港元，成交额1.73亿港元。 里昂发布研报称，看好壁仞科技（06082）的产品线及强大交付能力。该行认为，中国的算力短缺将至少持续至2027年，而壁仞科技有望受惠于供需失衡及国产化趋势，凭借其强大的交付能力脱颖而出。该行将目标价由46.3港元上调至67.4港元，维持“跑赢大市”评级。 报告提及，壁仞
 
 ## 正文
 
-美国启动对伊朗大规模军事行动前的两周半内，一小圈顾问聚集在白宫战情室，召开了一系列关键会议。
+壁仞科技（06082）盘中涨超5%，截至发稿，股价上涨3.72%，现报49.62港元，成交额1.73亿港元。
 
-根据为即将出版的《政权更迭：唐纳德・特朗普的帝王总统内幕》一书所做的报道，此前未披露的那段时期的细节显示，特朗普总统与以色列总理本雅明・内塔尼亚胡的结盟，以及总统核心圈中除一人外均未持续提出反对，最终将美国推向了战争轨道。
+里昂发布研报称，看好壁仞科技（06082）的产品线及强大交付能力。
 
-以下是该报道梳理出的六大要点。
+该行认为，中国的算力短缺将至少持续至2027年，而壁仞科技有望受惠于供需失衡及国产化趋势，凭借其强大的交付能力脱颖而出。
 
-一、内塔尼亚胡在战情室向特朗普及其团队详细游说开战 2 月 11 日，内塔尼亚胡在战情室 —— 这一场所极少用于与外国领导人的面对面会谈 —— 与特朗普相对而坐，向总统及其高级助手做了长达一小时的陈述。
+该行将目标价由46.3港元上调至67.4港元，维持“跑赢大市”评级。
 
-他主张，伊朗政权更迭的时机已成熟，美以联合行动可推翻伊斯兰共和国。
+报告提及，壁仞科技的首代产品BR10X已在政府主导的场景中实现规模部署，而下一代BR20X系列预计于2026年第三季完成流片（tape-out），目标客户为一线超大规模数据中心营运商（hyperscalers），将具备更高的计算密度、更大的内存容量与带宽及互联能力。
 
-期间，他还播放了一段视频，剪辑了若神权政府倒台后可能领导伊朗的人物，其中包括伊朗末代沙阿流亡在外的儿子礼萨・巴列维。
+公司长远目标是在中国AI芯片市场夺取10%的市场份额。
 
-这位以色列领导人及其顾问描绘了他们口中近乎必胜的局面：伊朗导弹计划数周内被摧毁、霍尔木兹海峡保持畅通、针对美国利益的报复行动微乎其微。
-
-以色列情报机构摩萨德可协助在伊朗境内煽动起义，以完成最终目标。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 02:54 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 02:40 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 02:32 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 02:33 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 02:31 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 02:48 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 02:39 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 02:48 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 02:37 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 02:44 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 02:33 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 02:36 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 02:37 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 02:43 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 02:51 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 02:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 02:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 03:01 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 02:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 02:56 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 02:42 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 03:06 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 02:42 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:49 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/991042389.shtml)
-- 2026-06-30 02:31 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/58200700.shtml)
-- 2026-06-30 02:59 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/195070069706.shtml)
-- 2026-06-30 02:34 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/38064780630.shtml)
-- 2026-06-30 02:48 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/05583932.shtml)
-- 2026-06-30 02:47 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/5003270497.shtml)
-- 2026-06-30 02:30 - [一见倾心](http://www.share.minike.top/Article/details/67045.shtml)
-- 2026-06-30 02:49 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/3330509.shtml)
-- 2026-06-30 02:43 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/558894810.shtml)
-- 2026-06-30 02:36 - [起风了](http://www.share.minike.top/Article/details/757379525610.shtml)
-- 2026-06-30 02:54 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/741444058.shtml)
-- 2026-06-30 02:37 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/438903.shtml)
-- 2026-06-30 02:30 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/74687.shtml)
-- 2026-06-30 02:46 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/5623377.shtml)
-- 2026-06-30 02:40 - [千与千寻](https://www.share.minike.top/Article/details/525164690985.shtml)
+- 2026-06-30 02:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/728405638931.shtml)
+- 2026-06-30 02:52 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/93040564878.shtml)
+- 2026-06-30 02:45 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/16875218.shtml)
+- 2026-06-30 02:52 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/28566264489.shtml)
+- 2026-06-30 02:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/919040845.shtml)
+- 2026-06-30 02:52 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/381407492770.shtml)
+- 2026-06-30 02:50 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/39016445.shtml)
+- 2026-06-30 02:57 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/95711078948.shtml)
+- 2026-06-30 03:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/94791354870.shtml)
+- 2026-06-30 02:50 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/397820.shtml)
+- 2026-06-30 03:03 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/808316032556.shtml)
+- 2026-06-30 02:49 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/511060612.shtml)
+- 2026-06-30 02:39 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/57633207.shtml)
+- 2026-06-30 02:56 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/56624754700.shtml)
+- 2026-06-30 02:49 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/780268115014.shtml)

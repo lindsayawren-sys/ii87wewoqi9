@@ -1,61 +1,56 @@
-# 贩黄、售假、涉“枪”——部分直播间销售违禁品乱象调查
+# 印度证交所CEO：国内投资者拯救市场免于“直线坠落”
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-近年来，直播经济深度嵌入百姓生活，成为一种不可或缺的消费模式。但新华每日电讯记者调查发现，有不法分子通过直播方式售卖涉黄优盘、烟花爆竹、香烟假酒、可致人伤残的“玩具枪”等违法物品。他们通过暗语引流、“游击战术”等方式，想方设法规避监管和违法风险。受访业内人士和专家学者认为，直播间不是法外之地，“野蛮生长”乱象亟待系统治理。“玩具枪”直接“爆瓶”，高仿名酒公开卖 “兄弟们，不考虑
+孟买证券交易所董事总经理兼首席执行官桑达拉拉曼·拉马穆蒂周二表示：“印度正在增长，还有大量人口尚未进入资本市场。”他补充称，过去一年已有3500万印度投资者通过BSE注册。 这位首席执行官表示，外国参与者在印度股市的持股比例曾高于国内机构，但“如今情况已经逆转”。他称，去年印度国内机构投资者在股市净投入910亿美元，而外国投资者净撤出350亿美元。 拉马穆蒂在新加坡举行的Mot
 
 ## 正文
 
-近年来，直播经济深度嵌入百姓生活，成为一种不可或缺的消费模式。
+孟买证券交易所董事总经理兼首席执行官桑达拉拉曼·拉马穆蒂周二表示：“印度正在增长，还有大量人口尚未进入资本市场。
 
-但新华每日电讯记者调查发现，有不法分子通过直播方式售卖涉黄优盘、烟花爆竹、香烟假酒、可致人伤残的“玩具枪”等违法物品。
+”他补充称，过去一年已有3500万印度投资者通过BSE注册。
 
-他们通过暗语引流、“游击战术”等方式，想方设法规避监管和违法风险。
+这位首席执行官表示，外国参与者在印度股市的持股比例曾高于国内机构，但“如今情况已经逆转”。
 
-受访业内人士和专家学者认为，直播间不是法外之地，“野蛮生长”乱象亟待系统治理。
+他称，去年印度国内机构投资者在股市净投入910亿美元，而外国投资者净撤出350亿美元。
 
-“玩具枪”直接“爆瓶”，高仿名酒公开卖 “兄弟们，不考虑天气等因素，(弹道)基本上没有偏，直直地A到B点。
+拉马穆蒂在新加坡举行的Motilal Oswal印度企业日期间表示：“这不仅抵消了（外资）流出，还在很大程度上稳定了Sensex指数，使其免于直线坠落。
 
-有兄弟问有没有力气更大的？
+” 由于盈利疲软以及中东冲突导致全球油价上涨对经济造成的不利影响不断加剧，外国投资者对印度市场仍持看空态度。
 
-这个速度，这个开头。
+尽管印度是全球信息技术领导者，但该国缺乏大型人工智能生态系统公司，这进一步打压了外国投资者的情绪。
 
-”在一个直播间里，主播设置全员禁言后，用暗语精心描述他的商品。
+汇丰研究在周二的一份报告中指出，印度没有清晰的“人工智能驱动叙事”，其市场以美元计算已下跌约10%。
 
 ## 相关推荐
 
-- 2026-06-30 02:37 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 02:53 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 02:57 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 02:48 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 02:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 02:44 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 02:46 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 02:55 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 02:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 02:48 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 02:30 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 02:40 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 02:38 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 02:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 02:47 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 02:49 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 02:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 02:44 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 03:03 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 02:36 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 02:52 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 02:41 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 03:03 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 03:04 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 02:44 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:59 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/19914.shtml)
-- 2026-06-30 02:54 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/0490502.shtml)
-- 2026-06-30 02:59 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/72141252.shtml)
-- 2026-06-30 02:32 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/83330.shtml)
-- 2026-06-30 02:58 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/13617.shtml)
-- 2026-06-30 02:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/9378047580.shtml)
-- 2026-06-30 02:52 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/355211839652.shtml)
-- 2026-06-30 02:41 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/544688216784.shtml)
-- 2026-06-30 02:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/00402459.shtml)
-- 2026-06-30 02:55 - [绘画区你赢了](https://www.share.minike.top/Article/details/412009094416.shtml)
-- 2026-06-30 02:49 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/04709712917.shtml)
-- 2026-06-30 02:50 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/49527009689.shtml)
-- 2026-06-30 02:45 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/20148.shtml)
-- 2026-06-30 02:41 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/96089.shtml)
-- 2026-06-30 02:39 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/23378764549.shtml)
+- 2026-06-30 02:37 - [点菜也要教吗](http://www.blog.minike.top/Article/details/064016.shtml)
+- 2026-06-30 02:41 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/0593751810.shtml)
+- 2026-06-30 02:45 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/985065.shtml)
+- 2026-06-30 02:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/13420574882.shtml)
+- 2026-06-30 03:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/38609086.shtml)
+- 2026-06-30 02:42 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/78394.shtml)
+- 2026-06-30 03:02 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/36112.shtml)
+- 2026-06-30 02:47 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/0284460994.shtml)
+- 2026-06-30 02:43 - [刘念回应](https://www.share.kurohicncr.top/Article/details/5166188.shtml)
+- 2026-06-30 03:01 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/4144669.shtml)
+- 2026-06-30 02:49 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/2488372.shtml)
+- 2026-06-30 02:37 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/57944.shtml)
+- 2026-06-30 02:41 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/154074970.shtml)
+- 2026-06-30 03:01 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/2759963475.shtml)
+- 2026-06-30 02:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/3724496995.shtml)

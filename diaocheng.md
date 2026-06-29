@@ -1,56 +1,52 @@
-# 4月1日热门中概股多数上涨 小马智行涨10.54%，中国新城农村跌4.96%
+# 苏州银行董事长崔庆军：连续6年现金分红比例超过30%，现金分红水平在上市银行同业中持续保持高位
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-4月1日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收高2.8%。 上涨股当中（按市值从高到低），台积电涨6.78%，阿里巴巴涨2.88%，拼多多涨3.82%，网易涨1.74%，日月光半导体涨3.83%，京东涨2.18%，百度涨4.52%，中华电信涨0.57%，携程涨1.26%，联电涨4.30%，中通涨3.41%，富途控股涨4.10%，理想汽车涨1.60%，小鹏汽车涨2.
+5月20日金融一线消息，苏州银行日前召开2025年度业绩网上说明会。党委书记、董事长崔庆军表示，苏州银行始终高度重视股东合理投资回报，践行《未来三年（2025年-2027年）股东回报规划》，“本行现金股利政策目标为每年以现金方式分配的利润不应低于当年实现的可分配利润的30%”，连续6年现金分红比例超过30%，现金分红水平在上市银行同业中持续保持高位，整体保持稳定，兼顾了股东利益
 
 ## 正文
 
-4月1日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收高2.8%。
+5月20日金融一线消息，苏州银行日前召开2025年度业绩网上说明会。
 
-上涨股当中（按市值从高到低），台积电涨6.78%，阿里巴巴涨2.88%，拼多多涨3.82%，网易涨1.74%，日月光半导体涨3.83%，京东涨2.18%，百度涨4.52%，中华电信涨0.57%，携程涨1.26%，联电涨4.30%，中通涨3.41%，富途控股涨4.10%，理想汽车涨1.60%，小鹏汽车涨2.45%，华住酒店集团涨2.91%，蔚来涨9.26%，哔哩哔哩涨4.01%，新东方涨3.62%，满帮涨2.41%，万国数据涨2.60%，BOSS直聘涨0.37%，WSP控股涨1.48%，亚朵集团涨4.75%，名创优品涨5.70%，小马智行涨10.54%，慧荣科技涨6.49%，欢聚涨3.40%，禾赛科技涨7.84%，雾芯科技涨2.57%。
+党委书记、董事长崔庆军表示，苏州银行始终高度重视股东合理投资回报，践行《未来三年（2025年-2027年）股东回报规划》，“本行现金股利政策目标为每年以现金方式分配的利润不应低于当年实现的可分配利润的30%”，连续6年现金分红比例超过30%，现金分红水平在上市银行同业中持续保持高位，整体保持稳定，兼顾了股东利益与内源性资本需求。
 
-下跌股当中（按市值从高到低），贝壳跌0.27%，腾讯音乐跌0.32%，中国新城农村跌4.96%，唯品会跌1.69%，拓臻生物跌0.30%，金山云跌0.60%。
+崔庆军表示，未来，我行经营发展长期稳定向好的趋势不会变，也将继续实施稳健、可持续的利润分配方案，与投资者共享苏行发展红利。
 
-美股周二收高，道指上涨逾1100点。
-
-但在一季度，美股三大股指均录得跌幅。
-
-据称美伊两国总统均对结束战争持开放态度，令投资者看到美以对伊战争结束的可能性。
-
-道指涨1125.19点，涨幅为2.49%，报46341.33点；纳指涨795.99点，涨幅为3.83%，报21590.63点；标普500指数涨184.80点，涨幅为2.91%，报6528.52点。
-
-在刚刚过去的第一季度，美股三大股指均录得跌幅。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 02:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 02:49 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 02:57 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 02:46 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 02:53 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 02:37 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 02:48 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 02:34 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 02:47 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 02:44 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 02:39 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 02:50 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 02:50 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 02:36 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 02:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 02:53 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 02:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 03:04 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 02:47 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 02:41 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 02:38 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 02:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 02:55 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 02:54 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:58 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/8338646.shtml)
-- 2026-06-30 02:54 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/12586127.shtml)
-- 2026-06-30 02:57 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/587027591561.shtml)
-- 2026-06-30 02:51 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/31097919999.shtml)
-- 2026-06-30 02:53 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/1416319.shtml)
-- 2026-06-30 02:38 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/509698.shtml)
-- 2026-06-30 02:33 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/76304854303.shtml)
-- 2026-06-30 02:46 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/42519196.shtml)
-- 2026-06-30 02:34 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/073158.shtml)
-- 2026-06-30 02:58 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/2991311495.shtml)
-- 2026-06-30 02:58 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/644464.shtml)
-- 2026-06-30 02:40 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/913427433544.shtml)
-- 2026-06-30 02:41 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/5156322111.shtml)
-- 2026-06-30 02:44 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/4702888.shtml)
-- 2026-06-30 02:31 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/745075534823.shtml)
+- 2026-06-30 02:58 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/159879503.shtml)
+- 2026-06-30 02:38 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/41508.shtml)
+- 2026-06-30 02:38 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/2324341945.shtml)
+- 2026-06-30 02:51 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/96100536.shtml)
+- 2026-06-30 02:50 - [一生一世](http://www.blog.kurohicncr.top/Article/details/261000188554.shtml)
+- 2026-06-30 02:55 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/91259.shtml)
+- 2026-06-30 02:53 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/2142812.shtml)
+- 2026-06-30 02:56 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/89567239650.shtml)
+- 2026-06-30 03:03 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/240914.shtml)
+- 2026-06-30 03:02 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/6311343727.shtml)
+- 2026-06-30 03:01 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/37619.shtml)
+- 2026-06-30 02:36 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/50853165.shtml)
+- 2026-06-30 02:55 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/33157983407.shtml)
+- 2026-06-30 02:53 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/7860670.shtml)
+- 2026-06-30 02:42 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/86793030892.shtml)

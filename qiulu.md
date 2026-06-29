@@ -1,52 +1,61 @@
-# 伊朗总统称：停火协议采纳了伊朗的“基本原则”
+# 止泻药黄连素岂能当减肥药？医生提醒勿信营销号
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-伊朗总统马苏德・佩泽希基扬表示，与美国达成的停火协议采纳了伊朗所 “期望” 的各项基本原则。 他补充称，此次停火得益于前最高领袖阿里・哈梅内伊的牺牲 —— 哈梅内伊在战争首日美以联合打击中身亡 —— 以及伊朗人民的顽强抵抗。 他在 X 平台（原推特）上写道：“从今天起，我们将继续团结一致，无论在外交、国防、街头民生还是公共服务领域。”责任编辑：郭明煜
+止泻药黄连素岂能当减肥药 钟艳宇 最近，一款仅需几块钱的普通止泻药——盐酸小檗碱(俗称黄连素)，在海外社交平台摇身一变，成了“天然减肥神药”，甚至被称为“植物版司美格鲁肽”。不少爱美人士跟风购买，把它当作减肥药服用。对此，北京大学人民医院内分泌科副主任医师刘蔚、药学部主管药师陈月提醒：盐酸小檗碱是止泻药，不是减肥药，其人体减重效果微乎其微，长期乱吃会伤身。 止泻药不是“植物版司
 
 ## 正文
 
-伊朗总统马苏德・佩泽希基扬表示，与美国达成的停火协议采纳了伊朗所 “期望” 的各项基本原则。
+止泻药黄连素岂能当减肥药 钟艳宇 最近，一款仅需几块钱的普通止泻药——盐酸小檗碱(俗称黄连素)，在海外社交平台摇身一变，成了“天然减肥神药”，甚至被称为“植物版司美格鲁肽”。
 
-他补充称，此次停火得益于前最高领袖阿里・哈梅内伊的牺牲 —— 哈梅内伊在战争首日美以联合打击中身亡 —— 以及伊朗人民的顽强抵抗。
+不少爱美人士跟风购买，把它当作减肥药服用。
 
-他在 X 平台（原推特）上写道：“从今天起，我们将继续团结一致，无论在外交、国防、街头民生还是公共服务领域。
+对此，北京大学人民医院内分泌科副主任医师刘蔚、药学部主管药师陈月提醒：盐酸小檗碱是止泻药，不是减肥药，其人体减重效果微乎其微，长期乱吃会伤身。
 
-”责任编辑：郭明煜
+止泻药不是“植物版司美格鲁肽”小檗碱是从黄连、黄柏、三颗针等中药中提取的生物碱，目前也可人工合成。
+
+盐酸小檗碱为临床应用数十年的肠道抗感染常用药，获批适应症为肠道感染(如胃肠炎)，主要发挥止泻、抗感染作用。
+
+因为价格便宜(几元到十几元一瓶)，它一直是许多家庭的常备药。
+
+之所以盐酸小檗碱被误传能减肥，是因为一些基础研究发现它具有某些代谢调节作用。
+
+比如，它可激活代谢开关，提高胰岛素敏感性，减少糖分转化为脂肪；抑制脂肪生成与堆积，减少肝脏脂肪合成，轻度促进脂肪分解；对部分肠道菌群有调节作用，被认为可减少“致胖菌”，降低能量过度吸收；具有轻度抗炎作用，可辅助改善代谢紊乱。
 
 ## 相关推荐
 
-- 2026-06-30 02:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 02:36 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 02:35 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 02:55 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 02:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-30 02:52 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 02:55 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-30 02:41 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 02:55 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 02:33 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 02:47 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 02:56 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 02:56 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-30 02:51 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 03:03 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 02:54 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 02:39 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 03:03 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 03:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 03:00 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 02:50 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 03:04 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 02:56 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 02:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-30 02:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 03:05 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 02:59 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 03:05 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 02:45 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:55 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/42610759.shtml)
-- 2026-06-30 02:35 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/35961210.shtml)
-- 2026-06-30 02:50 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/06838713.shtml)
-- 2026-06-30 02:48 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/936630740056.shtml)
-- 2026-06-30 02:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/030742509532.shtml)
-- 2026-06-30 02:45 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/48124.shtml)
-- 2026-06-30 02:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/67106621278.shtml)
-- 2026-06-30 02:40 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/57410626035.shtml)
-- 2026-06-30 02:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/983379.shtml)
-- 2026-06-30 02:48 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/731274349853.shtml)
-- 2026-06-30 02:45 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/967537409075.shtml)
-- 2026-06-30 02:32 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/0330399171.shtml)
-- 2026-06-30 02:48 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/8216333.shtml)
-- 2026-06-30 02:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/91199291410.shtml)
-- 2026-06-30 02:51 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/370343.shtml)
+- 2026-06-30 02:36 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/1808391200.shtml)
+- 2026-06-30 02:48 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/2598936.shtml)
+- 2026-06-30 03:04 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/6171135663.shtml)
+- 2026-06-30 02:41 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/141589187082.shtml)
+- 2026-06-30 02:55 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/6294623.shtml)
+- 2026-06-30 03:03 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/946520896269.shtml)
+- 2026-06-30 02:42 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/53395.shtml)
+- 2026-06-30 02:38 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/064016813.shtml)
+- 2026-06-30 03:05 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/44112510714.shtml)
+- 2026-06-30 02:45 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/29688767914.shtml)
+- 2026-06-30 02:46 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/0407507792.shtml)
+- 2026-06-30 02:58 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/645308151.shtml)
+- 2026-06-30 02:51 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/712797780722.shtml)
+- 2026-06-30 03:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/51888202.shtml)
+- 2026-06-30 02:36 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/151466578.shtml)

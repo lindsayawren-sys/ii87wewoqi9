@@ -1,61 +1,56 @@
-# 85岁“紫檀女王”陈丽华逝世：坐拥56亿美元身家，每天只花10块钱
+# 茅台晚间开卖继续秒空！吃喝板块逆市上扬，华宝基金食品饮料ETF(515710)红盘震荡！机构：白酒底部信号明确
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-中新经纬4月7日电 (薛宇飞 谢婧雯)富华国际集团官网7日发布讣告，85岁的陈丽华于2026年4月5日在北京逝世。 陈丽华的讣告中，她有两个头衔，一个是富华国际集团荣誉主席，另一个是中国紫檀博物馆馆长，这就是这位女性企业家一生足迹的注脚：在商业界拼杀向前，在文化界匠心传承。 “生活费一天10块钱” 陈丽华资料图 来源：中新网 陈丽华的人生，是一个从“北京大妞”到“香港富豪”的蜕
+吃喝板块今日（5月20日）再度逆市上攻。反映吃喝板块整体走势的食品饮料ETF华宝（515710）开盘短暂下探后迅速拉升翻红，截至发稿，场内价格涨0.38%。 成份股方面，截至发稿，养元饮品飙涨超7%，百润股份大涨超6%，金徽酒、燕京啤酒、泸州老窖、东鹏饮料等亦涨幅居前。 消息面上，5月19日，贵州茅台自营平台i茅台迎来上线四年来首次晚间开售，开售时间由原9：00调整为20：00
 
 ## 正文
 
-中新经纬4月7日电 (薛宇飞 谢婧雯)富华国际集团官网7日发布讣告，85岁的陈丽华于2026年4月5日在北京逝世。
+吃喝板块今日（5月20日）再度逆市上攻。
 
-陈丽华的讣告中，她有两个头衔，一个是富华国际集团荣誉主席，另一个是中国紫檀博物馆馆长，这就是这位女性企业家一生足迹的注脚：在商业界拼杀向前，在文化界匠心传承。
+反映吃喝板块整体走势的食品饮料ETF华宝（515710）开盘短暂下探后迅速拉升翻红，截至发稿，场内价格涨0.38%。
 
-“生活费一天10块钱” 陈丽华资料图 来源：中新网 陈丽华的人生，是一个从“北京大妞”到“香港富豪”的蜕变故事。
+成份股方面，截至发稿，养元饮品飙涨超7%，百润股份大涨超6%，金徽酒、燕京啤酒、泸州老窖、东鹏饮料等亦涨幅居前。
 
-由于出身满族世家，她自小与祖传的家具为伴，练就了一双鉴别红木的“火眼金睛”。
+消息面上，5月19日，贵州茅台自营平台i茅台迎来上线四年来首次晚间开售，开售时间由原9：00调整为20：00。
 
-上世纪80年代初，陈丽华在北京的一家家具厂里，发现了一批无人问津的明清紫檀、黄花梨古家具。
+线下专卖店及自营店营业时间同步由9：00-18：00调整为10：00-20：00，延长1小时。
 
-她买下“无主”之木，带着它们去了香港。
+据悉，调整首日晚间开抢热度爆棚，1小时售卖窗口期内平台多次补货，持续呈现“秒空—补货”循环，20：50左右全线售罄。
 
-这批家具在市场上大受欢迎，为她换来了创业的第一桶金。
+据此前贵州茅台方面介绍，此次调整旨在贴合消费者作息，实现线上线下时间衔接。
 
-之后，她在香港房地产市场开启“扫货”模式，比如在香港比华利山楼盘购置了12栋别墅，低价买进高价出手。
+从估值方面来看，吃喝板块当前仍处估值低位。
 
 ## 相关推荐
 
-- 2026-06-30 02:31 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 02:51 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 02:59 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 02:56 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 02:57 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 02:37 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 02:30 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 02:32 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 02:52 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 02:58 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 02:51 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 02:30 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 02:46 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 02:53 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 02:33 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 02:41 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 03:01 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 02:43 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 02:43 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 03:01 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 02:47 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 02:37 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 02:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 02:36 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 02:58 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:58 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/766197996809.shtml)
-- 2026-06-30 02:39 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/223153189.shtml)
-- 2026-06-30 02:44 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/80806.shtml)
-- 2026-06-30 02:33 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/7238647.shtml)
-- 2026-06-30 02:32 - [逃狱兄弟](https://www.share.minike.top/Article/details/226751801087.shtml)
-- 2026-06-30 02:46 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/574954898.shtml)
-- 2026-06-30 02:36 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/83979739009.shtml)
-- 2026-06-30 02:34 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/678015938.shtml)
-- 2026-06-30 02:56 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/79571125298.shtml)
-- 2026-06-30 02:39 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/89060470.shtml)
-- 2026-06-30 02:48 - [千与千寻](https://www.share.kurohicncr.top/Article/details/95939298603.shtml)
-- 2026-06-30 02:41 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/102405748202.shtml)
-- 2026-06-30 02:51 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/52389.shtml)
-- 2026-06-30 02:39 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/124088.shtml)
-- 2026-06-30 02:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/54945.shtml)
+- 2026-06-30 02:56 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/07966665.shtml)
+- 2026-06-30 02:49 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/86169928.shtml)
+- 2026-06-30 02:51 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/66375.shtml)
+- 2026-06-30 02:37 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/07069506999.shtml)
+- 2026-06-30 03:04 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/5756872229.shtml)
+- 2026-06-30 02:51 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/326016038.shtml)
+- 2026-06-30 03:01 - [逃狱兄弟](https://www.blog.minike.top/Article/details/1022691.shtml)
+- 2026-06-30 03:00 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/532367795103.shtml)
+- 2026-06-30 02:57 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/50678.shtml)
+- 2026-06-30 02:44 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/705526.shtml)
+- 2026-06-30 02:43 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/52384.shtml)
+- 2026-06-30 02:36 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/2354910.shtml)
+- 2026-06-30 02:54 - [急先锋](http://www.blog.kurohicncr.top/Article/details/65342468252.shtml)
+- 2026-06-30 03:04 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/305924238093.shtml)
+- 2026-06-30 02:54 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/42570619539.shtml)

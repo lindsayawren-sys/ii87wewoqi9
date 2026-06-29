@@ -1,50 +1,56 @@
-# WTI原油大幅回落 伊朗总统愿意在满足条件的情况下结束战争
+# 江西萍乡赴大湾区推介增材制造产业 共谋行业发展
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-美国原油价格迅速下跌，市场对伊朗战争即将结束的猜测升温。 西德克萨斯州中质油（WTI）期货下跌约1%，交易价格略低于每桶102美元。 此前，伊朗国家通讯社IRNA报道称，伊朗总统表示愿意结束战争，并重申了伊朗关于停火的要求。责任编辑：李桐
+中新网深圳5月19日电 (记者 吴鹏泉)作为2026年江西—粤港澳大湾区经贸活动周专题活动之一，萍乡市未来产业(增材制造)推介会暨产业应用交流会19日下午在广东深圳举行。来自增材制造领域的业界翘楚、行业精英相聚一堂，共话产业新机遇，共绘发展新蓝图。 广东省增材制造协会会长、华南理工大学教授杨永强表示，增材制造作为技术引导型产业，融合新材料、自动化、激光、软件、人工智能等前沿技术
 
 ## 正文
 
-美国原油价格迅速下跌，市场对伊朗战争即将结束的猜测升温。
+中新网深圳5月19日电 (记者 吴鹏泉)作为2026年江西—粤港澳大湾区经贸活动周专题活动之一，萍乡市未来产业(增材制造)推介会暨产业应用交流会19日下午在广东深圳举行。
 
-西德克萨斯州中质油（WTI）期货下跌约1%，交易价格略低于每桶102美元。
+来自增材制造领域的业界翘楚、行业精英相聚一堂，共话产业新机遇，共绘发展新蓝图。
 
-此前，伊朗国家通讯社IRNA报道称，伊朗总统表示愿意结束战争，并重申了伊朗关于停火的要求。
+广东省增材制造协会会长、华南理工大学教授杨永强表示，增材制造作为技术引导型产业，融合新材料、自动化、激光、软件、人工智能等前沿技术，市场规模近年迎来高速增长，未来将在金融投资、新产品开发、规模化应用等方面迎来更大突破，为企业、科研与应用单位带来重要发展机遇。
 
-责任编辑：李桐
+江西省商务厅二级巡视员陈志民表示，增材制造作为高端智造与新材料应用的核心领域，与江西未来产业布局高度契合，是该省盘活资源优势、激活科创动能、推动产业提质增效的关键抓手，正迎来前所未有的发展窗口期，发展前景广阔可期。
+
+在江西未来产业发展的浪潮中，萍乡市凭借深厚的百年工业底蕴，表现亮眼。
+
+该市将增材制造产业作为重点培育的核心赛道，持续深耕布局，成为江西增材制造产业发展的重要增长极。
+
+“当前的萍乡，正向更新赛道进军、向更高价值攀登。
+
+”萍乡市委书记余正琨表示，该市将增材制造产业作为四大未来产业之首重点培育，在“建园促链”、技术研发、场景应用等方面给予一系列政策支持。
 
 ## 相关推荐
 
-- 2026-06-30 02:30 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 02:43 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 02:38 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 02:59 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 02:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 02:35 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 02:46 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 02:55 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 02:30 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 02:39 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 02:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 02:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 03:04 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 02:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 02:38 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 02:51 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 02:41 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 02:36 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 02:52 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 02:44 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 02:57 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 02:52 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:46 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/516274050.shtml)
-- 2026-06-30 02:53 - [周生如故](https://www.blog.kurohicncr.top/Article/details/463983081002.shtml)
-- 2026-06-30 02:30 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/46095349.shtml)
-- 2026-06-30 02:34 - [日本领先巴西](http://www.blog.minike.top/Article/details/62770.shtml)
-- 2026-06-30 02:38 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/9445910137.shtml)
-- 2026-06-30 02:42 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/58493567652.shtml)
-- 2026-06-30 02:38 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/72698434763.shtml)
-- 2026-06-30 02:45 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/3195656130.shtml)
-- 2026-06-30 02:56 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/1335408.shtml)
-- 2026-06-30 02:43 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/505733028454.shtml)
-- 2026-06-30 02:47 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/1402260217.shtml)
-- 2026-06-30 02:44 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/033988647810.shtml)
-- 2026-06-30 02:48 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/417573.shtml)
-- 2026-06-30 02:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/90499148844.shtml)
-- 2026-06-30 02:37 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/93787779688.shtml)
+- 2026-06-30 02:47 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/103241757.shtml)
+- 2026-06-30 02:52 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/96415245191.shtml)
+- 2026-06-30 03:04 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/1825188090.shtml)
+- 2026-06-30 02:59 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/86728.shtml)
+- 2026-06-30 02:49 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/150767.shtml)
+- 2026-06-30 02:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/8460131964.shtml)
+- 2026-06-30 02:40 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/703148.shtml)
+- 2026-06-30 02:42 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/519492.shtml)
+- 2026-06-30 02:48 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/089566110.shtml)
+- 2026-06-30 02:49 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/229218.shtml)
+- 2026-06-30 03:01 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/727077325.shtml)
+- 2026-06-30 02:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/625177634576.shtml)
+- 2026-06-30 02:38 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/751485034.shtml)
+- 2026-06-30 03:00 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/486278.shtml)
+- 2026-06-30 02:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/35560825.shtml)

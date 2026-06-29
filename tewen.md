@@ -1,58 +1,47 @@
-# 武汉全民读书月活动启幕 以科技赋能书香城市
+# 给阿嬷的情书总制片人感谢各方支持
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-中新网武汉4月8日电 (李晓艺 王梦媛)2026年“书香武汉·全民读书月”集中发布活动8日在湖北省科学技术馆举办，标志着这场贯穿全年、覆盖全域、全民参与的年度阅读盛典拉开帷幕。 本次活动以“书香武汉，智创未来——科技让生活更美好”为主题，由中共武汉市委宣传部主办、武汉出版集团有限公司承办。活动当天，“书香武汉”科创感知地图与“书香作伴·你我同行”全民阅读主题研学路线正式公布，让
+中新网5月19日电 近期，电影《给阿嬷的情书》口碑爆棚，成为2026年现象级黑马。2026年中国网络文明大会网络文明国际交流互鉴分论坛上，《给阿嬷的情书》总制片人罗展宏现场分享了影片创作的故事，并感谢各方，希望大家继续支持影片。
 
 ## 正文
 
-中新网武汉4月8日电 (李晓艺 王梦媛)2026年“书香武汉·全民读书月”集中发布活动8日在湖北省科学技术馆举办，标志着这场贯穿全年、覆盖全域、全民参与的年度阅读盛典拉开帷幕。
+中新网5月19日电 近期，电影《给阿嬷的情书》口碑爆棚，成为2026年现象级黑马。
 
-本次活动以“书香武汉，智创未来——科技让生活更美好”为主题，由中共武汉市委宣传部主办、武汉出版集团有限公司承办。
-
-活动当天，“书香武汉”科创感知地图与“书香作伴·你我同行”全民阅读主题研学路线正式公布，让整座城市成为可实地品读的“移动书香空间”。
-
-据介绍，“书香武汉”科创感知地图共标注27个特色点位，涵盖“五谷”展示场馆、重要科普场馆、重点科学设施、新兴产业展示场馆及重点科技企业五大类别，系统整合武汉在人工智能、激光、量子、低空经济等领域的优质科普资源，实现科普场景与阅读体验有机衔接。
-
-同步推出的“书香作伴·你我同行”全民阅读主题研学路线，以“阅读+实地+体验”为核心，面向全年龄段尤其是青少年，设计了五大主题共12条具体线路。
-
-每条线路均明确主题方向、串联特色点位、设置互动体验环节，并配套推荐阅读书目，让阅读从书本延伸至城市空间。
-
-著名作家祝勇近年来多次应邀参与武汉读书月、书展等文化活动。
-
-“武汉是一座文化底蕴深厚、全民阅读推广扎实深入、富有创新活力的城市，阅读氛围浓厚、覆盖面广，科技与人文交融共生。
+2026年中国网络文明大会网络文明国际交流互鉴分论坛上，《给阿嬷的情书》总制片人罗展宏现场分享了影片创作的故事，并感谢各方，希望大家继续支持影片。
 
 ## 相关推荐
 
-- 2026-06-30 02:59 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 02:40 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 02:41 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 02:30 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 02:33 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 02:37 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 02:52 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 02:37 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 02:32 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 02:59 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 02:34 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 02:34 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 03:01 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 03:03 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 02:41 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 02:50 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 02:53 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 02:39 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 02:59 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 03:01 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 02:50 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 03:01 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 02:50 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 02:36 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 03:05 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:49 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/70876.shtml)
-- 2026-06-30 02:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/317797857235.shtml)
-- 2026-06-30 02:30 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/417529399717.shtml)
-- 2026-06-30 02:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/149322.shtml)
-- 2026-06-30 02:56 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/957923001669.shtml)
-- 2026-06-30 02:35 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/7920144.shtml)
-- 2026-06-30 02:47 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/26683125.shtml)
-- 2026-06-30 02:32 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/452380.shtml)
-- 2026-06-30 02:44 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/411296195.shtml)
-- 2026-06-30 02:56 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/9743240702.shtml)
-- 2026-06-30 02:35 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/384237.shtml)
-- 2026-06-30 02:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/75837574933.shtml)
-- 2026-06-30 02:47 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/3408434626.shtml)
-- 2026-06-30 02:44 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/291418.shtml)
-- 2026-06-30 02:34 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/6392064582.shtml)
+- 2026-06-30 02:57 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/602847820846.shtml)
+- 2026-06-30 02:59 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/81995895826.shtml)
+- 2026-06-30 02:59 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/688064.shtml)
+- 2026-06-30 02:59 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/97641570.shtml)
+- 2026-06-30 02:38 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/2069654.shtml)
+- 2026-06-30 02:49 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/52868785.shtml)
+- 2026-06-30 02:59 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/63433982718.shtml)
+- 2026-06-30 02:47 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/78581422.shtml)
+- 2026-06-30 02:45 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/107330127.shtml)
+- 2026-06-30 02:56 - [刘念回应](https://www.share.minike.top/Article/details/73399488.shtml)
+- 2026-06-30 02:42 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/810035315241.shtml)
+- 2026-06-30 02:43 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/706562578580.shtml)
+- 2026-06-30 02:53 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/3928454.shtml)
+- 2026-06-30 02:59 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/74724500498.shtml)
+- 2026-06-30 03:03 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/24487.shtml)

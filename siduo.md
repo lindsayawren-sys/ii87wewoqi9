@@ -1,59 +1,56 @@
-# 大摩：降新城发展目标价至2.88港元 评级为“增持”
+# 200万亿AUM，水分几何？
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-摩根士丹利发布研报称，对新城发展（01030）目标价由3.17港元下调至2.88港元，基于维持40%的资产净值（NAV）折让不变。该行认为，营运正恢复正常，投资物业价值有望释放，而住宅业务的拖累正在减少，中期而言有望恢复派息，予“增持”评级。 更新新城发展的风险回报分析。该行纳入2025年业绩及引入2028年预测，下调新城发展2026年核心每股盈利预测9%及2027年预测3%，
+来源：新金融琅琊榜 作者：董云峰 编辑：叶冬 长期以来，发力财富管理、做大中间业务收入，是中国银行业的主流叙事。 随着近年来信贷息差大幅收窄，零售信贷坏账压力居高不下，财富管理业务的重要性进一步凸显。各家银行纷纷加大投入，将AUM规模作为核心考核指标。 从2015年到2025年，15家全国性上市银行（国有大行+股份行）零售AUM合计从约52万亿元增长至158万亿元以上。保守估算
 
 ## 正文
 
-摩根士丹利发布研报称，对新城发展（01030）目标价由3.17港元下调至2.88港元，基于维持40%的资产净值（NAV）折让不变。
+来源：新金融琅琊榜 作者：董云峰 编辑：叶冬 长期以来，发力财富管理、做大中间业务收入，是中国银行业的主流叙事。
 
-该行认为，营运正恢复正常，投资物业价值有望释放，而住宅业务的拖累正在减少，中期而言有望恢复派息，予“增持”评级。
+随着近年来信贷息差大幅收窄，零售信贷坏账压力居高不下，财富管理业务的重要性进一步凸显。
 
-更新新城发展的风险回报分析。
+各家银行纷纷加大投入，将AUM规模作为核心考核指标。
 
-该行纳入2025年业绩及引入2028年预测，下调新城发展2026年核心每股盈利预测9%及2027年预测3%，以反映：一）更新后的开发物业入账及完工时间表；二）物业销售疲弱；三）较佳的开发物业毛利率。
+从2015年到2025年，15家全国性上市银行（国有大行+股份行）零售AUM合计从约52万亿元增长至158万亿元以上。
 
-该行表示，考虑到重资产模式下新开业商场数量减少，下调中期商场租金增长预测，由原来的7%至8%年复合增长率降至5%至6%。
+保守估算，全行业的AUM规模在200万亿元以上。
 
-但因融资成本下降及流动性显著改善，将加权平均资本成本由10.4%下调至9%。
+然而，光鲜亮丽的AUM数字背后隐藏着大量“水分”。
 
-责任编辑：史丽君
+不同类型银行AUM结构差异显著，规模数字与真实财富管理服务能力的匹配度存在分化，业务质量有待进一步提升。
+
+早在2023年发表的《非存款AUM：零售转型试金石》一文中，新金融琅琊榜写道： 站在非存款AUM的视角，零售金融呈现出另一番格局。
 
 ## 相关推荐
 
-- 2026-06-30 02:35 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-30 02:39 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 02:49 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-30 02:35 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 02:37 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-30 02:33 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 02:55 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 02:55 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-30 02:56 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 02:53 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 02:46 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 02:30 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 02:43 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-30 02:44 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 02:39 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 02:58 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 02:51 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 03:04 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 02:41 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 02:44 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 02:37 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 02:44 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 02:47 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 03:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 02:58 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:32 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/1295674.shtml)
-- 2026-06-30 02:30 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/088814274.shtml)
-- 2026-06-30 02:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/479878416168.shtml)
-- 2026-06-30 02:51 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/3094716205.shtml)
-- 2026-06-30 02:41 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/007596.shtml)
-- 2026-06-30 02:53 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/73736743.shtml)
-- 2026-06-30 02:53 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/3299274119.shtml)
-- 2026-06-30 02:37 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/0611097426.shtml)
-- 2026-06-30 02:49 - [沉睡花园](https://www.blog.minike.top/Article/details/07601439726.shtml)
-- 2026-06-30 02:59 - [沉睡花园](https://www.share.minike.top/Article/details/82133.shtml)
-- 2026-06-30 02:51 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/22562778533.shtml)
-- 2026-06-30 02:53 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/3632033.shtml)
-- 2026-06-30 02:50 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/942237.shtml)
-- 2026-06-30 02:38 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/8966156216.shtml)
-- 2026-06-30 02:32 - [女心理师](https://www.blog.minike.top/Article/details/05403681.shtml)
+- 2026-06-30 02:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/770301922513.shtml)
+- 2026-06-30 02:54 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/362172733.shtml)
+- 2026-06-30 02:41 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/96767759970.shtml)
+- 2026-06-30 02:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/705768.shtml)
+- 2026-06-30 02:57 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/734225202483.shtml)
+- 2026-06-30 02:48 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/25186362.shtml)
+- 2026-06-30 03:05 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/7862265.shtml)
+- 2026-06-30 02:45 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/375862613535.shtml)
+- 2026-06-30 03:05 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/600133029.shtml)
+- 2026-06-30 02:38 - [月亮](https://www.blog.minike.top/Article/details/6368044.shtml)
+- 2026-06-30 03:01 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/383972105.shtml)
+- 2026-06-30 03:00 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/665348345.shtml)
+- 2026-06-30 02:52 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/109803716797.shtml)
+- 2026-06-30 02:52 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/0336082332.shtml)
+- 2026-06-30 02:51 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/47627066.shtml)

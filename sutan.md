@@ -1,53 +1,50 @@
-# 金风科技完成发行5亿元绿色科技创新债券
+# 迈为股份9000万元增资眉山琏升
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-金风科技（02208）发布公告，金风科技股份有限公司2026年度第一期绿色科技创新债券已于2026年4月2日发行结束，资金到账日为2026年4月3日。债券简称“26 金风科技 MTN001（科创债）”。初始基准利率 +发行利差为2.20%；实际发行总额5亿元。责任编辑：卢昱君
+琏升科技（300051）公告称，公司于2026年5月20日召开第七届董事会第九次会议审议通过了《关于公司控股孙公司拟增资扩股引入投资者的议案》，为进一步优化公司控股孙公司眉山琏升资本结构，同意眉山琏升以增资扩股方式引入苏州迈为科技股份有限公司（股票代码：300751），由其以货币方式向眉山琏升增资人民币9,000万元，获得眉山琏升增资后4%股权，眉山琏升与增资方签署并履行与本次
 
 ## 正文
 
-金风科技（02208）发布公告，金风科技股份有限公司2026年度第一期绿色科技创新债券已于2026年4月2日发行结束，资金到账日为2026年4月3日。
+琏升科技（300051）公告称，公司于2026年5月20日召开第七届董事会第九次会议审议通过了《关于公司控股孙公司拟增资扩股引入投资者的议案》，为进一步优化公司控股孙公司眉山琏升资本结构，同意眉山琏升以增资扩股方式引入苏州迈为科技股份有限公司（股票代码：300751），由其以货币方式向眉山琏升增资人民币9,000万元，获得眉山琏升增资后4%股权，眉山琏升与增资方签署并履行与本次交易相关的法律文件；同意公司控股子公司天津琏升放弃本次增资之优先认购权。
 
-债券简称“26 金风科技 MTN001（科创债）”。
+本次交易完成后，眉山琏升的注册资本将由102,065万元增加至106,317.50万元；天津琏升对眉山琏升的持股比例将由88.18%稀释至84.66%，眉山琏升仍为公司合并报表范围内的控股孙公司。
 
-初始基准利率 +发行利差为2.20%；实际发行总额5亿元。
+截至2025年12月31日，眉山琏升资产总额179,258.34万元，负债总额152,654.47万元，净资产26,603.87万元，2025年实现营收28,202.93万元，净利润-34,046.50万元，经营活动产生的现金流量净额1,098.37万元。
 
-责任编辑：卢昱君
+截至2026年3月31日，眉山琏升资产总额181,456.11万元，负债总额159,138.32万元，净资产22,317.79万元，2026年前三月实现营收2,479.76万元，净利润-6,292.86万元，经营活动产生的现金流量净额-1,882.85万元。
 
 ## 相关推荐
 
-- 2026-06-30 02:42 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 02:52 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 02:57 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 02:33 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 02:58 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 02:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-30 02:35 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 02:30 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 02:44 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 02:45 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 02:42 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 02:37 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 02:40 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 02:32 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 02:36 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 02:52 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 02:44 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 02:55 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 02:52 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 02:43 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 02:52 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 02:39 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 02:52 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 03:00 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 02:39 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 02:51 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 03:05 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:59 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/377039.shtml)
-- 2026-06-30 02:38 - [一见倾心](https://www.share.kurohicncr.top/Article/details/11914512.shtml)
-- 2026-06-30 02:54 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/717026.shtml)
-- 2026-06-30 02:48 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/901045514118.shtml)
-- 2026-06-30 02:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/0344008.shtml)
-- 2026-06-30 02:38 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/91032.shtml)
-- 2026-06-30 02:56 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/9498010485.shtml)
-- 2026-06-30 02:31 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/93847419.shtml)
-- 2026-06-30 02:33 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/1486881.shtml)
-- 2026-06-30 02:58 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/4073070.shtml)
-- 2026-06-30 02:33 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/42282724485.shtml)
-- 2026-06-30 02:59 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/74540.shtml)
-- 2026-06-30 02:52 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/552272335148.shtml)
-- 2026-06-30 02:38 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/8494733181.shtml)
-- 2026-06-30 02:37 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/4514931978.shtml)
+- 2026-06-30 02:39 - [千香](http://www.share.kurohicncr.top/Article/details/05270369381.shtml)
+- 2026-06-30 02:51 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/8667831.shtml)
+- 2026-06-30 03:01 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/64005200.shtml)
+- 2026-06-30 02:55 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/037794972.shtml)
+- 2026-06-30 02:59 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/982194408909.shtml)
+- 2026-06-30 03:05 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/755749716610.shtml)
+- 2026-06-30 02:56 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/7652161.shtml)
+- 2026-06-30 02:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/95485.shtml)
+- 2026-06-30 02:52 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/35222.shtml)
+- 2026-06-30 02:57 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/103576493313.shtml)
+- 2026-06-30 03:03 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/977188751524.shtml)
+- 2026-06-30 02:43 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/899295891.shtml)
+- 2026-06-30 02:52 - [巴西扳平比分](https://www.blog.minike.top/Article/details/65426439069.shtml)
+- 2026-06-30 02:56 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/244794373.shtml)
+- 2026-06-30 02:57 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/0741777.shtml)

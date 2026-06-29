@@ -1,61 +1,57 @@
-# 中信建投期货：4月3日工业品早报
+# 日化护肤年报|营收利润双承压 珀莱雅、敷尔佳、福瑞达、科思股份业绩双降
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-铜：中东冲突扰动，铜价维持震荡 周四晚沪铜主力震荡收于96150元，伦铜几乎收平于12360美金附近。 宏观中性。特朗普升级对伊军事行动，市场避险情绪升温，同时伊朗与阿曼起草霍尔木兹海峡通行费用征收协议，通胀粘性担忧升温。此外，特朗普调整签署声明，调整对铜半制品的进口关税政策，税率将基于美国消费者支付的价格来计算，对含铜量低于15%的铜衍生品，取消50%关税，反之征收25%关税
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经公司研究院 作者：新消费主张/cici 截至2026年4月30日，绝大多数日化护肤上市公司已完成2025年财报的披露，对此我们挑选了13家具有代表性的上市公司进行业绩比对分析。在我们选取的13家日化护肤公司中。在行业整体增速放缓、流量红利见顶的背景下，水羊股份、青松股份、上海家化三家实现营收与
 
 ## 正文
 
-铜：中东冲突扰动，铜价维持震荡 周四晚沪铜主力震荡收于96150元，伦铜几乎收平于12360美金附近。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-宏观中性。
+出品：新浪财经公司研究院 作者：新消费主张/cici 截至2026年4月30日，绝大多数日化护肤上市公司已完成2025年财报的披露，对此我们挑选了13家具有代表性的上市公司进行业绩比对分析。
 
-特朗普升级对伊军事行动，市场避险情绪升温，同时伊朗与阿曼起草霍尔木兹海峡通行费用征收协议，通胀粘性担忧升温。
+在我们选取的13家日化护肤公司中。
 
-此外，特朗普调整签署声明，调整对铜半制品的进口关税政策，税率将基于美国消费者支付的价格来计算，对含铜量低于15%的铜衍生品，取消50%关税，反之征收25%关税。
+在行业整体增速放缓、流量红利见顶的背景下，水羊股份、青松股份、上海家化三家实现营收与净利润双增，成为少数逆势突围的赢家。
 
-基本面中性。
+其中，青松股份凭借ODM龙头诺斯贝尔受益于行业复苏，净利润暴增180.21%；上海家化结束了连续四年的下滑，扭亏为盈并实现经营性现金流近五年最佳；水羊股份则依托自有品牌高端化转型，利润增长近35%。
 
-昨日上期所铜仓单减少7475吨至20.54万吨，LME铜累库2525吨至36.44万吨。
+与此同时，珀莱雅、敷尔佳、福瑞达、科思股份等昔日明星公司却陷入营收净利润双双下滑的窘境——珀莱雅百亿规模微跌已属“受伤最轻”，科思股份净利暴跌超80%遭遇断崖式下跌，敷尔佳净利率被严重压缩，福瑞达转型阵痛持续。
 
-据SMM，本周中国铜社会库存去化3.57万吨至36.74万吨，铜线缆企业开工率环比小幅下降，主要与铜价回升、新增订单承接乏力有关。
+双增与双降并存，折射出行业从“普涨时代”进入“存量博弈时代”的残酷现实。
 
-总体来看，中东局势反复带来需求前景的不确定性，叠加下方偏强的基本面支撑，预计短期铜价维持宽幅震荡。
+更值得警惕的是，丸美生物、锦波生物、创尔生物集体陷入“增收不增利”的陷阱，而贝泰妮则出现上市以来首次营收负增长、利润几乎原地踏步。
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 02:37 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 02:34 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-30 02:41 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 02:46 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 02:35 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 02:37 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 02:36 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 02:57 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 02:54 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 02:39 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 02:50 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 02:30 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 02:58 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 02:49 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 02:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 02:41 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 02:39 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 02:57 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 02:36 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 02:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 03:03 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 03:03 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 02:47 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 02:39 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 02:53 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/293564799.shtml)
-- 2026-06-30 02:50 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/0591983.shtml)
-- 2026-06-30 02:37 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/650748387.shtml)
-- 2026-06-30 02:47 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/4660360735.shtml)
-- 2026-06-30 02:41 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/05340067.shtml)
-- 2026-06-30 02:50 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/664277.shtml)
-- 2026-06-30 02:57 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/06664.shtml)
-- 2026-06-30 02:56 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/67085.shtml)
-- 2026-06-30 02:48 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/85744.shtml)
-- 2026-06-30 02:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/698015710.shtml)
-- 2026-06-30 02:33 - [啊啊啊](https://www.blog.minike.top/Article/details/5134276.shtml)
-- 2026-06-30 02:54 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/239861.shtml)
-- 2026-06-30 02:35 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/76080.shtml)
-- 2026-06-30 02:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/1127760.shtml)
-- 2026-06-30 02:42 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/95560.shtml)
+- 2026-06-30 02:47 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/22316.shtml)
+- 2026-06-30 02:46 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/7101076.shtml)
+- 2026-06-30 02:42 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/73835272.shtml)
+- 2026-06-30 02:49 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/2348672.shtml)
+- 2026-06-30 02:45 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/191104.shtml)
+- 2026-06-30 02:58 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/760600980.shtml)
+- 2026-06-30 03:01 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/516043151092.shtml)
+- 2026-06-30 02:45 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/051408275264.shtml)
+- 2026-06-30 02:47 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/647343.shtml)
+- 2026-06-30 02:36 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/9851967.shtml)
+- 2026-06-30 02:38 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/151623497.shtml)
+- 2026-06-30 02:51 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/48607068691.shtml)
+- 2026-06-30 02:56 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/1469691.shtml)
+- 2026-06-30 02:54 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/465117133071.shtml)
+- 2026-06-30 03:03 - [孙兴慜道歉](https://www.share.minike.top/Article/details/764325912166.shtml)

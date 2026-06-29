@@ -1,56 +1,58 @@
-# Stellantis正与中国零跑汽车深入洽谈合作开发欧宝纯电动车
+# 早盘：美股继续下滑 纳指下跌0.6%
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-三位消息人士透露，Stellantis 集团正与零跑汽车展开深入谈判，拟合作开发一款欧宝（Opel）品牌纯电动 SUV。新车将采用这家中国车企的技术，在 Stellantis 位于西班牙的萨拉戈萨工厂生产。 若该协议最终敲定，将帮助 Stellantis 降低全新电动车型的研发成本、缩短研发周期。这家法意合资车企正将重心转向油电混动汽车。今年早些时候，该集团宣布因缩减电动车业务
+北京时间5月19日晚，美股周二早盘继续下跌，纳指下跌0.6%。引领AI牛市的芯片股继续遭到抛售。美国国债收益率攀升令股指承压。交易员还关注美国总统特朗普取消对伊朗打击计划后的石油市场。 道指跌108.11点，跌幅为0.22%，报49578.01点；纳指跌166.70点，跌幅为0.64%，报25924.04点；标普500指数跌26.53点，跌幅为0.36%，报7376.52点。
 
 ## 正文
 
-三位消息人士透露，Stellantis 集团正与零跑汽车展开深入谈判，拟合作开发一款欧宝（Opel）品牌纯电动 SUV。
+北京时间5月19日晚，美股周二早盘继续下跌，纳指下跌0.6%。
 
-新车将采用这家中国车企的技术，在 Stellantis 位于西班牙的萨拉戈萨工厂生产。
+引领AI牛市的芯片股继续遭到抛售。
 
-若该协议最终敲定，将帮助 Stellantis 降低全新电动车型的研发成本、缩短研发周期。
+美国国债收益率攀升令股指承压。
 
-这家法意合资车企正将重心转向油电混动汽车。
+交易员还关注美国总统特朗普取消对伊朗打击计划后的石油市场。
 
-今年早些时候，该集团宣布因缩减电动车业务规划，计提 250 亿美元资产减值。
+道指跌108.11点，跌幅为0.22%，报49578.01点；纳指跌166.70点，跌幅为0.64%，报25924.04点；标普500指数跌26.53点，跌幅为0.36%，报7376.52点。
 
-此举同时意在抵御比亚迪等中国品牌在欧洲市场的竞争，并提升其欧洲工厂的产能利用率。
+债券市场给牛市增添了新的变数，美国10年期和30年期国债收益率在周一交易中触及2025年初以来的最高水平之后继续攀升。
 
-Stellantis 首席执行官安东尼奥・菲洛萨于去年 6 月上任，将于 5 月 21 日公布全新长期业务规划。
+随着投资者对通胀加速的担忧加剧，引发全球债券市场抛售，最长期限的美国国债收益率升至近二十年来最高水平。
 
-Stellantis 于 2023 年收购零跑汽车约五分之一股份后，双方建立合作关系，并共同成立零跑国际合资公司，负责零跑汽车在海外市场的销售与生产。
+30年期美国国债收益率周二上涨5个基点，至5.18%。
 
 ## 相关推荐
 
-- 2026-06-30 02:58 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 02:41 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 02:32 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 02:36 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 02:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 02:32 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 02:53 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 02:54 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-30 02:46 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 02:59 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 02:37 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 02:53 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 02:44 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-30 02:54 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 02:43 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 02:44 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 03:01 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 02:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 02:55 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 02:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 02:37 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 02:51 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:35 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/9399099567.shtml)
-- 2026-06-30 02:34 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/5588151050.shtml)
-- 2026-06-30 02:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/822377982544.shtml)
-- 2026-06-30 02:50 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/9190028.shtml)
-- 2026-06-30 02:33 - [周生如故](http://www.share.kurohicncr.top/Article/details/1685349494.shtml)
-- 2026-06-30 02:57 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/266351.shtml)
-- 2026-06-30 02:53 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/36931981444.shtml)
-- 2026-06-30 02:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/31542111716.shtml)
-- 2026-06-30 02:31 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/36582436608.shtml)
-- 2026-06-30 02:50 - [周生如故](http://www.blog.kurohicncr.top/Article/details/77240423530.shtml)
-- 2026-06-30 02:48 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/6628708.shtml)
-- 2026-06-30 02:48 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/925850701755.shtml)
-- 2026-06-30 02:52 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/028903267.shtml)
-- 2026-06-30 02:39 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/610342764383.shtml)
-- 2026-06-30 02:46 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/70306677.shtml)
+- 2026-06-30 02:58 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/5681377570.shtml)
+- 2026-06-30 02:54 - [点菜也要教吗](http://www.blog.minike.top/Article/details/607383074.shtml)
+- 2026-06-30 02:47 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/6495113949.shtml)
+- 2026-06-30 02:49 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/9177099.shtml)
+- 2026-06-30 02:49 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/19484.shtml)
+- 2026-06-30 02:54 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/582608586736.shtml)
+- 2026-06-30 02:39 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/6004017788.shtml)
+- 2026-06-30 02:39 - [美人鱼](https://www.share.minike.top/Article/details/7547667.shtml)
+- 2026-06-30 02:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/757189.shtml)
+- 2026-06-30 02:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/097411298473.shtml)
+- 2026-06-30 02:46 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/548242.shtml)
+- 2026-06-30 02:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/61560349.shtml)
+- 2026-06-30 02:41 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/285106715823.shtml)
+- 2026-06-30 02:41 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/65546.shtml)
+- 2026-06-30 02:48 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/203656985.shtml)

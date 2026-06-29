@@ -1,51 +1,56 @@
-# 荷兰国际：停火协议缓解市场担忧 铜价上涨
+# 中国国家卫健委：警惕与生命健康相关伪“科技概念”诈骗
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-在美国与伊朗达成临时停火协议后，市场风险偏好改善，对供应链严重中断及其对全球经济影响的担忧有所缓解，铜价攀升至三周高位。欧洲早盘交易中，伦敦金属交易所（LME）三个月期铜期货上涨 2.9%，至每吨 12690.50 美元。 荷兰国际集团（ING）分析师表示：“航运通道相关的紧张局势缓解，对市场情绪形成了尤为明显的支撑。” “展望未来，金属价格将取决于此次停火能否发展为更持久的协
+中新社北京5月19日电 (记者 李纯)中国国家卫生健康委员会19日在北京举行新闻发布会，新闻发言人谢杨提示公众，警惕不法分子编造与生命健康相关的伪“科技概念”行骗欺诈。 谢杨指出，近年来，一些不法分子打着“生命科学”等名义，编造“脑波修复”“能量疗愈”“光波疗愈”等与生命健康相关的伪“科技概念”行骗欺诈，宣称可以治愈疾病等，危害民众身心健康和财产安全。 谢杨说，国家卫健委郑重提
 
 ## 正文
 
-在美国与伊朗达成临时停火协议后，市场风险偏好改善，对供应链严重中断及其对全球经济影响的担忧有所缓解，铜价攀升至三周高位。
+中新社北京5月19日电 (记者 李纯)中国国家卫生健康委员会19日在北京举行新闻发布会，新闻发言人谢杨提示公众，警惕不法分子编造与生命健康相关的伪“科技概念”行骗欺诈。
 
-欧洲早盘交易中，伦敦金属交易所（LME）三个月期铜期货上涨 2.9%，至每吨 12690.50 美元。
+谢杨指出，近年来，一些不法分子打着“生命科学”等名义，编造“脑波修复”“能量疗愈”“光波疗愈”等与生命健康相关的伪“科技概念”行骗欺诈，宣称可以治愈疾病等，危害民众身心健康和财产安全。
 
-荷兰国际集团（ING）分析师表示：“航运通道相关的紧张局势缓解，对市场情绪形成了尤为明显的支撑。
+谢杨说，国家卫健委郑重提示，疾病诊断与治疗必须在医疗机构由具备资质的卫生专业技术人员进行。
 
-” “展望未来，金属价格将取决于此次停火能否发展为更持久的协议，同时还将受到美国货币政策预期的影响，美联储表态、通胀数据以及实际收益率变化将是短期内的关键驱动因素。
+购买药品、医疗器械和保健产品要查看批准文号和适用范围等。
 
-”责任编辑：江学思
+非医疗机构及无资质人员利用所谓“高科技手段”进行诊疗行为的，可能涉嫌非法行医。
+
+谢杨说，不法分子常常假借“培训班”“研讨会”等名义，通过制造焦虑，利用伪科学理论塑造“权威”、虚构治愈案例等方式，对他人进行精神控制，从而骗钱敛财甚至造成人身伤害，老年人尤其要避免轻信上当。
+
+公众要提高警惕，发现相关线索的，可以向当地公安机关、卫生健康行政部门、市场监管部门等举报，也可以拨打热线反映。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 02:45 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 02:57 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 02:48 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 02:43 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 02:47 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 02:30 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 02:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 02:33 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 02:52 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 02:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 02:39 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 02:44 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 02:44 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 02:36 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 02:42 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 03:04 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 02:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 03:00 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 03:04 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 02:42 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:56 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/82538618593.shtml)
-- 2026-06-30 02:49 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/1685956311.shtml)
-- 2026-06-30 02:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/8157127240.shtml)
-- 2026-06-30 02:58 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/793197.shtml)
-- 2026-06-30 02:44 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/850847.shtml)
-- 2026-06-30 02:36 - [我和我的家乡](http://www.share.minike.top/Article/details/195948.shtml)
-- 2026-06-30 02:58 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/20045011804.shtml)
-- 2026-06-30 02:36 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/8935301.shtml)
-- 2026-06-30 02:39 - [请回答王牌2019](https://www.share.minike.top/Article/details/54362466669.shtml)
-- 2026-06-30 02:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/4704008.shtml)
-- 2026-06-30 02:48 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/9100591476.shtml)
-- 2026-06-30 02:50 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/258809.shtml)
-- 2026-06-30 02:41 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/572199423299.shtml)
-- 2026-06-30 02:51 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/2615541.shtml)
-- 2026-06-30 02:48 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/9604780269.shtml)
+- 2026-06-30 03:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/35410305.shtml)
+- 2026-06-30 02:56 - [周生如故](https://www.blog.kurohicncr.top/Article/details/437665.shtml)
+- 2026-06-30 02:50 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/374043926558.shtml)
+- 2026-06-30 02:47 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/3057076.shtml)
+- 2026-06-30 02:41 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/152581005163.shtml)
+- 2026-06-30 02:37 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/915246.shtml)
+- 2026-06-30 02:47 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/543058896609.shtml)
+- 2026-06-30 02:50 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/46388.shtml)
+- 2026-06-30 02:38 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/6299788288.shtml)
+- 2026-06-30 02:46 - [天道](http://www.share.minike.top/Article/details/0491999657.shtml)
+- 2026-06-30 02:53 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/62775454.shtml)
+- 2026-06-30 03:01 - [我们的少年时代2](https://www.blog.minike.top/Article/details/510115608441.shtml)
+- 2026-06-30 02:48 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/986720.shtml)
+- 2026-06-30 02:53 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/81810878521.shtml)
+- 2026-06-30 03:01 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/99567.shtml)

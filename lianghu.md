@@ -1,60 +1,59 @@
-# Anthropic与博通、谷歌签署3.5吉瓦TPU算力协议
+# 沙特AI公司Humain聘请高盛，为数据中心建设筹措超53亿美元融资
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-该协议将扩大现有合作，为 Anthropic 供应人工智能芯片 博通于周一宣布，将从 2027 年起，为 Anthropic 提供约 3.5 吉瓦 的谷歌张量处理单元（TPU）算力支持。 这家芯片设计厂商在一份证券备案文件中披露了这一更新，将此前为 Anthropic 供应约 1 吉瓦 TPU 算力的合作协议进一步扩大。博通在文件中表示，该协议 “取决于 Anthropic 持
+由沙特主权基金PIF支持的AI公司Humain已聘请高盛为其数据中心建设项目提供融资咨询服务。据知情人士透露，该融资方案总额至少为200亿沙特里亚尔。 数据中心扩容计划 Humain计划在沙特首都利雅得地区建设数据中心，目标新增2吉瓦的计算容量，约占其2034年总目标的约三分之一。此次融资将主要用于购置GPU芯片及数据中心基础设施。该公司去年已与亚马逊云服务AWS达成战略合作，
 
 ## 正文
 
-该协议将扩大现有合作，为 Anthropic 供应人工智能芯片 博通于周一宣布，将从 2027 年起，为 Anthropic 提供约 3.5 吉瓦 的谷歌张量处理单元（TPU）算力支持。
+由沙特主权基金PIF支持的AI公司Humain已聘请高盛为其数据中心建设项目提供融资咨询服务。
 
-这家芯片设计厂商在一份证券备案文件中披露了这一更新，将此前为 Anthropic 供应约 1 吉瓦 TPU 算力的合作协议进一步扩大。
+据知情人士透露，该融资方案总额至少为200亿沙特里亚尔。
 
-博通在文件中表示，该协议 “取决于 Anthropic 持续的商业成功”。
+数据中心扩容计划 Humain计划在沙特首都利雅得地区建设数据中心，目标新增2吉瓦的计算容量，约占其2034年总目标的约三分之一。
 
-消息公布后，博通股价在周二盘前交易中上涨3.8%。
+此次融资将主要用于购置GPU芯片及数据中心基础设施。
 
-Anthropic 首席财务官克里希纳・拉奥在另一份声明中表示，与博通的这项协议是这家 Claude 大模型开发商 “迄今为止规模最大的算力投入，以跟上公司前所未有的增长步伐”，并表示这笔投资将由公司迅猛增长的营收提供支撑。
+该公司去年已与亚马逊云服务AWS达成战略合作，在沙特共建“AI专区”。
 
-该公司近期年化营收已突破 300 亿美元，意味着自 2 月底以来增速飙升至 58%。
+沙特加速AI布局 此举是沙特加速AI基础设施建设的最新信号。
 
-此次算力协议是对 Anthropic 2025 年 11 月相关计划的扩容。
+与海湾邻国卡塔尔和阿联酋一样，沙特正利用其廉价能源优势吸引谷歌、微软、Meta等科技巨头的数据中心落地。
 
-当时该公司宣布将在美国投资 500 亿美元建设数据中心，并与初创企业 Fluidstack 达成合作，由后者租赁由谷歌提供技术支持的数据中心，为 Anthropic 供应 TPU 芯片。
+国际能源署预计，2026年至2030年间全球数据中心投资总额将达到3.9万亿美元，远超AI公司的自有资金能力。
 
 ## 相关推荐
 
-- 2026-06-30 02:46 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 02:49 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 02:55 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 02:55 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 02:43 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 02:49 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 02:45 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 02:51 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 02:43 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 02:56 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 02:32 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 02:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 02:50 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 02:45 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 02:53 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 02:45 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 02:59 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 02:40 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 03:03 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 02:40 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 02:55 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 03:03 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 02:40 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 03:05 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 02:48 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 02:51 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 03:02 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:55 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/69320860.shtml)
-- 2026-06-30 02:33 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/42747726222.shtml)
-- 2026-06-30 02:41 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/249804337.shtml)
-- 2026-06-30 02:48 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/381199382.shtml)
-- 2026-06-30 02:40 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/34459.shtml)
-- 2026-06-30 02:42 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/80922835.shtml)
-- 2026-06-30 02:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/970827.shtml)
-- 2026-06-30 02:56 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/1105314870.shtml)
-- 2026-06-30 02:30 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/404576566363.shtml)
-- 2026-06-30 02:44 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/346058217.shtml)
-- 2026-06-30 02:50 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/091626.shtml)
-- 2026-06-30 02:49 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/639883176.shtml)
-- 2026-06-30 02:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/21912.shtml)
-- 2026-06-30 02:37 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/23262.shtml)
-- 2026-06-30 02:50 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/99656606.shtml)
+- 2026-06-30 02:57 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/281389814690.shtml)
+- 2026-06-30 02:58 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/5587349.shtml)
+- 2026-06-30 02:38 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/00869723.shtml)
+- 2026-06-30 02:49 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/87824.shtml)
+- 2026-06-30 02:41 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/70003.shtml)
+- 2026-06-30 02:58 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/411565592.shtml)
+- 2026-06-30 03:00 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/499437789.shtml)
+- 2026-06-30 02:52 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/450487206529.shtml)
+- 2026-06-30 02:44 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/66830496.shtml)
+- 2026-06-30 02:53 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/18975245058.shtml)
+- 2026-06-30 02:45 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/69701482651.shtml)
+- 2026-06-30 02:57 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/558436352.shtml)
+- 2026-06-30 02:58 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/388881069.shtml)
+- 2026-06-30 02:46 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/4992436.shtml)
+- 2026-06-30 02:46 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/54827048.shtml)

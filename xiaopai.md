@@ -1,57 +1,49 @@
-# Keep首次扭亏股价却触底：营收跌回四年前、用户流失近815万 AI新故事能撑起未来吗？
+# 美国财长贝森特谈日本：外汇过度波动是不可取的
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：木予 Keep终于迎来“变现自由” ？ 2025年业绩公告显示，公司全年经调整净利润录得2521.60万元，而2024年为净亏损4.70亿元。这是Keep自2019年以来首次扭亏，此前六年经调整净亏损总额累计已高达22.62亿元。报告期内，公司毛利率连跳三级至52.2%，同比增长5.5个百分点，与2022年相比增幅近11.5%。 资本市场对这
+美国财政部长贝森特表示，“日本经济基本面强劲，过度的汇率波动并不可取。” 贝森特在X平台发文称，他“相信日本央行行长将成功指导日本的货币政策”。 受上述言论影响，美元兑日元一度跌至盘中低点。责任编辑：何云
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：木予 Keep终于迎来“变现自由” ？
+美国财政部长贝森特表示，“日本经济基本面强劲，过度的汇率波动并不可取。
 
-2025年业绩公告显示，公司全年经调整净利润录得2521.60万元，而2024年为净亏损4.70亿元。
+” 贝森特在X平台发文称，他“相信日本央行行长将成功指导日本的货币政策”。
 
-这是Keep自2019年以来首次扭亏，此前六年经调整净亏损总额累计已高达22.62亿元。
+受上述言论影响，美元兑日元一度跌至盘中低点。
 
-报告期内，公司毛利率连跳三级至52.2%，同比增长5.5个百分点，与2022年相比增幅近11.5%。
-
-资本市场对这历史性的一刻却并不买账。
-
-业绩发布当日，Keep的股价收跌0.3%，随后连续四个交易日一路走低，期间一度触底至2.86港元/股，不足发行价的十分之一。
-
-截至发稿日收盘，Keep的市值仅为15.35亿港元，较2023年最高点蒸发92.7%，年初至今的日均换手率低至0.2%。
-
-月活、订阅创近五年新低 靠裁员降本盈利难持续 投资者“用脚投票”的关键原因之一，是Keep依旧没能扭转规模缩水的颓势。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 02:43 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 02:44 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 02:30 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 02:37 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 02:59 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 02:55 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 02:49 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 02:58 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 02:34 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-30 02:56 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 02:46 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 02:42 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 02:40 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 02:51 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 02:44 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 02:47 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 02:46 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 02:57 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 02:47 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 02:59 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 02:55 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 02:59 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:49 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/245953185.shtml)
-- 2026-06-30 02:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/59869456.shtml)
-- 2026-06-30 02:44 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/07277651.shtml)
-- 2026-06-30 02:51 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/9811449066.shtml)
-- 2026-06-30 02:52 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/63918.shtml)
-- 2026-06-30 02:47 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/204577777373.shtml)
-- 2026-06-30 02:40 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/509024.shtml)
-- 2026-06-30 02:41 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/200657066879.shtml)
-- 2026-06-30 02:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/17584236446.shtml)
-- 2026-06-30 02:56 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/560995.shtml)
-- 2026-06-30 02:47 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/3166516.shtml)
-- 2026-06-30 02:47 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/167001.shtml)
-- 2026-06-30 02:59 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/741281944874.shtml)
-- 2026-06-30 02:51 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/4852017197.shtml)
-- 2026-06-30 02:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/59782122770.shtml)
+- 2026-06-30 02:47 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/095744.shtml)
+- 2026-06-30 03:03 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/291791214940.shtml)
+- 2026-06-30 03:01 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/674525895.shtml)
+- 2026-06-30 02:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/933612060835.shtml)
+- 2026-06-30 02:55 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/497879.shtml)
+- 2026-06-30 02:42 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/36483049.shtml)
+- 2026-06-30 02:55 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/6750605.shtml)
+- 2026-06-30 02:47 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/387070.shtml)
+- 2026-06-30 02:41 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/09801849393.shtml)
+- 2026-06-30 02:58 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/139414.shtml)
+- 2026-06-30 03:04 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/3036023.shtml)
+- 2026-06-30 02:43 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/169421345106.shtml)
+- 2026-06-30 02:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/716879.shtml)
+- 2026-06-30 02:48 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/04473407449.shtml)
+- 2026-06-30 02:48 - [一生一世](https://www.blog.minike.top/Article/details/298695710503.shtml)

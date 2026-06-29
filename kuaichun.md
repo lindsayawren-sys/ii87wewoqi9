@@ -1,47 +1,57 @@
-# 强对流天气预警：湖北湖南江西等部分地区将有10级以上雷暴大风
+# 音乐创作“空耳鉴抄”靠谱吗？“改编”的法律边界亟待厘清
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-中国天气网讯 中央气象台4月8日18时继续发布强对流天气黄色预警： 预计4月8日20时至9日20时，江汉、江淮西部、江南北部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，湖北东部和南部、湖南西北部、江西北部等地的部分地区将有10级以上雷暴大风，最大风力可达11级以上，局地不排除出现龙卷的可能性；江汉、江淮、江南北部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其
+音乐创作“空耳鉴抄”靠谱吗？ “套旋律”“撞和弦”“改编”的法律边界亟待厘清 随着数字音乐平台和短视频的蓬勃发展，音乐创作与传播的门槛大幅降低，网络平台上关于歌曲是否抄袭的讨论愈演愈烈。部分网友将两首歌曲剪辑在一起进行比对，仅凭听觉上的相似性就断定某作品抄袭了另一作品，这种“空耳鉴抄”现象引发广泛关注。从知名歌手被指“旋律雷同”，到热门歌曲的和弦进行被质疑抄袭，音乐创作中的“套
 
 ## 正文
 
-中国天气网讯 中央气象台4月8日18时继续发布强对流天气黄色预警： 预计4月8日20时至9日20时，江汉、江淮西部、江南北部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，湖北东部和南部、湖南西北部、江西北部等地的部分地区将有10级以上雷暴大风，最大风力可达11级以上，局地不排除出现龙卷的可能性；江汉、江淮、江南北部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中，湖北东部、江西北部等地的局地小时雨量大于50毫米。
+音乐创作“空耳鉴抄”靠谱吗？
 
-预计，强对流的主要影响时段为今天夜间至明天白天。
+“套旋律”“撞和弦”“改编”的法律边界亟待厘清 随着数字音乐平台和短视频的蓬勃发展，音乐创作与传播的门槛大幅降低，网络平台上关于歌曲是否抄袭的讨论愈演愈烈。
 
-防御指南： 1.政府及相关部门按照职责做好防短时暴雨、防雷、防大风应急防御工作，气象部门做好人工防雹作业准备并择机进行作业； 2.驾驶员通过积水路段应减速慢行确认安全后再通过，交管部门应当根据路况在强降雨路段和积水路段采取交通管制措施和交通引导； 3.户外人员应减少或暂停空旷地方的户外作业，选择进入抗风能力较强并具有防雷措施的建筑内，同时关闭门窗远离危险电源； 4.机场、铁路、高速公路和水上交通等单位应采取限飞、限速或暂时关闭等措施保障人员和交通安全，相关水域水上作业和过往船舶应回港规避，加固港口设施； 5.检查城市、农田、鱼塘排水系统，做好必要的排涝措施和对山洪、滑坡、泥石流等灾害的防御准备。
+部分网友将两首歌曲剪辑在一起进行比对，仅凭听觉上的相似性就断定某作品抄袭了另一作品，这种“空耳鉴抄”现象引发广泛关注。
+
+从知名歌手被指“旋律雷同”，到热门歌曲的和弦进行被质疑抄袭，音乐创作中的“套旋律”“撞和弦”问题持续引发争议。
+
+然而，旋律的相似与法律上的抄袭之间，存在一道复杂的判断边界。
+
+仅凭听觉相似 不能认定抄袭在网络平台上，常有网友仅凭听觉上的相似性就断定某作品抄袭了另一作品。
+
+不过，这种“空耳鉴抄”所比对出来的相似性，并不能等同于著作权法中“实质性相似”的标准。
+
+判断音乐作品是否构成抄袭，通常需要满足“接触”和“实质性相似”两个要件，且实质性相似的判断须结合调式、动机、乐句、旋律等因素综合考量，而非仅凭小节数的雷同。
 
 ## 相关推荐
 
-- 2026-06-30 02:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 02:41 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 02:30 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 02:35 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 02:33 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 02:56 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 02:35 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 02:46 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 02:36 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 02:37 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 02:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 03:04 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 02:46 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 02:41 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 03:01 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 03:02 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 03:01 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 02:41 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 02:37 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 02:48 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 02:44 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 02:56 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:34 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/270279602.shtml)
-- 2026-06-30 02:53 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/62981.shtml)
-- 2026-06-30 02:32 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/1454358.shtml)
-- 2026-06-30 02:30 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/90946735.shtml)
-- 2026-06-30 02:58 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/335133736461.shtml)
-- 2026-06-30 02:46 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/7835324.shtml)
-- 2026-06-30 02:47 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/58979136.shtml)
-- 2026-06-30 02:58 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/40389603.shtml)
-- 2026-06-30 02:46 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/695859.shtml)
-- 2026-06-30 02:48 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/9266983.shtml)
-- 2026-06-30 02:59 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/9175499.shtml)
-- 2026-06-30 02:38 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/65048828062.shtml)
-- 2026-06-30 02:54 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/388023772.shtml)
-- 2026-06-30 02:37 - [恋与深空 巧合](http://www.share.minike.top/Article/details/6784950896.shtml)
-- 2026-06-30 02:37 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/4440297.shtml)
+- 2026-06-30 02:44 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/62793172.shtml)
+- 2026-06-30 03:03 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/1037172670.shtml)
+- 2026-06-30 02:37 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/87768.shtml)
+- 2026-06-30 02:49 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/3245465.shtml)
+- 2026-06-30 02:59 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/943100.shtml)
+- 2026-06-30 02:45 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/99645374.shtml)
+- 2026-06-30 02:43 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/81164.shtml)
+- 2026-06-30 02:49 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/757255.shtml)
+- 2026-06-30 02:51 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/474085.shtml)
+- 2026-06-30 02:48 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/656830173.shtml)
+- 2026-06-30 02:45 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/46189.shtml)
+- 2026-06-30 02:41 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/90119776098.shtml)
+- 2026-06-30 03:03 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/616043874.shtml)
+- 2026-06-30 02:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/540285962158.shtml)
+- 2026-06-30 02:46 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/4989392.shtml)

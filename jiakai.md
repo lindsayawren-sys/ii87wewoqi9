@@ -1,61 +1,56 @@
-# 光大期货0408热点追踪：美伊临时停火，原油开盘跌超10%
+# 印尼将加强大宗商品出口管控 部分品类须通过政府指定的国有公司销售
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-今晨最新消息，美、以、伊三方同意临时停火，伊朗公布十点计划核心内容，称美伊谈判4月10日开始。伊朗表示，与美国之间的谈判目标是在最多15天内从政治上确认伊朗在战场上的成果。伊朗外交部长阿拉格齐8日凌晨代表伊朗最高国家安全委员会宣布，霍尔木兹海峡将在两周时间内实现安全通航。在地缘形势突发逆转的情况下，国内原油开盘后直线下挫，截至发稿前日内跌幅仍在10%以上。 基本面来看，短期价格
+印尼总统普拉博沃制定计划，加强国家对大宗商品出口的控制，以应对不断增加的财政压力和印尼盾跌势。 普拉博沃周三在通常由财政部长主持的年度演讲中向立法者表示，从棕榈油、煤炭、铁合金开始，政府将要求这些商品的销售必须通过政府指定的国有公司进行，这家公司将作为唯一的出口商。 普拉博沃表示，出口领域存在“少报发票和少计账款”的现象，造成数千亿美元的损失。他说，报告数据与“实际情况”之间的
 
 ## 正文
 
-今晨最新消息，美、以、伊三方同意临时停火，伊朗公布十点计划核心内容，称美伊谈判4月10日开始。
+印尼总统普拉博沃制定计划，加强国家对大宗商品出口的控制，以应对不断增加的财政压力和印尼盾跌势。
 
-伊朗表示，与美国之间的谈判目标是在最多15天内从政治上确认伊朗在战场上的成果。
+普拉博沃周三在通常由财政部长主持的年度演讲中向立法者表示，从棕榈油、煤炭、铁合金开始，政府将要求这些商品的销售必须通过政府指定的国有公司进行，这家公司将作为唯一的出口商。
 
-伊朗外交部长阿拉格齐8日凌晨代表伊朗最高国家安全委员会宣布，霍尔木兹海峡将在两周时间内实现安全通航。
+普拉博沃表示，出口领域存在“少报发票和少计账款”的现象，造成数千亿美元的损失。
 
-在地缘形势突发逆转的情况下，国内原油开盘后直线下挫，截至发稿前日内跌幅仍在10%以上。
+他说，报告数据与“实际情况”之间的差距常常巨大。
 
-基本面来看，短期价格急挫更多为情绪影响，即使战争结束，战略储备的新需求、霍尔木兹海峡相关的保险与运费成本上升，以及市场更广泛的地缘政治风险溢价，仍可能支撑油价。
+他还批评了一些商品的定价，称这些定价是由印尼境外的力量所设定。
 
-与此同时，霍尔木兹海峡“通行费”可能法案对全球贸易影响极其深远，本质上是将地缘政治冲突转化为长期的经济收割工具，短期油价或难以完全回吐“战争溢价”。
+“我们觉得很奇怪，印尼是世界上最大的棕榈油生产国，但棕榈油价格却由其他国家决定，”他说。
 
-数据方面，截至4月3日，API原油库存上升371.9万桶，汽油库存下降396.8万桶/日，馏分油库存下降59.9万桶/日。
+“这种情况必须停止。
 
-成品油库存去化，基本面继续好转。
+我们必须自己定价。
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 02:40 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 02:46 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 02:49 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 02:39 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 02:59 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 02:46 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 02:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 02:54 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-30 02:35 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-30 02:57 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 02:39 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 02:33 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 02:45 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 02:40 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 03:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 02:54 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 02:36 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 03:03 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 02:38 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 02:37 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 02:53 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 02:38 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 03:01 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 02:37 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:48 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/924105254.shtml)
-- 2026-06-30 02:38 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/592985.shtml)
-- 2026-06-30 02:57 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/4974991.shtml)
-- 2026-06-30 02:50 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/56082.shtml)
-- 2026-06-30 02:59 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/99271207230.shtml)
-- 2026-06-30 02:40 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/96028.shtml)
-- 2026-06-30 02:32 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/635065.shtml)
-- 2026-06-30 02:53 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/62213426725.shtml)
-- 2026-06-30 02:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/79590682.shtml)
-- 2026-06-30 02:50 - [月亮](http://www.blog.kurohicncr.top/Article/details/4404540422.shtml)
-- 2026-06-30 02:54 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/9906763.shtml)
-- 2026-06-30 02:48 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/921687.shtml)
-- 2026-06-30 02:43 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/5268004487.shtml)
-- 2026-06-30 02:36 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/788070.shtml)
-- 2026-06-30 02:56 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/600257385357.shtml)
+- 2026-06-30 02:47 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/747403.shtml)
+- 2026-06-30 02:55 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/72668.shtml)
+- 2026-06-30 02:51 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/56213900.shtml)
+- 2026-06-30 03:04 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/59320925.shtml)
+- 2026-06-30 02:45 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/897134.shtml)
+- 2026-06-30 02:53 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/506653737.shtml)
+- 2026-06-30 02:48 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/2865989616.shtml)
+- 2026-06-30 02:45 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/726283098.shtml)
+- 2026-06-30 02:37 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/2347974.shtml)
+- 2026-06-30 02:49 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/8933015.shtml)
+- 2026-06-30 02:53 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/16569144.shtml)
+- 2026-06-30 02:53 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/230943857.shtml)
+- 2026-06-30 03:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/2149621171.shtml)
+- 2026-06-30 02:36 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/91367.shtml)
+- 2026-06-30 03:01 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/695790736055.shtml)

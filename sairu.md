@@ -1,59 +1,56 @@
-# GTC泽汇资本:黄金属性临时切换 去美元化驱动长牛
+# 刘碧波：科技金融需以理性、聪明、耐心资本，赋能新质生产力发展
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-3月31日，在全球金融博弈进入深水区的2026年，传统资产的避险逻辑正经历一场前所未有的范式转移。GTC泽汇资本认为，近期金价在外部冲突升级背景下的剧烈回撤，实际上揭示了黄金正阶段性地表现出风险资产的特征。这种反直觉的走势并非宣告黄金避险地位的终结，而是反映了市场筹码结构的改变——随着大量零售资金与杠杆头寸的涌入，流动性挤压导致的被动平仓成为了主导3月金价下挫15%的核心诱因。
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。 “科技金融赋能新质生产力”主题论坛上，清华大学五道口金融学院院长助理、科创金融研究中心主任刘碧波表示，新质生产力有三个特征：高科技、高质量、高能效。科技金融要
 
 ## 正文
 
-3月31日，在全球金融博弈进入深水区的2026年，传统资产的避险逻辑正经历一场前所未有的范式转移。
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。
 
-GTC泽汇资本认为，近期金价在外部冲突升级背景下的剧烈回撤，实际上揭示了黄金正阶段性地表现出风险资产的特征。
+本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。
 
-这种反直觉的走势并非宣告黄金避险地位的终结，而是反映了市场筹码结构的改变——随着大量零售资金与杠杆头寸的涌入，流动性挤压导致的被动平仓成为了主导3月金价下挫15%的核心诱因。
+“科技金融赋能新质生产力”主题论坛上，清华大学五道口金融学院院长助理、科创金融研究中心主任刘碧波表示，新质生产力有三个特征：高科技、高质量、高能效。
 
-从宏观维度的定价权来看，传统的利率框架已难以完全解释当前的行情。
+科技金融要服务到基础创新、科技成果转化。
 
-GTC泽汇资本表示，自2022年起，黄金与10年期美债实际利率之间的经典逆相关性已显著弱化。
+这里有几个核心问题：一是技术要转移、有金融支持，要能估值、交易、处置；二是何为耐心资本，谁是高风险承受能力的资本；三是如何把产业需求变成技术问题，实现技术与产业匹配；四是科技、产业、金融政策如何协同一致。
 
-即便美债收益率从4.30%快速回落至4.00%，金价也未出现同步的报复性反弹，这说明地缘风险溢价与央行储备需求已成为比利率更关键的定价因子。
+刘碧波表示，科技金融需要的不只是耐心资本，而是三类资本：第一，理性资本，懂政策、知边界、不跟风；第二，聪明资本，懂技术、懂产业、懂知识产权；第三，耐心资本，做到风险匹配、期限匹配、有流动性支撑，能长期陪伴。
 
-数据显示，自2022年以来，全球央行的购金速度已攀升至过往十年均值的2.5倍甚至3倍，这种主权级别的增持正是为了对冲美元资产的过度敞口。
+在刘碧波看来，耐心资本需要三个条件：一是风险匹配，资金承受能力与项目风险一致；二是期限匹配，长期资金支持长期项目；三是提供充分流动性，完善S基金、并购、技术要素市场，方便退出。
 
-展望后市，短期阵痛无法撼动黄金作为全球战略资产的地位。
+责任编辑：张文
 
 ## 相关推荐
 
-- 2026-06-30 02:59 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 02:52 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 02:56 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 02:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 02:46 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 02:46 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 02:39 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 02:34 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 02:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 02:45 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 02:38 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 02:45 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 02:55 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 02:59 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 02:38 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 03:02 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 02:40 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 02:41 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 02:57 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 02:46 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 02:39 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 02:53 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 03:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:42 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/25656.shtml)
-- 2026-06-30 02:30 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/5201957.shtml)
-- 2026-06-30 02:35 - [一见倾心](https://www.share.minike.top/Article/details/523891248.shtml)
-- 2026-06-30 02:35 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/0775941.shtml)
-- 2026-06-30 02:42 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/48008.shtml)
-- 2026-06-30 02:43 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/2678182.shtml)
-- 2026-06-30 02:53 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/7113319719.shtml)
-- 2026-06-30 02:52 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/29536158.shtml)
-- 2026-06-30 02:51 - [流金岁月](http://www.share.kurohicncr.top/Article/details/55812.shtml)
-- 2026-06-30 02:43 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/1061459024.shtml)
-- 2026-06-30 02:39 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/79221035.shtml)
-- 2026-06-30 02:51 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/66521060377.shtml)
-- 2026-06-30 02:41 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/274398.shtml)
-- 2026-06-30 02:50 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/630487948259.shtml)
-- 2026-06-30 02:53 - [速度与激情9](https://www.share.minike.top/Article/details/998058127162.shtml)
+- 2026-06-30 02:39 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/944731.shtml)
+- 2026-06-30 02:50 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/447459617.shtml)
+- 2026-06-30 02:48 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/2045850077.shtml)
+- 2026-06-30 02:37 - [流金岁月](http://www.share.minike.top/Article/details/660794041.shtml)
+- 2026-06-30 02:45 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/53162633.shtml)
+- 2026-06-30 02:45 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/419576055.shtml)
+- 2026-06-30 02:36 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/1497317.shtml)
+- 2026-06-30 02:59 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/35604061070.shtml)
+- 2026-06-30 03:01 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/55827973.shtml)
+- 2026-06-30 02:41 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/5980044.shtml)
+- 2026-06-30 02:49 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/19904448.shtml)
+- 2026-06-30 02:37 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/324543676376.shtml)
+- 2026-06-30 02:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/30898.shtml)
+- 2026-06-30 02:45 - [日本进球](http://www.blog.kurohicncr.top/Article/details/338733.shtml)
+- 2026-06-30 02:41 - [斗破苍穹](https://www.share.minike.top/Article/details/112230.shtml)

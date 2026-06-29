@@ -1,56 +1,60 @@
-# CFA三级考试通过率维持在50% 低于十年平均水平
+# 酒价内参5月20日价格发布：精品茅台下跌3元，终结六连阳
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-特许金融分析师（CFA）最终级别考试的通过率仍低于历史平均水平，而推迟参加考试的考生通过率仍然较低。 CFA协会周二表示，2月有50%的考生通过了三级考试，与去年8月的通过率持平，较去年2月49%的通过率上升。这一数字略低于过去十年51%的平均通过率。 该机构持续发现，推迟考试的考生通过率显著较低。CFA协会教育事务董事总经理Chris Wiese表示，按最初计划参加考试的考生
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月20日整体明显走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9985元，较昨日下跌27元，跌破万元整数关口。市场在连续两日高位运行后出现较大幅度回调，终端交投情绪降温，核心单品涨跌分化依然显著。 今日白酒市场11大单品三涨八跌，输家占据绝对优势。上涨方面，青花郎涨幅居前，上涨5元/瓶，
 
 ## 正文
 
-特许金融分析师（CFA）最终级别考试的通过率仍低于历史平均水平，而推迟参加考试的考生通过率仍然较低。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月20日整体明显走弱。
 
-CFA协会周二表示，2月有50%的考生通过了三级考试，与去年8月的通过率持平，较去年2月49%的通过率上升。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9985元，较昨日下跌27元，跌破万元整数关口。
 
-这一数字略低于过去十年51%的平均通过率。
+市场在连续两日高位运行后出现较大幅度回调，终端交投情绪降温，核心单品涨跌分化依然显著。
 
-该机构持续发现，推迟考试的考生通过率显著较低。
+今日白酒市场11大单品三涨八跌，输家占据绝对优势。
 
-CFA协会教育事务董事总经理Chris Wiese表示，按最初计划参加考试的考生表现显著高于平均水平，通过率为59%，而至少推迟过一次考试的考生通过率仅为34%。
+上涨方面，青花郎涨幅居前，上涨5元/瓶，收复昨日全部失地，重返710元，平月内最高价纪录。
 
-他建议考生应尽量按计划参加考试。
+该酒品近期虽宽幅震荡，但重心呈逐步上移态势；洋河梦之蓝M6+上涨2元/瓶，再次站上600元关口，近一月价格重心亦稳步上行；五粮液普五八代小幅上涨1元/瓶。
 
-责任编辑：丁文武
+下跌方面，古井贡古20跌幅居前，下跌10元/瓶，创近一月最大跌幅，价格快速下探至530元/瓶；习酒君品下跌9元/瓶，价格回落至月内次低位；国窖1573下跌5元/瓶，回吐前两日全部涨幅；飞天茅台、精品茅台与青花汾20均下跌3元/瓶，其中精品茅台终结六连阳，连续上涨后技术性回调，青花汾20则创近一月新低；五粮液1618与水晶剑南春均下跌1元/瓶。
+
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-30 02:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 02:59 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 02:31 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 02:34 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 02:57 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 02:55 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 02:35 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 02:34 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 02:38 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 02:32 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 02:30 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 02:41 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 02:52 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 02:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 02:49 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 02:54 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 02:51 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 02:59 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 02:40 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 02:54 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 02:43 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 03:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 03:03 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 02:55 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 02:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 02:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:55 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/2382389682.shtml)
-- 2026-06-30 02:51 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/078707933079.shtml)
-- 2026-06-30 02:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/810051272749.shtml)
-- 2026-06-30 02:30 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/6660265426.shtml)
-- 2026-06-30 02:59 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/642131692027.shtml)
-- 2026-06-30 02:46 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/1625942870.shtml)
-- 2026-06-30 02:47 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/47293223951.shtml)
-- 2026-06-30 02:48 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/1065094274.shtml)
-- 2026-06-30 02:49 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/9093692231.shtml)
-- 2026-06-30 02:39 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/34882421.shtml)
-- 2026-06-30 02:50 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/17002318.shtml)
-- 2026-06-30 02:31 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/318729633511.shtml)
-- 2026-06-30 02:30 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/875615795.shtml)
-- 2026-06-30 02:53 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/35848387428.shtml)
-- 2026-06-30 02:37 - [美股](http://www.share.minike.top/Article/details/13021.shtml)
+- 2026-06-30 02:46 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/91239.shtml)
+- 2026-06-30 02:54 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/794551.shtml)
+- 2026-06-30 02:36 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/0818105354.shtml)
+- 2026-06-30 02:56 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/15667.shtml)
+- 2026-06-30 02:47 - [速度与激情9](https://www.blog.minike.top/Article/details/326630531.shtml)
+- 2026-06-30 02:45 - [明星大侦探第四季](http://www.share.minike.top/Article/details/29190345.shtml)
+- 2026-06-30 03:00 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/57537.shtml)
+- 2026-06-30 02:40 - [月亮](https://www.share.minike.top/Article/details/481108381021.shtml)
+- 2026-06-30 02:38 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/8320449491.shtml)
+- 2026-06-30 02:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/725445.shtml)
+- 2026-06-30 02:54 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/432333.shtml)
+- 2026-06-30 02:51 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/22715.shtml)
+- 2026-06-30 03:02 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/23737219.shtml)
+- 2026-06-30 02:36 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/7671851.shtml)
+- 2026-06-30 02:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/6102722981.shtml)

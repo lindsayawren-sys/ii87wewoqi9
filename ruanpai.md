@@ -1,60 +1,52 @@
-# 光大期货：4月8日农产品日报
+# 习近平同俄罗斯总统普京共同参观“传承中俄世代友好 树立大国关系典范”图片展
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周二，CBOT大豆下跌，跟随美豆粕和美豆油回落。特朗普表示同样暂停对伊朗军事活动两周，引发原油价格回落，带动美豆油走低。另外市场等待周四发布的月度供需报告，市场预期此次报告仅对美国和全球大豆库存预估值做出微小调整。国内方面，蛋白粕震荡运行，市场延续近弱远强格局。进口成本回落施压于蛋白粕。本周国
+中新社北京5月20日电 5月20日晚，中国国家主席习近平同俄罗斯总统普京在北京人民大会堂共同参观“传承中俄世代友好 树立大国关系典范”图片展。 习近平和普京不时驻足仔细观看，听取讲解，并愉快忆及中俄两国近年来友好交往合作的瞬间。两国元首指出，中俄友好的伟大事业顺应历史大势和时代潮流，牢不可破，必将行稳致远、一往无前，不断续写新的精彩篇章。 图片展由新华社和俄罗斯塔斯社共同举办，
 
 ## 正文
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周二，CBOT大豆下跌，跟随美豆粕和美豆油回落。
+中新社北京5月20日电 5月20日晚，中国国家主席习近平同俄罗斯总统普京在北京人民大会堂共同参观“传承中俄世代友好 树立大国关系典范”图片展。
 
-特朗普表示同样暂停对伊朗军事活动两周，引发原油价格回落，带动美豆油走低。
+习近平和普京不时驻足仔细观看，听取讲解，并愉快忆及中俄两国近年来友好交往合作的瞬间。
 
-另外市场等待周四发布的月度供需报告，市场预期此次报告仅对美国和全球大豆库存预估值做出微小调整。
+两国元首指出，中俄友好的伟大事业顺应历史大势和时代潮流，牢不可破，必将行稳致远、一往无前，不断续写新的精彩篇章。
 
-国内方面，蛋白粕震荡运行，市场延续近弱远强格局。
+图片展由新华社和俄罗斯塔斯社共同举办，生动呈现新时代以来两国元首之间的密切交往，全面展现中俄睦邻友好合作迈出的坚实步伐。
 
-进口成本回落施压于蛋白粕。
+蔡奇、丁薛祥、王毅参加。
 
-本周国内大豆压榨量或回落至150万吨以内，现货供应压力下降。
-
-生猪现货价格迹象回落，养殖产能去化速度加快预期升温，不利于豆粕消费。
-
-豆粕现货成交低迷。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:56 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 02:31 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 02:31 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 02:54 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 02:44 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 02:47 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 02:58 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 02:50 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 02:41 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 02:48 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 02:50 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 02:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 02:54 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 02:43 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 02:53 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 02:39 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 02:49 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 02:52 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 02:51 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 02:36 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 02:47 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 03:05 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 02:52 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 02:37 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:35 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/668048939954.shtml)
-- 2026-06-30 02:37 - [日本反击率先破门](https://www.blog.minike.top/Article/details/122172808908.shtml)
-- 2026-06-30 02:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/1559613598.shtml)
-- 2026-06-30 02:40 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/2586385561.shtml)
-- 2026-06-30 02:42 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/7258811.shtml)
-- 2026-06-30 02:40 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/6064774.shtml)
-- 2026-06-30 02:56 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/196114.shtml)
-- 2026-06-30 02:47 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/11352.shtml)
-- 2026-06-30 02:47 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/32827303.shtml)
-- 2026-06-30 02:37 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/57603183.shtml)
-- 2026-06-30 02:50 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/6918904.shtml)
-- 2026-06-30 02:59 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/252277341278.shtml)
-- 2026-06-30 02:34 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/667730303.shtml)
-- 2026-06-30 02:35 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/0841982.shtml)
-- 2026-06-30 02:56 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/04083605562.shtml)
+- 2026-06-30 02:55 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/8601959.shtml)
+- 2026-06-30 02:42 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/101101496089.shtml)
+- 2026-06-30 02:41 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/682723346.shtml)
+- 2026-06-30 02:44 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/65281067466.shtml)
+- 2026-06-30 02:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/23183.shtml)
+- 2026-06-30 02:43 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/7638891.shtml)
+- 2026-06-30 02:41 - [速度与激情9](http://www.share.minike.top/Article/details/65413748.shtml)
+- 2026-06-30 03:03 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/9399632.shtml)
+- 2026-06-30 02:47 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/08170670.shtml)
+- 2026-06-30 02:52 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/4434578.shtml)
+- 2026-06-30 02:38 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/429473739914.shtml)
+- 2026-06-30 03:03 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/2407008746.shtml)
+- 2026-06-30 02:47 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/6409885306.shtml)
+- 2026-06-30 02:58 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/8708701.shtml)
+- 2026-06-30 02:53 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/0577267167.shtml)

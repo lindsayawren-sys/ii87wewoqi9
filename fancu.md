@@ -1,52 +1,58 @@
-# 特朗普最后期限将至，白宫仍令世界猜测不已
+# 沪市电子通信业绩说明会举行，中天科技、瑞芯微、法拉电子、鸿远电子共话行业前景，聚焦行业升级
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普为伊朗设定的最后期限是周二晚间8点，在此之后局势可能如何发展，引来全球各方的提问、猜测和报道，白宫新闻办公室为此应接不暇。 白宫的回应是：继续等待。 白宫新闻秘书卡罗琳·莱维特表示：“伊朗必须在美东时间晚8点前抓住时机，与美国达成协议。只有总统本人知道事态进展以及他将作何打算。” 下午3点，一名海军陆战队哨兵守卫在白宫西翼门口，这个迹象表明特朗普就在椭圆形办公室内
+5月19日，中天科技、瑞芯微、法拉电子、鸿远电子四家公司在上交所交易大厅举行了沪市电子与通信行业集体业绩说明会。上述四家来自光通信、芯片设计、电子元件等领域的公司，在说明会现场围绕“十五五”开局、“人工智能+”浪潮、行业竞争格局、研发创新、全球化布局等核心议题与投资者深度交流。在“人工智能+”行动全面落地、AI算力需求持续扩张、细分赛道趋势日益明确的背景下，各家企业抓住主业“基
 
 ## 正文
 
-美国总统特朗普为伊朗设定的最后期限是周二晚间8点，在此之后局势可能如何发展，引来全球各方的提问、猜测和报道，白宫新闻办公室为此应接不暇。
+5月19日，中天科技、瑞芯微、法拉电子、鸿远电子四家公司在上交所交易大厅举行了沪市电子与通信行业集体业绩说明会。
 
-白宫的回应是：继续等待。
+上述四家来自光通信、芯片设计、电子元件等领域的公司，在说明会现场围绕“十五五”开局、“人工智能+”浪潮、行业竞争格局、研发创新、全球化布局等核心议题与投资者深度交流。
 
-白宫新闻秘书卡罗琳·莱维特表示：“伊朗必须在美东时间晚8点前抓住时机，与美国达成协议。
+在“人工智能+”行动全面落地、AI算力需求持续扩张、细分赛道趋势日益明确的背景下，各家企业抓住主业“基本盘”，坚守硬核创新主线，抢抓产业结构性机遇，为中长期稳健发展做好了充分准备。
 
-只有总统本人知道事态进展以及他将作何打算。
+抓住确定需求 积极抢占时代风口 2025年，AI浪潮兴起叠加全国算力、电网等新基建提速，让相关上市公司业绩明显增长，从今日交流内容看，这一乐观态势也将持续。
 
-” 下午3点，一名海军陆战队哨兵守卫在白宫西翼门口，这个迹象表明特朗普就在椭圆形办公室内。
+如何抓住这一“时代风口”，各家公司虽处于不同细分领域，有不同的发展规划，但对抢抓确定的市场需求都有了充足的谋划。
 
-责任编辑：李桐
+随着端侧AI深入千行百业、重塑产品的趋势不断加强，未来发展方向较为明朗。
+
+瑞芯微表示，边缘侧、端侧AIoT正处于快速发展的成长周期。
+
+从今年来看，在存储价格高企、上游成本上涨等严峻的市场环境下，公司长期深耕布局的AIoT和新质生产力产品仍保持着顽强生命力，公司一季度收入同比增长36%，净利润同比增长57%，均创下同期历史新高。
 
 ## 相关推荐
 
-- 2026-06-30 02:54 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 02:35 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 02:53 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-30 02:40 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 02:40 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 02:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 02:52 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-30 02:52 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 02:35 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 02:41 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 02:54 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 03:03 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 02:53 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 02:47 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 02:45 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 03:03 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 02:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 03:01 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 02:49 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 02:50 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 02:52 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 02:38 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:57 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/33122.shtml)
-- 2026-06-30 02:42 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/37367147002.shtml)
-- 2026-06-30 02:46 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/65472113.shtml)
-- 2026-06-30 02:49 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/536724246.shtml)
-- 2026-06-30 02:31 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/535205761.shtml)
-- 2026-06-30 02:39 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/72285038997.shtml)
-- 2026-06-30 02:58 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/69054231988.shtml)
-- 2026-06-30 02:49 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/32283116824.shtml)
-- 2026-06-30 02:42 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/52686600938.shtml)
-- 2026-06-30 02:44 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/5165735675.shtml)
-- 2026-06-30 02:44 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/66200993.shtml)
-- 2026-06-30 02:34 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/476490.shtml)
-- 2026-06-30 02:52 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/5995750278.shtml)
-- 2026-06-30 02:56 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/6156446.shtml)
-- 2026-06-30 02:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/511313.shtml)
+- 2026-06-30 02:47 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/5330770461.shtml)
+- 2026-06-30 02:45 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/71735.shtml)
+- 2026-06-30 02:43 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/44786499.shtml)
+- 2026-06-30 02:40 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/42461478211.shtml)
+- 2026-06-30 02:45 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/8191924.shtml)
+- 2026-06-30 02:58 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/9336285935.shtml)
+- 2026-06-30 02:53 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/372262090786.shtml)
+- 2026-06-30 02:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/494789579.shtml)
+- 2026-06-30 02:45 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/005930516.shtml)
+- 2026-06-30 02:56 - [速度与激情9](https://www.share.minike.top/Article/details/401653.shtml)
+- 2026-06-30 02:57 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/6712791598.shtml)
+- 2026-06-30 02:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/4570218696.shtml)
+- 2026-06-30 03:00 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/365691.shtml)
+- 2026-06-30 02:36 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/0059565.shtml)
+- 2026-06-30 02:37 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/2150285193.shtml)

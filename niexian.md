@@ -1,56 +1,60 @@
-# 女子冒充房东在成都“一房多租” 警方：嫌疑人已被刑拘
+# 广东发布高等教育提升计划：打造具有全球竞争力的高峰学科群
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-中新网4月8日电 据“成都公安”微信公众号消息，4月7日，成都市公安局高新区分局发布警情通报。 近日，成都市公安局高新区分局陆续接到多名群众报警，称在租房过程中疑似遭遇诈骗。 经查，犯罪嫌疑人童某(女，39岁)在成都市高新区、武侯区、天府新区等地租赁房屋后，冒充房东或以转租名义，通过网络平台发布虚假租房信息，采取“一房多租”的方式，与多名被害人签订租赁合同，骗取租金、押金等款项
+中新网广州5月19日电 (记者 许青青)广东省人民政府办公厅近日发布的高等教育“冲一流、补短板、强特色”提升计划实施方案明确提出，到2030年，广东理工农医类学科专业学生数占比要达到55%以上，综合应用型高校研究生培养规模实现倍增。该方案包含三大计划。其中，高水平研究型大学建设计划以建设世界一流研究型大学为目标，大力发展基础学科、新兴学科、交叉学科，打造具有全球竞争力的高峰学科
 
 ## 正文
 
-中新网4月8日电 据“成都公安”微信公众号消息，4月7日，成都市公安局高新区分局发布警情通报。
+中新网广州5月19日电 (记者 许青青)广东省人民政府办公厅近日发布的高等教育“冲一流、补短板、强特色”提升计划实施方案明确提出，到2030年，广东理工农医类学科专业学生数占比要达到55%以上，综合应用型高校研究生培养规模实现倍增。
 
-近日，成都市公安局高新区分局陆续接到多名群众报警，称在租房过程中疑似遭遇诈骗。
+该方案包含三大计划。
 
-经查，犯罪嫌疑人童某(女，39岁)在成都市高新区、武侯区、天府新区等地租赁房屋后，冒充房东或以转租名义，通过网络平台发布虚假租房信息，采取“一房多租”的方式，与多名被害人签订租赁合同，骗取租金、押金等款项，后以各种理由拖延被害人入住，并携款潜逃。
+其中，高水平研究型大学建设计划以建设世界一流研究型大学为目标，大力发展基础学科、新兴学科、交叉学科，打造具有全球竞争力的高峰学科群。
 
-其间：童某存在向被害人出示伪造的房产证等行为。
+综合应用型高校建设计划以建设支撑区域发展应用型高校为目标，立足所在地市产业发展和民生需求。
 
-接部分被害人报案后，成都市公安局高新区分局立即成立工作专班，将相关案件并案侦查，于4月3日将童某抓获。
+特色应用型高校建设计划以建设行业领军应用型高校为目标，支持高校围绕文化强省、体育强省、海洋强省、绿美广东、法治广东、平安广东等重大建设任务，锚定特色行业细分领域差异化发展特色学科专业。
 
-目前，童某已被依法刑事拘留，案件正在进一步侦办中。
+方案围绕优化高等教育结构布局、提高人才自主培养能力与水平、提升科研创新能力、增强服务经济社会发展能力、强化高素质教师队伍建设、推进高等教育高水平对外开放等6方面提出了12项重点任务。
 
-通报中提到，为全面查清案件事实，切实维护被害人合法权益，请尚未报案的被害人携带本人身份证及复印件、租房合同原件及复印件、资金交易明细等相关证据材料，前往成都市公安局高新区分局经济犯罪侦查大队登记报案，配合公安机关开展调查取证工作。
+优化高等教育结构布局方面，按照研究型、应用型等基本办学定位，区分综合性、特色化基本方向，明确各类高校发展定位，支持理工农医、人文社科、艺术体育、教育师范等高校差异化发展。
+
+建立以科技发展、国家战略和区域经济社会发展需求为牵引的学科专业设置调整机制和人才培养模式。
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 02:58 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 02:55 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 02:38 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 02:47 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 02:53 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 02:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 02:41 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 02:44 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 02:34 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 02:38 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 02:52 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 03:00 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 03:00 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 02:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 02:41 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 02:46 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 02:41 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 02:56 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-30 03:03 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 02:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 02:48 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 02:46 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 02:38 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 02:59 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 02:46 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:31 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/67866.shtml)
-- 2026-06-30 02:45 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/78442.shtml)
-- 2026-06-30 02:45 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/7075473085.shtml)
-- 2026-06-30 02:57 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/72758.shtml)
-- 2026-06-30 02:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/670245071.shtml)
-- 2026-06-30 02:53 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/804991173376.shtml)
-- 2026-06-30 02:45 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/15715.shtml)
-- 2026-06-30 02:51 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/4260916.shtml)
-- 2026-06-30 02:39 - [急先锋](http://www.share.kurohicncr.top/Article/details/74363.shtml)
-- 2026-06-30 02:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/363797993408.shtml)
-- 2026-06-30 02:42 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/6429576.shtml)
-- 2026-06-30 02:39 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/35381769.shtml)
-- 2026-06-30 02:32 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/64641825925.shtml)
-- 2026-06-30 02:33 - [第一炉香](http://www.share.kurohicncr.top/Article/details/683789.shtml)
-- 2026-06-30 02:38 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/8209348201.shtml)
+- 2026-06-30 02:36 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/6417046264.shtml)
+- 2026-06-30 03:05 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/56133812825.shtml)
+- 2026-06-30 02:50 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/345026786.shtml)
+- 2026-06-30 02:45 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/6306675585.shtml)
+- 2026-06-30 02:36 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/837896.shtml)
+- 2026-06-30 02:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/4102852168.shtml)
+- 2026-06-30 02:54 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/516293365779.shtml)
+- 2026-06-30 02:59 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/972765.shtml)
+- 2026-06-30 02:46 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/23255291621.shtml)
+- 2026-06-30 02:59 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/399628.shtml)
+- 2026-06-30 02:58 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/420828171708.shtml)
+- 2026-06-30 02:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/2522657.shtml)
+- 2026-06-30 02:45 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/181371759.shtml)
+- 2026-06-30 02:45 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/52484.shtml)
+- 2026-06-30 02:39 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/157324.shtml)

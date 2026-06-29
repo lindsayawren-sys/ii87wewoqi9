@@ -1,46 +1,57 @@
-# 伊朗议长将率团前往巴基斯坦首都参加伊美谈判
+# YieldMax S&P 500 0DTE备兑看涨ETF宣布每周派息0.2095美元
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-中新网4月8日电 据伊朗媒体当地时间4月8日报道，伊朗伊斯兰议会议长卡利巴夫将率领代表团参加10日在巴基斯坦首都伊斯兰堡举行的伊美谈判。 报道称，“会谈将在伊朗提出的十点计划框架内进行。” 8日早些时候，巴基斯坦总理夏巴兹通过社交媒体平台证实，伊朗和美国以及双方各自盟友已经同意，在包括黎巴嫩和其他地区在内的所有地点立即停火，并于即日起生效。
+YieldMax S&P 500 0DTE备兑看涨ETF于5月19日宣布，将向股东派发每股0.2095美元的每周股息。该股息将于5月21日发放，股权登记日为5月20日，同日为除息交易日。 独特的0DTE策略 SDTY是一只主动管理型ETF，旨在通过卖出标普500指数价外虚值、当日到期的看涨期权来捕捉期权溢价，以每周为单位分配收益。“0DTE”代表“零天到期”，意味着该基金管理的
 
 ## 正文
 
-中新网4月8日电 据伊朗媒体当地时间4月8日报道，伊朗伊斯兰议会议长卡利巴夫将率领代表团参加10日在巴基斯坦首都伊斯兰堡举行的伊美谈判。
+YieldMax S&P 500 0DTE备兑看涨ETF于5月19日宣布，将向股东派发每股0.2095美元的每周股息。
 
-报道称，“会谈将在伊朗提出的十点计划框架内进行。
+该股息将于5月21日发放，股权登记日为5月20日，同日为除息交易日。
 
-” 8日早些时候，巴基斯坦总理夏巴兹通过社交媒体平台证实，伊朗和美国以及双方各自盟友已经同意，在包括黎巴嫩和其他地区在内的所有地点立即停火，并于即日起生效。
+独特的0DTE策略 SDTY是一只主动管理型ETF，旨在通过卖出标普500指数价外虚值、当日到期的看涨期权来捕捉期权溢价，以每周为单位分配收益。
+
+“0DTE”代表“零天到期”，意味着该基金管理的期权合约在交易当日即到期，这种高频策略旨在从日内波动中反复获取权利金收入。
+
+该策略在提供标普500指数价格回报的同时，也限制了指数的上行参与空间。
+
+高派息率吸引收入型投资者 此次每周派息0.2095美元，按年化计算的派息率约为25.72%。
+
+该基金自2025年2月5日成立以来，截至2026年4月30日，市场价格累计回报约14.55%，资产规模约为2241万美元。
+
+值得一提的是，此次派息构成中100%来自资本返还，体现了备兑看涨期权策略的典型收益特征。
 
 ## 相关推荐
 
-- 2026-06-30 02:32 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 02:42 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 02:50 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 02:54 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 02:56 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 02:37 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 02:48 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 02:38 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 02:58 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 02:57 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 03:05 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 02:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 02:49 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 02:40 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 03:00 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 02:45 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 02:59 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 03:02 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 02:39 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 02:44 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 02:36 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:44 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/352160875.shtml)
-- 2026-06-30 02:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/364199.shtml)
-- 2026-06-30 02:46 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/688131094.shtml)
-- 2026-06-30 02:32 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/313852261236.shtml)
-- 2026-06-30 02:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/07108.shtml)
-- 2026-06-30 02:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/7063734394.shtml)
-- 2026-06-30 02:55 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/054334612.shtml)
-- 2026-06-30 02:55 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/4027037.shtml)
-- 2026-06-30 02:44 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/072433734010.shtml)
-- 2026-06-30 02:54 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/70018155.shtml)
-- 2026-06-30 02:31 - [周生如故](https://www.share.kurohicncr.top/Article/details/5395331.shtml)
-- 2026-06-30 02:39 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/1919421162.shtml)
-- 2026-06-30 02:31 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/363817.shtml)
-- 2026-06-30 02:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/8283595070.shtml)
-- 2026-06-30 02:48 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/086430821.shtml)
+- 2026-06-30 03:04 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/74403.shtml)
+- 2026-06-30 02:51 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/28614.shtml)
+- 2026-06-30 03:01 - [田曦薇没招了](http://www.share.minike.top/Article/details/411619547.shtml)
+- 2026-06-30 02:46 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/86557207.shtml)
+- 2026-06-30 02:57 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/61749576082.shtml)
+- 2026-06-30 02:42 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/47159600108.shtml)
+- 2026-06-30 02:38 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/599629891447.shtml)
+- 2026-06-30 02:49 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/01003368753.shtml)
+- 2026-06-30 02:37 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/450027.shtml)
+- 2026-06-30 02:48 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/52076.shtml)
+- 2026-06-30 02:44 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/12517879.shtml)
+- 2026-06-30 03:04 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/874567339629.shtml)
+- 2026-06-30 02:48 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/9968100.shtml)
+- 2026-06-30 02:47 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/6010919.shtml)
+- 2026-06-30 02:40 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/19708288.shtml)

@@ -1,57 +1,57 @@
-# 2025银行年报观察室｜信用卡跌破7亿张：大行发卡量“踩刹车”，贷款余额集体负增长
+# 长江有色：产能过剩与高库存 20日多晶硅或涨跌有限
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-来源：北京商报 曾作为零售业务核心抓手的信用卡业务，正迎来全面调整期。4月7日，北京商报记者梳理已披露2025年年报的A股上市银行数据发现，国有大行按下扩张“刹车键”，交通银行、邮储银行累计发卡量降幅超5%，工商银行、建设银行亦同步收缩。股份行呈现分化，招商银行流通卡量微增、中信银行等小幅增长，但信用卡贷款余额“降多升少”成主基调；部分银行信用卡资产质量整体承压，风险敞口有所扩
+长江有色金属网 2026年5月20日，广州期货交易所多晶硅主力合约延续弱势。截至上午9时16分，主力合约报35，780元/吨，较前一交易日结算价下跌770元，跌幅2.11%。日内开盘于36，220元/吨，最高触及36，220元/吨后一路震荡下行，最低下探至35，605元/吨，成交量14，709手，持仓量48，184手，仓差增加992手。 供给端：产能过剩与高库存构成价格“两座大
 
 ## 正文
 
-来源：北京商报 曾作为零售业务核心抓手的信用卡业务，正迎来全面调整期。
+长江有色金属网 2026年5月20日，广州期货交易所多晶硅主力合约延续弱势。
 
-4月7日，北京商报记者梳理已披露2025年年报的A股上市银行数据发现，国有大行按下扩张“刹车键”，交通银行、邮储银行累计发卡量降幅超5%，工商银行、建设银行亦同步收缩。
+截至上午9时16分，主力合约报35，780元/吨，较前一交易日结算价下跌770元，跌幅2.11%。
 
-股份行呈现分化，招商银行流通卡量微增、中信银行等小幅增长，但信用卡贷款余额“降多升少”成主基调；部分银行信用卡资产质量整体承压，风险敞口有所扩大。
+日内开盘于36，220元/吨，最高触及36，220元/吨后一路震荡下行，最低下探至35，605元/吨，成交量14，709手，持仓量48，184手，仓差增加992手。
 
-从中国人民银行公布的数据来看，截至2025年末，全国信用卡和借贷合一卡在用发卡量为6.96亿张，为2022年达到峰值后首次跌破7亿张，“退潮”背后是信用卡行业告别粗放增长、迈向精益发展的必然转型，随着信用卡从“规模竞争”转向“价值竞争”，行业将向场景、生态、服务的综合化方向转型。
+供给端：产能过剩与高库存构成价格“两座大山” 当前压制多晶硅价格的核心矛盾在于严重的供给过剩与高企的社会库存。
 
-扩张按下“刹车键” 作为行业风向标，国有大行按下信用卡规模扩张的“刹车键”。
+尽管价格已深度跌破成本线，迫使部分企业计划减产，但前期积累的庞大库存和仍在释放的产能，使得供应收缩的速度远不及需求下滑的幅度。
 
-尽管各行统计口径与披露标准不尽相同，但收缩趋势呈现一致。
+据行业数据，当月多晶硅排产预计环比有所增加。
 
-2025年交通银行以7.96%的同比降幅领跌，在册卡量从2024年末的6300.94万张降至5799.35万张，一年间减少超500万张；邮储银行同比下降5.41%，结存卡量3998.25万张降至3781.97万张。
+从静态库存看，厂价库存从高位略有回落但整体仍偏高；期货仓单持续流入注册，已增至一定规模。
 
-工商银行、建设银行分别同比下降3.33%、2.33%，发卡量降至1.45亿张、1.26亿张；仅中国银行实现1.46%的小幅增长，累计发卡量增至1.5亿张。
+更严峻的是，全球供应格局正在重塑。
 
 ## 相关推荐
 
-- 2026-06-30 02:44 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 02:47 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 02:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 02:36 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 02:30 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 02:57 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 02:55 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 02:45 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 02:44 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 02:42 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 02:59 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 02:51 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 02:36 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 02:43 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 03:02 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 02:44 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 02:45 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 02:54 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 02:42 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-30 02:42 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 02:41 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-30 02:51 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:40 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/148905665213.shtml)
-- 2026-06-30 02:43 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/586493.shtml)
-- 2026-06-30 02:34 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/0990703337.shtml)
-- 2026-06-30 02:46 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/660077.shtml)
-- 2026-06-30 02:39 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/273503.shtml)
-- 2026-06-30 02:43 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/368514.shtml)
-- 2026-06-30 02:57 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/485811958009.shtml)
-- 2026-06-30 02:48 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/9856956.shtml)
-- 2026-06-30 02:43 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/146371.shtml)
-- 2026-06-30 02:35 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/77490573910.shtml)
-- 2026-06-30 02:48 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/101225932056.shtml)
-- 2026-06-30 02:40 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/093879797017.shtml)
-- 2026-06-30 02:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/4404232407.shtml)
-- 2026-06-30 02:48 - [女心理师](https://www.blog.kurohicncr.top/Article/details/17001175622.shtml)
-- 2026-06-30 02:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/2130708.shtml)
+- 2026-06-30 03:05 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/4584731688.shtml)
+- 2026-06-30 02:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/8282856690.shtml)
+- 2026-06-30 02:51 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/672184.shtml)
+- 2026-06-30 02:45 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/567824.shtml)
+- 2026-06-30 02:50 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/586964023330.shtml)
+- 2026-06-30 02:40 - [美人鱼](http://www.share.minike.top/Article/details/423590.shtml)
+- 2026-06-30 03:03 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/043507.shtml)
+- 2026-06-30 02:45 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/41475548431.shtml)
+- 2026-06-30 02:37 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/212333427.shtml)
+- 2026-06-30 02:59 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/54779260023.shtml)
+- 2026-06-30 02:40 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/526992464.shtml)
+- 2026-06-30 02:43 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/27235552.shtml)
+- 2026-06-30 02:54 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/2683618.shtml)
+- 2026-06-30 02:56 - [世界杯](https://www.share.kurohicncr.top/Article/details/96608.shtml)
+- 2026-06-30 02:44 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/464878.shtml)

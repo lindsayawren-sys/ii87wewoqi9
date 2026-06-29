@@ -1,61 +1,57 @@
-# 不能公开真名真容的“王警官” 笔记本记着23位牺牲战友名字
+# 被追着索赔570亿！别让普华永道跑了
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月07日 16:58 来源：中国新闻网 近日，共青团中央发布2026年度中国青年五四奖章暨新时代青年先锋奖入围公示。一个特殊的名字——“王警官”引发了网友关注。他是唯一一个不能公开全名、不能露出真容的新时代青年先锋奖入围者。 这份隐去真名真容的荣光背后，是云南省临沧市公安局禁毒支队缉毒侦查大队副大队长王警官和战友们在边境一线，用生命践行的忠诚与担当。 从
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！被追着索赔570亿！别让普华永道跑了 || 深度 //// 普华永道国际第一个跳出来喊冤，说自己只是全球网络的“统筹协调者”，并未参与恒大在2017至2020年期间的审计工作。 作者：老六 无辜牵连，还是罪有应得？ 570亿索赔 先来一个问题： 假如你是恒大的债主，借出去的钱打了水漂，公司已经进入清盘程序，
 
 ## 正文
 
-发布时间：2026年04月07日 16:58 来源：中国新闻网 近日，共青团中央发布2026年度中国青年五四奖章暨新时代青年先锋奖入围公示。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-一个特殊的名字——“王警官”引发了网友关注。
+被追着索赔570亿！
 
-他是唯一一个不能公开全名、不能露出真容的新时代青年先锋奖入围者。
+别让普华永道跑了 || 深度 //// 普华永道国际第一个跳出来喊冤，说自己只是全球网络的“统筹协调者”，并未参与恒大在2017至2020年期间的审计工作。
 
-这份隐去真名真容的荣光背后，是云南省临沧市公安局禁毒支队缉毒侦查大队副大队长王警官和战友们在边境一线，用生命践行的忠诚与担当。
+作者：老六 无辜牵连，还是罪有应得？
 
-从2007年参与毒品整治目睹吸毒人员家庭困境，到2009年雨天缉毒时与毒贩殊死搏斗，再到2013年冒死夺下毒贩上膛手枪，从警19年，王警官累计破获毒品案213起，抓获嫌疑人156人，摧毁贩毒团伙11个，缴获毒品13吨，先后荣获个人二等功2次，三等功2次、嘉奖5次。
+570亿索赔 先来一个问题： 假如你是恒大的债主，借出去的钱打了水漂，公司已经进入清盘程序，资不抵债，你会找谁算账？
 
-在王警官办公桌抽屉里，泛黄的笔记本记着23位牺牲战友的名字。
+告许家印？
 
-扉页“我们不是不怕死，只是更怕辜负”的字迹，彰显着赤诚。
+当然告了。
 
-他誓言：“纵使无名，此心赤诚！
+2024年，恒大清盘人已经把许家印、他前妻丁玉梅、前总裁夏海钧等人告上法庭，成功追讨了约60亿美元的不当股息与酬金，还冻结了他们全球范围内600亿港元的资产。
 
 ## 相关推荐
 
-- 2026-06-30 02:36 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 02:34 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 02:37 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-30 02:54 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 02:48 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 02:56 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 02:33 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 02:57 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-30 02:58 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 02:57 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 02:51 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 02:47 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 02:53 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 02:54 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 02:31 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 02:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 02:58 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 02:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 02:54 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 02:52 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 02:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 02:41 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 03:00 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 02:55 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 02:40 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 02:44 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:47 - [周生如故](https://www.blog.minike.top/Article/details/7274491352.shtml)
-- 2026-06-30 02:42 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/0749986.shtml)
-- 2026-06-30 02:32 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/5861615.shtml)
-- 2026-06-30 02:43 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/7176264.shtml)
-- 2026-06-30 02:51 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/289017423417.shtml)
-- 2026-06-30 02:33 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/244018998.shtml)
-- 2026-06-30 02:32 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/412629831775.shtml)
-- 2026-06-30 02:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/54125184603.shtml)
-- 2026-06-30 02:54 - [女心理师](https://www.blog.minike.top/Article/details/7072777.shtml)
-- 2026-06-30 02:37 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/82833721.shtml)
-- 2026-06-30 02:53 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/396263776086.shtml)
-- 2026-06-30 02:41 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/960688.shtml)
-- 2026-06-30 02:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/365406.shtml)
-- 2026-06-30 02:58 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/085164013348.shtml)
-- 2026-06-30 02:38 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/3199002170.shtml)
+- 2026-06-30 02:51 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/764243306.shtml)
+- 2026-06-30 03:02 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/47053668177.shtml)
+- 2026-06-30 02:50 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/807139567657.shtml)
+- 2026-06-30 02:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/54879656936.shtml)
+- 2026-06-30 03:02 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/3628661.shtml)
+- 2026-06-30 02:40 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/02295065.shtml)
+- 2026-06-30 02:36 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/84126095.shtml)
+- 2026-06-30 02:58 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/170385.shtml)
+- 2026-06-30 02:55 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/9353483867.shtml)
+- 2026-06-30 02:57 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/867220742.shtml)
+- 2026-06-30 02:59 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/325769.shtml)
+- 2026-06-30 02:41 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/51873971.shtml)
+- 2026-06-30 02:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/085500281757.shtml)
+- 2026-06-30 02:45 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/078775965.shtml)
+- 2026-06-30 02:53 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/9719543025.shtml)

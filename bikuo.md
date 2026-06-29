@@ -1,57 +1,50 @@
-# 昔日“最贵CEO”联想集团杨元庆，再向母校捐2亿
+# 美参议员敦促美联储更新压力测试 评估地缘冲突引发的石油冲击风险
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 曾因校友慷慨捐赠电脑而初次叩开代码世界大门的杨元庆，如今以“豪捐”2亿的壮举深情回馈母校。 4月6日，联想集团董事长兼CEO杨元庆回到上海交通大学，以个人名义向母校捐赠2亿元。 同时，杨元庆还推动联想集团与上海交通大学达成新一轮战略合作：未来五年投入3亿元，实现校企协同再升级。 而杨元庆慷慨回馈母校的底气，源于其多年打
+美国联邦参议员伊丽莎白·沃伦日前致信美联储负责监管事务的副主席米歇尔·鲍曼，要求美联储立即更新2026年大型银行压力测试的情境设定，以充分反映近期中东地缘冲突升级对全球能源市场及经济带来的冲击。 沃伦在信中指出，美联储当前的压力测试框架应当有机纳入历史经验与最新的现实变化。鉴于近几周现实中已出现剧烈的石油价格冲击，美联储必须及时调整测试情境，以确保评估环境明显严于预期的经济基准
 
 ## 正文
 
-来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 曾因校友慷慨捐赠电脑而初次叩开代码世界大门的杨元庆，如今以“豪捐”2亿的壮举深情回馈母校。
+美国联邦参议员伊丽莎白·沃伦日前致信美联储负责监管事务的副主席米歇尔·鲍曼，要求美联储立即更新2026年大型银行压力测试的情境设定，以充分反映近期中东地缘冲突升级对全球能源市场及经济带来的冲击。
 
-4月6日，联想集团董事长兼CEO杨元庆回到上海交通大学，以个人名义向母校捐赠2亿元。
+沃伦在信中指出，美联储当前的压力测试框架应当有机纳入历史经验与最新的现实变化。
 
-同时，杨元庆还推动联想集团与上海交通大学达成新一轮战略合作：未来五年投入3亿元，实现校企协同再升级。
+鉴于近几周现实中已出现剧烈的石油价格冲击，美联储必须及时调整测试情境，以确保评估环境明显严于预期的经济基准情形。
 
-而杨元庆慷慨回馈母校的底气，源于其多年打拼积攒下的财富。
+她要求美联储明确说明计划何时完成此次情境更新。
 
-在3月出炉的《2026胡润全球富豪榜》中，杨元庆以75亿元的财富再度登榜。
-
-作为联想集团当前的掌舵者，杨元庆曾多次问鼎福布斯中资港股CEO薪酬榜，还一度被外界冠以“最贵CEO”的称号。
-
-在2024/25财年（截至2025年3月31日），杨元庆从联想集团获得的酬金总计达2238.6万美元（折合人民币约1.6亿元）。
-
-不过，其中约1459.8万美元为长期激励奖励。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-30 02:31 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 02:55 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-30 02:45 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 02:40 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 02:57 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 02:51 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 02:47 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 02:36 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 02:37 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 02:43 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 02:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-30 03:03 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 02:45 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 02:36 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 02:42 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 03:01 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 02:54 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 02:57 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 02:42 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 02:36 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 03:05 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/341778.shtml)
-- 2026-06-30 02:51 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/49911.shtml)
-- 2026-06-30 02:32 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/7233881462.shtml)
-- 2026-06-30 02:39 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/7750793214.shtml)
-- 2026-06-30 02:38 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/4169343.shtml)
-- 2026-06-30 02:49 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/93345560.shtml)
-- 2026-06-30 02:56 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/348705549724.shtml)
-- 2026-06-30 02:35 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/1235519519.shtml)
-- 2026-06-30 02:53 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/294368289.shtml)
-- 2026-06-30 02:42 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/3847324.shtml)
-- 2026-06-30 02:45 - [《贺子珍》](https://www.share.minike.top/Article/details/0887961.shtml)
-- 2026-06-30 02:45 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/30106707120.shtml)
-- 2026-06-30 02:47 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/67836657198.shtml)
-- 2026-06-30 02:38 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/2534410842.shtml)
-- 2026-06-30 02:52 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/56315213.shtml)
+- 2026-06-30 02:57 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/124692622.shtml)
+- 2026-06-30 02:53 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/201979658442.shtml)
+- 2026-06-30 02:37 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/2445540.shtml)
+- 2026-06-30 02:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/73150.shtml)
+- 2026-06-30 02:40 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/7469764474.shtml)
+- 2026-06-30 03:04 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/1345071.shtml)
+- 2026-06-30 02:43 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/032336.shtml)
+- 2026-06-30 02:54 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/179709373.shtml)
+- 2026-06-30 02:44 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/522645.shtml)
+- 2026-06-30 02:38 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/77038456746.shtml)
+- 2026-06-30 02:37 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/1460156144.shtml)
+- 2026-06-30 03:01 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/03446202.shtml)
+- 2026-06-30 02:59 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/839692316.shtml)
+- 2026-06-30 02:42 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/95666376771.shtml)
+- 2026-06-30 02:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/50562111.shtml)

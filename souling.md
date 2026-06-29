@@ -1,56 +1,58 @@
-# 油价暴跌，金价反弹
+# 广西力保柳州地震灾区生活必需品充足价稳
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-当地时间4月7日，美股收盘涨跌不一，道指跌0.18%，纳指涨0.10%，标普涨0.08%。盘后期指大幅拉升，道指期货涨1.69%，纳指100期货涨2.00%。 国际油价暴跌：WTI原油跌13.10%报98.15美元，布油跌5.78%报103.42美元。 贵金属大涨：现货黄金涨2.43%报4815.48美元，现货白银涨4.93%报76.535美元。 消息面上，特朗普宣布应巴基斯坦
+中新网南宁5月20日电 (林浩 韦佳秀)5月20日，广西壮族自治区商务厅介绍，柳州市柳南区“地震+暴雨”双重灾情发生后，广西第一时间启动生活必需品市场应急保供机制，通过精准施策、联保联供，保障柳州市生活必需品供应充足、价格平稳、市场秩序良好。5月18日以来，受多次地震与局部强降雨叠加影响，柳州市柳南区受灾。广西立即成立专项保供工作专班，搭建区、市、县三级上下联动、跨市区域协同的
 
 ## 正文
 
-当地时间4月7日，美股收盘涨跌不一，道指跌0.18%，纳指涨0.10%，标普涨0.08%。
+中新网南宁5月20日电 (林浩 韦佳秀)5月20日，广西壮族自治区商务厅介绍，柳州市柳南区“地震+暴雨”双重灾情发生后，广西第一时间启动生活必需品市场应急保供机制，通过精准施策、联保联供，保障柳州市生活必需品供应充足、价格平稳、市场秩序良好。
 
-盘后期指大幅拉升，道指期货涨1.69%，纳指100期货涨2.00%。
+5月18日以来，受多次地震与局部强降雨叠加影响，柳州市柳南区受灾。
 
-国际油价暴跌：WTI原油跌13.10%报98.15美元，布油跌5.78%报103.42美元。
+广西立即成立专项保供工作专班，搭建区、市、县三级上下联动、跨市区域协同的应急保供格局。
 
-贵金属大涨：现货黄金涨2.43%报4815.48美元，现货白银涨4.93%报76.535美元。
+同时，广西商务厅派出工作组下沉柳州一线指导工作，会同柳州市商务部门执行24小时应急值守和日监测、日报告制度，同步开展商业系统灾情统计摸排，保障商业网点“稳而有序”，确保各项应急举措落地落实。
 
-消息面上，特朗普宣布应巴基斯坦请求暂缓对伊朗军事打击，提出“双向停火”两周，称伊朗十点建议可作为谈判基础，市场对中东能源供应担忧大幅缓解。
+依托自治区、市、县三级生活必需品保供体系，广西激活生活必需品联保联供机制，联动945家重点保供企业增加备货量，提升米面粮油、肉菜蛋奶、饮用水、方便食品等刚需商品备货量，前置储备应急物资。
 
-(中新网微信公众号)
+广西同步统筹南宁、桂林、玉林等周边城市货源，随时做好应急支援准备。
+
+当前，柳州生活必需品库存充裕，可满足民众日常及应急需求。
+
+其中大米库存可保障53天供应、食用油可保障30天供应、瓶装矿泉水可保障57天供应，肉类、蔬菜等生鲜品类库存充足，且可实现全天候动态补货。
 
 ## 相关推荐
 
-- 2026-06-30 02:59 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 02:46 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 02:58 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 02:42 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 02:45 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 02:54 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 02:37 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 02:46 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 02:50 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 02:56 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 02:41 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 02:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 02:38 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 02:52 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 02:52 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 02:41 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-30 03:02 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 02:51 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 02:53 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 02:47 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 03:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 02:46 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 03:04 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 02:46 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 02:53 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 03:00 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:46 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/500394790382.shtml)
-- 2026-06-30 02:30 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/0948747530.shtml)
-- 2026-06-30 02:57 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/4506906.shtml)
-- 2026-06-30 02:44 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/48741.shtml)
-- 2026-06-30 02:33 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/452601.shtml)
-- 2026-06-30 02:51 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/5231277382.shtml)
-- 2026-06-30 02:37 - [刘念回应](http://www.share.kurohicncr.top/Article/details/727397476566.shtml)
-- 2026-06-30 02:43 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/0542222.shtml)
-- 2026-06-30 02:37 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/525544752.shtml)
-- 2026-06-30 02:34 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/69688600707.shtml)
-- 2026-06-30 02:41 - [沉睡花园](https://www.blog.minike.top/Article/details/08037061695.shtml)
-- 2026-06-30 02:44 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/762436201.shtml)
-- 2026-06-30 02:56 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/762363303.shtml)
-- 2026-06-30 02:48 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/03986.shtml)
-- 2026-06-30 02:30 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/78924095770.shtml)
+- 2026-06-30 02:42 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/3290884.shtml)
+- 2026-06-30 03:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/0845095789.shtml)
+- 2026-06-30 02:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/75412.shtml)
+- 2026-06-30 03:04 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/84437.shtml)
+- 2026-06-30 02:52 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/1130083753.shtml)
+- 2026-06-30 02:44 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/73044.shtml)
+- 2026-06-30 02:41 - [毒液2](http://www.share.kurohicncr.top/Article/details/996665560.shtml)
+- 2026-06-30 02:45 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/7960660.shtml)
+- 2026-06-30 02:39 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/880203572.shtml)
+- 2026-06-30 03:00 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/2663017.shtml)
+- 2026-06-30 02:39 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/941258017.shtml)
+- 2026-06-30 02:37 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/47126.shtml)
+- 2026-06-30 02:50 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/59607360950.shtml)
+- 2026-06-30 02:39 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/931324358.shtml)
+- 2026-06-30 02:50 - [乔家的儿女](http://www.blog.minike.top/Article/details/75278.shtml)

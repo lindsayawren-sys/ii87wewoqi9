@@ -1,61 +1,61 @@
-# 美国原油价格上涨，特朗普在最后期限前对伊朗发出严厉威胁
+# 广西完成首个5G-A技术海域超远覆盖技术测试
 
-> 更新时间：2026-06-30 03:00:02 UTC+8
+> 更新时间：2026-06-30 03:06:02 UTC+8
 
 ## 摘要
 
-油价周二上涨，此前美国总统唐纳德·特朗普在其设定的霍尔木兹海峡重新开放的最后期限前对伊朗发出了严厉的威胁。 截至美国东部时间上午8：19，美国原油价格上涨约2%，至每桶114.81美元。国际基准布伦特原油6月期货合约价格小幅上涨，至每桶110.50美元。 特朗普在社交媒体上发帖称：“整个文明将在今晚消亡，再也无法恢复。我不希望这种情况发生，但很可能会。” 特朗普表示：“然而，既
+中新网北海5月19日电(张广权 韦啸嵩 张馨予)中国电信广西公司近日携手中兴通讯，在北部湾海域成功完成广西首个基于3.5G+2.1G频段的5G-A技术海域超远覆盖与智能化网络保障技术测试。本次试点通过多项创新技术组合，实现了海域通信从“近海通”到“远海优”的跨越。 北海作为北部湾经济区核心与“向海经济”枢纽，海域经济活动涵盖远洋渔业、海上风电、海事监管、海洋旅游等多个场景。随着
 
 ## 正文
 
-油价周二上涨，此前美国总统唐纳德·特朗普在其设定的霍尔木兹海峡重新开放的最后期限前对伊朗发出了严厉的威胁。
+中新网北海5月19日电(张广权 韦啸嵩 张馨予)中国电信广西公司近日携手中兴通讯，在北部湾海域成功完成广西首个基于3.5G+2.1G频段的5G-A技术海域超远覆盖与智能化网络保障技术测试。
 
-截至美国东部时间上午8：19，美国原油价格上涨约2%，至每桶114.81美元。
+本次试点通过多项创新技术组合，实现了海域通信从“近海通”到“远海优”的跨越。
 
-国际基准布伦特原油6月期货合约价格小幅上涨，至每桶110.50美元。
+北海作为北部湾经济区核心与“向海经济”枢纽，海域经济活动涵盖远洋渔业、海上风电、海事监管、海洋旅游等多个场景。
 
-特朗普在社交媒体上发帖称：“整个文明将在今晚消亡，再也无法恢复。
+随着数字化转型深入，海上通信需求已从单一语音通话，升级为对高带宽、低时延的多元化业务需求。
 
-我不希望这种情况发生，但很可能会。
+针对海域通信长期存在的信号衰减快、业务需求多样、运维成本高等挑战，本次试点取得关键突破。
 
-” 特朗普表示：“然而，既然我们实现了彻底、完全的政权更迭，由不同、更聪明、不那么激进的思维主导，也许会发生某种革命性的奇妙事情。
+一方面，通过攻克“超远覆盖”难题，网络有效跨越了传统基站的覆盖局限，将优质信号稳定延伸至深远海；另一方面，通过构建“智能化业务差异化保障”能力，使网络得以精准识别并动态满足各类业务的独特需求，做到了“按需供网、精准保网”。
 
-谁知道呢？
+本次试点在北海海域创新部署了包括DGN、智算单板、2.1GHz16TR设备和载波聚合等多项5G-A关键技术，通过在基站侧引入AI智能算力，网络可毫秒级识别各类业务，优先保障视频直播等重点应用。
 
-” 周一，特朗普重申了他的威胁，即如果德黑兰不在美国东部时间周二晚8点之前重新开放霍尔木兹海峡，美国将摧毁伊朗的发电厂和桥梁，同时他也表示伊朗领导层正在认真谈判。
+同时，利用低频段传播距离远的特性，结合高性能天线，实现了超远距离高质量覆盖。
 
 ## 相关推荐
 
-- 2026-06-30 02:55 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 02:32 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 02:51 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 02:32 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 02:32 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 02:40 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 02:49 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-30 02:39 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 02:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 02:30 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 02:38 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 02:33 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 02:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 02:53 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 02:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 02:52 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 02:39 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 02:44 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 02:43 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 02:52 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 02:40 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 02:37 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 02:39 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 03:03 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 03:01 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 02:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 02:41 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 02:51 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 02:42 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 02:50 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:47 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/023299.shtml)
-- 2026-06-30 02:42 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/20072.shtml)
-- 2026-06-30 02:39 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/10894.shtml)
-- 2026-06-30 02:43 - [沙丘](https://www.share.minike.top/Article/details/917057709424.shtml)
-- 2026-06-30 02:54 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/3363169169.shtml)
-- 2026-06-30 02:55 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/038762.shtml)
-- 2026-06-30 02:38 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/52872184.shtml)
-- 2026-06-30 02:56 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/976676365410.shtml)
-- 2026-06-30 02:35 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/958313695930.shtml)
-- 2026-06-30 02:35 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/3161696170.shtml)
-- 2026-06-30 02:38 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/61562641510.shtml)
-- 2026-06-30 02:59 - [小娘惹](http://www.share.minike.top/Article/details/51517065669.shtml)
-- 2026-06-30 02:51 - [乔家的儿女](http://www.blog.minike.top/Article/details/399637197.shtml)
-- 2026-06-30 02:43 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/68719822565.shtml)
-- 2026-06-30 02:51 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/012551.shtml)
+- 2026-06-30 02:48 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/956791980.shtml)
+- 2026-06-30 02:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/775821849.shtml)
+- 2026-06-30 02:38 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/17574.shtml)
+- 2026-06-30 02:53 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/510143859338.shtml)
+- 2026-06-30 02:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/80966.shtml)
+- 2026-06-30 02:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/258675.shtml)
+- 2026-06-30 02:51 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/7612538591.shtml)
+- 2026-06-30 02:48 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/42317687.shtml)
+- 2026-06-30 02:47 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/473676949.shtml)
+- 2026-06-30 02:47 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/71687610747.shtml)
+- 2026-06-30 02:52 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/96409.shtml)
+- 2026-06-30 02:58 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/224849.shtml)
+- 2026-06-30 02:53 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/362408406.shtml)
+- 2026-06-30 03:04 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/967526314.shtml)
+- 2026-06-30 03:01 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/388389193638.shtml)
