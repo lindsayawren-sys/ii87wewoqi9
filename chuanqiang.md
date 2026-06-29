@@ -1,57 +1,61 @@
-# 央行：4月末社会融资规模存量为456.89万亿元，同比增长7.8%
+# 华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-2026年4月金融统计数据报告 一、社会融资规模存量同比增长7.8% 初步统计，2026年4月末社会融资规模存量为456.89万亿元，同比增长7.8%。其中，对实体经济发放的人民币贷款余额276.9万亿元，同比增长5.6%；对实体经济发放的外币贷款折合人民币余额1.13万亿元，同比下降3.8%；委托贷款余额11.23万亿元，同比下降0.1%；信托贷款余额4.67万亿元，同比增长
+发布时间：2026年05月04日 09:15 来源：中国新闻网 2008年，北京奥运会的圣火点燃了无数人的梦想，也在一位马来西亚小女孩的心中埋下了种子——去中国留学。2023年，她如愿来到中国，在北京体育大学开启了留学生活。 她叫尤韦立，是一名马来西亚华裔青年。谈起在中国的生活，她说：“中国很大，要慢慢走慢慢看。”学习之余，她走遍中国多个城市，在旅途中感受着中国的多元风貌。品尝
 
 ## 正文
 
-2026年4月金融统计数据报告 一、社会融资规模存量同比增长7.8% 初步统计，2026年4月末社会融资规模存量为456.89万亿元，同比增长7.8%。
+发布时间：2026年05月04日 09:15 来源：中国新闻网 2008年，北京奥运会的圣火点燃了无数人的梦想，也在一位马来西亚小女孩的心中埋下了种子——去中国留学。
 
-其中，对实体经济发放的人民币贷款余额276.9万亿元，同比增长5.6%；对实体经济发放的外币贷款折合人民币余额1.13万亿元，同比下降3.8%；委托贷款余额11.23万亿元，同比下降0.1%；信托贷款余额4.67万亿元，同比增长7.4%；未贴现的银行承兑汇票余额2.2万亿元，同比下降7.9%；企业债券余额35.52万亿元，同比增长8.3%；政府债券余额99.37万亿元，同比增长15.6%；非金融企业境内股票余额12.4万亿元，同比增长4.6%。
+2023年，她如愿来到中国，在北京体育大学开启了留学生活。
 
-从结构看，4月末对实体经济发放的人民币贷款余额占同期社会融资规模存量的60.6%，同比低1.3个百分点；对实体经济发放的外币贷款折合人民币余额占比0.2%，同比低0.1个百分点；委托贷款余额占比2.5%，同比低0.2个百分点；信托贷款余额占比1%，同比持平；未贴现的银行承兑汇票余额占比0.5%，同比低0.1个百分点；企业债券余额占比7.8%，同比高0.1个百分点；政府债券余额占比21.7%，同比高1.4个百分点；非金融企业境内股票余额占比2.7%，同比低0.1个百分点。
+她叫尤韦立，是一名马来西亚华裔青年。
 
-二、前四个月社会融资规模增量累计为15.45万亿元 初步统计，2026年前四个月社会融资规模增量累计为15.45万亿元，比上年同期少8930亿元。
+谈起在中国的生活，她说：“中国很大，要慢慢走慢慢看。
 
-其中，对实体经济发放的人民币贷款增加8.5万亿元，同比少增1.29万亿元；对实体经济发放的外币贷款折合人民币增加1036亿元，同比多增2134亿元；委托贷款减少941亿元，同比多减994亿元；信托贷款增加3亿元，同比少增451亿元；未贴现的银行承兑汇票增加513亿元，同比少增1992亿元；企业债券净融资1.5万亿元，同比多7393亿元；政府债券净融资4.45万亿元，同比少3990亿元；非金融企业境内股票融资2008亿元，同比多655亿元。
+”学习之余，她走遍中国多个城市，在旅途中感受着中国的多元风貌。
 
-三、广义货币增长8.6% 4月末，广义货币（M2）余额353.04万亿元，同比增长8.6%。
+品尝特色美食、体验旅拍……每一次新鲜的体验，都让她对中国文化有了更深的理解。
 
-狭义货币（M1）余额114.58万亿元，同比增长5%。
+她不禁感慨：“来到中国后，我体验了太多第一次。
 
-流通中货币（M0）余额14.75万亿元，同比增长12.2%。
+” 责任编辑：【韦俊龙】
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:26 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:48 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:35 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:38 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:23 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:25 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:43 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:28 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:44 - [云南边境的目瑙纵歌，何以火爆全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:41 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:33 - [重庆新开往返菲律宾马尼拉客运航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:38 - [新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:45 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:39 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:40 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:33 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:36 - [体验多元！“影视+文旅”点亮“五一”假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:30 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:26 - [三星电子任命新的视觉显示业务负责人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:32 - [朝鲜外务省：美国炒作朝鲜“网络威胁”是无稽之谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:19 - [韩国特检组就金建希首案二审结果提出抗诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:38 - [阿贝尔谈及自己与阿吉特・贾恩的继任规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:45 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [张一山说杨紫早该拿奖了](http://www.blog.kurohicncr.top/Article/details/85461607.shtml)
-- 2026-06-29 11:45 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/865918665.shtml)
-- 2026-06-29 11:44 - [王祖蓝现场观看美加墨世界杯](https://www.share.minike.top/Article/details/18957.shtml)
-- 2026-06-29 11:44 - [日本和澳大利亚能代表亚洲足球走多远](http://www.share.minike.top/Article/details/7314731586.shtml)
-- 2026-06-29 11:44 - [普京：俄面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/55922.shtml)
-- 2026-06-29 11:27 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/235546.shtml)
-- 2026-06-29 11:30 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/5848757767.shtml)
-- 2026-06-29 11:28 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/3095498734.shtml)
-- 2026-06-29 11:42 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/59609795573.shtml)
-- 2026-06-29 11:23 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/723850861289.shtml)
-- 2026-06-29 11:27 - [男子吃半根变苦黄瓜致肝衰竭](http://www.share.minike.top/Article/details/83800448.shtml)
-- 2026-06-29 11:39 - [香港航天员黎家盈带招牌笑容工作](https://www.share.minike.top/Article/details/21274191.shtml)
-- 2026-06-29 11:25 - [下飞机后，我做了个很蠢的决定......](http://www.share.minike.top/Article/details/12198106.shtml)
-- 2026-06-29 11:38 - [男子吃半根变苦黄瓜致肝衰竭](http://www.blog.minike.top/Article/details/32476652705.shtml)
-- 2026-06-29 11:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/02430978775.shtml)
+- 2026-06-29 11:30 - [可孚医疗：发售价厘定为每股H股39.33港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [数万日本民众举行集会 呼吁守护和平宪法](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [在香港沉浸式“邂逅”蒙娜丽莎](http://www.share.minike.top/Article/details/49722.shtml)
+- 2026-06-29 11:38 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](http://www.blog.minike.top/Article/details/806517644896.shtml)
+- 2026-06-29 11:30 - [中国奥园委聘毕马威咨询(香港)为财务顾问](http://www.blog.kurohicncr.top/Article/details/471100314.shtml)
+- 2026-06-29 11:30 - [首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕](http://www.blog.minike.top/Article/details/836182.shtml)
+- 2026-06-29 11:33 - [欧洲央行维持存款利率在2.00%不变 符合预期](http://www.blog.kurohicncr.top/Article/details/867256478303.shtml)
+- 2026-06-29 11:28 - [暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨](http://www.blog.minike.top/Article/details/968412.shtml)
+- 2026-06-29 11:34 - [5月4日中国跨区域人员流动量预计超2.9亿人次](http://www.blog.kurohicncr.top/Article/details/21866330.shtml)
+- 2026-06-29 11:42 - [内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%](http://www.blog.minike.top/Article/details/17489.shtml)
+- 2026-06-29 11:26 - [东西问丨杜方绥：中国文学何以打动世界读者？](http://www.share.kurohicncr.top/Article/details/554353.shtml)
+- 2026-06-29 11:21 - [东京通胀进一步降温 支撑日本央行加息谨慎立场](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [亚马逊AWS营收增长28%，达到376亿美元](http://www.share.minike.top/Article/details/91408037.shtml)
+- 2026-06-29 11:22 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](http://www.share.minike.top/Article/details/6829790.shtml)
+- 2026-06-29 11:27 - [刚刚，利好来了！上海，重磅出手！](http://www.share.minike.top/Article/details/0173812034.shtml)

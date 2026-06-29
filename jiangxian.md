@@ -1,45 +1,58 @@
-# 5月14日隔夜要闻：英伟达连涨6日 纳指标普再创新高 油价走低 思科领英将裁员 美联储柯林斯暗示加息可能性
+# 全美自动驾驶出租车行业迎来爆发式增长
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-市场 5月14日收盘：道指小幅收跌 纳指与标普500指数再创新高 5月14日美股成交额前20：美光市值突破9000亿美元 5月14日热门中概股多数上涨 金山云涨17.05%，阿里巴巴涨8.18% 大宗商品综述：油价走低 铜价延续涨势 金价下跌 原油：油价震荡回落 市场保持观望 欧洲股市反弹 默克和阿斯麦股价上涨带动 宏观 美国参议院以54票对45票批准沃什出任美联储主席 美联储
+谷歌旗下 Waymo、特斯拉及其他五家无人驾驶出租车企业，正争相在美国数十座城市落地运营服务 内容速览 自动驾驶出租车正在美国各大城市快速扩张；摩根士丹利预估，三年内全美半数人口将可使用自动驾驶网约车服务。 历经近十年的热度炒作、行业遇冷再到再度回暖，自动驾驶出租车如今开始在美国越来越多的城市上路运营。 目前，Waymo、特斯拉、Zoox 以及一众知名度较低的无人驾驶企业，已在
 
 ## 正文
 
-市场 5月14日收盘：道指小幅收跌 纳指与标普500指数再创新高 5月14日美股成交额前20：美光市值突破9000亿美元 5月14日热门中概股多数上涨 金山云涨17.05%，阿里巴巴涨8.18% 大宗商品综述：油价走低 铜价延续涨势 金价下跌 原油：油价震荡回落 市场保持观望 欧洲股市反弹 默克和阿斯麦股价上涨带动 宏观 美国参议院以54票对45票批准沃什出任美联储主席 美联储调查显示高物价困扰多数美国人 就业焦虑上升 美联储报告：美国黑人群体与年轻人财务健康状况明显下滑 伊朗外长谴责内塔尼亚胡访问阿联酋 阿联酋否认以色列总理内塔尼亚胡访问该国 以色列总理证实对伊朗军事行动期间秘访阿联酋 加拿大法院叫停阿尔伯塔省分离主义者公投努力 英国监管机构敦促私募信贷机构分享更多数据 普京签署命令 更换俄乌边境两州州长 欧盟召开紧急会议 协调应对汉坦病毒疫情 公
+谷歌旗下 Waymo、特斯拉及其他五家无人驾驶出租车企业，正争相在美国数十座城市落地运营服务 内容速览 自动驾驶出租车正在美国各大城市快速扩张；摩根士丹利预估，三年内全美半数人口将可使用自动驾驶网约车服务。
+
+历经近十年的热度炒作、行业遇冷再到再度回暖，自动驾驶出租车如今开始在美国越来越多的城市上路运营。
+
+目前，Waymo、特斯拉、Zoox 以及一众知名度较低的无人驾驶企业，已在加州、得克萨斯州及多个其他州的街头投入自动驾驶车辆运行。
+
+2010 年代行业热潮催生了数十家备受追捧的初创企业，纷纷宣称将颠覆私人购车模式。
+
+但自动驾驶技术研发成本高昂、复杂城区路况的自动驾驶技术难题、以及严苛的监管环境，导致大量初创公司倒闭。
+
+多起重大安全事故，也让无人驾驶车辆的安全性受到愈发严格的审视。
+
+摩根士丹利预测，未来三年内，约半数美国民众将能够使用自动驾驶出租车服务。
+
+机构估算，美国自动驾驶出行订单将迎来快速增长：2025 年约 1500 万单，今年将增至约 3600 万单；到 2030 年，出行规模预计将接近7.5 亿单。
 
 ## 相关推荐
 
-- 2026-06-29 11:33 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:47 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:35 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:30 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:22 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:23 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:21 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:47 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:34 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:33 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:22 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:23 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:35 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:25 - [厦门推动两岸标准共通助力台企拓宽市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:43 - [今年以来广西爱店口岸跨境贸易持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:26 - [亚马逊Audible李博隆：AI让研发成本和机会成本大大下降，越来越多科技公司开始做跨界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:39 - [深度伪造的“虚拟”沃伦·巴菲特开启伯克希尔年度股东大会问答环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:43 - [110对新人军营大婚：戎装白纱共绘“家国浪漫”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:32 - [成都铁路迎“五一”假期客流高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:26 - [最新名单！这些公司锁定退市，多元化出清格局成形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:28 - [长三角铁路5月2日预计发送旅客418万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:47 - [“对你们充满了敬意”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:21 - [云南“五一”假期多地降雪 呈反季冰雪景观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:25 - [江西梅江灌区主体工程全面完工试通水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:35 - [国羽3:0胜日本队挺进尤伯杯决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [强⁶](http://www.blog.minike.top/Article/details/18450951.shtml)
-- 2026-06-29 11:36 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/71586267806.shtml)
-- 2026-06-29 11:38 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/842978.shtml)
-- 2026-06-29 11:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/79900395.shtml)
-- 2026-06-29 11:28 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/47776830.shtml)
-- 2026-06-29 11:19 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/0359535686.shtml)
-- 2026-06-29 11:23 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.blog.minike.top/Article/details/8730766.shtml)
-- 2026-06-29 11:22 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/44030541680.shtml)
-- 2026-06-29 11:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/990665612.shtml)
-- 2026-06-29 11:37 - [神23乘组太空出差满月](https://www.share.minike.top/Article/details/02838172612.shtml)
-- 2026-06-29 11:43 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://www.blog.kurohicncr.top/Article/details/243604.shtml)
-- 2026-06-29 11:24 - [强⁶](https://www.blog.minike.top/Article/details/096220010826.shtml)
-- 2026-06-29 11:43 - [陈垣宇晋级WTT美国大满贯男单32强](http://www.share.kurohicncr.top/Article/details/2568585.shtml)
-- 2026-06-29 11:23 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/440265.shtml)
-- 2026-06-29 11:20 - [巴基斯坦军方打死29名武装分子](https://www.share.kurohicncr.top/Article/details/485125531.shtml)
+- 2026-06-29 11:33 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](http://www.share.minike.top/Article/details/959230797.shtml)
+- 2026-06-29 11:22 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](http://www.blog.kurohicncr.top/Article/details/261551.shtml)
+- 2026-06-29 11:38 - [福州地铁客流连创新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [埃及侨商：持续推动“零关税”红利转化为务实合作](http://www.share.minike.top/Article/details/19418760.shtml)
+- 2026-06-29 11:23 - [“05后”持有人猛增10倍，年轻人涌向AI基金](http://www.share.kurohicncr.top/Article/details/47772537.shtml)
+- 2026-06-29 11:27 - [2026五一档新片票房破9000万](http://www.blog.minike.top/Article/details/801874.shtml)
+- 2026-06-29 11:19 - [美国制造业保持扩张势头 价格指标触及四年高位](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](http://www.blog.kurohicncr.top/Article/details/298202944.shtml)
+- 2026-06-29 11:34 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](http://www.blog.minike.top/Article/details/2072255.shtml)
+- 2026-06-29 11:26 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](http://www.share.minike.top/Article/details/483064.shtml)
+- 2026-06-29 11:34 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](http://www.blog.minike.top/Article/details/3807994.shtml)
+- 2026-06-29 11:42 - [前瞻｜巴菲特谢幕，阿贝尔登场：2026伯克希尔股东大会有何看点？](http://www.blog.kurohicncr.top/Article/details/15751788.shtml)
+- 2026-06-29 11:40 - [墨西哥总统预计Pemex与巴西国家石油公司将达成协议](http://www.share.minike.top/Article/details/8726823.shtml)

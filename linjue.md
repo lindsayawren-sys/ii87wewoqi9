@@ -1,59 +1,57 @@
-# GTC泽汇资本:金市多空因素再度交织
+# 中央气象台：江南华南等地将有强降水及强对流天气
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-5月14日，国际金价近期在4700美元附近反复盘整，市场情绪在通胀韧性与避险需求之间反复切换。GTC泽汇资本表示，美国最新消费者物价指数同比上涨3.8%，通胀粘性明显高于市场此前预期，使得短端利率走高对金价形成阶段性压力，但中东局势的不确定性又同步抬升了避险买盘，整体多空因素相互交织。 影响金价的因素近期出现明显多元化。GTC泽汇资本认为，霍尔木兹海峡的通航问题至今仍未得到根本
+中新网5月2日电 据中央气象台网站消息，昨日，青海、西藏等地出现降雪或雨夹雪，云南、重庆等地出现大雨或暴雨，西北部分地区出现沙尘。预计未来两天，华北、黄淮和南方地区有大范围降水过程，西南地区、江南、华南等局地有雷暴大风等强对流天气。关注雨雪、较强降雨和局地强对流天气对交通、旅游、户外活动等的不利影响。 昨日青海西藏等地出现降雪或雨夹雪 昨日8时至今日6时，青海东部和南部、西藏东
 
 ## 正文
 
-5月14日，国际金价近期在4700美元附近反复盘整，市场情绪在通胀韧性与避险需求之间反复切换。
+中新网5月2日电 据中央气象台网站消息，昨日，青海、西藏等地出现降雪或雨夹雪，云南、重庆等地出现大雨或暴雨，西北部分地区出现沙尘。
 
-GTC泽汇资本表示，美国最新消费者物价指数同比上涨3.8%，通胀粘性明显高于市场此前预期，使得短端利率走高对金价形成阶段性压力，但中东局势的不确定性又同步抬升了避险买盘，整体多空因素相互交织。
+预计未来两天，华北、黄淮和南方地区有大范围降水过程，西南地区、江南、华南等局地有雷暴大风等强对流天气。
 
-影响金价的因素近期出现明显多元化。
+关注雨雪、较强降雨和局地强对流天气对交通、旅游、户外活动等的不利影响。
 
-GTC泽汇资本认为，霍尔木兹海峡的通航问题至今仍未得到根本性解决，国际油价居高不下进一步加剧了通胀的传导路径，市场对中长期实际利率回落的预期开始升温。
+昨日青海西藏等地出现降雪或雨夹雪 昨日8时至今日6时，青海东部和南部、西藏东部和南部、川西高原等地部分地区出现小到中雪或雨夹雪；云南西部和南部、重庆中北部等地部分地区出现大雨或暴雨。
 
-与此同时，多国央行年度购金步伐保持稳健，黄金作为外汇储备多元化工具的战略地位被进一步强化，下方需求支撑日益夯实。
+昨日西北部分地区出现沙尘 昨日8时至今日6时，新疆南部、内蒙古中西部、青海北部、甘肃中西部、宁夏西部等地部分地区出现7～9级阵风，局地10～12级；新疆南部、内蒙古西部、甘肃西部等地部分地区出现扬沙或浮尘天气。
 
-技术形态上观察，金价上方面临4750美元一带阻力，若有效突破，有望打开通往4900乃至5000美元的上行空间；下方关键支撑位于4650至4700美元区间，多空在此反复试探。
+江南华南等地将有强降水及强对流天气 5月2日至3日，中东部地区将有一次大范围降水过程。
 
-短线交易者宜密切关注成交量变化以及收盘价相对关键均线的位置关系，避免追涨杀跌。
+预计，5月2日08时至3日08时，贵州南部、广西北部、湖南南部、江西中部和东北部、安徽南部、浙江西南部、福建西部及四川南部、云南西部等地部分地区有大到暴雨，其中，广西东北部等地局地有大暴雨(100～120毫米)。
 
-展望后市，GTC泽汇资本预计，在地缘冲突未见明显缓和、且美联储政策路径仍存不确定性的背景下，黄金料延续震荡偏强格局。
+上述部分地区伴有短时强降水(最大小时降雨量20～40毫米，局地可超过50毫米)，局地有雷暴大风或冰雹等强对流天气。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:39 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:36 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:37 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:46 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:34 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:36 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:22 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:43 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:44 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:22 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:26 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:36 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:24 - [星火成炬｜生活的想象力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:46 - [厦门推动两岸标准共通助力台企拓宽市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:22 - [今年以来广西爱店口岸跨境贸易持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:19 - [亚马逊Audible李博隆：AI让研发成本和机会成本大大下降，越来越多科技公司开始做跨界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:38 - [深度伪造的“虚拟”沃伦·巴菲特开启伯克希尔年度股东大会问答环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:29 - [110对新人军营大婚：戎装白纱共绘“家国浪漫”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:22 - [成都铁路迎“五一”假期客流高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:28 - [最新名单！这些公司锁定退市，多元化出清格局成形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:35 - [长三角铁路5月2日预计发送旅客418万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:47 - [“对你们充满了敬意”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:36 - [云南“五一”假期多地降雪 呈反季冰雪景观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/08771.shtml)
-- 2026-06-29 11:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/205704998.shtml)
-- 2026-06-29 11:42 - [韩国主帅辞职报告5分钟 双手插兜离场](https://www.share.minike.top/Article/details/3668032.shtml)
-- 2026-06-29 11:32 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/050614275.shtml)
-- 2026-06-29 11:28 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/944366.shtml)
-- 2026-06-29 11:36 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.kurohicncr.top/Article/details/00676.shtml)
-- 2026-06-29 11:21 - [时光音乐会](http://www.blog.minike.top/Article/details/52857856373.shtml)
-- 2026-06-29 11:19 - [女生雨天开车发现雨刮条被掰走](https://www.share.minike.top/Article/details/330081.shtml)
-- 2026-06-29 11:39 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/53230877.shtml)
-- 2026-06-29 11:37 - [韩国主帅辞职报告5分钟 双手插兜离场](http://www.blog.minike.top/Article/details/3778198941.shtml)
-- 2026-06-29 11:38 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/337264.shtml)
-- 2026-06-29 11:33 - [和阿根廷球员家属一起看球](https://www.share.kurohicncr.top/Article/details/66330451.shtml)
-- 2026-06-29 11:18 - [派出所集体KTV招陪侍事发2年未通报](http://www.blog.kurohicncr.top/Article/details/03841.shtml)
-- 2026-06-29 11:19 - [曝韩国球员目睹出局时正吃饭](https://www.share.minike.top/Article/details/54007085.shtml)
-- 2026-06-29 11:20 - [《昨夜将至》为何是悬疑黑马](http://www.share.minike.top/Article/details/03264.shtml)
+- 2026-06-29 11:37 - [远东国际观察：日本国会参议院通过2026财年预算案](http://www.blog.kurohicncr.top/Article/details/0327411919.shtml)
+- 2026-06-29 11:47 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](http://www.share.minike.top/Article/details/674651532616.shtml)
+- 2026-06-29 11:40 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [福州地铁客流连创新高](http://www.share.kurohicncr.top/Article/details/2884029852.shtml)
+- 2026-06-29 11:46 - [埃及侨商：持续推动“零关税”红利转化为务实合作](http://www.blog.kurohicncr.top/Article/details/833127338.shtml)
+- 2026-06-29 11:35 - [“05后”持有人猛增10倍，年轻人涌向AI基金](http://www.blog.minike.top/Article/details/136466.shtml)
+- 2026-06-29 11:24 - [2026五一档新片票房破9000万](http://www.share.minike.top/Article/details/583335565.shtml)
+- 2026-06-29 11:45 - [美国制造业保持扩张势头 价格指标触及四年高位](http://www.blog.minike.top/Article/details/46834661317.shtml)
+- 2026-06-29 11:31 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](http://www.blog.kurohicncr.top/Article/details/577212.shtml)
+- 2026-06-29 11:26 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](http://www.blog.minike.top/Article/details/9779337399.shtml)
+- 2026-06-29 11:36 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](http://www.blog.kurohicncr.top/Article/details/813529063.shtml)
+- 2026-06-29 11:38 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](http://www.blog.minike.top/Article/details/22411919.shtml)
+- 2026-06-29 11:46 - [前瞻｜巴菲特谢幕，阿贝尔登场：2026伯克希尔股东大会有何看点？](http://www.blog.kurohicncr.top/Article/details/255482115401.shtml)

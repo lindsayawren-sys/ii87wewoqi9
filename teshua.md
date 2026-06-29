@@ -1,58 +1,57 @@
-# 民建传薪火 履职育新人
+# 埃克森美孚与雪佛龙无视特朗普政府增产呼吁
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-编者按：今年是开展“参政为公、实干为民”主题教育之年，也是沧州民建成立40周年。为引导激励全市各级民建组织和广大会员不忘初心使命，赓续优良传统，勇担时代使命，民建沧州市委在微信公众号推出“庆祝沧州民建成立40周年”征文活动，讲述民建故事，感受民建精神，凝聚奋进力量！征文活动得到广大会员的积极响应，微信公众号将陆续精选来稿刊登。岁月鎏金，薪火相传。今年是沧州民建成立40周年，作为
+埃克森美孚和雪佛龙拒绝了白宫提出的增产要求，顶住了来自特朗普政府的压力。 当前，美国政府正疲于应对数十年来最严重的能源危机。 埃克森美孚首席财务官尼尔·汉森表示，该公司在美国主要油气产区二叠纪盆地的战略“没有变化”。 雪佛龙首席财务官艾梅尔·邦纳则表示，“这场危机并未促使我们的任何计划发生改变”。 伊朗战争导致海湾地区石油产量锐减，并对中东及其他地区的炼油业务造成冲击，引发了一
 
 ## 正文
 
-编者按：今年是开展“参政为公、实干为民”主题教育之年，也是沧州民建成立40周年。
+埃克森美孚和雪佛龙拒绝了白宫提出的增产要求，顶住了来自特朗普政府的压力。
 
-为引导激励全市各级民建组织和广大会员不忘初心使命，赓续优良传统，勇担时代使命，民建沧州市委在微信公众号推出“庆祝沧州民建成立40周年”征文活动，讲述民建故事，感受民建精神，凝聚奋进力量！
+当前，美国政府正疲于应对数十年来最严重的能源危机。
 
-征文活动得到广大会员的积极响应，微信公众号将陆续精选来稿刊登。
+埃克森美孚首席财务官尼尔·汉森表示，该公司在美国主要油气产区二叠纪盆地的战略“没有变化”。
 
-岁月鎏金，薪火相传。
+雪佛龙首席财务官艾梅尔·邦纳则表示，“这场危机并未促使我们的任何计划发生改变”。
 
-今年是沧州民建成立40周年，作为一名教育一线的民建会员，我有幸在三尺讲台深耕育人初心，在参政议政路上践行民建使命，让教育的温度与履职的担当相融共生，在时代浪潮中书写属于教育工作者的民建会员答卷。
+伊朗战争导致海湾地区石油产量锐减，并对中东及其他地区的炼油业务造成冲击，引发了一场可能加剧全球通胀的能源冲击。
 
-初识民建，是对“爱国、民主、建设、团结、创新、奉献”价值观的深切认同。
+周四，油价升至每桶126美元，为战争爆发以来的最高水平。
 
-民建始终坚持高举爱国主义旗帜，坚持中国共产党的领导，与党同心、与党同行，在国家发展、社会进步的进程中主动担当、积极作为，尤其在教育、民生等领域的建言献策，让我看到了民建的责任与情怀。
+与此同时，美国汽油价格飙升至每加仑4美元以上，这打破了总统特朗普在竞选时作出的将油价降至2美元以下、降低美国人生活成本的承诺。
 
-那时的我，已在教育岗位上耕耘数载，目睹着教育事业的蓬勃发展，也见证着基层教育中存在的痛点难点——青少年心理健康护航不足、职业教育与市场需求脱节等问题，始终萦绕在我心头。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:36 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:34 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:47 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:38 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:44 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:19 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:18 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:38 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:22 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:32 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:20 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:20 - [一觉醒来，美国对欧洲下狠手了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:38 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:45 - [学习新语｜幸福属于劳动者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:24 - [刚刚，全线大涨！日本，突然动手了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:37 - [“五一”假期，中国游中国购的引力“藏不住了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:24 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:31 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:24 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:33 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:35 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:30 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:38 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/226468465141.shtml)
-- 2026-06-29 11:34 - [薛之谦演唱会](https://www.blog.minike.top/Article/details/4219627203.shtml)
-- 2026-06-29 11:42 - [欧洲热死人不是开玩笑](https://www.share.minike.top/Article/details/49918.shtml)
-- 2026-06-29 11:39 - [换个角度打开世界杯淘汰赛](http://www.share.minike.top/Article/details/29903.shtml)
-- 2026-06-29 11:27 - [我们注定是一撮县城葱姜蒜](https://www.share.minike.top/Article/details/506259377.shtml)
-- 2026-06-29 11:46 - [虞书欣灿如繁星明天定档](https://www.share.kurohicncr.top/Article/details/222922.shtml)
-- 2026-06-29 11:43 - [球迷玩人浪手机飞了](https://www.share.minike.top/Article/details/11702925.shtml)
-- 2026-06-29 11:19 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/981268228.shtml)
-- 2026-06-29 11:23 - [金刚川](https://www.blog.kurohicncr.top/Article/details/088304144.shtml)
-- 2026-06-29 11:33 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/485052.shtml)
-- 2026-06-29 11:29 - [球迷玩人浪手机飞了](https://www.share.minike.top/Article/details/3027604.shtml)
-- 2026-06-29 11:19 - [中气爱：吐鲁番快50度了](http://www.blog.minike.top/Article/details/7096362.shtml)
-- 2026-06-29 11:28 - [欧洲已有超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/93662898228.shtml)
-- 2026-06-29 11:29 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/961843.shtml)
-- 2026-06-29 11:39 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.share.minike.top/Article/details/9513838509.shtml)
+- 2026-06-29 11:32 - [漳汕高铁广东段山家特大桥首梁架设](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [“金融国家队”为何选中了他们](http://www.blog.kurohicncr.top/Article/details/490315.shtml)
+- 2026-06-29 11:41 - [ASMPT早盘高开逾4% 建银国际将目标价上调至190港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [“五一”假期首日广东水上出行迎来客流高峰](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [关于开展2026年企业ESG实践成果展示活动的通知](http://www.share.minike.top/Article/details/9542497233.shtml)
+- 2026-06-29 11:36 - [干预数小时后 日元兑美元汇率大幅上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [“苏超”南京赛区志愿者暖心护航 宁马青年聚力绽放青春力量](http://www.share.kurohicncr.top/Article/details/489069225.shtml)
+- 2026-06-29 11:19 - [刀为笔、木为纸 木版年画比赛展非遗魅力](http://www.blog.minike.top/Article/details/966585.shtml)
+- 2026-06-29 11:36 - [福建首个侨台档案融合展示馆开门迎客](http://www.blog.minike.top/Article/details/07175.shtml)
+- 2026-06-29 11:47 - [AI浪潮里的“模速青年”：勇敢追梦，让年轻有“模”有样](http://www.share.kurohicncr.top/Article/details/126999.shtml)
+- 2026-06-29 11:28 - [巴西国家石油公司宣布航空煤油提价18%](http://www.share.kurohicncr.top/Article/details/375762180285.shtml)
+- 2026-06-29 11:36 - [马里一军营被武装组织控制 首都周边交通受阻](http://www.blog.minike.top/Article/details/4849454301.shtml)
+- 2026-06-29 11:27 - [伯克希尔一季度利润翻倍以上 保险、铁路、能源业务提振业绩](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [Vulcan Materials一季度营收超预期 因建材需求强劲](http://www.blog.kurohicncr.top/Article/details/21759.shtml)
+- 2026-06-29 11:37 - [巴菲特：当前并非伯克希尔理想的投资环境](http://www.share.kurohicncr.top/Article/details/9026583290.shtml)

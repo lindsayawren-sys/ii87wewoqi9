@@ -1,57 +1,54 @@
-# 创想三维上市前夜：冲击高端“增收不增利”，从领跑者沦为追赶者
+# 美国对5家中企实施涉伊朗石油制裁措施 中方发布阻断禁令
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-来源：国际金融报 由A转港、二度递表的创想三维，近期在资本市场迎来了好消息。据港交所披露，这一全球消费级3D打印赛道的头部玩家，已正式通过港交所聆讯。有市场消息称，公司预计将于5月登陆港交所。若顺利挂牌，创想三维届时将成为“消费级3D打印第一股”。 过去几年，消费级3D打印产业从“小众”走向“大众”，市场规模与渗透率双双突破。公开数据显示，2025年“双十一”期间，京东与天猫两
+中新社北京5月2日电 (记者 尹倩芸)中国商务部2日发布公告，公布关于美国对5家中国企业实施涉伊朗石油制裁措施的阻断禁令。 商务部新闻发言人当日表示，2025年以来，美国根据其制裁其他国家的行政令，以参与伊朗石油交易为由，将恒力石化(大连)炼化有限公司、山东寿光鲁清石化有限公司、山东金诚石化集团有限公司、河北鑫海化工集团有限公司、山东胜星化工有限公司等中国企业列入“特别指定国民
 
 ## 正文
 
-来源：国际金融报 由A转港、二度递表的创想三维，近期在资本市场迎来了好消息。
+中新社北京5月2日电 (记者 尹倩芸)中国商务部2日发布公告，公布关于美国对5家中国企业实施涉伊朗石油制裁措施的阻断禁令。
 
-据港交所披露，这一全球消费级3D打印赛道的头部玩家，已正式通过港交所聆讯。
+商务部新闻发言人当日表示，2025年以来，美国根据其制裁其他国家的行政令，以参与伊朗石油交易为由，将恒力石化(大连)炼化有限公司、山东寿光鲁清石化有限公司、山东金诚石化集团有限公司、河北鑫海化工集团有限公司、山东胜星化工有限公司等中国企业列入“特别指定国民清单”(SDN清单)、实施冻结资产和禁止交易等制裁措施，不当禁止或限制中国企业与第三国(地区)及其公民、法人或其他组织开展正常的经贸及相关活动，违反国际法和国际关系基本准则。
 
-有市场消息称，公司预计将于5月登陆港交所。
+发言人称，为维护国家主权、安全、发展利益，保护中国公民、法人或其他组织的合法权益，根据《阻断外国法律与措施不当域外适用办法》和有关工作机制评估结果，商务部发布禁令，规定不得承认、不得执行、不得遵守美国对上述5家中国企业的制裁措施。
 
-若顺利挂牌，创想三维届时将成为“消费级3D打印第一股”。
+发言人强调，中国政府一贯反对缺乏联合国授权和国际法依据的单边制裁。
 
-过去几年，消费级3D打印产业从“小众”走向“大众”，市场规模与渗透率双双突破。
+此次发布禁令，是依法实施《阻断外国法律与措施不当域外适用办法》的具体行动，不影响中方承担和履行国际义务，也不影响中国依法保护外商投资企业的合法权益。
 
-公开数据显示，2025年“双十一”期间，京东与天猫两大平台的消费级3D打印机销量突破万台，成为增长最快的数码品类之一。
+商务部将继续密切跟踪有关国家法律与措施不当域外适用的情况，如存在《阻断外国法律与措施不当域外适用办法》规定的情形，将依法开展相关工作。
 
-乘着行业东风，创想三维也迎来了快速增长期。
-
-2023年至2025年，公司营收分别为18.82亿元、22.88亿元和31.27亿元，规模持续扩大。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:20 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:47 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:46 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:39 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:24 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:20 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:32 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:41 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:44 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:31 - [【东西问】与龙共舞的凤，何以成为中华民族精神象征？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:42 - [芝加哥期权交易所正裁减全球20%员工](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:27 - [花样游泳世界杯侧记：长安浪花起 出水亦芙蓉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:31 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:29 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:31 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:34 - [“五一”假期首日：民众游杭州西湖享江南时光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:20 - [美国威胁制裁向伊朗缴通行费的航运企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:42 - [中国铁路迎来“五一”假期运输客流最高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:42 - [致敬劳动者｜每一方寸，因你而闪光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/880716.shtml)
-- 2026-06-29 11:21 - [毒液2](http://www.share.minike.top/Article/details/82721542.shtml)
-- 2026-06-29 11:22 - [医护人员观影《四渡》传承长征精神](https://www.share.kurohicncr.top/Article/details/330601.shtml)
-- 2026-06-29 11:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/10713.shtml)
-- 2026-06-29 11:43 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/586371480550.shtml)
-- 2026-06-29 11:41 - [李在明要调查韩国队出局原因](https://www.share.minike.top/Article/details/11646852.shtml)
-- 2026-06-29 11:47 - [曾沛慈夺冠后人气](http://www.share.minike.top/Article/details/90974.shtml)
-- 2026-06-29 11:41 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/3750265.shtml)
-- 2026-06-29 11:37 - [韩媒称韩国队遭中国网民嘲讽](https://www.share.kurohicncr.top/Article/details/49866202064.shtml)
-- 2026-06-29 11:44 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/034865874.shtml)
-- 2026-06-29 11:39 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/32642.shtml)
-- 2026-06-29 11:23 - [世界杯用球成部分门将噩梦](https://www.blog.kurohicncr.top/Article/details/277794934761.shtml)
-- 2026-06-29 11:32 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/27520.shtml)
-- 2026-06-29 11:45 - [爱很美味](http://www.share.kurohicncr.top/Article/details/51487084974.shtml)
-- 2026-06-29 11:47 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/47389212095.shtml)
+- 2026-06-29 11:34 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](http://www.blog.minike.top/Article/details/91697668402.shtml)
+- 2026-06-29 11:43 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](http://www.blog.minike.top/Article/details/203350.shtml)
+- 2026-06-29 11:36 - [贵州台江：万人盛装游演欢度“姊妹节”](http://www.blog.kurohicncr.top/Article/details/578455202.shtml)
+- 2026-06-29 11:40 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](http://www.blog.kurohicncr.top/Article/details/105038739.shtml)
+- 2026-06-29 11:25 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](http://www.blog.kurohicncr.top/Article/details/289505818260.shtml)
+- 2026-06-29 11:44 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](http://www.share.minike.top/Article/details/835302797.shtml)
+- 2026-06-29 11:41 - [王毅同美国国务卿鲁比奥通电话](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](http://www.share.kurohicncr.top/Article/details/7649247.shtml)
+- 2026-06-29 11:46 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](http://www.share.kurohicncr.top/Article/details/61506038.shtml)
+- 2026-06-29 11:23 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](http://www.share.kurohicncr.top/Article/details/078503534.shtml)
+- 2026-06-29 11:31 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [海南商业航天重点项目加速建设](http://www.blog.minike.top/Article/details/21281671181.shtml)
+- 2026-06-29 11:21 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](http://www.share.minike.top/Article/details/81430553071.shtml)
+- 2026-06-29 11:46 - [美官员：美军“福特”号航母已离开中东](http://www.blog.kurohicncr.top/Article/details/497632.shtml)
+- 2026-06-29 11:47 - [水利部滚动会商部署“五一”假期期间防汛工作](http://www.share.minike.top/Article/details/08966200583.shtml)

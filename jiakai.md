@@ -1,61 +1,55 @@
-# 酒价内参5月14日价格发布：水晶剑南春保持不变
+# 芝加哥期权交易所正裁减全球20%员工
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月14日整体明显回暖。如果主要单品各取一瓶整体打包售卖，今日总售价为9961元，较昨日上涨10元，创下近半个月以来最高。市场结束连续三日高位盘整后上扬，终端交投情绪升温，核心龙头茅台系酒品全线走高，核心单品的涨跌分化依然显著。 今日白
+芝加哥期权交易所正裁减全球20%员工，同时收紧返岗办公政策，这也是该交易所聚焦核心业务战略规划的最新举措。 首席执行官克雷格・多诺霍周五早间发给员工的内部备忘录显示，Cboe全球约1670名员工中，已有约五分之一收到裁员通知。公司同时面向美国和加拿大地区符合条件的员工推出自愿退休计划：年龄满55周岁、在公司任职至少五年，且未被纳入本次裁员名单的员工均可申请。 此次裁员是多诺霍战
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月14日整体明显回暖。
+芝加哥期权交易所正裁减全球20%员工，同时收紧返岗办公政策，这也是该交易所聚焦核心业务战略规划的最新举措。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9961元，较昨日上涨10元，创下近半个月以来最高。
+首席执行官克雷格・多诺霍周五早间发给员工的内部备忘录显示，Cboe全球约1670名员工中，已有约五分之一收到裁员通知。
 
-市场结束连续三日高位盘整后上扬，终端交投情绪升温，核心龙头茅台系酒品全线走高，核心单品的涨跌分化依然显著。
+公司同时面向美国和加拿大地区符合条件的员工推出自愿退休计划：年龄满55周岁、在公司任职至少五年，且未被纳入本次裁员名单的员工均可申请。
 
-今日白酒市场11大单品五涨五跌一平，涨跌结构均衡。
+此次裁员是多诺霍战略布局的一环，目的是把资源集中投向核心业务，涵盖指数期权、期货、外汇市场以及欧美股票业务。
 
-上涨方面，飞天茅台涨幅居前，强势上涨15元/瓶，收获三连阳价格大幅反弹至1745元，精品茅台上涨5元/瓶；古井贡古20上涨7元/瓶，创近一个月最高价纪录；国窖1573上涨2元/瓶，斩获五连阳，亦创下近一月最高价；洋河梦之蓝M6+上涨1元/瓶，价格升至月内次高。
+自2025年5月出任首席执行官以来，他已陆续推进多项调整：关停Cboe日本股票业务、出售旗下加拿大及澳大利亚证券交易所。
 
-下跌方面，青花郎跌幅居前，下跌7元/瓶，再度失守700元关口；习酒君品下跌6元/瓶，三连阴走势下，价格快速下探至近一月最低位；五粮液普五八代下跌5元/瓶，在830元一线附近上行阻力较大；五粮液1618与青花汾20均下跌1元/瓶。
+上述业务调整带来的人员精简，均纳入此次20%的整体裁员规模之中。
 
-水晶剑南春的价格环比保持不变。
-
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:30 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:29 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:26 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:39 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:19 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:41 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:44 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:38 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:39 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:34 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:29 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:30 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:38 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:43 - [中国铁路迎来“五一”假期运输客流最高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:29 - [致敬劳动者｜每一方寸，因你而闪光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:35 - [远东国际观察：日本国会参议院通过2026财年预算案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:42 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:47 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:28 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:42 - [福州地铁客流连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:34 - [埃及侨商：持续推动“零关税”红利转化为务实合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:27 - [“05后”持有人猛增10倍，年轻人涌向AI基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:27 - [2026五一档新片票房破9000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:32 - [美国制造业保持扩张势头 价格指标触及四年高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [欧洲超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/370662.shtml)
-- 2026-06-29 11:34 - [拄拐少年高考663分：用行动回报社会](https://www.share.kurohicncr.top/Article/details/1649463.shtml)
-- 2026-06-29 11:43 - [韩国主帅辞职报告5分钟 双手插兜离场](http://www.share.minike.top/Article/details/934077652885.shtml)
-- 2026-06-29 11:34 - [加拿大队史淘汰赛首胜](http://www.blog.minike.top/Article/details/736381814.shtml)
-- 2026-06-29 11:39 - [欧洲极端高温东扩](https://www.share.kurohicncr.top/Article/details/55014211.shtml)
-- 2026-06-29 11:47 - [晋城暴雨车辆被淹冰箱在水中漂](https://www.share.minike.top/Article/details/19167244441.shtml)
-- 2026-06-29 11:41 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/368879.shtml)
-- 2026-06-29 11:38 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.minike.top/Article/details/88310.shtml)
-- 2026-06-29 11:42 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.minike.top/Article/details/06910584.shtml)
-- 2026-06-29 11:41 - [3D打印不是工业革命，它是……](http://www.blog.minike.top/Article/details/180042650881.shtml)
-- 2026-06-29 11:36 - [灿如繁星定档](http://www.blog.minike.top/Article/details/9820188.shtml)
-- 2026-06-29 11:22 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/62112344958.shtml)
-- 2026-06-29 11:20 - [双高胎](https://www.share.minike.top/Article/details/7075170635.shtml)
-- 2026-06-29 11:35 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/579271.shtml)
-- 2026-06-29 11:39 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/962020260623.shtml)
+- 2026-06-29 11:38 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](http://www.share.kurohicncr.top/Article/details/797848885784.shtml)
+- 2026-06-29 11:22 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](http://www.share.minike.top/Article/details/7568231.shtml)
+- 2026-06-29 11:39 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](http://www.blog.kurohicncr.top/Article/details/16784.shtml)
+- 2026-06-29 11:24 - [海南商业航天重点项目加速建设](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](http://www.share.minike.top/Article/details/13528417.shtml)
+- 2026-06-29 11:37 - [美官员：美军“福特”号航母已离开中东](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [水利部滚动会商部署“五一”假期期间防汛工作](http://www.share.minike.top/Article/details/41849141.shtml)
+- 2026-06-29 11:43 - [孟加拉国外交部长卡利勒将访华](http://www.share.kurohicncr.top/Article/details/8176144.shtml)
+- 2026-06-29 11:39 - [巴菲特深度伪造视频，带来一场出人意料的AI风险警示](http://www.blog.kurohicncr.top/Article/details/56922.shtml)
+- 2026-06-29 11:47 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](http://www.blog.kurohicncr.top/Article/details/287144.shtml)
+- 2026-06-29 11:26 - [网信部门严管“自媒体”未规范标注信息来源行为](http://www.share.kurohicncr.top/Article/details/06849.shtml)
+- 2026-06-29 11:25 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](http://www.share.minike.top/Article/details/28214.shtml)
+- 2026-06-29 11:25 - [零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期](http://www.blog.minike.top/Article/details/957756579989.shtml)
+- 2026-06-29 11:19 - [Spirit Air股价暴跌逾70% 据报该航司准备停止运营](https://github.com/lisacumin64-arch)

@@ -1,58 +1,59 @@
-# （经济观察）长春打造“中国光电城”推动中国“光电版图”向北延伸
+# 东西问丨这位美国汉学家26年前就在春晚说相声，现在……
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网长春5月13日电 (记者 郭佳)“中国光电城”是长春现代化都市圈的“白菜心”——吉林省委书记黄强近日的这一表述，让长春在新一轮地方产业竞争中的方向愈发清晰。 最近一个月，从本土企业登陆资本市场，到新技术、新产品密集发布，“中国光电城”建设持续升温。第三届长春光博会临近，长春市官方13日组织媒体团走访当地光电信息企业，了解这颗“白菜心”如何加速生长。 前不久在港交所主板挂牌
+中新网成都5月3日电 题：这位美国汉学家26年前就在春晚说相声，现在…… 作者 袁牟知博 学中文有多难？声调像唱歌、汉字像画画、语法不看主语而重话题——随便拎出一条，都够外国学生头疼半年。但有一个美国人，不仅学会了中文，还学会了说相声。 他叫莫大伟(David James Moser)，美国汉学家、首都师范大学国际文化学院副教授、密歇根大学中国研究学博士。从被汉字之美吸引，到师
 
 ## 正文
 
-中新网长春5月13日电 (记者 郭佳)“中国光电城”是长春现代化都市圈的“白菜心”——吉林省委书记黄强近日的这一表述，让长春在新一轮地方产业竞争中的方向愈发清晰。
+中新网成都5月3日电 题：这位美国汉学家26年前就在春晚说相声，现在…… 作者 袁牟知博 学中文有多难？
 
-最近一个月，从本土企业登陆资本市场，到新技术、新产品密集发布，“中国光电城”建设持续升温。
+声调像唱歌、汉字像画画、语法不看主语而重话题——随便拎出一条，都够外国学生头疼半年。
 
-第三届长春光博会临近，长春市官方13日组织媒体团走访当地光电信息企业，了解这颗“白菜心”如何加速生长。
+但有一个美国人，不仅学会了中文，还学会了说相声。
 
-前不久在港交所主板挂牌上市的长春长光辰芯微电子股份有限公司，近期又与高端相机品牌徕卡达成战略合作，将为下一代徕卡相机定制高性能CMOS图像传感器芯片。
+他叫莫大伟(David James Moser)，美国汉学家、首都师范大学国际文化学院副教授、密歇根大学中国研究学博士。
 
-连日来，企业正开足马力生产。
+从被汉字之美吸引，到师从相声名家丁广泉“抖”响中文包袱，他深耕中文研究几十年，以西方母语者的视角，触碰到这门语言最深处的思维逻辑。
 
-该公司联合创始人、研发副总经理李扬表示，中国工业与科学成像行业起步稍晚，但随着国家政策持续赋能、国内企业技术实力稳步提升，国产高端图像传感器产业正迎来高速发展机遇。
+在他看来，那些让外国学生焦虑的声调、汉字、语法，大多停留在表面。
 
-记者在长春长光精瓷复合材料有限公司了解到，近年来随着企业突破超轻量化碳化硅反射镜坯快速制造等关键技术，产品已应用于商业航天、航空遥感以及半导体设备领域。
+“你就算用一声说完整句话，中国人也能猜个八九不离十。
 
-该公司总经理助理王笑天介绍，目前，企业还积极开发碳化硅作为光电系统的焦面基板、背板、框架等新构件，扩展先进材料的应用场景，为新型光电装备的设计开发提供更丰富的方案选择。
+” 近日，中新社“东西问”独家对话莫大伟，听他解读学习中文的门道。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:29 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:27 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:39 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:23 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:45 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:47 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:44 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:47 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:25 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:38 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:21 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:25 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:21 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:19 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:40 - [福州地铁客流连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:31 - [埃及侨商：持续推动“零关税”红利转化为务实合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:46 - [“05后”持有人猛增10倍，年轻人涌向AI基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:23 - [2026五一档新片票房破9000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:46 - [美国制造业保持扩张势头 价格指标触及四年高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:43 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:21 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:30 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:32 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:27 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [薛之谦演唱会](https://www.share.minike.top/Article/details/141416.shtml)
-- 2026-06-29 11:33 - [夏粮收购陆续展开 质优价稳购销两旺](http://www.share.minike.top/Article/details/852545563.shtml)
-- 2026-06-29 11:31 - [王楚钦美国大满贯晋级32强](https://www.share.kurohicncr.top/Article/details/13281654.shtml)
-- 2026-06-29 11:43 - [拄拐少年高考663分：用行动回报社会](http://www.blog.kurohicncr.top/Article/details/65691.shtml)
-- 2026-06-29 11:46 - [亚洲成世界杯最大失意者联盟](http://www.share.kurohicncr.top/Article/details/08430.shtml)
-- 2026-06-29 11:23 - [下半年A股怎么走](https://www.share.minike.top/Article/details/035397873723.shtml)
-- 2026-06-29 11:47 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/96394544048.shtml)
-- 2026-06-29 11:34 - [宜宾5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/87394783655.shtml)
-- 2026-06-29 11:36 - [周生如故](https://www.share.kurohicncr.top/Article/details/008792859.shtml)
-- 2026-06-29 11:22 - [特里：法国是世界杯夺冠热门](https://www.share.kurohicncr.top/Article/details/27677.shtml)
-- 2026-06-29 11:37 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/581539437127.shtml)
-- 2026-06-29 11:20 - [为何加快“扩编”成欧盟战略要务](https://www.share.kurohicncr.top/Article/details/7997237481.shtml)
-- 2026-06-29 11:46 - [三只羊线下课已下架](http://www.share.kurohicncr.top/Article/details/883749015055.shtml)
-- 2026-06-29 11:36 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/9599486185.shtml)
-- 2026-06-29 11:41 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://www.blog.kurohicncr.top/Article/details/3999018432.shtml)
+- 2026-06-29 11:22 - [海南商业航天重点项目加速建设](http://www.share.kurohicncr.top/Article/details/8545352679.shtml)
+- 2026-06-29 11:26 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](http://www.share.kurohicncr.top/Article/details/521047739.shtml)
+- 2026-06-29 11:30 - [美官员：美军“福特”号航母已离开中东](http://www.blog.kurohicncr.top/Article/details/177914.shtml)
+- 2026-06-29 11:25 - [水利部滚动会商部署“五一”假期期间防汛工作](http://www.share.minike.top/Article/details/39647139685.shtml)
+- 2026-06-29 11:22 - [孟加拉国外交部长卡利勒将访华](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [巴菲特深度伪造视频，带来一场出人意料的AI风险警示](http://www.blog.kurohicncr.top/Article/details/062365.shtml)
+- 2026-06-29 11:24 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](http://www.blog.kurohicncr.top/Article/details/423503423.shtml)
+- 2026-06-29 11:37 - [网信部门严管“自媒体”未规范标注信息来源行为](http://www.share.minike.top/Article/details/39554758.shtml)
+- 2026-06-29 11:42 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期](http://www.blog.kurohicncr.top/Article/details/25617997635.shtml)
+- 2026-06-29 11:34 - [Spirit Air股价暴跌逾70% 据报该航司准备停止运营](http://www.share.minike.top/Article/details/95690683337.shtml)
+- 2026-06-29 11:20 - [河南洛阳：户外露营成“五一”假期新选择](http://www.blog.kurohicncr.top/Article/details/01600902185.shtml)
+- 2026-06-29 11:25 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](http://www.share.minike.top/Article/details/1574142.shtml)
+- 2026-06-29 11:18 - [中国医生完成尼日尔首例鼓室成形术](https://github.com/lisacumin64-arch)

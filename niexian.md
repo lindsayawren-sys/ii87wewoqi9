@@ -1,59 +1,56 @@
-# 陕西持续壮大特色现代农业 农民收入稳步提升
+# “五一”假期浙江水上客运迎高峰 预计客流158万人次
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网西安5月14日电 (李一璠)“陕西省率先建成覆盖全体农户的防止返贫监测预警平台，开发上线‘农户画像’功能，以大数据模型算法精准筛查返贫致贫风险农户，实现全员全域常态监测、动态清零。”陕西省农业农村厅党组书记李育江14日表示。 当日，陕西省人民政府新闻办公室举办新闻发布会，解读《中共陕西省委 陕西省人民政府关于锚定农业农村现代化扎实推进乡村全面振兴的实施意见》。 记者关注到
+中新网杭州5月1日电(王逸飞 王庭轩 何青)记者5月1日从浙江海事局获悉，“五一”假期，浙江水上客运将迎来客流高峰，总量预计达158万人次，同比增长5.7%。 据悉，舟山岛际运输是浙江水上客运的“主力”。本次假期，舟山群岛水上客运总流量预计达110万人次，同比增长6.25%。其中普陀山景区水路运输游客预计高达70.5万人次，同比增长7.3%，客流峰值将集中出现在5月2日至3日。
 
 ## 正文
 
-中新网西安5月14日电 (李一璠)“陕西省率先建成覆盖全体农户的防止返贫监测预警平台，开发上线‘农户画像’功能，以大数据模型算法精准筛查返贫致贫风险农户，实现全员全域常态监测、动态清零。
+中新网杭州5月1日电(王逸飞 王庭轩 何青)记者5月1日从浙江海事局获悉，“五一”假期，浙江水上客运将迎来客流高峰，总量预计达158万人次，同比增长5.7%。
 
-”陕西省农业农村厅党组书记李育江14日表示。
+据悉，舟山岛际运输是浙江水上客运的“主力”。
 
-当日，陕西省人民政府新闻办公室举办新闻发布会，解读《中共陕西省委 陕西省人民政府关于锚定农业农村现代化扎实推进乡村全面振兴的实施意见》。
+本次假期，舟山群岛水上客运总流量预计达110万人次，同比增长6.25%。
 
-记者关注到，该实施意见围绕“两条底线、一个中心、三项重点和一大支撑保障”进行部署：持续守牢粮食安全底线和确保长久守牢不发生规模性返贫致贫底线，始终坚持把增加农民收入作为“三农”工作的中心任务，统筹乡村发展、乡村建设和乡村治理三项重点工作，强化改革赋能和要素保障。
+其中普陀山景区水路运输游客预计高达70.5万人次，同比增长7.3%，客流峰值将集中出现在5月2日至3日。
 
-“‘十四五’时期，陕西省农村居民人均可支配收入从2020年的13316元增长到2025年的19286元，年均增长7.7%。
+5月1日是假日首日，往返普陀山各航线客流稳步攀升，短途水上旅游、海岛渡运出行热度高涨。
 
-”陕西省农业农村厅副厅长杨晓军表示。
+当地交通部门科学优化运力配置，重点加密热门航线班次，全力保障高峰时段旅客不滞留、快疏散、顺畅出行。
 
-近年来，该省深入实施特色现代农业重点产业链建设五年行动，坚持部省共建、链群同构，强龙头、补链条、兴业态、树品牌，形成了“省抓千亿级、市抓百亿级、县抓十亿级”的特色产业发展体系。
+为全力保障旅客安全、有序、便捷出行，舟山海事局执法力量全面下沉一线，严格落实高峰现场管控机制，从严做好客船开航前检查。
 
-苹果等8条重点产业链综合产值达到6649亿元，带动市级发展31条超百亿元、县级发展155条超十亿元产业链，特色产业发展成效显著。
+同时依托智慧海事监管系统，对所有营运客船实行全航程动态跟踪、实时监控，做到隐患早发现、早预警、早处置。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:47 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:43 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:30 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:47 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:35 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:45 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:22 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:37 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:47 - [哈尔滨“全城追菠萝蜜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:39 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:39 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:46 - [中金：澳门4月博彩收入大致符合预期 首选金沙中国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:36 - [伊朗给出14点谈判提议 特朗普对内容表示不满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:35 - [浙江杭州：AI融合科技文旅场景吸引民众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:24 - [美军封锁逼退41艘伊朗油轮6900万桶原油，德黑兰内外交困](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:38 - [港股收评：恒指涨1.24% 科指涨2.16% 科网股、电力设备股普涨 半导体板块大涨 小米涨超6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:30 - [“香港金融之夜”活动在港举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:37 - [风花雪月遇咖香 “风花雪月·啡尝不可”2026大理咖啡节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:38 - [中央气象台：江南华南等地将有强降水及强对流天气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:21 - [全美自动驾驶出租车行业迎来爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:41 - [特朗普称可能考虑从西班牙和意大利撤出部分军队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [张一山回应与杨紫友情](http://www.share.minike.top/Article/details/028805401057.shtml)
-- 2026-06-29 11:44 - [韩国主教练连夜下课](http://www.share.kurohicncr.top/Article/details/779824973044.shtml)
-- 2026-06-29 11:24 - [媒体：湖人把薪资空间玩明白了](https://www.blog.kurohicncr.top/Article/details/599410065.shtml)
-- 2026-06-29 11:42 - [向佑说向佐是一生依靠](http://www.blog.minike.top/Article/details/5977765050.shtml)
-- 2026-06-29 11:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/1376959.shtml)
-- 2026-06-29 11:32 - [Gucci全球首席营销官发肖战](http://www.share.minike.top/Article/details/77126421536.shtml)
-- 2026-06-29 11:34 - [亚洲成世界杯最大失意者联盟](http://www.blog.kurohicncr.top/Article/details/56459923.shtml)
-- 2026-06-29 11:47 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/6590780099.shtml)
-- 2026-06-29 11:22 - [腾讯回应做独立支付APP](http://www.share.kurohicncr.top/Article/details/013144866.shtml)
-- 2026-06-29 11:31 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.minike.top/Article/details/29888.shtml)
-- 2026-06-29 11:34 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.blog.minike.top/Article/details/89585.shtml)
-- 2026-06-29 11:38 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/4913102.shtml)
-- 2026-06-29 11:19 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/0242203316.shtml)
-- 2026-06-29 11:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/82072148.shtml)
-- 2026-06-29 11:32 - [陈丽君演出结束后饭撒](https://www.blog.minike.top/Article/details/31927548613.shtml)
+- 2026-06-29 11:47 - [“五一”假期 各地特色文旅活动精彩纷呈](http://www.blog.minike.top/Article/details/60531373.shtml)
+- 2026-06-29 11:26 - [中国首部政务服务领域区域协同立法施行](http://www.share.kurohicncr.top/Article/details/22596.shtml)
+- 2026-06-29 11:46 - [谷歌云增速超越微软、亚马逊，三大云厂商均受益AI需求业绩超预期](http://www.blog.kurohicncr.top/Article/details/9569655.shtml)
+- 2026-06-29 11:34 - [福建舰两年8次海试 中国航母技术实现历史性跨越](http://www.share.minike.top/Article/details/433991402.shtml)
+- 2026-06-29 11:30 - [【东西问】与龙共舞的凤，何以成为中华民族精神象征？](http://www.share.minike.top/Article/details/5366581.shtml)
+- 2026-06-29 11:39 - [芝加哥期权交易所正裁减全球20%员工](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [花样游泳世界杯侧记：长安浪花起 出水亦芙蓉](http://www.share.minike.top/Article/details/66032.shtml)
+- 2026-06-29 11:36 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [“五一”假期首日：民众游杭州西湖享江南时光](http://www.share.kurohicncr.top/Article/details/733278.shtml)
+- 2026-06-29 11:34 - [美国威胁制裁向伊朗缴通行费的航运企业](http://www.share.kurohicncr.top/Article/details/75886899085.shtml)
+- 2026-06-29 11:27 - [中国铁路迎来“五一”假期运输客流最高峰](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [致敬劳动者｜每一方寸，因你而闪光](http://www.blog.kurohicncr.top/Article/details/95274257.shtml)
+- 2026-06-29 11:42 - [远东国际观察：日本国会参议院通过2026财年预算案](http://www.share.minike.top/Article/details/73016776612.shtml)

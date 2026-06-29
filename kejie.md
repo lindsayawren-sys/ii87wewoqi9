@@ -1,48 +1,57 @@
-# 伊朗称逾30艘船只经协调通过霍尔木兹海峡
+# 阿联酋宣布退出OPEC，霍尔木兹封锁致短期油价持续高企
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-伊朗国家电视台报道，自当地时间13日晚间以来，已有30多艘船只在与伊朗当局及伊斯兰革命卫队（IRGC）海军进行预先协调后，获准顺利通行霍尔木兹海峡。 伊朗伊斯兰革命卫队海军官员对此表示，霍尔木兹海峡的航行管理已进入“新阶段”。该官员强调，目前全球多国及航运船队已普遍认可，与伊朗海军力量保持实时协调是确保安全、快速通过这一战略水道的最优路径。责任编辑：龙运翔
+阿联酋近日宣布将于2026年5月1日起正式退出石油输出国组织及“OPEC+”机制，成为该组织成立以来首个主动“退群”的中东核心产油国。然而，由于霍尔木兹海峡航运仍处于中断状态，全球石油供应紧张局面短期内难以缓解，国际油价继续维持高位。 阿联酋官方声明表示，退出是基于国家利益考量，旨在更有效地满足国际市场对能源的需求。分析人士指出，阿联酋长期对OPEC产量配额机制不满，认为这限制
 
 ## 正文
 
-伊朗国家电视台报道，自当地时间13日晚间以来，已有30多艘船只在与伊朗当局及伊斯兰革命卫队（IRGC）海军进行预先协调后，获准顺利通行霍尔木兹海峡。
+阿联酋近日宣布将于2026年5月1日起正式退出石油输出国组织及“OPEC+”机制，成为该组织成立以来首个主动“退群”的中东核心产油国。
 
-伊朗伊斯兰革命卫队海军官员对此表示，霍尔木兹海峡的航行管理已进入“新阶段”。
+然而，由于霍尔木兹海峡航运仍处于中断状态，全球石油供应紧张局面短期内难以缓解，国际油价继续维持高位。
 
-该官员强调，目前全球多国及航运船队已普遍认可，与伊朗海军力量保持实时协调是确保安全、快速通过这一战略水道的最优路径。
+阿联酋官方声明表示，退出是基于国家利益考量，旨在更有效地满足国际市场对能源的需求。
 
-责任编辑：龙运翔
+分析人士指出，阿联酋长期对OPEC产量配额机制不满，认为这限制了其扩大出口的能力。
+
+阿联酋计划到2027年将原油产能从目前的约340万桶/日提升至500万桶/日，但受配额约束难以实现。
+
+此外，在全球能源转型加速的背景下，阿联酋希望抢在化石能源需求见顶前尽快将资源“变现”，为经济多元化转型提供资金。
+
+尽管阿联酋退出理论上意味着未来可能增产，但短期内对国际油价的实质性影响有限。
+
+主要原因是霍尔木兹海峡运输受阻，这条全球约20%原油运输的必经水道仍处于事实关闭状态，即便阿联酋增产，新增产量也难以大规模流向国际市场。
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:22 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:48 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:21 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:24 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:33 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:31 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:39 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:26 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:33 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:33 - [巴西国家石油公司投资8.7亿雷亚尔重启巴拉那州尿素生产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:29 - [巴菲特：如今民众投机赌博情绪，史上前所未有](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:42 - [“五一”假期 各地特色文旅活动精彩纷呈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:30 - [中国首部政务服务领域区域协同立法施行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:20 - [谷歌云增速超越微软、亚马逊，三大云厂商均受益AI需求业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:47 - [福建舰两年8次海试 中国航母技术实现历史性跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:38 - [【东西问】与龙共舞的凤，何以成为中华民族精神象征？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:42 - [芝加哥期权交易所正裁减全球20%员工](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:37 - [花样游泳世界杯侧记：长安浪花起 出水亦芙蓉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:19 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:40 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [特里：法国是世界杯夺冠热门](http://www.share.kurohicncr.top/Article/details/975431349464.shtml)
-- 2026-06-29 11:34 - [陈垣宇晋级WTT美国大满贯男单32强](https://www.share.kurohicncr.top/Article/details/032016.shtml)
-- 2026-06-29 11:45 - [李在明要调查韩国队出局原因](https://www.share.minike.top/Article/details/1036771855.shtml)
-- 2026-06-29 11:32 - [本届世界杯黑马扎堆](http://www.blog.minike.top/Article/details/31202365.shtml)
-- 2026-06-29 11:19 - [韩国主帅辞职报告5分钟 双手插兜离场](http://www.share.minike.top/Article/details/622745686338.shtml)
-- 2026-06-29 11:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/0080378259.shtml)
-- 2026-06-29 11:21 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/191687469430.shtml)
-- 2026-06-29 11:24 - [埃博拉为何再次袭击非洲](http://www.share.minike.top/Article/details/5108004857.shtml)
-- 2026-06-29 11:43 - [【独家】牧神记 第89集 明心](http://www.blog.minike.top/Article/details/515507.shtml)
-- 2026-06-29 11:26 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/92228.shtml)
-- 2026-06-29 11:24 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/569403010.shtml)
-- 2026-06-29 11:33 - [流金岁月](http://www.share.kurohicncr.top/Article/details/255606.shtml)
-- 2026-06-29 11:35 - [扬名立万](http://www.share.kurohicncr.top/Article/details/20595434.shtml)
-- 2026-06-29 11:36 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.minike.top/Article/details/1660140.shtml)
-- 2026-06-29 11:44 - [韩国记者：解码“合肥模式”](http://www.blog.minike.top/Article/details/96213576.shtml)
+- 2026-06-29 11:36 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](http://www.share.minike.top/Article/details/2666686.shtml)
+- 2026-06-29 11:34 - [每天走路够这个量 或能延寿11年！健步走行动清单快掌握→](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [中国生物医学新技术“基本法”实施 院企专家盼规范促产业发展](http://www.blog.minike.top/Article/details/41330590.shtml)
+- 2026-06-29 11:22 - [特朗普：美国开启霍尔木兹海峡船只通行自由行动将于中东时间周一上午启动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](http://www.share.minike.top/Article/details/2181748431.shtml)
+- 2026-06-29 11:20 - [宁夏银川：水上运动成民众假期户外社交“新宠”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](http://www.blog.minike.top/Article/details/1354645.shtml)
+- 2026-06-29 11:29 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](http://www.share.kurohicncr.top/Article/details/55850538574.shtml)
+- 2026-06-29 11:30 - [贵州台江：万人盛装游演欢度“姊妹节”](http://www.blog.kurohicncr.top/Article/details/2076411.shtml)
+- 2026-06-29 11:22 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](http://www.share.minike.top/Article/details/236716.shtml)
+- 2026-06-29 11:30 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](http://www.share.kurohicncr.top/Article/details/61662197.shtml)
+- 2026-06-29 11:29 - [王毅同美国国务卿鲁比奥通电话](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](http://www.blog.minike.top/Article/details/900355.shtml)
+- 2026-06-29 11:21 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](https://github.com/lisacumin64-arch)

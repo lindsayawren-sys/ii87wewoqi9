@@ -1,58 +1,59 @@
-# 众安在线股东结构调整：欧亚平持股比例升至11.94%，超过中国平安
+# 午盘：道指上涨700点 市场关注美股财报
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-众安在线创始股东的持股结构出现重大变化。 5月15日，澎湃新闻注意到，港交所股权披露信息显示，众安在线财产保险股份有限公司（众安在线，06060.HK）原董事长欧亚平通过收购Anytime Limited取得一系列间接股权，叠加此前直接持有的8100万股H股，合计持有众安在线约2.011亿股H股权益。按H股口径计算，欧亚平对众安在线的持股比例由4.95%升至12.30%，按公司
+北京时间5月1日凌晨，美股周四午盘走高，道指上涨700点。投资者将注意力转向亚马逊、谷歌母公司Alphabet和礼来等企业巨头强劲的业绩表现，暂时搁置了对中东局势及通胀前景的担忧。 道指涨729.07点，涨幅为1.49%，报49590.88点；纳指涨3.36点，涨幅为0.01%，报24676.60点；标普500指数涨30.89点，涨幅为0.43%，报7166.84点。 继周三科
 
 ## 正文
 
-众安在线创始股东的持股结构出现重大变化。
+北京时间5月1日凌晨，美股周四午盘走高，道指上涨700点。
 
-5月15日，澎湃新闻注意到，港交所股权披露信息显示，众安在线财产保险股份有限公司（众安在线，06060.HK）原董事长欧亚平通过收购Anytime Limited取得一系列间接股权，叠加此前直接持有的8100万股H股，合计持有众安在线约2.011亿股H股权益。
+投资者将注意力转向亚马逊、谷歌母公司Alphabet和礼来等企业巨头强劲的业绩表现，暂时搁置了对中东局势及通胀前景的担忧。
 
-按H股口径计算，欧亚平对众安在线的持股比例由4.95%升至12.30%，按公司总股本口径计算约为11.94%。
+道指涨729.07点，涨幅为1.49%，报49590.88点；纳指涨3.36点，涨幅为0.01%，报24676.60点；标普500指数涨30.89点，涨幅为0.43%，报7166.84点。
 
-据众安在线官网披露，该公司目前总股本约为16.85亿股，由内资股和H股构成。
+继周三科技巨头密集发布财报后，亚马逊和礼来因第一季度业绩超预期股价分别涨逾2%和6%，成为支撑大盘上涨的主力军。
 
-其中，内资股数量为5000万股，占比2.97%；H股数量约为16.35亿股，占比97.03%。
+分析师称，这种“财报为王”的行情表明，强劲的企业盈利能力暂时压过了地缘政治风险。
 
-以总股本口径计算，欧亚平11.94%的持股比例已超过中国平安保险（集团）股份有限公司（8.90%）。
+此前，由于美伊对峙及霍尔木兹海峡航运中断，布伦特原油价格一度触及126美元/桶，为油价带来上行压力并引发通胀担忧。
 
-欧亚平与众安在线渊源颇深。
+然而，并非所有个股都受到追捧。
 
-众安在线成立于2013年10月，欧亚平曾出任该公司首任董事长。
+微软和Meta Platforms因大幅上调人工智能基础设施资本支出指引而遭遇抛售，其中Meta股价跌近9%，因投资者担忧巨额投入的回报周期及用户增长放缓。
 
 ## 相关推荐
 
-- 2026-06-29 11:47 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:27 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:42 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:33 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:19 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:30 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:42 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:26 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:44 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:26 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:36 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:43 - [美国对5家中企实施涉伊朗石油制裁措施 中方发布阻断禁令](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:39 - [巴西国家石油公司投资8.7亿雷亚尔重启巴拉那州尿素生产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:19 - [巴菲特：如今民众投机赌博情绪，史上前所未有](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:29 - [“五一”假期 各地特色文旅活动精彩纷呈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:34 - [中国首部政务服务领域区域协同立法施行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:23 - [谷歌云增速超越微软、亚马逊，三大云厂商均受益AI需求业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:18 - [福建舰两年8次海试 中国航母技术实现历史性跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:41 - [【东西问】与龙共舞的凤，何以成为中华民族精神象征？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:23 - [芝加哥期权交易所正裁减全球20%员工](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:21 - [花样游泳世界杯侧记：长安浪花起 出水亦芙蓉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:44 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:21 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:21 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [城市规划有可能成为「屎山代码」吗？](https://www.blog.minike.top/Article/details/5767622815.shtml)
-- 2026-06-29 11:21 - [普京称考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/0551519.shtml)
-- 2026-06-29 11:24 - [温峥嵘直播回应恶评](http://www.blog.kurohicncr.top/Article/details/39735404207.shtml)
-- 2026-06-29 11:48 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/261913959.shtml)
-- 2026-06-29 11:29 - [三只羊大杨哥不直播改卖课](https://www.share.minike.top/Article/details/943461147.shtml)
-- 2026-06-29 11:43 - [加拿大92分钟绝杀南非](http://www.share.kurohicncr.top/Article/details/1634726997.shtml)
-- 2026-06-29 11:19 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.minike.top/Article/details/88393109636.shtml)
-- 2026-06-29 11:25 - [神23乘组太空出差满月](https://www.blog.minike.top/Article/details/116364.shtml)
-- 2026-06-29 11:36 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/95169817.shtml)
-- 2026-06-29 11:19 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/077286814.shtml)
-- 2026-06-29 11:37 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://www.share.minike.top/Article/details/410654364857.shtml)
-- 2026-06-29 11:32 - [白玉兰最佳女主角提名片段](http://www.share.minike.top/Article/details/6261068.shtml)
-- 2026-06-29 11:31 - [各路“神仙”扎堆洛阳乘地铁](http://www.share.minike.top/Article/details/72575767710.shtml)
-- 2026-06-29 11:29 - [韩国队启程回国众将回避镜头](https://www.blog.kurohicncr.top/Article/details/984122776911.shtml)
-- 2026-06-29 11:35 - [王楚钦美国大满贯晋级32强](http://www.share.minike.top/Article/details/076605444.shtml)
+- 2026-06-29 11:47 - [天津国际邮轮母港单日出入境旅客创年内新高](http://www.share.minike.top/Article/details/403902402.shtml)
+- 2026-06-29 11:31 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](http://www.share.kurohicncr.top/Article/details/178254685.shtml)
+- 2026-06-29 11:39 - [每天走路够这个量 或能延寿11年！健步走行动清单快掌握→](http://www.share.minike.top/Article/details/89961.shtml)
+- 2026-06-29 11:26 - [中国生物医学新技术“基本法”实施 院企专家盼规范促产业发展](http://www.share.kurohicncr.top/Article/details/892401894183.shtml)
+- 2026-06-29 11:18 - [特朗普：美国开启霍尔木兹海峡船只通行自由行动将于中东时间周一上午启动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](http://www.blog.kurohicncr.top/Article/details/70729496.shtml)
+- 2026-06-29 11:32 - [宁夏银川：水上运动成民众假期户外社交“新宠”](http://www.share.minike.top/Article/details/292862355.shtml)
+- 2026-06-29 11:25 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](http://www.share.minike.top/Article/details/0267468.shtml)
+- 2026-06-29 11:30 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](http://www.share.minike.top/Article/details/873020759.shtml)
+- 2026-06-29 11:25 - [贵州台江：万人盛装游演欢度“姊妹节”](http://www.share.kurohicncr.top/Article/details/76393195.shtml)
+- 2026-06-29 11:20 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](http://www.blog.minike.top/Article/details/2144862465.shtml)
+- 2026-06-29 11:39 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](http://www.share.kurohicncr.top/Article/details/209885948850.shtml)
+- 2026-06-29 11:35 - [王毅同美国国务卿鲁比奥通电话](http://www.blog.kurohicncr.top/Article/details/0305789346.shtml)
+- 2026-06-29 11:21 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](https://github.com/lisacumin64-arch)

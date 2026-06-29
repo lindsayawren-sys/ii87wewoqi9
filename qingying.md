@@ -1,51 +1,58 @@
-# 日本岩手县发生5级地震 多地震感强烈
+# 阿贝尔：超大规模企业必须"承担其能源使用的全部成本"
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网5月14日电 据日本广播协会(NHK)报道，当地时间14日5时1分，日本岩手县发生5级地震，震源深度10千米。 据报道，岩手县盛冈市在内的多地有震度4级的强烈震感，此外，青森县、宫城县和北海道等地也有不同程度震感。 此次地震没有引发海啸。
+伯克希尔·哈撒韦公司首席执行官格雷格·阿贝尔于2026年5月2日在内布拉斯加州奥马哈市举行的伯克希尔·哈撒韦年度股东大会上发表讲话。 阿贝尔表示，必须将数据中心的能源使用成本与电网的其他普通用户分离开来，确保这些成本由要求供电的企业来承担。 “超大规模企业、数据中心以及能源的使用方——他们必须承担全部成本，”他说。 在人工智能热潮期间，数据中心给区域电网带来的压力一直是许多环保
 
 ## 正文
 
-中新网5月14日电 据日本广播协会(NHK)报道，当地时间14日5时1分，日本岩手县发生5级地震，震源深度10千米。
+伯克希尔·哈撒韦公司首席执行官格雷格·阿贝尔于2026年5月2日在内布拉斯加州奥马哈市举行的伯克希尔·哈撒韦年度股东大会上发表讲话。
 
-据报道，岩手县盛冈市在内的多地有震度4级的强烈震感，此外，青森县、宫城县和北海道等地也有不同程度震感。
+阿贝尔表示，必须将数据中心的能源使用成本与电网的其他普通用户分离开来，确保这些成本由要求供电的企业来承担。
 
-此次地震没有引发海啸。
+“超大规模企业、数据中心以及能源的使用方——他们必须承担全部成本，”他说。
+
+在人工智能热潮期间，数据中心给区域电网带来的压力一直是许多环保和消费者权益倡导组织关注的焦点。
+
+政策研究机构“环境与能源研究所在今年2月的一份分析报告中得出结论：”随着数据中心在全国范围内扩张，公用事业公司收到了数百吉瓦的并网请求，这需要进行大规模的基础设施投资。
+
+“”许多家庭的电费正在飙升，加剧了可负担性危机。
+
+“责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:24 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:32 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:34 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:31 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:42 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:27 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:28 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:20 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:47 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:21 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:20 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:18 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:45 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:28 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:19 - [韩国特检组就金建希首案二审结果提出抗诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:31 - [阿贝尔谈及自己与阿吉特・贾恩的继任规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:22 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:45 - [广西投资集团有限公司总经理刘明洪接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:22 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:40 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:32 - [915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:39 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:21 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:18 - [渤海人寿获批增加注册资本至16.87亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:34 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:21 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:32 - [台湾宜兰县海域发生6.1级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:20 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [伊朗队球员哭诉：这届世界杯是场灾难](https://www.share.kurohicncr.top/Article/details/3386326.shtml)
-- 2026-06-29 11:20 - [《昨夜将至》为何是悬疑黑马](https://www.blog.minike.top/Article/details/5141021.shtml)
-- 2026-06-29 11:40 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/16016308758.shtml)
-- 2026-06-29 11:22 - [夏粮收购陆续展开 质优价稳购销两旺](http://www.share.minike.top/Article/details/0880475864.shtml)
-- 2026-06-29 11:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/0888877019.shtml)
-- 2026-06-29 11:30 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/4772304966.shtml)
-- 2026-06-29 11:22 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](http://www.blog.kurohicncr.top/Article/details/053281.shtml)
-- 2026-06-29 11:26 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/47044750.shtml)
-- 2026-06-29 11:44 - [热穹顶来了](https://www.blog.minike.top/Article/details/8615085.shtml)
-- 2026-06-29 11:24 - [成都震感](https://www.share.minike.top/Article/details/520993.shtml)
-- 2026-06-29 11:37 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/6020417.shtml)
-- 2026-06-29 11:39 - [恋与深空女玩家不该被冒犯](http://www.blog.kurohicncr.top/Article/details/46526003771.shtml)
-- 2026-06-29 11:25 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/93730519.shtml)
-- 2026-06-29 11:28 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/62423.shtml)
-- 2026-06-29 11:35 - [严浩翔FIY断层第一](https://www.blog.kurohicncr.top/Article/details/46274607.shtml)
+- 2026-06-29 11:34 - [亚马逊AWS营收增长28%，达到376亿美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](http://www.share.minike.top/Article/details/684183275.shtml)
+- 2026-06-29 11:30 - [刚刚，利好来了！上海，重磅出手！](http://www.blog.kurohicncr.top/Article/details/290544932739.shtml)
+- 2026-06-29 11:31 - [3月核心通胀率升至3.2%，一季度经济增速仅2%不及预期](http://www.share.kurohicncr.top/Article/details/35145335243.shtml)
+- 2026-06-29 11:42 - [西藏昌都文旅资源亮相天津 多项合作签约落地](http://www.blog.kurohicncr.top/Article/details/149332954.shtml)
+- 2026-06-29 11:24 - [埃克森美孚与雪佛龙无视特朗普政府增产呼吁](http://www.blog.kurohicncr.top/Article/details/7287041595.shtml)
+- 2026-06-29 11:21 - [钠电池迎来历史性拐点！业绩报喜概念股出炉，4股市盈率不到30倍](http://www.blog.minike.top/Article/details/413934.shtml)
+- 2026-06-29 11:29 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](http://www.blog.minike.top/Article/details/49169549148.shtml)
+- 2026-06-29 11:23 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](http://www.blog.minike.top/Article/details/61203560.shtml)
+- 2026-06-29 11:43 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](http://www.share.kurohicncr.top/Article/details/193621576.shtml)
+- 2026-06-29 11:31 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](http://www.blog.kurohicncr.top/Article/details/95268.shtml)
+- 2026-06-29 11:18 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](http://www.share.minike.top/Article/details/58326033544.shtml)
+- 2026-06-29 11:23 - [一觉醒来，美国对欧洲下狠手了](http://www.share.minike.top/Article/details/889707.shtml)
+- 2026-06-29 11:29 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](http://www.blog.minike.top/Article/details/59176682.shtml)
+- 2026-06-29 11:29 - [学习新语｜幸福属于劳动者](http://www.blog.minike.top/Article/details/87273914.shtml)

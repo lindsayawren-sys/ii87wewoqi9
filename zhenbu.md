@@ -1,57 +1,58 @@
-# 锡林郭勒草原深处，有一位化解牧区矛盾的“金牌调解员”
+# “五一”假期 各地特色文旅活动精彩纷呈
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网锡林郭勒5月13日电 题：锡林郭勒草原深处，有一位化解牧区矛盾的“金牌调解员” 作者 奥蓝 乌伊罕 初夏的锡林郭勒草原已泛青。一大早，那布其带队驱车56公里，来到都日布勒吉嘎查回访调解案件的当事人巴图(化名)。两年前，因一兽药店工作人员操作失误，巴图家22头牛死亡、21头牛出现中毒症状。后经调解，兽药店经营者秀秀(化名)支付巴图经济损失赔偿金共计25万元。 “基层调解工作
+央视新闻客户端消息(新闻联播)：“五一”假期，各地推出丰富多彩的活动，打造多元文旅消费新业态、新场景，让人们尽享假日休闲时光。 浙江杭州西湖景区“五一”迎来客流高峰，市民游客泛舟湖上，领略江南水乡美景；景区每天增加400多名志愿者，在现场维持秩序，疏导客流。这个“五一”，浙江全省累计发放3900多万元文旅消费券，进一步激发市场活力。天津“五一”假期举办各类演出活动近600场，依
 
 ## 正文
 
-中新网锡林郭勒5月13日电 题：锡林郭勒草原深处，有一位化解牧区矛盾的“金牌调解员” 作者 奥蓝 乌伊罕 初夏的锡林郭勒草原已泛青。
+央视新闻客户端消息(新闻联播)：“五一”假期，各地推出丰富多彩的活动，打造多元文旅消费新业态、新场景，让人们尽享假日休闲时光。
 
-一大早，那布其带队驱车56公里，来到都日布勒吉嘎查回访调解案件的当事人巴图(化名)。
+浙江杭州西湖景区“五一”迎来客流高峰，市民游客泛舟湖上，领略江南水乡美景；景区每天增加400多名志愿者，在现场维持秩序，疏导客流。
 
-两年前，因一兽药店工作人员操作失误，巴图家22头牛死亡、21头牛出现中毒症状。
+这个“五一”，浙江全省累计发放3900多万元文旅消费券，进一步激发市场活力。
 
-后经调解，兽药店经营者秀秀(化名)支付巴图经济损失赔偿金共计25万元。
+天津“五一”假期举办各类演出活动近600场，依托百年历史建筑，把城市街角、阳台打造成戏剧舞台，讲解员边演边讲，为游客带来“步步入戏”的互动体验。
 
-“基层调解工作中，案结并非终点，常态化回访跟进是定纷止争、化解矛盾、筑牢基层平安防线的关键举措。
+河北吴桥围绕“杂技”做文章，推出全景主题演绎、街头杂技秀等多元业态，丰富假日文旅供给。
 
-”那布其在巴图家不仅核查了赔偿款项落实、双方后续相处情况，还仔细了解了巴图家当下的生产生活状况。
+假日里，河南郑州油化厂旅游街区受到很多年轻人的青睐，经过更新改造，硬朗的工业风与时尚潮流碰撞，废弃的储油罐、生产车间成为表演舞台，假期首日接待游客超8万人次。
 
-那布其是“85后”，自2014年入职西乌珠穆沁旗司法局之后，一直扎根基层从事司法行政工作。
+吉林大安机车博览园陈列了100多台已经退役了的蒸汽机车、内燃机车和电力机车，吸引了不少火车迷和亲子家庭前来打卡。
 
-这样在牧区走家串户调解奔波，是她10多年基层工作的日常。
+黑龙江多地举办特色开江季品开江鱼系列活动，带动假期文旅消费，在活动现场，51口大锅沸腾，大厨们以本地开江鱼为食材，烹制出一道道色香味俱全的江鱼佳肴，吸引众多市民游客慕名前来“尝鲜”。
 
 ## 相关推荐
 
-- 2026-06-29 11:46 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:26 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:29 - [伊朗球员道歉 说着说着哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:41 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:48 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:39 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:23 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:26 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:32 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:39 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:30 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:47 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:34 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:22 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:26 - [“五一”假期首日：民众游杭州西湖享江南时光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:24 - [美国威胁制裁向伊朗缴通行费的航运企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:22 - [中国铁路迎来“五一”假期运输客流最高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:41 - [致敬劳动者｜每一方寸，因你而闪光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:42 - [远东国际观察：日本国会参议院通过2026财年预算案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:40 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:22 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:43 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:36 - [福州地铁客流连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:39 - [医护人员观影《四渡》传承长征精神](https://www.share.minike.top/Article/details/4170460400.shtml)
-- 2026-06-29 11:33 - [凯恩何时能拿到国际大赛冠军](https://www.blog.minike.top/Article/details/0224278268.shtml)
-- 2026-06-29 11:22 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/5464684.shtml)
-- 2026-06-29 11:44 - [户外吃烧烤多人头发变炸毛](http://www.blog.minike.top/Article/details/679411437.shtml)
-- 2026-06-29 11:20 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.share.minike.top/Article/details/1203808335.shtml)
-- 2026-06-29 11:20 - [Agent带来token消耗爆炸](http://www.blog.minike.top/Article/details/422296719.shtml)
-- 2026-06-29 11:46 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.minike.top/Article/details/8574001788.shtml)
-- 2026-06-29 11:29 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/8388550.shtml)
-- 2026-06-29 11:42 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/775601410883.shtml)
-- 2026-06-29 11:43 - [加拿大92分钟绝杀南非](http://www.blog.minike.top/Article/details/455974728197.shtml)
-- 2026-06-29 11:19 - [老虎瘦成纸片还吃草 园方回应](http://www.share.minike.top/Article/details/997852994199.shtml)
-- 2026-06-29 11:26 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.share.minike.top/Article/details/96701.shtml)
-- 2026-06-29 11:22 - [浦玮：阿根廷所在半区对手实力偏弱](http://www.blog.kurohicncr.top/Article/details/71822909.shtml)
-- 2026-06-29 11:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/32244.shtml)
-- 2026-06-29 11:41 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/1466203.shtml)
+- 2026-06-29 11:22 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](http://www.blog.minike.top/Article/details/035690.shtml)
+- 2026-06-29 11:48 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](http://www.blog.kurohicncr.top/Article/details/14925168.shtml)
+- 2026-06-29 11:36 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](http://www.share.minike.top/Article/details/53321.shtml)
+- 2026-06-29 11:29 - [王毅同美国国务卿鲁比奥通电话](http://www.share.minike.top/Article/details/80734.shtml)
+- 2026-06-29 11:44 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](http://www.blog.minike.top/Article/details/67070009.shtml)
+- 2026-06-29 11:30 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](http://www.share.kurohicncr.top/Article/details/72861035195.shtml)
+- 2026-06-29 11:35 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](http://www.blog.minike.top/Article/details/47597.shtml)
+- 2026-06-29 11:20 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](http://www.blog.minike.top/Article/details/83552.shtml)
+- 2026-06-29 11:22 - [海南商业航天重点项目加速建设](http://www.share.kurohicncr.top/Article/details/070785.shtml)
+- 2026-06-29 11:47 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](http://www.share.minike.top/Article/details/757706.shtml)
+- 2026-06-29 11:41 - [美官员：美军“福特”号航母已离开中东](http://www.blog.minike.top/Article/details/6456451.shtml)
+- 2026-06-29 11:38 - [水利部滚动会商部署“五一”假期期间防汛工作](http://www.blog.minike.top/Article/details/64266416.shtml)
+- 2026-06-29 11:27 - [孟加拉国外交部长卡利勒将访华](http://www.share.minike.top/Article/details/91564772.shtml)
+- 2026-06-29 11:41 - [巴菲特深度伪造视频，带来一场出人意料的AI风险警示](http://www.blog.minike.top/Article/details/39981539.shtml)
+- 2026-06-29 11:46 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](http://www.share.kurohicncr.top/Article/details/322365.shtml)

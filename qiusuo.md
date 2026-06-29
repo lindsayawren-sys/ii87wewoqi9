@@ -1,58 +1,54 @@
-# 国星宇航递表港交所，冲击“太空AI第一股”，估值116亿
+# 中金：澳门4月博彩收入大致符合预期 首选金沙中国
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-来源：独角兽早知道 5月14日，据港交所披露，成都国星宇航科技股份有限公司向港交所主板提交上市申请，国泰君安国际为独家保荐人。 综合 | 招股书 编辑 | Arti 本文仅为信息交流之用，不构成任何交易建议 国星宇航成立于2018年5月，总部位于成都，是一家专注于AI卫星技术研发与商业应用的民营商业航天企业。公司以“AI卫星”为切入点，构建了覆盖卫星设计、研制、发射协调、在轨运
+中金发布研报称，4月澳门博彩总收入同比增长5.5%，与市场预期的同比增长6.5%基本一致。环比计跌12%，恢复至2019年同期的84.3%。 中金认为，4月份的表现较为平淡，主要是由于4月为行业淡季；赢率偏低；监管部门加强对跨境博彩宣传引流以及滥用过境签证赴澳的监管力度。该行估算4月的贵宾博彩收入较2019年4月下降46%至55%，而中场博彩收入则较2019年4月增长11%至1
 
 ## 正文
 
-来源：独角兽早知道 5月14日，据港交所披露，成都国星宇航科技股份有限公司向港交所主板提交上市申请，国泰君安国际为独家保荐人。
+中金发布研报称，4月澳门博彩总收入同比增长5.5%，与市场预期的同比增长6.5%基本一致。
 
-综合 | 招股书 编辑 | Arti 本文仅为信息交流之用，不构成任何交易建议 国星宇航成立于2018年5月，总部位于成都，是一家专注于AI卫星技术研发与商业应用的民营商业航天企业。
+环比计跌12%，恢复至2019年同期的84.3%。
 
-公司以“AI卫星”为切入点，构建了覆盖卫星设计、研制、发射协调、在轨运控及星基解决方案的全产业链能力。
+中金认为，4月份的表现较为平淡，主要是由于4月为行业淡季；赢率偏低；监管部门加强对跨境博彩宣传引流以及滥用过境签证赴澳的监管力度。
 
-根据弗若斯特沙利文的资料，以2025年收入计，国星宇航在管理卫星行业全价值链的所有中国民营商业航天公司中排名第二。
+该行估算4月的贵宾博彩收入较2019年4月下降46%至55%，而中场博彩收入则较2019年4月增长11%至19%，中场收入佔总博彩收入的比例达到70%至75%。
 
-按累计AI卫星发射次数计，公司在中国所有民营商业航天企业中排名首位。
+该行预计5月博彩总收入为217亿至233亿澳门元，日均收入7亿至7.5亿澳门元，同比增长2%至10%，与2019年5月相比下降10%至16%。
 
-2026年4月，公司完成IPO前最后一轮融资，募集资金总额35.5亿元，投后估值达115.54亿元。
+对板块内个股排序仍然为金沙中国（01928）>美高梅中国（02282）=银河娱乐（00027）（两企平排）>新濠>永利澳门（01128）>澳博控股（00880）。
 
-如果顺利上市，公司有望成为港股“太空AI第一股”。
-
-国星宇航的差异化竞争力，在于公司从一开始就没有将自己定位为单纯的“卫星制造商”，而是将AI算力作为卫星能力的核心。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:21 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:34 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:36 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:45 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:34 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:29 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:34 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:48 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:29 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:30 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:35 - [中央气象台：江南华南等地将有强降水及强对流天气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:18 - [全美自动驾驶出租车行业迎来爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:44 - [特朗普称可能考虑从西班牙和意大利撤出部分军队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:42 - [外交部发言人就东京审判开庭80周年答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:41 - [福州市签约22个数字经济重点项目 总投资190亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:44 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:21 - [伏季休渔启幕 广西北海侨港码头渔市热闹收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:29 - [星火成炬｜生活的想象力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:27 - [厦门推动两岸标准共通助力台企拓宽市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:37 - [今年以来广西爱店口岸跨境贸易持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:46 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.minike.top/Article/details/558872195608.shtml)
-- 2026-06-29 11:22 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/58902.shtml)
-- 2026-06-29 11:25 - [杨紫《生命树》播放量破百亿](http://www.share.kurohicncr.top/Article/details/944151.shtml)
-- 2026-06-29 11:21 - [陈靖可虞书欣领衔主演](https://www.blog.minike.top/Article/details/26222.shtml)
-- 2026-06-29 11:34 - [欧洲已有超1300例超额死亡与高温有关](https://www.blog.minike.top/Article/details/94477.shtml)
-- 2026-06-29 11:46 - [唐艺昕女儿接唐艺昕回家](https://www.share.kurohicncr.top/Article/details/209973408.shtml)
-- 2026-06-29 11:23 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/6925312067.shtml)
-- 2026-06-29 11:33 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/97291.shtml)
-- 2026-06-29 11:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/87546107142.shtml)
-- 2026-06-29 11:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/0357470408.shtml)
-- 2026-06-29 11:32 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/483129218928.shtml)
-- 2026-06-29 11:46 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/264909.shtml)
-- 2026-06-29 11:26 - [全球首发核电站彩蛋攻略](http://www.share.kurohicncr.top/Article/details/470013914754.shtml)
-- 2026-06-29 11:24 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/327461.shtml)
-- 2026-06-29 11:44 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/18149322.shtml)
+- 2026-06-29 11:41 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](http://www.share.minike.top/Article/details/364901.shtml)
+- 2026-06-29 11:26 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](http://www.blog.minike.top/Article/details/262681.shtml)
+- 2026-06-29 11:39 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](http://www.blog.minike.top/Article/details/71873121.shtml)
+- 2026-06-29 11:43 - [“五一”假期首日：民众游杭州西湖享江南时光](http://www.blog.minike.top/Article/details/97636864.shtml)
+- 2026-06-29 11:31 - [美国威胁制裁向伊朗缴通行费的航运企业](http://www.share.minike.top/Article/details/7894319.shtml)
+- 2026-06-29 11:24 - [中国铁路迎来“五一”假期运输客流最高峰](http://www.share.minike.top/Article/details/32991974488.shtml)
+- 2026-06-29 11:33 - [致敬劳动者｜每一方寸，因你而闪光](http://www.blog.kurohicncr.top/Article/details/599116760.shtml)
+- 2026-06-29 11:38 - [远东国际观察：日本国会参议院通过2026财年预算案](http://www.blog.kurohicncr.top/Article/details/693608058259.shtml)
+- 2026-06-29 11:24 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](http://www.share.kurohicncr.top/Article/details/16650.shtml)
+- 2026-06-29 11:42 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](http://www.share.kurohicncr.top/Article/details/364223.shtml)
+- 2026-06-29 11:29 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](http://www.blog.minike.top/Article/details/621941.shtml)
+- 2026-06-29 11:40 - [福州地铁客流连创新高](http://www.share.minike.top/Article/details/2336886079.shtml)
+- 2026-06-29 11:29 - [埃及侨商：持续推动“零关税”红利转化为务实合作](http://www.share.kurohicncr.top/Article/details/14514.shtml)
+- 2026-06-29 11:33 - [“05后”持有人猛增10倍，年轻人涌向AI基金](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [2026五一档新片票房破9000万](http://www.blog.minike.top/Article/details/4034331.shtml)

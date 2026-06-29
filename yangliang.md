@@ -1,55 +1,57 @@
-# 稀美资源午前涨逾3% 机构好看公司将深度受益周期红利
+# 劳动者宋春胜：千家万户的“安全阀”
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-稀美资源（09936）午前涨超3%，截至发稿，股价上涨2.75%，现报12.69港元，成交额1174.89万港元。 国海证券研报指出，2026年初至今，全球钽供应持续趋紧、矿价快速上行。经该行测算，冶炼环节利润增幅显著高于矿端，中游盈利弹性有望充分释放，稀美资源作为钽铌冶炼龙头将深度受益于周期红利。2025年，公司多项核心产品实现突破，推动产品结构向电子元器件、超导、高纯靶材等
+中新网沈阳5月1日电 题：劳动者宋春胜：千家万户的“安全阀” 作者 杨茜茜 5月1日，沈阳老城区的街巷刚飘起早点摊的热气，宋春胜已背着工具包，叩响了今天第一户家门。上门安检，是他坚守岗位的第九个劳动节。“我不奢求谁记住我，只希望大家能记住安全用气常识，平平安安的。”他说。 “第一次敲用户家门，手都攥紧了工牌，手指发抖，犹豫好几分钟才敢敲下去。”回忆起刚入职的场景，宋春胜记忆犹新
 
 ## 正文
 
-稀美资源（09936）午前涨超3%，截至发稿，股价上涨2.75%，现报12.69港元，成交额1174.89万港元。
+中新网沈阳5月1日电 题：劳动者宋春胜：千家万户的“安全阀” 作者 杨茜茜 5月1日，沈阳老城区的街巷刚飘起早点摊的热气，宋春胜已背着工具包，叩响了今天第一户家门。
 
-国海证券研报指出，2026年初至今，全球钽供应持续趋紧、矿价快速上行。
+上门安检，是他坚守岗位的第九个劳动节。
 
-经该行测算，冶炼环节利润增幅显著高于矿端，中游盈利弹性有望充分释放，稀美资源作为钽铌冶炼龙头将深度受益于周期红利。
+“我不奢求谁记住我，只希望大家能记住安全用气常识，平平安安的。
 
-2025年，公司多项核心产品实现突破，推动产品结构向电子元器件、超导、高纯靶材等高附加值领域升级。
+”他说。
 
-同时海外市场拓展成效显著，海外客户对高端产品溢价接受度更高，海外营收占比提升将进一步放大整体利润弹性。
+“第一次敲用户家门，手都攥紧了工牌，手指发抖，犹豫好几分钟才敢敲下去。
 
-责任编辑：卢昱君
+”回忆起刚入职的场景，宋春胜记忆犹新，“门开那一刻，我头都不敢抬，心里既怕用户不耐烦，又怕自己说的不专业。
+
+” 这个从辽西喀左农村走出来的青年，毫不避讳自己的来处：“我家祖祖辈辈都是农民。
+
+”2016年，他考入沈阳燃气，成为一线安检员。
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:29 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:46 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:28 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:41 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:19 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:26 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:27 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:41 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:47 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:28 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:30 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:21 - [谷歌云增速超越微软、亚马逊，三大云厂商均受益AI需求业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:47 - [福建舰两年8次海试 中国航母技术实现历史性跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:24 - [【东西问】与龙共舞的凤，何以成为中华民族精神象征？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:27 - [芝加哥期权交易所正裁减全球20%员工](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:24 - [花样游泳世界杯侧记：长安浪花起 出水亦芙蓉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:31 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:23 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:36 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:24 - [“五一”假期首日：民众游杭州西湖享江南时光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:32 - [美国威胁制裁向伊朗缴通行费的航运企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:47 - [中国铁路迎来“五一”假期运输客流最高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [韩体育部长回应李在明痛批](https://www.blog.minike.top/Article/details/26822237.shtml)
-- 2026-06-29 11:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/634271457511.shtml)
-- 2026-06-29 11:46 - [毕业典礼整活 梗密到不知先笑哪个](http://www.share.kurohicncr.top/Article/details/64665410743.shtml)
-- 2026-06-29 11:21 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.share.minike.top/Article/details/588296108623.shtml)
-- 2026-06-29 11:32 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/906722683111.shtml)
-- 2026-06-29 11:19 - [BW2026游览指南](https://www.blog.kurohicncr.top/Article/details/8041725.shtml)
-- 2026-06-29 11:41 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/542997830.shtml)
-- 2026-06-29 11:23 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/0685429500.shtml)
-- 2026-06-29 11:34 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/092999.shtml)
-- 2026-06-29 11:27 - [日本媒体：板仓滉已回归日本队合练](https://www.blog.minike.top/Article/details/6559990.shtml)
-- 2026-06-29 11:47 - [极限挑战第一季](https://www.blog.minike.top/Article/details/4577925191.shtml)
-- 2026-06-29 11:30 - [张一山说杨紫早该拿奖了](https://www.share.minike.top/Article/details/02715186.shtml)
-- 2026-06-29 11:30 - [爱很美味](http://www.share.kurohicncr.top/Article/details/6961808.shtml)
-- 2026-06-29 11:23 - [毕业寄几百斤快递回家女生发声](http://www.blog.minike.top/Article/details/865195253.shtml)
-- 2026-06-29 11:43 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/970336043336.shtml)
+- 2026-06-29 11:36 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](http://www.share.kurohicncr.top/Article/details/57926103.shtml)
+- 2026-06-29 11:41 - [宁夏银川：水上运动成民众假期户外社交“新宠”](http://www.share.kurohicncr.top/Article/details/331893.shtml)
+- 2026-06-29 11:46 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](http://www.share.minike.top/Article/details/876947854.shtml)
+- 2026-06-29 11:43 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](http://www.share.minike.top/Article/details/12077078.shtml)
+- 2026-06-29 11:36 - [贵州台江：万人盛装游演欢度“姊妹节”](http://www.blog.minike.top/Article/details/45630.shtml)
+- 2026-06-29 11:25 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](http://www.share.minike.top/Article/details/6026509.shtml)
+- 2026-06-29 11:38 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](http://www.blog.minike.top/Article/details/03200942.shtml)
+- 2026-06-29 11:44 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](http://www.blog.kurohicncr.top/Article/details/169342893.shtml)
+- 2026-06-29 11:23 - [王毅同美国国务卿鲁比奥通电话](http://www.blog.kurohicncr.top/Article/details/3818123910.shtml)
+- 2026-06-29 11:42 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](http://www.share.minike.top/Article/details/8913230.shtml)
+- 2026-06-29 11:46 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](http://www.share.minike.top/Article/details/4045918.shtml)
+- 2026-06-29 11:41 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](http://www.share.kurohicncr.top/Article/details/92318.shtml)
+- 2026-06-29 11:23 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](http://www.share.kurohicncr.top/Article/details/7788498103.shtml)
+- 2026-06-29 11:38 - [海南商业航天重点项目加速建设](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](http://www.blog.kurohicncr.top/Article/details/115322.shtml)

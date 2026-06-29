@@ -1,51 +1,60 @@
-# 《给阿嬷的情书》何以戳中全民泪点？
+# 美政府官员称2月28日开始的“敌对行动已结束”
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月15日 11:48 来源：国是直通车 潮汕方言电影《给阿嬷的情书》，无知名演员加持、无大规模宣发投入，却凭借质朴真挚的故事直抵人心，成为2026年五一档温情满满的现象级爆款。影片豆瓣开分高达9.1分，上映15天票房便突破2亿元，众多观众观影后直言几度落泪、泪湿纸巾。 这部小成本影片之所以能戳中亿万国人泪点、引发全民共情，不只在于影片讲述了跨越山海的至亲
+中新网5月1日电 据美联社30日报道，特朗普政府官员称，由于4月初开始的停火，伊朗战事已经结束。报道称，这一解释将使白宫可以避免向国会寻求授权。 一位要求匿名以讨论政府立场的政府高级官员表示，“2月28日开始的敌对行动已经终止”。该官员称，自4月7日开始为期两周的停火以来，美军与伊朗方面未再发生交火。 报道指出，这一声明进一步强化了美国国防部长赫格塞斯30日提出的论点，当时他表
 
 ## 正文
 
-发布时间：2026年05月15日 11:48 来源：国是直通车 潮汕方言电影《给阿嬷的情书》，无知名演员加持、无大规模宣发投入，却凭借质朴真挚的故事直抵人心，成为2026年五一档温情满满的现象级爆款。
+中新网5月1日电 据美联社30日报道，特朗普政府官员称，由于4月初开始的停火，伊朗战事已经结束。
 
-影片豆瓣开分高达9.1分，上映15天票房便突破2亿元，众多观众观影后直言几度落泪、泪湿纸巾。
+报道称，这一解释将使白宫可以避免向国会寻求授权。
 
-这部小成本影片之所以能戳中亿万国人泪点、引发全民共情，不只在于影片讲述了跨越山海的至亲情义，更因为故事深处，藏着中国人刻在骨血里的家国情怀。
+一位要求匿名以讨论政府立场的政府高级官员表示，“2月28日开始的敌对行动已经终止”。
 
-这一纸写给阿嬷的深情情书，实则也是写给全体中华儿女的家国情书，时刻提醒着世人：人间情义永不过时，民族根脉永续相连。
+该官员称，自4月7日开始为期两周的停火以来，美军与伊朗方面未再发生交火。
 
-责任编辑：【李季】
+报道指出，这一声明进一步强化了美国国防部长赫格塞斯30日提出的论点，当时他表示停火实际上已使战争暂停。
+
+此前报道，美国国防部长赫格塞思4月30日在国会作证时称，美国与伊朗临时停火4月8日生效，意味着总统特朗普对伊朗采取军事行动的60天法律时限已“暂停或中止”，特朗普政府眼下无需就对伊朗军事行动寻求国会授权。
+
+根据美国1973年通过的《战争权力法》，总统在首次通知国会动用军事力量后，应在60天内决定停止该军事行动或者寻求国会授权继续作战。
+
+特朗普政府3月2日正式告知国会对伊朗发起军事行动，由此推算的60天法律时限将于5月1日到期。
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:36 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:36 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:26 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:26 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:40 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:24 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:42 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:46 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:31 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:31 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:45 - [“香港金融之夜”活动在港举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:38 - [风花雪月遇咖香 “风花雪月·啡尝不可”2026大理咖啡节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:21 - [中央气象台：江南华南等地将有强降水及强对流天气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:24 - [全美自动驾驶出租车行业迎来爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:40 - [特朗普称可能考虑从西班牙和意大利撤出部分军队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:24 - [外交部发言人就东京审判开庭80周年答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:33 - [福州市签约22个数字经济重点项目 总投资190亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:30 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:20 - [伏季休渔启幕 广西北海侨港码头渔市热闹收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:40 - [星火成炬｜生活的想象力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:29 - [厦门推动两岸标准共通助力台企拓宽市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:37 - [今年以来广西爱店口岸跨境贸易持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:44 - [亚马逊Audible李博隆：AI让研发成本和机会成本大大下降，越来越多科技公司开始做跨界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:40 - [深度伪造的“虚拟”沃伦·巴菲特开启伯克希尔年度股东大会问答环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [黄博文：坚持这样打下去会成强队](https://www.share.minike.top/Article/details/46754567.shtml)
-- 2026-06-29 11:30 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.minike.top/Article/details/12529947397.shtml)
-- 2026-06-29 11:36 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.kurohicncr.top/Article/details/875151580352.shtml)
-- 2026-06-29 11:43 - [四川宜宾地震](http://www.blog.kurohicncr.top/Article/details/43852164.shtml)
-- 2026-06-29 11:19 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/410399922886.shtml)
-- 2026-06-29 11:24 - [和阿根廷球员家属一起看球](https://www.share.minike.top/Article/details/4804900841.shtml)
-- 2026-06-29 11:33 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.share.kurohicncr.top/Article/details/2034973857.shtml)
-- 2026-06-29 11:28 - [欧洲热死人不是开玩笑](https://www.blog.kurohicncr.top/Article/details/241736382952.shtml)
-- 2026-06-29 11:37 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/5555815290.shtml)
-- 2026-06-29 11:26 - [某高校学生被辅导员等人扭送至公安](http://www.blog.kurohicncr.top/Article/details/78521661.shtml)
-- 2026-06-29 11:30 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/482049.shtml)
-- 2026-06-29 11:42 - [伊朗球员道歉 说着说着哭了](http://www.blog.kurohicncr.top/Article/details/219270730463.shtml)
-- 2026-06-29 11:44 - [退休化学教授帮医药研发人员制毒](http://www.blog.minike.top/Article/details/5311706.shtml)
-- 2026-06-29 11:26 - [凯恩何时能拿到国际大赛冠军](http://www.blog.minike.top/Article/details/9400483998.shtml)
-- 2026-06-29 11:26 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](http://www.share.minike.top/Article/details/03191.shtml)
+- 2026-06-29 11:24 - [芝加哥期权交易所正裁减全球20%员工](http://www.share.minike.top/Article/details/656460.shtml)
+- 2026-06-29 11:37 - [花样游泳世界杯侧记：长安浪花起 出水亦芙蓉](http://www.blog.minike.top/Article/details/04825050202.shtml)
+- 2026-06-29 11:22 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](http://www.blog.kurohicncr.top/Article/details/53812.shtml)
+- 2026-06-29 11:45 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](http://www.blog.kurohicncr.top/Article/details/7312043.shtml)
+- 2026-06-29 11:35 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](http://www.share.kurohicncr.top/Article/details/35776.shtml)
+- 2026-06-29 11:41 - [“五一”假期首日：民众游杭州西湖享江南时光](http://www.blog.kurohicncr.top/Article/details/68768732941.shtml)
+- 2026-06-29 11:36 - [美国威胁制裁向伊朗缴通行费的航运企业](http://www.blog.kurohicncr.top/Article/details/349800.shtml)
+- 2026-06-29 11:47 - [中国铁路迎来“五一”假期运输客流最高峰](http://www.share.kurohicncr.top/Article/details/1176036501.shtml)
+- 2026-06-29 11:18 - [致敬劳动者｜每一方寸，因你而闪光](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [远东国际观察：日本国会参议院通过2026财年预算案](http://www.share.kurohicncr.top/Article/details/244411626.shtml)
+- 2026-06-29 11:20 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](http://www.blog.kurohicncr.top/Article/details/5609280217.shtml)
+- 2026-06-29 11:32 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](http://www.blog.minike.top/Article/details/905893.shtml)
+- 2026-06-29 11:21 - [福州地铁客流连创新高](http://www.share.minike.top/Article/details/57811.shtml)
+- 2026-06-29 11:27 - [埃及侨商：持续推动“零关税”红利转化为务实合作](http://www.share.kurohicncr.top/Article/details/94564812.shtml)

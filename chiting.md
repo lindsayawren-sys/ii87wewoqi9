@@ -1,58 +1,60 @@
-# 英特尔自3月低点已飙升214% 空头面临120亿美元损失
+# “科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-英特尔的上涨为该公司增加了超过4400亿美元的市值，人工智能乐观情绪和英伟达的支持推动了半导体股票的上涨。 英特尔已成为市场上最激进的动量交易标的之一，从3月30日的低点到周一收盘，其股价已上涨214%。根据S3 Partners的数据，这一涨幅为英特尔增加了超过4400亿美元的市值，并导致空头账面损失超过120亿美元。然而，押注英特尔下跌的交易员并未离场。尽管上周该股大涨25
+央视网消息：“五一”假期，文旅市场持续火热，各地打造多元文旅消费新业态、新场景，让人们尽享假日休闲时光。 公园露营游客数量大幅增长 在北京，多家公园露营的游客数量大幅攀升。在温榆河公园，连片的露营帐篷错落排布，春日户外的热闹氛围扑面而来。 感受美丽春色 骑行赏景正当时 在河北，休闲游也备受青睐。在沧州献县，当地特色文旅打卡地“子牙天路”，吸引了大批骑行爱好者齐聚于此。“子牙天路
 
 ## 正文
 
-英特尔的上涨为该公司增加了超过4400亿美元的市值，人工智能乐观情绪和英伟达的支持推动了半导体股票的上涨。
+央视网消息：“五一”假期，文旅市场持续火热，各地打造多元文旅消费新业态、新场景，让人们尽享假日休闲时光。
 
-英特尔已成为市场上最激进的动量交易标的之一，从3月30日的低点到周一收盘，其股价已上涨214%。
+公园露营游客数量大幅增长 在北京，多家公园露营的游客数量大幅攀升。
 
-根据S3 Partners的数据，这一涨幅为英特尔增加了超过4400亿美元的市值，并导致空头账面损失超过120亿美元。
+在温榆河公园，连片的露营帐篷错落排布，春日户外的热闹氛围扑面而来。
 
-然而，押注英特尔下跌的交易员并未离场。
+感受美丽春色 骑行赏景正当时 在河北，休闲游也备受青睐。
 
-尽管上周该股大涨25%，创下自2000年1月以来的最佳单周表现，但空头占流通股的比例仍接近52周高点。
+在沧州献县，当地特色文旅打卡地“子牙天路”，吸引了大批骑行爱好者齐聚于此。
 
-周一涨势继续，英特尔创下另一个历史新高，随后周二股价一度下跌5%。
+“子牙天路”依子牙河沿岸蜿蜒延伸，全线错落分布着380道弯道，驾车或骑行穿行其间。
 
-最新一轮涨势受到一份报道的推动，该报道称英特尔已与苹果公司达成初步的芯片制造协议，为这轮涨势增添了新的动力，使英特尔成为自4月初以来标普500指数中表现最好的股票。
+田间麦田绿意盎然，沿线村落错落分布，游客纷纷驻足观景、拍照打卡，尽情享受假日里的乡村美好风光。
 
-更广泛的半导体板块也在继续攀升，随着芯片股在2026年走高，美光科技和超微公司的空头头寸也有所增加。
+科技潮玩不停歇 休闲游受青睐 而在秦皇岛卢龙县的左右山谷景区，当地推出科技国风跨界、人机互动竞技等多元玩法，打造沉浸式游玩新体验，让游客饱览春日风光，玩转智能科技。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:33 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:24 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:35 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:47 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:40 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:44 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:22 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:26 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:20 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:47 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:39 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:39 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:36 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:24 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:26 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:35 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:43 - [以更大力度更实举措加强基础研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:18 - [日元保卫战或一触即发 日本财相警告“时机临近”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:24 - [埃克森CEO对委内瑞拉态度转变 此前曾批评该国“不可投资”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:27 - [民警一声“快来帮忙”，整座桥上的人都来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:45 - [英特尔收购Sambanova获美国反垄断批准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:41 - [北约秘书长：北约欧洲国家听懂特朗普的话了 正落实美军请求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:30 - [一见·加强基础研究，总书记强调这个关键因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:23 - [亚马逊业绩超预期，AWS重新加速增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:38 - [亚马逊：受损阿联酋云区域恢复需数月时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/25835159.shtml)
-- 2026-06-29 11:33 - [杨紫《生命树》播放量破百亿](http://www.share.minike.top/Article/details/4175396314.shtml)
-- 2026-06-29 11:23 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/9624522.shtml)
-- 2026-06-29 11:34 - [记者暗访贵州和云南多个养老机构](https://www.blog.minike.top/Article/details/280085502952.shtml)
-- 2026-06-29 11:44 - [韩国拟将部分刑责年龄降至13岁](https://www.blog.minike.top/Article/details/3564096924.shtml)
-- 2026-06-29 11:25 - [马杜罗社交媒体账号再发文](http://www.share.minike.top/Article/details/9067825518.shtml)
-- 2026-06-29 11:41 - [BW2026游览指南](http://www.blog.minike.top/Article/details/022777835741.shtml)
-- 2026-06-29 11:27 - [温瑞博袁励岑晋级美国大满贯男双16强](https://www.share.kurohicncr.top/Article/details/3655959.shtml)
-- 2026-06-29 11:26 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/365297821706.shtml)
-- 2026-06-29 11:41 - [佛得角到底在哪个“角”](https://www.share.kurohicncr.top/Article/details/222892.shtml)
-- 2026-06-29 11:37 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.blog.minike.top/Article/details/426757313.shtml)
-- 2026-06-29 11:43 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/60658.shtml)
-- 2026-06-29 11:20 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/62826.shtml)
-- 2026-06-29 11:44 - [《给阿嬷的情书》里的情义与守望](https://www.share.minike.top/Article/details/03596165.shtml)
-- 2026-06-29 11:33 - [DSpark论文深度解读](https://www.share.minike.top/Article/details/3813302286.shtml)
+- 2026-06-29 11:31 - [“苏超”南京赛区志愿者暖心护航 宁马青年聚力绽放青春力量](http://www.share.minike.top/Article/details/819550.shtml)
+- 2026-06-29 11:29 - [刀为笔、木为纸 木版年画比赛展非遗魅力](http://www.blog.kurohicncr.top/Article/details/60462.shtml)
+- 2026-06-29 11:33 - [福建首个侨台档案融合展示馆开门迎客](http://www.share.minike.top/Article/details/70667794903.shtml)
+- 2026-06-29 11:34 - [AI浪潮里的“模速青年”：勇敢追梦，让年轻有“模”有样](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [巴西国家石油公司宣布航空煤油提价18%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [马里一军营被武装组织控制 首都周边交通受阻](http://www.share.minike.top/Article/details/77587067782.shtml)
+- 2026-06-29 11:40 - [伯克希尔一季度利润翻倍以上 保险、铁路、能源业务提振业绩](http://www.share.kurohicncr.top/Article/details/1868834390.shtml)
+- 2026-06-29 11:21 - [Vulcan Materials一季度营收超预期 因建材需求强劲](http://www.blog.kurohicncr.top/Article/details/57311.shtml)
+- 2026-06-29 11:21 - [巴菲特：当前并非伯克希尔理想的投资环境](http://www.share.minike.top/Article/details/749991761378.shtml)
+- 2026-06-29 11:22 - [5月1日全社会跨区域人员流动量预计超3.4亿人次](http://www.share.kurohicncr.top/Article/details/66951460456.shtml)
+- 2026-06-29 11:31 - [见证历史！伯克希尔现金储备近3万亿！95岁巴菲特正式“退役”，阿贝尔：不会为了AI而AI](http://www.blog.minike.top/Article/details/76592042153.shtml)
+- 2026-06-29 11:41 - [专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默](http://www.share.minike.top/Article/details/069334813275.shtml)
+- 2026-06-29 11:22 - [【小新的Vlog】探访藏在四川深山里的“白衣飘飘” 邂逅漫山“植物活化石”](http://www.share.kurohicncr.top/Article/details/28413.shtml)
+- 2026-06-29 11:28 - [存储巨头业绩股价双炸裂，利润最高涨超7倍，股价年涨幅最高35倍](http://www.blog.minike.top/Article/details/807000768.shtml)
+- 2026-06-29 11:27 - [直击巴菲特股东会｜对话巴菲特旗下分公司高管：巴菲特和格雷格信任每一位经理](http://www.blog.minike.top/Article/details/30530.shtml)

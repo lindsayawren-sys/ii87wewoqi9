@@ -1,56 +1,59 @@
-# 维珍银河2026年一季度财报前瞻：商业化前夜的关键转折点
+# 前瞻｜巴菲特谢幕，阿贝尔登场：2026伯克希尔股东大会有何看点？
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-太空旅游公司维珍银河将于本周四收盘后发布2026年第一季度财报，市场正密切关注这家处于商业化前夜的公司能否在今年晚些时候如约重启商业飞行。 财报预期与近期轨迹 根据市场数据，分析师预计维珍银河本季度营收约为20万至24万美元，每股亏损预计在0.79至0.94美元之间。上一季度公司营收31.2万美元，每股亏损0.98美元，单季净亏损约6272万美元，亏损额较上年同期收窄约18%。
+界面新闻特派记者王子啡（发自美国奥马哈） 美国中部城市奥马哈，正在迎来一场注定不同寻常的股东大会。 每年五月，成千上万名投资者涌入这座位于内布拉斯加州的城市，以求能亲眼见见沃伦·巴菲特（Warren Buffett）、亲耳聆听他的投资建议。他们在CHI健康中心外，早早排起长队——可能还会买上一盒冰雪皇后的冰淇淋、或是See’s Candies的糖果——期待在之后那个超长的问答环
 
 ## 正文
 
-太空旅游公司维珍银河将于本周四收盘后发布2026年第一季度财报，市场正密切关注这家处于商业化前夜的公司能否在今年晚些时候如约重启商业飞行。
+界面新闻特派记者王子啡（发自美国奥马哈） 美国中部城市奥马哈，正在迎来一场注定不同寻常的股东大会。
 
-财报预期与近期轨迹 根据市场数据，分析师预计维珍银河本季度营收约为20万至24万美元，每股亏损预计在0.79至0.94美元之间。
+每年五月，成千上万名投资者涌入这座位于内布拉斯加州的城市，以求能亲眼见见沃伦·巴菲特（Warren Buffett）、亲耳聆听他的投资建议。
 
-上一季度公司营收31.2万美元，每股亏损0.98美元，单季净亏损约6272万美元，亏损额较上年同期收窄约18%。
+他们在CHI健康中心外，早早排起长队——可能还会买上一盒冰雪皇后的冰淇淋、或是See’s Candies的糖果——期待在之后那个超长的问答环节里，亲见一位耄耋老人连续数小时，舌战四方。
 
-尽管营收规模微小，但亏损收窄趋势反映了公司在暂停商业飞行期间的成本控制成效。
+这套仪式，维持了六十年。
 
-商业化路线图：年底重启飞行 公司的核心看点在于全新的Delta级太空船计划。
+但2026年5月2日，这一切将有所不同。
 
-管理层确认首艘太空船已进入地面测试阶段，预计第三季度开始飞行测试，目标在第四季度重启商业飞行，并逐步将飞行频率提升至每周约1次。
+今年是伯克希尔·哈撒韦（Berkshire Hathaway）股东大会六十年历史上，第一次不由巴菲特主持。
 
-新太空船设计寿命可达500次飞行，远超老款。
+去年5月，95岁的巴菲特在大会上宣布卸任CEO，将接力棒正式交给格雷格·阿贝尔（Greg Abel）。
 
-新票价为每座75万美元，较此前上调25%，首批发售50张。
+董事会随后于2026年1月1日确认阿贝尔出任新CEO，巴菲特以非执行董事长身份留任。
 
 ## 相关推荐
 
-- 2026-06-29 11:38 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:33 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:29 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:41 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:21 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:24 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:40 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:36 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:48 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:30 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:18 - [浙江杭州：民众走“运”度假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:31 - [天津国际邮轮母港单日出入境旅客创年内新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:47 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:46 - [每天走路够这个量 或能延寿11年！健步走行动清单快掌握→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:21 - [中国生物医学新技术“基本法”实施 院企专家盼规范促产业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:30 - [特朗普：美国开启霍尔木兹海峡船只通行自由行动将于中东时间周一上午启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:28 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:18 - [宁夏银川：水上运动成民众假期户外社交“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:19 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:26 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:34 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:44 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:46 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/278194849543.shtml)
-- 2026-06-29 11:40 - [世界杯打成了欧洲杯和美洲杯](https://www.share.kurohicncr.top/Article/details/0526172201.shtml)
-- 2026-06-29 11:20 - [DeepSeek联合北京大学发布论文](http://www.blog.kurohicncr.top/Article/details/349081198447.shtml)
-- 2026-06-29 11:36 - [林诗栋晋级WTT美国大满贯男单32强](http://www.blog.kurohicncr.top/Article/details/579110162.shtml)
-- 2026-06-29 11:40 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/69213.shtml)
-- 2026-06-29 11:24 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/14141239.shtml)
-- 2026-06-29 11:48 - [BW2026游览指南](https://www.blog.minike.top/Article/details/53420.shtml)
-- 2026-06-29 11:34 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.share.kurohicncr.top/Article/details/2924791225.shtml)
-- 2026-06-29 11:27 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.kurohicncr.top/Article/details/9049116.shtml)
-- 2026-06-29 11:34 - [欧洲已有超1300例超额死亡与高温有关](https://www.blog.minike.top/Article/details/8291929682.shtml)
-- 2026-06-29 11:25 - [我和我的家乡](http://www.blog.minike.top/Article/details/353990195.shtml)
-- 2026-06-29 11:33 - [哈尔滨“全城追菠萝蜜”](http://www.share.minike.top/Article/details/550718.shtml)
-- 2026-06-29 11:26 - [DSpark论文深度解读](https://www.share.minike.top/Article/details/021121108.shtml)
-- 2026-06-29 11:31 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.kurohicncr.top/Article/details/22528.shtml)
-- 2026-06-29 11:24 - [逃狱兄弟](http://www.blog.minike.top/Article/details/08623.shtml)
+- 2026-06-29 11:42 - [阿贝尔重申伯克希尔核心原则](http://www.share.kurohicncr.top/Article/details/024143.shtml)
+- 2026-06-29 11:39 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](http://www.blog.minike.top/Article/details/4684442152.shtml)
+- 2026-06-29 11:40 - [云南边境的目瑙纵歌，何以火爆全网？](http://www.share.kurohicncr.top/Article/details/035765.shtml)
+- 2026-06-29 11:32 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](http://www.share.kurohicncr.top/Article/details/68500975.shtml)
+- 2026-06-29 11:31 - [重庆新开往返菲律宾马尼拉客运航线](http://www.blog.minike.top/Article/details/6846285.shtml)
+- 2026-06-29 11:32 - [新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动](http://www.share.minike.top/Article/details/3159440.shtml)
+- 2026-06-29 11:23 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](http://www.blog.kurohicncr.top/Article/details/7521886149.shtml)
+- 2026-06-29 11:27 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](http://www.blog.minike.top/Article/details/60682.shtml)
+- 2026-06-29 11:36 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [体验多元！“影视+文旅”点亮“五一”假期](http://www.share.kurohicncr.top/Article/details/3214069084.shtml)
+- 2026-06-29 11:45 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](http://www.share.kurohicncr.top/Article/details/09816968.shtml)
+- 2026-06-29 11:30 - [三星电子任命新的视觉显示业务负责人](http://www.blog.minike.top/Article/details/69887324408.shtml)
+- 2026-06-29 11:26 - [朝鲜外务省：美国炒作朝鲜“网络威胁”是无稽之谈](http://www.share.kurohicncr.top/Article/details/542280.shtml)
+- 2026-06-29 11:27 - [韩国特检组就金建希首案二审结果提出抗诉](https://github.com/lisacumin64-arch)

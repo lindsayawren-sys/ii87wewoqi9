@@ -1,60 +1,61 @@
-# 午盘：道指跌逾200点 纳指上涨0.8%
+# 鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-北京时间5月14日凌晨，美股周三午盘走势分化，道指下跌逾200点。芯片股上涨带动纳指走高。美国4月PPI同比飙升6%，创2022年以来最大涨幅，显示美国通胀压力升温。PPI报告后美债收益率升至10个月高位。 道指跌228.45点，跌幅为0.46%，报49532.11点；纳指涨215.93点，涨幅为0.83%，报26304.13点；标普500指数涨23.57点，涨幅为0.32%，
+登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|兰素英 每经编辑|王嘉琦 2026年4月29日，可能成为美联储历史上标志性的一天。 当天的议息会议以及随后鲍威尔以美联储主席身份作的告别演讲，打破了多项纪录。 美联储内部出现了34年来最严重的分裂，12名票委中4人反对不降息，鹰鸽两派对立明显。 随后，鲍威尔宣布，5月15日主席任期结束后，自己将继续以理事身份留任，打破
 
 ## 正文
 
-北京时间5月14日凌晨，美股周三午盘走势分化，道指下跌逾200点。
+登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|兰素英 每经编辑|王嘉琦 2026年4月29日，可能成为美联储历史上标志性的一天。
 
-芯片股上涨带动纳指走高。
+当天的议息会议以及随后鲍威尔以美联储主席身份作的告别演讲，打破了多项纪录。
 
-美国4月PPI同比飙升6%，创2022年以来最大涨幅，显示美国通胀压力升温。
+美联储内部出现了34年来最严重的分裂，12名票委中4人反对不降息，鹰鸽两派对立明显。
 
-PPI报告后美债收益率升至10个月高位。
+随后，鲍威尔宣布，5月15日主席任期结束后，自己将继续以理事身份留任，打破了美联储恪守75年的交接惯例。
 
-道指跌228.45点，跌幅为0.46%，报49532.11点；纳指涨215.93点，涨幅为0.83%，报26304.13点；标普500指数涨23.57点，涨幅为0.32%，报7424.53点。
+可以预见，凯文·沃什在出任美联储主席后，将面临极其复杂的局面，但这并不妨碍他对美联储进行大刀阔斧改革的计划。
 
-科技股表现优于市场其他板块，而因伊朗战争导致的能源价格上涨所引发的通胀担忧，对零售和银行等其他板块构成了压力。
+减少美联储官员与外界的沟通、弱化前瞻指引、废除点阵图甚至取消议息会议后的新闻发布会……从1994年开始的，历经格林斯潘、伯南克、耶伦和鲍威尔四朝的美联储“透明时代”，或将被凯文·沃什终结。
 
-英伟达股价上涨超过1%。
+当美联储的决策进入“黑盒”，外界最关心的是，在油价飙升、通胀高企的当下，凯文·沃什能否兑现他的降息承诺？
 
-AMD上涨1%，美光科技上涨逾5%。
+4月29日，美联储宣布将联邦基金利率目标区间维持在3.5%至3.75%之间不变。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:48 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:23 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:48 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:41 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:40 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:37 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:25 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:37 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:21 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:32 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:31 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:24 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:21 - [学习新语｜幸福属于劳动者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:19 - [刚刚，全线大涨！日本，突然动手了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:34 - [“五一”假期，中国游中国购的引力“藏不住了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:20 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:36 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:42 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:28 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:35 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:31 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:26 - [以更大力度更实举措加强基础研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:42 - [日元保卫战或一触即发 日本财相警告“时机临近”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:18 - [埃克森CEO对委内瑞拉态度转变 此前曾批评该国“不可投资”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:22 - [民警一声“快来帮忙”，整座桥上的人都来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:22 - [英特尔收购Sambanova获美国反垄断批准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:34 - [北约秘书长：北约欧洲国家听懂特朗普的话了 正落实美军请求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [我们注定是一撮县城葱姜蒜](https://www.share.kurohicncr.top/Article/details/294673120387.shtml)
-- 2026-06-29 11:31 - [三只羊大杨哥不直播改卖课](https://www.share.kurohicncr.top/Article/details/0280696.shtml)
-- 2026-06-29 11:42 - [下半年A股怎么走](http://www.blog.minike.top/Article/details/46959365.shtml)
-- 2026-06-29 11:44 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/551639.shtml)
-- 2026-06-29 11:41 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/929877395912.shtml)
-- 2026-06-29 11:35 - [F1奥地利正赛战报](http://www.blog.kurohicncr.top/Article/details/60883023647.shtml)
-- 2026-06-29 11:32 - [男子吃半根变苦黄瓜致肝衰竭](http://www.share.kurohicncr.top/Article/details/994553373453.shtml)
-- 2026-06-29 11:33 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/51420.shtml)
-- 2026-06-29 11:21 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/36253.shtml)
-- 2026-06-29 11:46 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://www.share.minike.top/Article/details/674515168186.shtml)
-- 2026-06-29 11:41 - [女子拍邻居家中裸照发业主群](http://www.share.kurohicncr.top/Article/details/4832085522.shtml)
-- 2026-06-29 11:18 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/37400410577.shtml)
-- 2026-06-29 11:27 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/236309.shtml)
-- 2026-06-29 11:32 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/578175434751.shtml)
-- 2026-06-29 11:46 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/87108788.shtml)
+- 2026-06-29 11:38 - [ASMPT早盘高开逾4% 建银国际将目标价上调至190港元](http://www.share.kurohicncr.top/Article/details/006662.shtml)
+- 2026-06-29 11:33 - [“五一”假期首日广东水上出行迎来客流高峰](http://www.blog.minike.top/Article/details/3338465941.shtml)
+- 2026-06-29 11:25 - [关于开展2026年企业ESG实践成果展示活动的通知](http://www.blog.kurohicncr.top/Article/details/93963.shtml)
+- 2026-06-29 11:23 - [干预数小时后 日元兑美元汇率大幅上涨](http://www.share.minike.top/Article/details/4692474766.shtml)
+- 2026-06-29 11:47 - [“苏超”南京赛区志愿者暖心护航 宁马青年聚力绽放青春力量](http://www.share.kurohicncr.top/Article/details/273511936590.shtml)
+- 2026-06-29 11:46 - [刀为笔、木为纸 木版年画比赛展非遗魅力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [福建首个侨台档案融合展示馆开门迎客](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [AI浪潮里的“模速青年”：勇敢追梦，让年轻有“模”有样](http://www.share.kurohicncr.top/Article/details/771700235316.shtml)
+- 2026-06-29 11:24 - [巴西国家石油公司宣布航空煤油提价18%](http://www.share.kurohicncr.top/Article/details/423855176083.shtml)
+- 2026-06-29 11:47 - [马里一军营被武装组织控制 首都周边交通受阻](http://www.share.kurohicncr.top/Article/details/78542452202.shtml)
+- 2026-06-29 11:31 - [伯克希尔一季度利润翻倍以上 保险、铁路、能源业务提振业绩](http://www.blog.kurohicncr.top/Article/details/54979556257.shtml)
+- 2026-06-29 11:25 - [Vulcan Materials一季度营收超预期 因建材需求强劲](http://www.blog.minike.top/Article/details/730864.shtml)
+- 2026-06-29 11:37 - [巴菲特：当前并非伯克希尔理想的投资环境](http://www.share.kurohicncr.top/Article/details/940051399673.shtml)
+- 2026-06-29 11:21 - [5月1日全社会跨区域人员流动量预计超3.4亿人次](http://www.blog.kurohicncr.top/Article/details/85396716744.shtml)
+- 2026-06-29 11:45 - [见证历史！伯克希尔现金储备近3万亿！95岁巴菲特正式“退役”，阿贝尔：不会为了AI而AI](http://www.blog.kurohicncr.top/Article/details/4123766363.shtml)

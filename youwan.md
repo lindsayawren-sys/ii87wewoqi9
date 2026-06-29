@@ -1,43 +1,58 @@
-# 5月14日人民币对美元中间价报6.8401元 上调30个基点
+# “香港金融之夜”活动在港举办
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网5月14日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年5月14日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8401元，上调30个基点。
+中新网香港4月30日电 (记者 戴小橦)中央广播电视总台“央视财经金融强国——香港金融之夜”30日在香港举办。活动以“汇聚、驱动、链通”为主题，现场同步发布了“央视财经粤港澳大湾区城市活力指数2026”。 香港特区政府财政司司长陈茂波出席活动并致辞表示，今年香港特区政府提出“金融+”发展策略，目标是让金融赋能渗透到产业每一个环节，加快推动金融、创科与产业发展三者之间的相互赋能，
 
 ## 正文
 
-中新网5月14日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年5月14日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8401元，上调30个基点。
+中新网香港4月30日电 (记者 戴小橦)中央广播电视总台“央视财经金融强国——香港金融之夜”30日在香港举办。
+
+活动以“汇聚、驱动、链通”为主题，现场同步发布了“央视财经粤港澳大湾区城市活力指数2026”。
+
+香港特区政府财政司司长陈茂波出席活动并致辞表示，今年香港特区政府提出“金融+”发展策略，目标是让金融赋能渗透到产业每一个环节，加快推动金融、创科与产业发展三者之间的相互赋能，以香港所长服务国家所需，同时为自身开拓更广阔的发展空间。
+
+中央广播电视总台亚太总站站长曹毅致辞表示，在“十五五”开局之年的新起点，活动聚焦香港的金融创新与实践。
+
+面向未来，希望共同探索香港发挥金融优势，在服务国家现代化建设中实现自身繁荣发展的新路径。
+
+活动现场分享了“香港金融之夜典型案例”，聚焦全球资本的配置高地、智能时代创新的金融引擎、人民币国际化的战略枢纽三个方面，展现香港金融服务国家战略、融入新发展格局、打造全球金融枢纽的创新实践。
+
+活动现场，中央广播电视总台财经节目中心发布“央视财经粤港澳大湾区城市活力指数2026”。
+
+指数聚焦粤港澳世界级城市群，结合大湾区金融中心、科创高地、开放融合等特色，独家解析粤港澳大湾区各城市活力表现。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:46 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:30 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:24 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:24 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:44 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:41 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:41 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:38 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:40 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:39 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:24 - [伏季休渔启幕 广西北海侨港码头渔市热闹收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:20 - [星火成炬｜生活的想象力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:31 - [厦门推动两岸标准共通助力台企拓宽市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:29 - [今年以来广西爱店口岸跨境贸易持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:27 - [亚马逊Audible李博隆：AI让研发成本和机会成本大大下降，越来越多科技公司开始做跨界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:44 - [深度伪造的“虚拟”沃伦·巴菲特开启伯克希尔年度股东大会问答环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:31 - [110对新人军营大婚：戎装白纱共绘“家国浪漫”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:26 - [成都铁路迎“五一”假期客流高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:20 - [最新名单！这些公司锁定退市，多元化出清格局成形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:31 - [长三角铁路5月2日预计发送旅客418万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:29 - [“对你们充满了敬意”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [Agent带来token消耗爆炸](https://www.blog.kurohicncr.top/Article/details/489480633789.shtml)
-- 2026-06-29 11:45 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/070904821309.shtml)
-- 2026-06-29 11:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/752602.shtml)
-- 2026-06-29 11:46 - [比亚迪市值为何蒸发8000亿](https://www.share.kurohicncr.top/Article/details/5271880751.shtml)
-- 2026-06-29 11:21 - [异世界一点都不好玩！](http://www.share.minike.top/Article/details/0557501195.shtml)
-- 2026-06-29 11:23 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/47299402514.shtml)
-- 2026-06-29 11:47 - [本届世界杯黑马扎堆](https://www.share.kurohicncr.top/Article/details/22192914647.shtml)
-- 2026-06-29 11:28 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/6404523990.shtml)
-- 2026-06-29 11:47 - [Mrbeast的30天不吃饭挑战](https://www.blog.kurohicncr.top/Article/details/772328830407.shtml)
-- 2026-06-29 11:46 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.minike.top/Article/details/36068515.shtml)
-- 2026-06-29 11:19 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/8374312.shtml)
-- 2026-06-29 11:27 - [美国230斤男孩在家中去世父母被捕](http://www.share.kurohicncr.top/Article/details/54180676.shtml)
-- 2026-06-29 11:22 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/6124663282.shtml)
-- 2026-06-29 11:48 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/08325.shtml)
-- 2026-06-29 11:47 - [俄称继续在顿涅茨克两城镇推进](http://www.share.kurohicncr.top/Article/details/2706495761.shtml)
+- 2026-06-29 11:27 - [中国铁路迎来“五一”假期运输客流最高峰](http://www.share.kurohicncr.top/Article/details/203976043.shtml)
+- 2026-06-29 11:33 - [致敬劳动者｜每一方寸，因你而闪光](http://www.blog.minike.top/Article/details/76509.shtml)
+- 2026-06-29 11:39 - [远东国际观察：日本国会参议院通过2026财年预算案](http://www.blog.minike.top/Article/details/913648.shtml)
+- 2026-06-29 11:33 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](http://www.share.minike.top/Article/details/413822.shtml)
+- 2026-06-29 11:39 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](http://www.blog.kurohicncr.top/Article/details/8157254594.shtml)
+- 2026-06-29 11:25 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](http://www.blog.kurohicncr.top/Article/details/47209666.shtml)
+- 2026-06-29 11:20 - [福州地铁客流连创新高](http://www.blog.kurohicncr.top/Article/details/749580.shtml)
+- 2026-06-29 11:19 - [埃及侨商：持续推动“零关税”红利转化为务实合作](http://www.share.minike.top/Article/details/2328843628.shtml)
+- 2026-06-29 11:20 - [“05后”持有人猛增10倍，年轻人涌向AI基金](http://www.share.minike.top/Article/details/12530.shtml)
+- 2026-06-29 11:23 - [2026五一档新片票房破9000万](http://www.blog.minike.top/Article/details/284327125200.shtml)
+- 2026-06-29 11:24 - [美国制造业保持扩张势头 价格指标触及四年高位](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](http://www.share.minike.top/Article/details/821328219.shtml)
+- 2026-06-29 11:18 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](http://www.blog.minike.top/Article/details/8359254.shtml)
+- 2026-06-29 11:18 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](http://www.blog.minike.top/Article/details/960127.shtml)

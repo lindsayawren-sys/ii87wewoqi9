@@ -1,57 +1,58 @@
-# 一季度业绩强劲，KeyBanc上调斑马技术评级
+# 宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-在交出超预期的一季度财报后，斑马技术公司获得华尔街机构的积极评价。KeyBanc资本市场将这家工业移动计算和自动化解决方案提供商的评级上调至“超配”，目标价定为305美元。 评级上调基于需求拐点信号 KeyBanc分析师指出，斑马技术一季度业绩强劲，且短周期工业需求已出现更广泛的拐点迹象。分析师认为，市场对内存成本趋势的担忧可能已反映在股价中，而公司短周期需求的回暖、成本执行的
+中新网银川4月30日电 (于晶 肖艳)4月30日，2026贺兰山东麓葡萄酒美食融合创新大赛在银川落幕。本次大赛以“食中国菜·品宁夏酒”为主题，吸引全国80支餐饮团队参赛，最终评选出金奖21名、银奖26名、铜奖32名。 赛事改变了以往国产葡萄酒推广偏重“产区风土”“国际奖项”的单一逻辑。主办方统一提供干红、干白、桃红、起泡等比赛用酒，参赛者据此设计餐酒搭配方案。评分体系中，“餐酒
 
 ## 正文
 
-在交出超预期的一季度财报后，斑马技术公司获得华尔街机构的积极评价。
+中新网银川4月30日电 (于晶 肖艳)4月30日，2026贺兰山东麓葡萄酒美食融合创新大赛在银川落幕。
 
-KeyBanc资本市场将这家工业移动计算和自动化解决方案提供商的评级上调至“超配”，目标价定为305美元。
+本次大赛以“食中国菜·品宁夏酒”为主题，吸引全国80支餐饮团队参赛，最终评选出金奖21名、银奖26名、铜奖32名。
 
-评级上调基于需求拐点信号 KeyBanc分析师指出，斑马技术一季度业绩强劲，且短周期工业需求已出现更广泛的拐点迹象。
+赛事改变了以往国产葡萄酒推广偏重“产区风土”“国际奖项”的单一逻辑。
 
-分析师认为，市场对内存成本趋势的担忧可能已反映在股价中，而公司短周期需求的回暖、成本执行的改善以及管理层保守的指引记录，有望带来业绩超预期和估值扩张。
+主办方统一提供干红、干白、桃红、起泡等比赛用酒，参赛者据此设计餐酒搭配方案。
 
-一季度业绩全面超预期 财报数据显示，斑马技术2026年第一季度净销售额达14.95亿美元，同比增长14.3%，超出市场预期。
+评分体系中，“餐酒适配度”权重高达30分，超过传统风味与创意分值。
 
-非GAAP每股收益为4.75美元，同比增长18.2%，远超分析师预期。
+评审团由国宴主厨、侍酒师大师等专业人士组成。
 
-分业务板块看，两大业务部门营收分别增长20.6%和7.4%。
+大赛鼓励使用滩羊、枸杞、黄河水产等宁夏本土食材，并设置“推荐宴席”与“餐桌美学”展示环节，将桌布、餐具、酒标摆放纳入评价。
 
-调整后EBITDA利润率扩大90个基点至23.2%。
+多位年轻厨师将西式技法融入中餐表达。
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [温州学子高考数学满分 分享学习经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:24 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:39 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:18 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:36 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:22 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:21 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:23 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:47 - [白玉兰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:31 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:19 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:36 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:28 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:38 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:25 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:30 - [王毅同美国国务卿鲁比奥通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:36 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:24 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:31 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:18 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:25 - [海南商业航天重点项目加速建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:44 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [美人鱼](https://www.share.kurohicncr.top/Article/details/134228.shtml)
-- 2026-06-29 11:44 - [灿如繁星定档](http://www.blog.kurohicncr.top/Article/details/40309.shtml)
-- 2026-06-29 11:45 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/5448516.shtml)
-- 2026-06-29 11:24 - [普京：俄罗斯将坚定捍卫自身根本利益](https://www.blog.minike.top/Article/details/378413787500.shtml)
-- 2026-06-29 11:47 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/465944381138.shtml)
-- 2026-06-29 11:33 - [国乒男单资格赛全员出局](http://www.share.kurohicncr.top/Article/details/38438.shtml)
-- 2026-06-29 11:40 - [男子撸铁后擦汗 脸部感染“脚气”](http://www.share.minike.top/Article/details/2072412533.shtml)
-- 2026-06-29 11:21 - [沙丘](https://www.share.minike.top/Article/details/267177.shtml)
-- 2026-06-29 11:44 - [欧洲极端高温东扩](http://www.share.minike.top/Article/details/166524145586.shtml)
-- 2026-06-29 11:22 - [三轮车被自家狗“推”进池塘](http://www.share.kurohicncr.top/Article/details/469544287.shtml)
-- 2026-06-29 11:35 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/038603614384.shtml)
-- 2026-06-29 11:23 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://www.share.kurohicncr.top/Article/details/045329.shtml)
-- 2026-06-29 11:31 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/61475.shtml)
-- 2026-06-29 11:44 - [四川宜宾发生5.5级地震](https://www.share.kurohicncr.top/Article/details/10762490320.shtml)
-- 2026-06-29 11:33 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/14752257539.shtml)
+- 2026-06-29 11:40 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](http://www.share.minike.top/Article/details/6955765.shtml)
+- 2026-06-29 11:29 - [体验多元！“影视+文旅”点亮“五一”假期](http://www.blog.minike.top/Article/details/744676221284.shtml)
+- 2026-06-29 11:29 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](http://www.blog.minike.top/Article/details/76031.shtml)
+- 2026-06-29 11:46 - [三星电子任命新的视觉显示业务负责人](http://www.share.minike.top/Article/details/119383989884.shtml)
+- 2026-06-29 11:34 - [朝鲜外务省：美国炒作朝鲜“网络威胁”是无稽之谈](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [韩国特检组就金建希首案二审结果提出抗诉](http://www.blog.kurohicncr.top/Article/details/860899721.shtml)
+- 2026-06-29 11:22 - [阿贝尔谈及自己与阿吉特・贾恩的继任规划](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](http://www.blog.kurohicncr.top/Article/details/09663123303.shtml)
+- 2026-06-29 11:39 - [广西投资集团有限公司总经理刘明洪接受审查调查](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](http://www.blog.minike.top/Article/details/1335576.shtml)
+- 2026-06-29 11:18 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](http://www.blog.kurohicncr.top/Article/details/856666810023.shtml)
+- 2026-06-29 11:21 - [915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能](http://www.share.kurohicncr.top/Article/details/6665399439.shtml)
+- 2026-06-29 11:39 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](http://www.blog.minike.top/Article/details/87200835551.shtml)
+- 2026-06-29 11:23 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](http://www.share.kurohicncr.top/Article/details/7438130.shtml)
+- 2026-06-29 11:43 - [渤海人寿获批增加注册资本至16.87亿元](http://www.share.kurohicncr.top/Article/details/415687981822.shtml)

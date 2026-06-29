@@ -1,58 +1,46 @@
-# 早盘：美股涨跌不一 道指下跌逾200点
+# 伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-北京时间5月13日晚，美股周三早盘涨跌不一，道指下跌逾200点。芯片股上涨带动纳指走高。美国4月PPI同比飙升6%，创2022年以来最大涨幅，显示美国通胀压力升温，这份通胀报告将美债收益率推至10个月高位。 道指跌208.63点，跌幅为0.42%，报49551.93点；纳指涨10.24点，涨幅为0.04%，报26098.44点；标普500指数跌7.75点，跌幅为0.10%，报7
+新华社德黑兰5月4日电 伊朗伊斯兰议会国家安全和外交政策委员会主席易卜拉欣·阿齐兹4日凌晨在社交媒体上发文说，美国对霍尔木兹海峡“新的海事管理制度”的任何干涉都将被视为违反停火协议。（完）责任编辑：韦子蓉
 
 ## 正文
 
-北京时间5月13日晚，美股周三早盘涨跌不一，道指下跌逾200点。
+新华社德黑兰5月4日电 伊朗伊斯兰议会国家安全和外交政策委员会主席易卜拉欣·阿齐兹4日凌晨在社交媒体上发文说，美国对霍尔木兹海峡“新的海事管理制度”的任何干涉都将被视为违反停火协议。
 
-芯片股上涨带动纳指走高。
-
-美国4月PPI同比飙升6%，创2022年以来最大涨幅，显示美国通胀压力升温，这份通胀报告将美债收益率推至10个月高位。
-
-道指跌208.63点，跌幅为0.42%，报49551.93点；纳指涨10.24点，涨幅为0.04%，报26098.44点；标普500指数跌7.75点，跌幅为0.10%，报7393.21点。
-
-科技股表现优于市场其他板块，而因伊朗战争导致的能源价格上涨所引发的通胀担忧，对零售和银行等其他板块构成了压力。
-
-英伟达股价上涨超过1%。
-
-AMD上涨1%，美光科技上涨逾5%。
-
-VanEck半导体ETF上涨1%。
+（完）责任编辑：韦子蓉
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:48 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:26 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:33 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:23 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:44 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:32 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:37 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:28 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:25 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:26 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:42 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:34 - [阿贝尔重申伯克希尔核心原则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:19 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:46 - [云南边境的目瑙纵歌，何以火爆全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:27 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:30 - [重庆新开往返菲律宾马尼拉客运航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:27 - [新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:36 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:40 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:33 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:21 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:33 - [体验多元！“影视+文旅”点亮“五一”假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:41 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:39 - [神23乘组太空出差满月](https://www.share.kurohicncr.top/Article/details/757101669.shtml)
-- 2026-06-29 11:31 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/01892468382.shtml)
-- 2026-06-29 11:23 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/3136750.shtml)
-- 2026-06-29 11:26 - [户外吃烧烤多人头发变炸毛](http://www.share.kurohicncr.top/Article/details/066543.shtml)
-- 2026-06-29 11:44 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/7931893694.shtml)
-- 2026-06-29 11:44 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/13340.shtml)
-- 2026-06-29 11:34 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/5755237.shtml)
-- 2026-06-29 11:33 - [6月我国降水为何偏多](https://www.share.kurohicncr.top/Article/details/174389.shtml)
-- 2026-06-29 11:27 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.kurohicncr.top/Article/details/492381237272.shtml)
-- 2026-06-29 11:20 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/2620237.shtml)
-- 2026-06-29 11:39 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://www.share.kurohicncr.top/Article/details/52231758357.shtml)
-- 2026-06-29 11:47 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/856485.shtml)
-- 2026-06-29 11:27 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/99686.shtml)
-- 2026-06-29 11:20 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/22026498.shtml)
-- 2026-06-29 11:36 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/7172508360.shtml)
+- 2026-06-29 11:19 - [德国经济一季度环比增长0.3%](http://www.share.kurohicncr.top/Article/details/145239724.shtml)
+- 2026-06-29 11:24 - [摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺](http://www.blog.kurohicncr.top/Article/details/675988.shtml)
+- 2026-06-29 11:23 - [可孚医疗：发售价厘定为每股H股39.33港元](http://www.blog.kurohicncr.top/Article/details/407812364838.shtml)
+- 2026-06-29 11:30 - [数万日本民众举行集会 呼吁守护和平宪法](http://www.share.minike.top/Article/details/31676355.shtml)
+- 2026-06-29 11:27 - [在香港沉浸式“邂逅”蒙娜丽莎](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](http://www.share.kurohicncr.top/Article/details/319323.shtml)
+- 2026-06-29 11:46 - [中国奥园委聘毕马威咨询(香港)为财务顾问](http://www.share.minike.top/Article/details/71021940.shtml)
+- 2026-06-29 11:45 - [首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕](http://www.blog.minike.top/Article/details/886647.shtml)
+- 2026-06-29 11:24 - [欧洲央行维持存款利率在2.00%不变 符合预期](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨](http://www.blog.minike.top/Article/details/99003189.shtml)
+- 2026-06-29 11:24 - [5月4日中国跨区域人员流动量预计超2.9亿人次](http://www.blog.kurohicncr.top/Article/details/3558247824.shtml)
+- 2026-06-29 11:29 - [内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%](http://www.blog.kurohicncr.top/Article/details/14237163.shtml)
+- 2026-06-29 11:21 - [东西问丨杜方绥：中国文学何以打动世界读者？](http://www.blog.kurohicncr.top/Article/details/865078397488.shtml)
+- 2026-06-29 11:45 - [东京通胀进一步降温 支撑日本央行加息谨慎立场](http://www.share.minike.top/Article/details/38145240566.shtml)
+- 2026-06-29 11:27 - [亚马逊AWS营收增长28%，达到376亿美元](https://github.com/lisacumin64-arch)

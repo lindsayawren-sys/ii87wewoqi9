@@ -1,61 +1,60 @@
-# 特朗普政府扣留加州13亿美元医疗补助款项
+# 阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-特朗普政府以加州未能严厉打击医保欺诈为由，扣留该州13亿美元医疗补助计划（Medicaid）报销款项，进一步升级双方在临终关怀监管问题上的对立矛盾。 美国副总统万斯周三在白宫记者会上表示：“加州一直没有严肃对待医保欺诈问题。” 尽管联邦政府多次批评加州的医保欺诈监管不力，但这是美国医疗保险和医疗补助服务中心（CMS）首次直接扣留该州拨付资金。近几个月，该机构已以可疑理赔为由，扣
+专题：巴菲特2026年股东大会重磅来袭 当被问及伯克希尔会以何种方式、在何种时机为途经局势紧张的霍尔木兹海峡的船舶提供保险时，伯克希尔保险业务副董事长阿吉特・贾恩给出了简洁直白的回应。 他表示：“简单来说 ——完全取决于保费定价。” 这番话引来现场观众阵阵笑声与掌声。 贾恩透露，伯克希尔已加入一项为途经霍尔木兹海峡船舶提供保险的合作计划。受美、以色列与伊朗冲突影响，霍尔木兹海峡
 
 ## 正文
 
-特朗普政府以加州未能严厉打击医保欺诈为由，扣留该州13亿美元医疗补助计划（Medicaid）报销款项，进一步升级双方在临终关怀监管问题上的对立矛盾。
+专题：巴菲特2026年股东大会重磅来袭 当被问及伯克希尔会以何种方式、在何种时机为途经局势紧张的霍尔木兹海峡的船舶提供保险时，伯克希尔保险业务副董事长阿吉特・贾恩给出了简洁直白的回应。
 
-美国副总统万斯周三在白宫记者会上表示：“加州一直没有严肃对待医保欺诈问题。
+他表示：“简单来说 ——完全取决于保费定价。
 
-” 尽管联邦政府多次批评加州的医保欺诈监管不力，但这是美国医疗保险和医疗补助服务中心（CMS）首次直接扣留该州拨付资金。
+” 这番话引来现场观众阵阵笑声与掌声。
 
-近几个月，该机构已以可疑理赔为由，扣留明尼苏达州超3亿美元的Medicaid报销款。
+贾恩透露，伯克希尔已加入一项为途经霍尔木兹海峡船舶提供保险的合作计划。
 
-Medicaid是联邦与州联合出资的医保项目。
+受美、以色列与伊朗冲突影响，霍尔木兹海峡很长一段时间处于航运关闭或严格受限状态，但伯克希尔目前尚未签下任何一单相关保单。
 
-加州已先行向服务低收入群体的医疗机构完成付款；但若该州无法按CMS要求，证明参保患者确实接受了合规服务，联邦部分配套资金将不予拨付。
+他说：“我们已小规模参与一项专项保障计划，专门为通行霍尔木兹海峡的船舶承保。
 
-目前加州官方尚未就CMS此举作出回应。
+不过到目前为止，我们还没有实际出单承保。
 
-CMS局长梅赫梅特・奥兹在记者会上称，此次13亿美元扣款是该机构有史以来最大规模暂缓拨付金额，不过仅占加州全年联邦Medicaid总资金的一小部分。
+” 贾恩称，该承保计划的前提条件之一，是由美国海军为过往船舶提供护航。
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:24 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:29 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:34 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:31 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:21 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:41 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:46 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:23 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:29 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:32 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:23 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:40 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:33 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:29 - [远东国际观察：日本国会参议院通过2026财年预算案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:35 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:25 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:18 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:28 - [福州地铁客流连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:36 - [埃及侨商：持续推动“零关税”红利转化为务实合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:38 - [“05后”持有人猛增10倍，年轻人涌向AI基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:42 - [2026五一档新片票房破9000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:24 - [美国制造业保持扩张势头 价格指标触及四年高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:22 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:20 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:46 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:38 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:28 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [未来5年 充电供热供暖将有大变化](https://www.blog.kurohicncr.top/Article/details/454279352563.shtml)
-- 2026-06-29 11:31 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/227073.shtml)
-- 2026-06-29 11:25 - [初心如磐 红色足迹](https://www.share.kurohicncr.top/Article/details/0292554508.shtml)
-- 2026-06-29 11:32 - [第一炉香](http://www.share.minike.top/Article/details/1433206774.shtml)
-- 2026-06-29 11:36 - [白玉兰最佳女主角提名片段](https://www.blog.kurohicncr.top/Article/details/146227584563.shtml)
-- 2026-06-29 11:39 - [沙丘](http://www.blog.minike.top/Article/details/316169.shtml)
-- 2026-06-29 11:27 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.minike.top/Article/details/70226466777.shtml)
-- 2026-06-29 11:36 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/62972110737.shtml)
-- 2026-06-29 11:39 - [扬名立万](http://www.share.minike.top/Article/details/96511164485.shtml)
-- 2026-06-29 11:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/35593001.shtml)
-- 2026-06-29 11:25 - [薛之谦演唱会](http://www.share.minike.top/Article/details/647294231.shtml)
-- 2026-06-29 11:47 - [F1奥地利大奖赛正赛集锦](https://www.share.kurohicncr.top/Article/details/667515838.shtml)
-- 2026-06-29 11:26 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/4376169.shtml)
-- 2026-06-29 11:45 - [薛之谦演唱会](http://www.blog.kurohicncr.top/Article/details/4487050743.shtml)
-- 2026-06-29 11:28 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/08324595639.shtml)
+- 2026-06-29 11:45 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](http://www.share.kurohicncr.top/Article/details/980285107921.shtml)
+- 2026-06-29 11:32 - [海南商业航天重点项目加速建设](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](http://www.share.minike.top/Article/details/319721385589.shtml)
+- 2026-06-29 11:23 - [美官员：美军“福特”号航母已离开中东](http://www.blog.kurohicncr.top/Article/details/6415926865.shtml)
+- 2026-06-29 11:39 - [水利部滚动会商部署“五一”假期期间防汛工作](http://www.share.minike.top/Article/details/646788.shtml)
+- 2026-06-29 11:23 - [孟加拉国外交部长卡利勒将访华](http://www.share.minike.top/Article/details/7711347.shtml)
+- 2026-06-29 11:22 - [巴菲特深度伪造视频，带来一场出人意料的AI风险警示](http://www.blog.minike.top/Article/details/78563819058.shtml)
+- 2026-06-29 11:33 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [网信部门严管“自媒体”未规范标注信息来源行为](http://www.share.minike.top/Article/details/27951.shtml)
+- 2026-06-29 11:34 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](http://www.share.kurohicncr.top/Article/details/8280976.shtml)
+- 2026-06-29 11:43 - [零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期](http://www.blog.minike.top/Article/details/43492651566.shtml)
+- 2026-06-29 11:38 - [Spirit Air股价暴跌逾70% 据报该航司准备停止运营](http://www.blog.minike.top/Article/details/02216806572.shtml)
+- 2026-06-29 11:21 - [河南洛阳：户外露营成“五一”假期新选择](http://www.blog.minike.top/Article/details/549262088.shtml)
+- 2026-06-29 11:29 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](http://www.share.kurohicncr.top/Article/details/951703.shtml)

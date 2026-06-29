@@ -1,47 +1,58 @@
-# 拾光纪·第23次来到中国，习主席再迎老朋友拉赫蒙
+# 谷歌云增速超越微软、亚马逊，三大云厂商均受益AI需求业绩超预期
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 21:09 来源：人民日报客户端 责任编辑：【李太源】
+专题：聚焦美股2026年第一季度财报 核心要点 周四凌晨，全球三大云基础设施服务商财报悉数出炉，业绩均超越分析师预期，其中谷歌云创下史上最快增速，表现一枝独秀。 随着市场对人工智能模型及相关服务的需求激增，公有云行业蓬勃发展，谷歌云正紧追亚马逊 AWS 与微软 Azure。三大厂商均提供一整套企业产品搭建与运行工具，同时自研多款 AI 模型及专用硬件。 财报发布后，思睿研究分析
 
 ## 正文
 
-发布时间：2026年05月13日 21:09 来源：人民日报客户端 责任编辑：【李太源】
+专题：聚焦美股2026年第一季度财报 核心要点 周四凌晨，全球三大云基础设施服务商财报悉数出炉，业绩均超越分析师预期，其中谷歌云创下史上最快增速，表现一枝独秀。
+
+随着市场对人工智能模型及相关服务的需求激增，公有云行业蓬勃发展，谷歌云正紧追亚马逊 AWS 与微软 Azure。
+
+三大厂商均提供一整套企业产品搭建与运行工具，同时自研多款 AI 模型及专用硬件。
+
+财报发布后，思睿研究分析师约翰・丁斯代尔在邮件中表示：“这一季度的表现堪称亮眼。
+
+” 该机构估算，一季度全球云基础设施支出规模达到1290 亿美元。
+
+丁斯代尔在机构最新报告中称：“我们预测未来数年云行业将保持强劲增长，人工智能将持续拉动云使用需求、催生全新应用场景，并推高云服务商营收。
+
+” 涵盖云基础设施与企业办公应用的谷歌云，一季度营收暴涨 63%，至200.3 亿美元，高于市场一致预期的 180.5 亿美元。
+
+这也是谷歌自 2020 年单独披露云业务业绩以来，单季最强增速。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:24 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:21 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:27 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:25 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:22 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:38 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:44 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:46 - [丞磊莫离最后5集加起来集均3分钟戏份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:20 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:19 - [国乒全主力参加美国大满贯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:40 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:41 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:27 - [三只羊线下课已下架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:37 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:38 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:36 - [“五一”假期首日：民众游杭州西湖享江南时光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:42 - [美国威胁制裁向伊朗缴通行费的航运企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:42 - [中国铁路迎来“五一”假期运输客流最高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:46 - [致敬劳动者｜每一方寸，因你而闪光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:20 - [远东国际观察：日本国会参议院通过2026财年预算案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:32 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:20 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:18 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:40 - [福州地铁客流连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:38 - [埃及侨商：持续推动“零关税”红利转化为务实合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:42 - [“05后”持有人猛增10倍，年轻人涌向AI基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [立陶宛为何此时生变](https://www.share.kurohicncr.top/Article/details/00002.shtml)
-- 2026-06-29 11:34 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/92578.shtml)
-- 2026-06-29 11:38 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/387263.shtml)
-- 2026-06-29 11:38 - [韩体育部长回应李在明痛批](https://www.share.kurohicncr.top/Article/details/877106399489.shtml)
-- 2026-06-29 11:30 - [韩媒一片哀嚎：没有奇迹](http://www.blog.minike.top/Article/details/131637643867.shtml)
-- 2026-06-29 11:19 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.minike.top/Article/details/3697189.shtml)
-- 2026-06-29 11:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/7568145689.shtml)
-- 2026-06-29 11:32 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/875830.shtml)
-- 2026-06-29 11:32 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/1523955612.shtml)
-- 2026-06-29 11:41 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/54852146.shtml)
-- 2026-06-29 11:48 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/380655540.shtml)
-- 2026-06-29 11:42 - [韩国拟将部分刑责年龄降至13岁](http://www.blog.minike.top/Article/details/76362.shtml)
-- 2026-06-29 11:44 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/60229989159.shtml)
-- 2026-06-29 11:22 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/069274518283.shtml)
-- 2026-06-29 11:20 - [男子偶遇婴儿被锁车内大哭挣扎](https://www.blog.kurohicncr.top/Article/details/741488.shtml)
+- 2026-06-29 11:28 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [王毅同美国国务卿鲁比奥通电话](http://www.share.minike.top/Article/details/7812642.shtml)
+- 2026-06-29 11:31 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](http://www.blog.kurohicncr.top/Article/details/91799047870.shtml)
+- 2026-06-29 11:27 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](http://www.blog.kurohicncr.top/Article/details/714849465.shtml)
+- 2026-06-29 11:23 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](http://www.share.kurohicncr.top/Article/details/679488298.shtml)
+- 2026-06-29 11:35 - [海南商业航天重点项目加速建设](http://www.share.minike.top/Article/details/58285805.shtml)
+- 2026-06-29 11:27 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [美官员：美军“福特”号航母已离开中东](http://www.blog.kurohicncr.top/Article/details/204447.shtml)
+- 2026-06-29 11:23 - [水利部滚动会商部署“五一”假期期间防汛工作](http://www.blog.kurohicncr.top/Article/details/6862359.shtml)
+- 2026-06-29 11:38 - [孟加拉国外交部长卡利勒将访华](http://www.share.kurohicncr.top/Article/details/689797185376.shtml)
+- 2026-06-29 11:24 - [巴菲特深度伪造视频，带来一场出人意料的AI风险警示](http://www.blog.minike.top/Article/details/191202696972.shtml)
+- 2026-06-29 11:46 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](http://www.share.minike.top/Article/details/4512755.shtml)
+- 2026-06-29 11:28 - [网信部门严管“自媒体”未规范标注信息来源行为](http://www.share.kurohicncr.top/Article/details/2078420984.shtml)
+- 2026-06-29 11:23 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](http://www.blog.minike.top/Article/details/4692937.shtml)

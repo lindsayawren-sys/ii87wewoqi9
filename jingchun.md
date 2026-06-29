@@ -1,57 +1,57 @@
-# 亚朵集团一季度营收28.11亿元，以创新为引擎实现可持续高质增长
+# 巴菲特深度伪造视频，带来一场出人意料的AI风险警示
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间5月13日，亚朵集团（NASDAQ： ATAT）发布2026年第一季度财务报告。在“中国体验，品牌领航”新战略的指引下，亚朵凭借持续的产品创新与体验升级，实现业绩高质量开局。 一季度，亚朵实现营业收入28.11亿元（人民币，下同），同比增长47.5%；调整后净利润4.90亿元，同比增长42.0%；调
+专题：巴菲特2026年股东大会重磅来袭 本届股东大会上，股东们意外上了一堂人工智能风险警示课。阿贝尔在问答环节开场，放出了一个看似十分熟悉的面孔。 会场大屏播放了一段视频：画面中的巴菲特身着西装，自我介绍，并向阿贝尔提出一个问题 —— 投资者为何应当长期持有伯克希尔股票。 视频里的人物说道： “大家好，我是沃伦，来自奥马哈。格雷格，我关注这家公司已经很久了，非常久…… 我的问题
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：巴菲特2026年股东大会重磅来袭 本届股东大会上，股东们意外上了一堂人工智能风险警示课。
 
-北京时间5月13日，亚朵集团（NASDAQ： ATAT）发布2026年第一季度财务报告。
+阿贝尔在问答环节开场，放出了一个看似十分熟悉的面孔。
 
-在“中国体验，品牌领航”新战略的指引下，亚朵凭借持续的产品创新与体验升级，实现业绩高质量开局。
+会场大屏播放了一段视频：画面中的巴菲特身着西装，自我介绍，并向阿贝尔提出一个问题 —— 投资者为何应当长期持有伯克希尔股票。
 
-一季度，亚朵实现营业收入28.11亿元（人民币，下同），同比增长47.5%；调整后净利润4.90亿元，同比增长42.0%；调整后EBITDA为7.16亿元，同比增长51.1%。
+视频里的人物说道： “大家好，我是沃伦，来自奥马哈。
 
-同时，亚朵上调2026年收入指引，预计全年收入同比增长24%至28%。
+格雷格，我关注这家公司已经很久了，非常久…… 我的问题很简单。
 
-酒店经营指标逐季改善，管道储备项目751家蓄力健康增长 第一季度，亚朵住宿业务的经营表现延续逐季改善趋势。
+我今年 95 岁，有的是时间，还有樱桃可乐相伴。
 
-一季度，集团大盘平均可出租客房收入（RevPAR）为312元，恢复至2025年同期的102.4%；入住率（OCC）和日均房价（ADR）分别恢复至去年同期的100.6%和102.1%。
+我想弄明白，也好跟其他股东解释：大家为什么要长期持有伯克希尔的股票？
 
-在规模拓展上，亚朵坚持“品质优先”原则，一季度新开业酒店110家。
+” 阿贝尔随后揭晓，这段影像并非真人录制，而是利用人工智能生成的深度伪造（Deepfake） 视频。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:43 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:45 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:43 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:19 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:21 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:26 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:25 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:22 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:38 - [河南洛阳：户外露营成“五一”假期新选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:21 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:30 - [中国医生完成尼日尔首例鼓室成形术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:26 - [华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:20 - [文旅观察：浙江乡村“土味”玩法引领消费新潮流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:25 - [浙江宁波机场口岸迎来出入境客流“双向热潮”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:40 - [吉尔登服饰营收攀升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:21 - [原油：布伦特油价自四年高点回落 战争担忧抑制市场流动性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:19 - [阿贝尔重申伯克希尔核心原则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:38 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:21 - [云南边境的目瑙纵歌，何以火爆全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://www.blog.kurohicncr.top/Article/details/6040250001.shtml)
-- 2026-06-29 11:37 - [埃博拉为何再次袭击非洲](http://www.share.kurohicncr.top/Article/details/3686731.shtml)
-- 2026-06-29 11:29 - [TEC官宣Muggle加入](http://www.blog.kurohicncr.top/Article/details/884308.shtml)
-- 2026-06-29 11:40 - [跑步机上“爬坡”减肥公式爆火](http://www.blog.minike.top/Article/details/291058620.shtml)
-- 2026-06-29 11:32 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/880887386805.shtml)
-- 2026-06-29 11:22 - [这位猫咪，请你自重！](https://www.blog.kurohicncr.top/Article/details/668841270604.shtml)
-- 2026-06-29 11:29 - [张杰下沉市场](http://www.share.kurohicncr.top/Article/details/2736302446.shtml)
-- 2026-06-29 11:35 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/49545.shtml)
-- 2026-06-29 11:25 - [凯恩何时能拿到国际大赛冠军](http://www.blog.minike.top/Article/details/74364.shtml)
-- 2026-06-29 11:44 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/1132107886.shtml)
-- 2026-06-29 11:33 - [天道](https://www.blog.minike.top/Article/details/631239583.shtml)
-- 2026-06-29 11:36 - [农业谣言岂能如此“变态”](http://www.blog.minike.top/Article/details/1524010.shtml)
-- 2026-06-29 11:30 - [急先锋](http://www.blog.kurohicncr.top/Article/details/336600.shtml)
-- 2026-06-29 11:33 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/15760572075.shtml)
-- 2026-06-29 11:41 - [为什么欧洲人不装空调](https://www.share.minike.top/Article/details/8804179.shtml)
+- 2026-06-29 11:24 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](http://www.blog.minike.top/Article/details/166910750.shtml)
+- 2026-06-29 11:30 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [科技与艺术深度融合 重庆上演互动烟花戏剧](http://www.blog.kurohicncr.top/Article/details/622968.shtml)
+- 2026-06-29 11:41 - [华安基金苏圻涵|洞见全球视野：透视跨境投资地图](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [Check Point一季度利润超预期，但营收指引不及预期拖累股价](http://www.blog.kurohicncr.top/Article/details/866612131624.shtml)
+- 2026-06-29 11:20 - [广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容](http://www.share.kurohicncr.top/Article/details/76353.shtml)
+- 2026-06-29 11:19 - [2026年“国际中文日”文艺巡演活动在北爱尔兰举行](http://www.blog.kurohicncr.top/Article/details/596283124.shtml)
+- 2026-06-29 11:29 - [马斯克法庭交锋OpenAI，称奥特曼“不诚实”](http://www.share.kurohicncr.top/Article/details/259702975.shtml)
+- 2026-06-29 11:24 - [德国经济一季度环比增长0.3%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺](http://www.share.minike.top/Article/details/10554.shtml)
+- 2026-06-29 11:32 - [可孚医疗：发售价厘定为每股H股39.33港元](http://www.blog.minike.top/Article/details/4261082.shtml)
+- 2026-06-29 11:30 - [数万日本民众举行集会 呼吁守护和平宪法](http://www.blog.kurohicncr.top/Article/details/4871261.shtml)
+- 2026-06-29 11:30 - [在香港沉浸式“邂逅”蒙娜丽莎](http://www.share.minike.top/Article/details/38335050535.shtml)
+- 2026-06-29 11:22 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](http://www.share.minike.top/Article/details/933875291.shtml)
+- 2026-06-29 11:19 - [中国奥园委聘毕马威咨询(香港)为财务顾问](http://www.blog.minike.top/Article/details/516858.shtml)

@@ -1,58 +1,59 @@
-# Algoma Steel目标第四季度调整后EBITDA盈亏平衡
+# 美国制造业保持扩张势头 价格指标触及四年高位
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-加拿大钢铁生产商Algoma Steel Group Inc．在发布2026财年第一季度财报后召开电话会议，管理层明确表示，随着电弧炉产能爬坡和产能利用率调整费用逐步降低，公司目标在第四季度实现调整后EBITDA盈亏平衡。 产能利用率调整费用：从9000万美元到0 Algoma Steel在2026财年第一季度录得9020万美元的产能利用率调整费用，主要源于公司从传统高炉炼钢加
+美国制造业的扩张势头延续至4月，尽管伊朗战争推动投入成本大幅上升。 美国供应管理学会（ISM）周五公布的数据显示，衡量制造业投入价格的指标连续第四个月上升，升至84.6，创四年来新高。 整体制造业活动指数持稳于52.7，追平2022年以来最高值。读数高于50表明行业处于扩张状态。 中东军事冲突以及霍尔木兹海峡停摆扰乱了全球供应链，推高了石油、铝、氦等材料的成本。汽油和柴油价格上
 
 ## 正文
 
-加拿大钢铁生产商Algoma Steel Group Inc．在发布2026财年第一季度财报后召开电话会议，管理层明确表示，随着电弧炉产能爬坡和产能利用率调整费用逐步降低，公司目标在第四季度实现调整后EBITDA盈亏平衡。
+美国制造业的扩张势头延续至4月，尽管伊朗战争推动投入成本大幅上升。
 
-产能利用率调整费用：从9000万美元到0 Algoma Steel在2026财年第一季度录得9020万美元的产能利用率调整费用，主要源于公司从传统高炉炼钢加速向全新电弧炉平台过渡，产量偏低导致固定成本吸收不足。
+美国供应管理学会（ISM）周五公布的数据显示，衡量制造业投入价格的指标连续第四个月上升，升至84.6，创四年来新高。
 
-这一项目本质上代表在爬坡期产生的超额固定成本，是当前亏损的核心来源。
+整体制造业活动指数持稳于52.7，追平2022年以来最高值。
 
-首席财务官表示，这一费用预计将逐季下降，并将在第四季度彻底消除。
+读数高于50表明行业处于扩张状态。
 
-一季度业绩：过渡性低谷符合预期 一季度数据清晰地反映了转型期的财务特征。
+中东军事冲突以及霍尔木兹海峡停摆扰乱了全球供应链，推高了石油、铝、氦等材料的成本。
 
-公司综合营收为2.969亿美元，同比下滑；净亏损为1.594亿美元。
+汽油和柴油价格上涨也使产品运输更加昂贵。
 
-调整后EBITDA亏损为2870万美元，但这一亏损包含了9020万美元的产能利用率调整费用。
+持续的通胀压力可能促使制造商提高售价，最终导致消费品价格上涨。
 
-若剔除该影响，经营层面的EBITDA表现实际有所改善。
+周四公布的数据显示，美联储青睐的通胀指标在3月录得自2022年以来最大涨幅。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:24 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:38 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:41 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:19 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:22 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:38 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:39 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:40 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:39 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:20 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:37 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:38 - [墨西哥总统预计Pemex与巴西国家石油公司将达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:21 - [新发现东京审判“萨顿档案”揭露侵华日军四方面暴行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:24 - [花旗：维持香港楼价看涨8%预期 看好三大地产股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:28 - [中国驻英大使郑泽光：香港发展拥有四大优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:41 - [这群年轻人用AI“吵了一架” ，最后成了朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:35 - [特朗普抨击国会限制其战争权力的举动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:43 - [浙江杭州：民众走“运”度假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:47 - [天津国际邮轮母港单日出入境旅客创年内新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:29 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:33 - [每天走路够这个量 或能延寿11年！健步走行动清单快掌握→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:45 - [中国生物医学新技术“基本法”实施 院企专家盼规范促产业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:33 - [特朗普：美国开启霍尔木兹海峡船只通行自由行动将于中东时间周一上午启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:45 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:46 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/648035.shtml)
-- 2026-06-29 11:25 - [【独家】牧神记 第89集 明心](http://www.share.kurohicncr.top/Article/details/72525558.shtml)
-- 2026-06-29 11:47 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.share.minike.top/Article/details/818259912519.shtml)
-- 2026-06-29 11:25 - [男子在家全裸被邻居拍照发业主群](http://www.share.minike.top/Article/details/6586189.shtml)
-- 2026-06-29 11:34 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/54610.shtml)
-- 2026-06-29 11:25 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/28594939.shtml)
-- 2026-06-29 11:33 - [DSpark论文深度解读](http://www.blog.minike.top/Article/details/669187902.shtml)
-- 2026-06-29 11:44 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/83515609.shtml)
-- 2026-06-29 11:48 - [双高胎](http://www.share.kurohicncr.top/Article/details/64104.shtml)
-- 2026-06-29 11:40 - [民进党为什么拼命抹黑统战](http://www.blog.minike.top/Article/details/0373447.shtml)
-- 2026-06-29 11:22 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://www.blog.kurohicncr.top/Article/details/167438.shtml)
-- 2026-06-29 11:20 - [天津打雷](http://www.blog.kurohicncr.top/Article/details/67298027511.shtml)
-- 2026-06-29 11:20 - [韩媒破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/35269.shtml)
-- 2026-06-29 11:37 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/13004687.shtml)
-- 2026-06-29 11:43 - [1年内值得期待的12大游戏](https://www.blog.kurohicncr.top/Article/details/30266154443.shtml)
+- 2026-06-29 11:37 - [中国医生完成尼日尔首例鼓室成形术](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”](http://www.blog.kurohicncr.top/Article/details/132909046879.shtml)
+- 2026-06-29 11:40 - [文旅观察：浙江乡村“土味”玩法引领消费新潮流](http://www.blog.minike.top/Article/details/15115740.shtml)
+- 2026-06-29 11:39 - [浙江宁波机场口岸迎来出入境客流“双向热潮”](http://www.share.minike.top/Article/details/036096503.shtml)
+- 2026-06-29 11:41 - [吉尔登服饰营收攀升](http://www.blog.kurohicncr.top/Article/details/09795.shtml)
+- 2026-06-29 11:45 - [原油：布伦特油价自四年高点回落 战争担忧抑制市场流动性](http://www.blog.kurohicncr.top/Article/details/4441025.shtml)
+- 2026-06-29 11:47 - [阿贝尔重申伯克希尔核心原则](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](http://www.share.minike.top/Article/details/712054534.shtml)
+- 2026-06-29 11:25 - [云南边境的目瑙纵歌，何以火爆全网？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](http://www.blog.kurohicncr.top/Article/details/10057.shtml)
+- 2026-06-29 11:45 - [重庆新开往返菲律宾马尼拉客运航线](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动](http://www.share.minike.top/Article/details/298782.shtml)
+- 2026-06-29 11:29 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](http://www.blog.kurohicncr.top/Article/details/91881634880.shtml)
+- 2026-06-29 11:35 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](http://www.share.minike.top/Article/details/676770.shtml)
+- 2026-06-29 11:18 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](http://www.blog.minike.top/Article/details/35859.shtml)

@@ -1,46 +1,60 @@
-# “特朗普总统邀请我一同访华” 黄仁勋回应为何最后一刻才上飞机
+# 远东国际观察：日本国会参议院通过2026财年预算案
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月14日 22:45 来源：中国新闻网 “特朗普总统邀请我一同访华” 黄仁勋回应为何最后一刻才上飞机 责任编辑：【李太源】
+4月7日，日本国会参议院批准了2026财年（2026年4月至2027年3月）财政预算案，标志着该预算案在国会正式通过。新财年预算支出规模高达122.3万亿日元，远超2025财年的115.2万亿日元，创下历史新高。其中，防卫预算首次突破9万亿日元大关，同样刷新纪录。此次预算审议过程充满波折，由于首相高市早苗在今年1月突然解散众议院并提前举行大选，导致审议日程被迫延迟约一个月。整个
 
 ## 正文
 
-发布时间：2026年05月14日 22:45 来源：中国新闻网 “特朗普总统邀请我一同访华” 黄仁勋回应为何最后一刻才上飞机 责任编辑：【李太源】
+4月7日，日本国会参议院批准了2026财年（2026年4月至2027年3月）财政预算案，标志着该预算案在国会正式通过。
+
+新财年预算支出规模高达122.3万亿日元，远超2025财年的115.2万亿日元，创下历史新高。
+
+其中，防卫预算首次突破9万亿日元大关，同样刷新纪录。
+
+此次预算审议过程充满波折，由于首相高市早苗在今年1月突然解散众议院并提前举行大选，导致审议日程被迫延迟约一个月。
+
+整个审议过程因执政党凭借席位优势强行压缩时间，众议院审议时长仅为59小时，被指为2000年以来最低，首相出席集中审议的时间也不足10小时。
+
+远东点评： 日本2026财年预算案以创历史新高规模获批通过，但其背后的财政与政策风险不容忽视。
+
+一方面，本次预算支出总额达122.3万亿日元，其中国债还本付息费用升至31.3万亿日元，创历史记录。
+
+在政府债务余额已占GDP约240%的背景下，持续依靠大规模发债的扩张性财政政策，或将进一步冲击日元信用，加大汇率贬值压力。
 
 ## 相关推荐
 
-- 2026-06-29 11:46 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:20 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:35 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:37 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:43 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:36 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:28 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:31 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:42 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:44 - [凯恩何时能拿到国际大赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:40 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:44 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:40 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:25 - [2026五一档新片票房破9000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:30 - [美国制造业保持扩张势头 价格指标触及四年高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:22 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:34 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:36 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:24 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:18 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:38 - [前瞻｜巴菲特谢幕，阿贝尔登场：2026伯克希尔股东大会有何看点？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:30 - [墨西哥总统预计Pemex与巴西国家石油公司将达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:39 - [新发现东京审判“萨顿档案”揭露侵华日军四方面暴行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:34 - [花旗：维持香港楼价看涨8%预期 看好三大地产股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:39 - [中国驻英大使郑泽光：香港发展拥有四大优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:29 - [这群年轻人用AI“吵了一架” ，最后成了朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:45 - [特朗普抨击国会限制其战争权力的举动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/702601254965.shtml)
-- 2026-06-29 11:42 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](http://www.share.kurohicncr.top/Article/details/203212450.shtml)
-- 2026-06-29 11:38 - [F1奥地利正赛战报](http://www.blog.kurohicncr.top/Article/details/86575.shtml)
-- 2026-06-29 11:46 - [三只羊线下课已下架](http://www.share.kurohicncr.top/Article/details/03153408779.shtml)
-- 2026-06-29 11:43 - [杨紫李现16年情谊藏于行动](http://www.share.minike.top/Article/details/616804.shtml)
-- 2026-06-29 11:23 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://www.share.kurohicncr.top/Article/details/4301629.shtml)
-- 2026-06-29 11:27 - [漩涡中的东鹏饮料：股价较年初近腰斩](http://www.blog.kurohicncr.top/Article/details/21992274.shtml)
-- 2026-06-29 11:32 - [医护人员观影《四渡》传承长征精神](https://www.share.kurohicncr.top/Article/details/104317750.shtml)
-- 2026-06-29 11:34 - [美媒：空警-3000服役即成全球最强](http://www.share.minike.top/Article/details/69454683.shtml)
-- 2026-06-29 11:47 - [高超感谢女友王佳欣](https://www.share.kurohicncr.top/Article/details/80572304.shtml)
-- 2026-06-29 11:20 - [英国高温已致多人死亡](http://www.share.kurohicncr.top/Article/details/17473111229.shtml)
-- 2026-06-29 11:20 - [加拿大92分钟绝杀](http://www.blog.minike.top/Article/details/1391608022.shtml)
-- 2026-06-29 11:32 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/336921.shtml)
-- 2026-06-29 11:44 - [下半年A股怎么走](http://www.share.minike.top/Article/details/98868517270.shtml)
-- 2026-06-29 11:25 - [凯恩何时能拿到国际大赛冠军](https://www.share.kurohicncr.top/Article/details/87814.shtml)
+- 2026-06-29 11:18 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [网信部门严管“自媒体”未规范标注信息来源行为](http://www.blog.kurohicncr.top/Article/details/4644964.shtml)
+- 2026-06-29 11:32 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](http://www.blog.kurohicncr.top/Article/details/14187789211.shtml)
+- 2026-06-29 11:37 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](http://www.blog.minike.top/Article/details/852215.shtml)
+- 2026-06-29 11:36 - [零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期](http://www.share.minike.top/Article/details/954396534935.shtml)
+- 2026-06-29 11:45 - [Spirit Air股价暴跌逾70% 据报该航司准备停止运营](http://www.share.kurohicncr.top/Article/details/457747621.shtml)
+- 2026-06-29 11:33 - [河南洛阳：户外露营成“五一”假期新选择](http://www.share.kurohicncr.top/Article/details/71978642691.shtml)
+- 2026-06-29 11:21 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](http://www.share.minike.top/Article/details/994727828333.shtml)
+- 2026-06-29 11:35 - [中国医生完成尼日尔首例鼓室成形术](http://www.share.kurohicncr.top/Article/details/379004.shtml)
+- 2026-06-29 11:19 - [华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”](http://www.share.minike.top/Article/details/111539.shtml)
+- 2026-06-29 11:23 - [文旅观察：浙江乡村“土味”玩法引领消费新潮流](http://www.share.kurohicncr.top/Article/details/964498374.shtml)
+- 2026-06-29 11:37 - [浙江宁波机场口岸迎来出入境客流“双向热潮”](http://www.blog.minike.top/Article/details/39667944.shtml)
+- 2026-06-29 11:23 - [吉尔登服饰营收攀升](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [原油：布伦特油价自四年高点回落 战争担忧抑制市场流动性](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [阿贝尔重申伯克希尔核心原则](https://github.com/lisacumin64-arch)

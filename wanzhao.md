@@ -1,61 +1,53 @@
-# 本田汽车，史上首次年度亏损
+# 阿贝尔谈及自己与阿吉特・贾恩的继任规划
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-来源：央视财经 近日，日本两大汽车制造商——本田公司和日产汽车公司相继发布财报，两家公司在2025财年均出现净亏损。其中，本田公司2025财年净亏损4239亿日元（约合人民币182亿元），是该公司自1957年在东京证券交易所上市以来首次出现年度净亏损。 当地时间14日，本田公司发布的财报显示，2025财年，也就是2025年4月至2026年3月，其销售收入为21.8万亿日元（约合
+专题：巴菲特2026年股东大会重磅来袭 被问及贾恩与自己的继任人事规划时，阿贝尔表示，董事会对待这类人事接班事宜态度极为审慎严肃。 他补充道：“董事会已制定完备的继任预案，并且会持续讨论更新。 也就是说，倘若阿吉特・贾恩或是我本人因故无法履职，董事会清楚接下来该采取何种应对举措、由谁接手岗位。”责任编辑：郭明煜
 
 ## 正文
 
-来源：央视财经 近日，日本两大汽车制造商——本田公司和日产汽车公司相继发布财报，两家公司在2025财年均出现净亏损。
+专题：巴菲特2026年股东大会重磅来袭 被问及贾恩与自己的继任人事规划时，阿贝尔表示，董事会对待这类人事接班事宜态度极为审慎严肃。
 
-其中，本田公司2025财年净亏损4239亿日元（约合人民币182亿元），是该公司自1957年在东京证券交易所上市以来首次出现年度净亏损。
+他补充道：“董事会已制定完备的继任预案，并且会持续讨论更新。
 
-当地时间14日，本田公司发布的财报显示，2025财年，也就是2025年4月至2026年3月，其销售收入为21.8万亿日元（约合人民币9366亿元），同比增长0.5%；净亏损4239亿日元（约合人民币182亿元），而上一财年则实现净利润8358亿日元。
+也就是说，倘若阿吉特・贾恩或是我本人因故无法履职，董事会清楚接下来该采取何种应对举措、由谁接手岗位。
 
-出现净亏损的主要原因包括电动化战略调整、美国关税政策冲击等。
-
-本田当天公布的业绩预测显示，电动化调整带来的损失将继续侵蚀公司利润，但幅度明显收窄，2026财年公司有望扭亏为盈。
-
-此前一天，日产汽车公司发布的财报显示，受全球销量低迷、美国关税政策冲击以及通胀压力加剧等因素影响，该公司已连续两个财年出现巨额亏损。
-
-2025年4月至2026年3月的财年内，日产汽车净亏损5331亿日元（约合人民币230亿元）。
-
-上一财年净亏损为6709亿日元。
+”责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:43 - [换个角度打开世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:23 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:40 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:20 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:46 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:25 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:24 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:24 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:29 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:28 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:24 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:45 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:20 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:34 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:40 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:32 - [渤海人寿获批增加注册资本至16.87亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:26 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:34 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:39 - [台湾宜兰县海域发生6.1级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:44 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:22 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:29 - [广交会观察：全球采购商寻“鲜”中国美食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:33 - [新加坡外国存款创历史新高 避险需求激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:34 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:19 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:33 - [科技与艺术深度融合 重庆上演互动烟花戏剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:22 - [华安基金苏圻涵|洞见全球视野：透视跨境投资地图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:43 - [Check Point一季度利润超预期，但营收指引不及预期拖累股价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:43 - [广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/1787288874.shtml)
-- 2026-06-29 11:21 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.kurohicncr.top/Article/details/21551.shtml)
-- 2026-06-29 11:45 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/1860489.shtml)
-- 2026-06-29 11:38 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/675524.shtml)
-- 2026-06-29 11:31 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/188808944757.shtml)
-- 2026-06-29 11:39 - [世界杯打成了欧洲杯和美洲杯](http://www.blog.kurohicncr.top/Article/details/957272524215.shtml)
-- 2026-06-29 11:46 - [《给阿嬷的情书》里的情义与守望](https://www.share.kurohicncr.top/Article/details/73378945.shtml)
-- 2026-06-29 11:38 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/376434572.shtml)
-- 2026-06-29 11:35 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/3493217994.shtml)
-- 2026-06-29 11:19 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/9009466.shtml)
-- 2026-06-29 11:45 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/78742008612.shtml)
-- 2026-06-29 11:37 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/36737243.shtml)
-- 2026-06-29 11:38 - [韩红携4000万物资抵呼和浩特](https://www.share.kurohicncr.top/Article/details/82266500309.shtml)
-- 2026-06-29 11:31 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/9236464.shtml)
-- 2026-06-29 11:47 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/15588811071.shtml)
+- 2026-06-29 11:38 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](http://www.blog.kurohicncr.top/Article/details/255343.shtml)
+- 2026-06-29 11:38 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](http://www.share.minike.top/Article/details/468543.shtml)
+- 2026-06-29 11:46 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](http://www.share.kurohicncr.top/Article/details/489451368.shtml)
+- 2026-06-29 11:47 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [一觉醒来，美国对欧洲下狠手了](http://www.share.kurohicncr.top/Article/details/26057840.shtml)
+- 2026-06-29 11:27 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](http://www.share.kurohicncr.top/Article/details/420605290.shtml)
+- 2026-06-29 11:34 - [学习新语｜幸福属于劳动者](http://www.blog.kurohicncr.top/Article/details/97275.shtml)
+- 2026-06-29 11:45 - [刚刚，全线大涨！日本，突然动手了！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [“五一”假期，中国游中国购的引力“藏不住了”](http://www.share.kurohicncr.top/Article/details/673689788735.shtml)
+- 2026-06-29 11:46 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](http://www.blog.kurohicncr.top/Article/details/38755095575.shtml)
+- 2026-06-29 11:37 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](http://www.blog.minike.top/Article/details/30015284.shtml)
+- 2026-06-29 11:25 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](http://www.share.minike.top/Article/details/815808882.shtml)
+- 2026-06-29 11:32 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](http://www.blog.kurohicncr.top/Article/details/959564422.shtml)
+- 2026-06-29 11:39 - [印尼Mako天然气项目稳步推进，预计2027年投产](http://www.share.kurohicncr.top/Article/details/389525893.shtml)
+- 2026-06-29 11:34 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](http://www.share.minike.top/Article/details/83672528085.shtml)

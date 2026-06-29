@@ -1,61 +1,60 @@
-# BitGo预计Q2数字资产销售收入持稳 IPO相关费用将回归正常
+# 委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-数字资产托管及基础设施服务商BitGo在发布上市后首份季报后，对第二季度业绩作出展望。公司预计Q2数字资产销售收入将与第一季度大致持平，同时首次公开募股相关的费用将逐步回归正常水平。 Q1业绩概览 财报数据显示，BitGo第一季度总收入达到37.7亿美元，同比增长112.6%，主要得益于数字资产销售业务扩张以及稳定币即服务收入的贡献。其中数字资产销售收入为36.6亿美元，同比增
+随着美国今年1月非法抓捕委内瑞拉前总统马杜罗并扶植临时政府上台，委内瑞拉石油出口在美方管控下持续攀升。4月出口量达123万桶/日，创2018年以来最高水平，标志着该国石油工业进入“后马杜罗时代”的新阶段。 美国是最大出口目的地，4月直接出口量达44.5万桶/日，印度和欧洲分别增至37.4万桶/日和约16.5万桶/日。雪佛龙负责的出口量升至30.8万桶/日，占总出口量25%，Vi
 
 ## 正文
 
-数字资产托管及基础设施服务商BitGo在发布上市后首份季报后，对第二季度业绩作出展望。
+随着美国今年1月非法抓捕委内瑞拉前总统马杜罗并扶植临时政府上台，委内瑞拉石油出口在美方管控下持续攀升。
 
-公司预计Q2数字资产销售收入将与第一季度大致持平，同时首次公开募股相关的费用将逐步回归正常水平。
+4月出口量达123万桶/日，创2018年以来最高水平，标志着该国石油工业进入“后马杜罗时代”的新阶段。
 
-Q1业绩概览 财报数据显示，BitGo第一季度总收入达到37.7亿美元，同比增长112.6%，主要得益于数字资产销售业务扩张以及稳定币即服务收入的贡献。
+美国是最大出口目的地，4月直接出口量达44.5万桶/日，印度和欧洲分别增至37.4万桶/日和约16.5万桶/日。
 
-其中数字资产销售收入为36.6亿美元，同比增幅达127.9%。
+雪佛龙负责的出口量升至30.8万桶/日，占总出口量25%，Vitol和Trafigura等贸易公司承运约56%。
 
-然而受加密货币市场疲软及新衍生品业务会计处理影响，收入环比下降38.7%。
+今年1月美方抓捕马杜罗后，美国与委内瑞拉临时政府签署供应协议，放松制裁，允许国际公司接管销售。
 
-公司当季净亏损扩大至6070万美元，而去年同期亏损为2570万美元。
+需要指出的是，委内瑞拉石油出口收入的实际控制者和最大受益者是美国政府。
 
-亏损原因分析 公司管理层表示，净亏损扩大主要由两个因素导致：一是公司持有的比特币 treasury 产生的5370万美元非现金按市值计价损失；二是与IPO相关的一次性股权激励费用，金额约为300万美元。
+根据美国财政部的授权，所有石油销售收入必须存入美国财政部监管的专用账户，而非由委内瑞拉方面自主支配。
 
-Q2展望 展望第二季度，BitGo预计IPO相关费用将逐步回归正常水平。
+美国能源部长克里斯·赖特曾明确表示，美国政府将“无限期”控制委内瑞拉石油销售，销售收入存入美国政府控制的账户。
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:24 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:28 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:24 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:34 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:33 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:38 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:45 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:31 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:32 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:34 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:39 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:41 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:28 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:35 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:38 - [水利部滚动会商部署“五一”假期期间防汛工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:40 - [孟加拉国外交部长卡利勒将访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:20 - [巴菲特深度伪造视频，带来一场出人意料的AI风险警示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:32 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:46 - [网信部门严管“自媒体”未规范标注信息来源行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:37 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:20 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:27 - [零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:48 - [Spirit Air股价暴跌逾70% 据报该航司准备停止运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:18 - [河南洛阳：户外露营成“五一”假期新选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:22 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:41 - [中国医生完成尼日尔首例鼓室成形术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:20 - [华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:21 - [文旅观察：浙江乡村“土味”玩法引领消费新潮流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/169089415.shtml)
-- 2026-06-29 11:18 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/811026284.shtml)
-- 2026-06-29 11:43 - [法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/6750775.shtml)
-- 2026-06-29 11:25 - [伊朗队球员哭诉：这届世界杯是场灾难](https://www.share.minike.top/Article/details/4613848.shtml)
-- 2026-06-29 11:21 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/261072729.shtml)
-- 2026-06-29 11:36 - [派出所集体KTV招陪侍事发2年未通报](http://www.share.minike.top/Article/details/33421984328.shtml)
-- 2026-06-29 11:35 - [韩国队如何把94%出线概率打到0%](https://www.share.minike.top/Article/details/57437055.shtml)
-- 2026-06-29 11:27 - [宜宾地震监控画面](http://www.share.kurohicncr.top/Article/details/2524667465.shtml)
-- 2026-06-29 11:30 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/3690580004.shtml)
-- 2026-06-29 11:33 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](http://www.blog.kurohicncr.top/Article/details/93452.shtml)
-- 2026-06-29 11:43 - [手游300亿数据或被军事化运用](https://www.blog.minike.top/Article/details/63185805.shtml)
-- 2026-06-29 11:40 - [王佳佳江疏影13年前后同框对比](https://www.share.kurohicncr.top/Article/details/369294.shtml)
-- 2026-06-29 11:18 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/131460556345.shtml)
-- 2026-06-29 11:29 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/355832.shtml)
-- 2026-06-29 11:26 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/7576824.shtml)
+- 2026-06-29 11:40 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [渤海人寿获批增加注册资本至16.87亿元](http://www.blog.kurohicncr.top/Article/details/0621034818.shtml)
+- 2026-06-29 11:20 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](http://www.share.kurohicncr.top/Article/details/011336693290.shtml)
+- 2026-06-29 11:22 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](http://www.blog.minike.top/Article/details/30504.shtml)
+- 2026-06-29 11:20 - [台湾宜兰县海域发生6.1级地震](http://www.share.kurohicncr.top/Article/details/5435985735.shtml)
+- 2026-06-29 11:29 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](http://www.blog.minike.top/Article/details/07130014.shtml)
+- 2026-06-29 11:42 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](http://www.blog.minike.top/Article/details/426031196.shtml)
+- 2026-06-29 11:39 - [广交会观察：全球采购商寻“鲜”中国美食](http://www.blog.kurohicncr.top/Article/details/68840688.shtml)
+- 2026-06-29 11:45 - [新加坡外国存款创历史新高 避险需求激增](http://www.share.kurohicncr.top/Article/details/979435.shtml)
+- 2026-06-29 11:37 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](http://www.share.kurohicncr.top/Article/details/156649009.shtml)
+- 2026-06-29 11:21 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](http://www.share.minike.top/Article/details/8849235.shtml)
+- 2026-06-29 11:33 - [科技与艺术深度融合 重庆上演互动烟花戏剧](http://www.blog.kurohicncr.top/Article/details/7395898602.shtml)
+- 2026-06-29 11:24 - [华安基金苏圻涵|洞见全球视野：透视跨境投资地图](http://www.share.kurohicncr.top/Article/details/4516479.shtml)
+- 2026-06-29 11:33 - [Check Point一季度利润超预期，但营收指引不及预期拖累股价](http://www.blog.kurohicncr.top/Article/details/041633219.shtml)
+- 2026-06-29 11:27 - [广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容](http://www.blog.minike.top/Article/details/22953.shtml)

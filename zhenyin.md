@@ -1,56 +1,59 @@
-# A股氦气板块周四走强
+# 福建舰两年8次海试 中国航母技术实现历史性跨越
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新社北京5月14日电 (记者 陈康亮)中国A股14日(周四)遭遇调整，主要股指悉数下跌；氦气概念板块逆势上涨，表现亮眼。 根据金融数据服务商东方财富的统计，氦气概念板块当天上涨3.41%，领涨A股所有概念板块。个股方面，正帆科技、侨源股份、和远气体、冰轮环境当天股价均涨逾5%。 据媒体报道，中东战事不仅推高了石油、天然气的价格，还加剧了全球工业氦气的供应短缺。卡塔尔是全球第二
+两年前的今天，国产福建舰进行了首次海试。两年来，历经总计8次海试的福建舰，都完成了哪些项目？又经历了怎样的考验呢？ 2024年5月1日，我国第三艘航空母舰福建舰第一次离开码头，开始了它的海上测试之旅。这两年来，这艘8万多吨重的大家伙已经完成了8次海试，总共在海上待了117天，比山东舰的84天还要长不少，这说明我国的航母技术实现了历史性跨越。 航母为什么要进行海试？其实，海试就像
 
 ## 正文
 
-中新社北京5月14日电 (记者 陈康亮)中国A股14日(周四)遭遇调整，主要股指悉数下跌；氦气概念板块逆势上涨，表现亮眼。
+两年前的今天，国产福建舰进行了首次海试。
 
-根据金融数据服务商东方财富的统计，氦气概念板块当天上涨3.41%，领涨A股所有概念板块。
+两年来，历经总计8次海试的福建舰，都完成了哪些项目？
 
-个股方面，正帆科技、侨源股份、和远气体、冰轮环境当天股价均涨逾5%。
+又经历了怎样的考验呢？
 
-据媒体报道，中东战事不仅推高了石油、天然气的价格，还加剧了全球工业氦气的供应短缺。
+2024年5月1日，我国第三艘航空母舰福建舰第一次离开码头，开始了它的海上测试之旅。
 
-卡塔尔是全球第二大氦气生产国，其氦气产量约占全球产量的三分之一。
+这两年来，这艘8万多吨重的大家伙已经完成了8次海试，总共在海上待了117天，比山东舰的84天还要长不少，这说明我国的航母技术实现了历史性跨越。
 
-霍尔木兹海峡航运受阻，导致卡塔尔生产的氦气无法运出。
+航母为什么要进行海试？
 
-国盛证券分析师花小伟表示，全球氦气市场已进入新一轮短缺周期。
+其实，海试就像是给新航母做一次全面的“体检”。
 
-半导体、医疗核磁共振、光纤构成中国氦气三大核心消费场景，航天航空等新兴领域应用持续拓展，行业需求刚性不断凸显。
+就像买了新车要先试驾，航母在正式服役前也得在海上实际跑一跑，看看各项性能指标到底怎么样。
 
 ## 相关推荐
 
-- 2026-06-29 11:47 - [白玉兰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:37 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:19 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:39 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:39 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:38 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:22 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:28 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:23 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:35 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:39 - [“五一”假期首日：民众游杭州西湖享江南时光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:47 - [美国威胁制裁向伊朗缴通行费的航运企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:36 - [中国铁路迎来“五一”假期运输客流最高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:32 - [致敬劳动者｜每一方寸，因你而闪光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:30 - [远东国际观察：日本国会参议院通过2026财年预算案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:38 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:31 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:38 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:20 - [福州地铁客流连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:45 - [埃及侨商：持续推动“零关税”红利转化为务实合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:35 - [“05后”持有人猛增10倍，年轻人涌向AI基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:23 - [2026五一档新片票房破9000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:34 - [美国制造业保持扩张势头 价格指标触及四年高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/9694650.shtml)
-- 2026-06-29 11:24 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.kurohicncr.top/Article/details/515588.shtml)
-- 2026-06-29 11:21 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/75032.shtml)
-- 2026-06-29 11:34 - [亚洲成世界杯最大失意者联盟](https://www.blog.minike.top/Article/details/781204576.shtml)
-- 2026-06-29 11:31 - [功率半导体缺货涨价](https://www.blog.minike.top/Article/details/192647.shtml)
-- 2026-06-29 11:39 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/600407761.shtml)
-- 2026-06-29 11:38 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.share.kurohicncr.top/Article/details/44449300.shtml)
-- 2026-06-29 11:27 - [恋与深空女玩家不该被冒犯](http://www.blog.minike.top/Article/details/348141.shtml)
-- 2026-06-29 11:33 - [恋与深空底线不该被娱乐化](https://www.blog.minike.top/Article/details/8095105364.shtml)
-- 2026-06-29 11:30 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/25417863567.shtml)
-- 2026-06-29 11:36 - [退休化学教授帮医药研发人员制毒](https://www.share.kurohicncr.top/Article/details/433897615506.shtml)
-- 2026-06-29 11:45 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/45460305.shtml)
-- 2026-06-29 11:44 - [普京称俄处于命运攸关之际](http://www.share.minike.top/Article/details/5715725.shtml)
-- 2026-06-29 11:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/35137792.shtml)
-- 2026-06-29 11:23 - [立陶宛为何此时生变](https://www.share.kurohicncr.top/Article/details/999782340437.shtml)
+- 2026-06-29 11:31 - [王毅同美国国务卿鲁比奥通电话](http://www.share.kurohicncr.top/Article/details/287538748988.shtml)
+- 2026-06-29 11:27 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](http://www.blog.kurohicncr.top/Article/details/532889369.shtml)
+- 2026-06-29 11:31 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](http://www.blog.kurohicncr.top/Article/details/17682342825.shtml)
+- 2026-06-29 11:35 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](http://www.share.kurohicncr.top/Article/details/5154878051.shtml)
+- 2026-06-29 11:28 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [海南商业航天重点项目加速建设](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](http://www.blog.minike.top/Article/details/11810.shtml)
+- 2026-06-29 11:28 - [美官员：美军“福特”号航母已离开中东](http://www.share.minike.top/Article/details/12733636.shtml)
+- 2026-06-29 11:23 - [水利部滚动会商部署“五一”假期期间防汛工作](http://www.blog.minike.top/Article/details/560771945494.shtml)
+- 2026-06-29 11:46 - [孟加拉国外交部长卡利勒将访华](http://www.blog.kurohicncr.top/Article/details/03587.shtml)
+- 2026-06-29 11:20 - [巴菲特深度伪造视频，带来一场出人意料的AI风险警示](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](http://www.blog.minike.top/Article/details/7571122019.shtml)
+- 2026-06-29 11:47 - [网信部门严管“自媒体”未规范标注信息来源行为](http://www.blog.minike.top/Article/details/4087958.shtml)
+- 2026-06-29 11:27 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](http://www.blog.minike.top/Article/details/0208581793.shtml)
+- 2026-06-29 11:23 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](http://www.share.kurohicncr.top/Article/details/53531.shtml)

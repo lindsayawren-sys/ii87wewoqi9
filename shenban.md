@@ -1,56 +1,57 @@
-# 卡拉苏口岸客货流量双增长
+# 铜业巨头官宣：“A拆H”
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-石榴云/新疆日报讯(记者 王娜报道)5月14日，卡拉苏口岸，一辆辆满载货物的大卡车来来往往，鸣笛声和引擎轰鸣声此起彼伏，中国产汽车、塔吉克斯坦特色农产品等进出口货物在这里“双向奔赴”。 地处塔什库尔干塔吉克自治县的卡拉苏口岸，是中国与塔吉克斯坦唯一的陆路口岸。随着中国新疆与塔吉克斯坦地方间经贸往来持续升温、互联互通愈发紧密，该口岸呈现出越来越繁忙的景象，出入境货运车辆和人员数量
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！在主动终止“A拆A”计划近两年后，江西铜业宣布再次重启江铜铜箔IPO进程。 4月30日晚，江西铜业公告称，为进一步优化公司产业布局、拓宽融资渠道，提高控股子公司江铜铜箔的核心竞争力，持续做强铜箔业务，公司拟筹划分拆江铜铜箔至香港联合交易所有限公司上市。 江铜铜箔转战港股IPO 相较于此前冲击创业板未果，此次
 
 ## 正文
 
-石榴云/新疆日报讯(记者 王娜报道)5月14日，卡拉苏口岸，一辆辆满载货物的大卡车来来往往，鸣笛声和引擎轰鸣声此起彼伏，中国产汽车、塔吉克斯坦特色农产品等进出口货物在这里“双向奔赴”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-地处塔什库尔干塔吉克自治县的卡拉苏口岸，是中国与塔吉克斯坦唯一的陆路口岸。
+在主动终止“A拆A”计划近两年后，江西铜业宣布再次重启江铜铜箔IPO进程。
 
-随着中国新疆与塔吉克斯坦地方间经贸往来持续升温、互联互通愈发紧密，该口岸呈现出越来越繁忙的景象，出入境货运车辆和人员数量稳步增长。
+4月30日晚，江西铜业公告称，为进一步优化公司产业布局、拓宽融资渠道，提高控股子公司江铜铜箔的核心竞争力，持续做强铜箔业务，公司拟筹划分拆江铜铜箔至香港联合交易所有限公司上市。
 
-“口岸跨境货物运输‘大进大出’趋势明显，通关流量持续攀升。
+江铜铜箔转战港股IPO 相较于此前冲击创业板未果，此次江铜铜箔选择转战港股上市。
 
-”卡拉苏边检站边检处副处长刘明秋介绍，截至5月12日，今年卡拉苏口岸共验放出入境人员1.1万余人次，同比增长17%；验放出入境车辆1万余辆次，同比增长15%；验放商品车7000余辆。
+据公告，江铜铜箔成立于2003年，注册资本5亿元，是国内领先的高性能电解铜箔研发、生产与销售企业，专注为新能源、电子信息等核心领域提供关键材料解决方案，主要产品按应用领域分类包括电子电路铜箔和锂电铜箔。
 
-中塔经贸往来紧密带动了中国产商品车出口步伐加快。
+回溯来看，2022年2月，江西铜业宣布筹划江铜铜箔分拆上市事宜，引发市场广泛关注。
 
-在卡拉苏口岸，每天都有大量新车集中运往塔吉克斯坦等中亚国家，车型涵盖轿车、轻型卡车等。
+2022年9月，深交所受理江铜铜箔上市申请，并于2023年6月15日成功过会。
 
-商品车出口在这里大多采用“自驾交接+批量轿运”模式，创造了大量的就业机会。
+虽然成功过会，但公司业绩下滑和独立性等问题还是受到了监管关注。
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:47 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:28 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:33 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:31 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:46 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:25 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:45 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:43 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:33 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:37 - [美政府官员称2月28日开始的“敌对行动已结束”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:18 - [杭州机器人交警“五一”忙“加班”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:30 - [中金：澳门4月博彩收入大致符合预期 首选金沙中国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:44 - [伊朗给出14点谈判提议 特朗普对内容表示不满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:19 - [浙江杭州：AI融合科技文旅场景吸引民众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:46 - [美军封锁逼退41艘伊朗油轮6900万桶原油，德黑兰内外交困](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:30 - [港股收评：恒指涨1.24% 科指涨2.16% 科网股、电力设备股普涨 半导体板块大涨 小米涨超6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:28 - [“香港金融之夜”活动在港举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:22 - [风花雪月遇咖香 “风花雪月·啡尝不可”2026大理咖啡节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:31 - [中央气象台：江南华南等地将有强降水及强对流天气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:47 - [全美自动驾驶出租车行业迎来爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [韩国队主帅洪明甫下课](https://www.blog.minike.top/Article/details/49782970011.shtml)
-- 2026-06-29 11:31 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/45614035.shtml)
-- 2026-06-29 11:19 - [加拿大92分钟绝杀南非](https://www.share.minike.top/Article/details/868337915.shtml)
-- 2026-06-29 11:33 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/32774.shtml)
-- 2026-06-29 11:26 - [加拿大92分钟绝杀南非](https://www.blog.kurohicncr.top/Article/details/20494116.shtml)
-- 2026-06-29 11:28 - [向佑说向佐是一生依靠](https://www.share.kurohicncr.top/Article/details/28090014.shtml)
-- 2026-06-29 11:47 - [沙丘](https://www.share.kurohicncr.top/Article/details/047739010.shtml)
-- 2026-06-29 11:24 - [白玉兰最佳女主角提名片段](https://www.share.kurohicncr.top/Article/details/72616034940.shtml)
-- 2026-06-29 11:29 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/510116288127.shtml)
-- 2026-06-29 11:29 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/4002411.shtml)
-- 2026-06-29 11:34 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/6516446788.shtml)
-- 2026-06-29 11:37 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/42948420223.shtml)
-- 2026-06-29 11:31 - [周生如故](http://www.blog.kurohicncr.top/Article/details/61186.shtml)
-- 2026-06-29 11:42 - [韩红携4000万物资抵呼和浩特](https://www.blog.kurohicncr.top/Article/details/20510757462.shtml)
-- 2026-06-29 11:47 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/40224.shtml)
+- 2026-06-29 11:42 - [巴西国家石油公司投资8.7亿雷亚尔重启巴拉那州尿素生产](http://www.blog.minike.top/Article/details/58614391.shtml)
+- 2026-06-29 11:41 - [巴菲特：如今民众投机赌博情绪，史上前所未有](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [“五一”假期 各地特色文旅活动精彩纷呈](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [中国首部政务服务领域区域协同立法施行](http://www.blog.kurohicncr.top/Article/details/097505901782.shtml)
+- 2026-06-29 11:36 - [谷歌云增速超越微软、亚马逊，三大云厂商均受益AI需求业绩超预期](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [福建舰两年8次海试 中国航母技术实现历史性跨越](http://www.share.kurohicncr.top/Article/details/264041.shtml)
+- 2026-06-29 11:37 - [【东西问】与龙共舞的凤，何以成为中华民族精神象征？](http://www.blog.kurohicncr.top/Article/details/206669389.shtml)
+- 2026-06-29 11:18 - [芝加哥期权交易所正裁减全球20%员工](http://www.share.kurohicncr.top/Article/details/33813370.shtml)
+- 2026-06-29 11:32 - [花样游泳世界杯侧记：长安浪花起 出水亦芙蓉](http://www.share.minike.top/Article/details/46460.shtml)
+- 2026-06-29 11:35 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](http://www.blog.minike.top/Article/details/616784736750.shtml)
+- 2026-06-29 11:46 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](http://www.blog.minike.top/Article/details/3202211940.shtml)
+- 2026-06-29 11:43 - [“五一”假期首日：民众游杭州西湖享江南时光](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [美国威胁制裁向伊朗缴通行费的航运企业](http://www.blog.minike.top/Article/details/13857275.shtml)
+- 2026-06-29 11:21 - [中国铁路迎来“五一”假期运输客流最高峰](https://github.com/lisacumin64-arch)

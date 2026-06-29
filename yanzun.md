@@ -1,61 +1,53 @@
-# 欧洲央行管委Kocher：6月会议要么加息要么维持利率不变
+# Spirit Air股价暴跌逾70% 据报该航司准备停止运营
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-欧洲央行管理委员会成员Martin Kocher对Econostream Media表示，欧洲央行必须在6月制定货币政策时决定是加息还是维持利率不变。 他在周三发布的一次采访中称：“我们将讨论是需要按兵不动还是上调利率。”他表示：“如果通胀上升，通胀预期将会非常重要。我们将在6月获得新的数据，这将有助于我们了解这对中期通胀预期意味着什么。” Kocher还说：关于通胀，“未来五
+援引知情人士报道，在与美国政府的纾困谈判破裂后，Spirit Aviation Holdings Inc． 正准备停止运营。 公司发言人拒绝就正在进行的讨论置评，并表示公司目前仍在正常运营。 早些时候报道，围绕潜在的5亿美元政府纾困方案的谈判已陷入僵局，因为包括城堡在内的贷款人集团反对相关条款，认为这些条款可能会严重削弱其债权和回收价值。 上述报道发布后，Spirit Airl
 
 ## 正文
 
-欧洲央行管理委员会成员Martin Kocher对Econostream Media表示，欧洲央行必须在6月制定货币政策时决定是加息还是维持利率不变。
+援引知情人士报道，在与美国政府的纾困谈判破裂后，Spirit Aviation Holdings Inc． 正准备停止运营。
 
-他在周三发布的一次采访中称：“我们将讨论是需要按兵不动还是上调利率。
+公司发言人拒绝就正在进行的讨论置评，并表示公司目前仍在正常运营。
 
-”他表示：“如果通胀上升，通胀预期将会非常重要。
+早些时候报道，围绕潜在的5亿美元政府纾困方案的谈判已陷入僵局，因为包括城堡在内的贷款人集团反对相关条款，认为这些条款可能会严重削弱其债权和回收价值。
 
-我们将在6月获得新的数据，这将有助于我们了解这对中期通胀预期意味着什么。
+上述报道发布后，Spirit Airlines股价一度暴跌高达74%。
 
-” Kocher还说：关于通胀，“未来五年的预期很幸运地保持稳定，但未来两到三年的预期有所上升。
+与此同时，JetBlue Airways Corp．和 Frontier Group Holdings Inc．等公司股价应声上涨。
 
-我们将密切关注这一点。
-
-” “我们根据每次会议的情况做决定，在6月会议前无法预知会发生什么。
-
-” “如果我们看到和平协议达成，如果中东地区的敌对行动结束，如果经济前景更加明朗，那么我们希望避免不必要的加息。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:36 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:38 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:44 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:41 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:36 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:27 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:28 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:22 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:22 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:46 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:48 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:22 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:30 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:37 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:25 - [吉尔登服饰营收攀升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:47 - [原油：布伦特油价自四年高点回落 战争担忧抑制市场流动性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:34 - [阿贝尔重申伯克希尔核心原则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:35 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:21 - [云南边境的目瑙纵歌，何以火爆全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:39 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:44 - [重庆新开往返菲律宾马尼拉客运航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:38 - [新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:38 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:19 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:23 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/20136511.shtml)
-- 2026-06-29 11:33 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.share.minike.top/Article/details/044653881297.shtml)
-- 2026-06-29 11:25 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/55459.shtml)
-- 2026-06-29 11:33 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/721374.shtml)
-- 2026-06-29 11:44 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/72798269.shtml)
-- 2026-06-29 11:27 - [黄灿灿恭喜自己拿到全季通告费](http://www.share.minike.top/Article/details/56658.shtml)
-- 2026-06-29 11:35 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/3375232864.shtml)
-- 2026-06-29 11:20 - [小娘惹](http://www.blog.minike.top/Article/details/55991.shtml)
-- 2026-06-29 11:30 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/66262999511.shtml)
-- 2026-06-29 11:21 - [李维嘉回应“人老了做什么都心酸”](http://www.share.kurohicncr.top/Article/details/53226585.shtml)
-- 2026-06-29 11:45 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.kurohicncr.top/Article/details/739848996.shtml)
-- 2026-06-29 11:27 - [高考志愿今起开始填报](http://www.blog.kurohicncr.top/Article/details/44351928298.shtml)
-- 2026-06-29 11:22 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/2416801.shtml)
-- 2026-06-29 11:41 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/5418818.shtml)
-- 2026-06-29 11:28 - [房屋抵押权与租赁权如何协调](https://www.share.kurohicncr.top/Article/details/752026619.shtml)
+- 2026-06-29 11:21 - [2026年“国际中文日”文艺巡演活动在北爱尔兰举行](http://www.share.kurohicncr.top/Article/details/985725566.shtml)
+- 2026-06-29 11:21 - [马斯克法庭交锋OpenAI，称奥特曼“不诚实”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [德国经济一季度环比增长0.3%](http://www.blog.kurohicncr.top/Article/details/05859.shtml)
+- 2026-06-29 11:30 - [摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [可孚医疗：发售价厘定为每股H股39.33港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [数万日本民众举行集会 呼吁守护和平宪法](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [在香港沉浸式“邂逅”蒙娜丽莎](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](http://www.blog.minike.top/Article/details/1952936391.shtml)
+- 2026-06-29 11:33 - [中国奥园委聘毕马威咨询(香港)为财务顾问](http://www.share.minike.top/Article/details/26741468.shtml)
+- 2026-06-29 11:29 - [首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕](http://www.blog.minike.top/Article/details/091538497534.shtml)
+- 2026-06-29 11:29 - [欧洲央行维持存款利率在2.00%不变 符合预期](http://www.share.kurohicncr.top/Article/details/220868677.shtml)
+- 2026-06-29 11:18 - [暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [5月4日中国跨区域人员流动量预计超2.9亿人次](http://www.share.kurohicncr.top/Article/details/588744296.shtml)
+- 2026-06-29 11:41 - [内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%](http://www.share.kurohicncr.top/Article/details/5983869589.shtml)
+- 2026-06-29 11:39 - [东西问丨杜方绥：中国文学何以打动世界读者？](http://www.share.kurohicncr.top/Article/details/6571260.shtml)

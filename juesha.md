@@ -1,57 +1,57 @@
-# 中国平安：5月13日起不再设立监事会
+# 美国威胁制裁向伊朗缴通行费的航运企业
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-5月14日金融一线消息，中国平安今日发布公告称，公司于近日收到国家金融监督管理总局（以下简称“金融监管总局”）《关于中国平安保险（集团）股份有限公司修改公司章程的批复》（金复〔2026〕255号）。本次修订后的《公司章程》自金融监管总局核准之日2026年5月13日起生效。 中国平安表示，根据本次修订后的《公司章程》，自2026年5月13日起，公司不再设立监事会，由董事会审计与风
+新华社北京5月2日电 美国财政部下属外国资产控制办公室5月1日警告说，任何航运公司以包括慈善捐款在内的任何形式，向伊朗支付霍尔木兹海峡通行费，都可能受到美国制裁。 外国资产控制办公室4月28日发布文件称，美国禁止本国个人或实体向伊朗缴纳霍尔木兹海峡安全通行费，非美国个人或实体向伊朗方面缴纳该通行费也会构成重大制裁风险。 该办公室5月1日称，伊朗方面的付款要求可能不仅包括现金转账
 
 ## 正文
 
-5月14日金融一线消息，中国平安今日发布公告称，公司于近日收到国家金融监督管理总局（以下简称“金融监管总局”）《关于中国平安保险（集团）股份有限公司修改公司章程的批复》（金复〔2026〕255号）。
+新华社北京5月2日电 美国财政部下属外国资产控制办公室5月1日警告说，任何航运公司以包括慈善捐款在内的任何形式，向伊朗支付霍尔木兹海峡通行费，都可能受到美国制裁。
 
-本次修订后的《公司章程》自金融监管总局核准之日2026年5月13日起生效。
+外国资产控制办公室4月28日发布文件称，美国禁止本国个人或实体向伊朗缴纳霍尔木兹海峡安全通行费，非美国个人或实体向伊朗方面缴纳该通行费也会构成重大制裁风险。
 
-中国平安表示，根据本次修订后的《公司章程》，自2026年5月13日起，公司不再设立监事会，由董事会审计与风险管理委员会行使《中华人民共和国公司法》规定的监事会职权；孙建一、朱新蓉、刘怀镜、洪嘉禧和王志良退任公司第十一届监事会监事职务。
+该办公室5月1日称，伊朗方面的付款要求可能不仅包括现金转账，还包括数字资产、债务抵消、非正式互换或其他实物支付，包括向伊朗红新月会、伊朗使馆的慈善捐款。
 
-“本公司监事会恪尽职守、忠实勤勉，为本公司规范运作与高质量发展提供了坚实保障。
+有关个人或实体不论以何种方式，一旦向伊朗方面付款，都可能面临美方制裁。
 
-本公司对历届监事会及各位监事为本公司所作出的重要贡献表示衷心感谢。
+目前尚不清楚是否有企业或国家进行过此类间接支付。
 
-” 责任编辑：曹睿潼
+有媒体日前报道，为了使一艘船通过霍尔木兹海峡，曾有实体向伊朗支付了至少200万美元。
+
+外国资产控制办公室还表示，对3家伊朗外汇兑换机构实施新的制裁。
+
+美国和以色列2月28日对伊朗发动军事打击后，伊朗封锁了霍尔木兹海峡。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [重生赛伊德04](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:38 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:48 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:25 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:44 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:35 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:43 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:38 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:32 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:44 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:33 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:32 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:30 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:20 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:45 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:38 - [福州地铁客流连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:32 - [埃及侨商：持续推动“零关税”红利转化为务实合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:25 - [“05后”持有人猛增10倍，年轻人涌向AI基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:18 - [2026五一档新片票房破9000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:42 - [美国制造业保持扩张势头 价格指标触及四年高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:32 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:24 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:27 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:37 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:37 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:24 - [前瞻｜巴菲特谢幕，阿贝尔登场：2026伯克希尔股东大会有何看点？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [初心如磐 红色足迹](https://www.blog.kurohicncr.top/Article/details/102269193.shtml)
-- 2026-06-29 11:19 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/6021543560.shtml)
-- 2026-06-29 11:45 - [加拿大队史淘汰赛首胜](http://www.blog.minike.top/Article/details/07812.shtml)
-- 2026-06-29 11:24 - [晋城暴雨车辆被淹冰箱在水中漂](http://www.share.minike.top/Article/details/14262410.shtml)
-- 2026-06-29 11:33 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/6558494.shtml)
-- 2026-06-29 11:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/21628927901.shtml)
-- 2026-06-29 11:24 - [毕业寄几百斤快递回家女生发声](http://www.blog.kurohicncr.top/Article/details/427431263.shtml)
-- 2026-06-29 11:45 - [俄军新型无人机战力如何](https://www.blog.minike.top/Article/details/3621035.shtml)
-- 2026-06-29 11:31 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.kurohicncr.top/Article/details/487089970425.shtml)
-- 2026-06-29 11:42 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/491903.shtml)
-- 2026-06-29 11:37 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](http://www.blog.minike.top/Article/details/516055.shtml)
-- 2026-06-29 11:25 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/33978.shtml)
-- 2026-06-29 11:24 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/4206307.shtml)
-- 2026-06-29 11:31 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/55043069095.shtml)
-- 2026-06-29 11:19 - [民进党为什么拼命抹黑统战](http://www.blog.minike.top/Article/details/31775.shtml)
+- 2026-06-29 11:33 - [水利部滚动会商部署“五一”假期期间防汛工作](http://www.share.minike.top/Article/details/13394979.shtml)
+- 2026-06-29 11:46 - [孟加拉国外交部长卡利勒将访华](http://www.share.kurohicncr.top/Article/details/57151366801.shtml)
+- 2026-06-29 11:47 - [巴菲特深度伪造视频，带来一场出人意料的AI风险警示](http://www.share.minike.top/Article/details/1453347.shtml)
+- 2026-06-29 11:35 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](http://www.blog.minike.top/Article/details/821290.shtml)
+- 2026-06-29 11:22 - [网信部门严管“自媒体”未规范标注信息来源行为](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](http://www.share.minike.top/Article/details/480661.shtml)
+- 2026-06-29 11:29 - [零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期](http://www.share.minike.top/Article/details/4065335.shtml)
+- 2026-06-29 11:19 - [Spirit Air股价暴跌逾70% 据报该航司准备停止运营](http://www.blog.minike.top/Article/details/270975224588.shtml)
+- 2026-06-29 11:43 - [河南洛阳：户外露营成“五一”假期新选择](http://www.share.minike.top/Article/details/26352.shtml)
+- 2026-06-29 11:44 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](http://www.share.kurohicncr.top/Article/details/72930.shtml)
+- 2026-06-29 11:40 - [中国医生完成尼日尔首例鼓室成形术](http://www.share.kurohicncr.top/Article/details/95257.shtml)
+- 2026-06-29 11:46 - [华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”](http://www.share.minike.top/Article/details/0021775.shtml)
+- 2026-06-29 11:47 - [文旅观察：浙江乡村“土味”玩法引领消费新潮流](http://www.share.minike.top/Article/details/816445925664.shtml)
+- 2026-06-29 11:23 - [浙江宁波机场口岸迎来出入境客流“双向热潮”](http://www.share.kurohicncr.top/Article/details/560377.shtml)

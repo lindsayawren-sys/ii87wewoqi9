@@ -1,60 +1,60 @@
-# 广东迁地保存高等植物15026种 植物园数量全国第一
+# 西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网广州5月14日电 (程景伟 林荫)据广东省林业局14日消息，作为全国种质资源保护的“排头兵”，目前广东迁地保存的高等植物15026种，其中国家重点保护野生植物662种、约占全国国家重点保护野生植物总种数的60%。 当前，广东正以绿美广东生态建设为抓手，加快推进岭南特色植物园体系建设，逐步完善“国家—区域—乡土”三级植物迁地保护体系，探索生态、文化、民生协同发展路径。 凭借
+专题：聚焦美股2026年第一季度财报 净利息收入实现两位数增长，手续费及佣金净收入走高 西班牙对外银行（BBVA）公布利润同比增长，依托信贷业务持续扩张及核心主要市场稳健表现，缓冲了成本走高与拨备计提增加带来的冲击。 这家西班牙银行过半业务收入来自欧洲以外市场。其一季度净利润同比上涨 11%，达29.9 亿欧元（折合 34.9 亿美元），高于公司统计的分析师一致预期 28 亿欧
 
 ## 正文
 
-中新网广州5月14日电 (程景伟 林荫)据广东省林业局14日消息，作为全国种质资源保护的“排头兵”，目前广东迁地保存的高等植物15026种，其中国家重点保护野生植物662种、约占全国国家重点保护野生植物总种数的60%。
+专题：聚焦美股2026年第一季度财报 净利息收入实现两位数增长，手续费及佣金净收入走高 西班牙对外银行（BBVA）公布利润同比增长，依托信贷业务持续扩张及核心主要市场稳健表现，缓冲了成本走高与拨备计提增加带来的冲击。
 
-当前，广东正以绿美广东生态建设为抓手，加快推进岭南特色植物园体系建设，逐步完善“国家—区域—乡土”三级植物迁地保护体系，探索生态、文化、民生协同发展路径。
+这家西班牙银行过半业务收入来自欧洲以外市场。
 
-凭借优越的水热自然条件，广东科学统筹布局，推动植物园建设从分散发展转向全域联动。
+其一季度净利润同比上涨 11%，达29.9 亿欧元（折合 34.9 亿美元），高于公司统计的分析师一致预期 28 亿欧元。
 
-目前全省植物园数量位列全国第一，现建成14家植物园，35家树木园、种质园加速转型升级，同时布局9家区域植物园与32家乡土植物园。
+一季度营业总收入同比增长 14%，至106.5 亿欧元，同样超出分析师 100.5 亿欧元的预期。
 
-各园保育成果亮眼，其中华南国家植物园保育植物超2万种，深圳仙湖植物园苏铁目收集量居全球第一，多家园区在兰科、蕨类等植物引种领域保持国内领先水平。
+营收增长主要由两大板块拉动：净利息收入实现两位数增幅（贷款利息收入减去客户存款利息支出），同时资产管理、支付及保险业务带来的手续费及佣金净收入同步提升。
 
-在广东，随着生态绿意从“点上出彩”向“面上全覆盖”延伸，植物园正成为集生态、文化、富民于一体的综合载体。
+西班牙与墨西哥两大市场贡献该行约三分之二营收，BBVA 在两地的企业贷与个人消费贷规模均实现增长。
 
-逛植物园已成广东民众休闲新风尚，2025年全省植物园累计接待游客超3293万人次，开展各类自然教育活动4166场次，服务民众675万人次。
+此外，土耳其及南美分支机构业绩表现改善，企业与投行业务也保持持续扩张。
 
-其中，广州云萝植物园、云溪植物园自开园以来累计接待游客近300万人次，成为粤港澳大湾区热门文旅打卡地；广州兰圃将岭南园林精髓与兰花雅韵深度融合；广州神农草堂南药园将岭南花窗文化与草药种植相结合，让植物园化身为岭南文化窗口。
+运营成本同比攀升 14%，至40.5 亿欧元，部分源于西班牙本土自愿离职裁员计划。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:25 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:47 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:28 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:23 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:29 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:33 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:34 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:19 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:38 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:43 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:25 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:45 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:23 - [阿贝尔谈及自己与阿吉特・贾恩的继任规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:42 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:43 - [广西投资集团有限公司总经理刘明洪接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:30 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:21 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:35 - [915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:47 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:30 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:19 - [渤海人寿获批增加注册资本至16.87亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:32 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:22 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:18 - [台湾宜兰县海域发生6.1级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:26 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:19 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [欧洲热死人不是开玩笑](https://www.share.minike.top/Article/details/892878749.shtml)
-- 2026-06-29 11:21 - [女子拍邻居家中裸照发业主群](http://www.share.minike.top/Article/details/143685411.shtml)
-- 2026-06-29 11:33 - [6月我国降水为何偏多](https://www.blog.minike.top/Article/details/025147.shtml)
-- 2026-06-29 11:34 - [韩红现身呼和浩特助力百人援蒙](https://www.share.kurohicncr.top/Article/details/81852640077.shtml)
-- 2026-06-29 11:43 - [广州某高校辟谣禁止小米汽车入校](https://www.share.minike.top/Article/details/70205288.shtml)
-- 2026-06-29 11:44 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/938320.shtml)
-- 2026-06-29 11:39 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/7159171.shtml)
-- 2026-06-29 11:33 - [医护人员观影《四渡》传承长征精神](http://www.share.kurohicncr.top/Article/details/2226198.shtml)
-- 2026-06-29 11:26 - [黄博文：坚持这样打下去会成强队](https://www.share.minike.top/Article/details/57809.shtml)
-- 2026-06-29 11:38 - [小学生叠纸青蛙跳2.52米 创世界纪录](http://www.blog.kurohicncr.top/Article/details/009452517.shtml)
-- 2026-06-29 11:45 - [加拿大队史淘汰赛首胜](https://www.share.kurohicncr.top/Article/details/43726007386.shtml)
-- 2026-06-29 11:19 - [送你一朵小红花](https://www.blog.minike.top/Article/details/84003020.shtml)
-- 2026-06-29 11:20 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/473598195496.shtml)
-- 2026-06-29 11:34 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/976004669.shtml)
-- 2026-06-29 11:30 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/94096436226.shtml)
+- 2026-06-29 11:44 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](http://www.blog.kurohicncr.top/Article/details/99474636897.shtml)
+- 2026-06-29 11:35 - [刚刚，利好来了！上海，重磅出手！](http://www.share.kurohicncr.top/Article/details/512398179.shtml)
+- 2026-06-29 11:21 - [3月核心通胀率升至3.2%，一季度经济增速仅2%不及预期](http://www.blog.kurohicncr.top/Article/details/77519.shtml)
+- 2026-06-29 11:28 - [西藏昌都文旅资源亮相天津 多项合作签约落地](http://www.share.kurohicncr.top/Article/details/183625590186.shtml)
+- 2026-06-29 11:43 - [埃克森美孚与雪佛龙无视特朗普政府增产呼吁](http://www.share.minike.top/Article/details/794506.shtml)
+- 2026-06-29 11:39 - [钠电池迎来历史性拐点！业绩报喜概念股出炉，4股市盈率不到30倍](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](http://www.blog.minike.top/Article/details/91155.shtml)
+- 2026-06-29 11:45 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](http://www.blog.kurohicncr.top/Article/details/923777256654.shtml)
+- 2026-06-29 11:39 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](http://www.share.kurohicncr.top/Article/details/629341.shtml)
+- 2026-06-29 11:36 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](http://www.share.kurohicncr.top/Article/details/7807464523.shtml)
+- 2026-06-29 11:40 - [一觉醒来，美国对欧洲下狠手了](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](http://www.share.minike.top/Article/details/682034.shtml)
+- 2026-06-29 11:45 - [学习新语｜幸福属于劳动者](http://www.blog.minike.top/Article/details/795653690268.shtml)
+- 2026-06-29 11:21 - [刚刚，全线大涨！日本，突然动手了！](https://github.com/lisacumin64-arch)

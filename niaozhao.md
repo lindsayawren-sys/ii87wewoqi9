@@ -1,55 +1,58 @@
-# 华泰人寿拟增资9.7亿元
+# 内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-5月14日金融一线消息，华泰人寿公告，5月13日，华泰人寿召开2025年度股东会，审议通过了《华泰人寿关于2026年增加注册资本金的议案》。根据该议案，华泰人寿拟于2026年增加注册资本金，本次共发行新股9.7亿股，共募集资本9.7亿元。本次新股发行后，注册资本金为52.825亿元。 华泰人寿表示，本次增资拟采用定向增发股份的形式，全部由股东华泰保险集团股份有限公司定向增发。如
+专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。 内布拉斯加大学经济学助理教授Jane Liu针对AI应用，分享了自己的观点，她引用格雷格的表述并补充道：“今天格雷格说，盖可保险公司用了很多AI，AI取代了一些重复类的劳动，但最后做决策的时候，还是交给人类去把关，而且这些战略性的决
 
 ## 正文
 
-5月14日金融一线消息，华泰人寿公告，5月13日，华泰人寿召开2025年度股东会，审议通过了《华泰人寿关于2026年增加注册资本金的议案》。
+专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。
 
-根据该议案，华泰人寿拟于2026年增加注册资本金，本次共发行新股9.7亿股，共募集资本9.7亿元。
+内布拉斯加大学经济学助理教授Jane Liu针对AI应用，分享了自己的观点，她引用格雷格的表述并补充道：“今天格雷格说，盖可保险公司用了很多AI，AI取代了一些重复类的劳动，但最后做决策的时候，还是交给人类去把关，而且这些战略性的决策是AI不能取代的。
 
-本次新股发行后，注册资本金为52.825亿元。
+我非常赞同这一点，企业对AI的应用要有一定的目的性，不能跟风，而是用AI做一些逻辑分析、数据分析，这样可以大大加速传统数据分析和逻辑判断的过程，给人类提供更多的数据和知识。
 
-华泰人寿表示，本次增资拟采用定向增发股份的形式，全部由股东华泰保险集团股份有限公司定向增发。
+” 在经济环境方面，Jane Liu结合自身宏观经济研究经验，分析了美国不同区域受经济周期的影响差异：“当经济下行风险增大时，美国东西海岸受到的影响其实更大，而美国中部，比如内布拉斯加州，受美国整个经济周期的影响非常小。
 
-如果增资获批，华泰保险集团股份有限公司持股比例达到83.45243%。
+内布拉斯加州是农业大州，农产品是必需品，不管经济上行还是下行，人们都需要农产品，所以它受经济周期的影响不像东西海岸那么大。
 
-责任编辑：李琳琳
+”新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+
+责任编辑：李思阳
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:36 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:42 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:19 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:21 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:33 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:22 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:24 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:34 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:38 - [哈尔滨“全城追菠萝蜜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:48 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:26 - [台湾宜兰县海域发生6.1级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:24 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:34 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:24 - [广交会观察：全球采购商寻“鲜”中国美食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:35 - [新加坡外国存款创历史新高 避险需求激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:18 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:32 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:47 - [科技与艺术深度融合 重庆上演互动烟花戏剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:25 - [华安基金苏圻涵|洞见全球视野：透视跨境投资地图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:37 - [Check Point一季度利润超预期，但营收指引不及预期拖累股价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:38 - [广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:44 - [2026年“国际中文日”文艺巡演活动在北爱尔兰举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:41 - [马斯克法庭交锋OpenAI，称奥特曼“不诚实”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:41 - [德国经济一季度环比增长0.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [某高校学生被辅导员等人扭送至公安](https://www.share.kurohicncr.top/Article/details/289581811.shtml)
-- 2026-06-29 11:48 - [欧洲热死人不是开玩笑](http://www.share.kurohicncr.top/Article/details/0184904.shtml)
-- 2026-06-29 11:36 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/690798901.shtml)
-- 2026-06-29 11:22 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/13410783.shtml)
-- 2026-06-29 11:19 - [韩国主教练连夜下课](https://www.blog.kurohicncr.top/Article/details/86361858123.shtml)
-- 2026-06-29 11:45 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/72582469364.shtml)
-- 2026-06-29 11:41 - [恋与深空女玩家不该被冒犯](https://www.blog.kurohicncr.top/Article/details/62264.shtml)
-- 2026-06-29 11:47 - [委内瑞拉地震死亡人数升至1450人](http://www.blog.kurohicncr.top/Article/details/7609591.shtml)
-- 2026-06-29 11:37 - [双高胎](http://www.share.minike.top/Article/details/143505222019.shtml)
-- 2026-06-29 11:31 - [赵今麦客串电影版开端](http://www.share.kurohicncr.top/Article/details/63009.shtml)
-- 2026-06-29 11:23 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.kurohicncr.top/Article/details/41465.shtml)
-- 2026-06-29 11:29 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.kurohicncr.top/Article/details/100486822.shtml)
-- 2026-06-29 11:33 - [浦玮：阿根廷所在半区对手实力偏弱](https://www.blog.kurohicncr.top/Article/details/54155.shtml)
-- 2026-06-29 11:42 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.share.minike.top/Article/details/261105085.shtml)
-- 2026-06-29 11:32 - [美国230斤男孩在家中去世父母被捕](https://www.share.minike.top/Article/details/994897.shtml)
+- 2026-06-29 11:33 - [一觉醒来，美国对欧洲下狠手了](http://www.blog.minike.top/Article/details/962393.shtml)
+- 2026-06-29 11:23 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](http://www.share.minike.top/Article/details/46522.shtml)
+- 2026-06-29 11:20 - [学习新语｜幸福属于劳动者](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [刚刚，全线大涨！日本，突然动手了！](http://www.share.kurohicncr.top/Article/details/6618746.shtml)
+- 2026-06-29 11:23 - [“五一”假期，中国游中国购的引力“藏不住了”](http://www.blog.kurohicncr.top/Article/details/04808.shtml)
+- 2026-06-29 11:22 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](http://www.share.kurohicncr.top/Article/details/942377711354.shtml)
+- 2026-06-29 11:42 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](http://www.share.minike.top/Article/details/622449.shtml)
+- 2026-06-29 11:19 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](http://www.share.kurohicncr.top/Article/details/9036310.shtml)
+- 2026-06-29 11:33 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](http://www.blog.kurohicncr.top/Article/details/67440614.shtml)
+- 2026-06-29 11:23 - [印尼Mako天然气项目稳步推进，预计2027年投产](http://www.share.kurohicncr.top/Article/details/381829052511.shtml)
+- 2026-06-29 11:22 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [以更大力度更实举措加强基础研究](http://www.blog.kurohicncr.top/Article/details/85800054317.shtml)
+- 2026-06-29 11:45 - [日元保卫战或一触即发 日本财相警告“时机临近”](http://www.share.minike.top/Article/details/282338298.shtml)
+- 2026-06-29 11:29 - [埃克森CEO对委内瑞拉态度转变 此前曾批评该国“不可投资”](http://www.blog.kurohicncr.top/Article/details/27702.shtml)
+- 2026-06-29 11:19 - [民警一声“快来帮忙”，整座桥上的人都来了！](http://www.blog.minike.top/Article/details/127082474109.shtml)

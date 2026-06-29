@@ -1,61 +1,61 @@
-# （乡村行·看振兴）从“生态伤疤”到“文旅地标”的一片海
+# 巴菲特：如今民众投机赌博情绪，史上前所未有
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网鄂尔多斯5月15日电 题：从“生态伤疤”到“文旅地标”的一片海 中新网记者 李爱平 醇香的咖啡、地道的蒙餐，各类风味小吃、文创产品一应俱全；环湖步道上，游人漫步赏景，惬意“逛吃”，一派浓郁烟火气。 站在红海子湿地公园，看着眼前热闹的场景，乔栋感慨万千。他没想到，昔日这片几近干枯的湿地，如今被民众称作“内蒙古的小三亚”，每日游人如织。 红海子湿地公园(简称红海子)位于内蒙古
+专题：巴菲特2026年股东大会重磅来袭 2026 年 5 月 2 日，内布拉斯加州奥马哈，伯克希尔・哈撒韦年度股东大会期间，沃伦・巴菲特接受 CNBC 记者贝基・奎克专访。 午休访谈环节中，巴菲特将当下市场比作附带赌场的教堂，把传统价值投资热潮，与当下市场热衷短期期权交易、预测市场热度飙升的风气做了鲜明区分。 他表示：“人们可以在教堂和赌场之间来回切换。可以说，坚守价值投资‘教
 
 ## 正文
 
-中新网鄂尔多斯5月15日电 题：从“生态伤疤”到“文旅地标”的一片海 中新网记者 李爱平 醇香的咖啡、地道的蒙餐，各类风味小吃、文创产品一应俱全；环湖步道上，游人漫步赏景，惬意“逛吃”，一派浓郁烟火气。
+专题：巴菲特2026年股东大会重磅来袭 2026 年 5 月 2 日，内布拉斯加州奥马哈，伯克希尔・哈撒韦年度股东大会期间，沃伦・巴菲特接受 CNBC 记者贝基・奎克专访。
 
-站在红海子湿地公园，看着眼前热闹的场景，乔栋感慨万千。
+午休访谈环节中，巴菲特将当下市场比作附带赌场的教堂，把传统价值投资热潮，与当下市场热衷短期期权交易、预测市场热度飙升的风气做了鲜明区分。
 
-他没想到，昔日这片几近干枯的湿地，如今被民众称作“内蒙古的小三亚”，每日游人如织。
+他表示：“人们可以在教堂和赌场之间来回切换。
 
-红海子湿地公园(简称红海子)位于内蒙古自治区鄂尔多斯市伊金霍洛旗阿勒腾席热镇境内，作为由东、西两湖构成的重要城市水体，其水体经乌兰木伦河、窟野河最终汇入黄河，是鄂尔多斯中心城区生态水系的关键枢纽和黄河流域生态保护的重要节点。
+可以说，坚守价值投资‘教堂’的人仍多于投身投机‘赌场’的人，但这座赌场如今已变得极具诱惑力。
 
-土生土长的本地人乔栋，见证了红海子的生态蝶变轨迹。
+买卖单日期权，既不算投资，也算不上普通投机，这纯粹就是赌博。
 
-“早年红海子水域萎缩、鸟类绝迹，很多人并不看好这片水域的发展前景。
+” 巴菲特直言，当下市场的赌博投机风气已达到顶峰。
 
-”乔栋告诉记者，为扭转生态颓势，当地启动疏干水循环利用和再生水补给工程，对这片区域实施系统性生态修复。
+“人们的投机赌徒心态，从来没有像现在这么浓烈过。
 
-伊金霍洛旗政府数据显示，经过十余年持续治理，红海子总水域面积达9.73平方公里，成为鄂尔多斯城市核心区的“城中湖”，也是生态环保型城市综合公园。
+” 巴菲特还点评了近期一起案件：一名美军士兵涉嫌利用委内瑞拉军事行动相关机密信息，在预测市场获利 40 万美元。
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:20 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:28 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:31 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:24 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:28 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:30 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:19 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:36 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:23 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:43 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:21 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:24 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:37 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:40 - [花样游泳世界杯侧记：长安浪花起 出水亦芙蓉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:33 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:19 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:47 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:37 - [“五一”假期首日：民众游杭州西湖享江南时光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:41 - [美国威胁制裁向伊朗缴通行费的航运企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:45 - [中国铁路迎来“五一”假期运输客流最高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:45 - [致敬劳动者｜每一方寸，因你而闪光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:46 - [远东国际观察：日本国会参议院通过2026财年预算案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:35 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:31 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:32 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:44 - [福州地铁客流连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:39 - [埃及侨商：持续推动“零关税”红利转化为务实合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:25 - [“05后”持有人猛增10倍，年轻人涌向AI基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [下飞机后，我做了个很蠢的决定......](https://www.blog.kurohicncr.top/Article/details/205391.shtml)
-- 2026-06-29 11:22 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/81028.shtml)
-- 2026-06-29 11:33 - [毕业寄几百斤快递回家女生发声](http://www.blog.kurohicncr.top/Article/details/39792243.shtml)
-- 2026-06-29 11:44 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/83895.shtml)
-- 2026-06-29 11:21 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.minike.top/Article/details/964979606608.shtml)
-- 2026-06-29 11:33 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/3712707905.shtml)
-- 2026-06-29 11:41 - [岭南电影为何迎来“南方热”](https://www.blog.minike.top/Article/details/8977690.shtml)
-- 2026-06-29 11:46 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/79874.shtml)
-- 2026-06-29 11:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/765886103138.shtml)
-- 2026-06-29 11:44 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.minike.top/Article/details/865893966.shtml)
-- 2026-06-29 11:22 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://www.blog.kurohicncr.top/Article/details/021625.shtml)
-- 2026-06-29 11:25 - [曾挑衅中国的立陶宛“生变”了](https://www.share.minike.top/Article/details/275395.shtml)
-- 2026-06-29 11:31 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/61789998822.shtml)
-- 2026-06-29 11:22 - [张一山说杨紫早该拿奖了](http://www.blog.minike.top/Article/details/317055284.shtml)
-- 2026-06-29 11:47 - [直击宜宾地震：监控剧烈摇晃](http://www.share.kurohicncr.top/Article/details/80794996.shtml)
+- 2026-06-29 11:23 - [贵州台江：万人盛装游演欢度“姊妹节”](http://www.share.kurohicncr.top/Article/details/5509234070.shtml)
+- 2026-06-29 11:18 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](http://www.blog.kurohicncr.top/Article/details/737992242321.shtml)
+- 2026-06-29 11:47 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](http://www.share.kurohicncr.top/Article/details/1666873276.shtml)
+- 2026-06-29 11:35 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](http://www.share.minike.top/Article/details/61818521615.shtml)
+- 2026-06-29 11:44 - [王毅同美国国务卿鲁比奥通电话](http://www.share.kurohicncr.top/Article/details/066663906173.shtml)
+- 2026-06-29 11:43 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](http://www.blog.kurohicncr.top/Article/details/1971476476.shtml)
+- 2026-06-29 11:18 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](http://www.blog.minike.top/Article/details/71939603.shtml)
+- 2026-06-29 11:28 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](http://www.blog.kurohicncr.top/Article/details/523591339.shtml)
+- 2026-06-29 11:38 - [海南商业航天重点项目加速建设](http://www.blog.minike.top/Article/details/7930420280.shtml)
+- 2026-06-29 11:28 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [美官员：美军“福特”号航母已离开中东](http://www.blog.minike.top/Article/details/4928908264.shtml)
+- 2026-06-29 11:19 - [水利部滚动会商部署“五一”假期期间防汛工作](http://www.share.minike.top/Article/details/1328058243.shtml)
+- 2026-06-29 11:20 - [孟加拉国外交部长卡利勒将访华](http://www.share.kurohicncr.top/Article/details/77753941.shtml)
+- 2026-06-29 11:21 - [巴菲特深度伪造视频，带来一场出人意料的AI风险警示](http://www.blog.minike.top/Article/details/549707.shtml)

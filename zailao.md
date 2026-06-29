@@ -1,58 +1,44 @@
-# 中华人民共和国南宁海关2026年5月至12月政府采购意向-南宁海关2026年海关缉私实验室设备更新项目（电子）
+# 国羽3:0胜日本队挺进尤伯杯决赛
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-全网爆火《ENEMY》如何拍出？成本超百万 将有中长剧版多地网约车司机违规考核落地 绕道等列入“黑榜”行为烧烤摊主停业捐髓救助患者 带动多人加入中华骨髓库排队时间长、回复不及时……互联网医院“堵”在哪？年轻人的第一台“新家电”，为什么是3D打印机？人这一辈子，一定要去一趟眉山！王帆：中美合作共赢具有可持续性且有利于双方美国总统特朗普访华，为何逛北京的这座公园？鸟归巢，人归乡：归
+新华社丹麦霍森斯5月2日电(记者张玉亮、周欣)在2日进行的2026年尤伯杯(世界女子羽毛球团体锦标赛)半决赛中，卫冕冠军中国队以3:0完胜日本队，挺进决赛。中国队出场队员为王祉怡、刘圣书/谭宁、陈雨菲。
 
 ## 正文
 
-全网爆火《ENEMY》如何拍出？
+新华社丹麦霍森斯5月2日电(记者张玉亮、周欣)在2日进行的2026年尤伯杯(世界女子羽毛球团体锦标赛)半决赛中，卫冕冠军中国队以3:0完胜日本队，挺进决赛。
 
-成本超百万 将有中长剧版多地网约车司机违规考核落地 绕道等列入“黑榜”行为烧烤摊主停业捐髓救助患者 带动多人加入中华骨髓库排队时间长、回复不及时……互联网医院“堵”在哪？
-
-年轻人的第一台“新家电”，为什么是3D打印机？
-
-人这一辈子，一定要去一趟眉山！
-
-王帆：中美合作共赢具有可持续性且有利于双方美国总统特朗普访华，为何逛北京的这座公园？
-
-鸟归巢，人归乡：归国藏胞从“寻根”到“扎根”中美元首共同参观祈年殿！
-
-告诉你一个你所不知道的天坛天热了车里别放这些东西！
-
-已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？
+中国队出场队员为王祉怡、刘圣书/谭宁、陈雨菲。
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:36 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:44 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:30 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:31 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:45 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:48 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:39 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:41 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:25 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:34 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:42 - [摩根士丹利看好Chef‘s Warehouse，称中东担忧“过度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:22 - [劳动者宋春胜：千家万户的“安全阀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:41 - [成都宽窄巷子景区游人如织](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:37 - [美国对5家中企实施涉伊朗石油制裁措施 中方发布阻断禁令](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:24 - [巴西国家石油公司投资8.7亿雷亚尔重启巴拉那州尿素生产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:31 - [巴菲特：如今民众投机赌博情绪，史上前所未有](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:31 - [“五一”假期 各地特色文旅活动精彩纷呈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:35 - [中国首部政务服务领域区域协同立法施行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:39 - [谷歌云增速超越微软、亚马逊，三大云厂商均受益AI需求业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:37 - [福建舰两年8次海试 中国航母技术实现历史性跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/82675602261.shtml)
-- 2026-06-29 11:21 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/2101277.shtml)
-- 2026-06-29 11:44 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/13697.shtml)
-- 2026-06-29 11:23 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/29833037370.shtml)
-- 2026-06-29 11:29 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/32132486232.shtml)
-- 2026-06-29 11:18 - [埃博拉为何再次袭击非洲](https://www.blog.minike.top/Article/details/682260351.shtml)
-- 2026-06-29 11:40 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/94559471584.shtml)
-- 2026-06-29 11:43 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/3967342040.shtml)
-- 2026-06-29 11:26 - [加拿大绝杀南非晋级](http://www.share.minike.top/Article/details/766399328.shtml)
-- 2026-06-29 11:36 - [克洛普：加拿大主帅还能继续创造历史](http://www.blog.kurohicncr.top/Article/details/203802.shtml)
-- 2026-06-29 11:43 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/514002797742.shtml)
-- 2026-06-29 11:44 - [英国高温已致多人死亡](http://www.blog.minike.top/Article/details/3665981.shtml)
-- 2026-06-29 11:42 - [韩国队启程回国众将回避镜头](http://www.blog.kurohicncr.top/Article/details/62981121.shtml)
-- 2026-06-29 11:46 - [2岁幼童高铁突发惊厥呼吸骤停](https://www.blog.kurohicncr.top/Article/details/20784.shtml)
-- 2026-06-29 11:29 - [中国避暑神器在欧洲卖爆了](https://www.blog.minike.top/Article/details/948980360803.shtml)
+- 2026-06-29 11:36 - [这群年轻人用AI“吵了一架” ，最后成了朋友](http://www.share.minike.top/Article/details/526223.shtml)
+- 2026-06-29 11:43 - [特朗普抨击国会限制其战争权力的举动](http://www.blog.kurohicncr.top/Article/details/029308.shtml)
+- 2026-06-29 11:22 - [浙江杭州：民众走“运”度假期](http://www.blog.kurohicncr.top/Article/details/980821450.shtml)
+- 2026-06-29 11:33 - [天津国际邮轮母港单日出入境旅客创年内新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](http://www.blog.minike.top/Article/details/79286805895.shtml)
+- 2026-06-29 11:21 - [每天走路够这个量 或能延寿11年！健步走行动清单快掌握→](http://www.blog.kurohicncr.top/Article/details/722199933766.shtml)
+- 2026-06-29 11:35 - [中国生物医学新技术“基本法”实施 院企专家盼规范促产业发展](http://www.blog.minike.top/Article/details/40448.shtml)
+- 2026-06-29 11:43 - [特朗普：美国开启霍尔木兹海峡船只通行自由行动将于中东时间周一上午启动](http://www.blog.minike.top/Article/details/95656130251.shtml)
+- 2026-06-29 11:24 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](http://www.share.minike.top/Article/details/2048841345.shtml)
+- 2026-06-29 11:28 - [宁夏银川：水上运动成民众假期户外社交“新宠”](http://www.share.kurohicncr.top/Article/details/6904886913.shtml)
+- 2026-06-29 11:38 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](http://www.share.kurohicncr.top/Article/details/134380296876.shtml)
+- 2026-06-29 11:18 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](http://www.share.minike.top/Article/details/4751812.shtml)
+- 2026-06-29 11:46 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](http://www.blog.kurohicncr.top/Article/details/13722352799.shtml)
+- 2026-06-29 11:39 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](http://www.share.minike.top/Article/details/95891053494.shtml)

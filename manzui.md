@@ -1,59 +1,61 @@
-# 长江有色：美国4月PPI飙升推涨美指多头集中获利了结 14日锡价或涨跌不大
+# “05后”持有人猛增10倍，年轻人涌向AI基金
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-期货市场：宏观与产业共振新兴产业需求爆发，隔夜伦锡收涨2.89%；最新收盘报56150美元/吨，上涨1575美元，涨幅为2.89%，成交量为636手，持仓量22403万手；国内市场，夜盘沪锡最新收报438920元/吨，上涨9100元，涨幅为2.12%。 伦敦金属交易所（LME）5月13日伦锡库存量8200吨，较前一交易日库存量减少115吨。 长江锡业网讯：今日沪锡期货全线高开为
+“以前总觉得投资要研究K线、读财报，现在发现买ETF就行了。”工作三年的李阳（化名）向记者感慨道。ETF正成为年轻人开启投资之门的“钥匙”。天弘基金最新内部数据显示，截至2025年末，其权益ETF（含联接基金）持有人中，35岁以下群体占比已从2024年底的43.6%提升至48.2%。其中，“00后”持有人数量同比增长97.3%，“05后”更是同比增长227.8%。此外，AI产业
 
 ## 正文
 
-期货市场：宏观与产业共振新兴产业需求爆发，隔夜伦锡收涨2.89%；最新收盘报56150美元/吨，上涨1575美元，涨幅为2.89%，成交量为636手，持仓量22403万手；国内市场，夜盘沪锡最新收报438920元/吨，上涨9100元，涨幅为2.12%。
+“以前总觉得投资要研究K线、读财报，现在发现买ETF就行了。
 
-伦敦金属交易所（LME）5月13日伦锡库存量8200吨，较前一交易日库存量减少115吨。
+”工作三年的李阳（化名）向记者感慨道。
 
-长江锡业网讯：今日沪锡期货全线高开为主，主力月2606合约开盘报424000元/吨较前一日收盘涨4180元/吨，9：15分沪锡主力2606合约报431660元/吨，上涨1840元，涨幅为0.43%，沪期锡高开后窄幅震荡，尾盘小幅收涨；宏观面，本轮上涨核心受多重宏观利好驱动：IEA 发布重磅报告预警全球油市严重短缺将持续至四季度，直接推高金属开采冶炼成本；美股科技股强势反弹，纳斯达克大涨 1.20%，带动 AI 与新能源产业链相关金属需求预期升温；美元指数仅微涨 0.19%，对以美元计价的金属压制有限。
+ETF正成为年轻人开启投资之门的“钥匙”。
 
-但今日早盘沪锡开盘后窄幅震荡欲跌，核心原因在于美国 4 月 PPI 同比飙升创 2022 年以来最大增幅，叠加沃什正式获参议院批准成为下一任美联储主席，市场对 6 月降息的预期一夜骤降，美元指数短线走强，同时前期多头集中获利了结，多空博弈骤然加剧。
+天弘基金最新内部数据显示，截至2025年末，其权益ETF（含联接基金）持有人中，35岁以下群体占比已从2024年底的43.6%提升至48.2%。
 
-当前全球锡精矿供应维持紧平衡格局，印尼作为全球最大精炼锡出口国，2026 年开采配额大幅下调且酝酿征收 10%-20% 出口暴利税，4 月出口量较正常水平腰斩；缅甸佤邦地区受地震后复产缓慢、炸药厂爆炸整顿及传统雨季影响，8 月前基本无大规模增量可能。
+其中，“00后”持有人数量同比增长97.3%，“05后”更是同比增长227.8%。
 
-再生锡方面，全球废锡回收体系不完善，原料供应持续短缺，难以弥补原生锡供应缺口。
+此外，AI产业链相关产品正吸引年轻投资者进入。
 
-5 月 14 日锡价走势预测 预计今日锡价将维持宽幅震荡走势，国内锡价运行区间 143000-144000 元 / 吨，伦锡运行区间 18800-19500 美元 / 吨。
+到2025年末，天弘基金旗下AI产业链指数产品中，“05后”持有人户数较2024年末猛增10倍，“00后”持有人户数同比增长超2倍，“95后”持有人户数同比增长超92%。
 
-操作上建议投资者保持谨慎，关注晚间美国零售销售及初请失业金数据，以及 LME 库存变化情况。
+从“选股焦虑”到“赛道思维”“个股踩雷、追热点屡屡踏空”，李阳这样总结自己去年的投资经历。
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:44 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:40 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:38 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:41 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:44 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:37 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:44 - [换个角度打开世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:25 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:19 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:34 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:33 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:47 - [前瞻｜巴菲特谢幕，阿贝尔登场：2026伯克希尔股东大会有何看点？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:19 - [墨西哥总统预计Pemex与巴西国家石油公司将达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:43 - [新发现东京审判“萨顿档案”揭露侵华日军四方面暴行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:36 - [花旗：维持香港楼价看涨8%预期 看好三大地产股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:45 - [中国驻英大使郑泽光：香港发展拥有四大优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:44 - [这群年轻人用AI“吵了一架” ，最后成了朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:41 - [特朗普抨击国会限制其战争权力的举动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:21 - [浙江杭州：民众走“运”度假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:28 - [天津国际邮轮母港单日出入境旅客创年内新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:41 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:37 - [每天走路够这个量 或能延寿11年！健步走行动清单快掌握→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:23 - [中国生物医学新技术“基本法”实施 院企专家盼规范促产业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:24 - [特朗普：美国开启霍尔木兹海峡船只通行自由行动将于中东时间周一上午启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:31 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [温州学子高考数学满分 分享学习经验](http://www.blog.minike.top/Article/details/061364124357.shtml)
-- 2026-06-29 11:45 - [毕业寄几百斤快递回家女生发声](https://www.blog.minike.top/Article/details/796676.shtml)
-- 2026-06-29 11:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/29016846.shtml)
-- 2026-06-29 11:32 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/57025.shtml)
-- 2026-06-29 11:28 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.minike.top/Article/details/45919214562.shtml)
-- 2026-06-29 11:29 - [宜宾地震监控画面](https://www.share.kurohicncr.top/Article/details/78380.shtml)
-- 2026-06-29 11:46 - [谢霆锋演唱会变大型呲水现场](https://www.share.kurohicncr.top/Article/details/6123046372.shtml)
-- 2026-06-29 11:40 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/209602640.shtml)
-- 2026-06-29 11:23 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/99770918231.shtml)
-- 2026-06-29 11:30 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/64131.shtml)
-- 2026-06-29 11:31 - [热穹顶来了](https://www.share.kurohicncr.top/Article/details/99382.shtml)
-- 2026-06-29 11:22 - [美人鱼](http://www.blog.minike.top/Article/details/080007382.shtml)
-- 2026-06-29 11:26 - [2岁幼童高铁突发惊厥呼吸骤停](http://www.blog.minike.top/Article/details/91331736.shtml)
-- 2026-06-29 11:20 - [谢霆锋演唱会变大型呲水现场](http://www.share.kurohicncr.top/Article/details/27698051.shtml)
-- 2026-06-29 11:19 - [迈巴赫提车第二天发现大灯起雾](https://www.share.kurohicncr.top/Article/details/27998918.shtml)
+- 2026-06-29 11:36 - [河南洛阳：户外露营成“五一”假期新选择](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](http://www.blog.minike.top/Article/details/138890.shtml)
+- 2026-06-29 11:19 - [中国医生完成尼日尔首例鼓室成形术](http://www.blog.kurohicncr.top/Article/details/678643.shtml)
+- 2026-06-29 11:40 - [华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”](http://www.blog.kurohicncr.top/Article/details/17664.shtml)
+- 2026-06-29 11:22 - [文旅观察：浙江乡村“土味”玩法引领消费新潮流](http://www.share.kurohicncr.top/Article/details/49636488.shtml)
+- 2026-06-29 11:29 - [浙江宁波机场口岸迎来出入境客流“双向热潮”](http://www.share.minike.top/Article/details/43895.shtml)
+- 2026-06-29 11:33 - [吉尔登服饰营收攀升](http://www.share.minike.top/Article/details/850296665341.shtml)
+- 2026-06-29 11:19 - [原油：布伦特油价自四年高点回落 战争担忧抑制市场流动性](http://www.share.minike.top/Article/details/73463.shtml)
+- 2026-06-29 11:19 - [阿贝尔重申伯克希尔核心原则](http://www.share.minike.top/Article/details/21453.shtml)
+- 2026-06-29 11:21 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](http://www.share.minike.top/Article/details/79752722.shtml)
+- 2026-06-29 11:32 - [云南边境的目瑙纵歌，何以火爆全网？](http://www.share.kurohicncr.top/Article/details/466359860.shtml)
+- 2026-06-29 11:26 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](http://www.share.minike.top/Article/details/107425688851.shtml)
+- 2026-06-29 11:26 - [重庆新开往返菲律宾马尼拉客运航线](http://www.blog.minike.top/Article/details/86780451.shtml)
+- 2026-06-29 11:28 - [新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](https://github.com/lisacumin64-arch)

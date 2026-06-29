@@ -1,56 +1,58 @@
-# 内蒙古启动2026年“北疆银龄”助力乡村振兴行志愿援助服务活动
+# 东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网锡林郭勒5月13日电 (奥蓝 乌依罕)13日，内蒙古自治区2026年“北疆银龄”助力乡村振兴行志愿援助服务活动(以下简称“北疆银龄”)在锡林郭勒盟西乌珠穆沁旗正式启动。活动汇聚内蒙古银龄专家人才，下沉草原牧区精准送服务、用心解民忧，以银发力量赋能乡村振兴。 “北疆银龄”由内蒙古自治区民政厅、内蒙古老龄工作委员会办公室联合组织实施。2025年，50余名银龄专家奔赴5个乡村振
+中新社南昌5月3日电 (记者 李韵涵)今年是东京审判开庭80周年，位于江西南昌的梅汝璈故居“五一”假期迎来参观热潮，不少团体与个人专程前来缅怀这位代表中国参与东京审判的法官。 1946年5月3日，远东国际军事法庭在日本东京开庭，梅汝璈作为中国法官出庭。这场历时两年半的审判共开庭818次，最终对东条英机等7名日本甲级战犯判处死刑。 梅汝璈故居位于南昌青云谱区朱姑桥梅村，建于晚清年
 
 ## 正文
 
-中新网锡林郭勒5月13日电 (奥蓝 乌依罕)13日，内蒙古自治区2026年“北疆银龄”助力乡村振兴行志愿援助服务活动(以下简称“北疆银龄”)在锡林郭勒盟西乌珠穆沁旗正式启动。
+中新社南昌5月3日电 (记者 李韵涵)今年是东京审判开庭80周年，位于江西南昌的梅汝璈故居“五一”假期迎来参观热潮，不少团体与个人专程前来缅怀这位代表中国参与东京审判的法官。
 
-活动汇聚内蒙古银龄专家人才，下沉草原牧区精准送服务、用心解民忧，以银发力量赋能乡村振兴。
+1946年5月3日，远东国际军事法庭在日本东京开庭，梅汝璈作为中国法官出庭。
 
-“北疆银龄”由内蒙古自治区民政厅、内蒙古老龄工作委员会办公室联合组织实施。
+这场历时两年半的审判共开庭818次，最终对东条英机等7名日本甲级战犯判处死刑。
 
-2025年，50余名银龄专家奔赴5个乡村振兴重点帮扶旗县开展志愿援助，直接服务群众4600余人次，提供“一对一”咨询服务800余人次，举办健康、法治等讲座37场，向17家企业和合作社提供了产业帮扶服务。
+梅汝璈故居位于南昌青云谱区朱姑桥梅村，建于晚清年间，如今已免费对外开放。
 
-2026年，“北疆银龄”计划在6个旗县，以“集中活动+常态化服务”的方式，持续提供服务。
+“今年是东京审判开庭80周年，年刚过完就来了很多团队参观预约讲解，有时一天要接待好几批。
 
-首站活动地设在西乌珠穆沁旗，为期3天，将开展义诊、健康科普、应急避险宣讲、心理健康咨询、农牧业技术实操教学、智慧助老、养老护理员技能培训等一系列惠民服务。
+今年以来，梅汝璈故居已接待游客超4000人次。
 
-13日，参加巡诊义诊、多学科联合会诊的银龄专家，重点针对牧区高发的心脑血管、呼吸道、骨关节等慢性病开展诊疗服务，拥有50余年医疗从业经验的银龄志愿者任育麟便是其中一员。
+”梅汝璈第四代后人、故居讲解员梅庭军告诉记者，截至3日，“五一”假期预约参观人次比去年同期多约30%。
 
-“多年义务送医下乡，为农牧民提供健康服务，让我实现了人生价值。
+“在开庭预演时，庭长曾将中国法官的座次排在英国之后，梅汝璈愤然脱下法袍以示抗议，据理力争。
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:23 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:44 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:19 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:19 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:30 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:46 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:46 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:22 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:21 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:26 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:25 - [台湾宜兰县海域发生6.1级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:34 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:40 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:35 - [广交会观察：全球采购商寻“鲜”中国美食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:41 - [新加坡外国存款创历史新高 避险需求激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:27 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:22 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:29 - [科技与艺术深度融合 重庆上演互动烟花戏剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:23 - [华安基金苏圻涵|洞见全球视野：透视跨境投资地图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:32 - [Check Point一季度利润超预期，但营收指引不及预期拖累股价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:43 - [广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:45 - [中气爱：吐鲁番快50度了](https://www.blog.kurohicncr.top/Article/details/6214940.shtml)
-- 2026-06-29 11:43 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.minike.top/Article/details/8511173.shtml)
-- 2026-06-29 11:18 - [沙丘](https://www.share.minike.top/Article/details/2056950113.shtml)
-- 2026-06-29 11:40 - [赵今麦客串电影版开端](https://www.share.kurohicncr.top/Article/details/2432628180.shtml)
-- 2026-06-29 11:28 - [斛珠夫人](http://www.blog.minike.top/Article/details/29607602870.shtml)
-- 2026-06-29 11:31 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/100999.shtml)
-- 2026-06-29 11:20 - [刘雨昕misslady好像群像热血番](http://www.blog.kurohicncr.top/Article/details/726282.shtml)
-- 2026-06-29 11:44 - [委内瑞拉强震致中国公民8遇难1失联](https://www.share.minike.top/Article/details/53319955251.shtml)
-- 2026-06-29 11:38 - [一生一世](http://www.blog.minike.top/Article/details/6599457.shtml)
-- 2026-06-29 11:44 - [恋与深空需直面玩家6大疑问](https://www.blog.kurohicncr.top/Article/details/398891122.shtml)
-- 2026-06-29 11:41 - [晋城暴雨车辆被淹冰箱在水中漂](http://www.blog.kurohicncr.top/Article/details/67614269.shtml)
-- 2026-06-29 11:19 - [韩红现身呼和浩特助力百人援蒙](https://www.blog.kurohicncr.top/Article/details/92860201.shtml)
-- 2026-06-29 11:43 - [A股限售股解禁一览](http://www.share.minike.top/Article/details/09239056.shtml)
-- 2026-06-29 11:47 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/883756.shtml)
-- 2026-06-29 11:31 - [韩国主帅辞职报告5分钟 双手插兜离场](https://www.share.kurohicncr.top/Article/details/573367475.shtml)
+- 2026-06-29 11:40 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](http://www.share.kurohicncr.top/Article/details/41910.shtml)
+- 2026-06-29 11:20 - [一觉醒来，美国对欧洲下狠手了](http://www.blog.kurohicncr.top/Article/details/706920.shtml)
+- 2026-06-29 11:43 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [学习新语｜幸福属于劳动者](http://www.share.kurohicncr.top/Article/details/94819561934.shtml)
+- 2026-06-29 11:32 - [刚刚，全线大涨！日本，突然动手了！](http://www.share.minike.top/Article/details/12169629324.shtml)
+- 2026-06-29 11:38 - [“五一”假期，中国游中国购的引力“藏不住了”](http://www.share.minike.top/Article/details/600011615783.shtml)
+- 2026-06-29 11:32 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](http://www.share.minike.top/Article/details/46718559846.shtml)
+- 2026-06-29 11:29 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](http://www.share.minike.top/Article/details/1245233.shtml)
+- 2026-06-29 11:23 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [印尼Mako天然气项目稳步推进，预计2027年投产](http://www.blog.minike.top/Article/details/3589441475.shtml)
+- 2026-06-29 11:36 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](http://www.share.minike.top/Article/details/008628.shtml)
+- 2026-06-29 11:19 - [以更大力度更实举措加强基础研究](http://www.share.minike.top/Article/details/883516368.shtml)
+- 2026-06-29 11:35 - [日元保卫战或一触即发 日本财相警告“时机临近”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [埃克森CEO对委内瑞拉态度转变 此前曾批评该国“不可投资”](https://github.com/lisacumin64-arch)

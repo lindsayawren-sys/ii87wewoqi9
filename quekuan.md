@@ -1,57 +1,48 @@
-# 515投资者保护|永赢基金《小定投大乾坤》：用“数据图解+白话总结”，讲透定投这件事
+# 孟加拉国外交部长卡利勒将访华
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。永赢基金“《小定投大乾坤》系列定投专栏”参选“最佳投资者教育创新奖”类别。>>活动详情 基金定投常被称作“懒人理财神器”，但“什么时候开始投、每期投多少、亏损了要不要停、止盈点怎么设”——这些实操层面的问题，往往让普通投资者无从下手。 永赢基金推出的
+外交部发言人宣布： 应中共中央政治局委员、外交部长王毅邀请，孟加拉国外交部长卡利勒将于5月5日至7日访问中国。 (外交部网站)
 
 ## 正文
 
-专题：515投资者保护！
+外交部发言人宣布： 应中共中央政治局委员、外交部长王毅邀请，孟加拉国外交部长卡利勒将于5月5日至7日访问中国。
 
-新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
-
-永赢基金“《小定投大乾坤》系列定投专栏”参选“最佳投资者教育创新奖”类别。
-
->>活动详情 基金定投常被称作“懒人理财神器”，但“什么时候开始投、每期投多少、亏损了要不要停、止盈点怎么设”——这些实操层面的问题，往往让普通投资者无从下手。
-
-永赢基金推出的《小定投大乾坤》系列定投专栏，正是为了破解这一痛点。
-
-专栏紧扣大众理财需求，聚焦投资者定投方法缺失、易踩误区等核心问题，打造了一套专业易懂的系统化学习体系。
-
-专栏以基金定投知识科普为核心，通过阶梯式内容设计，由浅入深覆盖定投基础知识、实操方法、误区警示及高阶策略。
-
-从“什么是定投”到“如何制定定投计划”再到“定投止盈技巧”，逻辑清晰、层层递进，帮助投资者循序渐进地掌握定投这门技能，真正降低定投的认知门槛。
+(外交部网站)
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:30 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:47 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:29 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:28 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:42 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:20 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:32 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:32 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:35 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:21 - [Spirit Air股价暴跌逾70% 据报该航司准备停止运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:33 - [河南洛阳：户外露营成“五一”假期新选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:26 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:46 - [中国医生完成尼日尔首例鼓室成形术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:37 - [华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:35 - [文旅观察：浙江乡村“土味”玩法引领消费新潮流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:36 - [浙江宁波机场口岸迎来出入境客流“双向热潮”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:30 - [吉尔登服饰营收攀升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:43 - [原油：布伦特油价自四年高点回落 战争担忧抑制市场流动性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:22 - [阿贝尔重申伯克希尔核心原则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:31 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:21 - [云南边境的目瑙纵歌，何以火爆全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:37 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:45 - [重庆新开往返菲律宾马尼拉客运航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/183133447.shtml)
-- 2026-06-29 11:40 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.minike.top/Article/details/247859947122.shtml)
-- 2026-06-29 11:21 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/805337851.shtml)
-- 2026-06-29 11:39 - [浦玮：阿根廷所在半区对手实力偏弱](http://www.blog.kurohicncr.top/Article/details/50860.shtml)
-- 2026-06-29 11:26 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/7107357.shtml)
-- 2026-06-29 11:22 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/618681346340.shtml)
-- 2026-06-29 11:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/034883581027.shtml)
-- 2026-06-29 11:22 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/6291131.shtml)
-- 2026-06-29 11:47 - [欧洲极端高温东扩](https://www.share.kurohicncr.top/Article/details/693010.shtml)
-- 2026-06-29 11:45 - [黄灿灿恭喜自己拿到全季通告费](http://www.share.kurohicncr.top/Article/details/061608085.shtml)
-- 2026-06-29 11:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/3277786672.shtml)
-- 2026-06-29 11:41 - [F1奥地利正赛战报](https://www.share.minike.top/Article/details/9136087345.shtml)
-- 2026-06-29 11:21 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.blog.minike.top/Article/details/4375760.shtml)
-- 2026-06-29 11:35 - [欧洲极端高温东扩](http://www.share.minike.top/Article/details/18867329.shtml)
-- 2026-06-29 11:37 - [成都震感](http://www.share.kurohicncr.top/Article/details/992918649379.shtml)
+- 2026-06-29 11:28 - [新加坡外国存款创历史新高 避险需求激增](http://www.share.kurohicncr.top/Article/details/197093526.shtml)
+- 2026-06-29 11:21 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](http://www.share.minike.top/Article/details/8742251.shtml)
+- 2026-06-29 11:20 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](http://www.share.minike.top/Article/details/0122320.shtml)
+- 2026-06-29 11:28 - [科技与艺术深度融合 重庆上演互动烟花戏剧](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [华安基金苏圻涵|洞见全球视野：透视跨境投资地图](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [Check Point一季度利润超预期，但营收指引不及预期拖累股价](http://www.share.kurohicncr.top/Article/details/9227439283.shtml)
+- 2026-06-29 11:28 - [广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [2026年“国际中文日”文艺巡演活动在北爱尔兰举行](http://www.blog.minike.top/Article/details/2317933.shtml)
+- 2026-06-29 11:23 - [马斯克法庭交锋OpenAI，称奥特曼“不诚实”](http://www.blog.minike.top/Article/details/8835863.shtml)
+- 2026-06-29 11:45 - [德国经济一季度环比增长0.3%](http://www.share.kurohicncr.top/Article/details/32118920512.shtml)
+- 2026-06-29 11:23 - [摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺](http://www.share.minike.top/Article/details/7167617.shtml)
+- 2026-06-29 11:41 - [可孚医疗：发售价厘定为每股H股39.33港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [数万日本民众举行集会 呼吁守护和平宪法](http://www.blog.minike.top/Article/details/49996.shtml)
+- 2026-06-29 11:26 - [在香港沉浸式“邂逅”蒙娜丽莎](http://www.share.kurohicncr.top/Article/details/81491.shtml)
+- 2026-06-29 11:44 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](http://www.blog.kurohicncr.top/Article/details/52642048826.shtml)

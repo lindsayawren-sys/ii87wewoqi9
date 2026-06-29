@@ -1,59 +1,47 @@
-# Local Bounti一季度营收1330万美元，加州设施或提升20%产量
+# 港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-美国室内农业公司Local Bounti周三公布第一季度财报，营收同比增长15%至1330万美元，同时披露了在加州设施的产量提升计划。尽管营收低于市场预期，但亏损大幅收窄显示成本控制成效显著。 一季度业绩概览 财报显示，公司第一季度营收为1330万美元，同比增长15%，主要得益于佐治亚、得克萨斯和华盛顿三处设施的产量增加和销售增长。GAAP每股亏损为0.53美元，符合市场预期。
+5月4日消息，港股涨幅进一步扩大，恒生指数涨超2%，恒生科技指数涨超3%重回5000点。恒指成分股中，小米涨超6%，百度涨超5%，中芯国际、舜宇光学科技、美团、药明生物涨4%，快手、网易、阿里巴巴、理想汽车等涨超3%。 责任编辑：郝欣煜
 
 ## 正文
 
-美国室内农业公司Local Bounti周三公布第一季度财报，营收同比增长15%至1330万美元，同时披露了在加州设施的产量提升计划。
+5月4日消息，港股涨幅进一步扩大，恒生指数涨超2%，恒生科技指数涨超3%重回5000点。
 
-尽管营收低于市场预期，但亏损大幅收窄显示成本控制成效显著。
+恒指成分股中，小米涨超6%，百度涨超5%，中芯国际、舜宇光学科技、美团、药明生物涨4%，快手、网易、阿里巴巴、理想汽车等涨超3%。
 
-一季度业绩概览 财报显示，公司第一季度营收为1330万美元，同比增长15%，主要得益于佐治亚、得克萨斯和华盛顿三处设施的产量增加和销售增长。
-
-GAAP每股亏损为0.53美元，符合市场预期。
-
-净亏损从去年同期的3770万美元大幅收窄至1270万美元，主要受益于债务重组带来的利息支出减少。
-
-调整后EBITDA亏损改善35%至570万美元，调整后一般及行政费用下降30%至410万美元。
-
-公司表示，旗下三处设施均处于满产状态，全部产能已被客户预订。
-
-加州设施产量提升计划 公司正对加州设施进行针对性投资，以提升运营效率。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:29 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:45 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:33 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:26 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:32 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:24 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:20 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:24 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:41 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:38 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:21 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:23 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:46 - [海南商业航天重点项目加速建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:35 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:35 - [美官员：美军“福特”号航母已离开中东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:30 - [水利部滚动会商部署“五一”假期期间防汛工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:20 - [孟加拉国外交部长卡利勒将访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:47 - [巴菲特深度伪造视频，带来一场出人意料的AI风险警示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:20 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:21 - [网信部门严管“自媒体”未规范标注信息来源行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:44 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:45 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/29483798.shtml)
-- 2026-06-29 11:18 - [普京称考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/559584395104.shtml)
-- 2026-06-29 11:20 - [各路“神仙”扎堆洛阳乘地铁](https://www.share.kurohicncr.top/Article/details/4133395202.shtml)
-- 2026-06-29 11:47 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/88901.shtml)
-- 2026-06-29 11:44 - [宜宾5.5级地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/116583163.shtml)
-- 2026-06-29 11:27 - [伊朗球员道歉 说着说着哭了](https://www.share.kurohicncr.top/Article/details/6868282594.shtml)
-- 2026-06-29 11:37 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/14390261.shtml)
-- 2026-06-29 11:21 - [重生赛伊德04](https://www.blog.kurohicncr.top/Article/details/76072.shtml)
-- 2026-06-29 11:35 - [金刚川](https://www.share.minike.top/Article/details/04560462061.shtml)
-- 2026-06-29 11:30 - [C罗关心罗德里戈伤情](https://www.share.minike.top/Article/details/11074488.shtml)
-- 2026-06-29 11:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/226756.shtml)
-- 2026-06-29 11:37 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/36100907198.shtml)
-- 2026-06-29 11:39 - [户外吃烧烤多人头发变炸毛](http://www.share.kurohicncr.top/Article/details/375118014777.shtml)
-- 2026-06-29 11:46 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/86561531.shtml)
-- 2026-06-29 11:40 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/809859.shtml)
+- 2026-06-29 11:26 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](http://www.share.kurohicncr.top/Article/details/59002773120.shtml)
+- 2026-06-29 11:33 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](http://www.blog.minike.top/Article/details/4072818.shtml)
+- 2026-06-29 11:43 - [915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能](http://www.blog.minike.top/Article/details/494554.shtml)
+- 2026-06-29 11:26 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [渤海人寿获批增加注册资本至16.87亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](http://www.blog.minike.top/Article/details/61054512.shtml)
+- 2026-06-29 11:41 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](http://www.share.minike.top/Article/details/955196768.shtml)
+- 2026-06-29 11:47 - [台湾宜兰县海域发生6.1级地震](http://www.blog.minike.top/Article/details/95025.shtml)
+- 2026-06-29 11:47 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](http://www.blog.minike.top/Article/details/889500036271.shtml)
+- 2026-06-29 11:34 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [广交会观察：全球采购商寻“鲜”中国美食](http://www.blog.minike.top/Article/details/878212.shtml)
+- 2026-06-29 11:31 - [新加坡外国存款创历史新高 避险需求激增](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](http://www.share.kurohicncr.top/Article/details/517318024921.shtml)
+- 2026-06-29 11:47 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](http://www.share.minike.top/Article/details/9679915.shtml)

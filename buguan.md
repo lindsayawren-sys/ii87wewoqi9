@@ -1,51 +1,57 @@
-# 百度集团-SW早盘涨超5% 已完成文心5.1重要版本训练
+# 中国医生完成尼日尔首例鼓室成形术
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-百度集团-SW（09888）盘中涨近7%，截至发稿，股价上涨5.02%，报144.40港元，成交额6.30亿港元。 5月13日，在Create2026百度AI开发者大会上，百度集团执行副总裁、百度智能云事业群总裁沈抖披露，目前昆仑芯P800已完成规模化验证，2025年至今已交付多个万卡集群。此外在昆仑芯全国产集群上，已成功完成对文心5.1重要版本的训练，整个集群的有效训练率达到
+中新网南宁5月3日电(张广权)第25批援尼日尔中国医疗队(以下简称：中国医疗队)2日提供的消息称，该医疗队近日在尼日尔综合医院成功完成该国首例鼓室成形术，标志着当地耳科诊疗从单纯药物保守治疗正式迈入手术根治新阶段。 一名尼日尔患者被耳疾困扰长达三年，因炎症引发鼓膜大穿孔、中耳病变，常年耳内流脓、听力持续下降，严重影响生活。受限于当地设备匮乏、技术空白，患者只能依靠药物临时缓解，
 
 ## 正文
 
-百度集团-SW（09888）盘中涨近7%，截至发稿，股价上涨5.02%，报144.40港元，成交额6.30亿港元。
+中新网南宁5月3日电(张广权)第25批援尼日尔中国医疗队(以下简称：中国医疗队)2日提供的消息称，该医疗队近日在尼日尔综合医院成功完成该国首例鼓室成形术，标志着当地耳科诊疗从单纯药物保守治疗正式迈入手术根治新阶段。
 
-5月13日，在Create2026百度AI开发者大会上，百度集团执行副总裁、百度智能云事业群总裁沈抖披露，目前昆仑芯P800已完成规模化验证，2025年至今已交付多个万卡集群。
+一名尼日尔患者被耳疾困扰长达三年，因炎症引发鼓膜大穿孔、中耳病变，常年耳内流脓、听力持续下降，严重影响生活。
 
-此外在昆仑芯全国产集群上，已成功完成对文心5.1重要版本的训练，整个集群的有效训练率达到97%，万卡规模集群线性扩展度超过85%，可满足前沿大模型大规模训练对计算精度、算子稳定性、框架适配和长周期运行的要求。
+受限于当地设备匮乏、技术空白，患者只能依靠药物临时缓解，始终无法根治，长期陷入“发炎—流脓—停药—复发”的循环，甚至面临颅内感染的风险。
 
-责任编辑：卢昱君
+中国医疗队结合当地实际，带领当地医生整理一套适配的耳科手术器械，量身制定精细手术方案。
+
+术中，来自广西医科大学第一附属医院的医师精准清除中耳病灶、消除感染隐患，巧妙取用患者自身耳屏软骨，为破损鼓膜精准“补洞”。
+
+中国麻醉医师、手术护士与当地医务人员一道，确保手术各环节衔接顺畅，风险可控。
+
+在手术过程中，中国医疗队队员向尼日尔医生详细讲解解剖结构、移植技巧等要点，把技术毫无保留地传授。
+
+同时，中国医疗队还协助当地建立术前诊断—术中规范—术后随访全流程标准化诊疗体系，将“中国方案”“中国标准”留在尼日尔，真正打造一支“带不走的医疗队”。
 
 ## 相关推荐
 
-- 2026-06-29 11:18 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:28 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:23 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:30 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:40 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:29 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:43 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:34 - [当地回应多辆“百吨王”强行冲卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:45 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:27 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:24 - [中国版「星链」运营方启动新一轮增资，设50亿元投资门槛，明确拒绝境外资本，低轨卫星互联网为什么重要？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:38 - [白玉兰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:27 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:22 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:42 - [云南边境的目瑙纵歌，何以火爆全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:24 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:32 - [重庆新开往返菲律宾马尼拉客运航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:45 - [新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:28 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:39 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:35 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:33 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:38 - [体验多元！“影视+文旅”点亮“五一”假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:36 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/12831.shtml)
-- 2026-06-29 11:30 - [四川宜宾发生5.5级地震](https://www.share.kurohicncr.top/Article/details/3542749294.shtml)
-- 2026-06-29 11:44 - [世界杯用球成部分门将噩梦](http://www.share.kurohicncr.top/Article/details/04619908.shtml)
-- 2026-06-29 11:42 - [线路错接女子替7户邻居交17年电费](http://www.share.kurohicncr.top/Article/details/9390149402.shtml)
-- 2026-06-29 11:30 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/5163453269.shtml)
-- 2026-06-29 11:32 - [世界杯打成了欧洲杯和美洲杯](https://www.blog.minike.top/Article/details/818507.shtml)
-- 2026-06-29 11:35 - [沙丘](http://www.blog.kurohicncr.top/Article/details/0247978932.shtml)
-- 2026-06-29 11:45 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/28750527290.shtml)
-- 2026-06-29 11:41 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/95030588.shtml)
-- 2026-06-29 11:32 - [《贺子珍》](https://www.blog.minike.top/Article/details/44840186.shtml)
-- 2026-06-29 11:40 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/22041122.shtml)
-- 2026-06-29 11:25 - [重生赛伊德04](https://www.share.minike.top/Article/details/465513695800.shtml)
-- 2026-06-29 11:35 - [105年初心滚烫](https://www.share.minike.top/Article/details/859945488771.shtml)
-- 2026-06-29 11:37 - [宜宾地震后顾客折返用餐0人逃单](https://www.blog.kurohicncr.top/Article/details/33375.shtml)
-- 2026-06-29 11:30 - [逃狱兄弟](https://www.share.minike.top/Article/details/34983864.shtml)
+- 2026-06-29 11:27 - [摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺](http://www.share.kurohicncr.top/Article/details/297987034.shtml)
+- 2026-06-29 11:21 - [可孚医疗：发售价厘定为每股H股39.33港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [数万日本民众举行集会 呼吁守护和平宪法](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [在香港沉浸式“邂逅”蒙娜丽莎](http://www.blog.minike.top/Article/details/2903093.shtml)
+- 2026-06-29 11:45 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](http://www.share.minike.top/Article/details/30822055186.shtml)
+- 2026-06-29 11:41 - [中国奥园委聘毕马威咨询(香港)为财务顾问](http://www.blog.kurohicncr.top/Article/details/341040062705.shtml)
+- 2026-06-29 11:44 - [首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕](http://www.share.minike.top/Article/details/25981.shtml)
+- 2026-06-29 11:29 - [欧洲央行维持存款利率在2.00%不变 符合预期](http://www.share.minike.top/Article/details/7933296097.shtml)
+- 2026-06-29 11:45 - [暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [5月4日中国跨区域人员流动量预计超2.9亿人次](http://www.blog.kurohicncr.top/Article/details/171257702570.shtml)
+- 2026-06-29 11:36 - [内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%](http://www.blog.kurohicncr.top/Article/details/103868786185.shtml)
+- 2026-06-29 11:21 - [东西问丨杜方绥：中国文学何以打动世界读者？](http://www.blog.minike.top/Article/details/7783613.shtml)
+- 2026-06-29 11:20 - [东京通胀进一步降温 支撑日本央行加息谨慎立场](http://www.blog.minike.top/Article/details/89708664517.shtml)
+- 2026-06-29 11:19 - [亚马逊AWS营收增长28%，达到376亿美元](http://www.share.kurohicncr.top/Article/details/4594869624.shtml)
+- 2026-06-29 11:31 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](http://www.blog.minike.top/Article/details/51537.shtml)

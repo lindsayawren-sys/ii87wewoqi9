@@ -1,61 +1,58 @@
-# 酒价内参5月15日价格发布：精品茅台与君品领涨 总价再创半个月新高
+# 浙江杭州：民众走“运”度假期
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月15日整体继续小幅回暖。如果主要单品各取一瓶整体打包售卖，今日总售价为9964元，较昨日上涨3元，连续第二天刷新近半个月以来最高记录。市场延续温和上行态势，终端交投情绪基本平稳，核心单品涨跌分化依然显著。 今日白酒市场11大单品六涨
+中新网杭州5月1日电(鲍梦妮 莫旭亮 章元元)5月1日，2026年“行走大运河”全民健身健步走活动在杭州临平塘栖古镇鸣枪。2000名健身爱好者沿着10公里的京杭大运河游步道健步前行，一路穿行于古镇街巷、水乡田园与生态岸线之间，以运动开启“五一”假期。 据悉，塘栖古镇位于杭州北部，京杭大运河穿镇而过，明清时期为“江南十大名镇”之首。 当日的健步走行程中，特色文化展演依次呈现：塘栖
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月15日整体继续小幅回暖。
+中新网杭州5月1日电(鲍梦妮 莫旭亮 章元元)5月1日，2026年“行走大运河”全民健身健步走活动在杭州临平塘栖古镇鸣枪。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9964元，较昨日上涨3元，连续第二天刷新近半个月以来最高记录。
+2000名健身爱好者沿着10公里的京杭大运河游步道健步前行，一路穿行于古镇街巷、水乡田园与生态岸线之间，以运动开启“五一”假期。
 
-市场延续温和上行态势，终端交投情绪基本平稳，核心单品涨跌分化依然显著。
+据悉，塘栖古镇位于杭州北部，京杭大运河穿镇而过，明清时期为“江南十大名镇”之首。
 
-今日白酒市场11大单品六涨四跌一平，赢家占据优势。
+当日的健步走行程中，特色文化展演依次呈现：塘栖村内，喜庆热闹的水乡婚礼再现运河沿岸传统婚俗；丁河村头，鱼鹰捕鱼技艺现场展示，展现运河人家古老的生产生活场景；超丁村的千亩麦田里，做野米饭、“称人”等传统民俗体验让游人可以感受节气文化。
 
-上涨方面，精品茅台与习酒君品的涨幅居前，均上涨4元/瓶，前者创下近一个月最高价纪录，后者小幅反弹，但仍处于月内次低位；青花郎上涨3元/瓶；国窖1573、洋河梦之蓝M6+及五粮液1618均上涨1元/瓶，其中国窖1573收获七连阳，价格续创一个月来最高纪录；洋河梦之蓝M6+收获四连涨，平近一月最高价；五粮液1618近十日走势一直稳定。
+临平还在沿途补给站点准备了当地风味。
 
-下跌方面，古井贡古20的跌幅居前，下跌6元/瓶；飞天茅台下跌3元/瓶；青花汾20与水晶剑南春均下跌1元/瓶，前者创月内低位后继续下探。
+大运河国医生活馆的中药饮、塘栖老字号朱一堂及法根糕点、超山蜜饯等，让参与者在健步之余品尝到地道运河滋味。
 
-五粮液普五八代的价格环比保持不变。
+据悉，本次活动与2026浙江(杭州)国际时尚体育周房车营地集结活动实现了无缝衔接。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+健步走终点直达超山风景名胜区东园房车营地现场，两大活动共同打造出“上午运河健步、下午潮玩营地”的假日新体验。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [线路错接女子替7户邻居交17年电费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:41 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:28 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:32 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:41 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:40 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:19 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:28 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:31 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:41 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:38 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:37 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:44 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:46 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:29 - [宁夏银川：水上运动成民众假期户外社交“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:19 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:22 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:21 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:27 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:47 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:45 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:48 - [王毅同美国国务卿鲁比奥通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:22 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:37 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:28 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:27 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [乌拉圭出局之路](http://www.blog.kurohicncr.top/Article/details/4804692233.shtml)
-- 2026-06-29 11:45 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/2565845954.shtml)
-- 2026-06-29 11:30 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.minike.top/Article/details/828902.shtml)
-- 2026-06-29 11:26 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/395349303.shtml)
-- 2026-06-29 11:36 - [欧洲超1300例超额死亡与高温有关](http://www.blog.minike.top/Article/details/15285313690.shtml)
-- 2026-06-29 11:24 - [加拿大92分钟绝杀](http://www.blog.minike.top/Article/details/1397838.shtml)
-- 2026-06-29 11:21 - [陈垣宇晋级WTT美国大满贯男单32强](https://www.blog.kurohicncr.top/Article/details/24995043.shtml)
-- 2026-06-29 11:44 - [毕业典礼整活 梗密到不知先笑哪个](https://www.blog.kurohicncr.top/Article/details/082834575032.shtml)
-- 2026-06-29 11:43 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/13958763.shtml)
-- 2026-06-29 11:43 - [BW2026游览指南](http://www.blog.kurohicncr.top/Article/details/19730439601.shtml)
-- 2026-06-29 11:37 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/625553.shtml)
-- 2026-06-29 11:34 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/02822.shtml)
-- 2026-06-29 11:45 - [三轮车被自家狗“推”进池塘](https://www.blog.minike.top/Article/details/2265116.shtml)
-- 2026-06-29 11:37 - [上海足协发布世界杯文明观赛倡议书](https://www.blog.minike.top/Article/details/02362309.shtml)
-- 2026-06-29 11:41 - [复盘葡萄牙逼平哥伦比亚](http://www.blog.kurohicncr.top/Article/details/47917.shtml)
+- 2026-06-29 11:41 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](http://www.share.kurohicncr.top/Article/details/421615864.shtml)
+- 2026-06-29 11:28 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](http://www.blog.minike.top/Article/details/22117071.shtml)
+- 2026-06-29 11:41 - [体验多元！“影视+文旅”点亮“五一”假期](http://www.share.kurohicncr.top/Article/details/9700045980.shtml)
+- 2026-06-29 11:32 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](http://www.share.minike.top/Article/details/98118146281.shtml)
+- 2026-06-29 11:35 - [三星电子任命新的视觉显示业务负责人](http://www.blog.minike.top/Article/details/56294066.shtml)
+- 2026-06-29 11:19 - [朝鲜外务省：美国炒作朝鲜“网络威胁”是无稽之谈](http://www.blog.minike.top/Article/details/98504.shtml)
+- 2026-06-29 11:35 - [韩国特检组就金建希首案二审结果提出抗诉](http://www.share.kurohicncr.top/Article/details/300668357.shtml)
+- 2026-06-29 11:18 - [阿贝尔谈及自己与阿吉特・贾恩的继任规划](http://www.share.kurohicncr.top/Article/details/161341073168.shtml)
+- 2026-06-29 11:19 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](http://www.blog.minike.top/Article/details/71572823518.shtml)
+- 2026-06-29 11:26 - [广西投资集团有限公司总经理刘明洪接受审查调查](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](http://www.blog.kurohicncr.top/Article/details/814279946.shtml)
+- 2026-06-29 11:39 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](http://www.share.kurohicncr.top/Article/details/904690948.shtml)
+- 2026-06-29 11:30 - [915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](https://github.com/lisacumin64-arch)

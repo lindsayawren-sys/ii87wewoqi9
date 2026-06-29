@@ -1,60 +1,59 @@
-# 北京商报：只涨不跌的市场难以持续 调整过后指数往往能打开新的上行空间
+# 亚马逊AWS营收增长28%，达到376亿美元
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：北京商报 北京商报发文指出，股市的长期稳定上行，离不开健康的调整周期。只涨不跌的市场难以持续，短期快速上涨后若缺乏调整，会导致市场风险不断累积，一旦出现集中释放，调整幅度会更大，对市场的冲击也更强烈。而适度的调整，能够逐步释放短期风险，缓解市场压力，让指数上行节奏更加平稳。回顾A股历史行情，每一轮持续
+在企业对人工智能服务需求的推动下，亚马逊公司公布的云业务增长强于预期，股价随之上涨。 亚马逊云服务（AWS）第一季度营收增长28%，达到376亿美元，超出华尔街预期。总净销售额增至1815亿美元。 首席执行官安迪·贾西表示，亚马逊今年将维持约2000亿美元的人工智能相关投资目标。本季度资本支出达到442亿美元，同比增长超过76%。 公司通过与OpenAI和Anthropic扩大
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+在企业对人工智能服务需求的推动下，亚马逊公司公布的云业务增长强于预期，股价随之上涨。
 
-来源：北京商报 北京商报发文指出，股市的长期稳定上行，离不开健康的调整周期。
+亚马逊云服务（AWS）第一季度营收增长28%，达到376亿美元，超出华尔街预期。
 
-只涨不跌的市场难以持续，短期快速上涨后若缺乏调整，会导致市场风险不断累积，一旦出现集中释放，调整幅度会更大，对市场的冲击也更强烈。
+总净销售额增至1815亿美元。
 
-而适度的调整，能够逐步释放短期风险，缓解市场压力，让指数上行节奏更加平稳。
+首席执行官安迪·贾西表示，亚马逊今年将维持约2000亿美元的人工智能相关投资目标。
 
-回顾A股历史行情，每一轮持续的上涨行情，都伴随着多次阶段性调整，调整过后指数往往能打开新的上行空日。
+本季度资本支出达到442亿美元，同比增长超过76%。
 
-面对指数创新高后的调整，投资者应保持理性认知，避免盲目恐慌。
+公司通过与OpenAI和Anthropic扩大合作伙伴关系，强化了其在人工智能领域的地位。
 
-首先，要摒弃短期投机心态，树立长期价值投资理念重点关注基本面扎实、业绩增长明确的上市公司，不盲目跟风炒作。
+亚马逊最近在AWS上提供了OpenAI模型，并同意向Anthropic投资至多250亿美元，后者承诺在10年内向AWS投入超过1000亿美元。
 
-其次，要理性看待市场波动，认识到调整是市场运行的正常环节，不必因短期回调过度焦虑，更不应盲目割肉离场。
+广告业务仍是另一个亮点，营收增长24%，达到172亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:34 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:32 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:22 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:35 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:45 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:35 - [毕业典礼整活 梗密到不知先笑哪个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:38 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:42 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:33 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:26 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:39 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:25 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:34 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:45 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:29 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:23 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:39 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:36 - [一觉醒来，美国对欧洲下狠手了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:23 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:27 - [学习新语｜幸福属于劳动者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:39 - [刚刚，全线大涨！日本，突然动手了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:37 - [“五一”假期，中国游中国购的引力“藏不住了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:35 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:31 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:27 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [王楚钦3比0周启豪](https://www.blog.minike.top/Article/details/46408.shtml)
-- 2026-06-29 11:38 - [广州某高校辟谣禁止小米汽车入校](https://www.blog.minike.top/Article/details/01199161.shtml)
-- 2026-06-29 11:29 - [和阿根廷球员家属一起看球](http://www.share.kurohicncr.top/Article/details/07919942995.shtml)
-- 2026-06-29 11:27 - [为什么欧洲人不装空调](https://www.blog.minike.top/Article/details/76977682.shtml)
-- 2026-06-29 11:20 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://www.blog.minike.top/Article/details/02051.shtml)
-- 2026-06-29 11:45 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/724922754403.shtml)
-- 2026-06-29 11:31 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/43310837.shtml)
-- 2026-06-29 11:24 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/2498506814.shtml)
-- 2026-06-29 11:22 - [洪明甫发布会没有提问环节](http://www.blog.kurohicncr.top/Article/details/0589182029.shtml)
-- 2026-06-29 11:36 - [高考志愿今起开始填报](https://www.share.minike.top/Article/details/7092177213.shtml)
-- 2026-06-29 11:36 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/16417065684.shtml)
-- 2026-06-29 11:20 - [欧洲超1300例超额死亡与高温有关](https://www.share.minike.top/Article/details/23781.shtml)
-- 2026-06-29 11:21 - [Gucci全球首席营销官发肖战](https://www.share.kurohicncr.top/Article/details/80850506390.shtml)
-- 2026-06-29 11:43 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/48738708664.shtml)
-- 2026-06-29 11:48 - [毕业群都在出什么东西](https://www.share.minike.top/Article/details/3306698.shtml)
+- 2026-06-29 11:42 - [美国得克萨斯州发生枪击事件 致2死10伤](http://www.blog.minike.top/Article/details/74223707.shtml)
+- 2026-06-29 11:36 - [一杯清香里的世界连接：青花汾酒走进全球投资者的感官与记忆](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [宁夏银川：咖啡遇上音乐 “五一”假期解锁文旅休闲新场景](http://www.share.minike.top/Article/details/2463002811.shtml)
+- 2026-06-29 11:45 - [马斯克2025年特斯拉薪酬总额达1580亿美元](http://www.blog.kurohicncr.top/Article/details/686468397255.shtml)
+- 2026-06-29 11:28 - [挪威油企与工会谈判破裂，拟通过调解避免罢工及产量中断](http://www.blog.minike.top/Article/details/52961310.shtml)
+- 2026-06-29 11:41 - [漳汕高铁广东段山家特大桥首梁架设](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [“金融国家队”为何选中了他们](http://www.share.minike.top/Article/details/26697807.shtml)
+- 2026-06-29 11:22 - [ASMPT早盘高开逾4% 建银国际将目标价上调至190港元](http://www.share.minike.top/Article/details/7847046.shtml)
+- 2026-06-29 11:34 - [“五一”假期首日广东水上出行迎来客流高峰](http://www.share.kurohicncr.top/Article/details/21681114977.shtml)
+- 2026-06-29 11:24 - [关于开展2026年企业ESG实践成果展示活动的通知](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [干预数小时后 日元兑美元汇率大幅上涨](http://www.share.minike.top/Article/details/8009795.shtml)
+- 2026-06-29 11:34 - [“苏超”南京赛区志愿者暖心护航 宁马青年聚力绽放青春力量](http://www.blog.minike.top/Article/details/59610.shtml)
+- 2026-06-29 11:46 - [刀为笔、木为纸 木版年画比赛展非遗魅力](http://www.share.minike.top/Article/details/229176997500.shtml)
+- 2026-06-29 11:28 - [福建首个侨台档案融合展示馆开门迎客](http://www.blog.kurohicncr.top/Article/details/43218087591.shtml)
+- 2026-06-29 11:26 - [AI浪潮里的“模速青年”：勇敢追梦，让年轻有“模”有样](https://github.com/lisacumin64-arch)

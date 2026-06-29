@@ -1,58 +1,61 @@
-# 美国铁路运输巨头CSX董事会批准新增50亿美元股票回购计划
+# 私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-美国铁路运输巨头CSX公司宣布，董事会已批准一项新的50亿美元股票回购计划，在截至2026年3月31日现有计划剩余约9.89亿美元授权额度的基础上大幅追加。新授权将与此前剩余额度合并，为公司未来资本配置提供更大灵活性。 回购方案细节 根据公告，股票回购可通过公开市场购买、10b5-1交易计划、加速股份回购及协议大宗交易等多种方式进行，具体时机和金额由董事会根据市场条件自行决定。
+私募信贷市场正呈现分化态势。一方面，AIG主动放缓新增投资部署，另一方面，Ares Capital等头部机构在波动中面临估值压力。 AIG首席财务官Keith Walsh此前明确表示，鉴于市场波动加剧和违约率上升，公司已显著放缓在该资产类别的资金部署。这一谨慎姿态推动AIG股价上涨。与此同时，AIG也在进行战略调整，今年1月宣布与CVC资本建立最高35亿美元的战略合作，其中包括
 
 ## 正文
 
-美国铁路运输巨头CSX公司宣布，董事会已批准一项新的50亿美元股票回购计划，在截至2026年3月31日现有计划剩余约9.89亿美元授权额度的基础上大幅追加。
+私募信贷市场正呈现分化态势。
 
-新授权将与此前剩余额度合并，为公司未来资本配置提供更大灵活性。
+一方面，AIG主动放缓新增投资部署，另一方面，Ares Capital等头部机构在波动中面临估值压力。
 
-回购方案细节 根据公告，股票回购可通过公开市场购买、10b5-1交易计划、加速股份回购及协议大宗交易等多种方式进行，具体时机和金额由董事会根据市场条件自行决定。
+AIG首席财务官Keith Walsh此前明确表示，鉴于市场波动加剧和违约率上升，公司已显著放缓在该资产类别的资金部署。
 
-公司表示，此决策体现了董事会对CSX财务状况及长期增长前景的信心。
+这一谨慎姿态推动AIG股价上涨。
 
-高管变动同步公布 同日，CSX宣布执行副总裁兼首席数字与技术官Stephen Fortune即时离职，其职责由原铁路运营产品管理副总裁Steve Watkins接任，后者将直接向执行副总裁兼首席财务官Kevin S． Boone汇报。
+与此同时，AIG也在进行战略调整，今年1月宣布与CVC资本建立最高35亿美元的战略合作，其中包括向CVC管理的单独管理账户和基金分配至多20亿美元，以及向CVC的私募股权二级市场常青基金投入至多15亿美元，以优化其存量投资组合。
 
-稳健的股东回报记录 CSX在股东回报方面保持良好记录，已连续21年提高股息。
+作为全球最大的上市业务发展公司，Ares Capital一季度业绩喜忧参半。
 
-今年一季度，公司交出超预期成绩单：营收34.8亿美元，同比增长2%；每股收益0.43美元，同比增长26%，净利润达8.07亿美元。
+公司实现核心每股收益0.47美元，低于去年同期的0.50美元，也低于其0.48美元的季度股息。
 
-公司此前已上调2026全年业绩指引，预计营收可实现中个位数增长。
+净资产价值环比下跌0.35美元至19.59美元。
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:28 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:34 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:19 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:46 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:47 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:37 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:26 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:45 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:30 - [神23乘组太空出差满月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:35 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:24 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:21 - [一见·加强基础研究，总书记强调这个关键因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:47 - [亚马逊业绩超预期，AWS重新加速增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:39 - [亚马逊：受损阿联酋云区域恢复需数月时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:47 - [乡村“发明家”让“手搓”坚果打磨机走向世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:21 - [习近平总书记同劳动者在一起的故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:46 - [维珍澳大利亚航空或将航班削减措施延续至第三季度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:38 - [四川遂宁龙凤古镇“五一”假期首日人气旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:47 - [抓住机遇，以更大力度更实举措加强基础研究——论学习贯彻习近平总书记在加强基础研究座谈会上重要讲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:36 - [有关伊朗的报道发布后油价下跌 美国国债升至日内高点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:32 - [国铁广州局“五一”假期预计发送旅客2277万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:44 - [“中文热是中国发展成就最好的印证”——访俄罗斯伊尔库茨克国立大学孔院俄方院长拜拉莫娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:31 - [玉浦高速公路200余名建设者“五一”不打烊 铺筑发展快车道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:41 - [关税退税提振利润难掩现金流疲软，Stellantis股价重挫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:23 - [特朗普削减驻德美军计划引发美国及北约盟友质疑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:19 - [以防长：以色列或“很快”对伊朗“再次采取行动”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [王祖蓝现场观看美加墨世界杯](http://www.blog.minike.top/Article/details/044074648.shtml)
-- 2026-06-29 11:23 - [陈丽君演出结束后饭撒](http://www.blog.kurohicncr.top/Article/details/1188327895.shtml)
-- 2026-06-29 11:40 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/51024.shtml)
-- 2026-06-29 11:29 - [海清白玉兰奖运](http://www.blog.kurohicncr.top/Article/details/5111563928.shtml)
-- 2026-06-29 11:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/7234840826.shtml)
-- 2026-06-29 11:33 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/09294178.shtml)
-- 2026-06-29 11:26 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/6948555617.shtml)
-- 2026-06-29 11:19 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/10022.shtml)
-- 2026-06-29 11:31 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/539775276292.shtml)
-- 2026-06-29 11:47 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/617864898.shtml)
-- 2026-06-29 11:45 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/468977309118.shtml)
-- 2026-06-29 11:28 - [世界杯用球成部分门将噩梦](http://www.share.minike.top/Article/details/6199319.shtml)
-- 2026-06-29 11:36 - [温峥嵘直播回应恶评](https://www.share.minike.top/Article/details/6585286.shtml)
-- 2026-06-29 11:29 - [天津打雷](https://www.blog.minike.top/Article/details/821822.shtml)
-- 2026-06-29 11:20 - [四川宜宾地震](http://www.blog.minike.top/Article/details/3966257352.shtml)
+- 2026-06-29 11:27 - [专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默](http://www.share.kurohicncr.top/Article/details/260273007177.shtml)
+- 2026-06-29 11:25 - [【小新的Vlog】探访藏在四川深山里的“白衣飘飘” 邂逅漫山“植物活化石”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [存储巨头业绩股价双炸裂，利润最高涨超7倍，股价年涨幅最高35倍](http://www.blog.minike.top/Article/details/726632957355.shtml)
+- 2026-06-29 11:36 - [直击巴菲特股东会｜对话巴菲特旗下分公司高管：巴菲特和格雷格信任每一位经理](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [数据中心需求强劲，开利第一季度利润超预期](http://www.share.minike.top/Article/details/3991277161.shtml)
+- 2026-06-29 11:41 - [观界江 品鱼鲜 “中国第一龙乡”嘉荫开江活动引游人](http://www.blog.kurohicncr.top/Article/details/12758408.shtml)
+- 2026-06-29 11:41 - [“五一” 假期拉萨市民山谷过林卡 乐享假日时光](http://www.share.kurohicncr.top/Article/details/05840.shtml)
+- 2026-06-29 11:42 - [江苏海警局联合多部门启动2026年海洋伏季休渔专项执法行动](http://www.blog.kurohicncr.top/Article/details/349238544.shtml)
+- 2026-06-29 11:45 - [Semafor：特朗普将签署行政命令 扩大退休计划的覆盖范围](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [第九届数字中国建设峰会：数字科技吸引参观者](http://www.share.kurohicncr.top/Article/details/34521832.shtml)
+- 2026-06-29 11:28 - [阿瑞斯投资管理募资创纪录 营收同比走高](http://www.blog.kurohicncr.top/Article/details/129948949084.shtml)
+- 2026-06-29 11:31 - [美联储古尔斯比：上周会议上的不同意见凸显前瞻性指引的复杂性](http://www.share.kurohicncr.top/Article/details/299219.shtml)
+- 2026-06-29 11:31 - [“五一”叠加春假催热消费 各地加大节日市场供应](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [学习手记｜把好经验总结好运用好](http://www.blog.kurohicncr.top/Article/details/54071.shtml)
+- 2026-06-29 11:23 - [追光的你丨总书记点赞奋斗中的你我](http://www.blog.minike.top/Article/details/264704680323.shtml)

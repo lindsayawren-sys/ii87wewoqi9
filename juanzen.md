@@ -1,56 +1,58 @@
-# 两岸文化工作者：盼文化交流走向携手创作的“双向奔赴”
+# 新加坡外国存款创历史新高 避险需求激增
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网5月14日电 题：两岸文化工作者：盼文化交流走向携手创作的“双向奔赴” 记者 李柏涛 朱延静 徐峻杰 实习生 金子于 5月11日至13日，第三届海峡两岸中华文化峰会在北京举行，为两岸文化交流再添新声。随着越来越多台湾同胞跨越海峡的脚步，中华文化作为联结两岸同胞的精神纽带，正拉近彼此距离，融入彼此生活。 两岸文化交流，从来不应是单向的文化传递，更要迈向“双向奔赴”“同频共振
+受伊朗战争推动投资者寻求稳定的影响，新加坡正迎来避险资金的涌入。 新加坡金融管理局周四发布的数据显示，3月份，这个城市国家银行的外国存款攀升至6590亿新元（约合5150亿美元），创2021年有记录以来的最高水平。 澳新银行亚洲研究主管Khoon Goh表示：“虽然存款来源没有细分，但增加的很大一部分可能是由于中东冲突导致避险资金流入新加坡。鉴于中东冲突暂无解决迹象，非居民资金
 
 ## 正文
 
-中新网5月14日电 题：两岸文化工作者：盼文化交流走向携手创作的“双向奔赴” 记者 李柏涛 朱延静 徐峻杰 实习生 金子于 5月11日至13日，第三届海峡两岸中华文化峰会在北京举行，为两岸文化交流再添新声。
+受伊朗战争推动投资者寻求稳定的影响，新加坡正迎来避险资金的涌入。
 
-随着越来越多台湾同胞跨越海峡的脚步，中华文化作为联结两岸同胞的精神纽带，正拉近彼此距离，融入彼此生活。
+新加坡金融管理局周四发布的数据显示，3月份，这个城市国家银行的外国存款攀升至6590亿新元（约合5150亿美元），创2021年有记录以来的最高水平。
 
-两岸文化交流，从来不应是单向的文化传递，更要迈向“双向奔赴”“同频共振”。
+澳新银行亚洲研究主管Khoon Goh表示：“虽然存款来源没有细分，但增加的很大一部分可能是由于中东冲突导致避险资金流入新加坡。
 
-这份共识，源于众多两岸文化界人士亲身参与、亲身感悟的生动实践。
+鉴于中东冲突暂无解决迹象，非居民资金可能会进一步流入新加坡。
 
-“中华文化本就流淌在我们的血脉之中。
+” 各类资产均呈现相同趋势。
 
-”台湾旺旺集团副董事长、画家周锡玮如此形容两岸同胞与生俱来的文化认同。
+尽管油价上涨和美联储更加强硬的预期令全球固定收益市场承压，但新加坡政府债券的表现仍优于多数债券。
 
-在他看来，文化是两岸同胞骨子里一脉相承、浑然相通的精神底色。
+新元兑美元汇率也下跌了1.3%，但表现优于其他东南亚货币。
 
-如何让中华文化真正触及台湾青年心底？
+油价再度飙升至每桶120美元以上，给印尼盾、菲律宾比索和印度卢比等较为脆弱的货币带来压力。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:30 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:45 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:41 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:34 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:43 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:27 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:26 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:24 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:29 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:28 - [2026年“国际中文日”文艺巡演活动在北爱尔兰举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:40 - [马斯克法庭交锋OpenAI，称奥特曼“不诚实”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:36 - [德国经济一季度环比增长0.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:22 - [摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:18 - [可孚医疗：发售价厘定为每股H股39.33港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:44 - [数万日本民众举行集会 呼吁守护和平宪法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:31 - [在香港沉浸式“邂逅”蒙娜丽莎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:35 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:34 - [中国奥园委聘毕马威咨询(香港)为财务顾问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:27 - [首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:32 - [欧洲央行维持存款利率在2.00%不变 符合预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:39 - [暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [2025年人口增长10强城市出炉](https://www.blog.minike.top/Article/details/3611725809.shtml)
-- 2026-06-29 11:39 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/38072626704.shtml)
-- 2026-06-29 11:27 - [韩国队是怎么把自己“作死”的](http://www.share.minike.top/Article/details/83889.shtml)
-- 2026-06-29 11:40 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/03107683627.shtml)
-- 2026-06-29 11:21 - [美人鱼](https://www.blog.minike.top/Article/details/123843968.shtml)
-- 2026-06-29 11:33 - [委内瑞拉地震已致1450死3150伤](https://www.share.minike.top/Article/details/427118782.shtml)
-- 2026-06-29 11:27 - [AG 钟意](http://www.blog.kurohicncr.top/Article/details/40031624477.shtml)
-- 2026-06-29 11:28 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.minike.top/Article/details/95108593.shtml)
-- 2026-06-29 11:44 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/95462957.shtml)
-- 2026-06-29 11:19 - [俄称继续在顿涅茨克两城镇推进](https://www.blog.minike.top/Article/details/0141695045.shtml)
-- 2026-06-29 11:31 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/194251657.shtml)
-- 2026-06-29 11:23 - [异世界一点都不好玩！](http://www.share.kurohicncr.top/Article/details/42547129757.shtml)
-- 2026-06-29 11:38 - [香港航天员黎家盈带招牌笑容工作](http://www.share.kurohicncr.top/Article/details/05818.shtml)
-- 2026-06-29 11:44 - [蒸了一锅妃子笑荔枝馒头](http://www.share.minike.top/Article/details/95023156842.shtml)
-- 2026-06-29 11:42 - [有清北的实力却只考了大专，在大学怎么平衡心态？](http://www.share.minike.top/Article/details/89388.shtml)
+- 2026-06-29 11:43 - [以更大力度更实举措加强基础研究](http://www.blog.minike.top/Article/details/9020857390.shtml)
+- 2026-06-29 11:42 - [日元保卫战或一触即发 日本财相警告“时机临近”](http://www.blog.minike.top/Article/details/69834688844.shtml)
+- 2026-06-29 11:18 - [埃克森CEO对委内瑞拉态度转变 此前曾批评该国“不可投资”](http://www.share.minike.top/Article/details/214709334.shtml)
+- 2026-06-29 11:43 - [民警一声“快来帮忙”，整座桥上的人都来了！](http://www.share.minike.top/Article/details/00842652761.shtml)
+- 2026-06-29 11:42 - [英特尔收购Sambanova获美国反垄断批准](http://www.blog.minike.top/Article/details/29868.shtml)
+- 2026-06-29 11:21 - [北约秘书长：北约欧洲国家听懂特朗普的话了 正落实美军请求](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [一见·加强基础研究，总书记强调这个关键因素](http://www.share.kurohicncr.top/Article/details/633712120572.shtml)
+- 2026-06-29 11:19 - [亚马逊业绩超预期，AWS重新加速增长](http://www.blog.minike.top/Article/details/62484867855.shtml)
+- 2026-06-29 11:24 - [亚马逊：受损阿联酋云区域恢复需数月时间](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [乡村“发明家”让“手搓”坚果打磨机走向世界](http://www.blog.kurohicncr.top/Article/details/257333980.shtml)
+- 2026-06-29 11:46 - [习近平总书记同劳动者在一起的故事](http://www.blog.minike.top/Article/details/020531697.shtml)
+- 2026-06-29 11:37 - [维珍澳大利亚航空或将航班削减措施延续至第三季度](http://www.blog.minike.top/Article/details/06693665166.shtml)
+- 2026-06-29 11:45 - [四川遂宁龙凤古镇“五一”假期首日人气旺](http://www.blog.kurohicncr.top/Article/details/740757.shtml)
+- 2026-06-29 11:24 - [抓住机遇，以更大力度更实举措加强基础研究——论学习贯彻习近平总书记在加强基础研究座谈会上重要讲](http://www.blog.kurohicncr.top/Article/details/28572441400.shtml)
+- 2026-06-29 11:31 - [有关伊朗的报道发布后油价下跌 美国国债升至日内高点](http://www.blog.kurohicncr.top/Article/details/150826.shtml)

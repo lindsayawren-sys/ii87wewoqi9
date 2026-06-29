@@ -1,46 +1,57 @@
-# 蒙曼谈读书：每一页都不是白读的
+# 亚马逊Audible李博隆：AI让研发成本和机会成本大大下降，越来越多科技公司开始做跨界
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月15日 10:22 来源：中国新闻网 5月14日，吉林长春，中央民族大学教授蒙曼现身第三届东北书博会，体验有声读物等特色文创项目。其间谈及读书感悟，蒙曼表示，日积月累逐页品读，没有一页是白费之功。(高龙安 石洪宇) 责任编辑：【李季】
+专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。 亚马逊Audible资深副总裁、全球增长负责人李博隆通过三个小故事，分享企业在运营端、品牌端应对AI变化的调整与新方向。 第一个故事围绕Audible的全球化布局展开，Audible隶属于亚马逊文化娱乐板块，与Prime video
 
 ## 正文
 
-发布时间：2026年05月15日 10:22 来源：中国新闻网 5月14日，吉林长春，中央民族大学教授蒙曼现身第三届东北书博会，体验有声读物等特色文创项目。
+专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。
 
-其间谈及读书感悟，蒙曼表示，日积月累逐页品读，没有一页是白费之功。
+亚马逊Audible资深副总裁、全球增长负责人李博隆通过三个小故事，分享企业在运营端、品牌端应对AI变化的调整与新方向。
 
-(高龙安 石洪宇) 责任编辑：【李季】
+第一个故事围绕Audible的全球化布局展开，Audible隶属于亚马逊文化娱乐板块，与Prime video、Amazon Music等同属该板块，全球化是其核心发展方向。
+
+他回忆道：“Audible是10年前从美国起步的品牌，我们希望能够把这个品牌做到全球各个国家。
+
+”最初，Audible采用传统的“高举高打、重运营”的国家经理式模式，在英、德、日等发达国家建立分部、组建团队，10年间仅开拓了11、12个市场，远未达到进入全球200多个国家和地区的目标。
+
+为提速全球化进程，Audible两年前开始尝试新路径：“我们的一个尝试是着重于利用手机app作为平台，利用苹果和Google的分发渠道，因为他们已经在很多很多国家和市场有自己的app store。
+
+我们运用这个东西，在不改变现在所有的技术平台和内容、语言的前提下，不做任何非常深度、非常重的本地化的情况下，做一些非常轻量级的营销。
+
+” 这一尝试取得了良好效果，李博隆分享经验：“其实在做全球化的过程中，不是说一定要一下子就可以抓住到主流的所有人群，你可以先很快地用非常轻量级的方式进入到绝大部分的市场，抓住这些头部的early adopter，让他们能够尽量地给你提供数据，用这种数据再反馈到你下一步的动作里面，你成功的概率会非常非常高。
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [神23乘组太空出差满月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:29 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:29 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:38 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:24 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:24 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:26 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:34 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:28 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:44 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:43 - [云南“五一”假期多地降雪 呈反季冰雪景观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:39 - [江西梅江灌区主体工程全面完工试通水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:27 - [国羽3:0胜日本队挺进尤伯杯决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:28 - [福建海域进入海洋伏季休渔期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:27 - [激进投资机构Saba与SpaceX激烈纷争后，掌控英国科技基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:21 - [午盘：道指上涨700点 市场关注美股财报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:29 - [阿联酋宣布退出OPEC，霍尔木兹封锁致短期油价持续高企](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:28 - [人民论坛网评丨从“看一场球”到“赴一座城” ——“经济新活力”系列评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:35 - [委内瑞拉4月石油出口创2018年来新高 委政府无自主支配收入权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:38 - [摩根士丹利看好Chef‘s Warehouse，称中东担忧“过度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:24 - [劳动者宋春胜：千家万户的“安全阀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [C罗关心罗德里戈伤情](http://www.blog.kurohicncr.top/Article/details/2746018.shtml)
-- 2026-06-29 11:47 - [日本媒体：板仓滉已回归日本队合练](https://www.share.kurohicncr.top/Article/details/33578420.shtml)
-- 2026-06-29 11:23 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/12228.shtml)
-- 2026-06-29 11:20 - [香港航天员黎家盈带招牌笑容工作](http://www.share.minike.top/Article/details/37228.shtml)
-- 2026-06-29 11:18 - [曝太阳黄蜂完成阵容互换+签位置换](https://www.share.kurohicncr.top/Article/details/417169.shtml)
-- 2026-06-29 11:26 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.kurohicncr.top/Article/details/9957408022.shtml)
-- 2026-06-29 11:19 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/67405211526.shtml)
-- 2026-06-29 11:20 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/7604163.shtml)
-- 2026-06-29 11:27 - [三只羊大杨哥不直播改卖课](https://www.share.kurohicncr.top/Article/details/64647261712.shtml)
-- 2026-06-29 11:39 - [跑步机上“爬坡”减肥公式爆火](https://www.share.minike.top/Article/details/52001810522.shtml)
-- 2026-06-29 11:26 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.kurohicncr.top/Article/details/2770064299.shtml)
-- 2026-06-29 11:28 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/3288799.shtml)
-- 2026-06-29 11:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/204592492.shtml)
-- 2026-06-29 11:29 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/488878.shtml)
-- 2026-06-29 11:39 - [BW2026游览指南](https://www.blog.minike.top/Article/details/2226339155.shtml)
+- 2026-06-29 11:43 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](http://www.blog.minike.top/Article/details/82461729553.shtml)
+- 2026-06-29 11:21 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](http://www.share.minike.top/Article/details/3113606643.shtml)
+- 2026-06-29 11:36 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](http://www.share.minike.top/Article/details/431513.shtml)
+- 2026-06-29 11:39 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](http://www.share.minike.top/Article/details/26210.shtml)
+- 2026-06-29 11:34 - [前瞻｜巴菲特谢幕，阿贝尔登场：2026伯克希尔股东大会有何看点？](http://www.blog.kurohicncr.top/Article/details/002941.shtml)
+- 2026-06-29 11:43 - [墨西哥总统预计Pemex与巴西国家石油公司将达成协议](http://www.blog.minike.top/Article/details/89786.shtml)
+- 2026-06-29 11:29 - [新发现东京审判“萨顿档案”揭露侵华日军四方面暴行](http://www.share.kurohicncr.top/Article/details/34178.shtml)
+- 2026-06-29 11:45 - [花旗：维持香港楼价看涨8%预期 看好三大地产股](http://www.share.kurohicncr.top/Article/details/7319450771.shtml)
+- 2026-06-29 11:26 - [中国驻英大使郑泽光：香港发展拥有四大优势](http://www.share.minike.top/Article/details/46596507816.shtml)
+- 2026-06-29 11:39 - [这群年轻人用AI“吵了一架” ，最后成了朋友](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [特朗普抨击国会限制其战争权力的举动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [浙江杭州：民众走“运”度假期](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [天津国际邮轮母港单日出入境旅客创年内新高](http://www.share.kurohicncr.top/Article/details/28378.shtml)
+- 2026-06-29 11:43 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](http://www.share.kurohicncr.top/Article/details/4578803732.shtml)
+- 2026-06-29 11:36 - [每天走路够这个量 或能延寿11年！健步走行动清单快掌握→](https://github.com/lisacumin64-arch)

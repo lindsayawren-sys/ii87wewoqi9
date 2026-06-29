@@ -1,58 +1,58 @@
-# 第七届成龙国际动作电影周将与首届太阳岛电影周双周绽放哈尔滨
+# 特朗普抨击国会限制其战争权力的举动
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网北京5月14日电 (记者 高凯)5月14日，首届太阳岛电影周、第七届成龙国际动作电影周新闻发布会在中国电影博物馆举办。会上宣布，首届太阳岛电影周将于8月6日至9日在哈尔滨举办，第七届成龙国际动作电影周将于8月10日至12日接续举办，以电影双周的形式在松花江畔打造盛夏光影盛宴。 据了解，自2015年创办以来，由成龙发起的成龙国际动作电影周已成功举办六届，为武行、替身、特技人
+特朗普总统周四对国会试图限制其战争权力的举动表示不满 —— 参议院已于当天下午否决了最新一项相关议案。 特朗普在椭圆形办公室对记者表示：“他们一而再、再而三地在战争权力问题上纠缠不休。” 他补充道：“我正在与伊朗谈判达成协议，可他们每周、每三天就抛出一项要求停止战争的议案。” 越战结束后通过的一项法律规定，未经国会授权动用军事力量的期限为 60 天。根据该法 ——《战争权力决议
 
 ## 正文
 
-中新网北京5月14日电 (记者 高凯)5月14日，首届太阳岛电影周、第七届成龙国际动作电影周新闻发布会在中国电影博物馆举办。
+特朗普总统周四对国会试图限制其战争权力的举动表示不满 —— 参议院已于当天下午否决了最新一项相关议案。
 
-会上宣布，首届太阳岛电影周将于8月6日至9日在哈尔滨举办，第七届成龙国际动作电影周将于8月10日至12日接续举办，以电影双周的形式在松花江畔打造盛夏光影盛宴。
+特朗普在椭圆形办公室对记者表示：“他们一而再、再而三地在战争权力问题上纠缠不休。
 
-据了解，自2015年创办以来，由成龙发起的成龙国际动作电影周已成功举办六届，为武行、替身、特技人等台前幕后的动作电影人提供舞台，成为国际动作电影领域最具价值的文化品牌之一。
+” 他补充道：“我正在与伊朗谈判达成协议，可他们每周、每三天就抛出一项要求停止战争的议案。
 
-今年八月，第七届成龙国际动作电影周将落户黑龙江省哈尔滨市，与首届太阳岛电影周皆为“哈尔滨之夏”系列电影活动。
+” 越战结束后通过的一项法律规定，未经国会授权动用军事力量的期限为 60 天。
 
-作为成龙国际动作电影周的发起人，演员成龙当日登台亮相，并发布本届成龙国际动作电影周主视觉海报以及奖杯造型。
+根据该法 ——《战争权力决议案》—— 的文本，对伊朗的战争将于 5 月 1 日达到 60 天期限，但国会内部对截止日期的确切日期存在分歧。
 
-据介绍，第七届成龙国际动作电影周的全新视觉形象设计由武汉设计工程学院成龙影视学院师生团队打造，用四种不同颜色的能量线条代表传承、敬佩、勇气、力量等动作电影精神，最终汇聚为一只属于动作电影人的手。
+部分议员称，60 天期限自敌对行动开始之日起算，因此截止日期为 4 月 29 日；另一些议员则援引法律文本，主张应从白宫正式通知国会当日起计算 60 个自然日，即截止日期为 5 月 1 日。
 
-现场，成龙将第七届成龙国际动作电影周签名海报捐赠给中国电影博物馆作为永久馆藏。
+还有共和党人认为，停火日不计入 60 天期限，或称特朗普可单方面将截止日期延长至 90 天。
 
-成龙国际动作电影周持续鼓励坚韧拼搏、勇于担当、精益求精的优秀动作电影人，树立行业榜样。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:35 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:26 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:43 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:23 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:33 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:29 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:23 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:24 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:31 - [中国版「星链」运营方启动新一轮增资，设50亿元投资门槛，明确拒绝境外资本，低轨卫星互联网为什么重要？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:38 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:32 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:35 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:26 - [宁夏银川：水上运动成民众假期户外社交“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:19 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:35 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:37 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:45 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:35 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:21 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:46 - [王毅同美国国务卿鲁比奥通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:35 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:19 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:36 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.kurohicncr.top/Article/details/5462308.shtml)
-- 2026-06-29 11:38 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/967592.shtml)
-- 2026-06-29 11:31 - [曾挑衅中国的立陶宛“生变”了](https://www.blog.kurohicncr.top/Article/details/14843.shtml)
-- 2026-06-29 11:31 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/76479.shtml)
-- 2026-06-29 11:28 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/0295217.shtml)
-- 2026-06-29 11:20 - [蒸了一锅妃子笑荔枝馒头](http://www.blog.kurohicncr.top/Article/details/79993278793.shtml)
-- 2026-06-29 11:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/625922.shtml)
-- 2026-06-29 11:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/96417.shtml)
-- 2026-06-29 11:23 - [温峥嵘直播回应恶评](http://www.share.kurohicncr.top/Article/details/49372538656.shtml)
-- 2026-06-29 11:44 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/75416518.shtml)
-- 2026-06-29 11:32 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/70893520.shtml)
-- 2026-06-29 11:26 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/45616452388.shtml)
-- 2026-06-29 11:21 - [加拿大队史淘汰赛首胜](http://www.share.minike.top/Article/details/90770077.shtml)
-- 2026-06-29 11:29 - [香港航天员黎家盈带招牌笑容工作](http://www.blog.kurohicncr.top/Article/details/527909257.shtml)
-- 2026-06-29 11:42 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/883371.shtml)
+- 2026-06-29 11:38 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](http://www.share.kurohicncr.top/Article/details/7874750244.shtml)
+- 2026-06-29 11:22 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](http://www.share.minike.top/Article/details/792663.shtml)
+- 2026-06-29 11:28 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](http://www.share.kurohicncr.top/Article/details/5404337.shtml)
+- 2026-06-29 11:27 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](http://www.blog.minike.top/Article/details/71354873.shtml)
+- 2026-06-29 11:24 - [体验多元！“影视+文旅”点亮“五一”假期](http://www.blog.kurohicncr.top/Article/details/050247234.shtml)
+- 2026-06-29 11:38 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](http://www.share.minike.top/Article/details/74248914756.shtml)
+- 2026-06-29 11:46 - [三星电子任命新的视觉显示业务负责人](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [朝鲜外务省：美国炒作朝鲜“网络威胁”是无稽之谈](http://www.blog.kurohicncr.top/Article/details/28814540989.shtml)
+- 2026-06-29 11:35 - [韩国特检组就金建希首案二审结果提出抗诉](http://www.blog.minike.top/Article/details/3598210233.shtml)
+- 2026-06-29 11:18 - [阿贝尔谈及自己与阿吉特・贾恩的继任规划](http://www.blog.minike.top/Article/details/724546951.shtml)
+- 2026-06-29 11:37 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [广西投资集团有限公司总经理刘明洪接受审查调查](http://www.blog.minike.top/Article/details/84798016.shtml)
+- 2026-06-29 11:24 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](http://www.blog.minike.top/Article/details/61058990.shtml)
+- 2026-06-29 11:35 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](http://www.share.kurohicncr.top/Article/details/456181463.shtml)
+- 2026-06-29 11:19 - [915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能](http://www.share.minike.top/Article/details/56532721.shtml)

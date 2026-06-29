@@ -1,51 +1,47 @@
-# 机器人登上车厢 黑龙江“插秧专列”赋能科技兴农再出发
+# 学习新语｜幸福属于劳动者
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月14日 11:02 来源：中国新闻网 5月13日，哈尔滨东开往抚远的K5153次“插秧专列”主题车厢里，一场别开生面的农机讲堂正式开课。 今年，中国铁路哈尔滨局集团有限公司联手北大荒农垦集团、黑龙江省农垦科学院，打造特色农业主题车厢，特邀农技专家现场讲解机械化插秧、农机运维等实操技能，助力务工人员实现技能升级。 据悉，自2000年起，中国铁路哈尔滨局集
+发布时间：2026年05月03日 11:26 来源：新华社 责任编辑：【姜媛媛】
 
 ## 正文
 
-发布时间：2026年05月14日 11:02 来源：中国新闻网 5月13日，哈尔滨东开往抚远的K5153次“插秧专列”主题车厢里，一场别开生面的农机讲堂正式开课。
-
-今年，中国铁路哈尔滨局集团有限公司联手北大荒农垦集团、黑龙江省农垦科学院，打造特色农业主题车厢，特邀农技专家现场讲解机械化插秧、农机运维等实操技能，助力务工人员实现技能升级。
-
-据悉，自2000年起，中国铁路哈尔滨局集团有限公司开行建三江、抚远方向插秧专列，27年来累计运送务工人员超190万人次，成为助力春耕的“民生专列”。
-
-(制作 赵宇航） 责任编辑：【李季】
+发布时间：2026年05月03日 11:26 来源：新华社 责任编辑：【姜媛媛】
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:32 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:19 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:36 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:43 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:32 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:30 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:21 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:42 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:23 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:46 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:48 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:30 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:47 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:31 - [以更大力度更实举措加强基础研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:43 - [日元保卫战或一触即发 日本财相警告“时机临近”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:33 - [埃克森CEO对委内瑞拉态度转变 此前曾批评该国“不可投资”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:19 - [民警一声“快来帮忙”，整座桥上的人都来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:21 - [英特尔收购Sambanova获美国反垄断批准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:38 - [北约秘书长：北约欧洲国家听懂特朗普的话了 正落实美军请求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:47 - [一见·加强基础研究，总书记强调这个关键因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:36 - [亚马逊业绩超预期，AWS重新加速增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:30 - [亚马逊：受损阿联酋云区域恢复需数月时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:38 - [乡村“发明家”让“手搓”坚果打磨机走向世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:23 - [习近平总书记同劳动者在一起的故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:31 - [维珍澳大利亚航空或将航班削减措施延续至第三季度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:47 - [四川遂宁龙凤古镇“五一”假期首日人气旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [F1奥地利正赛战报](https://www.share.kurohicncr.top/Article/details/903855.shtml)
-- 2026-06-29 11:45 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/1017689693.shtml)
-- 2026-06-29 11:31 - [特里：法国是世界杯夺冠热门](https://www.share.kurohicncr.top/Article/details/533228304851.shtml)
-- 2026-06-29 11:27 - [虞书欣灿如繁星明天定档](https://www.share.kurohicncr.top/Article/details/7303115355.shtml)
-- 2026-06-29 11:45 - [温瑞博袁励岑晋级美国大满贯男双16强](https://www.blog.minike.top/Article/details/547802746005.shtml)
-- 2026-06-29 11:43 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/0041980.shtml)
-- 2026-06-29 11:22 - [急先锋](https://www.blog.minike.top/Article/details/46915196.shtml)
-- 2026-06-29 11:46 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.share.kurohicncr.top/Article/details/447420208.shtml)
-- 2026-06-29 11:24 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/88629039879.shtml)
-- 2026-06-29 11:36 - [神23乘组太空出差满月](https://www.blog.minike.top/Article/details/22560.shtml)
-- 2026-06-29 11:20 - [吴昕要助理买的药6年前已停产](http://www.share.kurohicncr.top/Article/details/73660915338.shtml)
-- 2026-06-29 11:28 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.minike.top/Article/details/6522829.shtml)
-- 2026-06-29 11:45 - [一生一世](http://www.share.kurohicncr.top/Article/details/149411.shtml)
-- 2026-06-29 11:37 - [委内瑞拉地震死亡人数升至1450人](https://www.blog.kurohicncr.top/Article/details/481944092.shtml)
-- 2026-06-29 11:42 - [1年内值得期待的12大游戏](http://www.share.minike.top/Article/details/13565709638.shtml)
+- 2026-06-29 11:28 - [AI浪潮里的“模速青年”：勇敢追梦，让年轻有“模”有样](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [巴西国家石油公司宣布航空煤油提价18%](http://www.blog.minike.top/Article/details/0560283.shtml)
+- 2026-06-29 11:43 - [马里一军营被武装组织控制 首都周边交通受阻](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [伯克希尔一季度利润翻倍以上 保险、铁路、能源业务提振业绩](http://www.share.minike.top/Article/details/54965443516.shtml)
+- 2026-06-29 11:31 - [Vulcan Materials一季度营收超预期 因建材需求强劲](http://www.blog.kurohicncr.top/Article/details/98755569276.shtml)
+- 2026-06-29 11:20 - [巴菲特：当前并非伯克希尔理想的投资环境](http://www.blog.kurohicncr.top/Article/details/1349076.shtml)
+- 2026-06-29 11:38 - [5月1日全社会跨区域人员流动量预计超3.4亿人次](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [见证历史！伯克希尔现金储备近3万亿！95岁巴菲特正式“退役”，阿贝尔：不会为了AI而AI](http://www.share.minike.top/Article/details/1417092358.shtml)
+- 2026-06-29 11:20 - [专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默](http://www.blog.minike.top/Article/details/49001.shtml)
+- 2026-06-29 11:19 - [【小新的Vlog】探访藏在四川深山里的“白衣飘飘” 邂逅漫山“植物活化石”](http://www.blog.minike.top/Article/details/18744.shtml)
+- 2026-06-29 11:43 - [存储巨头业绩股价双炸裂，利润最高涨超7倍，股价年涨幅最高35倍](http://www.blog.kurohicncr.top/Article/details/296820049.shtml)
+- 2026-06-29 11:20 - [直击巴菲特股东会｜对话巴菲特旗下分公司高管：巴菲特和格雷格信任每一位经理](http://www.share.minike.top/Article/details/910530288.shtml)
+- 2026-06-29 11:44 - [数据中心需求强劲，开利第一季度利润超预期](http://www.share.minike.top/Article/details/78835100154.shtml)
+- 2026-06-29 11:31 - [观界江 品鱼鲜 “中国第一龙乡”嘉荫开江活动引游人](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [“五一” 假期拉萨市民山谷过林卡 乐享假日时光](http://www.blog.minike.top/Article/details/0091950443.shtml)

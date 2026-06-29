@@ -1,55 +1,57 @@
-# 英国大使邮轮公司一邮轮发生诺如病毒感染事件
+# 港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网5月14日电 据英国广播公司(BBC)14日报道，由英国大使邮轮公司运营的“雄心”号邮轮因暴发诺如病毒感染滞留法国，目前部分乘客已获准下船。此前因49人出现胃肠感染症状，超过1000名乘客被滞留在法国波尔多市。法国当局表示，无症状乘客获准离船，邮轮公司补充称将恢复常规行程，包括岸上观光活动。法国当局补充称，感染者仍需继续接受隔离，“同时船上将加强预防措施和卫生防疫流程”。
+港股半导体股盘初集体走强，天数智芯大涨17%，澜起科技涨超9%，爱芯元智涨超8%，兆易创新、英诺赛科涨超5%，中芯国际、上海复旦涨超4%。 消息面上，国产算力芯片企业迎来业绩兑现关键期。据财联社报道，寒武纪、海光信息、摩尔线程、沐曦股份已悉数披露2026年一季度财报，壁仞科技、天数智芯暂未披露一季报数据。数据显示，寒武纪、摩尔线程营收同比增速均超150%，海光信息一季度营收突破
 
 ## 正文
 
-中新网5月14日电 据英国广播公司(BBC)14日报道，由英国大使邮轮公司运营的“雄心”号邮轮因暴发诺如病毒感染滞留法国，目前部分乘客已获准下船。
+港股半导体股盘初集体走强，天数智芯大涨17%，澜起科技涨超9%，爱芯元智涨超8%，兆易创新、英诺赛科涨超5%，中芯国际、上海复旦涨超4%。
 
-此前因49人出现胃肠感染症状，超过1000名乘客被滞留在法国波尔多市。
+消息面上，国产算力芯片企业迎来业绩兑现关键期。
 
-法国当局表示，无症状乘客获准离船，邮轮公司补充称将恢复常规行程，包括岸上观光活动。
+据财联社报道，寒武纪、海光信息、摩尔线程、沐曦股份已悉数披露2026年一季度财报，壁仞科技、天数智芯暂未披露一季报数据。
 
-法国当局补充称，感染者仍需继续接受隔离，“同时船上将加强预防措施和卫生防疫流程”。
+数据显示，寒武纪、摩尔线程营收同比增速均超150%，海光信息一季度营收突破40亿元，行业高景气度持续验证。
 
-波尔多卫生部门13日晚间发布的最新通报称，样本检测结果证实了诺如病毒感染，该病毒可通过人际接触或环境传播。
+值得注意的是，DeepSeek此前发布新一代旗舰大模型DeepSeek-V4并开源。
 
-目前尚未报告严重病例。
+东方证券认为，DeepSeek-V4的强大性能与高性价比将大幅提升国产模型全球竞争力，有望以低成本供给显著拉动AI应用需求，进而带动国产算力芯片及半导体设备产业链的景气上行。
+
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:26 - [重生赛伊德04](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:30 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:23 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:29 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:28 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:33 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:34 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:39 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:44 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:23 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:39 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:31 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:33 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:30 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:38 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:29 - [海南商业航天重点项目加速建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:34 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:20 - [美官员：美军“福特”号航母已离开中东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:40 - [水利部滚动会商部署“五一”假期期间防汛工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:28 - [孟加拉国外交部长卡利勒将访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:25 - [巴菲特深度伪造视频，带来一场出人意料的AI风险警示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:24 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:30 - [网信部门严管“自媒体”未规范标注信息来源行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:19 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:38 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:38 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/4212536726.shtml)
-- 2026-06-29 11:28 - [2025年人口增长10强城市出炉](http://www.blog.kurohicncr.top/Article/details/25557619320.shtml)
-- 2026-06-29 11:21 - [韩媒称韩国队遭中国网民嘲讽](http://www.blog.minike.top/Article/details/49231702714.shtml)
-- 2026-06-29 11:38 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/851633317.shtml)
-- 2026-06-29 11:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/683860408.shtml)
-- 2026-06-29 11:42 - [老虎瘦成纸片还吃草 园方回应](https://www.share.minike.top/Article/details/54747364.shtml)
-- 2026-06-29 11:47 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.blog.kurohicncr.top/Article/details/9049028765.shtml)
-- 2026-06-29 11:19 - [球迷玩人浪手机飞了](http://www.share.kurohicncr.top/Article/details/70109.shtml)
-- 2026-06-29 11:43 - [日本和澳大利亚能代表亚洲足球走多远](http://www.share.minike.top/Article/details/46737533.shtml)
-- 2026-06-29 11:32 - [詹姆斯下赛季会在哪里](https://www.share.minike.top/Article/details/273671075394.shtml)
-- 2026-06-29 11:45 - [细节之中抓作风](https://www.share.kurohicncr.top/Article/details/4833720414.shtml)
-- 2026-06-29 11:47 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.blog.minike.top/Article/details/977639216.shtml)
-- 2026-06-29 11:19 - [黄博文：坚持这样打下去会成强队](http://www.blog.minike.top/Article/details/7410903.shtml)
-- 2026-06-29 11:42 - [拄拐少年高考663分：用行动回报社会](http://www.share.minike.top/Article/details/009599.shtml)
-- 2026-06-29 11:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/509604614213.shtml)
+- 2026-06-29 11:42 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](http://www.blog.minike.top/Article/details/753610878.shtml)
+- 2026-06-29 11:25 - [广西投资集团有限公司总经理刘明洪接受审查调查](http://www.share.minike.top/Article/details/291997.shtml)
+- 2026-06-29 11:21 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](http://www.blog.minike.top/Article/details/7675797712.shtml)
+- 2026-06-29 11:30 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](http://www.share.minike.top/Article/details/02323917597.shtml)
+- 2026-06-29 11:46 - [915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能](http://www.share.kurohicncr.top/Article/details/547922.shtml)
+- 2026-06-29 11:31 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](http://www.share.kurohicncr.top/Article/details/061410218.shtml)
+- 2026-06-29 11:26 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [渤海人寿获批增加注册资本至16.87亿元](http://www.blog.kurohicncr.top/Article/details/483754802.shtml)
+- 2026-06-29 11:35 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](http://www.blog.kurohicncr.top/Article/details/3559359.shtml)
+- 2026-06-29 11:18 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](http://www.blog.minike.top/Article/details/773810.shtml)
+- 2026-06-29 11:37 - [台湾宜兰县海域发生6.1级地震](http://www.blog.kurohicncr.top/Article/details/5294421245.shtml)
+- 2026-06-29 11:44 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [广交会观察：全球采购商寻“鲜”中国美食](http://www.blog.minike.top/Article/details/435621.shtml)
+- 2026-06-29 11:37 - [新加坡外国存款创历史新高 避险需求激增](http://www.blog.kurohicncr.top/Article/details/8618170861.shtml)

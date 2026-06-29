@@ -1,59 +1,48 @@
-# 软银愿景基金获利460亿美元，主要由重仓OpenAI投资收益拉动
+# 内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-核心要点 软银旗下愿景基金年度录得460 亿美元收益，核心驱动力来自其对 OpenAI 投资价值的暴涨。 这家日本企业已向 OpenAI 投资超300 亿美元；在截至 3 月的财年内，仅 OpenAI 一项就为软银带来450 亿美元投资浮盈。 在截至 3 月底的三个月里，愿景基金获利约200 亿美元，收益几乎全部由 OpenAI 贡献；与此同时，软银在酷澎、滴滴全球、克拉纳等其
+内房股早盘集体上涨，截至发稿，万科企业（02202）上涨10.03%，报3.29港元；融信中国（03301）上涨6.93%，报0.108港元；富力地产（02777）上涨5.56%，报0.38港元；中国海外发展（00688）上涨3.31%，报13.72港元。责任编辑：卢昱君
 
 ## 正文
 
-核心要点 软银旗下愿景基金年度录得460 亿美元收益，核心驱动力来自其对 OpenAI 投资价值的暴涨。
+内房股早盘集体上涨，截至发稿，万科企业（02202）上涨10.03%，报3.29港元；融信中国（03301）上涨6.93%，报0.108港元；富力地产（02777）上涨5.56%，报0.38港元；中国海外发展（00688）上涨3.31%，报13.72港元。
 
-这家日本企业已向 OpenAI 投资超300 亿美元；在截至 3 月的财年内，仅 OpenAI 一项就为软银带来450 亿美元投资浮盈。
-
-在截至 3 月底的三个月里，愿景基金获利约200 亿美元，收益几乎全部由 OpenAI 贡献；与此同时，软银在酷澎、滴滴全球、克拉纳等其他投资标的上均出现亏损。
-
-软银正力求置身人工智能热潮核心，布局多家人工智能与芯片企业，而山姆・奥尔特曼执掌的 OpenAI 是其布局的核心支柱。
-
-软银今年 2 月表示，已承诺向 OpenAI 累计投资超600 亿美元，完成后将持有该公司约 **13%** 股份，目前已有超 300 亿美元资金完成投入。
-
-今年 3 月，OpenAI 完成一轮由软银联合领投的融资，投后估值达8520 亿美元；尽管公司正面临谷歌、Anthropic 等竞争对手的激烈角逐。
-
-虽然 OpenAI 估值飙升推高了软银愿景基金收益，但投资组合高度集中于 OpenAI，也令市场担忧其债务压力。
-
-标普全球评级已于 3 月将软银评级展望从稳定下调至负面。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:32 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:23 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:45 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:38 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:26 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:27 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:44 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:45 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:22 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:23 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:39 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:26 - [西藏昌都文旅资源亮相天津 多项合作签约落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:29 - [埃克森美孚与雪佛龙无视特朗普政府增产呼吁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:31 - [钠电池迎来历史性拐点！业绩报喜概念股出炉，4股市盈率不到30倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:39 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:38 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:34 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:39 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:19 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:25 - [一觉醒来，美国对欧洲下狠手了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:30 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:21 - [学习新语｜幸福属于劳动者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:32 - [刚刚，全线大涨！日本，突然动手了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:43 - [“五一”假期，中国游中国购的引力“藏不住了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:36 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [刘宇宁现偶我就不要了](http://www.share.minike.top/Article/details/4423177.shtml)
-- 2026-06-29 11:44 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/0424186423.shtml)
-- 2026-06-29 11:21 - [委内瑞拉地震死亡人数升至1450人](http://www.blog.minike.top/Article/details/49541363.shtml)
-- 2026-06-29 11:19 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/751611.shtml)
-- 2026-06-29 11:21 - [2025年人口增长10强城市出炉](https://www.share.minike.top/Article/details/85843.shtml)
-- 2026-06-29 11:27 - [速度与激情9](http://www.share.minike.top/Article/details/6077319194.shtml)
-- 2026-06-29 11:48 - [恋与深空女玩家不该被冒犯](https://www.share.kurohicncr.top/Article/details/733365273.shtml)
-- 2026-06-29 11:34 - [韩红携4000万物资抵呼和浩特](https://www.blog.kurohicncr.top/Article/details/45156.shtml)
-- 2026-06-29 11:42 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/6012759142.shtml)
-- 2026-06-29 11:21 - [2026年Mac能玩游戏了吗](http://www.blog.kurohicncr.top/Article/details/7101996641.shtml)
-- 2026-06-29 11:28 - [日本和澳大利亚能代表亚洲足球走多远](http://www.blog.minike.top/Article/details/634226.shtml)
-- 2026-06-29 11:22 - [向佑说向佐是一生依靠](http://www.blog.kurohicncr.top/Article/details/7770254.shtml)
-- 2026-06-29 11:27 - [扬名立万](http://www.blog.minike.top/Article/details/974785.shtml)
-- 2026-06-29 11:38 - [南非门将单场77次成功传球](http://www.share.kurohicncr.top/Article/details/252257097.shtml)
-- 2026-06-29 11:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/07313882652.shtml)
+- 2026-06-29 11:18 - [以防长：以色列或“很快”对伊朗“再次采取行动”](http://www.share.kurohicncr.top/Article/details/3676471452.shtml)
+- 2026-06-29 11:43 - [【追光的你】习言道｜追求进步是青年最宝贵的特质](http://www.share.minike.top/Article/details/741571059280.shtml)
+- 2026-06-29 11:47 - [香港清华同学会成立70周年峰会在港举办](http://www.blog.kurohicncr.top/Article/details/275613736.shtml)
+- 2026-06-29 11:26 - [美国得克萨斯州发生枪击事件 致2死10伤](http://www.blog.minike.top/Article/details/55091476482.shtml)
+- 2026-06-29 11:44 - [一杯清香里的世界连接：青花汾酒走进全球投资者的感官与记忆](http://www.blog.kurohicncr.top/Article/details/044619.shtml)
+- 2026-06-29 11:35 - [宁夏银川：咖啡遇上音乐 “五一”假期解锁文旅休闲新场景](http://www.blog.kurohicncr.top/Article/details/0897101.shtml)
+- 2026-06-29 11:33 - [马斯克2025年特斯拉薪酬总额达1580亿美元](http://www.share.kurohicncr.top/Article/details/696037097.shtml)
+- 2026-06-29 11:32 - [挪威油企与工会谈判破裂，拟通过调解避免罢工及产量中断](http://www.blog.kurohicncr.top/Article/details/784846.shtml)
+- 2026-06-29 11:26 - [漳汕高铁广东段山家特大桥首梁架设](http://www.share.kurohicncr.top/Article/details/87375661.shtml)
+- 2026-06-29 11:27 - [“金融国家队”为何选中了他们](http://www.share.minike.top/Article/details/60071087.shtml)
+- 2026-06-29 11:31 - [ASMPT早盘高开逾4% 建银国际将目标价上调至190港元](http://www.blog.minike.top/Article/details/50522.shtml)
+- 2026-06-29 11:45 - [“五一”假期首日广东水上出行迎来客流高峰](http://www.blog.kurohicncr.top/Article/details/8934725.shtml)
+- 2026-06-29 11:21 - [关于开展2026年企业ESG实践成果展示活动的通知](http://www.blog.kurohicncr.top/Article/details/24233212814.shtml)
+- 2026-06-29 11:42 - [干预数小时后 日元兑美元汇率大幅上涨](http://www.share.kurohicncr.top/Article/details/867726.shtml)
+- 2026-06-29 11:46 - [“苏超”南京赛区志愿者暖心护航 宁马青年聚力绽放青春力量](http://www.share.kurohicncr.top/Article/details/63182270.shtml)

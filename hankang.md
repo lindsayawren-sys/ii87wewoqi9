@@ -1,60 +1,61 @@
-# 美国暂停新家庭护理和临终关怀服务提供商的“联邦医疗保险”注册
+# 安徽南陵失联18岁少年遗体被找到 警方排除刑事案件
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-据美国政府医疗保险和医疗补助服务中心周三发布的声明称，鉴于对欺诈行为泛滥的担忧，特朗普政府将至少在未来六个月内禁止新的家庭医疗保健和临终关怀服务提供商注册加入联邦医疗保险。 这项暂停令将暂时禁止上述类别的新服务提供商向“联邦医疗保险”申请报销。该计划是美国政府为65岁及以上老年人及残障人士提供的医疗保险项目。负责监管该计划的联邦医疗保险和医疗补助服务中心表示，此举不会影响已注册
+中新网合肥5月1日电 (记者 赵强)安徽省芜湖市南陵县公安局1日发布警情通报，此前失联多日的18岁少年周某已被找到，遗体在当地一山林深处被发现。经现场勘查及法医检验，警方已排除刑事案件可能。 通报称，4月21日，南陵县公安局接到孙某某报警称，其儿子周某(男，18周岁)于4月20日早上离家出走后失联。接报后，该局立即组织开展搜寻，并联合消防救援部门、属地镇及社会救援力量，围绕失联
 
 ## 正文
 
-据美国政府医疗保险和医疗补助服务中心周三发布的声明称，鉴于对欺诈行为泛滥的担忧，特朗普政府将至少在未来六个月内禁止新的家庭医疗保健和临终关怀服务提供商注册加入联邦医疗保险。
+中新网合肥5月1日电 (记者 赵强)安徽省芜湖市南陵县公安局1日发布警情通报，此前失联多日的18岁少年周某已被找到，遗体在当地一山林深处被发现。
 
-这项暂停令将暂时禁止上述类别的新服务提供商向“联邦医疗保险”申请报销。
+经现场勘查及法医检验，警方已排除刑事案件可能。
 
-该计划是美国政府为65岁及以上老年人及残障人士提供的医疗保险项目。
+通报称，4月21日，南陵县公安局接到孙某某报警称，其儿子周某(男，18周岁)于4月20日早上离家出走后失联。
 
-负责监管该计划的联邦医疗保险和医疗补助服务中心表示，此举不会影响已注册“联邦医疗保险”的服务提供商。
+接报后，该局立即组织开展搜寻，并联合消防救援部门、属地镇及社会救援力量，围绕失联区域持续开展搜寻。
 
-这是副总统万斯领导的反欺诈工作组为打击医疗保健诈骗所采取的最新举措。
+经连续工作，5月1日上午10时许，联合搜寻组在何湾镇涧西村周边山体密林深处灌木丛中发现一具遗体。
 
-多年来，美国政府一直致力于解决Medicare向临终关怀和家庭医疗服务提供商支付的欺诈性款项问题。
+经辨认，确认死者系失联人员周某。
 
-诈骗分子会就患者不需要或不想要的服务向联邦医疗保险报销，从而从美国政府手中骗取数百万美元。
+经公安机关现场勘查、法医检验，已排除刑事案件。
 
-全国性反欺诈组织“老年人联邦医疗保险巡逻队”已就该问题多次发布警示。
+目前，相关善后处置工作正在有序推进。
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:24 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:32 - [1年内值得期待的12大游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:46 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:40 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:46 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:41 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:19 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:34 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:38 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:28 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:25 - [为何加快“扩编”成欧盟战略要务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:46 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:37 - [英特尔收购Sambanova获美国反垄断批准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:29 - [北约秘书长：北约欧洲国家听懂特朗普的话了 正落实美军请求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:24 - [一见·加强基础研究，总书记强调这个关键因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:41 - [亚马逊业绩超预期，AWS重新加速增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:25 - [亚马逊：受损阿联酋云区域恢复需数月时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:46 - [乡村“发明家”让“手搓”坚果打磨机走向世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:34 - [习近平总书记同劳动者在一起的故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:18 - [维珍澳大利亚航空或将航班削减措施延续至第三季度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:42 - [四川遂宁龙凤古镇“五一”假期首日人气旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:39 - [抓住机遇，以更大力度更实举措加强基础研究——论学习贯彻习近平总书记在加强基础研究座谈会上重要讲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:23 - [有关伊朗的报道发布后油价下跌 美国国债升至日内高点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:45 - [国铁广州局“五一”假期预计发送旅客2277万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:46 - [“中文热是中国发展成就最好的印证”——访俄罗斯伊尔库茨克国立大学孔院俄方院长拜拉莫娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:39 - [玉浦高速公路200余名建设者“五一”不打烊 铺筑发展快车道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:18 - [关税退税提振利润难掩现金流疲软，Stellantis股价重挫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [三只羊大杨哥不直播改卖课](https://www.blog.kurohicncr.top/Article/details/38882102.shtml)
-- 2026-06-29 11:33 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.blog.kurohicncr.top/Article/details/655498713.shtml)
-- 2026-06-29 11:22 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/973559738.shtml)
-- 2026-06-29 11:44 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/58418.shtml)
-- 2026-06-29 11:20 - [立陶宛为何此时生变](http://www.blog.minike.top/Article/details/590272489859.shtml)
-- 2026-06-29 11:44 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/1809462.shtml)
-- 2026-06-29 11:48 - [宜宾5.5级地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/31783286044.shtml)
-- 2026-06-29 11:25 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/7347833459.shtml)
-- 2026-06-29 11:24 - [2026年Mac能玩游戏了吗](https://www.share.minike.top/Article/details/0550384.shtml)
-- 2026-06-29 11:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/4471295781.shtml)
-- 2026-06-29 11:37 - [1年内值得期待的12大游戏](https://www.share.minike.top/Article/details/003039337.shtml)
-- 2026-06-29 11:22 - [男子在家全裸被邻居拍照发业主群](https://www.share.kurohicncr.top/Article/details/564792.shtml)
-- 2026-06-29 11:19 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/83640862171.shtml)
-- 2026-06-29 11:20 - [女心理师](http://www.share.minike.top/Article/details/7225543.shtml)
-- 2026-06-29 11:37 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.minike.top/Article/details/41280.shtml)
+- 2026-06-29 11:23 - [5月1日全社会跨区域人员流动量预计超3.4亿人次](http://www.blog.minike.top/Article/details/9420562591.shtml)
+- 2026-06-29 11:22 - [见证历史！伯克希尔现金储备近3万亿！95岁巴菲特正式“退役”，阿贝尔：不会为了AI而AI](http://www.share.minike.top/Article/details/78449215454.shtml)
+- 2026-06-29 11:29 - [专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [【小新的Vlog】探访藏在四川深山里的“白衣飘飘” 邂逅漫山“植物活化石”](http://www.share.minike.top/Article/details/29480.shtml)
+- 2026-06-29 11:26 - [存储巨头业绩股价双炸裂，利润最高涨超7倍，股价年涨幅最高35倍](http://www.share.kurohicncr.top/Article/details/79649356326.shtml)
+- 2026-06-29 11:40 - [直击巴菲特股东会｜对话巴菲特旗下分公司高管：巴菲特和格雷格信任每一位经理](http://www.blog.minike.top/Article/details/45145316.shtml)
+- 2026-06-29 11:27 - [数据中心需求强劲，开利第一季度利润超预期](http://www.share.minike.top/Article/details/18938.shtml)
+- 2026-06-29 11:18 - [观界江 品鱼鲜 “中国第一龙乡”嘉荫开江活动引游人](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [“五一” 假期拉萨市民山谷过林卡 乐享假日时光](http://www.share.minike.top/Article/details/6667184.shtml)
+- 2026-06-29 11:20 - [江苏海警局联合多部门启动2026年海洋伏季休渔专项执法行动](http://www.share.minike.top/Article/details/4366812641.shtml)
+- 2026-06-29 11:40 - [Semafor：特朗普将签署行政命令 扩大退休计划的覆盖范围](http://www.share.kurohicncr.top/Article/details/1700002074.shtml)
+- 2026-06-29 11:45 - [第九届数字中国建设峰会：数字科技吸引参观者](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [阿瑞斯投资管理募资创纪录 营收同比走高](http://www.blog.minike.top/Article/details/757555.shtml)
+- 2026-06-29 11:30 - [美联储古尔斯比：上周会议上的不同意见凸显前瞻性指引的复杂性](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [“五一”叠加春假催热消费 各地加大节日市场供应](http://www.share.minike.top/Article/details/82059010245.shtml)

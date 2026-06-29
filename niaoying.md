@@ -1,60 +1,58 @@
-# 泰格医药董事长、总经理被立案！兴全基金押注2097万股在赌什么？
+# 文旅观察：浙江乡村“土味”玩法引领消费新潮流
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 作者 | 付影 来源 | 独角金融 国内临床CRO龙头泰格医药（300347.SZ；3347.HK）因涉嫌持股变动相关信息披露违法违规，董事长叶小平和总经理曹晓春被立案。这是泰格医药5月12日晚发生的事，次日开盘A股和H股股价双双跳水，A股收报49.09元/股，下跌4.74%；H股收报36.12港元/股，跌幅达5%。 值得关注的
+中新网宁波5月2日电(林波)5月2日，在浙江省宁波市奉化区裘村镇翔鹤潭村的“渔光营地·大浪钓场”，9岁的小游客陈励志拿着钓竿观察着水面动静，只见浮漂猛地一沉，他迅速扬竿，一道银弧划破水面，一只将近成人手掌长的虾被凌空甩上了岸。“哇，爸爸你看，我钓上了一只超大的虾！” “我们白天举行‘钓虾挑战赛’，让游客现场比拼钓虾技巧；傍晚开启‘落日烧烤派对’，提供罗氏虾现钓现烤服务等。”该营
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 作者 | 付影 来源 | 独角金融 国内临床CRO龙头泰格医药（300347.SZ；3347.HK）因涉嫌持股变动相关信息披露违法违规，董事长叶小平和总经理曹晓春被立案。
+中新网宁波5月2日电(林波)5月2日，在浙江省宁波市奉化区裘村镇翔鹤潭村的“渔光营地·大浪钓场”，9岁的小游客陈励志拿着钓竿观察着水面动静，只见浮漂猛地一沉，他迅速扬竿，一道银弧划破水面，一只将近成人手掌长的虾被凌空甩上了岸。
 
-这是泰格医药5月12日晚发生的事，次日开盘A股和H股股价双双跳水，A股收报49.09元/股，下跌4.74%；H股收报36.12港元/股，跌幅达5%。
+“哇，爸爸你看，我钓上了一只超大的虾！
 
-值得关注的是，有机构在一季度买成了泰格医药前十大流通股东。
+” “我们白天举行‘钓虾挑战赛’，让游客现场比拼钓虾技巧；傍晚开启‘落日烧烤派对’，提供罗氏虾现钓现烤服务等。
 
-2026年一季报显示，兴证全球基金管理有限公司（下称“兴全基金”）旗下两只混合基金，兴全商业模式和兴全合润双双新进泰格医药前十大流通股东，合计持股近2097万股。
+”该营地运营负责人毛祎瑢介绍。
 
-而同期，中欧医疗健康减持14.2%。
+这是浙江假期乡村“土味”玩法吸引亲子家庭的剪影。
 
-一边是实控人涉嫌违规暗雷未爆，一边是兴全基金两位管理规模均超百亿的基金经理谢治宇、乔迁联手抄底，这场博弈是看到了不同的机会，还是一次对风险的误判？
+与往年游客偏爱热门景区不同，在“五一”假期期间，摸鱼、钓虾、土窑烤鸡等充满“泥土芬芳”的消费业态，成为引领假日潮流的新“顶流”。
 
-1 泰格医药2位实控人被立案， 谢治宇、乔迁一季度“逆势”抄底 5月12日晚间，泰格医药公告称，公司实际控制人叶小平、总经理曹晓春于2026年5月12日收到证监会《立案告知书》，因涉嫌持股变动相关信息披露违法违规，证监会决定对二人立案。
+走进浙江省衢州市常山县新昌乡郭塘村，此起彼伏的欢笑声和惊呼声打破了乡村的宁静。
 
-图源：罐头图库 次日，公司迅速推出回购方案。
+在一方刚刚抽干水的池塘里，数十名孩子卷起裤腿、光着脚丫，正沉浸在一场“浑水摸鱼”大作战中。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:33 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:32 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:21 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:42 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:23 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:44 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:46 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:27 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:41 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:25 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:44 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:28 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:29 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:46 - [重庆新开往返菲律宾马尼拉客运航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:43 - [新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:45 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:47 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:39 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:37 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:46 - [体验多元！“影视+文旅”点亮“五一”假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:32 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:31 - [三星电子任命新的视觉显示业务负责人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:44 - [朝鲜外务省：美国炒作朝鲜“网络威胁”是无稽之谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:37 - [韩国特检组就金建希首案二审结果提出抗诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [韩国拟将部分刑责年龄降至13岁](http://www.blog.minike.top/Article/details/879975811038.shtml)
-- 2026-06-29 11:27 - [陈靖可虞书欣领衔主演](https://www.share.minike.top/Article/details/092671896.shtml)
-- 2026-06-29 11:27 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.minike.top/Article/details/852640886291.shtml)
-- 2026-06-29 11:38 - [1年内值得期待的12大游戏](http://www.blog.kurohicncr.top/Article/details/110169.shtml)
-- 2026-06-29 11:39 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/617574888.shtml)
-- 2026-06-29 11:34 - [女子遭家暴两次起诉离婚均被驳回](http://www.share.minike.top/Article/details/624450.shtml)
-- 2026-06-29 11:22 - [中气爱：吐鲁番快50度了](https://www.blog.kurohicncr.top/Article/details/54647137.shtml)
-- 2026-06-29 11:36 - [2025年人口增长10强城市出炉](https://www.share.minike.top/Article/details/16176.shtml)
-- 2026-06-29 11:27 - [某高校学生被辅导员等人扭送至公安](http://www.blog.kurohicncr.top/Article/details/3949808.shtml)
-- 2026-06-29 11:27 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/00276767796.shtml)
-- 2026-06-29 11:22 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/610350529.shtml)
-- 2026-06-29 11:42 - [105年初心滚烫](http://www.blog.minike.top/Article/details/5564038416.shtml)
-- 2026-06-29 11:37 - [换个角度打开世界杯淘汰赛](http://www.blog.kurohicncr.top/Article/details/587384980720.shtml)
-- 2026-06-29 11:32 - [记者率先试乘西十高铁](http://www.share.minike.top/Article/details/1632128574.shtml)
-- 2026-06-29 11:41 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](http://www.share.minike.top/Article/details/065116769910.shtml)
+- 2026-06-29 11:23 - [数万日本民众举行集会 呼吁守护和平宪法](http://www.blog.kurohicncr.top/Article/details/862152067381.shtml)
+- 2026-06-29 11:39 - [在香港沉浸式“邂逅”蒙娜丽莎](http://www.share.minike.top/Article/details/94712.shtml)
+- 2026-06-29 11:37 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [中国奥园委聘毕马威咨询(香港)为财务顾问](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕](http://www.share.kurohicncr.top/Article/details/8647841395.shtml)
+- 2026-06-29 11:33 - [欧洲央行维持存款利率在2.00%不变 符合预期](http://www.share.kurohicncr.top/Article/details/2595697706.shtml)
+- 2026-06-29 11:42 - [暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [5月4日中国跨区域人员流动量预计超2.9亿人次](http://www.blog.kurohicncr.top/Article/details/74089062.shtml)
+- 2026-06-29 11:20 - [内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%](http://www.share.kurohicncr.top/Article/details/91381.shtml)
+- 2026-06-29 11:27 - [东西问丨杜方绥：中国文学何以打动世界读者？](http://www.share.kurohicncr.top/Article/details/98636404831.shtml)
+- 2026-06-29 11:25 - [东京通胀进一步降温 支撑日本央行加息谨慎立场](http://www.blog.minike.top/Article/details/7805023.shtml)
+- 2026-06-29 11:43 - [亚马逊AWS营收增长28%，达到376亿美元](http://www.blog.kurohicncr.top/Article/details/855611.shtml)
+- 2026-06-29 11:39 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [刚刚，利好来了！上海，重磅出手！](http://www.share.minike.top/Article/details/348407.shtml)
+- 2026-06-29 11:30 - [3月核心通胀率升至3.2%，一季度经济增速仅2%不及预期](http://www.share.kurohicncr.top/Article/details/0178477675.shtml)

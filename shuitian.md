@@ -1,58 +1,61 @@
-# “海南鲜品”品牌效应显现：企业拓市场 农户增收益
+# 市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网海口5月13日电 (记者 王晓斌)做了多年糟粕醋的“醋理大师”，今年一季度销售额同比增长了20%，还为全国45家五星级酒店供货。这家海南文昌市级非遗传承品牌的变化，发生在获得“海南鲜品”授权之后。 记者近日从海南省农业农村厅了解到，“海南鲜品”区域公用品牌建设推进一年多来，一批授权企业在市场拓展方面取得积极进展，订单农业、标准认证、全链条溯源等配套措施同步落地，品牌对产业
+新华社北京4月30日电 题：市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展 新华社记者叶昊鸣 中国物流与采购联合会日前公布今年前3个月我国物流运行数据。一季度，全国社会物流总额96.4万亿元，按可比价格计算，同比增长6.2%，增速较2025年全年、2025年同期分别提高1.1和0.5个百分点。物流运行稳中有进、平稳有序。 一季度，我国工业品物流总额同比增长5.
 
 ## 正文
 
-中新网海口5月13日电 (记者 王晓斌)做了多年糟粕醋的“醋理大师”，今年一季度销售额同比增长了20%，还为全国45家五星级酒店供货。
+新华社北京4月30日电 题：市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展 新华社记者叶昊鸣 中国物流与采购联合会日前公布今年前3个月我国物流运行数据。
 
-这家海南文昌市级非遗传承品牌的变化，发生在获得“海南鲜品”授权之后。
+一季度，全国社会物流总额96.4万亿元，按可比价格计算，同比增长6.2%，增速较2025年全年、2025年同期分别提高1.1和0.5个百分点。
 
-记者近日从海南省农业农村厅了解到，“海南鲜品”区域公用品牌建设推进一年多来，一批授权企业在市场拓展方面取得积极进展，订单农业、标准认证、全链条溯源等配套措施同步落地，品牌对产业上下游的带动效应逐步显现。
+物流运行稳中有进、平稳有序。
 
-从本地小吃到星级酒店 糟粕醋是海南文昌的地方小吃。
+一季度，我国工业品物流总额同比增长5.8%，对社会物流总额的增长贡献率超过80%。
 
-作为一种复合调味料，糟粕醋相关产品过去主要在本地销售。
+从行业结构看，制造业物流需求占比超八成，计算机等高端制造领域增速均超过10%。
 
-“醋理大师”在获得“海南鲜品”授权后，进入品牌统一推广体系，获得“圳品”认证，打通了进入大湾区市场的通道。
+装备制造产业占比持续提升，有力带动产业链上下游协同复苏。
 
-目前，糟粕醋产品已覆盖北京、上海、成都等十余个城市。
+民生消费物流稳步向好，新型消费动能持续增强。
 
-企业方面预计，今年仅大湾区板块将增收800万元。
+一季度，我国单位与居民物品物流总额同比增长6.5%。
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:41 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:20 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:41 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:37 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:32 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:43 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:28 - [温州学子高考数学满分 分享学习经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:39 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:27 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:40 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:34 - [伊朗球员道歉 说着说着哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:25 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:22 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:24 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:22 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:19 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:42 - [前瞻｜巴菲特谢幕，阿贝尔登场：2026伯克希尔股东大会有何看点？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:20 - [墨西哥总统预计Pemex与巴西国家石油公司将达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:24 - [新发现东京审判“萨顿档案”揭露侵华日军四方面暴行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:21 - [花旗：维持香港楼价看涨8%预期 看好三大地产股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:46 - [中国驻英大使郑泽光：香港发展拥有四大优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:35 - [这群年轻人用AI“吵了一架” ，最后成了朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:35 - [特朗普抨击国会限制其战争权力的举动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:31 - [浙江杭州：民众走“运”度假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:34 - [天津国际邮轮母港单日出入境旅客创年内新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:28 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/6353215.shtml)
-- 2026-06-29 11:34 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/42306905.shtml)
-- 2026-06-29 11:42 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/5705812489.shtml)
-- 2026-06-29 11:27 - [中气爱：吐鲁番快50度了](http://www.blog.minike.top/Article/details/21405.shtml)
-- 2026-06-29 11:20 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/742827490.shtml)
-- 2026-06-29 11:47 - [日本和澳大利亚能代表亚洲足球走多远](http://www.blog.kurohicncr.top/Article/details/2514704241.shtml)
-- 2026-06-29 11:25 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/49743373.shtml)
-- 2026-06-29 11:31 - [丞磊莫离最后5集加起来集均3分钟戏份](https://www.share.minike.top/Article/details/540923242.shtml)
-- 2026-06-29 11:40 - [伊朗球员道歉 说着说着哭了](http://www.share.kurohicncr.top/Article/details/3986774064.shtml)
-- 2026-06-29 11:26 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/5281987398.shtml)
-- 2026-06-29 11:26 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/6332509.shtml)
-- 2026-06-29 11:36 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/1311996.shtml)
-- 2026-06-29 11:37 - [换个角度打开世界杯淘汰赛](http://www.blog.minike.top/Article/details/64667.shtml)
-- 2026-06-29 11:44 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/470109540.shtml)
-- 2026-06-29 11:27 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/558638852408.shtml)
+- 2026-06-29 11:36 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](http://www.blog.minike.top/Article/details/1619732.shtml)
+- 2026-06-29 11:25 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](http://www.share.minike.top/Article/details/8999189.shtml)
+- 2026-06-29 11:20 - [零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期](http://www.blog.kurohicncr.top/Article/details/46473215.shtml)
+- 2026-06-29 11:27 - [Spirit Air股价暴跌逾70% 据报该航司准备停止运营](http://www.share.kurohicncr.top/Article/details/294115.shtml)
+- 2026-06-29 11:38 - [河南洛阳：户外露营成“五一”假期新选择](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](http://www.share.minike.top/Article/details/840205186.shtml)
+- 2026-06-29 11:34 - [中国医生完成尼日尔首例鼓室成形术](http://www.share.kurohicncr.top/Article/details/343349366686.shtml)
+- 2026-06-29 11:42 - [华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”](http://www.blog.kurohicncr.top/Article/details/0127550.shtml)
+- 2026-06-29 11:46 - [文旅观察：浙江乡村“土味”玩法引领消费新潮流](http://www.blog.minike.top/Article/details/59778650.shtml)
+- 2026-06-29 11:23 - [浙江宁波机场口岸迎来出入境客流“双向热潮”](http://www.share.kurohicncr.top/Article/details/921110373457.shtml)
+- 2026-06-29 11:20 - [吉尔登服饰营收攀升](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [原油：布伦特油价自四年高点回落 战争担忧抑制市场流动性](http://www.blog.minike.top/Article/details/937888872975.shtml)
+- 2026-06-29 11:45 - [阿贝尔重申伯克希尔核心原则](http://www.blog.minike.top/Article/details/030026945673.shtml)
+- 2026-06-29 11:41 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [云南边境的目瑙纵歌，何以火爆全网？](http://www.share.kurohicncr.top/Article/details/253043792234.shtml)

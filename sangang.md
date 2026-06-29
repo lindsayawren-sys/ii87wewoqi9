@@ -1,59 +1,42 @@
-# 福建泰宁：智慧装备“上新” 游客体验与景区营收双升
+# 广西投资集团有限公司总经理刘明洪接受审查调查
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网福建泰宁5月14日电 (张显超 熊明欢)“穿上它，就像有一双手在托着你走路！”近日，在福建省泰宁县寨下大峡谷景区入口处，来自福州的游客杨万欣穿戴好机械外骨骼后，刚迈出第一步便发出惊叹。 这台设备通过传感器实时捕捉人体运动意图，在髋、膝关节处提供精准助力，可将登山时的腿部力量增强约40%，体能消耗降低30%，抵消约20公斤负重压力。杨万欣穿着外骨骼在峡谷步道行走近1小时，没
+中新网5月4日电 据广西壮族自治区纪委监委消息：广西投资集团有限公司党委副书记、总经理刘明洪涉嫌严重违纪违法，目前正接受自治区纪委监委纪律审查和监察调查。
 
 ## 正文
 
-中新网福建泰宁5月14日电 (张显超 熊明欢)“穿上它，就像有一双手在托着你走路！
-
-”近日，在福建省泰宁县寨下大峡谷景区入口处，来自福州的游客杨万欣穿戴好机械外骨骼后，刚迈出第一步便发出惊叹。
-
-这台设备通过传感器实时捕捉人体运动意图，在髋、膝关节处提供精准助力，可将登山时的腿部力量增强约40%，体能消耗降低30%，抵消约20公斤负重压力。
-
-杨万欣穿着外骨骼在峡谷步道行走近1小时，没有气喘，从容欣赏沿途地质奇观。
-
-泰宁县坐拥世界自然遗产、世界地质公园等多个旅游品牌，每年吸引着众多游客。
-
-今年“五一”假期，一批智能设备在泰宁景区悄然“上岗”：机械外骨骼让登山轻松省力，无人机自动跟拍定格丹霞奇景，免接触智慧厕所提升游览舒适度。
-
-这些服务不仅刷新了游客体验，更成为泰宁县全域文旅提质升级、撬动二次消费盈利新支柱。
-
-泰宁寨下大峡谷游步道起伏蜿蜒，对体力要求较高。
+中新网5月4日电 据广西壮族自治区纪委监委消息：广西投资集团有限公司党委副书记、总经理刘明洪涉嫌严重违纪违法，目前正接受自治区纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:21 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:22 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:22 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:40 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:40 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:41 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:24 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:21 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:47 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:26 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:24 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:29 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:20 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:36 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:47 - [台湾宜兰县海域发生6.1级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:21 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:21 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:44 - [广交会观察：全球采购商寻“鲜”中国美食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:27 - [新加坡外国存款创历史新高 避险需求激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:36 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:41 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:33 - [科技与艺术深度融合 重庆上演互动烟花戏剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/41962.shtml)
-- 2026-06-29 11:43 - [女生雨天开车发现雨刮条被掰走](http://www.blog.minike.top/Article/details/44595548.shtml)
-- 2026-06-29 11:28 - [天道](https://www.blog.minike.top/Article/details/348212602.shtml)
-- 2026-06-29 11:28 - [复盘葡萄牙逼平哥伦比亚](http://www.share.kurohicncr.top/Article/details/31942587.shtml)
-- 2026-06-29 11:23 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/3814646.shtml)
-- 2026-06-29 11:25 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/3597850890.shtml)
-- 2026-06-29 11:31 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](http://www.share.kurohicncr.top/Article/details/689661057277.shtml)
-- 2026-06-29 11:19 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.minike.top/Article/details/784305.shtml)
-- 2026-06-29 11:29 - [中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/452043997362.shtml)
-- 2026-06-29 11:26 - [南非门将单场77次成功传球](https://www.share.minike.top/Article/details/9347742744.shtml)
-- 2026-06-29 11:46 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/600745593310.shtml)
-- 2026-06-29 11:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/801603.shtml)
-- 2026-06-29 11:28 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/89292562.shtml)
-- 2026-06-29 11:29 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/592762483.shtml)
-- 2026-06-29 11:42 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/5124977.shtml)
+- 2026-06-29 11:38 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](http://www.share.kurohicncr.top/Article/details/39840261728.shtml)
+- 2026-06-29 11:32 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [一觉醒来，美国对欧洲下狠手了](http://www.blog.kurohicncr.top/Article/details/81777304824.shtml)
+- 2026-06-29 11:24 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [学习新语｜幸福属于劳动者](http://www.share.minike.top/Article/details/34052.shtml)
+- 2026-06-29 11:36 - [刚刚，全线大涨！日本，突然动手了！](http://www.share.kurohicncr.top/Article/details/34617400.shtml)
+- 2026-06-29 11:40 - [“五一”假期，中国游中国购的引力“藏不住了”](http://www.share.minike.top/Article/details/413596.shtml)
+- 2026-06-29 11:25 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](http://www.blog.kurohicncr.top/Article/details/86974.shtml)
+- 2026-06-29 11:37 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](http://www.blog.kurohicncr.top/Article/details/84566520588.shtml)
+- 2026-06-29 11:40 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](http://www.share.minike.top/Article/details/01105.shtml)
+- 2026-06-29 11:35 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](http://www.blog.minike.top/Article/details/406515.shtml)
+- 2026-06-29 11:32 - [印尼Mako天然气项目稳步推进，预计2027年投产](http://www.blog.kurohicncr.top/Article/details/25683.shtml)
+- 2026-06-29 11:26 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](http://www.share.minike.top/Article/details/93543747731.shtml)
+- 2026-06-29 11:30 - [以更大力度更实举措加强基础研究](http://www.share.minike.top/Article/details/7661202.shtml)
+- 2026-06-29 11:25 - [日元保卫战或一触即发 日本财相警告“时机临近”](http://www.blog.kurohicncr.top/Article/details/271147830658.shtml)

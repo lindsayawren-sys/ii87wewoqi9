@@ -1,50 +1,56 @@
-# 上海复旦获摩根士丹利增持约23.05万股 每股作价约41.64港元
+# 苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，5月8日，摩根士丹利增持上海复旦（01385）23.0538万股，每股作价41.6374港元，总金额约为959.9万港元。增持后最新持股数目约为1436.01万股，最新持股比例为5.05%。责任编辑：卢昱君
+苹果发布2026 财年第二季度财报，在服务业务增长的拉动下，盈利和营收均超出分析师预期。iPhone 销售额在近三个季度内第二次不及市场预期，也是本周四财报中唯一一项明显低于预期的核心业绩数据。 公司周四在一份声明中表示，该季度营收同比增长17%，至1112亿美元，高于分析师平均预期的1097亿美元。苹果此前曾预计销售额将增长13%至16%。每股收益（EPS）为2.01美元。
 
 ## 正文
 
-香港联交所最新资料显示，5月8日，摩根士丹利增持上海复旦（01385）23.0538万股，每股作价41.6374港元，总金额约为959.9万港元。
+苹果发布2026 财年第二季度财报，在服务业务增长的拉动下，盈利和营收均超出分析师预期。
 
-增持后最新持股数目约为1436.01万股，最新持股比例为5.05%。
+iPhone 销售额在近三个季度内第二次不及市场预期，也是本周四财报中唯一一项明显低于预期的核心业绩数据。
 
-责任编辑：卢昱君
+公司周四在一份声明中表示，该季度营收同比增长17%，至1112亿美元，高于分析师平均预期的1097亿美元。
+
+苹果此前曾预计销售额将增长13%至16%。
+
+每股收益（EPS）为2.01美元。
+
+市场同时重点关注以下核心业务板块表现： iPhone营收： 569.9亿美元，预期为572.1亿美元 Mac 营收： 84 亿美元，高于预期的 80.2 亿美元。
+
+iPad营收： 69.1亿美元，高于预期的66.6亿美元。
+
+可穿戴设备、家居及配件业务营收： 79亿美元，高于预期的77亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:31 - [线路错接女子替7户邻居交17年电费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:24 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:35 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:28 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:40 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:40 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:39 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:26 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:19 - [陈丽君演出结束后饭撒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:44 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:22 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:31 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:21 - [体验多元！“影视+文旅”点亮“五一”假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:23 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:32 - [三星电子任命新的视觉显示业务负责人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:26 - [朝鲜外务省：美国炒作朝鲜“网络威胁”是无稽之谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:35 - [韩国特检组就金建希首案二审结果提出抗诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:30 - [阿贝尔谈及自己与阿吉特・贾恩的继任规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:33 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:20 - [广西投资集团有限公司总经理刘明洪接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:24 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:26 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [女心理师](http://www.share.kurohicncr.top/Article/details/991431.shtml)
-- 2026-06-29 11:48 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/234871.shtml)
-- 2026-06-29 11:21 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/302341.shtml)
-- 2026-06-29 11:44 - [南非门将单场77次成功传球](http://www.share.kurohicncr.top/Article/details/8805773049.shtml)
-- 2026-06-29 11:28 - [日本媒体：板仓滉已回归日本队合练](http://www.share.kurohicncr.top/Article/details/454042623.shtml)
-- 2026-06-29 11:19 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/31405953252.shtml)
-- 2026-06-29 11:37 - [伊朗球员道歉 说着说着哭了](https://www.blog.kurohicncr.top/Article/details/11507778.shtml)
-- 2026-06-29 11:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/958575738.shtml)
-- 2026-06-29 11:36 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/01046461.shtml)
-- 2026-06-29 11:36 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/823403770.shtml)
-- 2026-06-29 11:20 - [女心理师](https://www.blog.kurohicncr.top/Article/details/69920.shtml)
-- 2026-06-29 11:37 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.share.kurohicncr.top/Article/details/3809629339.shtml)
-- 2026-06-29 11:36 - [王楚钦3-0周启豪 晋级32强](http://www.share.kurohicncr.top/Article/details/64047572.shtml)
-- 2026-06-29 11:47 - [一生一世](https://www.blog.minike.top/Article/details/189129046.shtml)
-- 2026-06-29 11:31 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/307040.shtml)
+- 2026-06-29 11:24 - [5月4日中国跨区域人员流动量预计超2.9亿人次](http://www.share.minike.top/Article/details/9492462316.shtml)
+- 2026-06-29 11:26 - [内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%](http://www.blog.minike.top/Article/details/13899435.shtml)
+- 2026-06-29 11:19 - [东西问丨杜方绥：中国文学何以打动世界读者？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [东京通胀进一步降温 支撑日本央行加息谨慎立场](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [亚马逊AWS营收增长28%，达到376亿美元](http://www.share.kurohicncr.top/Article/details/72481948869.shtml)
+- 2026-06-29 11:18 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [刚刚，利好来了！上海，重磅出手！](http://www.blog.minike.top/Article/details/535144875.shtml)
+- 2026-06-29 11:43 - [3月核心通胀率升至3.2%，一季度经济增速仅2%不及预期](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [西藏昌都文旅资源亮相天津 多项合作签约落地](http://www.blog.kurohicncr.top/Article/details/13411174783.shtml)
+- 2026-06-29 11:29 - [埃克森美孚与雪佛龙无视特朗普政府增产呼吁](http://www.blog.kurohicncr.top/Article/details/13906301.shtml)
+- 2026-06-29 11:39 - [钠电池迎来历史性拐点！业绩报喜概念股出炉，4股市盈率不到30倍](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](http://www.blog.minike.top/Article/details/272714.shtml)
+- 2026-06-29 11:19 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](http://www.blog.kurohicncr.top/Article/details/292707.shtml)
+- 2026-06-29 11:25 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](http://www.blog.kurohicncr.top/Article/details/55680.shtml)
+- 2026-06-29 11:42 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](http://www.share.minike.top/Article/details/74175507.shtml)

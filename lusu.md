@@ -1,61 +1,58 @@
-# 河南发布微短剧行业AI技术应用自律公约
+# 前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网郑州5月13日电 (记者 韩章云)《河南省微短剧行业AI技术应用自律公约》(以下简称《公约》)13日在河南郑州发布，旨在引领河南微短剧产业迈入规范、健康发展新阶段。 近年来，河南微短剧发展势头迅猛。当前，AI技术在微短剧行业广泛应用，在多个环节实现降本增效。不过，AI技术应用在版权保护、伦理道德方面的争议不断。 基于此，由河南省视听业协会短视频短片工作委员会制定的《公约》
+IBM副董事长、前美国总统首席经济顾问加里·科恩表示，持续攀升的油价将直接侵蚀美国消费者的可支配收入，对整体经济构成严重威胁。 科恩在接受采访时指出，“没有什么比消费者握着加油枪、看着油泵上数字跳动更直接的体验了。”他举例称，如果消费者一周前加油花80美元，本周花85美元，一个月前仅需60美元，他们会立即意识到“加满这箱油让我损失了20美元的可支配收入”。科恩补充说，若每周加油
 
 ## 正文
 
-中新网郑州5月13日电 (记者 韩章云)《河南省微短剧行业AI技术应用自律公约》(以下简称《公约》)13日在河南郑州发布，旨在引领河南微短剧产业迈入规范、健康发展新阶段。
+IBM副董事长、前美国总统首席经济顾问加里·科恩表示，持续攀升的油价将直接侵蚀美国消费者的可支配收入，对整体经济构成严重威胁。
 
-近年来，河南微短剧发展势头迅猛。
+科恩在接受采访时指出，“没有什么比消费者握着加油枪、看着油泵上数字跳动更直接的体验了。
 
-当前，AI技术在微短剧行业广泛应用，在多个环节实现降本增效。
+”他举例称，如果消费者一周前加油花80美元，本周花85美元，一个月前仅需60美元，他们会立即意识到“加满这箱油让我损失了20美元的可支配收入”。
 
-不过，AI技术应用在版权保护、伦理道德方面的争议不断。
+科恩补充说，若每周加油四次，相当于税后可支配收入减少80美元，“这足以决定你是否每周带家人出去吃几次饭”。
 
-基于此，由河南省视听业协会短视频短片工作委员会制定的《公约》出台，旨在规范人工智能技术在微短剧、漫剧、微综艺等领域的健康向善、有序创新应用，有效防范技术滥用、内容失范、权益侵害等风险。
+科恩曾在高盛工作超过25年，从大宗商品交易员一路升至总裁兼首席运营官。
 
-《公约》由总则与导向、版权保护与原创尊重、人格权益与技术边界、用工规范与权益保障、公开明示与用户知情等部分组成。
+2017年加入特朗普政府担任美国国家经济委员会主任后，他成为2017年《减税与就业法案》的主要起草人之一。
 
-《公约》明确，严禁利用AI技术实施抄袭、洗稿、盗版、盗播、无授权改编、侵权搬运等行为，积极倡导原创、尊重原创、保护原创。
+谈及当前经济环境时，科恩表示：“我认为目前……我们更像是处于滞胀状态——经济增长停滞，但物价却在上涨。
 
-严格保护自然人肖像权、姓名权、声音权、名誉权等人格权益。
+” 科恩的警告与华尔街的担忧相呼应。
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:31 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:25 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:20 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:40 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:44 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:26 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:32 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:48 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:45 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:39 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:44 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:42 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:45 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:33 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:25 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:20 - [网信部门严管“自媒体”未规范标注信息来源行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:45 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:32 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:35 - [零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:44 - [Spirit Air股价暴跌逾70% 据报该航司准备停止运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:47 - [河南洛阳：户外露营成“五一”假期新选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:37 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:46 - [中国医生完成尼日尔首例鼓室成形术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:22 - [华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:40 - [文旅观察：浙江乡村“土味”玩法引领消费新潮流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:27 - [浙江宁波机场口岸迎来出入境客流“双向热潮”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/043895963511.shtml)
-- 2026-06-29 11:38 - [三只羊线下课已下架](https://www.share.kurohicncr.top/Article/details/36438.shtml)
-- 2026-06-29 11:24 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/329767066082.shtml)
-- 2026-06-29 11:44 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/043725172.shtml)
-- 2026-06-29 11:32 - [日本主帅：对战胜巴西很有信心](https://www.share.kurohicncr.top/Article/details/92478038.shtml)
-- 2026-06-29 11:28 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/6704972881.shtml)
-- 2026-06-29 11:25 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/16495.shtml)
-- 2026-06-29 11:18 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/714037710546.shtml)
-- 2026-06-29 11:21 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/6338131.shtml)
-- 2026-06-29 11:43 - [晋城暴雨车辆被淹冰箱在水中漂](http://www.share.minike.top/Article/details/93648242.shtml)
-- 2026-06-29 11:36 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.minike.top/Article/details/53671172444.shtml)
-- 2026-06-29 11:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/9337539.shtml)
-- 2026-06-29 11:48 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.minike.top/Article/details/633387412476.shtml)
-- 2026-06-29 11:46 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/172586.shtml)
-- 2026-06-29 11:37 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/7897357613.shtml)
+- 2026-06-29 11:41 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [台湾宜兰县海域发生6.1级地震](http://www.blog.kurohicncr.top/Article/details/7496789.shtml)
+- 2026-06-29 11:32 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](http://www.share.kurohicncr.top/Article/details/14077900.shtml)
+- 2026-06-29 11:20 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](http://www.share.minike.top/Article/details/83099202319.shtml)
+- 2026-06-29 11:35 - [广交会观察：全球采购商寻“鲜”中国美食](http://www.blog.minike.top/Article/details/907082682724.shtml)
+- 2026-06-29 11:46 - [新加坡外国存款创历史新高 避险需求激增](http://www.share.kurohicncr.top/Article/details/627337903312.shtml)
+- 2026-06-29 11:33 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](http://www.blog.kurohicncr.top/Article/details/7318454.shtml)
+- 2026-06-29 11:39 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](http://www.blog.kurohicncr.top/Article/details/240194578.shtml)
+- 2026-06-29 11:21 - [科技与艺术深度融合 重庆上演互动烟花戏剧](http://www.share.minike.top/Article/details/91952.shtml)
+- 2026-06-29 11:44 - [华安基金苏圻涵|洞见全球视野：透视跨境投资地图](http://www.share.kurohicncr.top/Article/details/095095808431.shtml)
+- 2026-06-29 11:40 - [Check Point一季度利润超预期，但营收指引不及预期拖累股价](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容](http://www.share.minike.top/Article/details/3942998561.shtml)
+- 2026-06-29 11:24 - [2026年“国际中文日”文艺巡演活动在北爱尔兰举行](http://www.blog.minike.top/Article/details/935784532.shtml)
+- 2026-06-29 11:47 - [马斯克法庭交锋OpenAI，称奥特曼“不诚实”](http://www.share.minike.top/Article/details/829390.shtml)
+- 2026-06-29 11:38 - [德国经济一季度环比增长0.3%](http://www.blog.minike.top/Article/details/932051277340.shtml)

@@ -1,57 +1,45 @@
-# 德国 10 年期国债收益率小幅回落，但受通胀担忧拖累，仍处于多年高位附近
+# 渤海人寿获批增加注册资本至16.87亿元
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-德国10年期国债收益率周四回落，但仍接近近期多年高位，因能源价格高企强化了通胀走高及欧洲央行加息的预期。 本周，美伊之间达成持久和平协议的预期逐渐消退，导致霍尔木兹海峡实际上禁止商船通行。 欧元区基准——德国10年期国债收益率最新下跌5个基点至3.04%；自冲突爆发以来已累计上涨逾40个基点，仍接近4月底触及的3.133%——2011年中期以来最高水平。 油价飙升再度引发对滞胀
+4月30日金融一线消息，天津金融监管局发布批复，同意渤海人寿保险股份有限公司增加注册资本500，000，000元人民币，由1，186，653，845元人民币变更为1，686，653，845元人民币。 责任编辑：秦艺
 
 ## 正文
 
-德国10年期国债收益率周四回落，但仍接近近期多年高位，因能源价格高企强化了通胀走高及欧洲央行加息的预期。
+4月30日金融一线消息，天津金融监管局发布批复，同意渤海人寿保险股份有限公司增加注册资本500，000，000元人民币，由1，186，653，845元人民币变更为1，686，653，845元人民币。
 
-本周，美伊之间达成持久和平协议的预期逐渐消退，导致霍尔木兹海峡实际上禁止商船通行。
-
-欧元区基准——德国10年期国债收益率最新下跌5个基点至3.04%；自冲突爆发以来已累计上涨逾40个基点，仍接近4月底触及的3.133%——2011年中期以来最高水平。
-
-油价飙升再度引发对滞胀的担忧，并促使投资者计入欧洲央行加息预期。
-
-货币市场交易员目前预计，6月11日会议加息概率近90%，且到年底前三次加息已基本完全定价。
-
-冲突爆发前，投资者原本预期欧洲央行2026年全年维持存款利率不变。
-
-花旗集团欧洲利率策略师杰米・塞尔表示：“看来要避免6月预防性加息，时间已经不多了。
-
-” 对货币政策预期敏感的德国2年期国债收益率周四下跌5个基点至2.66%；但自2月底战事爆发以来，因投资者重定价利率预期，已累计上涨近70个基点。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:29 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:47 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:29 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:27 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:48 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:41 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:34 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:24 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:47 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:23 - [新加坡外国存款创历史新高 避险需求激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:33 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:19 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:18 - [科技与艺术深度融合 重庆上演互动烟花戏剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:32 - [华安基金苏圻涵|洞见全球视野：透视跨境投资地图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:39 - [Check Point一季度利润超预期，但营收指引不及预期拖累股价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:35 - [广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:27 - [2026年“国际中文日”文艺巡演活动在北爱尔兰举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:18 - [马斯克法庭交锋OpenAI，称奥特曼“不诚实”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:32 - [德国经济一季度环比增长0.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:23 - [摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/567850.shtml)
-- 2026-06-29 11:36 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.minike.top/Article/details/752295.shtml)
-- 2026-06-29 11:47 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](http://www.share.minike.top/Article/details/289206.shtml)
-- 2026-06-29 11:36 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/6460361.shtml)
-- 2026-06-29 11:46 - [BW2026游览指南](http://www.blog.minike.top/Article/details/18567886528.shtml)
-- 2026-06-29 11:26 - [韩国队是怎么把自己“作死”的](http://www.blog.minike.top/Article/details/6500954761.shtml)
-- 2026-06-29 11:46 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/832295.shtml)
-- 2026-06-29 11:40 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/64902788.shtml)
-- 2026-06-29 11:44 - [天道](https://www.share.minike.top/Article/details/5529495249.shtml)
-- 2026-06-29 11:19 - [扬名立万](https://www.blog.minike.top/Article/details/451668438.shtml)
-- 2026-06-29 11:26 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/2672977.shtml)
-- 2026-06-29 11:33 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/7749899378.shtml)
-- 2026-06-29 11:30 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/71578241764.shtml)
-- 2026-06-29 11:30 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/3934805.shtml)
-- 2026-06-29 11:34 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/45060943.shtml)
+- 2026-06-29 11:36 - [“五一”假期，中国游中国购的引力“藏不住了”](http://www.share.minike.top/Article/details/803668585.shtml)
+- 2026-06-29 11:32 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](http://www.share.minike.top/Article/details/1293773035.shtml)
+- 2026-06-29 11:21 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](http://www.share.kurohicncr.top/Article/details/52384.shtml)
+- 2026-06-29 11:43 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](http://www.share.minike.top/Article/details/8964954.shtml)
+- 2026-06-29 11:42 - [以更大力度更实举措加强基础研究](http://www.share.kurohicncr.top/Article/details/5677360.shtml)
+- 2026-06-29 11:24 - [日元保卫战或一触即发 日本财相警告“时机临近”](http://www.share.minike.top/Article/details/970245.shtml)
+- 2026-06-29 11:45 - [埃克森CEO对委内瑞拉态度转变 此前曾批评该国“不可投资”](http://www.share.kurohicncr.top/Article/details/58925793738.shtml)
+- 2026-06-29 11:18 - [民警一声“快来帮忙”，整座桥上的人都来了！](http://www.blog.minike.top/Article/details/16567005756.shtml)
+- 2026-06-29 11:18 - [英特尔收购Sambanova获美国反垄断批准](http://www.share.kurohicncr.top/Article/details/12997098.shtml)
+- 2026-06-29 11:26 - [北约秘书长：北约欧洲国家听懂特朗普的话了 正落实美军请求](http://www.blog.kurohicncr.top/Article/details/9689468.shtml)
+- 2026-06-29 11:33 - [一见·加强基础研究，总书记强调这个关键因素](http://www.share.minike.top/Article/details/1365330769.shtml)
+- 2026-06-29 11:43 - [亚马逊业绩超预期，AWS重新加速增长](https://github.com/lisacumin64-arch)

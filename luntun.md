@@ -1,48 +1,57 @@
-# 外交部：中方愿同美方一道将中美关系新定位转化为相向而行的行动
+# 西藏昌都文旅资源亮相天津 多项合作签约落地
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-新华社北京5月14日电(记者万倩仪、马卓言)外交部发言人郭嘉昆14日在例行记者会上回答提问时表示，今天上午，习近平主席同特朗普总统举行会谈，双方就构建“中美建设性战略稳定关系”新定位达成共识，为未来3年乃至更长时间的中美关系提供战略指引。 郭嘉昆说，“建设性战略稳定”应该是合作为主的积极稳定、竞争有度的良性稳定、分歧可控的常态稳定、和平可期的持久稳定。中方愿同美方一道，将中美关
+中新网天津5月2日电 (记者 周亚强 王君妍)“红色昌都·津彩相遇”2026年昌都文旅天津推介活动1日在天津和平区印象城广场启动。活动为期5天，通过文旅资源推介、非遗歌舞展演、特色产品展销、主题摄影展览及无人机表演等形式，集中展示西藏昌都的自然风光与康巴文化。 活动期间，昌都市文化和旅游局与天津国旅等4家旅行社签署战略合作协议，将共建精品线路、共享客源市场；与天津市歌舞剧院签署
 
 ## 正文
 
-新华社北京5月14日电(记者万倩仪、马卓言)外交部发言人郭嘉昆14日在例行记者会上回答提问时表示，今天上午，习近平主席同特朗普总统举行会谈，双方就构建“中美建设性战略稳定关系”新定位达成共识，为未来3年乃至更长时间的中美关系提供战略指引。
+中新网天津5月2日电 (记者 周亚强 王君妍)“红色昌都·津彩相遇”2026年昌都文旅天津推介活动1日在天津和平区印象城广场启动。
 
-郭嘉昆说，“建设性战略稳定”应该是合作为主的积极稳定、竞争有度的良性稳定、分歧可控的常态稳定、和平可期的持久稳定。
+活动为期5天，通过文旅资源推介、非遗歌舞展演、特色产品展销、主题摄影展览及无人机表演等形式，集中展示西藏昌都的自然风光与康巴文化。
 
-中方愿同美方一道，将中美关系新定位转化为相向而行的行动，共同推动中美关系稳定、健康、可持续发展。
+活动期间，昌都市文化和旅游局与天津国旅等4家旅行社签署战略合作协议，将共建精品线路、共享客源市场；与天津市歌舞剧院签署战略合作协议，将在剧目创排、人才培养和非遗展演等方面深化合作。
+
+启动仪式上，昌都文旅推介官围绕“西藏东大门”“康巴文化发祥地”“西藏第一面五星红旗升起地”三张名片，系统推介了生态观光、文化研学、自驾越野等精品旅游线路。
+
+活动现场发布《2026年昌都市旅游奖励办法》，以惠企政策邀请天津及京津冀文旅企业拓展昌都市场，助力“引客入昌”。
+
+国家级非遗歌舞节目轮番上演，豪迈的舞姿与藏族服饰展演，将高原风情带到市民身边。
+
+在农特产品与工艺品展销区，来自卡若区、江达县、贡觉县、丁青县等地的青稞制品、冬虫夏草、牦牛肉干、藏香等特色产品集中亮相，吸引不少市民驻足选购，感受“高原味道”。
+
+“印象康巴·秘境昌都”主题摄影展则选取40幅作品，呈现然乌湖、来古冰川、芒康古盐田等藏东地貌，成为现场一道风景。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:46 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:35 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:24 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:22 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:44 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:23 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:29 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:27 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:44 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:24 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:47 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:36 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:25 - [一觉醒来，美国对欧洲下狠手了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:24 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:47 - [学习新语｜幸福属于劳动者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:35 - [刚刚，全线大涨！日本，突然动手了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:24 - [“五一”假期，中国游中国购的引力“藏不住了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:39 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:39 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:33 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:19 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:23 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [委内瑞拉地震已致1450死3150伤](http://www.blog.kurohicncr.top/Article/details/128887818516.shtml)
-- 2026-06-29 11:42 - [韩国主帅辞职报告5分钟 双手插兜离场](https://www.share.kurohicncr.top/Article/details/42411082.shtml)
-- 2026-06-29 11:32 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/2949284.shtml)
-- 2026-06-29 11:28 - [白玉兰下沉市场](http://www.blog.minike.top/Article/details/318906764.shtml)
-- 2026-06-29 11:41 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/23966387.shtml)
-- 2026-06-29 11:37 - [TEC官宣Muggle加入](https://www.share.minike.top/Article/details/1659378386.shtml)
-- 2026-06-29 11:32 - [女子拍邻居家中裸照发业主群](http://www.share.kurohicncr.top/Article/details/280133.shtml)
-- 2026-06-29 11:42 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/48081.shtml)
-- 2026-06-29 11:35 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/950660253343.shtml)
-- 2026-06-29 11:39 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/67310431.shtml)
-- 2026-06-29 11:27 - [毕业典礼整活 梗密到不知先笑哪个](http://www.share.kurohicncr.top/Article/details/745161535.shtml)
-- 2026-06-29 11:45 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/148499213287.shtml)
-- 2026-06-29 11:25 - [19家A股上市公司发布上半年业绩预告](https://www.blog.minike.top/Article/details/22072132.shtml)
-- 2026-06-29 11:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/0597232110.shtml)
-- 2026-06-29 11:30 - [张一山说杨紫早该拿奖了](http://www.blog.minike.top/Article/details/75908.shtml)
+- 2026-06-29 11:36 - [挪威油企与工会谈判破裂，拟通过调解避免罢工及产量中断](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [漳汕高铁广东段山家特大桥首梁架设](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [“金融国家队”为何选中了他们](http://www.blog.kurohicncr.top/Article/details/99384457.shtml)
+- 2026-06-29 11:37 - [ASMPT早盘高开逾4% 建银国际将目标价上调至190港元](http://www.blog.minike.top/Article/details/408282895157.shtml)
+- 2026-06-29 11:19 - [“五一”假期首日广东水上出行迎来客流高峰](http://www.blog.kurohicncr.top/Article/details/113877401.shtml)
+- 2026-06-29 11:27 - [关于开展2026年企业ESG实践成果展示活动的通知](http://www.blog.minike.top/Article/details/62748806.shtml)
+- 2026-06-29 11:29 - [干预数小时后 日元兑美元汇率大幅上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [“苏超”南京赛区志愿者暖心护航 宁马青年聚力绽放青春力量](http://www.blog.minike.top/Article/details/82491547.shtml)
+- 2026-06-29 11:27 - [刀为笔、木为纸 木版年画比赛展非遗魅力](http://www.blog.minike.top/Article/details/391455053365.shtml)
+- 2026-06-29 11:44 - [福建首个侨台档案融合展示馆开门迎客](http://www.blog.minike.top/Article/details/928300.shtml)
+- 2026-06-29 11:31 - [AI浪潮里的“模速青年”：勇敢追梦，让年轻有“模”有样](http://www.share.kurohicncr.top/Article/details/96763576.shtml)
+- 2026-06-29 11:37 - [巴西国家石油公司宣布航空煤油提价18%](http://www.share.minike.top/Article/details/54315.shtml)
+- 2026-06-29 11:23 - [马里一军营被武装组织控制 首都周边交通受阻](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [伯克希尔一季度利润翻倍以上 保险、铁路、能源业务提振业绩](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [Vulcan Materials一季度营收超预期 因建材需求强劲](http://www.share.kurohicncr.top/Article/details/755984680.shtml)

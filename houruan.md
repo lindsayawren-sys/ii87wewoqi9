@@ -1,61 +1,59 @@
-# 澳门中学师生走进华侨大学体验中华传统文化
+# 韩国特检组就金建希首案二审结果提出抗诉
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新社泉州5月14日电 (记者 孙虹)澳门濠江中学逾500名师生14日到访华侨大学泉州校区，体验内地高校丰富多彩的校园文化。 澳门濠江中学副校长陈虹告诉中新社记者，此次共组织480多名中学生和20多名老师参观走访华侨大学、体验感受中华优秀传统文化，在交流互动中增进彼此的了解。 作为华侨大学中文系1985级校友，陈虹还担任华侨大学第七届至第九届董事会董事。她说，华大以包容开放的校
+中新社首尔5月4日电 (记者 金旭)当地时间4日，韩国“金建希特检组”就前总统尹锡悦妻子金建希首案二审结果提出抗诉。 据韩联社报道，4月28日，在金建希首案二审中，法院认定金建希违反《资本市场法》和《特定犯罪加重处罚法》，以操纵股价和斡旋受贿罪等判处其有期徒刑4年，并处罚金5000万韩元(约合23万元人民币)。同时，法院还宣布没收其收受的一条高价项链，并追缴2000余万韩元。金
 
 ## 正文
 
-中新社泉州5月14日电 (记者 孙虹)澳门濠江中学逾500名师生14日到访华侨大学泉州校区，体验内地高校丰富多彩的校园文化。
+中新社首尔5月4日电 (记者 金旭)当地时间4日，韩国“金建希特检组”就前总统尹锡悦妻子金建希首案二审结果提出抗诉。
 
-澳门濠江中学副校长陈虹告诉中新社记者，此次共组织480多名中学生和20多名老师参观走访华侨大学、体验感受中华优秀传统文化，在交流互动中增进彼此的了解。
+据韩联社报道，4月28日，在金建希首案二审中，法院认定金建希违反《资本市场法》和《特定犯罪加重处罚法》，以操纵股价和斡旋受贿罪等判处其有期徒刑4年，并处罚金5000万韩元(约合23万元人民币)。
 
-作为华侨大学中文系1985级校友，陈虹还担任华侨大学第七届至第九届董事会董事。
+同时，法院还宣布没收其收受的一条高价项链，并追缴2000余万韩元。
 
-她说，华大以包容开放的校园氛围融通中外并重视中华优秀传统文化传承，希望此行能带给澳门中学生不一样的体验。
+金建希方面已于4月30日对二审判决表示不服并提起上诉。
 
-当天，澳门中学生们观看了华侨大学二十四节令鼓、舞龙、舞狮、街舞等表演，并参与互动体验。
+2025年12月3日，韩国“金建希特检组”请求法院判处金建希有期徒刑15年，并处罚金20亿韩元。
 
-华大舞龙队队员带着澳门小朋友合作舞龙，“巨龙”时而腾空而起，时而俯冲而下，时而盘旋飞舞，引起阵阵欢呼。
+今年1月28日，金建希首案一审被判有期徒刑1年8个月。
 
-今年14岁的古乐怡告诉中新社记者，这是她第一次到泉州，通过与华侨大学的哥哥姐姐们合作，既体会到团结协作的力量，也加深了对中华传统文化的喜爱。
+4月8日，在金建希首案二审庭审中，特检组提出判处其15年有期徒刑的量刑建议。
 
-作为中国拥有港澳台侨学生最多的高校之一，华侨大学目前有在校澳门学生1197名。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:42 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:39 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:24 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:25 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:24 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:44 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:29 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:24 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:35 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:27 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:35 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:39 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:45 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:45 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:41 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:24 - [渤海人寿获批增加注册资本至16.87亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:39 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:43 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:39 - [台湾宜兰县海域发生6.1级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:26 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:35 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:27 - [广交会观察：全球采购商寻“鲜”中国美食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:36 - [新加坡外国存款创历史新高 避险需求激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:23 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:46 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:46 - [科技与艺术深度融合 重庆上演互动烟花戏剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/2170356458.shtml)
-- 2026-06-29 11:42 - [球迷玩人浪手机飞了](https://www.share.kurohicncr.top/Article/details/7966832.shtml)
-- 2026-06-29 11:38 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/838317620.shtml)
-- 2026-06-29 11:27 - [《给阿嬷的情书》里的情义与守望](https://www.share.kurohicncr.top/Article/details/60110.shtml)
-- 2026-06-29 11:34 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/28382.shtml)
-- 2026-06-29 11:48 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/03259888.shtml)
-- 2026-06-29 11:34 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/9698365930.shtml)
-- 2026-06-29 11:41 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/1224142.shtml)
-- 2026-06-29 11:19 - [韩国政府将对世界杯出局追责](http://www.share.kurohicncr.top/Article/details/1765651.shtml)
-- 2026-06-29 11:19 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.share.minike.top/Article/details/0840260767.shtml)
-- 2026-06-29 11:24 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/32641.shtml)
-- 2026-06-29 11:32 - [李在明要调查韩国队出局原因](http://www.share.kurohicncr.top/Article/details/2408242.shtml)
-- 2026-06-29 11:31 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/84334879.shtml)
-- 2026-06-29 11:25 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/580143683300.shtml)
-- 2026-06-29 11:42 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/568085.shtml)
+- 2026-06-29 11:35 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](http://www.blog.kurohicncr.top/Article/details/2554525.shtml)
+- 2026-06-29 11:36 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](http://www.blog.minike.top/Article/details/2973405474.shtml)
+- 2026-06-29 11:39 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](http://www.blog.minike.top/Article/details/93423793.shtml)
+- 2026-06-29 11:40 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [一觉醒来，美国对欧洲下狠手了](http://www.share.kurohicncr.top/Article/details/34509306.shtml)
+- 2026-06-29 11:26 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [学习新语｜幸福属于劳动者](http://www.share.minike.top/Article/details/0532699.shtml)
+- 2026-06-29 11:42 - [刚刚，全线大涨！日本，突然动手了！](http://www.blog.kurohicncr.top/Article/details/48883427.shtml)
+- 2026-06-29 11:31 - [“五一”假期，中国游中国购的引力“藏不住了”](http://www.share.minike.top/Article/details/110733024089.shtml)
+- 2026-06-29 11:47 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](http://www.share.minike.top/Article/details/172156131.shtml)
+- 2026-06-29 11:22 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](http://www.blog.kurohicncr.top/Article/details/5834354953.shtml)
+- 2026-06-29 11:28 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](http://www.share.minike.top/Article/details/9900065523.shtml)
+- 2026-06-29 11:30 - [印尼Mako天然气项目稳步推进，预计2027年投产](http://www.blog.minike.top/Article/details/390872.shtml)

@@ -1,56 +1,58 @@
-# 2026年ITF国际网球大师赛MT400尚东杯·北京昌平站开赛
+# 海南商业航天重点项目加速建设
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网北京5月14日电 (记者 贾天勇)2026年ITF国际网球大师赛MT400“尚东杯”·北京昌平站的比赛13日在昌平区东小口镇上东体育中心正式开赛。赛事以“网聚东小口赛动新昌平”为主题，赛事能级由MT200升级至MT400，总奖金达25万元人民币，吸引国内外网球爱好者踊跃参与，报名达880人次，创国内同级别赛事新高，呈现高水准、高参与度的国际业余网球赛事风貌。 本届赛事由国
+中新网海南文昌5月1日电 (满云冰)5月1日国际劳动节，在我国首个商业航天发射场——海南商业航天发射场(二期)发射区3号工位项目现场，数百名建设者正在紧张忙碌，加快项目建设。 在起竖场坪区域，施工人员正有条不紊地开展水稳摊铺作业，以确保场地具备足够的承载能力。作为火箭发射核心防护结构的导流槽内，耐火混凝土浇筑作业也在同步进行中，以保障这一关键部位能承受火箭发射时数千度的高温烈焰
 
 ## 正文
 
-中新网北京5月14日电 (记者 贾天勇)2026年ITF国际网球大师赛MT400“尚东杯”·北京昌平站的比赛13日在昌平区东小口镇上东体育中心正式开赛。
+中新网海南文昌5月1日电 (满云冰)5月1日国际劳动节，在我国首个商业航天发射场——海南商业航天发射场(二期)发射区3号工位项目现场，数百名建设者正在紧张忙碌，加快项目建设。
 
-赛事以“网聚东小口赛动新昌平”为主题，赛事能级由MT200升级至MT400，总奖金达25万元人民币，吸引国内外网球爱好者踊跃参与，报名达880人次，创国内同级别赛事新高，呈现高水准、高参与度的国际业余网球赛事风貌。
+在起竖场坪区域，施工人员正有条不紊地开展水稳摊铺作业，以确保场地具备足够的承载能力。
 
-本届赛事由国际网球联合会、中国网球协会批准举办，为期5天，至5月17日结束。
+作为火箭发射核心防护结构的导流槽内，耐火混凝土浇筑作业也在同步进行中，以保障这一关键部位能承受火箭发射时数千度的高温烈焰。
 
-赛事共设置7个年龄组、31个单项，在奥北森林公园生态环境中打造“森林里的网球场”，为选手与观众带来自然与运动相融的沉浸式体验。
+不远处的前置设备间、阀门间里，也正有序开展着机电管线安装和精装修作业。
 
-赛事场地全面升级，亮点突出。
+海南商业航天发射场(二期)发射区3号工位项目是海南省重点项目，也是海南商业航天发射场扩容提速、打造国际一流商业航天发射枢纽的重要基础设施。
 
-依托上东体育中心室外标准球场和正式投入使用昌平区首座气膜体育馆，同时新增2片带观众看台的中心赛场，整体可容纳近千名观众观赛。
+承建方中建五局海南分公司介绍，项目建设内容包括前置设备间、阀门间、避雷塔、导流槽、地下管廊、场坪以及相配套的消防、给排水、配电等工程施工。
 
-赛事期间，文体旅融合活动同步展开。
+项目设计为液体火箭发射工位，采用国际先进的“三平”测发模式。
 
-吉祥物“东东”亮相赛场，主题文创产品集中展示；北中轴热气球打卡、奥北星河森林音乐会等活动，进一步丰富赛事体验。
+“目前，项目建设正按既定节点计划稳步推进，预计今年5月底，将完成避雷塔钢结构安装，以及前置设备间与阀门间的机电安装任务。
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:32 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:28 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:37 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:36 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:25 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:37 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:30 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:47 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:34 - [网信部门严管“自媒体”未规范标注信息来源行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:38 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:34 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:30 - [零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:42 - [Spirit Air股价暴跌逾70% 据报该航司准备停止运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:33 - [河南洛阳：户外露营成“五一”假期新选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:22 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:23 - [中国医生完成尼日尔首例鼓室成形术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:26 - [华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:39 - [文旅观察：浙江乡村“土味”玩法引领消费新潮流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:44 - [浙江宁波机场口岸迎来出入境客流“双向热潮”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:33 - [吉尔登服饰营收攀升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [韩媒破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/3861742.shtml)
-- 2026-06-29 11:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/792626.shtml)
-- 2026-06-29 11:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/0935221.shtml)
-- 2026-06-29 11:28 - [马斯克也站到了光里](http://www.share.kurohicncr.top/Article/details/7295886.shtml)
-- 2026-06-29 11:41 - [上海足协发布世界杯文明观赛倡议书](http://www.share.minike.top/Article/details/353375211.shtml)
-- 2026-06-29 11:27 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/25282.shtml)
-- 2026-06-29 11:35 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/2596127.shtml)
-- 2026-06-29 11:27 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/146564606386.shtml)
-- 2026-06-29 11:32 - [跑步机上“爬坡”减肥公式爆火](https://www.blog.kurohicncr.top/Article/details/547917106819.shtml)
-- 2026-06-29 11:19 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/3373301675.shtml)
-- 2026-06-29 11:42 - [香港航天员黎家盈带招牌笑容工作](http://www.blog.minike.top/Article/details/727606.shtml)
-- 2026-06-29 11:20 - [【独家】牧神记 第89集 明心](https://www.share.minike.top/Article/details/207019.shtml)
-- 2026-06-29 11:43 - [国乒全主力参加美国大满贯](http://www.share.minike.top/Article/details/75914679097.shtml)
-- 2026-06-29 11:34 - [美国230斤男孩在家中去世父母被捕](http://www.share.minike.top/Article/details/29703842.shtml)
-- 2026-06-29 11:22 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/43460102554.shtml)
+- 2026-06-29 11:35 - [台湾宜兰县海域发生6.1级地震](http://www.blog.kurohicncr.top/Article/details/4853927.shtml)
+- 2026-06-29 11:46 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](http://www.blog.minike.top/Article/details/8970321070.shtml)
+- 2026-06-29 11:22 - [广交会观察：全球采购商寻“鲜”中国美食](http://www.blog.minike.top/Article/details/1301693460.shtml)
+- 2026-06-29 11:28 - [新加坡外国存款创历史新高 避险需求激增](http://www.share.minike.top/Article/details/0593691.shtml)
+- 2026-06-29 11:23 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](http://www.share.minike.top/Article/details/6346346.shtml)
+- 2026-06-29 11:46 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](http://www.blog.kurohicncr.top/Article/details/3254020730.shtml)
+- 2026-06-29 11:46 - [科技与艺术深度融合 重庆上演互动烟花戏剧](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [华安基金苏圻涵|洞见全球视野：透视跨境投资地图](http://www.blog.kurohicncr.top/Article/details/55190886.shtml)
+- 2026-06-29 11:32 - [Check Point一季度利润超预期，但营收指引不及预期拖累股价](http://www.share.kurohicncr.top/Article/details/995851890.shtml)
+- 2026-06-29 11:43 - [广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容](http://www.blog.kurohicncr.top/Article/details/3170217.shtml)
+- 2026-06-29 11:21 - [2026年“国际中文日”文艺巡演活动在北爱尔兰举行](http://www.share.kurohicncr.top/Article/details/338031040.shtml)
+- 2026-06-29 11:26 - [马斯克法庭交锋OpenAI，称奥特曼“不诚实”](http://www.blog.kurohicncr.top/Article/details/2101912618.shtml)
+- 2026-06-29 11:45 - [德国经济一季度环比增长0.3%](http://www.share.kurohicncr.top/Article/details/311147.shtml)
+- 2026-06-29 11:25 - [摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺](http://www.share.kurohicncr.top/Article/details/5826419.shtml)

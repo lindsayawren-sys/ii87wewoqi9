@@ -1,61 +1,61 @@
-# “5·18国际博物馆日”浙江主会场活动在德清举行
+# 广交会观察：全球采购商寻“鲜”中国美食
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网湖州5月13日电(林波)5月13日，2026年“5·18国际博物馆日”浙江主会场活动启动仪式在湖州德清瓷之源博物馆举行。活动现场，发布了“万年文明溯源”“青瓷文化”等7条精品博物馆研学路线，引导公众“在行走中触摸历史”。 浙江省文化广电和旅游厅党组成员、浙江省文物局局长朱海闵在致辞中指出，2025年，浙江全省备案博物馆总数达452家，国家一级博物馆达21家，稳居全国前列。
+中新社广州5月4日电 (记者 张璐)以“美好生活”为主题的第139届中国进出口商品交易会(简称“广交会”)第三期正在广州举行。食品展区人气旺盛，来自世界各地的采购商穿梭于各个展位，寻觅心仪的产品。 中国商务部数据显示，2025年，中国食品出口金额达781.9亿美元，同比增长2.7%。近年来，中国食品企业的“出海”路径已从产品输出加速转向品牌与标准的全方位输出。 几位泰国采购商在
 
 ## 正文
 
-中新网湖州5月13日电(林波)5月13日，2026年“5·18国际博物馆日”浙江主会场活动启动仪式在湖州德清瓷之源博物馆举行。
+中新社广州5月4日电 (记者 张璐)以“美好生活”为主题的第139届中国进出口商品交易会(简称“广交会”)第三期正在广州举行。
 
-活动现场，发布了“万年文明溯源”“青瓷文化”等7条精品博物馆研学路线，引导公众“在行走中触摸历史”。
+食品展区人气旺盛，来自世界各地的采购商穿梭于各个展位，寻觅心仪的产品。
 
-浙江省文化广电和旅游厅党组成员、浙江省文物局局长朱海闵在致辞中指出，2025年，浙江全省备案博物馆总数达452家，国家一级博物馆达21家，稳居全国前列。
+中国商务部数据显示，2025年，中国食品出口金额达781.9亿美元，同比增长2.7%。
 
-千座乡村博物馆如繁星洒落之江大地，成为优质文化资源直达基层的“浙江样板”。
+近年来，中国食品企业的“出海”路径已从产品输出加速转向品牌与标准的全方位输出。
 
-与此同时，“良渚论坛”、国际博物馆高级别论坛、“2025丝绸之路周”等重大活动次第花开，浙江博物馆的国际影响力如春潮涌动。
+几位泰国采购商在广西柳州市得华食品有限公司的展位上品尝其产品螺蛳粉，并露出满意的表情。
 
-朱海闵表示，今年国际博物馆日的主题是“博物馆：联结世界的桥梁”。
+该公司海外事业部助理曾佳艺表示，近年来，公司传承非遗技艺，以绿色健康的品质“味聚全球”，产品畅销40多个国家和地区。
 
-浙江要以此为航标，联结历史与未来，守护中华文脉的精神根脉，推动延时开放、错峰服务，让博物馆的光照进每一个寻常日子，实施“博物馆共同体”计划等，让藏品、展陈、社教等资源如溪流汇成江河，惠及更广大的人群。
+2025年公司的海外销售额达7000万元人民币，同比增长约30%。
 
-据悉，“撷英揽胜——浙江省‘十四五’时期馆藏文物定级珍品展”在瓷之源博物馆同步举行。
+曾佳艺说，“东南亚的客户喜欢麻辣口味食品，欧洲客户口味偏清淡，我们根据不同地区的消费者偏好研发不同口味的食品。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:22 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:47 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:29 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:45 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:48 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:37 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:39 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:41 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:41 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:27 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:34 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:43 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:25 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:47 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:40 - [广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:28 - [2026年“国际中文日”文艺巡演活动在北爱尔兰举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:29 - [马斯克法庭交锋OpenAI，称奥特曼“不诚实”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:34 - [德国经济一季度环比增长0.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:46 - [摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:40 - [可孚医疗：发售价厘定为每股H股39.33港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:47 - [数万日本民众举行集会 呼吁守护和平宪法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:42 - [在香港沉浸式“邂逅”蒙娜丽莎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:28 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:28 - [中国奥园委聘毕马威咨询(香港)为财务顾问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:22 - [首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:47 - [欧洲央行维持存款利率在2.00%不变 符合预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:37 - [暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:33 - [5月4日中国跨区域人员流动量预计超2.9亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:35 - [内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/474726565475.shtml)
-- 2026-06-29 11:43 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.kurohicncr.top/Article/details/0019185.shtml)
-- 2026-06-29 11:20 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/49043068333.shtml)
-- 2026-06-29 11:22 - [南非门将单场77次成功传球](https://www.blog.minike.top/Article/details/6197181.shtml)
-- 2026-06-29 11:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/08388.shtml)
-- 2026-06-29 11:46 - [比亚迪市值为何蒸发8000亿](https://www.share.kurohicncr.top/Article/details/3623886899.shtml)
-- 2026-06-29 11:47 - [世界杯用球成部分门将噩梦](https://www.share.minike.top/Article/details/61205472706.shtml)
-- 2026-06-29 11:26 - [河南一考生高考703分](https://www.blog.minike.top/Article/details/86647959.shtml)
-- 2026-06-29 11:26 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/01170404144.shtml)
-- 2026-06-29 11:28 - [法国过去5日死亡人数飙升](https://www.blog.kurohicncr.top/Article/details/34796051.shtml)
-- 2026-06-29 11:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/74231.shtml)
-- 2026-06-29 11:38 - [2025年人口增长10强城市出炉](https://www.blog.kurohicncr.top/Article/details/041692729299.shtml)
-- 2026-06-29 11:41 - [宜宾5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/954870.shtml)
-- 2026-06-29 11:18 - [特里：法国是世界杯夺冠热门](http://www.share.kurohicncr.top/Article/details/828421.shtml)
-- 2026-06-29 11:25 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/9598986.shtml)
+- 2026-06-29 11:36 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](http://www.share.minike.top/Article/details/51151514.shtml)
+- 2026-06-29 11:34 - [以更大力度更实举措加强基础研究](http://www.blog.kurohicncr.top/Article/details/7839395.shtml)
+- 2026-06-29 11:47 - [日元保卫战或一触即发 日本财相警告“时机临近”](http://www.share.kurohicncr.top/Article/details/661521.shtml)
+- 2026-06-29 11:21 - [埃克森CEO对委内瑞拉态度转变 此前曾批评该国“不可投资”](http://www.blog.kurohicncr.top/Article/details/110090976.shtml)
+- 2026-06-29 11:25 - [民警一声“快来帮忙”，整座桥上的人都来了！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [英特尔收购Sambanova获美国反垄断批准](http://www.share.kurohicncr.top/Article/details/64843009.shtml)
+- 2026-06-29 11:21 - [北约秘书长：北约欧洲国家听懂特朗普的话了 正落实美军请求](http://www.blog.kurohicncr.top/Article/details/35950.shtml)
+- 2026-06-29 11:30 - [一见·加强基础研究，总书记强调这个关键因素](http://www.blog.kurohicncr.top/Article/details/60048.shtml)
+- 2026-06-29 11:27 - [亚马逊业绩超预期，AWS重新加速增长](http://www.blog.kurohicncr.top/Article/details/15170456.shtml)
+- 2026-06-29 11:41 - [亚马逊：受损阿联酋云区域恢复需数月时间](http://www.blog.minike.top/Article/details/545302.shtml)
+- 2026-06-29 11:36 - [乡村“发明家”让“手搓”坚果打磨机走向世界](http://www.blog.kurohicncr.top/Article/details/84971865974.shtml)
+- 2026-06-29 11:37 - [习近平总书记同劳动者在一起的故事](http://www.share.minike.top/Article/details/52577353.shtml)
+- 2026-06-29 11:36 - [维珍澳大利亚航空或将航班削减措施延续至第三季度](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [四川遂宁龙凤古镇“五一”假期首日人气旺](http://www.blog.minike.top/Article/details/14000638591.shtml)
+- 2026-06-29 11:22 - [抓住机遇，以更大力度更实举措加强基础研究——论学习贯彻习近平总书记在加强基础研究座谈会上重要讲](http://www.share.kurohicncr.top/Article/details/298506023268.shtml)

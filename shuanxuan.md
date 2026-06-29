@@ -1,48 +1,61 @@
-# 喜相逢集团拟折让约2.38%先旧后新配股 净筹约1.26亿港元
+# “五一”假期首日 浙江义乌市场人气“爆棚”消费旺
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-喜相逢集团（02473）公布，于2026年5月13日（交易时段后），公司、卖方明珠资本资源有限公司及配售代理订立配售及认购协议，据此，卖方拟透过配售代理向不少于六名承配人配售约1.55亿股现有股份，每股配售股份0.82港元，较股份于最后交易日在联交所所报收市价每股0.84港元折让约2.38%；而该公司将按每股0.82港元的价格向卖方发行同等数量的新股，净筹约1.26亿港元，拟用
+云南边境的目瑙纵歌，何以火爆全网？上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！孩子吃饭少、长不高、脾气暴？专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲53国“敞开怀抱”绍兴黄酒“春藏”热 中外家庭“封藏”人生喜事百年冰泉豆浆香飘海内外：烟火乡愁 味引八方多家景区宣布免门票，这个五一，跟着电影去旅
 
 ## 正文
 
-喜相逢集团（02473）公布，于2026年5月13日（交易时段后），公司、卖方明珠资本资源有限公司及配售代理订立配售及认购协议，据此，卖方拟透过配售代理向不少于六名承配人配售约1.55亿股现有股份，每股配售股份0.82港元，较股份于最后交易日在联交所所报收市价每股0.84港元折让约2.38%；而该公司将按每股0.82港元的价格向卖方发行同等数量的新股，净筹约1.26亿港元，拟用于就集团主营业务进一步采购汽车及作相关用途。
+云南边境的目瑙纵歌，何以火爆全网？
 
-责任编辑：卢昱君
+上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！
+
+孩子吃饭少、长不高、脾气暴？
+
+专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲53国“敞开怀抱”绍兴黄酒“春藏”热 中外家庭“封藏”人生喜事百年冰泉豆浆香飘海内外：烟火乡愁 味引八方多家景区宣布免门票，这个五一，跟着电影去旅游！
+
+中国文学何以打动世界读者？
+
+凤何以成为中华民族文化标识？
+
+“王的盛宴”：从“No Kings”到“TWO KINGS”“王的演讲”：满堂笑声之后，查尔斯说了大家爱听的，唯独漏了英美必须听的记者手记：亚沙会，让世界从三亚看见开放中国AI末日论：真实风险还是叙事陷阱？
+
+伊朗战事已烧250亿美元？
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:39 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:41 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:29 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:38 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:40 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:23 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:31 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:25 - [特里：法国是世界杯夺冠热门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:22 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:29 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:41 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:24 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:42 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:38 - [刚刚，全线大涨！日本，突然动手了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:24 - [“五一”假期，中国游中国购的引力“藏不住了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:27 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:21 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:42 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:19 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:41 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:37 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:20 - [以更大力度更实举措加强基础研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:21 - [日元保卫战或一触即发 日本财相警告“时机临近”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:42 - [埃克森CEO对委内瑞拉态度转变 此前曾批评该国“不可投资”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:41 - [民警一声“快来帮忙”，整座桥上的人都来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:39 - [英特尔收购Sambanova获美国反垄断批准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:45 - [北约秘书长：北约欧洲国家听懂特朗普的话了 正落实美军请求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:40 - [一见·加强基础研究，总书记强调这个关键因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [小娘惹](http://www.share.minike.top/Article/details/4079782.shtml)
-- 2026-06-29 11:30 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/62072938077.shtml)
-- 2026-06-29 11:29 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.blog.kurohicncr.top/Article/details/70857283.shtml)
-- 2026-06-29 11:35 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/619654687697.shtml)
-- 2026-06-29 11:47 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/8001857.shtml)
-- 2026-06-29 11:30 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/216739582895.shtml)
-- 2026-06-29 11:33 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/823936022288.shtml)
-- 2026-06-29 11:19 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/466651193.shtml)
-- 2026-06-29 11:48 - [曝韩国球员目睹出局时正吃饭](http://www.blog.minike.top/Article/details/67208549.shtml)
-- 2026-06-29 11:46 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/20636147004.shtml)
-- 2026-06-29 11:30 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/3165146223.shtml)
-- 2026-06-29 11:30 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.minike.top/Article/details/10994571682.shtml)
-- 2026-06-29 11:47 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.share.minike.top/Article/details/911120147.shtml)
-- 2026-06-29 11:27 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/1248358750.shtml)
-- 2026-06-29 11:25 - [这位天才台湾人第一次来大陆，开智了](http://www.share.kurohicncr.top/Article/details/515190.shtml)
+- 2026-06-29 11:18 - [“五一”假期首日广东水上出行迎来客流高峰](http://www.blog.kurohicncr.top/Article/details/9061667619.shtml)
+- 2026-06-29 11:36 - [关于开展2026年企业ESG实践成果展示活动的通知](http://www.share.kurohicncr.top/Article/details/267526399265.shtml)
+- 2026-06-29 11:31 - [干预数小时后 日元兑美元汇率大幅上涨](http://www.blog.minike.top/Article/details/30199487656.shtml)
+- 2026-06-29 11:31 - [“苏超”南京赛区志愿者暖心护航 宁马青年聚力绽放青春力量](http://www.share.kurohicncr.top/Article/details/4677559.shtml)
+- 2026-06-29 11:37 - [刀为笔、木为纸 木版年画比赛展非遗魅力](http://www.share.minike.top/Article/details/0260156923.shtml)
+- 2026-06-29 11:35 - [福建首个侨台档案融合展示馆开门迎客](http://www.share.minike.top/Article/details/7086511839.shtml)
+- 2026-06-29 11:19 - [AI浪潮里的“模速青年”：勇敢追梦，让年轻有“模”有样](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [巴西国家石油公司宣布航空煤油提价18%](http://www.share.kurohicncr.top/Article/details/69620901.shtml)
+- 2026-06-29 11:47 - [马里一军营被武装组织控制 首都周边交通受阻](http://www.share.kurohicncr.top/Article/details/66799516233.shtml)
+- 2026-06-29 11:27 - [伯克希尔一季度利润翻倍以上 保险、铁路、能源业务提振业绩](http://www.blog.kurohicncr.top/Article/details/76966.shtml)
+- 2026-06-29 11:21 - [Vulcan Materials一季度营收超预期 因建材需求强劲](http://www.share.minike.top/Article/details/812109.shtml)
+- 2026-06-29 11:34 - [巴菲特：当前并非伯克希尔理想的投资环境](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [5月1日全社会跨区域人员流动量预计超3.4亿人次](http://www.share.minike.top/Article/details/43424.shtml)
+- 2026-06-29 11:23 - [见证历史！伯克希尔现金储备近3万亿！95岁巴菲特正式“退役”，阿贝尔：不会为了AI而AI](http://www.share.minike.top/Article/details/50364716471.shtml)
+- 2026-06-29 11:30 - [专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默](http://www.share.minike.top/Article/details/77777703.shtml)

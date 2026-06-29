@@ -1,57 +1,56 @@
-# 可立克：5月12日接受机构调研，国信证券、华西证券等多家机构参与
+# 伊朗给出14点谈判提议 特朗普对内容表示不满
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 证券之星消息，2026年5月14日可立克(002782)发布公告称公司于2026年5月12日接受机构调研，国信证券、华西证券、华创证券、东吴证券、鹏华基金、博时基金、麦高证券、平安基金、招商证券、建信基金、上海永谐投资、天弘基金、永盈基金、诺安基金、大成基金、易方达基金、汇添富基金、浦银安盛、银华基金参与。具体内容如下：问：请介
+中新社北京5月3日电 综合消息：据伊朗塔斯尼姆通讯社当地时间2日报道，伊朗已通过斡旋方巴基斯坦向美国提出包含14点提议的谈判方案。美国总统特朗普对方案内容表示不满。 报道称，伊朗此次提议是为回应美国先前提出的一项包含9点提议的谈判方案。14点提议主要包括：确保不进行军事侵略、将美军从伊朗周边地区撤出、解除海上封锁、解冻伊朗被冻结资产、支付赔偿、取消制裁、在包括黎巴嫩在内的所有战
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 证券之星消息，2026年5月14日可立克(002782)发布公告称公司于2026年5月12日接受机构调研，国信证券、华西证券、华创证券、东吴证券、鹏华基金、博时基金、麦高证券、平安基金、招商证券、建信基金、上海永谐投资、天弘基金、永盈基金、诺安基金、大成基金、易方达基金、汇添富基金、浦银安盛、银华基金参与。
+中新社北京5月3日电 综合消息：据伊朗塔斯尼姆通讯社当地时间2日报道，伊朗已通过斡旋方巴基斯坦向美国提出包含14点提议的谈判方案。
 
-具体内容如下：问：请介绍一季度经营情况？
+美国总统特朗普对方案内容表示不满。
 
-答：公司2026年一季度营业收入保持稳健增长，毛利率有所下滑，主要原因是大宗商品铜等原材料价格上涨，向下游客户传导存在一定的滞后性影响所致。
+报道称，伊朗此次提议是为回应美国先前提出的一项包含9点提议的谈判方案。
 
-公司已阶段性完成同下游客户涨价协商工作，并持续优化产品结构、强化供应链成本管控与内部精益管理，稳步提升盈利水平。
+14点提议主要包括：确保不进行军事侵略、将美军从伊朗周边地区撤出、解除海上封锁、解冻伊朗被冻结资产、支付赔偿、取消制裁、在包括黎巴嫩在内的所有战线结束战争、建立霍尔木兹海峡新管理机制等。
 
-问：公司越南、墨西哥项目的进展情况？
+美国先前的方案称，美伊双方应停火两个月。
 
-答：越南生产基地已完成动土奠基，基建工程有序开展，建设期为一年左右，预计2027年上半年实现投产，生产能力将全面覆盖各类电源和磁性元件；墨西哥自购厂房项目，已进入厂房装修及设备购置阶段，预计2026年三季度投入使用，主要服务于北美和拉美市场，覆盖电动工具、高端消费类等应用领域。
+对此，伊朗强调，各项问题应在30天内解决，且重点应放在“结束战争”、而非延长停火之上。
 
-问：SST研发现在什么进展？
+特朗普2日稍晚回应称，他将很快研究伊朗最新提交的方案，但“无法想象该方案可以被接受”。
 
-答：公司SST固态变压器相关研发推进顺利。
+他还说，美军有可能恢复空袭伊朗。
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [丞磊莫离最后5集加起来集均3分钟戏份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:27 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:33 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:46 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:40 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:36 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:38 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:23 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:20 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:45 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:25 - [全美自动驾驶出租车行业迎来爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:45 - [特朗普称可能考虑从西班牙和意大利撤出部分军队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:28 - [外交部发言人就东京审判开庭80周年答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:31 - [福州市签约22个数字经济重点项目 总投资190亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:26 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:19 - [伏季休渔启幕 广西北海侨港码头渔市热闹收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:43 - [星火成炬｜生活的想象力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:35 - [厦门推动两岸标准共通助力台企拓宽市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:43 - [今年以来广西爱店口岸跨境贸易持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:46 - [亚马逊Audible李博隆：AI让研发成本和机会成本大大下降，越来越多科技公司开始做跨界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [四川宜宾发生5.5级地震](http://www.blog.kurohicncr.top/Article/details/50388588.shtml)
-- 2026-06-29 11:36 - [宜宾地震后顾客折返用餐0人逃单](http://www.share.minike.top/Article/details/68555.shtml)
-- 2026-06-29 11:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/37254.shtml)
-- 2026-06-29 11:48 - [城市规划有可能成为「屎山代码」吗？](https://www.blog.kurohicncr.top/Article/details/6278417.shtml)
-- 2026-06-29 11:40 - [韩国记者：解码“合肥模式”](https://www.share.minike.top/Article/details/5840775287.shtml)
-- 2026-06-29 11:37 - [中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/3727711.shtml)
-- 2026-06-29 11:30 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/456375864.shtml)
-- 2026-06-29 11:26 - [去美国加油？部分加拿大球迷陷入纠结](http://www.share.kurohicncr.top/Article/details/26056731.shtml)
-- 2026-06-29 11:42 - [世界杯小组赛阶段过人榜：马扎居首](http://www.share.kurohicncr.top/Article/details/941361.shtml)
-- 2026-06-29 11:40 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/856205112.shtml)
-- 2026-06-29 11:34 - [房屋抵押权与租赁权如何协调](http://www.share.minike.top/Article/details/0158301.shtml)
-- 2026-06-29 11:30 - [急先锋](https://www.share.minike.top/Article/details/913479.shtml)
-- 2026-06-29 11:25 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.kurohicncr.top/Article/details/34048125409.shtml)
-- 2026-06-29 11:45 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/271090724.shtml)
-- 2026-06-29 11:46 - [民进党为什么拼命抹黑统战](http://www.blog.minike.top/Article/details/729076051460.shtml)
+- 2026-06-29 11:23 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](http://www.share.kurohicncr.top/Article/details/15745.shtml)
+- 2026-06-29 11:19 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](http://www.share.kurohicncr.top/Article/details/40772664.shtml)
+- 2026-06-29 11:28 - [“五一”假期首日：民众游杭州西湖享江南时光](http://www.blog.minike.top/Article/details/2781116750.shtml)
+- 2026-06-29 11:24 - [美国威胁制裁向伊朗缴通行费的航运企业](http://www.blog.kurohicncr.top/Article/details/70292556.shtml)
+- 2026-06-29 11:46 - [中国铁路迎来“五一”假期运输客流最高峰](http://www.share.minike.top/Article/details/5978115303.shtml)
+- 2026-06-29 11:26 - [致敬劳动者｜每一方寸，因你而闪光](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [远东国际观察：日本国会参议院通过2026财年预算案](http://www.blog.minike.top/Article/details/511587.shtml)
+- 2026-06-29 11:24 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](http://www.blog.kurohicncr.top/Article/details/749374.shtml)
+- 2026-06-29 11:26 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [福州地铁客流连创新高](http://www.share.kurohicncr.top/Article/details/28122.shtml)
+- 2026-06-29 11:26 - [埃及侨商：持续推动“零关税”红利转化为务实合作](http://www.blog.minike.top/Article/details/871866807.shtml)
+- 2026-06-29 11:31 - [“05后”持有人猛增10倍，年轻人涌向AI基金](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [2026五一档新片票房破9000万](http://www.blog.minike.top/Article/details/685941458.shtml)
+- 2026-06-29 11:44 - [美国制造业保持扩张势头 价格指标触及四年高位](http://www.share.minike.top/Article/details/1573185.shtml)

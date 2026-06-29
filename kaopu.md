@@ -1,49 +1,55 @@
-# 加密货币“清晰法案”进入审议阶段
+# 可孚医疗：发售价厘定为每股H股39.33港元
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-美国参议院银行委员会将讨论《数字资产市场清晰法案》，目前各方在稳定币收益率和道德条款方面仍存在争议。Coinbase等加密货币交易所正密切关注该法案的审议结果，因为相关立法将直接影响到数字资产的监管框架和市场准入条件。支持者认为，该法案有望为行业提供急需的法律确定性，促进创新和投资；而反对者则担心过度监管可能抑制市场活力，并损害消费者利益。责任编辑：张俊 SF065
+可孚医疗（01187）发布公告，发售价已于2026年5月3日厘定为每股H股39.33港元（不包括1%经纪佣金、 0.0027%证监会交易征费、0.00565%联交所交易费及0.00015%会财局交易征费）。 假设全球发售于2026年5月6日（星期三）上午八时正（香港时间）或之前成为无条件，预期H股将于2026年5月6日（星期三）上午九时正（香港时间）在联交所主板开始买卖。H股将
 
 ## 正文
 
-美国参议院银行委员会将讨论《数字资产市场清晰法案》，目前各方在稳定币收益率和道德条款方面仍存在争议。
+可孚医疗（01187）发布公告，发售价已于2026年5月3日厘定为每股H股39.33港元（不包括1%经纪佣金、 0.0027%证监会交易征费、0.00565%联交所交易费及0.00015%会财局交易征费）。
 
-Coinbase等加密货币交易所正密切关注该法案的审议结果，因为相关立法将直接影响到数字资产的监管框架和市场准入条件。
+假设全球发售于2026年5月6日（星期三）上午八时正（香港时间）或之前成为无条件，预期H股将于2026年5月6日（星期三）上午九时正（香港时间）在联交所主板开始买卖。
 
-支持者认为，该法案有望为行业提供急需的法律确定性，促进创新和投资；而反对者则担心过度监管可能抑制市场活力，并损害消费者利益。
+H股将以每手100股H股进行交易。
 
-责任编辑：张俊 SF065
+H股的股份代号为1187。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:47 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:39 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:32 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:32 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:29 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:27 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:40 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:20 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:25 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:39 - [暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:34 - [5月4日中国跨区域人员流动量预计超2.9亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:39 - [内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:39 - [东西问丨杜方绥：中国文学何以打动世界读者？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:31 - [东京通胀进一步降温 支撑日本央行加息谨慎立场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:42 - [亚马逊AWS营收增长28%，达到376亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:30 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:28 - [刚刚，利好来了！上海，重磅出手！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:22 - [3月核心通胀率升至3.2%，一季度经济增速仅2%不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:21 - [西藏昌都文旅资源亮相天津 多项合作签约落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:31 - [埃克森美孚与雪佛龙无视特朗普政府增产呼吁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:42 - [钠电池迎来历史性拐点！业绩报喜概念股出炉，4股市盈率不到30倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:23 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:18 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:32 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/806798.shtml)
-- 2026-06-29 11:39 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://www.share.kurohicncr.top/Article/details/09546388053.shtml)
-- 2026-06-29 11:32 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](http://www.share.minike.top/Article/details/758408.shtml)
-- 2026-06-29 11:18 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.kurohicncr.top/Article/details/857647.shtml)
-- 2026-06-29 11:48 - [水利部部署南方地区暴雨洪水防御工作](https://www.blog.minike.top/Article/details/156966.shtml)
-- 2026-06-29 11:22 - [恋与深空底线不该被娱乐化](https://www.blog.kurohicncr.top/Article/details/0485119007.shtml)
-- 2026-06-29 11:44 - [功率半导体缺货涨价](https://www.share.minike.top/Article/details/5060847369.shtml)
-- 2026-06-29 11:36 - [伊朗与黎巴嫩商定设立冲突管控工作组](http://www.share.kurohicncr.top/Article/details/208690381994.shtml)
-- 2026-06-29 11:44 - [天道](https://www.share.kurohicncr.top/Article/details/686107.shtml)
-- 2026-06-29 11:36 - [王楚钦美国大满贯晋级32强](https://www.blog.minike.top/Article/details/304477.shtml)
-- 2026-06-29 11:21 - [【独家】牧神记 第89集 明心](https://www.blog.minike.top/Article/details/11839.shtml)
-- 2026-06-29 11:33 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/808796749014.shtml)
-- 2026-06-29 11:47 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/471232.shtml)
-- 2026-06-29 11:37 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.share.kurohicncr.top/Article/details/95444535.shtml)
-- 2026-06-29 11:42 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/539516433.shtml)
+- 2026-06-29 11:30 - [维珍澳大利亚航空或将航班削减措施延续至第三季度](http://www.share.minike.top/Article/details/413242.shtml)
+- 2026-06-29 11:43 - [四川遂宁龙凤古镇“五一”假期首日人气旺](http://www.share.kurohicncr.top/Article/details/301611959.shtml)
+- 2026-06-29 11:25 - [抓住机遇，以更大力度更实举措加强基础研究——论学习贯彻习近平总书记在加强基础研究座谈会上重要讲](http://www.blog.kurohicncr.top/Article/details/717857.shtml)
+- 2026-06-29 11:37 - [有关伊朗的报道发布后油价下跌 美国国债升至日内高点](http://www.blog.minike.top/Article/details/79475.shtml)
+- 2026-06-29 11:43 - [国铁广州局“五一”假期预计发送旅客2277万人次](http://www.share.kurohicncr.top/Article/details/301613.shtml)
+- 2026-06-29 11:19 - [“中文热是中国发展成就最好的印证”——访俄罗斯伊尔库茨克国立大学孔院俄方院长拜拉莫娃](http://www.share.kurohicncr.top/Article/details/03439757040.shtml)
+- 2026-06-29 11:29 - [玉浦高速公路200余名建设者“五一”不打烊 铺筑发展快车道](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [关税退税提振利润难掩现金流疲软，Stellantis股价重挫](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [特朗普削减驻德美军计划引发美国及北约盟友质疑](http://www.share.minike.top/Article/details/8131257846.shtml)
+- 2026-06-29 11:28 - [以防长：以色列或“很快”对伊朗“再次采取行动”](http://www.share.kurohicncr.top/Article/details/65567829.shtml)
+- 2026-06-29 11:25 - [【追光的你】习言道｜追求进步是青年最宝贵的特质](http://www.blog.kurohicncr.top/Article/details/162736.shtml)
+- 2026-06-29 11:34 - [香港清华同学会成立70周年峰会在港举办](http://www.share.minike.top/Article/details/874397105.shtml)
+- 2026-06-29 11:34 - [美国得克萨斯州发生枪击事件 致2死10伤](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [一杯清香里的世界连接：青花汾酒走进全球投资者的感官与记忆](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [宁夏银川：咖啡遇上音乐 “五一”假期解锁文旅休闲新场景](http://www.blog.kurohicncr.top/Article/details/21743.shtml)

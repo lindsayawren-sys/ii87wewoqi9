@@ -1,44 +1,50 @@
-# 朱雀二号改进型遥五运载火箭发射成功
+# 广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-新华社酒泉5月14日电(李国利、王晨宇)5月14日11时00分，朱雀二号改进型遥五运载火箭在东风商业航天创新试验区发射升空，运载火箭全程飞行正常，二子级进入预定轨道，飞行试验任务取得圆满成功。
+中新网桂林5月1日电(莫伟雯 杨飏)4月30日23时许，济州航空执飞的7C8631韩国大邱—桂林航班落地桂林两江国际机场，标志着该航线成功首航，广西桂林与东亚主要城市间的空中互联互通水平进一步提升。 据悉，该航线由济州航空执飞，航班号为7C8631/32，采用B737-800机型，计划每周四、周日飞行两班。这是济州航空继开通桂林—首尔仁川航线后，执飞的第二条桂林国际航线，桂林机
 
 ## 正文
 
-新华社酒泉5月14日电(李国利、王晨宇)5月14日11时00分，朱雀二号改进型遥五运载火箭在东风商业航天创新试验区发射升空，运载火箭全程飞行正常，二子级进入预定轨道，飞行试验任务取得圆满成功。
+中新网桂林5月1日电(莫伟雯 杨飏)4月30日23时许，济州航空执飞的7C8631韩国大邱—桂林航班落地桂林两江国际机场，标志着该航线成功首航，广西桂林与东亚主要城市间的空中互联互通水平进一步提升。
+
+据悉，该航线由济州航空执飞，航班号为7C8631/32，采用B737-800机型，计划每周四、周日飞行两班。
+
+这是济州航空继开通桂林—首尔仁川航线后，执飞的第二条桂林国际航线，桂林机场与济州航空的航线合作关系将更加密切。
+
+该航线开通后，桂林两江国际机场今年以来累计飞行的国际及地区通航城市达到8个，其中地区航点涵盖中国香港，国际航线覆盖马来西亚、越南和韩国等东盟及东亚国家。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:47 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:37 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:30 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:27 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:33 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:47 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:42 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:30 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:22 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:26 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:32 - [在香港沉浸式“邂逅”蒙娜丽莎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:23 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:44 - [中国奥园委聘毕马威咨询(香港)为财务顾问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:45 - [首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:36 - [欧洲央行维持存款利率在2.00%不变 符合预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:32 - [暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:44 - [5月4日中国跨区域人员流动量预计超2.9亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:32 - [内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:22 - [东西问丨杜方绥：中国文学何以打动世界读者？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:27 - [东京通胀进一步降温 支撑日本央行加息谨慎立场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [三轮车被自家狗“推”进池塘](http://www.blog.minike.top/Article/details/80578.shtml)
-- 2026-06-29 11:36 - [蒸了一锅妃子笑荔枝馒头](http://www.share.minike.top/Article/details/30670529.shtml)
-- 2026-06-29 11:30 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/4978728677.shtml)
-- 2026-06-29 11:45 - [有清北的实力却只考了大专，在大学怎么平衡心态？](http://www.share.minike.top/Article/details/6714883.shtml)
-- 2026-06-29 11:29 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/3194678704.shtml)
-- 2026-06-29 11:35 - [唐艺昕女儿接唐艺昕回家](http://www.blog.minike.top/Article/details/1993869.shtml)
-- 2026-06-29 11:35 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/612694078787.shtml)
-- 2026-06-29 11:35 - [日本媒体：板仓滉已回归日本队合练](https://www.blog.kurohicncr.top/Article/details/432771830792.shtml)
-- 2026-06-29 11:48 - [国乒男单资格赛全员出局](https://www.blog.minike.top/Article/details/58658.shtml)
-- 2026-06-29 11:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/300381.shtml)
-- 2026-06-29 11:20 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](http://www.share.minike.top/Article/details/558403234.shtml)
-- 2026-06-29 11:43 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/13289.shtml)
-- 2026-06-29 11:21 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/590405.shtml)
-- 2026-06-29 11:20 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/43318.shtml)
-- 2026-06-29 11:27 - [《昨夜将至》为何是悬疑黑马](https://www.share.kurohicncr.top/Article/details/353161759639.shtml)
+- 2026-06-29 11:27 - [一见·加强基础研究，总书记强调这个关键因素](http://www.blog.kurohicncr.top/Article/details/361114.shtml)
+- 2026-06-29 11:28 - [亚马逊业绩超预期，AWS重新加速增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [亚马逊：受损阿联酋云区域恢复需数月时间](http://www.share.minike.top/Article/details/238069017.shtml)
+- 2026-06-29 11:33 - [乡村“发明家”让“手搓”坚果打磨机走向世界](http://www.share.kurohicncr.top/Article/details/03365561613.shtml)
+- 2026-06-29 11:35 - [习近平总书记同劳动者在一起的故事](http://www.share.kurohicncr.top/Article/details/22948.shtml)
+- 2026-06-29 11:37 - [维珍澳大利亚航空或将航班削减措施延续至第三季度](http://www.share.minike.top/Article/details/70615.shtml)
+- 2026-06-29 11:21 - [四川遂宁龙凤古镇“五一”假期首日人气旺](http://www.share.minike.top/Article/details/17842935.shtml)
+- 2026-06-29 11:32 - [抓住机遇，以更大力度更实举措加强基础研究——论学习贯彻习近平总书记在加强基础研究座谈会上重要讲](http://www.share.kurohicncr.top/Article/details/544377278418.shtml)
+- 2026-06-29 11:45 - [有关伊朗的报道发布后油价下跌 美国国债升至日内高点](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [国铁广州局“五一”假期预计发送旅客2277万人次](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [“中文热是中国发展成就最好的印证”——访俄罗斯伊尔库茨克国立大学孔院俄方院长拜拉莫娃](http://www.blog.kurohicncr.top/Article/details/9039795.shtml)
+- 2026-06-29 11:28 - [玉浦高速公路200余名建设者“五一”不打烊 铺筑发展快车道](http://www.share.minike.top/Article/details/857881735.shtml)
+- 2026-06-29 11:41 - [关税退税提振利润难掩现金流疲软，Stellantis股价重挫](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [特朗普削减驻德美军计划引发美国及北约盟友质疑](http://www.share.kurohicncr.top/Article/details/8855679589.shtml)
+- 2026-06-29 11:25 - [以防长：以色列或“很快”对伊朗“再次采取行动”](http://www.blog.kurohicncr.top/Article/details/572589212.shtml)

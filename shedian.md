@@ -1,56 +1,61 @@
-# 美国承诺向联合国提供新的人道主义援助，并称援助须符合特朗普政府的利益
+# 印尼Mako天然气项目稳步推进，预计2027年投产
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-美国国务院首席援助官员周四表示，美国将通过联合国提供18亿美元新增人道主义援助，这笔资金的使用将与特朗普政府的外交政策利益保持一致。 此次新增资金承诺，是美国去年12月宣布的20亿美元援助计划之外的追加款项。此前美国推出了一项新机制，旨在提高援助资金的拨付与执行效率，并强化问责——当前美国及其他发达国家正普遍削减援助开支。 杰里米・卢因曾任埃隆・马斯克领导的政府效率部职员，现担
+Conrad Asia Energy通过其控股子公司West Natuna Exploration作为作业方，正在推进印尼海上Mako天然气项目的开发，目标于2027年第四季度实现首气。 项目合作伙伴Empyrean Energy表示，继2026年3月宣布最终投资决定后，Duyung产量分成合同项下的开发活动仍在按计划推进。 Empyrean称，截至第一季度末，作业方已发出价值
 
 ## 正文
 
-美国国务院首席援助官员周四表示，美国将通过联合国提供18亿美元新增人道主义援助，这笔资金的使用将与特朗普政府的外交政策利益保持一致。
+Conrad Asia Energy通过其控股子公司West Natuna Exploration作为作业方，正在推进印尼海上Mako天然气项目的开发，目标于2027年第四季度实现首气。
 
-此次新增资金承诺，是美国去年12月宣布的20亿美元援助计划之外的追加款项。
+项目合作伙伴Empyrean Energy表示，继2026年3月宣布最终投资决定后，Duyung产量分成合同项下的开发活动仍在按计划推进。
 
-此前美国推出了一项新机制，旨在提高援助资金的拨付与执行效率，并强化问责——当前美国及其他发达国家正普遍削减援助开支。
+Empyrean称，截至第一季度末，作业方已发出价值超过2.8亿美元的资本合同授标函，占项目总成本的80%以上。
 
-杰里米・卢因曾任埃隆・马斯克领导的政府效率部职员，现担任负责对外援助、人道主义事务及宗教自由的副国务卿。
+钻井、海底系统、导管支撑框架及长周期设备等合同均已授出，里程碑付款已完成，成本仍符合预期指引。
 
-他表示，通过该机制拨付的美国援助中，92%已“高度优先”用于救生援助，且这一比例将持续保持。
+该项目初期将包含六口开发井，回接至一座设计日处理能力为1.72亿标准立方英尺的移动海上生产装置。
 
-他谈及美国总统唐纳德・特朗普时称：“高度优先、聚焦重点，只投向符合我们外交政策利益、契合总统关切的地区。
+天然气将通过59公里长的管道输送至Kakap产量分成合同区块，随后通过West Natuna运输系统输送至印尼国内市场。
 
-” 卢因指出，这意味着作为联合国人道主义事务协调厅（OCHA）最大单一捐助国，美国的资金将不会流向那些与美国利益不符、且不符合OCHA优先事项的国家。
+Empyrean表示，按100%权益计算，至首气时的总资本支出估计为3.2亿美元，项目资金已全部落实。
 
-他补充称，通过OCHA提供的资金，并非美国海外人道主义援助的全部。
+Empyrean临时首席执行官Gaz Bisht表示：“Empyrean欣慰地看到Mako气田开发活动进展迅速，三季度的采购工作已大规模展开，所有资金均来自此前宣布的贷款协议。
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:36 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:29 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:28 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:22 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:18 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:31 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:39 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:19 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:39 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:22 - [北约秘书长：北约欧洲国家听懂特朗普的话了 正落实美军请求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:43 - [一见·加强基础研究，总书记强调这个关键因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:30 - [亚马逊业绩超预期，AWS重新加速增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:18 - [亚马逊：受损阿联酋云区域恢复需数月时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:40 - [乡村“发明家”让“手搓”坚果打磨机走向世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:47 - [习近平总书记同劳动者在一起的故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:29 - [维珍澳大利亚航空或将航班削减措施延续至第三季度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:44 - [四川遂宁龙凤古镇“五一”假期首日人气旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:24 - [抓住机遇，以更大力度更实举措加强基础研究——论学习贯彻习近平总书记在加强基础研究座谈会上重要讲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:43 - [有关伊朗的报道发布后油价下跌 美国国债升至日内高点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:22 - [国铁广州局“五一”假期预计发送旅客2277万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:30 - [“中文热是中国发展成就最好的印证”——访俄罗斯伊尔库茨克国立大学孔院俄方院长拜拉莫娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:37 - [玉浦高速公路200余名建设者“五一”不打烊 铺筑发展快车道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:18 - [关税退税提振利润难掩现金流疲软，Stellantis股价重挫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:40 - [特朗普削减驻德美军计划引发美国及北约盟友质疑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/78086916108.shtml)
-- 2026-06-29 11:48 - [未来5年 充电供热供暖将有大变化](https://www.blog.kurohicncr.top/Article/details/1980699148.shtml)
-- 2026-06-29 11:22 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/1556406.shtml)
-- 2026-06-29 11:29 - [欧洲已有超1300例超额死亡与高温有关](https://www.blog.kurohicncr.top/Article/details/74666714205.shtml)
-- 2026-06-29 11:38 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.kurohicncr.top/Article/details/60602.shtml)
-- 2026-06-29 11:20 - [Gucci全球首席营销官发肖战](https://www.blog.minike.top/Article/details/304788229.shtml)
-- 2026-06-29 11:20 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/1491428.shtml)
-- 2026-06-29 11:48 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/60699827913.shtml)
-- 2026-06-29 11:23 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.share.kurohicncr.top/Article/details/03881.shtml)
-- 2026-06-29 11:42 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.kurohicncr.top/Article/details/6573308830.shtml)
-- 2026-06-29 11:41 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/75311.shtml)
-- 2026-06-29 11:48 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/2074847509.shtml)
-- 2026-06-29 11:30 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.kurohicncr.top/Article/details/89812.shtml)
-- 2026-06-29 11:32 - [黄灿灿是浪姐最大赢家吧](http://www.share.kurohicncr.top/Article/details/9279047589.shtml)
-- 2026-06-29 11:38 - [这位天才台湾人第一次来大陆，开智了](https://www.share.kurohicncr.top/Article/details/1093268.shtml)
+- 2026-06-29 11:18 - [见证历史！伯克希尔现金储备近3万亿！95岁巴菲特正式“退役”，阿贝尔：不会为了AI而AI](http://www.share.minike.top/Article/details/315881688262.shtml)
+- 2026-06-29 11:28 - [专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默](http://www.share.minike.top/Article/details/35220992675.shtml)
+- 2026-06-29 11:47 - [【小新的Vlog】探访藏在四川深山里的“白衣飘飘” 邂逅漫山“植物活化石”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [存储巨头业绩股价双炸裂，利润最高涨超7倍，股价年涨幅最高35倍](http://www.blog.minike.top/Article/details/71354.shtml)
+- 2026-06-29 11:26 - [直击巴菲特股东会｜对话巴菲特旗下分公司高管：巴菲特和格雷格信任每一位经理](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [数据中心需求强劲，开利第一季度利润超预期](http://www.blog.kurohicncr.top/Article/details/567638150.shtml)
+- 2026-06-29 11:45 - [观界江 品鱼鲜 “中国第一龙乡”嘉荫开江活动引游人](http://www.share.minike.top/Article/details/638818428236.shtml)
+- 2026-06-29 11:39 - [“五一” 假期拉萨市民山谷过林卡 乐享假日时光](http://www.share.minike.top/Article/details/29142231839.shtml)
+- 2026-06-29 11:30 - [江苏海警局联合多部门启动2026年海洋伏季休渔专项执法行动](http://www.share.minike.top/Article/details/84652484457.shtml)
+- 2026-06-29 11:25 - [Semafor：特朗普将签署行政命令 扩大退休计划的覆盖范围](http://www.blog.kurohicncr.top/Article/details/29244.shtml)
+- 2026-06-29 11:36 - [第九届数字中国建设峰会：数字科技吸引参观者](http://www.share.kurohicncr.top/Article/details/33682351.shtml)
+- 2026-06-29 11:19 - [阿瑞斯投资管理募资创纪录 营收同比走高](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [美联储古尔斯比：上周会议上的不同意见凸显前瞻性指引的复杂性](http://www.blog.minike.top/Article/details/74061.shtml)
+- 2026-06-29 11:36 - [“五一”叠加春假催热消费 各地加大节日市场供应](http://www.blog.minike.top/Article/details/70592334.shtml)
+- 2026-06-29 11:34 - [学习手记｜把好经验总结好运用好](http://www.share.minike.top/Article/details/1141078351.shtml)

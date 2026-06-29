@@ -1,59 +1,58 @@
-# 江苏探索肿瘤分级诊疗新路径 联合病房破解“联而不通”
+# 2026上海浪琴环球马术冠军赛 比利时选手夺冠
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网南京5月13日电 (胥林花 蒋雯)近日，江苏省肿瘤医院与盐城东台市人民医院正式签约揭牌，共建紧密型医联体联合病房。双方以同质化诊疗为核心、双向转诊为路径，持续推进“大病不出县、康复回基层”的分级诊疗新模式。 根据合作约定，江苏省肿瘤医院专家每天通过5G远程系统为联合病房在院患者研判病情、调整方案，每周安排副主任医师及以上职称专家线下查房。针对疑难病例可发起远程多学科会诊，
+短评：欧洲议会的“选择性失明”东京审判为何关乎今天？爱奇艺，到底在急什么？榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？“拼小团”出游热度高，这份“避
 
 ## 正文
 
-中新网南京5月13日电 (胥林花 蒋雯)近日，江苏省肿瘤医院与盐城东台市人民医院正式签约揭牌，共建紧密型医联体联合病房。
+短评：欧洲议会的“选择性失明”东京审判为何关乎今天？
 
-双方以同质化诊疗为核心、双向转诊为路径，持续推进“大病不出县、康复回基层”的分级诊疗新模式。
+爱奇艺，到底在急什么？
 
-根据合作约定，江苏省肿瘤医院专家每天通过5G远程系统为联合病房在院患者研判病情、调整方案，每周安排副主任医师及以上职称专家线下查房。
+榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？
 
-针对疑难病例可发起远程多学科会诊，肿瘤内科、外科、放疗科、影像科等专家快速响应。
+从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？
 
-在双向转诊方面，江苏省肿瘤医院将为东台市人民医院转诊患者预留号源与床位，康复期患者下转后，双方通过线上线下联合查房指导后续治疗。
+“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
 
-东台市已构建“2家龙头医院+24个镇卫生院+341个村卫生室”一体化体系，县域就诊率稳定在90%以上，但肿瘤患者仍是县域外流最多的就诊群体。
+这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？
 
-东台市人民医院党委书记杨爱兵坦言，民众对基层缺乏信任，盲目到外地就医不仅增加成本，也未必能找到优质资源。
+上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！
 
-在联合病房的模式下，患者上转处理关键问题后，常规治疗、康复可转回基层，基层诊治和科研能力同步提升。
+孩子吃饭少、长不高、脾气暴？
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:24 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:34 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:46 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:33 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:35 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:33 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:44 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:47 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:40 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:33 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:35 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:43 - [科技与艺术深度融合 重庆上演互动烟花戏剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:41 - [华安基金苏圻涵|洞见全球视野：透视跨境投资地图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:44 - [Check Point一季度利润超预期，但营收指引不及预期拖累股价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:43 - [广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:27 - [2026年“国际中文日”文艺巡演活动在北爱尔兰举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:26 - [马斯克法庭交锋OpenAI，称奥特曼“不诚实”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:25 - [德国经济一季度环比增长0.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:26 - [摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:28 - [可孚医疗：发售价厘定为每股H股39.33港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:39 - [数万日本民众举行集会 呼吁守护和平宪法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:23 - [在香港沉浸式“邂逅”蒙娜丽莎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [曝韩国球员目睹出局时正吃饭](http://www.share.minike.top/Article/details/51907409485.shtml)
-- 2026-06-29 11:31 - [手游300亿数据或被军事化运用](http://www.blog.minike.top/Article/details/244214.shtml)
-- 2026-06-29 11:45 - [【自制动画】佐鸣抖肩舞！！！](https://www.blog.minike.top/Article/details/165660014.shtml)
-- 2026-06-29 11:34 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/196870127740.shtml)
-- 2026-06-29 11:42 - [巴拉圭能否打破世界杯淘汰赛进球荒](http://www.share.minike.top/Article/details/06141289779.shtml)
-- 2026-06-29 11:30 - [A股限售股解禁一览](http://www.blog.minike.top/Article/details/40328681031.shtml)
-- 2026-06-29 11:19 - [委内瑞拉地震已致1450死3150伤](http://www.blog.minike.top/Article/details/719661.shtml)
-- 2026-06-29 11:31 - [洪明甫发布会没有提问环节](http://www.blog.kurohicncr.top/Article/details/315967.shtml)
-- 2026-06-29 11:37 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.blog.minike.top/Article/details/903573.shtml)
-- 2026-06-29 11:41 - [DeepSeek联合北京大学发布论文](http://www.share.kurohicncr.top/Article/details/9456390.shtml)
-- 2026-06-29 11:29 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/744021905391.shtml)
-- 2026-06-29 11:41 - [韩国队主帅洪明甫下课](https://www.share.minike.top/Article/details/47801300.shtml)
-- 2026-06-29 11:26 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/284510499.shtml)
-- 2026-06-29 11:39 - [森保一：日本队要亲手改写历史](https://www.blog.minike.top/Article/details/212360170.shtml)
-- 2026-06-29 11:19 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/16929831.shtml)
+- 2026-06-29 11:45 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](http://www.blog.minike.top/Article/details/38470862.shtml)
+- 2026-06-29 11:19 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](http://www.blog.minike.top/Article/details/818679.shtml)
+- 2026-06-29 11:32 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](http://www.share.minike.top/Article/details/139520382530.shtml)
+- 2026-06-29 11:27 - [印尼Mako天然气项目稳步推进，预计2027年投产](http://www.blog.minike.top/Article/details/106876707744.shtml)
+- 2026-06-29 11:33 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](http://www.share.minike.top/Article/details/94921259953.shtml)
+- 2026-06-29 11:37 - [以更大力度更实举措加强基础研究](http://www.share.minike.top/Article/details/163094256863.shtml)
+- 2026-06-29 11:46 - [日元保卫战或一触即发 日本财相警告“时机临近”](http://www.blog.kurohicncr.top/Article/details/314302.shtml)
+- 2026-06-29 11:27 - [埃克森CEO对委内瑞拉态度转变 此前曾批评该国“不可投资”](http://www.share.kurohicncr.top/Article/details/79891278865.shtml)
+- 2026-06-29 11:18 - [民警一声“快来帮忙”，整座桥上的人都来了！](http://www.share.kurohicncr.top/Article/details/39346.shtml)
+- 2026-06-29 11:42 - [英特尔收购Sambanova获美国反垄断批准](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [北约秘书长：北约欧洲国家听懂特朗普的话了 正落实美军请求](http://www.blog.minike.top/Article/details/4504740.shtml)
+- 2026-06-29 11:20 - [一见·加强基础研究，总书记强调这个关键因素](http://www.blog.kurohicncr.top/Article/details/71021186533.shtml)
+- 2026-06-29 11:28 - [亚马逊业绩超预期，AWS重新加速增长](http://www.blog.minike.top/Article/details/92429079.shtml)
+- 2026-06-29 11:30 - [亚马逊：受损阿联酋云区域恢复需数月时间](http://www.blog.minike.top/Article/details/08534.shtml)
+- 2026-06-29 11:46 - [乡村“发明家”让“手搓”坚果打磨机走向世界](http://www.blog.minike.top/Article/details/8815064.shtml)

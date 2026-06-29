@@ -1,45 +1,61 @@
-# 武警严密组织开展刺杀地面对抗和水域对抗训练
+# 东京审判中国检察官向哲濬之子向隆万：历史不容忘却
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月14日 13:36 来源：中国新闻网 为深入贯彻实战化军事训练要求，全面锤炼官兵近身格斗、临机应变、敢打必胜的实战能力，砥砺血性胆气、强化战斗作风，近日，武警广西总队梧州支队紧贴任务实际、聚焦实战需求，严密组织开展刺杀对刺对抗训练(地面对抗)与刺杀综合运用训练(水域对抗)，以严标准、实课目、硬作风掀起练兵备战热潮。(作者：朱辉煌、柯江涛、江怀鹏、姚天宝
+中新网绍兴4月30日电(林波 孙琳茹)“父亲在法庭上的样子，和我记忆中的他判若两人。”4月30日，上海交通大学东京审判研究中心名誉主任、东京审判中国检察官向哲濬之子向隆万接受中新网专访时，回忆起1946年5月父亲第一次在远东国际军事法庭上的影像，依然难掩激动。 当日，《远东国际军事法庭庭审记录·全译本》(以下简称《全译本》)首发式暨学术座谈会在浙江越秀外国语学院举行。 向隆万回
 
 ## 正文
 
-发布时间：2026年05月14日 13:36 来源：中国新闻网 为深入贯彻实战化军事训练要求，全面锤炼官兵近身格斗、临机应变、敢打必胜的实战能力，砥砺血性胆气、强化战斗作风，近日，武警广西总队梧州支队紧贴任务实际、聚焦实战需求，严密组织开展刺杀对刺对抗训练(地面对抗)与刺杀综合运用训练(水域对抗)，以严标准、实课目、硬作风掀起练兵备战热潮。
+中新网绍兴4月30日电(林波 孙琳茹)“父亲在法庭上的样子，和我记忆中的他判若两人。
 
-(作者：朱辉煌、柯江涛、江怀鹏、姚天宝) 责任编辑：【魏聪聪】
+”4月30日，上海交通大学东京审判研究中心名誉主任、东京审判中国检察官向哲濬之子向隆万接受中新网专访时，回忆起1946年5月父亲第一次在远东国际军事法庭上的影像，依然难掩激动。
+
+当日，《远东国际军事法庭庭审记录·全译本》(以下简称《全译本》)首发式暨学术座谈会在浙江越秀外国语学院举行。
+
+向隆万回忆说，那一天，向哲濬驳斥了一位辩护律师的观点。
+
+对方声称，日中之间在1941年12月之前并不存在战争状态，因此起诉书中的相关指控不应成立。
+
+向哲濬当场严正指出，从“九一八”事变开始，成千上万的中国民众已经因此丧生，这是全世界都知道的事实。
+
+“他在法庭上非常从容，但大义凛然。
+
+”向隆万说，在他的成长记忆中，父亲是一位慈祥的老人，与邻里关系和睦。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:27 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:26 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:24 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:33 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:41 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:26 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:26 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:36 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:38 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:38 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:35 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:24 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:43 - [一觉醒来，美国对欧洲下狠手了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:47 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:29 - [学习新语｜幸福属于劳动者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:26 - [刚刚，全线大涨！日本，突然动手了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:27 - [“五一”假期，中国游中国购的引力“藏不住了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:21 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:39 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:39 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:43 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:34 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:34 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [国乒男单资格赛全员出局](https://www.blog.minike.top/Article/details/040945180604.shtml)
-- 2026-06-29 11:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/541608907760.shtml)
-- 2026-06-29 11:42 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/5054986516.shtml)
-- 2026-06-29 11:41 - [这位天才台湾人第一次来大陆，开智了](http://www.blog.kurohicncr.top/Article/details/042698.shtml)
-- 2026-06-29 11:22 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/2381450.shtml)
-- 2026-06-29 11:20 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/1034473.shtml)
-- 2026-06-29 11:47 - [第一炉香](http://www.share.kurohicncr.top/Article/details/18023303528.shtml)
-- 2026-06-29 11:37 - [F1奥地利大奖赛正赛集锦](https://www.share.kurohicncr.top/Article/details/25638171.shtml)
-- 2026-06-29 11:31 - [俄称继续在顿涅茨克两城镇推进](http://www.share.kurohicncr.top/Article/details/659979.shtml)
-- 2026-06-29 11:30 - [女子遭家暴两次起诉离婚均被驳回](https://www.share.minike.top/Article/details/239339713882.shtml)
-- 2026-06-29 11:20 - [加拿大92分钟绝杀南非](http://www.share.kurohicncr.top/Article/details/40558.shtml)
-- 2026-06-29 11:42 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/438877042709.shtml)
-- 2026-06-29 11:34 - [陈垣宇晋级WTT美国大满贯男单32强](https://www.blog.minike.top/Article/details/129226283.shtml)
-- 2026-06-29 11:40 - [张亚中：以中山精神为桥凝聚血脉认同](http://www.blog.kurohicncr.top/Article/details/5067709403.shtml)
-- 2026-06-29 11:37 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/95331046599.shtml)
+- 2026-06-29 11:28 - [一杯清香里的世界连接：青花汾酒走进全球投资者的感官与记忆](http://www.blog.kurohicncr.top/Article/details/9062818.shtml)
+- 2026-06-29 11:38 - [宁夏银川：咖啡遇上音乐 “五一”假期解锁文旅休闲新场景](http://www.blog.minike.top/Article/details/636982391.shtml)
+- 2026-06-29 11:47 - [马斯克2025年特斯拉薪酬总额达1580亿美元](http://www.share.kurohicncr.top/Article/details/837674994211.shtml)
+- 2026-06-29 11:42 - [挪威油企与工会谈判破裂，拟通过调解避免罢工及产量中断](http://www.blog.minike.top/Article/details/04985123.shtml)
+- 2026-06-29 11:23 - [漳汕高铁广东段山家特大桥首梁架设](http://www.blog.minike.top/Article/details/5713000560.shtml)
+- 2026-06-29 11:32 - [“金融国家队”为何选中了他们](http://www.share.kurohicncr.top/Article/details/765237.shtml)
+- 2026-06-29 11:41 - [ASMPT早盘高开逾4% 建银国际将目标价上调至190港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [“五一”假期首日广东水上出行迎来客流高峰](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [关于开展2026年企业ESG实践成果展示活动的通知](http://www.share.kurohicncr.top/Article/details/7018966208.shtml)
+- 2026-06-29 11:29 - [干预数小时后 日元兑美元汇率大幅上涨](http://www.share.minike.top/Article/details/171746.shtml)
+- 2026-06-29 11:39 - [“苏超”南京赛区志愿者暖心护航 宁马青年聚力绽放青春力量](http://www.share.minike.top/Article/details/86556513.shtml)
+- 2026-06-29 11:42 - [刀为笔、木为纸 木版年画比赛展非遗魅力](http://www.share.minike.top/Article/details/99794948051.shtml)
+- 2026-06-29 11:32 - [福建首个侨台档案融合展示馆开门迎客](http://www.share.minike.top/Article/details/235102.shtml)
+- 2026-06-29 11:28 - [AI浪潮里的“模速青年”：勇敢追梦，让年轻有“模”有样](http://www.blog.minike.top/Article/details/758282924.shtml)
+- 2026-06-29 11:23 - [巴西国家石油公司宣布航空煤油提价18%](http://www.blog.minike.top/Article/details/812389470715.shtml)

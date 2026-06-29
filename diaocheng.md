@@ -1,57 +1,57 @@
-# 上海黄浦香港联谊会换届 多领域共建深化沪港交融
+# 混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网上海5月13日电 (范宇斌)近日，上海黄浦香港联谊会第二届理事会就职仪式暨“沪港同心”共建活动举行。本次活动以“爱国爱港、联结沪港、双向赋能、协同发展”为初心，顺利完成理事会换届履新、重点项目共建、沪港澳高校校友会联盟扩圈等重要事项，标志着上海黄浦与香港在基层共治、产业协同、青年交流等领域迈入全方位深化合作的新阶段。黄浦香港联谊会自2023年成立以来，始终坚守爱国爱港初心
+中新社北京4月30日电 当地时间4月30日，在瑞士日内瓦举行的2026年混双冰壶世锦赛小组赛A组最后一轮比赛中，中国组合韩雨/于森以4:10不敌新西兰组合，以循环赛4胜5负、排名小组第6的总成绩无缘淘汰赛。 当天在最后一场小组赛面对新西兰队时，中国队开局先手偷得2分，随后控分成功，对手仅得一分，但中国队在第三局因旋壶失误被偷2分，上半场结束后双方3:3平分。新西兰队在第五局后手
 
 ## 正文
 
-中新网上海5月13日电 (范宇斌)近日，上海黄浦香港联谊会第二届理事会就职仪式暨“沪港同心”共建活动举行。
+中新社北京4月30日电 当地时间4月30日，在瑞士日内瓦举行的2026年混双冰壶世锦赛小组赛A组最后一轮比赛中，中国组合韩雨/于森以4:10不敌新西兰组合，以循环赛4胜5负、排名小组第6的总成绩无缘淘汰赛。
 
-本次活动以“爱国爱港、联结沪港、双向赋能、协同发展”为初心，顺利完成理事会换届履新、重点项目共建、沪港澳高校校友会联盟扩圈等重要事项，标志着上海黄浦与香港在基层共治、产业协同、青年交流等领域迈入全方位深化合作的新阶段。
+当天在最后一场小组赛面对新西兰队时，中国队开局先手偷得2分，随后控分成功，对手仅得一分，但中国队在第三局因旋壶失误被偷2分，上半场结束后双方3:3平分。
 
-黄浦香港联谊会自2023年成立以来，始终坚守爱国爱港初心，成为联结浦江与香江、推动民心相通与协同发展的重要桥梁。
+新西兰队在第五局后手拿到2分，中国队随后拿到1分。
 
-香港特区政制及内地事务局副局长胡健民表示，长三角与粤港澳大湾区作为中国经济发展的两大核心引擎，各具优势、禀赋互补。
+第七局，新西兰队采取边区战术，一举拿到5分，中国队以4:10告负。
 
-未来，希望黄浦香港联谊会进一步推动两地深度对接，实现优势互补、合作共赢。
+虽然未能晋级淘汰赛，但中国队在更换阵容后成绩相较于上届提升明显，并顺利完成保级任务。
 
-香港立法会议员、沪港社团总会主席姚祖辉表示，沪港两地产业结构高度相似，具备深度融合的现实基础与广阔前景。
+去年在加拿大弗雷德里克顿举行的冰壶混双世锦赛中，中国组合韩雨/王智宇在小组赛仅获2胜7负，位列A组倒数第二名，并在保级赛中不敌捷克队，遭遇降级，此后由“00后”组合叶紫萱/于森在今年1月的混双冰壶世锦赛资格赛中重新获得世锦赛席位。
 
-希望黄浦香港联谊会能持续发挥桥梁作用，进一步凝聚爱国爱港力量，推动沪港两地交流合作，共同为国家高质量发展贡献力量。
+2026年世锦赛在4月25日至5月2日举行，20支参赛队伍被分为两组，分别进行组内单循环赛，各组前三名进入淘汰赛，两个小组第一名直接晋级半决赛，小组第二、三名交叉争夺半决赛资格，胜者晋级半决赛。
 
-上海市黄浦区委常委、黄浦海外联谊会会长陈颖表示，上海和香港同处国家对外开放前沿，黄浦香港联谊会未来要持续深化产业合作，助力青年交流交融，加强社团组织建设，服务国家高水平对外开放。
+同时，两个小组的最后一名直接降级，倒数第二、三名交叉进行保级赛，失败的队伍降级。
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:30 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:46 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:24 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:42 - [神23乘组太空出差满月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:40 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:43 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:32 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:33 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:47 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:20 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:41 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:33 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:22 - [科技与艺术深度融合 重庆上演互动烟花戏剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:19 - [华安基金苏圻涵|洞见全球视野：透视跨境投资地图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:18 - [Check Point一季度利润超预期，但营收指引不及预期拖累股价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:45 - [广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:47 - [2026年“国际中文日”文艺巡演活动在北爱尔兰举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:47 - [马斯克法庭交锋OpenAI，称奥特曼“不诚实”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:25 - [德国经济一季度环比增长0.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:39 - [摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:21 - [可孚医疗：发售价厘定为每股H股39.33港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [韩国队如何把94%出线概率打到0%](https://www.share.minike.top/Article/details/81092748400.shtml)
-- 2026-06-29 11:45 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.minike.top/Article/details/9358907124.shtml)
-- 2026-06-29 11:25 - [韩国队主帅洪明甫下课](https://www.blog.kurohicncr.top/Article/details/503325880171.shtml)
-- 2026-06-29 11:25 - [河南一考生高考703分](http://www.blog.kurohicncr.top/Article/details/415373.shtml)
-- 2026-06-29 11:29 - [【独家】牧神记 第89集 明心](http://www.share.minike.top/Article/details/0814091644.shtml)
-- 2026-06-29 11:24 - [夏粮收购陆续展开 质优价稳购销两旺](https://www.blog.kurohicncr.top/Article/details/16470.shtml)
-- 2026-06-29 11:30 - [为什么欧洲人不装空调](https://www.share.kurohicncr.top/Article/details/346694823781.shtml)
-- 2026-06-29 11:22 - [美国230斤男孩在家中去世父母被捕](http://www.share.minike.top/Article/details/2814200973.shtml)
-- 2026-06-29 11:38 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.minike.top/Article/details/5181613.shtml)
-- 2026-06-29 11:28 - [青春环游记第三季](http://www.blog.minike.top/Article/details/68829516172.shtml)
-- 2026-06-29 11:20 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.minike.top/Article/details/51825.shtml)
-- 2026-06-29 11:36 - [DeepSeek联合北京大学发布论文](http://www.blog.kurohicncr.top/Article/details/731236158.shtml)
-- 2026-06-29 11:43 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/628630820992.shtml)
-- 2026-06-29 11:46 - [温州学子高考数学满分 分享学习经验](http://www.blog.minike.top/Article/details/5565987.shtml)
-- 2026-06-29 11:48 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://www.blog.kurohicncr.top/Article/details/264027152011.shtml)
+- 2026-06-29 11:29 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](http://www.share.kurohicncr.top/Article/details/32736.shtml)
+- 2026-06-29 11:19 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](http://www.blog.minike.top/Article/details/7190986.shtml)
+- 2026-06-29 11:30 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](http://www.blog.kurohicncr.top/Article/details/954804512.shtml)
+- 2026-06-29 11:47 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](http://www.share.kurohicncr.top/Article/details/547844.shtml)
+- 2026-06-29 11:26 - [以更大力度更实举措加强基础研究](http://www.share.minike.top/Article/details/74427.shtml)
+- 2026-06-29 11:33 - [日元保卫战或一触即发 日本财相警告“时机临近”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [埃克森CEO对委内瑞拉态度转变 此前曾批评该国“不可投资”](http://www.blog.kurohicncr.top/Article/details/346619657074.shtml)
+- 2026-06-29 11:28 - [民警一声“快来帮忙”，整座桥上的人都来了！](http://www.share.minike.top/Article/details/27025533.shtml)
+- 2026-06-29 11:48 - [英特尔收购Sambanova获美国反垄断批准](http://www.share.kurohicncr.top/Article/details/05503106524.shtml)
+- 2026-06-29 11:36 - [北约秘书长：北约欧洲国家听懂特朗普的话了 正落实美军请求](http://www.blog.kurohicncr.top/Article/details/091208481.shtml)
+- 2026-06-29 11:38 - [一见·加强基础研究，总书记强调这个关键因素](http://www.blog.kurohicncr.top/Article/details/68296198.shtml)
+- 2026-06-29 11:36 - [亚马逊业绩超预期，AWS重新加速增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [亚马逊：受损阿联酋云区域恢复需数月时间](http://www.share.minike.top/Article/details/155530243.shtml)

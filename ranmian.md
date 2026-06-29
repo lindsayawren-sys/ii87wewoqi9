@@ -1,61 +1,55 @@
-# 中信建投期货：5月14日农产品早报
+# 首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-玉米：中性偏多 1．市场关注：小麦/稻谷饲用替代存在比例上限，市场对相关拍卖的利空消息逐渐消化，盘面出现利空阶段性出尽后的反弹，但本轮上涨幅度有限；饲用豆粕/玉米逐渐逼近物理安全垫；深加工报价持续向下试探，跌幅较为控制，部分收购价已出现回调；新季小麦与陈麦报价持续下调，饲用企业或调整替代比例接近理论上限。USDA新季评估中性偏多，美国及全球玉米期末库存将降至多年低位，供需格局较
+中新网北京5月2日电 (记者 应妮)首都图书馆“城市音乐荟”品牌重磅打造的“京城有戏”戏曲艺术传承推广系列活动1日在北京城市图书馆启动，昆曲《牡丹亭》专场演出当日举行。 演出集结北方昆曲剧院一级演员朱冰贞、翁佳慧，二级演员吴思登台献艺，活动以“百戏之祖·水磨清音”为主题，聚焦《牡丹亭》中《游园·惊梦》《寻梦》《离魂》三大核心选段，还原魏良辅改良的水磨腔范式，以“启口轻圆、收音纯
 
 ## 正文
 
-玉米：中性偏多 1．市场关注：小麦/稻谷饲用替代存在比例上限，市场对相关拍卖的利空消息逐渐消化，盘面出现利空阶段性出尽后的反弹，但本轮上涨幅度有限；饲用豆粕/玉米逐渐逼近物理安全垫；深加工报价持续向下试探，跌幅较为控制，部分收购价已出现回调；新季小麦与陈麦报价持续下调，饲用企业或调整替代比例接近理论上限。
+中新网北京5月2日电 (记者 应妮)首都图书馆“城市音乐荟”品牌重磅打造的“京城有戏”戏曲艺术传承推广系列活动1日在北京城市图书馆启动，昆曲《牡丹亭》专场演出当日举行。
 
-USDA新季评估中性偏多，美国及全球玉米期末库存将降至多年低位，供需格局较本年度继续收紧，价格中枢同比上移。
+演出集结北方昆曲剧院一级演员朱冰贞、翁佳慧，二级演员吴思登台献艺，活动以“百戏之祖·水磨清音”为主题，聚焦《牡丹亭》中《游园·惊梦》《寻梦》《离魂》三大核心选段，还原魏良辅改良的水磨腔范式，以“启口轻圆、收音纯细”的咬字行腔，生动诠释“情不知所起，一往而深”的经典文脉。
 
-玉米单边偏强预估未变，但需注意南美增产部分抵消了美国收紧幅度，价格上行节奏不会是流畅的单边上涨。
+首都图书馆副馆长张娟介绍，“京城有戏”系列活动是首都图书馆落实《全民阅读促进条例》《戏剧振兴三年行动计划(2026—2028年)》的重要实践，也是“城市音乐荟”品牌在戏曲传承领域的专项延伸。
 
-2．观点总结：盘面出现利空消化后的回调，且此前一轮盘面对应的现货下降幅度有限，产业及渠道商方面信心充足，但谷物压制仍在，可考虑低位试多，月内运行区间2360-2420元/吨。
+本年度，该系列活动将推出15场高品质演出，覆盖京剧、昆曲、评剧、河北梆子、北京曲剧、保定老调等多个剧种，联合专业院团与知名艺术家，打造集戏曲欣赏、知识学习、实践体验于一体的公共文化服务，推动戏曲艺术从专业剧场走向普通市民，探索戏曲在公共文化空间的活态传承新路径。
 
-豆粕：中性 1．海外市场基本消化USDA供需报告带来的利多，隔夜CBOT大豆小幅调整。
+作为首都图书馆自主培育的文化品牌，“城市音乐荟”自2024年创办以来，已累计举办各类艺术活动二百余场，服务线上线下读者65.4万人次，形成了成熟的“公共文化+艺术普及”融合服务模式。
 
-近日聚焦中美领导人会晤能否达成新的美豆采购协议，随后交易重心将逐步转向6-8月美豆产区天气变化及新季单产兑现情况。
+“京城有戏”系列活动立足京津冀协同发展大局，进一步拓展“城市音乐荟”品牌内涵，未来该系列活动将整合资源与空间优势，在首都图书馆华威桥馆与北京城市图书馆两址联动开展，通过名家演绎、专家导赏、资源推荐等融合形式，打造高品质公共文化服务，让国粹艺术扎根基层、浸润人心。
 
-2．连盘豆粕短期主要跟随美盘运行，单边预计维持宽幅震荡。
-
-若后续国内新增美豆采购兑现推升美盘中枢，豆粕价格可能呈现盘面偏强（定价进口成本上移）、基差承压（定价供应增加）的组合。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:43 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:42 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:43 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:41 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:42 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:18 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:36 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:41 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:28 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:45 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:38 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:28 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:29 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:20 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:32 - [亚马逊AWS营收增长28%，达到376亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:25 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:36 - [刚刚，利好来了！上海，重磅出手！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:31 - [3月核心通胀率升至3.2%，一季度经济增速仅2%不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:39 - [西藏昌都文旅资源亮相天津 多项合作签约落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:25 - [埃克森美孚与雪佛龙无视特朗普政府增产呼吁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:33 - [钠电池迎来历史性拐点！业绩报喜概念股出炉，4股市盈率不到30倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:19 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:32 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:44 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:27 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:23 - [女心理师](http://www.share.minike.top/Article/details/4889252.shtml)
-- 2026-06-29 11:23 - [韩红携4000万物资抵呼和浩特](http://www.blog.minike.top/Article/details/5904618824.shtml)
-- 2026-06-29 11:30 - [洪明甫发布会没有提问环节](https://www.blog.minike.top/Article/details/3775431.shtml)
-- 2026-06-29 11:23 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://www.share.kurohicncr.top/Article/details/033620393098.shtml)
-- 2026-06-29 11:40 - [毒液2](https://www.share.kurohicncr.top/Article/details/656086356.shtml)
-- 2026-06-29 11:24 - [洪明甫发布会没有提问环节](https://www.blog.minike.top/Article/details/427666396279.shtml)
-- 2026-06-29 11:23 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/119165664629.shtml)
-- 2026-06-29 11:25 - [曝韩国球员目睹出局时正吃饭](http://www.share.kurohicncr.top/Article/details/039229.shtml)
-- 2026-06-29 11:44 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/9242992.shtml)
-- 2026-06-29 11:25 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/995374143.shtml)
-- 2026-06-29 11:24 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/66134775.shtml)
-- 2026-06-29 11:43 - [亚洲成世界杯最大失意者联盟](https://www.share.kurohicncr.top/Article/details/95845.shtml)
-- 2026-06-29 11:29 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/70439629.shtml)
-- 2026-06-29 11:24 - [国乒男单资格赛全员出局](http://www.share.kurohicncr.top/Article/details/0780716378.shtml)
-- 2026-06-29 11:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/5892466014.shtml)
+- 2026-06-29 11:33 - [“中文热是中国发展成就最好的印证”——访俄罗斯伊尔库茨克国立大学孔院俄方院长拜拉莫娃](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [玉浦高速公路200余名建设者“五一”不打烊 铺筑发展快车道](http://www.share.kurohicncr.top/Article/details/18683330766.shtml)
+- 2026-06-29 11:34 - [关税退税提振利润难掩现金流疲软，Stellantis股价重挫](http://www.share.minike.top/Article/details/1171835.shtml)
+- 2026-06-29 11:45 - [特朗普削减驻德美军计划引发美国及北约盟友质疑](http://www.blog.kurohicncr.top/Article/details/50213.shtml)
+- 2026-06-29 11:22 - [以防长：以色列或“很快”对伊朗“再次采取行动”](http://www.blog.kurohicncr.top/Article/details/23386.shtml)
+- 2026-06-29 11:28 - [【追光的你】习言道｜追求进步是青年最宝贵的特质](http://www.share.kurohicncr.top/Article/details/99093356.shtml)
+- 2026-06-29 11:43 - [香港清华同学会成立70周年峰会在港举办](http://www.blog.kurohicncr.top/Article/details/262929507447.shtml)
+- 2026-06-29 11:18 - [美国得克萨斯州发生枪击事件 致2死10伤](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [一杯清香里的世界连接：青花汾酒走进全球投资者的感官与记忆](http://www.blog.kurohicncr.top/Article/details/86232.shtml)
+- 2026-06-29 11:35 - [宁夏银川：咖啡遇上音乐 “五一”假期解锁文旅休闲新场景](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [马斯克2025年特斯拉薪酬总额达1580亿美元](http://www.share.minike.top/Article/details/477689.shtml)
+- 2026-06-29 11:44 - [挪威油企与工会谈判破裂，拟通过调解避免罢工及产量中断](http://www.blog.minike.top/Article/details/147876740.shtml)
+- 2026-06-29 11:23 - [漳汕高铁广东段山家特大桥首梁架设](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [“金融国家队”为何选中了他们](http://www.blog.kurohicncr.top/Article/details/30560359990.shtml)
+- 2026-06-29 11:38 - [ASMPT早盘高开逾4% 建银国际将目标价上调至190港元](http://www.share.minike.top/Article/details/04745414212.shtml)

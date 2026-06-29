@@ -1,59 +1,57 @@
-# 英伟达CEO基金会1.08亿美元购AI算力捐赠研究机构
+# 港股收评：恒指涨1.24% 科指涨2.16% 科网股、电力设备股普涨 半导体板块大涨 小米涨超6%
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-据一份文件显示，英伟达首席执行官黄仁勋及其妻子洛里（Lori）创立的基金会，正从CoreWeave 购入计算资源，并将其捐赠给大学及其他非营利机构。该文件显示，截至目前，这笔捐赠的价值已达1.083亿美元。 根据周二提交的文件，这些计算资源将用于科学和人工智能研究。英伟达在文件中表示，计划向部分受赠机构提供免费的工程服务。 此次捐赠不仅彰显了黄仁勋的慷慨，也体现了英伟达对Cor
+5月4日消息，港股三大指数集体上涨。截至收盘，恒生指数涨1.24%，报26095.88点，恒生科技指数涨2.16%，国企指数涨1.07%。盘面上，科网股普涨，小米涨超6%，阿里巴巴涨超4%，快手、百度涨超3%；电力设备股涨幅居前，潍柴动力涨超12%；半导体板块大涨，天数智芯涨超20%；航空股强势，中国国航涨超5%。 电力设备股涨幅居前，潍柴动力涨超12%。公司近日发布的2024
 
 ## 正文
 
-据一份文件显示，英伟达首席执行官黄仁勋及其妻子洛里（Lori）创立的基金会，正从CoreWeave 购入计算资源，并将其捐赠给大学及其他非营利机构。
+5月4日消息，港股三大指数集体上涨。
 
-该文件显示，截至目前，这笔捐赠的价值已达1.083亿美元。
+截至收盘，恒生指数涨1.24%，报26095.88点，恒生科技指数涨2.16%，国企指数涨1.07%。
 
-根据周二提交的文件，这些计算资源将用于科学和人工智能研究。
+盘面上，科网股普涨，小米涨超6%，阿里巴巴涨超4%，快手、百度涨超3%；电力设备股涨幅居前，潍柴动力涨超12%；半导体板块大涨，天数智芯涨超20%；航空股强势，中国国航涨超5%。
 
-英伟达在文件中表示，计划向部分受赠机构提供免费的工程服务。
+电力设备股涨幅居前，潍柴动力涨超12%。
 
-此次捐赠不仅彰显了黄仁勋的慷慨，也体现了英伟达对CoreWeave的又一支持举措——CoreWeave是一家专注于人工智能应用的云计算公司。
+公司近日发布的2024年一季度财报显示，期内实现营业收入625.6亿元，同比增长8.9%；归属于母公司净利润30.9亿元，同比增幅达13.8%。
 
-英伟达设计了CoreWeave向客户提供的图形处理单元（GPU）。
+值得注意的是，数据中心发电产品销售收入同比激增超240%，成为业绩增长的核心驱动力。
 
-今年1月，英伟达向CoreWeave投资20亿美元 ，成为该公司当时第二大股东。
+摩根大通据此上调公司目标价至52港元。
 
-英伟达去年与CoreWeave签署了一项价值63亿美元的云计算容量协议，该协议保证这家AI芯片公司将购买任何未售予客户的云容量。
+半导体板块大涨，天数智芯涨超20%。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:39 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:20 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:19 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:38 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:45 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:25 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:24 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:35 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:45 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:23 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:41 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:31 - [福州市签约22个数字经济重点项目 总投资190亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:47 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:34 - [伏季休渔启幕 广西北海侨港码头渔市热闹收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:23 - [星火成炬｜生活的想象力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:43 - [厦门推动两岸标准共通助力台企拓宽市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:40 - [今年以来广西爱店口岸跨境贸易持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:36 - [亚马逊Audible李博隆：AI让研发成本和机会成本大大下降，越来越多科技公司开始做跨界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:27 - [深度伪造的“虚拟”沃伦·巴菲特开启伯克希尔年度股东大会问答环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:41 - [110对新人军营大婚：戎装白纱共绘“家国浪漫”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:27 - [成都铁路迎“五一”假期客流高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:24 - [最新名单！这些公司锁定退市，多元化出清格局成形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [韩国政府将对世界杯出局追责](http://www.blog.kurohicncr.top/Article/details/18815.shtml)
-- 2026-06-29 11:42 - [换个角度打开世界杯淘汰赛](http://www.blog.minike.top/Article/details/63546.shtml)
-- 2026-06-29 11:34 - [加拿大1比0南非挺进16强](http://www.blog.minike.top/Article/details/16655168.shtml)
-- 2026-06-29 11:18 - [重生赛伊德04](http://www.share.minike.top/Article/details/81672.shtml)
-- 2026-06-29 11:36 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/647896.shtml)
-- 2026-06-29 11:36 - [委内瑞拉地震死亡人数升至1450人](https://www.share.minike.top/Article/details/885988213.shtml)
-- 2026-06-29 11:19 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/519424512669.shtml)
-- 2026-06-29 11:39 - [佛得角到底在哪个“角”](https://www.share.minike.top/Article/details/8387332.shtml)
-- 2026-06-29 11:36 - [我们注定是一撮县城葱姜蒜](https://www.blog.minike.top/Article/details/316176255998.shtml)
-- 2026-06-29 11:41 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/57999.shtml)
-- 2026-06-29 11:27 - [陈垣宇晋级WTT美国大满贯男单32强](http://www.share.minike.top/Article/details/3545990.shtml)
-- 2026-06-29 11:36 - [神23乘组太空出差满月](https://www.blog.kurohicncr.top/Article/details/740039996056.shtml)
-- 2026-06-29 11:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/2312469.shtml)
-- 2026-06-29 11:23 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/3953259.shtml)
-- 2026-06-29 11:47 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/524479005.shtml)
+- 2026-06-29 11:29 - [美国威胁制裁向伊朗缴通行费的航运企业](http://www.share.minike.top/Article/details/4949616690.shtml)
+- 2026-06-29 11:26 - [中国铁路迎来“五一”假期运输客流最高峰](http://www.blog.minike.top/Article/details/91121.shtml)
+- 2026-06-29 11:18 - [致敬劳动者｜每一方寸，因你而闪光](http://www.blog.kurohicncr.top/Article/details/611524766.shtml)
+- 2026-06-29 11:30 - [远东国际观察：日本国会参议院通过2026财年预算案](http://www.share.kurohicncr.top/Article/details/37313009.shtml)
+- 2026-06-29 11:36 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](http://www.blog.minike.top/Article/details/74481.shtml)
+- 2026-06-29 11:31 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](http://www.blog.kurohicncr.top/Article/details/032429630.shtml)
+- 2026-06-29 11:33 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](http://www.share.minike.top/Article/details/8587463.shtml)
+- 2026-06-29 11:37 - [福州地铁客流连创新高](http://www.blog.minike.top/Article/details/0574997443.shtml)
+- 2026-06-29 11:35 - [埃及侨商：持续推动“零关税”红利转化为务实合作](http://www.blog.kurohicncr.top/Article/details/43171.shtml)
+- 2026-06-29 11:23 - [“05后”持有人猛增10倍，年轻人涌向AI基金](http://www.blog.minike.top/Article/details/64646.shtml)
+- 2026-06-29 11:46 - [2026五一档新片票房破9000万](http://www.share.kurohicncr.top/Article/details/563156112659.shtml)
+- 2026-06-29 11:42 - [美国制造业保持扩张势头 价格指标触及四年高位](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](http://www.share.kurohicncr.top/Article/details/253816498.shtml)
+- 2026-06-29 11:20 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](http://www.share.kurohicncr.top/Article/details/494600544167.shtml)
+- 2026-06-29 11:37 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](https://github.com/lisacumin64-arch)

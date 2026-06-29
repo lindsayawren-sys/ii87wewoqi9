@@ -1,57 +1,47 @@
-# 全国首个大型复合非机动车立体停车楼启用
+# “对你们充满了敬意”
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-中新网北京5月14日电 (记者 吕少威)记者14日从北京市交通委获悉，沙河站早高峰进站客流位列北京地铁第二位，早高峰日均客流量达9.5万人次，每日近万辆非机动车在站点周边无序停放、占道堵路，一直是周边通勤群众的出行痛点。北京市昌平区沙河镇摒弃传统扩张用地模式，盘活疏解腾退后的闲置土地，建设全国首个大型复合非机动车立体停车楼——沙河E站。 该停车楼自今年3月31日分层分段投用，5
+视频：“对你们充满了敬意”来源：新华社 “无论时代条件如何变化，我们始终都要崇尚劳动、尊重劳动者”。党的十八大以来，习近平总书记一次次深入基层一线，来到广大劳动群众中间，为大家加油鼓劲。
 
 ## 正文
 
-中新网北京5月14日电 (记者 吕少威)记者14日从北京市交通委获悉，沙河站早高峰进站客流位列北京地铁第二位，早高峰日均客流量达9.5万人次，每日近万辆非机动车在站点周边无序停放、占道堵路，一直是周边通勤群众的出行痛点。
+视频：“对你们充满了敬意”来源：新华社 “无论时代条件如何变化，我们始终都要崇尚劳动、尊重劳动者”。
 
-北京市昌平区沙河镇摒弃传统扩张用地模式，盘活疏解腾退后的闲置土地，建设全国首个大型复合非机动车立体停车楼——沙河E站。
-
-该停车楼自今年3月31日分层分段投用，5月1日各楼层全面启用至今，停车楼日均停放非机动车约4200辆，通勤接驳效率显著提升，深受周边市民欢迎，有效解决了集中出行区域的非机动车出行停放难题，成为全市轨道枢纽非机动车立体停放的创新样板。
-
-交通部门已完成71处重点点位攻坚治理 今年5月1日施行的新版《北京市非机动车管理条例》明确要求，车站、医院、商场等公共建筑必须配齐非机动车停车配套，现有泊位不足的，要通过改造升级或增设临时停放区补齐短板。
-
-为此，北京市交通委围绕“增供给、强治理、严执法、固机制”四大方向，着力增加非机动车停车设施供给，累计新增道路空间非机动车停车位13.27万个，同时聚焦轨道站点、“学医景商枢”等160个重点点位精准攻坚，推动全市非机动车停放秩序整体提升，目前已完成71处重点点位治理，完成全年目标的44.4%。
-
-“空中连廊”直通地铁打通接驳“最后一米” 沙河站是全市非机动车治理的重点点位之一。
-
-面对站点周边“地少车多”的治理难题，沙河镇盘活疏解腾退后的闲置地块，建设集约高效的立体停车设施，在地铁沙河站东侧建成全国首个大型复合非机动车立体停车楼——沙河E站，通过“空中连廊”与地铁站实现无缝接驳，有效打通了非机动车接驳轨道交通的“最后一米”。
-
-项目依托区级部门、镇政府、地铁方、居民代表四方联动机制，通过“京华议事厅”及沙河“河情合理”议事平台征集民意700余条，精准对接群众诉求优化配套与动线，提升楼宇整体能效。
+党的十八大以来，习近平总书记一次次深入基层一线，来到广大劳动群众中间，为大家加油鼓劲。
 
 ## 相关推荐
 
-- 2026-06-29 11:33 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:47 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:41 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:34 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:46 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:31 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:36 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:45 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:35 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:35 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:32 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:29 - [阿联酋宣布退出OPEC，霍尔木兹封锁致短期油价持续高企](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:29 - [人民论坛网评丨从“看一场球”到“赴一座城” ——“经济新活力”系列评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:46 - [委内瑞拉4月石油出口创2018年来新高 委政府无自主支配收入权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:32 - [摩根士丹利看好Chef‘s Warehouse，称中东担忧“过度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:19 - [劳动者宋春胜：千家万户的“安全阀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:31 - [成都宽窄巷子景区游人如织](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:24 - [美国对5家中企实施涉伊朗石油制裁措施 中方发布阻断禁令](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:31 - [巴西国家石油公司投资8.7亿雷亚尔重启巴拉那州尿素生产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:41 - [巴菲特：如今民众投机赌博情绪，史上前所未有](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:41 - [“五一”假期 各地特色文旅活动精彩纷呈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:34 - [中国首部政务服务领域区域协同立法施行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:33 - [谷歌云增速超越微软、亚马逊，三大云厂商均受益AI需求业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:19 - [福建舰两年8次海试 中国航母技术实现历史性跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [去美国加油？部分加拿大球迷陷入纠结](https://www.share.kurohicncr.top/Article/details/539758942215.shtml)
-- 2026-06-29 11:39 - [韩国拟将部分刑责年龄降至13岁](http://www.share.minike.top/Article/details/675142.shtml)
-- 2026-06-29 11:38 - [日本主帅：对战胜巴西很有信心](https://www.share.kurohicncr.top/Article/details/177800246187.shtml)
-- 2026-06-29 11:40 - [温峥嵘直播回应恶评](http://www.share.minike.top/Article/details/07376062866.shtml)
-- 2026-06-29 11:31 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/12509.shtml)
-- 2026-06-29 11:23 - [流金岁月](https://www.share.kurohicncr.top/Article/details/050449.shtml)
-- 2026-06-29 11:42 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/518712.shtml)
-- 2026-06-29 11:31 - [宜宾地震监控画面](https://www.share.minike.top/Article/details/7514266390.shtml)
-- 2026-06-29 11:34 - [特里：法国是世界杯夺冠热门](https://www.share.minike.top/Article/details/504071.shtml)
-- 2026-06-29 11:48 - [天道](http://www.share.kurohicncr.top/Article/details/94347534400.shtml)
-- 2026-06-29 11:44 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/366974139259.shtml)
-- 2026-06-29 11:46 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/962638.shtml)
-- 2026-06-29 11:31 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/3288310199.shtml)
-- 2026-06-29 11:31 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.blog.kurohicncr.top/Article/details/8552416077.shtml)
-- 2026-06-29 11:32 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/6435314.shtml)
+- 2026-06-29 11:44 - [新发现东京审判“萨顿档案”揭露侵华日军四方面暴行](http://www.blog.kurohicncr.top/Article/details/332563.shtml)
+- 2026-06-29 11:37 - [花旗：维持香港楼价看涨8%预期 看好三大地产股](http://www.blog.minike.top/Article/details/0499440689.shtml)
+- 2026-06-29 11:21 - [中国驻英大使郑泽光：香港发展拥有四大优势](http://www.share.minike.top/Article/details/45671.shtml)
+- 2026-06-29 11:27 - [这群年轻人用AI“吵了一架” ，最后成了朋友](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [特朗普抨击国会限制其战争权力的举动](http://www.blog.kurohicncr.top/Article/details/19211008212.shtml)
+- 2026-06-29 11:21 - [浙江杭州：民众走“运”度假期](http://www.blog.kurohicncr.top/Article/details/5538548856.shtml)
+- 2026-06-29 11:41 - [天津国际邮轮母港单日出入境旅客创年内新高](http://www.share.minike.top/Article/details/896787296.shtml)
+- 2026-06-29 11:40 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](http://www.share.minike.top/Article/details/691606375.shtml)
+- 2026-06-29 11:46 - [每天走路够这个量 或能延寿11年！健步走行动清单快掌握→](http://www.blog.kurohicncr.top/Article/details/4268942728.shtml)
+- 2026-06-29 11:30 - [中国生物医学新技术“基本法”实施 院企专家盼规范促产业发展](http://www.blog.minike.top/Article/details/141318.shtml)
+- 2026-06-29 11:47 - [特朗普：美国开启霍尔木兹海峡船只通行自由行动将于中东时间周一上午启动](http://www.share.minike.top/Article/details/6873963.shtml)
+- 2026-06-29 11:36 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](http://www.share.kurohicncr.top/Article/details/866909917.shtml)
+- 2026-06-29 11:36 - [宁夏银川：水上运动成民众假期户外社交“新宠”](http://www.share.kurohicncr.top/Article/details/90865551677.shtml)
+- 2026-06-29 11:32 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](http://www.share.minike.top/Article/details/15821.shtml)

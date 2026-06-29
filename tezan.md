@@ -1,59 +1,57 @@
-# 意大利能源企业Ludoil拟收购该国重要战略资产ISAB炼油厂
+# 马斯克法庭交锋OpenAI，称奥特曼“不诚实”
 
-> 更新时间：2026-06-29 11:48:44 UTC+8
+> 更新时间：2026-06-29 11:48:06 UTC+8
 
 ## 摘要
 
-5月13日，意大利能源集团Ludoil宣布，已与塞浦路斯私募股权基金G.O.I． Energy签署协议，计划收购位于西西里岛的ISAB炼油厂。 根据交易方案，此次收购将分两个阶段进行。在首阶段，Ludoil集团将率先收购ISAB炼油厂51%的股权。鉴于该炼油厂产能占意大利全国炼油总产能的20%以上，被意政府列为关键战略资产，该交易需依据意大利“黄金权力”法案，接受政府的安全审查
+特斯拉CEO埃隆·马斯克周三在奥克兰联邦法院的庭审中作证称，OpenAI联合创始人山姆·奥特曼及其他领导者对他“没有说实话”，背离了实验室的非营利使命。 马斯克指控OpenAI及其CEO奥特曼、总裁布罗克曼在2019年创建营利性实体时，背弃了负责任开发AI的承诺并“偷走了一家慈善机构”。他在法庭上表示：“为一家非营利机构提供资金的我像个傻瓜，他们最终却变成了一家价值8000亿美
 
 ## 正文
 
-5月13日，意大利能源集团Ludoil宣布，已与塞浦路斯私募股权基金G.O.I． Energy签署协议，计划收购位于西西里岛的ISAB炼油厂。
+特斯拉CEO埃隆·马斯克周三在奥克兰联邦法院的庭审中作证称，OpenAI联合创始人山姆·奥特曼及其他领导者对他“没有说实话”，背离了实验室的非营利使命。
 
-根据交易方案，此次收购将分两个阶段进行。
+马斯克指控OpenAI及其CEO奥特曼、总裁布罗克曼在2019年创建营利性实体时，背弃了负责任开发AI的承诺并“偷走了一家慈善机构”。
 
-在首阶段，Ludoil集团将率先收购ISAB炼油厂51%的股权。
+他在法庭上表示：“为一家非营利机构提供资金的我像个傻瓜，他们最终却变成了一家价值8000亿美元的营利公司。
 
-鉴于该炼油厂产能占意大利全国炼油总产能的20%以上，被意政府列为关键战略资产，该交易需依据意大利“黄金权力”法案，接受政府的安全审查并获取最终批准。
+”马斯克寻求1500亿美元损害赔偿，并要求罢免奥特曼和布罗克曼的职务。
 
-目前，Ludoil集团尚未披露该笔股权交易的具体金额。
+法庭展示的一封2017年邮件显示，马斯克曾自称为非营利项目提供资金是“傻瓜”。
 
-针对此次收购的战略规划，Ludoil集团在声明中指出，未来将推动ISAB从传统炼油厂向综合性能源企业转型。
+马斯克表示：“我觉得他们对我没有说实话，他们真正想做的是创建一个让自己获得尽可能多股权的营利公司。
 
-该集团强调，此项交易将夯实企业的市场竞争力，切实保障能源供应安全，并助力构建全新的能源价值链。
+”OpenAI方面则辩称，马斯克此举是因未能获得公司控制权而“酸葡萄”，意在打击竞争对手。
 
-责任编辑：龙运翔
+值得注意的是，就在庭审同期，微软与OpenAI于4月27日宣布修订合作协议，结束独家绑定模式，允许OpenAI在AWS、谷歌云等平台部署产品，并承诺向微软采购2500亿美元Azure服务。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:21 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:34 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:47 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:45 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:28 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:21 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:42 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:37 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:45 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:33 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:21 - [鬼畜区全明星拼接遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:22 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:39 - [中国奥园委聘毕马威咨询(香港)为财务顾问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:42 - [首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:35 - [欧洲央行维持存款利率在2.00%不变 符合预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:34 - [暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:23 - [5月4日中国跨区域人员流动量预计超2.9亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:37 - [内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:42 - [东西问丨杜方绥：中国文学何以打动世界读者？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:33 - [东京通胀进一步降温 支撑日本央行加息谨慎立场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:20 - [亚马逊AWS营收增长28%，达到376亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:36 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:20 - [刚刚，利好来了！上海，重磅出手！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/30197113.shtml)
-- 2026-06-29 11:29 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](http://www.share.kurohicncr.top/Article/details/706902780.shtml)
-- 2026-06-29 11:29 - [为何加快“扩编”成欧盟战略要务](https://www.share.kurohicncr.top/Article/details/199555494.shtml)
-- 2026-06-29 11:25 - [严浩翔FIY断层第一](http://www.share.kurohicncr.top/Article/details/17299230676.shtml)
-- 2026-06-29 11:48 - [张杰下沉市场](https://www.blog.kurohicncr.top/Article/details/7078738569.shtml)
-- 2026-06-29 11:46 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/2647945730.shtml)
-- 2026-06-29 11:25 - [异世界一点都不好玩！](http://www.blog.kurohicncr.top/Article/details/68401022079.shtml)
-- 2026-06-29 11:43 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/466512406.shtml)
-- 2026-06-29 11:33 - [李在明要调查韩国队出局原因](https://www.blog.kurohicncr.top/Article/details/931623122682.shtml)
-- 2026-06-29 11:20 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.minike.top/Article/details/09497.shtml)
-- 2026-06-29 11:46 - [美国230斤男孩在家中去世父母被捕](https://www.share.kurohicncr.top/Article/details/7588865.shtml)
-- 2026-06-29 11:33 - [刘烨赶紧蹭个热度宣传四渡](https://www.share.kurohicncr.top/Article/details/509986987.shtml)
-- 2026-06-29 11:32 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://www.share.kurohicncr.top/Article/details/08804699027.shtml)
-- 2026-06-29 11:44 - [俄称继续推进 乌称打击俄军设施](http://www.share.kurohicncr.top/Article/details/57642210729.shtml)
-- 2026-06-29 11:26 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/5199553.shtml)
+- 2026-06-29 11:46 - [亚马逊：受损阿联酋云区域恢复需数月时间](http://www.blog.kurohicncr.top/Article/details/34197.shtml)
+- 2026-06-29 11:22 - [乡村“发明家”让“手搓”坚果打磨机走向世界](http://www.share.minike.top/Article/details/03718244.shtml)
+- 2026-06-29 11:23 - [习近平总书记同劳动者在一起的故事](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [维珍澳大利亚航空或将航班削减措施延续至第三季度](http://www.blog.kurohicncr.top/Article/details/92468.shtml)
+- 2026-06-29 11:33 - [四川遂宁龙凤古镇“五一”假期首日人气旺](http://www.blog.minike.top/Article/details/2379739296.shtml)
+- 2026-06-29 11:29 - [抓住机遇，以更大力度更实举措加强基础研究——论学习贯彻习近平总书记在加强基础研究座谈会上重要讲](http://www.blog.kurohicncr.top/Article/details/2834900.shtml)
+- 2026-06-29 11:41 - [有关伊朗的报道发布后油价下跌 美国国债升至日内高点](http://www.blog.minike.top/Article/details/60376431.shtml)
+- 2026-06-29 11:21 - [国铁广州局“五一”假期预计发送旅客2277万人次](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [“中文热是中国发展成就最好的印证”——访俄罗斯伊尔库茨克国立大学孔院俄方院长拜拉莫娃](http://www.share.minike.top/Article/details/88654753.shtml)
+- 2026-06-29 11:38 - [玉浦高速公路200余名建设者“五一”不打烊 铺筑发展快车道](http://www.blog.minike.top/Article/details/0561280.shtml)
+- 2026-06-29 11:30 - [关税退税提振利润难掩现金流疲软，Stellantis股价重挫](http://www.blog.minike.top/Article/details/47267352592.shtml)
+- 2026-06-29 11:30 - [特朗普削减驻德美军计划引发美国及北约盟友质疑](http://www.share.minike.top/Article/details/38516426.shtml)
+- 2026-06-29 11:24 - [以防长：以色列或“很快”对伊朗“再次采取行动”](http://www.share.kurohicncr.top/Article/details/855388146.shtml)
+- 2026-06-29 11:25 - [【追光的你】习言道｜追求进步是青年最宝贵的特质](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [香港清华同学会成立70周年峰会在港举办](http://www.blog.kurohicncr.top/Article/details/9380358904.shtml)
