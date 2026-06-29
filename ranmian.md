@@ -1,61 +1,60 @@
-# 视频 | 菲方滋扰中国科考船画面公开
+# 美国财长贝森特：美国财政部持续推进针对伊朗政权的强力经济打击行动
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-【环球时报-环球网报道 记者 樊巍】中国海警局新闻发言人姜略表示，5月6日，中方向阳红33号船位中国鲎藤礁附近海域开展正常生态环境调查。其间，菲海岸警卫队1架岛人型机蓄意抵近滋扰。《环球时报》记者获取的视频显示，在向阳红33号船开展正常生态环境调查期间，一架菲律宾C-208公务机以低空盘旋的方式，试图干扰中方船只活动。 据《环球时报》记者了解，鲎藤礁位于中国南沙群岛礼乐滩盆地，
+美国财长贝森特表示，美国财政部持续推进针对伊朗政权的强力经济打击行动。伊朗军队军饷停发，警方人员缺勤怠工，哈尔克岛已陷入停摆。 他称，伊朗经济与货币正急剧崩盘。伊朗波斯湾海峡管理局形同虚设，财政部今日已对该机构实施制裁。我方警告各类企业及官方机构，不得向其缴纳通行费，也不得假借援助名义变相支付相关费用。 美国实施海上封锁、构筑严密防线，目前海上流通的伊朗原油量创下历史低位。此外
 
 ## 正文
 
-【环球时报-环球网报道 记者 樊巍】中国海警局新闻发言人姜略表示，5月6日，中方向阳红33号船位中国鲎藤礁附近海域开展正常生态环境调查。
+美国财长贝森特表示，美国财政部持续推进针对伊朗政权的强力经济打击行动。
 
-其间，菲海岸警卫队1架岛人型机蓄意抵近滋扰。
+伊朗军队军饷停发，警方人员缺勤怠工，哈尔克岛已陷入停摆。
 
-《环球时报》记者获取的视频显示，在向阳红33号船开展正常生态环境调查期间，一架菲律宾C-208公务机以低空盘旋的方式，试图干扰中方船只活动。
+他称，伊朗经济与货币正急剧崩盘。
 
-据《环球时报》记者了解，鲎藤礁位于中国南沙群岛礼乐滩盆地，该地区被认为具有丰富的油气资源。
+伊朗波斯湾海峡管理局形同虚设，财政部今日已对该机构实施制裁。
 
-此前菲方曾多次组织船只非法位中国南沙群岛鲎藤礁邻近海域活动，试图侵权挑衅。
+我方警告各类企业及官方机构，不得向其缴纳通行费，也不得假借援助名义变相支付相关费用。
 
-此外，菲方还多次组织所谓的“渔民”在鲎藤礁邻近海域非法聚集。
+美国实施海上封锁、构筑严密防线，目前海上流通的伊朗原油量创下历史低位。
 
-对于菲方船只的非法行为，中国海警均依法依规采取必要管控措施，并查获了菲方布设的，危害当地生态以及海上航行安全的集鱼装置。
+此外，我们还将全面限制伊朗各家航空公司使用停机位、获取燃油以及开展机票销售业务。
 
-而此番向阳红33号船开展的生态环境调查则是保护鲎藤礁海域生态的常态措施，是按照国际法开展“正常活动”。
+唯有谈判取得令人满意的结果，这一颓势才会终止。
 
 ## 相关推荐
 
-- 2026-06-29 23:27 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 23:05 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 23:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 23:29 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 23:24 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 23:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 23:19 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 23:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 23:22 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 23:27 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 23:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 23:24 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 23:14 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 23:18 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 23:30 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 23:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 23:33 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 23:12 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 23:18 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 23:17 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 23:10 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 23:11 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 23:31 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 23:13 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 23:23 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 23:31 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 23:11 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 23:31 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 23:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:27 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/09482.shtml)
-- 2026-06-29 23:06 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/065695819548.shtml)
-- 2026-06-29 23:25 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/809762.shtml)
-- 2026-06-29 23:02 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/75897624.shtml)
-- 2026-06-29 23:12 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/3165918324.shtml)
-- 2026-06-29 23:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/415621599.shtml)
-- 2026-06-29 23:22 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/9955031177.shtml)
-- 2026-06-29 23:13 - [85花告别古偶](https://www.share.minike.top/Article/details/9722500176.shtml)
-- 2026-06-29 23:28 - [网约车出事故平台拒赔称只是中介](https://www.share.minike.top/Article/details/8544932.shtml)
-- 2026-06-29 23:16 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/44122.shtml)
-- 2026-06-29 23:29 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/9168987.shtml)
-- 2026-06-29 23:11 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.minike.top/Article/details/88778.shtml)
-- 2026-06-29 23:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/356043422851.shtml)
-- 2026-06-29 23:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/9838939681.shtml)
-- 2026-06-29 23:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/54245341256.shtml)
+- 2026-06-29 23:12 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/80366.shtml)
+- 2026-06-29 23:09 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/170291794460.shtml)
+- 2026-06-29 23:10 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/345759662.shtml)
+- 2026-06-29 23:32 - [一生一世](https://www.blog.minike.top/Article/details/9643529332.shtml)
+- 2026-06-29 23:06 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/5863457212.shtml)
+- 2026-06-29 23:06 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/62812706998.shtml)
+- 2026-06-29 23:14 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/09194371.shtml)
+- 2026-06-29 23:13 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/4182549517.shtml)
+- 2026-06-29 23:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/703213355579.shtml)
+- 2026-06-29 23:24 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/32268570227.shtml)
+- 2026-06-29 23:07 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/1287613857.shtml)
+- 2026-06-29 23:24 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/317949663.shtml)
+- 2026-06-29 23:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/668399.shtml)
+- 2026-06-29 23:33 - [巴西10号球衣是天才传承史](http://www.share.kurohicncr.top/Article/details/848267619356.shtml)
+- 2026-06-29 23:17 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/08335852.shtml)

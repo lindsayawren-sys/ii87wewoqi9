@@ -1,57 +1,47 @@
-# 微软肯尼亚数据中心项目面临延迟
+# 昆仑能源将于7月21日派发末期股息每股0.1684港元
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-根据Seeking Alpha援引其他媒体的报道，由于与肯尼亚政府在支付担保问题上存在分歧，微软计划中的肯尼亚数据中心项目面临延迟。 该项目原本有望加强微软在东非的云业务布局，该地区对数据存储、云服务和人工智能基础设施的需求正在增长。 据报道，分歧的核心在于微软要求获得支付担保，不过谈判的具体细节并未完全披露。 对投资者而言，这一延迟凸显了大型科技公司在新兴市场扩张基础设施时可
+昆仑能源（00135）发布公告，将于2026年7月21日派发截至2025年12月31日止的末期股息每股0.1684港元。责任编辑：卢昱君
 
 ## 正文
 
-根据Seeking Alpha援引其他媒体的报道，由于与肯尼亚政府在支付担保问题上存在分歧，微软计划中的肯尼亚数据中心项目面临延迟。
+昆仑能源（00135）发布公告，将于2026年7月21日派发截至2025年12月31日止的末期股息每股0.1684港元。
 
-该项目原本有望加强微软在东非的云业务布局，该地区对数据存储、云服务和人工智能基础设施的需求正在增长。
-
-据报道，分歧的核心在于微软要求获得支付担保，不过谈判的具体细节并未完全披露。
-
-对投资者而言，这一延迟凸显了大型科技公司在新兴市场扩张基础设施时可能面临的挑战。
-
-数据中心需要大量的前期投入、可靠的电力供应以及明确的长期商业协议。
-
-通过Azure，微软仍然是全球最大的云服务提供商之一，而国际数据中心扩张是其AI增长战略的核心。
-
-接下来的关键看点在于微软与肯尼亚官员能否解决支付问题并推动项目向前发展。
-
-责任编辑：张俊 SF065
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:23 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 23:23 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 23:18 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 23:18 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 23:09 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 23:10 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 23:12 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 23:05 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 23:28 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 23:28 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 23:27 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 23:09 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 23:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 23:12 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 23:18 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 23:11 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 23:20 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 23:15 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 23:10 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 23:29 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 23:11 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 23:15 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 23:28 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 23:29 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:01 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/806466882134.shtml)
-- 2026-06-29 23:10 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/9006292.shtml)
-- 2026-06-29 23:03 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/114773888.shtml)
-- 2026-06-29 23:04 - [速度与激情9](https://www.blog.minike.top/Article/details/4380818.shtml)
-- 2026-06-29 23:00 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/7710613489.shtml)
-- 2026-06-29 23:26 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/463661.shtml)
-- 2026-06-29 23:28 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/228586295.shtml)
-- 2026-06-29 23:27 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/284620042413.shtml)
-- 2026-06-29 23:15 - [曼城官宣马雷斯卡出任主教练](https://www.share.kurohicncr.top/Article/details/806501891.shtml)
-- 2026-06-29 23:17 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/54800419017.shtml)
-- 2026-06-29 23:01 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/616881155206.shtml)
-- 2026-06-29 23:01 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/3344752475.shtml)
-- 2026-06-29 23:19 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/560842.shtml)
-- 2026-06-29 23:15 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/142641216.shtml)
-- 2026-06-29 23:18 - [美股](http://www.blog.kurohicncr.top/Article/details/39205124505.shtml)
+- 2026-06-29 23:26 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/09949.shtml)
+- 2026-06-29 23:08 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/36180625416.shtml)
+- 2026-06-29 23:20 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/63608100500.shtml)
+- 2026-06-29 23:25 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/3221653391.shtml)
+- 2026-06-29 23:24 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/71616.shtml)
+- 2026-06-29 23:19 - [电影后室值得看吗](https://www.share.minike.top/Article/details/27173515059.shtml)
+- 2026-06-29 23:15 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/513636.shtml)
+- 2026-06-29 23:34 - [蔚来车主罚站](https://www.share.minike.top/Article/details/4575311.shtml)
+- 2026-06-29 23:11 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/89596426.shtml)
+- 2026-06-29 23:22 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/1470803.shtml)
+- 2026-06-29 23:13 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/368261.shtml)
+- 2026-06-29 23:26 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/38263936.shtml)
+- 2026-06-29 23:30 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/606003.shtml)
+- 2026-06-29 23:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/0617381544.shtml)
+- 2026-06-29 23:24 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/89956159911.shtml)

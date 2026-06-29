@@ -1,57 +1,58 @@
-# 无人机违规飞行威胁铁路安全，飞手要担责
+# 2026年海峡两岸生态环境类学科建设研讨会在宁夏举办
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-当无人机在铁路线上空飞过，危险可能正在逼近。近年来，我国无人机保有量持续攀升、应用场景不断拓展。但个别飞手操控无人机在铁路沿线开展飞行拍摄或者从事农林作业等活动时，安全意识淡薄，侵入高铁线路区域、违法飞越铁路线路上空，严重威胁铁路运行安全。2026年3月，警方查获了一起无人机违规飞行案件。朱某某在福建宁德市境内杭深高铁沿线操控无人机为农田喷洒农药时，无人机剐蹭铁路护栏网外的架空
+中新网银川5月27日电 (杨迪 李晓歌)2026年海峡两岸生态环境类学科建设研讨会27日在宁夏大学举办，两岸生态环境领域专家齐聚银川，开展学术交流、共探合作路径，助力两岸生态环境协同发展。 本次研讨会汇聚台湾大学、台湾中山大学、宁夏大学、福州大学、厦门大学等两岸高校的近30名专家学者，分别围绕生态环境学科建设与人才培养、黄河“几字弯”生态安全与环境保护、生态产品价值实现与可持续
 
 ## 正文
 
-当无人机在铁路线上空飞过，危险可能正在逼近。
+中新网银川5月27日电 (杨迪 李晓歌)2026年海峡两岸生态环境类学科建设研讨会27日在宁夏大学举办，两岸生态环境领域专家齐聚银川，开展学术交流、共探合作路径，助力两岸生态环境协同发展。
 
-近年来，我国无人机保有量持续攀升、应用场景不断拓展。
+本次研讨会汇聚台湾大学、台湾中山大学、宁夏大学、福州大学、厦门大学等两岸高校的近30名专家学者，分别围绕生态环境学科建设与人才培养、黄河“几字弯”生态安全与环境保护、生态产品价值实现与可持续发展三大核心议题展开探讨。
 
-但个别飞手操控无人机在铁路沿线开展飞行拍摄或者从事农林作业等活动时，安全意识淡薄，侵入高铁线路区域、违法飞越铁路线路上空，严重威胁铁路运行安全。
+近年来，两岸生态环境领域交流互动频繁，高校互访、学术研讨、产业合作往来密切，积累了深厚的学术情谊与合作基础。
 
-2026年3月，警方查获了一起无人机违规飞行案件。
+台湾大学环境工程学研究所名誉/终身特聘教授蒋本基认为，基于可持续发展方向，两岸可以在自然生态利用、健康流域管理、生物多样性保护、自然碳汇提升、自然资产核算等领域深化合作。
 
-朱某某在福建宁德市境内杭深高铁沿线操控无人机为农田喷洒农药时，无人机剐蹭铁路护栏网外的架空电线，坠入铁路线路，造成经过的D3291次列车停车12分钟、7趟列车晚点。
+蒋本基特别提到，人工智能未来或将在极端气候预测、生态环境风险评估、治理系统优化等方面发挥重要作用。
 
-依据相关法律法规，公安机关对朱某某予以行政拘留6日处罚。
+于宁夏而言，可为当地荒漠化防治、黄河生态保护等提供技术支撑。
 
-值得注意的是，除了喷洒农药，如果操作无人机航拍风景，必须要了解清楚无人机管理规定、规范操作，否则也可能违法。
+本次研讨会旨在搭建高效的两岸学术交流平台，有效推动生态环境领域跨学科、跨界融合发展，为两岸生态环境领域人才联合培养、科研项目落地、学科创新发展开辟空间，推动生态环境学科高质量发展。
 
-2026年1月，徐某某在广西防城港市境内防东高铁沿线操控无人机拍摄风景，无人机触碰铁路高架桥栏杆，坠入铁路线路，造成经过的D8343次列车晚点15分钟。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:21 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 23:01 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 23:08 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 23:14 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 23:20 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 23:00 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 23:02 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 23:04 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 23:06 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 23:28 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 23:10 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 23:31 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 23:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 23:10 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 23:09 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 23:28 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 23:16 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 23:35 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 23:18 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 23:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 23:31 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 23:33 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 23:09 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:28 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/57638897.shtml)
-- 2026-06-29 23:07 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/60893.shtml)
-- 2026-06-29 23:18 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/100253.shtml)
-- 2026-06-29 23:21 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/88149.shtml)
-- 2026-06-29 23:03 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/868816980.shtml)
-- 2026-06-29 23:02 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/4285188170.shtml)
-- 2026-06-29 23:25 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/577663898.shtml)
-- 2026-06-29 23:10 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/58329.shtml)
-- 2026-06-29 23:06 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/091217144.shtml)
-- 2026-06-29 23:17 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/95574.shtml)
-- 2026-06-29 23:04 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/898874232565.shtml)
-- 2026-06-29 23:07 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/56311894.shtml)
-- 2026-06-29 23:11 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/056276.shtml)
-- 2026-06-29 23:20 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/787294460040.shtml)
-- 2026-06-29 23:09 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/506406041560.shtml)
+- 2026-06-29 23:26 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/938920703569.shtml)
+- 2026-06-29 23:11 - [急先锋](https://www.blog.kurohicncr.top/Article/details/745382.shtml)
+- 2026-06-29 23:35 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/55809.shtml)
+- 2026-06-29 23:16 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/273585797.shtml)
+- 2026-06-29 23:13 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/132712676.shtml)
+- 2026-06-29 23:09 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/4905802214.shtml)
+- 2026-06-29 23:12 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/53719.shtml)
+- 2026-06-29 23:06 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/168133277.shtml)
+- 2026-06-29 23:12 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/059914441434.shtml)
+- 2026-06-29 23:18 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/93315508.shtml)
+- 2026-06-29 23:30 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/6808627.shtml)
+- 2026-06-29 23:35 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/0117409.shtml)
+- 2026-06-29 23:30 - [逃狱兄弟](https://www.blog.minike.top/Article/details/72760954805.shtml)
+- 2026-06-29 23:27 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/219431602.shtml)
+- 2026-06-29 23:22 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/44401.shtml)

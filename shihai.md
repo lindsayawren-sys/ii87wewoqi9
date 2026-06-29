@@ -1,60 +1,58 @@
-# 以新阶层建设力赋能地方发展 云南省新联会与华宁县战略合作签约
+# 西藏芒康县举办现代生产生活技能县级复赛
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-原标题：以新阶层建设力赋能地方发展 省新联会与华宁县战略合作签约 5月8日，云南省新的社会阶层人士联谊会与华宁县人民政府举行战略合作签约仪式，重点就项目规划、资金服务、招商引资、民生服务等四个领域开展合作。这是省新联会首次与县级人民政府签署全方位、长效化战略合作框架协议，标志着新的社会阶层人士统战工作在服务中心大局、服务基层治理、赋能地方发展上迈出实质性的一步，就新联会深化地方
+中新网拉萨5月27日电 (李林)26日，西藏昌都市芒康县举办第二届“红色昌都·振兴奋进”比赛活动现代生产生活技能县级复赛。比赛设主赛场和5个分赛场，涵盖清洁能源施工、电焊等11项现代技艺工种。 比赛开始后，各参赛队伍通过现场抽签确定顺序，分赴各场地展开技能比拼。技能比赛同时，举办“技能人才专场招聘会”，邀请县内外多家企业到场设展，各企业负责人直接进入比赛区域观摩选手实操表现，与
 
 ## 正文
 
-原标题：以新阶层建设力赋能地方发展 省新联会与华宁县战略合作签约 5月8日，云南省新的社会阶层人士联谊会与华宁县人民政府举行战略合作签约仪式，重点就项目规划、资金服务、招商引资、民生服务等四个领域开展合作。
+中新网拉萨5月27日电 (李林)26日，西藏昌都市芒康县举办第二届“红色昌都·振兴奋进”比赛活动现代生产生活技能县级复赛。
 
-这是省新联会首次与县级人民政府签署全方位、长效化战略合作框架协议，标志着新的社会阶层人士统战工作在服务中心大局、服务基层治理、赋能地方发展上迈出实质性的一步，就新联会深化地方协同、助力县域高质量发展进行有益探索。
+比赛设主赛场和5个分赛场，涵盖清洁能源施工、电焊等11项现代技艺工种。
 
-筑牢实体化运作根基，激活新阶层建设力内生动力 云南坚持以组织实体化、运作规范化、服务精准化为方向，推动省新联会构建“联谊交友+实干服务”平台，深度整合法律服务、金融资本、规划设计、企业运营、市场营销等领域专业力量，构建组织健全、机制完善、运行高效的服务体系，实现从“人员聚合”到“力量融合”的提质升级。
+比赛开始后，各参赛队伍通过现场抽签确定顺序，分赴各场地展开技能比拼。
 
-此次战略合作，正是省新联会实体化运作的标志性成果。
+技能比赛同时，举办“技能人才专场招聘会”，邀请县内外多家企业到场设展，各企业负责人直接进入比赛区域观摩选手实操表现，与优秀选手现场对接、双向选择。
 
-双方秉持资源共享、优势互补、合作共赢、双向赋能原则，建立长期稳定、务实高效的合作机制，真正让新阶人能够服务有方、建功有位、发展有路，把报国之志、专业之长转化为服务基层、助推发展的强大动力。
+据统计，共16家企业提供岗位91个，涉及电焊、装载机操作、酒店服务等多个工种。
 
-华宁县委副书记、县长赵子良在签约仪式上表示，新的社会阶层人士是新时代经济社会发展不可或缺的生力军。
+电工技能比赛参赛选手洛松群培激动地说：“没想到比赛还没结束，就有企业找我商量工作，这个比赛真是太好了！
 
-云南省新联会人才荟萃、智力密集、资源广泛、专业扎实，此次战略合作，既是华宁县借势省级平台、集聚优质资源、拓宽发展赛道的重大契机，更是统一战线凝心聚力、服务中心大局的生动实践，必将为全县产业提升、项目攻坚、民生改善注入强劲持久的统战动能。
+” 经过激烈角逐，各工种分别评选出一、二、三等奖及优秀奖，颁奖嘉宾为获奖选手颁发荣誉证书。
 
-签约仪式后，双方围绕合作落地、资源对接、项目共建、机制构建等深入交流、凝聚共识；与会人员还走进华宁陶博物馆，实地感受千年陶韵与文创产业活力，为文旅融合、品牌打造、业态培育等合作筑牢实践根基。
+本次县级复赛不仅展示了芒康县民众的现代技艺功底，更通过“比赛+招聘”模式，打通了技能人才从“赛场”到“职场”的快速通道，为全县稳就业、促增收注入了新动力。
 
 ## 相关推荐
 
-- 2026-06-29 23:06 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 23:13 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 23:01 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 23:10 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 23:26 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 23:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 23:23 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 23:01 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 23:06 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 23:15 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 23:06 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 23:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 23:08 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 23:09 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 23:35 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 23:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 23:35 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 23:34 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 23:10 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 23:08 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 23:31 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 23:24 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 23:33 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 23:20 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 23:06 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 23:21 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:29 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/114012274.shtml)
-- 2026-06-29 23:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/72963.shtml)
-- 2026-06-29 23:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/808033365.shtml)
-- 2026-06-29 23:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/4250198.shtml)
-- 2026-06-29 23:07 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/03207304.shtml)
-- 2026-06-29 23:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/6009459812.shtml)
-- 2026-06-29 23:01 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/766537961.shtml)
-- 2026-06-29 23:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/802600.shtml)
-- 2026-06-29 23:20 - [千与千寻](https://www.blog.minike.top/Article/details/54812844.shtml)
-- 2026-06-29 23:16 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/87718138179.shtml)
-- 2026-06-29 23:04 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/339516.shtml)
-- 2026-06-29 23:19 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/056736204115.shtml)
-- 2026-06-29 23:26 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/8973521.shtml)
-- 2026-06-29 23:20 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/71497605.shtml)
-- 2026-06-29 23:07 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/639953646.shtml)
+- 2026-06-29 23:18 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/490797.shtml)
+- 2026-06-29 23:25 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/31670.shtml)
+- 2026-06-29 23:31 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/39291012.shtml)
+- 2026-06-29 23:29 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/277726.shtml)
+- 2026-06-29 23:23 - [返利科技盘中上演“天地板”](http://www.blog.minike.top/Article/details/4555449744.shtml)
+- 2026-06-29 23:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/471003300.shtml)
+- 2026-06-29 23:23 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/5800989.shtml)
+- 2026-06-29 23:12 - [天道](https://www.share.minike.top/Article/details/091765262101.shtml)
+- 2026-06-29 23:33 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/288440964.shtml)
+- 2026-06-29 23:23 - [急先锋](http://www.blog.minike.top/Article/details/290316455.shtml)
+- 2026-06-29 23:33 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/2990986.shtml)
+- 2026-06-29 23:08 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/19294590.shtml)
+- 2026-06-29 23:34 - [美以这对亲密盟友要掰了吗](http://www.blog.kurohicncr.top/Article/details/51526.shtml)
+- 2026-06-29 23:28 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/96077506007.shtml)
+- 2026-06-29 23:06 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/5522850.shtml)

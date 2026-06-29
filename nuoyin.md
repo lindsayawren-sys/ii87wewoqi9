@@ -1,54 +1,42 @@
-# 广东省地震局回应全省发短信
+# 方寸勋章载深情
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-视频丨广东省地震局回应全省发短信 今天(5月11日)，多名广东IP网友反映，收到关于广东省地震局的短信，内容为“【广东省地震局】温馨提示您：地震预警可在破坏性地震来临前，提前提醒广大群众采取紧急避险措施，科学应对震情，守护生命安全！” 今天上午，“广东省地震局”官方公众号发文《广东省地震局将发送地震预警科学普及公益短信》，表示5月12日是第18个全国防灾减灾日。 为让广东省公众
+发布时间：2026年05月27日 21:09 来源：央视网 责任编辑：【李骏】
 
 ## 正文
 
-视频丨广东省地震局回应全省发短信 今天(5月11日)，多名广东IP网友反映，收到关于广东省地震局的短信，内容为“【广东省地震局】温馨提示您：地震预警可在破坏性地震来临前，提前提醒广大群众采取紧急避险措施，科学应对震情，守护生命安全！
-
-” 今天上午，“广东省地震局”官方公众号发文《广东省地震局将发送地震预警科学普及公益短信》，表示5月12日是第18个全国防灾减灾日。
-
-为让广东省公众能及时接收地震预警信息，增强公众防灾减灾意识，该局将于5月11日—17日(全国防灾减灾宣传周)在广东全省范围内推送地震预警科学普及公益短信。
-
-如何设置地震预警？
-
-地震预警功能非常重要，提前几秒钟的预警都是紧急避险的宝贵时间。
-
-如何第一时间接收到地震预警信息？
-
-第一步：微信搜索“国家应急广播”公众号 第二步：点击“预警服务” 第三步：点击允许“地震预警通知”与“获取位置” (央视新闻客户端)
+发布时间：2026年05月27日 21:09 来源：央视网 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-29 23:02 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 23:13 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 23:18 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 23:03 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 23:25 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 23:04 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 23:16 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 23:28 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 23:29 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 23:02 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 23:18 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 23:33 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 23:13 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 23:10 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 23:19 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 23:21 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 23:29 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 23:15 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 23:07 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 23:13 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:05 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/879022635847.shtml)
-- 2026-06-29 23:11 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/397357.shtml)
-- 2026-06-29 23:16 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/212097330060.shtml)
-- 2026-06-29 23:01 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/93884894.shtml)
-- 2026-06-29 23:10 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/462218.shtml)
-- 2026-06-29 23:26 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/08282020.shtml)
-- 2026-06-29 23:18 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/773852.shtml)
-- 2026-06-29 23:11 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/680992287054.shtml)
-- 2026-06-29 23:07 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/903268528255.shtml)
-- 2026-06-29 23:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/81297795835.shtml)
-- 2026-06-29 23:22 - [第一炉香](https://www.share.minike.top/Article/details/1254606.shtml)
-- 2026-06-29 23:14 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/63956791427.shtml)
-- 2026-06-29 23:19 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/257112.shtml)
-- 2026-06-29 23:08 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/721679722.shtml)
-- 2026-06-29 23:04 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/8396476.shtml)
+- 2026-06-29 23:07 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/05286457104.shtml)
+- 2026-06-29 23:17 - [刘宇宁 好听](http://www.share.minike.top/Article/details/28580437.shtml)
+- 2026-06-29 23:13 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/206570524802.shtml)
+- 2026-06-29 23:31 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/3408641561.shtml)
+- 2026-06-29 23:17 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/37352212.shtml)
+- 2026-06-29 23:18 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.kurohicncr.top/Article/details/04403943.shtml)
+- 2026-06-29 23:21 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/663806123333.shtml)
+- 2026-06-29 23:28 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/439612092.shtml)
+- 2026-06-29 23:23 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/141580256317.shtml)
+- 2026-06-29 23:25 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/8851011.shtml)
+- 2026-06-29 23:14 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/2965015.shtml)
+- 2026-06-29 23:31 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/607866842836.shtml)
+- 2026-06-29 23:10 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/4421445210.shtml)
+- 2026-06-29 23:13 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/408148.shtml)
+- 2026-06-29 23:33 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/300396764247.shtml)

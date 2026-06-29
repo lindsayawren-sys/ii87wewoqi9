@@ -1,59 +1,56 @@
-# FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援
+# 中国哲学社会科学自主知识体系与田野调查学术沙龙暨白玛措博士新书分享会在拉萨举行
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-非多元化封闭式管理投资公司FS KKR Capital Corp．周一宣布将第二季度股息下调6.7%至每股0.42美元，此前的季度股息为0.48美元及0.45美元。新股息将于7月2日支付给6月17日登记在册的股东。 此次股息下调与公司第一季度业绩表现密切相关。财报显示，FS KKR当季净投资收入为0.42美元每股，低于市场预期的0.43美元。更令人担忧的是，公司报告了每股2.0
+中新网拉萨5月27日电 (李林)27日，中国哲学社会科学自主知识体系与田野调查学术沙龙暨白玛措博士新书分享会在西藏自治区社科院举行。活动以“长时段田野调查与中国自主知识体系构建”为主题，围绕西藏自治区社科院研究员、人类学博士白玛措新近出版的《大地艺术家：北方牧人》和《草原上的敬老院》两部专著展开深入研讨。 西藏自治区社科院党组副书记、院长，自治区社科联主席李小宁在致辞中指出，白
 
 ## 正文
 
-非多元化封闭式管理投资公司FS KKR Capital Corp．周一宣布将第二季度股息下调6.7%至每股0.42美元，此前的季度股息为0.48美元及0.45美元。
+中新网拉萨5月27日电 (李林)27日，中国哲学社会科学自主知识体系与田野调查学术沙龙暨白玛措博士新书分享会在西藏自治区社科院举行。
 
-新股息将于7月2日支付给6月17日登记在册的股东。
+活动以“长时段田野调查与中国自主知识体系构建”为主题，围绕西藏自治区社科院研究员、人类学博士白玛措新近出版的《大地艺术家：北方牧人》和《草原上的敬老院》两部专著展开深入研讨。
 
-此次股息下调与公司第一季度业绩表现密切相关。
+西藏自治区社科院党组副书记、院长，自治区社科联主席李小宁在致辞中指出，白玛措的两部新著由商务印书馆、中国社会科学出版社推出，代表着西藏社科工作者的学术水准在不断提升，西藏学术研究的独特价值正在被更广泛的学术界所认可。
 
-财报显示，FS KKR当季净投资收入为0.42美元每股，低于市场预期的0.43美元。
+西藏自治区社科院副院长边巴拉姆表示，白玛措是为数不多的在商务印书馆出版学术专著的藏族学者，其研究成果为西藏哲学社会科学高质量发展树立了标杆。
 
-更令人担忧的是，公司报告了每股2.00美元的已实现及未实现亏损，导致净资产价值从20.89美元骤降至18.83美元，单季跌幅达9.9%。
+与会学者认为，白玛措的研究从西藏牧区的具体经验出发，提炼出具有普遍意义的学术概念，为构建中国自主知识体系贡献了雪域高原的智慧。
 
-与此同时，不再计息的贷款占比从3.4%升至4.2%。
+据悉，《草原上的敬老院》一书基于长期田野调查，呈现了西藏牧区家庭结构变迁与老龄化背景下，国家福利制度如何保障老年人有尊严地老去的生动图景。
 
-面对业绩压力和股价持续折价交易，公司大股东KKR宣布了两项重大驰援措施。
+《大地艺术家：北方牧人》则记录了北方牧人在严酷自然环境中展现的生存智慧与生活艺术。
 
-一是KKR将投资1.5亿美元购买可转换优先股，初始转换价格为18.83美元，股息率为5%现金或7%实物支付。
+来自西藏自治区社科院、西藏大学及相关单位的百余位专家学者和青年学子参加了本次活动。
 
 ## 相关推荐
 
-- 2026-06-29 23:24 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 23:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 23:17 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 23:02 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 23:19 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 23:24 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 23:12 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 23:17 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 23:23 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 23:02 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 23:17 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 23:09 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 23:12 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 23:11 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 23:18 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 23:29 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 23:34 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 23:32 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 23:30 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 23:21 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 23:13 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 23:13 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 23:16 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:27 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/87692396910.shtml)
-- 2026-06-29 23:22 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/00127.shtml)
-- 2026-06-29 23:01 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/9603966.shtml)
-- 2026-06-29 23:20 - [国际清算银行警告AI投资热潮](https://www.share.kurohicncr.top/Article/details/5006050163.shtml)
-- 2026-06-29 23:09 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/737790025820.shtml)
-- 2026-06-29 23:09 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/855621962154.shtml)
-- 2026-06-29 23:25 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/6788599.shtml)
-- 2026-06-29 23:19 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/32451313.shtml)
-- 2026-06-29 23:14 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/169994.shtml)
-- 2026-06-29 23:00 - [一生一世](https://www.share.minike.top/Article/details/314427635.shtml)
-- 2026-06-29 23:08 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/186849760454.shtml)
-- 2026-06-29 23:01 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/7944140412.shtml)
-- 2026-06-29 23:07 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/07506399522.shtml)
-- 2026-06-29 23:29 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/1094261559.shtml)
-- 2026-06-29 23:18 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/5511505291.shtml)
+- 2026-06-29 23:32 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/3312074175.shtml)
+- 2026-06-29 23:25 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/0841689.shtml)
+- 2026-06-29 23:15 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/91236454366.shtml)
+- 2026-06-29 23:13 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/19148.shtml)
+- 2026-06-29 23:14 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/8633864697.shtml)
+- 2026-06-29 23:35 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/07194286.shtml)
+- 2026-06-29 23:35 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/9885357.shtml)
+- 2026-06-29 23:17 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/10238.shtml)
+- 2026-06-29 23:33 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/61857.shtml)
+- 2026-06-29 23:10 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/77658854237.shtml)
+- 2026-06-29 23:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/005526545.shtml)
+- 2026-06-29 23:27 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/8954662.shtml)
+- 2026-06-29 23:22 - [世界杯](http://www.share.minike.top/Article/details/76339741.shtml)
+- 2026-06-29 23:16 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/45699142.shtml)
+- 2026-06-29 23:26 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/21364202065.shtml)

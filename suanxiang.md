@@ -1,54 +1,56 @@
-# 非洲驻华使团长：非中关系将迎来更加光明的未来
+# 中信建投期货：5月29日黑色系早报
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 23:13 来源：中国新闻网 5月11日，非洲驻华使团召开新闻发布会。会上，非洲驻华使团长、喀麦隆驻华大使Martin Mpana宣布，非洲驻华使团将于5月23日在北京举办“2026非洲日文化节”。Martin Mpana表示，今年恰逢非中开启外交关系70周年，同时也是“中非人文交流年”。在这一重要背景下，文化节不仅是一场汇聚非洲文化魅力的盛会
+钢材早报：产业矛盾累积，期钢震荡偏弱 市场信息： 1、国务院印发《城市更新“十五五”规划》，明确“十五五”时期城市更新主要指标，包括城镇危旧房改造数量为 50 万套/间、新开工改造城镇老旧小区 11.5 万个、城中村改造 4000 个、城市地下管网改造长度 36.5 万公里等。 2、国家统计局：2026 年 1-4 月，全国规模以上工业企业实现利润总额 24358.4 亿元，同
 
 ## 正文
 
-发布时间：2026年05月11日 23:13 来源：中国新闻网 5月11日，非洲驻华使团召开新闻发布会。
+钢材早报：产业矛盾累积，期钢震荡偏弱 市场信息： 1、国务院印发《城市更新“十五五”规划》，明确“十五五”时期城市更新主要指标，包括城镇危旧房改造数量为 50 万套/间、新开工改造城镇老旧小区 11.5 万个、城中村改造 4000 个、城市地下管网改造长度 36.5 万公里等。
 
-会上，非洲驻华使团长、喀麦隆驻华大使Martin Mpana宣布，非洲驻华使团将于5月23日在北京举办“2026非洲日文化节”。
+2、国家统计局：2026 年 1-4 月，全国规模以上工业企业实现利润总额 24358.4 亿元，同比增长 18.2%，较 1-3 月加快 2.7 个百分点。
 
-Martin Mpana表示，今年恰逢非中开启外交关系70周年，同时也是“中非人文交流年”。
+1-4 月黑色金属冶炼和压延加工业利润总额 75.8 亿元，同比下降51.5%。
 
-在这一重要背景下，文化节不仅是一场汇聚非洲文化魅力的盛会，更是深化中非友谊、促进民心相通、加强文明交流互鉴的重要平台。
+工业盈利面持续改善，但钢铁行业利润表现一般，整体仍处于弱修复状态。
 
-本届文化节将通过国家展区、文化展示和互动体验等形式，集中呈现非洲传统文化底蕴与当代创新活力。
+3、2026 年 1-4 月，国内钢坯出口总量 494.16 万吨，同比增加 47.77%。
 
-活动间隙，Martin Mpana 在接受中新社记者采访时称，非中合作是一场双赢的合作，非中关系将会迎来更加光明的未来。
+其中，4 月国内钢坯出口总量 163.98 万吨，环比增加 7.31%，同比增加 109.03%。
 
-(谢龙飞 林倬安 制作 徐妙巧） 责任编辑：【李骏】
+4、5 月 28 日，全国主港铁矿石成交 70.00 万吨，环比减 7.9%；237 家主流贸易商建筑钢材成交 8.97万吨，环比增 12.6%。
+
+5、5 月 28 日，西南、华中、西北地区煤价出现上涨，个别煤种出现 30 元/吨的上涨。
 
 ## 相关推荐
 
-- 2026-06-29 23:13 - [刘宇宁 好听](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 23:14 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 23:00 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 23:10 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 23:03 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 23:09 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 23:15 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 23:15 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 23:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 23:05 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 23:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 23:33 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 23:07 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 23:07 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 23:19 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 23:29 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 23:28 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 23:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 23:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 23:14 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:28 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/78501940.shtml)
-- 2026-06-29 23:25 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/36949429.shtml)
-- 2026-06-29 23:02 - [东方风云榜直播](http://www.blog.minike.top/Article/details/97067.shtml)
-- 2026-06-29 23:27 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/7131894.shtml)
-- 2026-06-29 23:25 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/250647.shtml)
-- 2026-06-29 23:21 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/684985999.shtml)
-- 2026-06-29 23:24 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/69174.shtml)
-- 2026-06-29 23:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/79607.shtml)
-- 2026-06-29 23:09 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/506117.shtml)
-- 2026-06-29 23:23 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/91550098613.shtml)
-- 2026-06-29 23:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/789459091787.shtml)
-- 2026-06-29 23:25 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/0740956.shtml)
-- 2026-06-29 23:05 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/365344224.shtml)
-- 2026-06-29 23:03 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/20201.shtml)
-- 2026-06-29 23:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/1224837798.shtml)
+- 2026-06-29 23:19 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/3349061586.shtml)
+- 2026-06-29 23:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/1616632.shtml)
+- 2026-06-29 23:07 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/207456132.shtml)
+- 2026-06-29 23:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/54598.shtml)
+- 2026-06-29 23:32 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/75091692.shtml)
+- 2026-06-29 23:08 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/87485179.shtml)
+- 2026-06-29 23:11 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/51956144877.shtml)
+- 2026-06-29 23:23 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/177301295.shtml)
+- 2026-06-29 23:13 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/90324.shtml)
+- 2026-06-29 23:22 - [欧洲缘何成为变暖最快的大洲](https://www.blog.minike.top/Article/details/93797.shtml)
+- 2026-06-29 23:16 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/76781290403.shtml)
+- 2026-06-29 23:27 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/7593469.shtml)
+- 2026-06-29 23:11 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/6690285784.shtml)
+- 2026-06-29 23:27 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/18726051974.shtml)
+- 2026-06-29 23:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/469622.shtml)

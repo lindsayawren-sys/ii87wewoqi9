@@ -1,61 +1,58 @@
-# 南非青年：中国对非零关税成为中非合作新风向标
+# 美国股市：美股三个主要股指创新高 美伊协议报道提振风险偏好
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 14:38 来源：中国新闻网 中国驻南非使馆近日同比勒陀利亚大学、南非全球事务青年协会主办“多边主义下的南南合作”青年交流活动。中南青年就中国零关税举措、中南和南南合作、中国之治等举行研讨交流。 中国驻南非大使吴鹏及使馆青年代表，比勒陀利亚大学国际关系与公共管理学院院长戴克、南非全球事务青年协会主席马加古拉，比勒陀利亚大学、约翰内斯堡大学、金山
+标普500指数周四触及历史新高，关于美伊协议的报道提振了市场对冲突接近结束的乐观期望。 标普500指数收涨0.6%，连续第六个交易日上涨，医疗保健和科技股领涨。 以科技股为主的纳斯达克100指数上涨0.8%，道琼斯工业平均指数上涨不足0.1%。三大股指均创新高。 美股开盘走低，但Axios报道称，伊朗和美国已达成一项临时协议，将延长停火并推动达成结束战争的最终协议后，股市转涨。
 
 ## 正文
 
-发布时间：2026年05月09日 14:38 来源：中国新闻网 中国驻南非使馆近日同比勒陀利亚大学、南非全球事务青年协会主办“多边主义下的南南合作”青年交流活动。
+标普500指数周四触及历史新高，关于美伊协议的报道提振了市场对冲突接近结束的乐观期望。
 
-中南青年就中国零关税举措、中南和南南合作、中国之治等举行研讨交流。
+标普500指数收涨0.6%，连续第六个交易日上涨，医疗保健和科技股领涨。
 
-中国驻南非大使吴鹏及使馆青年代表，比勒陀利亚大学国际关系与公共管理学院院长戴克、南非全球事务青年协会主席马加古拉，比勒陀利亚大学、约翰内斯堡大学、金山大学、南非大学等高校师生约60人出席。
+以科技股为主的纳斯达克100指数上涨0.8%，道琼斯工业平均指数上涨不足0.1%。
 
-南非全球事务青年协会(SAYAGA)青年项目主任恩科萨纳·马兰古表示，中国正在进一步开放市场，为非洲国家提供市场准入。
+三大股指均创新高。
 
-在当前国际形势下，这是一个积极的地缘政治信号，也应当成为非洲国家更加重视与中国合作的重要风向标。
+美股开盘走低，但Axios报道称，伊朗和美国已达成一项临时协议，将延长停火并推动达成结束战争的最终协议后，股市转涨。
 
-我们应进一步整合自身资源，加强与中国的合作，持续深化和巩固双边关系。
+Axios的报道称，美国总统特朗普仍需批准协议条款。
 
-南非全球事务青年协会(SAYAGA)负责人隆吉莱·马加古拉表示，这项政策还将带来更多发展机遇，尤其是在工业化领域。
+受该消息影响，油价回吐涨幅，美国国债收益率下跌。
 
-它将有助于推动中小企业成长，确保中小企业也能够获得更加公平的中国市场准入机会。
+Vital Knowledge创始人Adam Crisafulli表示：“美股早盘略有震荡，但得益于财报稳健”、通胀缓和以及美伊可能达成协议的消息，“主要股指随后获得买盘支撑”。
 
 ## 相关推荐
 
-- 2026-06-29 23:13 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 23:13 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 23:02 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 23:22 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 23:21 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 23:06 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 23:24 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 23:25 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 23:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 23:21 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 23:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 23:19 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 23:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 23:09 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 23:00 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 23:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 23:09 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 23:35 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 23:27 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 23:11 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 23:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 23:15 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 23:27 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 23:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 23:33 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 23:20 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 23:35 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:24 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/543974627.shtml)
-- 2026-06-29 23:06 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/224352.shtml)
-- 2026-06-29 23:21 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/28914687652.shtml)
-- 2026-06-29 23:20 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/616995756080.shtml)
-- 2026-06-29 23:06 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/7564946400.shtml)
-- 2026-06-29 23:29 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/647500383902.shtml)
-- 2026-06-29 23:07 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/82218867403.shtml)
-- 2026-06-29 23:23 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/55099.shtml)
-- 2026-06-29 23:27 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/8991257974.shtml)
-- 2026-06-29 23:15 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/324570.shtml)
-- 2026-06-29 23:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/79169970.shtml)
-- 2026-06-29 23:09 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/933292.shtml)
-- 2026-06-29 23:14 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/8296655.shtml)
-- 2026-06-29 23:14 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.minike.top/Article/details/0838909880.shtml)
-- 2026-06-29 23:27 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/2539002391.shtml)
+- 2026-06-29 23:08 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/81072.shtml)
+- 2026-06-29 23:32 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/3071520.shtml)
+- 2026-06-29 23:06 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/496197.shtml)
+- 2026-06-29 23:27 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/896886.shtml)
+- 2026-06-29 23:13 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/306426.shtml)
+- 2026-06-29 23:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/720855887.shtml)
+- 2026-06-29 23:19 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/5463101.shtml)
+- 2026-06-29 23:23 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/072097350674.shtml)
+- 2026-06-29 23:06 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/111690767.shtml)
+- 2026-06-29 23:32 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/04083256.shtml)
+- 2026-06-29 23:31 - [我和我的家乡](http://www.share.minike.top/Article/details/78302897437.shtml)
+- 2026-06-29 23:15 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/855661714227.shtml)
+- 2026-06-29 23:24 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/4825152.shtml)
+- 2026-06-29 23:13 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/07362.shtml)
+- 2026-06-29 23:35 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/49705610248.shtml)

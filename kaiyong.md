@@ -1,58 +1,60 @@
-# 515投资者保护|景顺长城基金“一司一省一高校”投教新实践：当财报课开进商圈夜校
+# 澳门特区政府行政法务司：将为澳门经济适度多元发展提供法治支撑
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。当财报课开进商圈夜校：景顺长城基金“一司一省一高校”投教新实践参选“最佳投资者教育优秀创新案例奖”类别。>>活动详情 据悉，景顺长城基金积极响应中国证监会号召，持续深化“一司一省一高校”投资者教育活动。公司敏锐洞察到城市青年，特别是都市白领在“碎片化
+中新社厦门5月28日电 (记者 谢雁冰)由中国法学会、香港特区政府律政司、澳门特区政府行政法务司共同主办的第14届内地与港澳法律研讨会28日在厦门举行。澳门特区政府行政法务司司长黄少泽当天在视频致辞中表示，澳门特区政府将提升立法质量，为澳门经济适度多元发展提供稳固的法治支撑，为粤港澳大湾区规则融合提供示范样本。黄少泽说，澳门是21世纪海上丝绸之路重要节点、中国与葡语国家商贸合作
 
 ## 正文
 
-专题：515投资者保护！
+中新社厦门5月28日电 (记者 谢雁冰)由中国法学会、香港特区政府律政司、澳门特区政府行政法务司共同主办的第14届内地与港澳法律研讨会28日在厦门举行。
 
-新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
+澳门特区政府行政法务司司长黄少泽当天在视频致辞中表示，澳门特区政府将提升立法质量，为澳门经济适度多元发展提供稳固的法治支撑，为粤港澳大湾区规则融合提供示范样本。
 
-当财报课开进商圈夜校：景顺长城基金“一司一省一高校”投教新实践参选“最佳投资者教育优秀创新案例奖”类别。
+黄少泽说，澳门是21世纪海上丝绸之路重要节点、中国与葡语国家商贸合作服务平台，也是粤港澳大湾区建设的重要一员，在国家战略中担当“精准联系人”的角色，始终坚持背靠祖国、联通世界，主动融入国家发展大局，为与葡语国家之间搭建桥梁发挥独特作用。
 
->>活动详情 据悉，景顺长城基金积极响应中国证监会号召，持续深化“一司一省一高校”投资者教育活动。
+黄少泽表示，行政法务司作为澳门特区政府负责公共行政、法务工作等核心领域的主管部门，在健全和完善澳门法律体系、推动规则衔接、促进涉外合作等方面主动担当、积极作为，为高质量共建“一带一路”提供法治支撑。
 
-公司敏锐洞察到城市青年，特别是都市白领在“碎片化学习”和“知识付费焦虑”下的真实需求，创新性地将投教阵地延伸至深圳福田CBD的核心商圈。
+同时，利用澳门大陆法系的制度特色，发挥中葡双语优势，持续深化与内地、香港的法律交流。
 
-我们与福田街道CBD商圈党委合作，在其发起的“商圈夜校·CBD青年探趣营”中，开设系列金融知识公益课程，旨在为年轻职场人提供一个权威、系统、便利的金融知识“夜间充电站”，从源头助力培养理性投资文化。
+在坚守“一国”之本、善用“两制”之利的前提下，以宪法与基本法为核心筑牢宪制秩序，健全维护国家安全法律体系，为建设高水平对外开放营造安全稳固的制度环境。
 
-该课程目标受众明确为商圈内22-35岁的青年白领。
+黄少泽说，今年是“十五五”开局之年，也是澳门“三五”规划的启航之年。
 
-围绕其“想理财、怕风险、缺知识”的痛点，设计了为期一个月、共四期的系列课程，主题为《读懂财务报表，建立投资思维》。
+“十五五”规划纲要为内地与港澳法治合作提供了更广阔的制度空间和实践场景。
 
 ## 相关推荐
 
-- 2026-06-29 23:00 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 23:13 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 23:08 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 23:29 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 23:17 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 23:15 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 23:25 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 23:23 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 23:22 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 23:20 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 23:28 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 23:22 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 23:11 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 23:12 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 23:31 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 23:22 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 23:30 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 23:10 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 23:31 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 23:23 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 23:18 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 23:26 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 23:33 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 23:13 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 23:16 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 23:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:24 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/60306830991.shtml)
-- 2026-06-29 23:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/02835513.shtml)
-- 2026-06-29 23:12 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/54618981680.shtml)
-- 2026-06-29 23:21 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/856784411.shtml)
-- 2026-06-29 23:10 - [时光音乐会](https://www.blog.minike.top/Article/details/64596.shtml)
-- 2026-06-29 23:21 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/25220.shtml)
-- 2026-06-29 23:29 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/208532896723.shtml)
-- 2026-06-29 23:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/0150531.shtml)
-- 2026-06-29 23:15 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.minike.top/Article/details/7115781.shtml)
-- 2026-06-29 23:08 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/9333343482.shtml)
-- 2026-06-29 23:21 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/435894989323.shtml)
-- 2026-06-29 23:10 - [周生如故](http://www.share.kurohicncr.top/Article/details/692018036167.shtml)
-- 2026-06-29 23:03 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/593541359.shtml)
-- 2026-06-29 23:13 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/2718762.shtml)
-- 2026-06-29 23:13 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/939720071134.shtml)
+- 2026-06-29 23:10 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/37936.shtml)
+- 2026-06-29 23:25 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/21050417.shtml)
+- 2026-06-29 23:32 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/9726973014.shtml)
+- 2026-06-29 23:35 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/13511859311.shtml)
+- 2026-06-29 23:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/820663060363.shtml)
+- 2026-06-29 23:18 - [东方风云榜](http://www.blog.minike.top/Article/details/832027766.shtml)
+- 2026-06-29 23:25 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/495547122.shtml)
+- 2026-06-29 23:11 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/3689061786.shtml)
+- 2026-06-29 23:16 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/285040324.shtml)
+- 2026-06-29 23:07 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/731613037.shtml)
+- 2026-06-29 23:33 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/2555249.shtml)
+- 2026-06-29 23:33 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/605634939.shtml)
+- 2026-06-29 23:33 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/379484338.shtml)
+- 2026-06-29 23:28 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/0524671449.shtml)
+- 2026-06-29 23:35 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/123131291433.shtml)

@@ -1,52 +1,47 @@
-# 2026年医保目录及商保创新药目录调整公开征求意见
+# 2026北京艺术季400余场活动精彩纷呈
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-2026年医保目录及商保创新药目录调整公开征求意见 《人民日报》（2026年05月10日 第 04 版） 据新华社北京5月9日电 （记者彭韵佳）国家医保局9日发布《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》等相关文件，并向社会公开征求意见。 与去年相比，2026年目录调整工作方案对目录外药品申报条件增加3条，包括“纳入2025
+发布时间：2026年05月28日 09:08 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-2026年医保目录及商保创新药目录调整公开征求意见 《人民日报》（2026年05月10日 第 04 版） 据新华社北京5月9日电 （记者彭韵佳）国家医保局9日发布《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》等相关文件，并向社会公开征求意见。
-
-与去年相比，2026年目录调整工作方案对目录外药品申报条件增加3条，包括“纳入2025年商业健康保险创新药品目录的药品”等，并允许已在商保创新药目录内的药品因新增适应症进行申报。
-
-国家医保局有关负责人表示，调整后既适当拓宽了目录外药品的申报范围，也体现了医保药品目录与商保创新药目录的衔接，稳定企业参与申报商保创新药目录的积极性。
-
-根据工作方案，今年的工作程序仍分为准备、申报、评审、谈判、公布结果5个阶段。
-
-工作方案预计会在5月底正式发布，11月底前发布新版医保药品目录和商保创新药目录。
-
-责任编辑：石秀珍 SF183
+发布时间：2026年05月28日 09:08 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 23:01 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 23:01 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 23:17 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 23:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 23:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 23:07 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 23:27 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 23:27 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 23:09 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 23:23 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 23:17 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 23:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 23:10 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 23:13 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 23:20 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 23:18 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 23:24 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 23:18 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 23:10 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 23:25 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 23:35 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 23:13 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 23:10 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 23:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 23:20 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:25 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/849317.shtml)
-- 2026-06-29 23:13 - [青春环游记第三季](http://www.share.minike.top/Article/details/31509546406.shtml)
-- 2026-06-29 23:28 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/412123673249.shtml)
-- 2026-06-29 23:10 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/422376583618.shtml)
-- 2026-06-29 23:27 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/1298331.shtml)
-- 2026-06-29 23:00 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/9695378359.shtml)
-- 2026-06-29 23:09 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/87519683662.shtml)
-- 2026-06-29 23:19 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/46498069867.shtml)
-- 2026-06-29 23:05 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/1301855877.shtml)
-- 2026-06-29 23:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/894467.shtml)
-- 2026-06-29 23:06 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/474455634724.shtml)
-- 2026-06-29 23:18 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/94716.shtml)
-- 2026-06-29 23:24 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/296113833.shtml)
-- 2026-06-29 23:03 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/307456987.shtml)
-- 2026-06-29 23:02 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/925613.shtml)
+- 2026-06-29 23:22 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/58198.shtml)
+- 2026-06-29 23:29 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/69648107804.shtml)
+- 2026-06-29 23:28 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/38091158555.shtml)
+- 2026-06-29 23:25 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/0050467070.shtml)
+- 2026-06-29 23:08 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/88373902101.shtml)
+- 2026-06-29 23:18 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/161471955.shtml)
+- 2026-06-29 23:23 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/32459405866.shtml)
+- 2026-06-29 23:33 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/735009.shtml)
+- 2026-06-29 23:29 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/14331.shtml)
+- 2026-06-29 23:07 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/1027796123.shtml)
+- 2026-06-29 23:14 - [一见倾心](https://www.blog.minike.top/Article/details/9206250.shtml)
+- 2026-06-29 23:17 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/57122.shtml)
+- 2026-06-29 23:29 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/348109.shtml)
+- 2026-06-29 23:27 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/017698228.shtml)
+- 2026-06-29 23:29 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/0434943.shtml)

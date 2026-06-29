@@ -1,59 +1,57 @@
-# 4月中国物流业景气指数小幅波动 市场预期向好
+# 东京审判亲历者之子：试图否定东京审判不会得逞
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-中新社北京5月9日电 (记者 阮煜琳)中国物流与采购联合会9日发布数据显示，4月份，中国物流业景气指数为49.7%，较上月回落0.5个百分点。中国物流信息中心主任刘宇航认为，4月景气指数有所回落，有一定的节假日因素和前期开工进度的影响，从历史数据看属于正常波动。分项指数中，资金周转率指数、物流服务价格指数、固定资产投资完成额指数、从业人员指数、业务活动预期指数等指标均处于景气区
+发布时间：2026年05月28日 14:33 来源：中国新闻网 5月28日，纪念东京审判开庭80周年国际研讨会在上海举办。上海交通大学东京审判研究中心名誉主任、东京审判中国检察官向哲濬之子向隆万在接受中新社记者采访时说，日本右翼势力否定东京审判、为“新型军国主义”开路，值得警惕。向隆万回忆说，20世纪80年代，日本文部省修改历史教科书，已是90多岁高龄的父亲向哲濬坐着轮椅参加座
 
 ## 正文
 
-中新社北京5月9日电 (记者 阮煜琳)中国物流与采购联合会9日发布数据显示，4月份，中国物流业景气指数为49.7%，较上月回落0.5个百分点。
+发布时间：2026年05月28日 14:33 来源：中国新闻网 5月28日，纪念东京审判开庭80周年国际研讨会在上海举办。
 
-中国物流信息中心主任刘宇航认为，4月景气指数有所回落，有一定的节假日因素和前期开工进度的影响，从历史数据看属于正常波动。
+上海交通大学东京审判研究中心名誉主任、东京审判中国检察官向哲濬之子向隆万在接受中新社记者采访时说，日本右翼势力否定东京审判、为“新型军国主义”开路，值得警惕。
 
-分项指数中，资金周转率指数、物流服务价格指数、固定资产投资完成额指数、从业人员指数、业务活动预期指数等指标均处于景气区间。
+向隆万回忆说，20世纪80年代，日本文部省修改历史教科书，已是90多岁高龄的父亲向哲濬坐着轮椅参加座谈会。
 
-新订单指数、资金周转率指数、物流服务价格指数、主营业务利润指数、固定资产投资完成额指数、从业人员指数和业务活动预期指数环比回升，反映出近两个月上下游需求联动效率提升，物流供应链各环节有效畅通，企业在韧性经营的基础上保持较为乐观预期。
+当时父亲曾说，如果日本帝国主义要卷土重来，那么他们这些东京审判的亲历者都出来作证，而且他相信，日本军国主义者会受到更大的失败。
 
-据中国物流信息中心副总经济师胡焓介绍，4月，从业人员指数为50.1%，连续两个月回升。
+“如果现在他(在世)，一定是这样的想法。
 
-物流固定资产投资加速增长，固定资产投资完成额指数为53.7%，环比回升2.3个百分点。
+” 向隆万还表示，相信在包括日本人民的世界人民共同努力之下，试图否定东京审判不会得逞。
 
-业务活动预期指数为56.3%，连续四个月保持在景气区间，反映出企业对后期市场保持稳定预期。
-
-刘宇航认为，尽管面临一系列内外部压力和冲击，企业仍保持韧性经营，人员岗位数量和投资稳定增长，特别是数智供应链、智能化、低碳绿色物流等新质生产力投资意向较强。
+(记者 张素 周昕 康玉湛 许婧 张亨伟） 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 23:04 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 23:17 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 23:16 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 23:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 23:24 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 23:27 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 23:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 23:10 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 23:21 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 23:11 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 23:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 23:21 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 23:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 23:19 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 23:20 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 23:23 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 23:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 23:33 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 23:10 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 23:25 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 23:31 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 23:28 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 23:23 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 23:13 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 23:16 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 23:19 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:18 - [啊啊啊](https://www.blog.minike.top/Article/details/78116023.shtml)
-- 2026-06-29 23:08 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/7838090867.shtml)
-- 2026-06-29 23:15 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/082394.shtml)
-- 2026-06-29 23:24 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/601898.shtml)
-- 2026-06-29 23:08 - [炽夏](https://www.blog.minike.top/Article/details/14446.shtml)
-- 2026-06-29 23:02 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/8732911056.shtml)
-- 2026-06-29 23:09 - [肝不好身体这几处会“说话”](http://www.blog.kurohicncr.top/Article/details/12219.shtml)
-- 2026-06-29 23:27 - [恋与深空 日服](https://www.share.minike.top/Article/details/4685351734.shtml)
-- 2026-06-29 23:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/1781889485.shtml)
-- 2026-06-29 23:15 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/398981503.shtml)
-- 2026-06-29 23:07 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/70162791539.shtml)
-- 2026-06-29 23:19 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/761751.shtml)
-- 2026-06-29 23:26 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/16150218.shtml)
-- 2026-06-29 23:00 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/519339112.shtml)
-- 2026-06-29 23:27 - [爱很美味](http://www.blog.minike.top/Article/details/08057440.shtml)
+- 2026-06-29 23:32 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/5287246.shtml)
+- 2026-06-29 23:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/8974425.shtml)
+- 2026-06-29 23:35 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/5213191271.shtml)
+- 2026-06-29 23:06 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/857006031385.shtml)
+- 2026-06-29 23:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/03913980.shtml)
+- 2026-06-29 23:34 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/749514237541.shtml)
+- 2026-06-29 23:10 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/87929133643.shtml)
+- 2026-06-29 23:06 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/781501042.shtml)
+- 2026-06-29 23:08 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/03619987.shtml)
+- 2026-06-29 23:22 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/103637200.shtml)
+- 2026-06-29 23:31 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/5730932685.shtml)
+- 2026-06-29 23:16 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/04657511.shtml)
+- 2026-06-29 23:16 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/30654434.shtml)
+- 2026-06-29 23:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/686305465988.shtml)
+- 2026-06-29 23:32 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/64793.shtml)

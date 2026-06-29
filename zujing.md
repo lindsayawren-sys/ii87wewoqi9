@@ -1,46 +1,57 @@
-# 中美将在韩国举行经贸磋商
+# Lakewood-Amedex扩大候选药物Nu-3全球专利布局，瞄准感染性糖尿病足溃疡
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-中新社北京5月10日电 中国商务部新闻发言人10日宣布：经中美双方商定，中共中央政治局委员、中国国务院副总理何立峰将于5月12日-13日率团赴韩国与美方举行经贸磋商。双方将以两国元首釜山会晤及历次通话重要共识为引领，就彼此关心的经贸问题开展磋商。(完)
+临床阶段生物技术公司Lakewood-Amedex Biotherapeutics Inc．（纳斯达克代码：LABT）今日宣布，其全球知识产权组合进一步扩大，已在澳大利亚和新西兰获得两项针对其领先候选药物Nu-3凝胶制剂的新专利。这两项专利的授权使公司针对Nu-3凝胶制剂的全球授权专利总数增至27项。 新获批的两项专利分别为：新西兰知识产权局于2026年2月3日授予的专利号75
 
 ## 正文
 
-中新社北京5月10日电 中国商务部新闻发言人10日宣布：经中美双方商定，中共中央政治局委员、中国国务院副总理何立峰将于5月12日-13日率团赴韩国与美方举行经贸磋商。
+临床阶段生物技术公司Lakewood-Amedex Biotherapeutics Inc．（纳斯达克代码：LABT）今日宣布，其全球知识产权组合进一步扩大，已在澳大利亚和新西兰获得两项针对其领先候选药物Nu-3凝胶制剂的新专利。
 
-双方将以两国元首釜山会晤及历次通话重要共识为引领，就彼此关心的经贸问题开展磋商。
+这两项专利的授权使公司针对Nu-3凝胶制剂的全球授权专利总数增至27项。
 
-(完)
+新获批的两项专利分别为：新西兰知识产权局于2026年2月3日授予的专利号759577，以及澳大利亚知识产权局于2026年3月19日授予的专利号2024202211，名称均为“双磷菌素凝胶制剂及其用途”。
+
+该凝胶制剂专为局部应用设计，含有溶致液晶成分，可通过与水形成氢键附着于伤口。
+
+目前，公司在美国、欧洲专利局成员国、印度、日本、香港、巴西及英国等多个地区均持有相关专利，整体专利组合共包含71项已授权专利及28项待审专利申请。
+
+Nu-3属于公司自主研发的双磷菌素类抗菌药物，拥有独特的作用机制——可在数分钟内破坏细菌膜，从而显著降低耐药性产生的可能性。
+
+体外研究显示，Nu-3对多种临床分离的耐药菌株具有广谱杀菌活性，包括耐甲氧西林金黄色葡萄球菌和耐万古霉素肠球菌等。
+
+公司此前开展的探索性临床试验未发现安全性信号，并显示出积极的抗菌反应及伤口愈合改善趋势。
 
 ## 相关推荐
 
-- 2026-06-29 23:24 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 23:12 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 23:20 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 23:06 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 23:09 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 23:06 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 23:06 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 23:16 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 23:05 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 23:07 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 23:13 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 23:31 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 23:31 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 23:30 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 23:26 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 23:29 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 23:25 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 23:15 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 23:21 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 23:19 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 23:30 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:14 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/066556564105.shtml)
-- 2026-06-29 23:21 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/4876640.shtml)
-- 2026-06-29 23:11 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/553435.shtml)
-- 2026-06-29 23:29 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/2762227593.shtml)
-- 2026-06-29 23:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/0146362995.shtml)
-- 2026-06-29 23:08 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/88700.shtml)
-- 2026-06-29 23:20 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/50406100728.shtml)
-- 2026-06-29 23:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/44162.shtml)
-- 2026-06-29 23:21 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/81023.shtml)
-- 2026-06-29 23:29 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/851111.shtml)
-- 2026-06-29 23:16 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/0532968241.shtml)
-- 2026-06-29 23:21 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/3392406946.shtml)
-- 2026-06-29 23:25 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/400226148712.shtml)
-- 2026-06-29 23:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/4128733.shtml)
-- 2026-06-29 23:00 - [新官上任三把火](http://www.share.minike.top/Article/details/984098.shtml)
+- 2026-06-29 23:15 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/2910765.shtml)
+- 2026-06-29 23:28 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/32426.shtml)
+- 2026-06-29 23:27 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/72313320.shtml)
+- 2026-06-29 23:12 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/0877942.shtml)
+- 2026-06-29 23:15 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/842057467963.shtml)
+- 2026-06-29 23:23 - [一生一世](https://www.share.kurohicncr.top/Article/details/064086.shtml)
+- 2026-06-29 23:32 - [如何看待乌空军3架米格-29被摧毁](https://www.share.minike.top/Article/details/478066075484.shtml)
+- 2026-06-29 23:21 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/60532943995.shtml)
+- 2026-06-29 23:14 - [周生如故](https://www.share.kurohicncr.top/Article/details/82823655548.shtml)
+- 2026-06-29 23:11 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/614332449.shtml)
+- 2026-06-29 23:19 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/369791551.shtml)
+- 2026-06-29 23:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/3552958.shtml)
+- 2026-06-29 23:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/14328.shtml)
+- 2026-06-29 23:12 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/6373616066.shtml)
+- 2026-06-29 23:10 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/96280503434.shtml)

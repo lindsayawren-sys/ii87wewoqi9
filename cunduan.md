@@ -1,60 +1,61 @@
-# 4月全国新能源汽车渗透率历史首次突破60%，燃油车零售同比暴跌37%
+# 富国银行CEO：预计投资银行和交易业务将实现15%左右的增长
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-5月11日，乘联分会公布的最终数据显示，2026年4月全国新能源乘用车零售84.9万辆，同比下降6.8%，环比微降0.3%；1-4月累计零售275.8万辆，同比下降17.2%。同期燃油车零售仅53万辆，同比暴跌37%，环比下降33%。 值得关注的是，新能源车渗透率历史首次突破60%。乘联分会的统计数据显示，4月新能源车在国内总体乘用车的零售渗透率61.4%（即每卖出10辆乘用车
+富国银行CEO沙夫（Charlie Scharf）周三表示，预计第二季度投资银行和交易业务收入将增长15%左右。 在伯恩斯坦会议上发言时，沙夫表示，该行财富管理业务的收入增长也正朝着低两位数增长的目标稳步推进。 第一季度，富国银行投资银行部门 收入增长12.7%， 市场业务收入增长19%。 沙夫表示，投资银行和市场业务领域的客户活动依然强劲，同时该行通过增加资产负债表规模，继续
 
 ## 正文
 
-5月11日，乘联分会公布的最终数据显示，2026年4月全国新能源乘用车零售84.9万辆，同比下降6.8%，环比微降0.3%；1-4月累计零售275.8万辆，同比下降17.2%。
+富国银行CEO沙夫（Charlie Scharf）周三表示，预计第二季度投资银行和交易业务收入将增长15%左右。
 
-同期燃油车零售仅53万辆，同比暴跌37%，环比下降33%。
+在伯恩斯坦会议上发言时，沙夫表示，该行财富管理业务的收入增长也正朝着低两位数增长的目标稳步推进。
 
-值得关注的是，新能源车渗透率历史首次突破60%。
+第一季度，富国银行投资银行部门 收入增长12.7%， 市场业务收入增长19%。
 
-乘联分会的统计数据显示，4月新能源车在国内总体乘用车的零售渗透率61.4%（即每卖出10辆乘用车，超6辆为新能源），较去年同期增长9.7%，环比增长9.6%。
+沙夫表示，投资银行和市场业务领域的客户活动依然强劲，同时该行通过增加资产负债表规模，继续看到深化客户关系的机遇。
 
-分品牌看，在4月的国内零售中，自主品牌中的新能源车渗透率达80.1%；豪华车中的新能源车渗透率26.1%；而主流合资品牌中的新能源车渗透率上升到14.1%。
+此前，监管机构已取消了富国银行的资产上限，使该行在经历多年限制后，得以在存款和贷款业务方面更积极地扩张。
 
-从月度新能源车国内零售份额看，4月自主品牌新能源车零售份额65.2%，同比下降7.2%；主流合资品牌新能源车份额4.9%，同比增长1.7%；新势力份额25.6%，零跑、理想、蔚来汽车等品牌拉动新势力份额同比增长5.6%；特斯拉份额3.1%，同比下降0.1%。
+沙夫还表示，富国银行预计将在“几乎不增加或完全不增加成本”的情况下实现增长，因为该行正寻求在全公司范围内进一步提高运营效率。
 
-其中，国内新能源乘用车零售突破2万辆的企业品牌有16家，位列前十的是：比亚迪汽车（182，025辆）、吉利汽车（95，585辆）、长安汽车（64，471辆）、零跑汽车（57，162辆）、小米汽车（36，702辆）、奇瑞汽车（34，768辆）、上汽通用五菱（34，497辆）、理想汽车（34，085辆）、鸿蒙智行（32，759辆）、蔚来汽车（29，312辆）。
+富国银行的展望紧随竞争对手的乐观评论之后。
 
-包括新能源车在内，4月全国乘用车市场零售138.4万辆，同比下降21.5%，环比下降16.0%；今年1-4月累计零售560.4万辆，同比下降18.5%。
+摩根大通首席执行官戴蒙在同一场会议上表示，该行第二季度的投资银行业务费用可能增长10% 或更多。
 
 ## 相关推荐
 
-- 2026-06-29 23:24 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 23:25 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 23:16 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 23:12 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 23:20 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 23:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 23:16 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 23:06 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 23:19 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 23:11 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 23:09 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 23:02 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 23:20 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 23:17 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 23:22 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 23:25 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 23:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 23:25 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 23:22 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 23:09 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 23:10 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 23:16 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 23:07 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 23:14 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 23:06 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 23:11 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 23:35 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 23:16 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 23:13 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:13 - [曼城官宣马雷斯卡出任主教练](https://www.share.kurohicncr.top/Article/details/45991409.shtml)
-- 2026-06-29 23:13 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/672623366124.shtml)
-- 2026-06-29 23:22 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/67219.shtml)
-- 2026-06-29 23:15 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/3465061.shtml)
-- 2026-06-29 23:21 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/144743806.shtml)
-- 2026-06-29 23:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/33890.shtml)
-- 2026-06-29 23:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/4512538.shtml)
-- 2026-06-29 23:00 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/089082.shtml)
-- 2026-06-29 23:04 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/9753909156.shtml)
-- 2026-06-29 23:04 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/27926729.shtml)
-- 2026-06-29 23:04 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/919097.shtml)
-- 2026-06-29 23:21 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/95866323577.shtml)
-- 2026-06-29 23:13 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/49395461.shtml)
-- 2026-06-29 23:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/6454393.shtml)
-- 2026-06-29 23:12 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/57416.shtml)
+- 2026-06-29 23:09 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/4539973224.shtml)
+- 2026-06-29 23:27 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/078140456504.shtml)
+- 2026-06-29 23:21 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/1312333026.shtml)
+- 2026-06-29 23:32 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/337987.shtml)
+- 2026-06-29 23:27 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/812584559522.shtml)
+- 2026-06-29 23:16 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/378594607354.shtml)
+- 2026-06-29 23:25 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/7621749.shtml)
+- 2026-06-29 23:18 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/016522742048.shtml)
+- 2026-06-29 23:16 - [送你一朵小红花](https://www.share.minike.top/Article/details/3492868.shtml)
+- 2026-06-29 23:26 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/68796313.shtml)
+- 2026-06-29 23:19 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/47741.shtml)
+- 2026-06-29 23:24 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/8855234.shtml)
+- 2026-06-29 23:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/95204.shtml)
+- 2026-06-29 23:15 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/8260581702.shtml)
+- 2026-06-29 23:19 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/3231712494.shtml)

@@ -1,61 +1,56 @@
-# 银行理财增持债券、现金、公募基金，减持权益资产
+# Axios称美伊商定延长休战正等待特朗普批准 两国早前互指违反停火
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-受地缘政治扰动、股市波动、客户低风险偏好及理财自身投研短板等因素影响，一季度，银行理财结束了此前连续三个季度减配债券的态势，开始增配债券、现金，同时加码投资公募基金。不过，权益类资产直投出现一定程度的萎缩。 业内人士表示，银行理财增配债券、现金存款意在做好稳健防御，加码公募基金则是希望补齐权益短板。 一季度增配债券资产 在连续三个季度减配后，银行理财开始增配债券资产。银行业理财
+据Axios报道，伊朗与美国已达成一项协议，将延长停火，并争取一份结束战争的最终协议。市场憧憬这场持续三个月的冲突可能接近解决，油价应声下跌。 Axios援引两名美国官员和一名参与谈判的地区内消息人士的话报道称，协议内容包括将停火延长60天，并启动围绕伊朗核计划的谈判。报道称，美国总统唐纳德·特朗普仍需批准相关条款。 受该消息影响，油价跌至每桶94美元附近。此前，由于市场对达成
 
 ## 正文
 
-受地缘政治扰动、股市波动、客户低风险偏好及理财自身投研短板等因素影响，一季度，银行理财结束了此前连续三个季度减配债券的态势，开始增配债券、现金，同时加码投资公募基金。
+据Axios报道，伊朗与美国已达成一项协议，将延长停火，并争取一份结束战争的最终协议。
 
-不过，权益类资产直投出现一定程度的萎缩。
+市场憧憬这场持续三个月的冲突可能接近解决，油价应声下跌。
 
-业内人士表示，银行理财增配债券、现金存款意在做好稳健防御，加码公募基金则是希望补齐权益短板。
+Axios援引两名美国官员和一名参与谈判的地区内消息人士的话报道称，协议内容包括将停火延长60天，并启动围绕伊朗核计划的谈判。
 
-一季度增配债券资产 在连续三个季度减配后，银行理财开始增配债券资产。
+报道称，美国总统唐纳德·特朗普仍需批准相关条款。
 
-银行业理财登记托管中心数据显示，截至 2026年一季度末，银行理财配置债券比例为41.6%，环比增长1.9个百分点。
+受该消息影响，油价跌至每桶94美元附近。
 
-而在此之前的三个季度，银行理财配置债券的比例分别为43.9%、41.8%、40.4%、39.7%，呈连续下降态势。
+此前，由于市场对达成协议前景更为悲观，油价一度上涨。
 
-华宝证券研究创新部副总经理蔡梦苑表示，一季度银行理财债券配置比例回升至 41.6%，结束连续三个季度的减配。
+Axios的报道还推动标普500指数刷新纪录。
 
-这一变化一方面受到一季度债券收益率下行、资金面整体宽松的环境支撑，债券作为稳健底仓的阶段性配置价值显著提升；另一方面，“固收+”产品发行提速，带动债券资产被动增配。
+Axios报道称，这份谅解备忘录将写明，途经关键航道霍尔木兹海峡的航运将“畅通无阻”。
 
 ## 相关推荐
 
-- 2026-06-29 23:26 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 23:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 23:17 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 23:28 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 23:21 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 23:01 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 23:29 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 23:19 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 23:06 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 23:22 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 23:28 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 23:04 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 23:09 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 23:28 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 23:21 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 23:06 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 23:18 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 23:11 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 23:12 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 23:34 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 23:31 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 23:17 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 23:36 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 23:10 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 23:33 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:24 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/74818.shtml)
-- 2026-06-29 23:27 - [毒液2](http://www.blog.kurohicncr.top/Article/details/554520905791.shtml)
-- 2026-06-29 23:28 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/491726.shtml)
-- 2026-06-29 23:28 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/011219360920.shtml)
-- 2026-06-29 23:24 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/17783873.shtml)
-- 2026-06-29 23:16 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/92698284704.shtml)
-- 2026-06-29 23:21 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/67575438781.shtml)
-- 2026-06-29 23:07 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/76721524371.shtml)
-- 2026-06-29 23:00 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/388873.shtml)
-- 2026-06-29 23:21 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/0670522774.shtml)
-- 2026-06-29 23:28 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/32869.shtml)
-- 2026-06-29 23:20 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/09446.shtml)
-- 2026-06-29 23:01 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/61699.shtml)
-- 2026-06-29 23:11 - [毒液2](https://www.blog.minike.top/Article/details/64455443.shtml)
-- 2026-06-29 23:20 - [起风了](http://www.blog.minike.top/Article/details/862327514.shtml)
+- 2026-06-29 23:31 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/0252968.shtml)
+- 2026-06-29 23:20 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/118527.shtml)
+- 2026-06-29 23:06 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/6041228262.shtml)
+- 2026-06-29 23:29 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/708974393.shtml)
+- 2026-06-29 23:35 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/01226391681.shtml)
+- 2026-06-29 23:12 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/10964315023.shtml)
+- 2026-06-29 23:25 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/1893923644.shtml)
+- 2026-06-29 23:11 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/13778939.shtml)
+- 2026-06-29 23:17 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/32954.shtml)
+- 2026-06-29 23:23 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/35188383.shtml)
+- 2026-06-29 23:16 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/61529268160.shtml)
+- 2026-06-29 23:23 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/802141076.shtml)
+- 2026-06-29 23:15 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/3661313.shtml)
+- 2026-06-29 23:27 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/06371.shtml)
+- 2026-06-29 23:24 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/40507542245.shtml)

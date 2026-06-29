@@ -1,60 +1,53 @@
-# 伊朗已回应美国所提结束战争方案
+# 工伤认定需要提供哪些材料？人社部解答
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-中新社北京5月10日电 综合消息：伊朗伊斯兰共和国通讯社当地时间10日报道称，一名知情人士当日证实，伊朗已向巴基斯坦调解方正式提交对美国旨在结束战争最新方案的回应。 该知情人士称，当前阶段的谈判将完全集中于停止地区内敌对行动。 据报道，伊朗外交部发言人此前曾表示，伊方一旦完成内部评估并得出最终结论，就会转达其对美国方案的考虑和立场。 报道并未透露伊方回应的细节。路透社援引美国和
+中新网5月28日电 工伤认定需要提供哪些材料？人社部28日通过官方微信公众号作出解答。 根据《工伤保险条例》等有关规定，申请工伤认定应当提交工伤认定申请表，需要提供事故发生的时间、地点、原因以及职工伤害程度等基本情况以及相应证据。证据类型可以是证人证言、现场照片，也可以是其他形式的证据材料。
 
 ## 正文
 
-中新社北京5月10日电 综合消息：伊朗伊斯兰共和国通讯社当地时间10日报道称，一名知情人士当日证实，伊朗已向巴基斯坦调解方正式提交对美国旨在结束战争最新方案的回应。
+中新网5月28日电 工伤认定需要提供哪些材料？
 
-该知情人士称，当前阶段的谈判将完全集中于停止地区内敌对行动。
+人社部28日通过官方微信公众号作出解答。
 
-据报道，伊朗外交部发言人此前曾表示，伊方一旦完成内部评估并得出最终结论，就会转达其对美国方案的考虑和立场。
+根据《工伤保险条例》等有关规定，申请工伤认定应当提交工伤认定申请表，需要提供事故发生的时间、地点、原因以及职工伤害程度等基本情况以及相应证据。
 
-报道并未透露伊方回应的细节。
-
-路透社援引美国和伊朗的消息人士的话报道称，最新的和平努力旨在达成一项临时谅解备忘录，以停止战争并允许霍尔木兹海峡通航。
-
-同时，美伊双方还在讨论一项更全面的协议，该协议必须解决伊朗核计划等问题。
-
-卡塔尔半岛电视台表示，巴基斯坦已确认收到伊朗方面的回应。
-
-值得关注的是，伊方的回应将于何时转达给美国，以及美方将作何反应。
+证据类型可以是证人证言、现场照片，也可以是其他形式的证据材料。
 
 ## 相关推荐
 
-- 2026-06-29 23:28 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 23:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 23:14 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 23:22 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 23:22 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 23:15 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 23:17 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 23:13 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 23:29 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 23:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 23:15 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 23:14 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 23:11 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 23:04 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 23:25 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 23:10 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 23:07 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 23:21 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 23:11 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 23:23 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 23:11 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 23:24 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 23:07 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 23:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 23:35 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 23:29 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 23:22 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 23:28 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 23:17 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:24 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/41226.shtml)
-- 2026-06-29 23:09 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/66221.shtml)
-- 2026-06-29 23:25 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/740986395.shtml)
-- 2026-06-29 23:09 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/18600054903.shtml)
-- 2026-06-29 23:24 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/45709.shtml)
-- 2026-06-29 23:05 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/383406435573.shtml)
-- 2026-06-29 23:04 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/71900283.shtml)
-- 2026-06-29 23:14 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/065948397537.shtml)
-- 2026-06-29 23:06 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/30627793281.shtml)
-- 2026-06-29 23:19 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/11969256094.shtml)
-- 2026-06-29 23:05 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/8808803.shtml)
-- 2026-06-29 23:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/051731627.shtml)
-- 2026-06-29 23:03 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/200873789626.shtml)
-- 2026-06-29 23:04 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/254587.shtml)
-- 2026-06-29 23:06 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/016301173636.shtml)
+- 2026-06-29 23:35 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/622347332060.shtml)
+- 2026-06-29 23:26 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/027751639356.shtml)
+- 2026-06-29 23:28 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/635304.shtml)
+- 2026-06-29 23:25 - [乔家的儿女](https://www.blog.minike.top/Article/details/77732.shtml)
+- 2026-06-29 23:27 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/5814628.shtml)
+- 2026-06-29 23:08 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/0448992.shtml)
+- 2026-06-29 23:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/457017448.shtml)
+- 2026-06-29 23:09 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/63754796.shtml)
+- 2026-06-29 23:10 - [起风了](http://www.share.kurohicncr.top/Article/details/421767.shtml)
+- 2026-06-29 23:32 - [千与千寻](https://www.share.kurohicncr.top/Article/details/742787879.shtml)
+- 2026-06-29 23:34 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/320043746874.shtml)
+- 2026-06-29 23:11 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/224563.shtml)
+- 2026-06-29 23:19 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/13580381802.shtml)
+- 2026-06-29 23:28 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/3235099832.shtml)
+- 2026-06-29 23:25 - [山东发布山洪灾害气象预警](http://www.blog.minike.top/Article/details/1240073975.shtml)

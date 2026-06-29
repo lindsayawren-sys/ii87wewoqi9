@@ -1,48 +1,58 @@
-# 全国注册护士总量达606.2万人
+# 金价低位震荡，加仓还是止损？
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-国际护士节即将到来。国家卫生健康委5月11日公布，截至2025年底，全国注册护士总量达到606.2万人，较2020年增加约135万人，增幅约29%，每千人口注册护士数从2020年的3.34人提升至2025年的4.32人，具有大专以上学历护士占比超过80%。 记者：李恒 海报制作：李恒 新华社国内部出品
+登录新浪财经APP 搜索【信披】查看更多考评等级 新京报贝壳财经记者 徐雨婷 编辑 陈莉 校对 柳宝庆 持续低位震荡的金价让投资者开始摇摆。 “黄金跌跌不休，幸好之前清仓了一波黄金。”有投资者直言，虽长期看好黄金，但在金价低位震荡行情下，已经不敢入场。也有投资者准备趁下跌抄底，对冲高位持仓的亏损。 5月28日，现货黄金盘中跌破4400美元/盎司，跌幅超1.5%。截至发稿，现货黄
 
 ## 正文
 
-国际护士节即将到来。
+登录新浪财经APP 搜索【信披】查看更多考评等级 新京报贝壳财经记者 徐雨婷 编辑 陈莉 校对 柳宝庆 持续低位震荡的金价让投资者开始摇摆。
 
-国家卫生健康委5月11日公布，截至2025年底，全国注册护士总量达到606.2万人，较2020年增加约135万人，增幅约29%，每千人口注册护士数从2020年的3.34人提升至2025年的4.32人，具有大专以上学历护士占比超过80%。
+“黄金跌跌不休，幸好之前清仓了一波黄金。
 
-记者：李恒 海报制作：李恒 新华社国内部出品
+”有投资者直言，虽长期看好黄金，但在金价低位震荡行情下，已经不敢入场。
+
+也有投资者准备趁下跌抄底，对冲高位持仓的亏损。
+
+5月28日，现货黄金盘中跌破4400美元/盎司，跌幅超1.5%。
+
+截至发稿，现货黄金报4386美元/盎司，跌1.54%；COMEX黄金报4420美元/盎司，跌1.37%。
+
+金价低位震荡，加仓还是止损？
+
+失守4400美元/盎司 下方关键支撑在何处？
 
 ## 相关推荐
 
-- 2026-06-29 23:00 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 23:17 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 23:06 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 23:14 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 23:13 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 23:10 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 23:05 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 23:20 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 23:04 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 23:13 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 23:02 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 23:26 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 23:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 23:33 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 23:35 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 23:23 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 23:17 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 23:11 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 23:34 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 23:31 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 23:31 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 23:33 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 23:30 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 23:32 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:28 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/1829564925.shtml)
-- 2026-06-29 23:16 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/46533325.shtml)
-- 2026-06-29 23:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/639824875549.shtml)
-- 2026-06-29 23:25 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/0010597440.shtml)
-- 2026-06-29 23:05 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/7314068.shtml)
-- 2026-06-29 23:16 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/99028.shtml)
-- 2026-06-29 23:13 - [返利科技盘中上演“天地板”](https://www.blog.kurohicncr.top/Article/details/8545501287.shtml)
-- 2026-06-29 23:25 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/9010963.shtml)
-- 2026-06-29 23:02 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/24141.shtml)
-- 2026-06-29 23:24 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/145758.shtml)
-- 2026-06-29 23:17 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/9710270.shtml)
-- 2026-06-29 23:10 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/889457209.shtml)
-- 2026-06-29 23:10 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/741521567.shtml)
-- 2026-06-29 23:23 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/469897724336.shtml)
-- 2026-06-29 23:11 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/53817680.shtml)
+- 2026-06-29 23:32 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/68448.shtml)
+- 2026-06-29 23:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/7588397.shtml)
+- 2026-06-29 23:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/415463385578.shtml)
+- 2026-06-29 23:27 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/748219231805.shtml)
+- 2026-06-29 23:33 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/24310613931.shtml)
+- 2026-06-29 23:24 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/8166199.shtml)
+- 2026-06-29 23:10 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/652325.shtml)
+- 2026-06-29 23:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/183592.shtml)
+- 2026-06-29 23:12 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/10093902440.shtml)
+- 2026-06-29 23:31 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/78561.shtml)
+- 2026-06-29 23:07 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/840016124.shtml)
+- 2026-06-29 23:18 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/6473231775.shtml)
+- 2026-06-29 23:33 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/775868.shtml)
+- 2026-06-29 23:23 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/6882624355.shtml)
+- 2026-06-29 23:22 - [我和我的家乡](http://www.share.minike.top/Article/details/243194855119.shtml)

@@ -1,60 +1,56 @@
-# 新石器发布“来电岛”无人车运营中心，目标3年落地100+城市
+# 全球能源市场剧烈波动，洲际交易所天然气与电力持仓量创历史新高
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 5月9日下午消息，新石器无人车联合特来电发布无人车自动充电及运营中心“来电岛”，同步启动“全球百城计划”，目标3年内在国内外超百座城市落地来电岛。同日，由新石器和特来电合资成立的无人车运营公司揭牌，双方战略合作全面落地。 据悉，“来电岛”并非简单的充电桩，而是一个自动化运营枢纽，一站式满足无人车自动停泊、补能、清洗、自检、运维全需求。单座“来电岛”可规划100个车位
+受地缘冲突导致全球能源贸易路线重塑以及数据中心电力需求激增影响，洲际交易所的天然气和电力期货及期权市场迎来了前所未有的流动性。洲际交易所集团宣布，其期货和期权市场的总未平仓合约量达到了1.305亿份的历史最高水平。 能源与电力市场双双破纪录 根据洲际交易所于5月27日发布的报告，能源市场的剧烈波动促使全球交易员和投资者大规模涌入期货及期权市场进行风险对冲。 数据显示，截至5月2
 
 ## 正文
 
-新浪科技讯 5月9日下午消息，新石器无人车联合特来电发布无人车自动充电及运营中心“来电岛”，同步启动“全球百城计划”，目标3年内在国内外超百座城市落地来电岛。
+受地缘冲突导致全球能源贸易路线重塑以及数据中心电力需求激增影响，洲际交易所的天然气和电力期货及期权市场迎来了前所未有的流动性。
 
-同日，由新石器和特来电合资成立的无人车运营公司揭牌，双方战略合作全面落地。
+洲际交易所集团宣布，其期货和期权市场的总未平仓合约量达到了1.305亿份的历史最高水平。
 
-据悉，“来电岛”并非简单的充电桩，而是一个自动化运营枢纽，一站式满足无人车自动停泊、补能、清洗、自检、运维全需求。
+能源与电力市场双双破纪录 根据洲际交易所于5月27日发布的报告，能源市场的剧烈波动促使全球交易员和投资者大规模涌入期货及期权市场进行风险对冲。
 
-单座“来电岛”可规划100个车位及自动充电终端，实现高密度立体泊车，满足城市中心区域无人车“停得下”的需求；一小时可充满90辆车，同时依托特来电现有7万座公共充电网改扩建“中继岛”，1座来电岛+10座中继岛可支撑1200-1500辆无人车充电运营，实现了“充得快”，保障了车队的高效周转。
+数据显示，截至5月22日，洲际交易所全球天然气市场的未平仓合约量达到创纪录的4800万份，同比增长11%；亨利枢纽天然气期货的未平仓量也同比增长13%。
 
-除了充电，“来电岛”还集成了自动清洗、自检、维护等功能，实现了“跑得稳”，将原本分散的运维工作集中化、自动化，降低了运营成本。
+与此同时，全球电力市场也在5月25日创下了400万份合约的持仓纪录，同比增长10%。
 
-启用来电岛后，可实现高功率自动充电和立体泊车，将补能时间窗口最小化，车辆得以高效周转，大幅提升单车配送趟次和里程。
+洲际交易所期货市场高级副总裁特拉布·布兰德表示：“对洲际交易所天然气和电力市场的兴趣依然强劲，因为参与者正在对冲区域和国际价格动态、管道限制、基础设施投资以及不断变化的能源需求。
 
-成本方面，实现了“调度-充电-运维”全流程自动化与集中化，一个中心可服务上千辆车，运营边际成本随着车队规模扩大而显著降低。
+” 战争改变贸易流向，数据中心成新需求极 此轮市场活动的激增与地缘政治及产业格局的剧变密切相关。
 
-从城市管理角度来说，来电岛让无人车的停泊、补能集中解决，简化了城市交通、市容的监管难度。
+路透社分析指出，美以对伊战争导致关键的霍尔木兹海峡实际上被关闭，引发了前所未有的能源市场中断。
 
 ## 相关推荐
 
-- 2026-06-29 23:17 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 23:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 23:07 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 23:02 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 23:02 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 23:10 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 23:02 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 23:26 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 23:06 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 23:06 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 23:03 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 23:08 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 23:15 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 23:02 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 23:10 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 23:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 23:12 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 23:31 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 23:22 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 23:25 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 23:22 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 23:13 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 23:35 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 23:18 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:23 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/74489.shtml)
-- 2026-06-29 23:07 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/366981.shtml)
-- 2026-06-29 23:00 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/6800422.shtml)
-- 2026-06-29 23:11 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/8470822.shtml)
-- 2026-06-29 23:24 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/53819.shtml)
-- 2026-06-29 23:05 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/975490863.shtml)
-- 2026-06-29 23:25 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/3309488.shtml)
-- 2026-06-29 23:15 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/80048.shtml)
-- 2026-06-29 23:15 - [一见倾心](https://www.share.minike.top/Article/details/61096412098.shtml)
-- 2026-06-29 23:13 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/658351837.shtml)
-- 2026-06-29 23:00 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/9352999580.shtml)
-- 2026-06-29 23:25 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/572261165261.shtml)
-- 2026-06-29 23:09 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/309295043284.shtml)
-- 2026-06-29 23:19 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/379256107.shtml)
-- 2026-06-29 23:20 - [金刚川](https://www.share.kurohicncr.top/Article/details/2562669933.shtml)
+- 2026-06-29 23:23 - [沉睡花园](http://www.share.minike.top/Article/details/994565.shtml)
+- 2026-06-29 23:34 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/56164948.shtml)
+- 2026-06-29 23:14 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/23382987.shtml)
+- 2026-06-29 23:16 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/2357314.shtml)
+- 2026-06-29 23:20 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/33368382435.shtml)
+- 2026-06-29 23:24 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/95121971.shtml)
+- 2026-06-29 23:28 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/511737060759.shtml)
+- 2026-06-29 23:29 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/145591839629.shtml)
+- 2026-06-29 23:27 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/49886769.shtml)
+- 2026-06-29 23:28 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/868319962.shtml)
+- 2026-06-29 23:12 - [恋与深空 日服](https://www.blog.minike.top/Article/details/576516107535.shtml)
+- 2026-06-29 23:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/681517376.shtml)
+- 2026-06-29 23:17 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/201863720.shtml)
+- 2026-06-29 23:06 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/60218.shtml)
+- 2026-06-29 23:16 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/935352679421.shtml)

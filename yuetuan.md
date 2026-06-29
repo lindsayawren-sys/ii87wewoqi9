@@ -1,50 +1,61 @@
-# 中国人民银行行长潘功胜会见法国总统外事顾问博纳
+# 三星电子以巨额奖金协议化解罢工危机，员工投票批准薪资方案
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-2026年5月7日，中国人民银行行长潘功胜会见了法国总统外事顾问博纳。双方就中国和全球经济金融形势、中法两国在多双边机制下经济金融领域的合作开展了务实沟通与交流。中国人民银行副行长宣昌能参加会见。 责任编辑：曹睿潼
+三星电子工会宣布，工会成员已投票批准此前达成的临时薪资协议，标志着这家全球最大存储芯片制造商成功避免了一场可能动摇全球半导体供应链的大规模罢工。根据投票结果，在为期六天的投票中，62616名工会成员里有73.7%的人投下赞成票，协议正式生效。 临时协议：在罢工截止前90分钟达成 此次薪资谈判可谓一波三折。自去年年底以来，三星劳资双方一直围绕绩效奖金分配问题陷入僵局。工会最初要求
 
 ## 正文
 
-2026年5月7日，中国人民银行行长潘功胜会见了法国总统外事顾问博纳。
+三星电子工会宣布，工会成员已投票批准此前达成的临时薪资协议，标志着这家全球最大存储芯片制造商成功避免了一场可能动摇全球半导体供应链的大规模罢工。
 
-双方就中国和全球经济金融形势、中法两国在多双边机制下经济金融领域的合作开展了务实沟通与交流。
+根据投票结果，在为期六天的投票中，62616名工会成员里有73.7%的人投下赞成票，协议正式生效。
 
-中国人民银行副行长宣昌能参加会见。
+临时协议：在罢工截止前90分钟达成 此次薪资谈判可谓一波三折。
 
-责任编辑：曹睿潼
+自去年年底以来，三星劳资双方一直围绕绩效奖金分配问题陷入僵局。
+
+工会最初要求取消奖金上限、将营业利润的15%纳入员工奖金池，并上调工资7%。
+
+在谈判多次破裂后，工会于3月中旬举行的罢工投票中获得93.1%成员赞成，并计划于5月21日起举行为期18天的总罢工。
+
+戏剧性的转折发生在5月20日深夜。
+
+在韩国雇佣劳动部长金荣春亲自介入调解后，劳资双方在罢工预定开始前约90分钟达成了临时协议。
 
 ## 相关推荐
 
-- 2026-06-29 23:17 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 23:00 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 23:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 23:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 23:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 23:21 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 23:06 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 23:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 23:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 23:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 23:22 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 23:03 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 23:24 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 23:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 23:20 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 23:23 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 23:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 23:16 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 23:24 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 23:09 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 23:32 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 23:35 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 23:17 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 23:09 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 23:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 23:33 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 23:28 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:12 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/850625184919.shtml)
-- 2026-06-29 23:28 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/9858404.shtml)
-- 2026-06-29 23:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/897078705546.shtml)
-- 2026-06-29 23:25 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/33031415.shtml)
-- 2026-06-29 23:14 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/535728.shtml)
-- 2026-06-29 23:18 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/528239407122.shtml)
-- 2026-06-29 23:07 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/3947300.shtml)
-- 2026-06-29 23:28 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/91148.shtml)
-- 2026-06-29 23:12 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/120053.shtml)
-- 2026-06-29 23:08 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/654581051482.shtml)
-- 2026-06-29 23:18 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/76480.shtml)
-- 2026-06-29 23:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/9394041.shtml)
-- 2026-06-29 23:26 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/0911852627.shtml)
-- 2026-06-29 23:04 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/3184484.shtml)
-- 2026-06-29 23:16 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/05457.shtml)
+- 2026-06-29 23:22 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/393205567298.shtml)
+- 2026-06-29 23:33 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/54966747445.shtml)
+- 2026-06-29 23:12 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/604350542.shtml)
+- 2026-06-29 23:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/864591449.shtml)
+- 2026-06-29 23:23 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/288381.shtml)
+- 2026-06-29 23:17 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/02255966361.shtml)
+- 2026-06-29 23:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/0385587.shtml)
+- 2026-06-29 23:09 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/90876617983.shtml)
+- 2026-06-29 23:14 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/905694.shtml)
+- 2026-06-29 23:15 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/60467.shtml)
+- 2026-06-29 23:08 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/43675654.shtml)
+- 2026-06-29 23:10 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.kurohicncr.top/Article/details/6965923246.shtml)
+- 2026-06-29 23:22 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/7830638.shtml)
+- 2026-06-29 23:15 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/80794.shtml)
+- 2026-06-29 23:18 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/0524449.shtml)

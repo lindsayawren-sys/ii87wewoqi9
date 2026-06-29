@@ -1,54 +1,58 @@
-# 中欧班列开行突破13万列，发送货值超5200亿美元
+# 通胀升温与经济疲软信号交织，美债收益率意外小幅回落
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-中新网北京5月9日电(记者 李京统)记者从中国国家铁路集团有限公司获悉，5月9日10时，随着开往德国汉堡的X8037次中欧班列从中国郑州圃田站发车，中欧班列历年累计开行突破13万列，发送货值超5200亿美元。 目前，中国境内已有129个城市开通了中欧班列，通达欧洲26个国家235个城市以及11个亚洲国家超过100个城市，服务范围基本覆盖亚欧全境。 与此同时，中欧班列运输效率也在
+尽管美国4月通胀数据如期攀升，但在经济增速大幅下修和就业市场出现松动迹象的双重影响下，美国国债收益率周四盘中意外走低，显示出市场对经济前景的担忧正在对冲通胀带来的加息压力。 最新发布的一系列经济数据显示出美国经济复杂的现状。通胀方面，美联储最青睐的4月PCE物价指数同比加速至3.8%，核心PCE同比上涨3.3%，创下近两年半新高，显示物价压力依然顽固。与此同时，汽油价格的飙升成
 
 ## 正文
 
-中新网北京5月9日电(记者 李京统)记者从中国国家铁路集团有限公司获悉，5月9日10时，随着开往德国汉堡的X8037次中欧班列从中国郑州圃田站发车，中欧班列历年累计开行突破13万列，发送货值超5200亿美元。
+尽管美国4月通胀数据如期攀升，但在经济增速大幅下修和就业市场出现松动迹象的双重影响下，美国国债收益率周四盘中意外走低，显示出市场对经济前景的担忧正在对冲通胀带来的加息压力。
 
-目前，中国境内已有129个城市开通了中欧班列，通达欧洲26个国家235个城市以及11个亚洲国家超过100个城市，服务范围基本覆盖亚欧全境。
+最新发布的一系列经济数据显示出美国经济复杂的现状。
 
-与此同时，中欧班列运输效率也在不断提高。
+通胀方面，美联储最青睐的4月PCE物价指数同比加速至3.8%，核心PCE同比上涨3.3%，创下近两年半新高，显示物价压力依然顽固。
 
-铁路部门与海关部门紧密协作，全面推广“铁路快通”模式，充分利用中国铁路物流95306“数字口岸”系统，不断提高通关便利化水平，口岸通关时间最短压缩至30分钟以内。
+与此同时，汽油价格的飙升成为拉动商品通胀的核心动力。
 
-在服务方面，中国财政、税务、海关等部门出台陆路启运港退税、中欧班列回程境内段运费分摊扣减优惠等政策，进一步降低了企业运营成本。
+然而，经济增长和就业市场的信号则明显偏弱。
 
-记者了解到，随着中欧班列高质量发展，中欧班列境内外运输价格较开行初期降低40%以上，运送的货物达53个门类、5万多种商品，汽车汽配、机械设备、电子电气等高附加值货物成为中欧班列出口的主要货源，欧洲的木材、纸浆、特色农副产品和日常消费品也通过班列进入中国市场。
+美国第一季度GDP年化增速大幅下修至1.6%，显著低于初值2%和市场预期，凸显经济复苏动能减弱。
 
-(完)
+同时，上周初请失业金人数升至21.5万人，创一个多月新高，而4月个人收入环比增长陷入停滞。
+
+此外，扣除飞机项的核心资本品订单环比下降1.1%，暗示企业投资正在减弱。
 
 ## 相关推荐
 
-- 2026-06-29 23:17 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 23:00 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 23:07 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 23:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 23:19 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 23:17 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 23:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 23:15 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 23:02 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 23:24 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 23:07 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 23:23 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 23:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 23:29 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 23:27 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 23:26 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 23:31 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 23:13 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 23:34 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 23:07 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 23:06 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 23:33 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:12 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/220194642499.shtml)
-- 2026-06-29 23:29 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/54764.shtml)
-- 2026-06-29 23:01 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/605405.shtml)
-- 2026-06-29 23:09 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/91507.shtml)
-- 2026-06-29 23:23 - [小娘惹](https://www.blog.minike.top/Article/details/69598.shtml)
-- 2026-06-29 23:06 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/610366479.shtml)
-- 2026-06-29 23:29 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/77639.shtml)
-- 2026-06-29 23:15 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/07459178.shtml)
-- 2026-06-29 23:17 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/197294.shtml)
-- 2026-06-29 23:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/623117006.shtml)
-- 2026-06-29 23:19 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/80311.shtml)
-- 2026-06-29 23:04 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/8907918.shtml)
-- 2026-06-29 23:23 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/52444590.shtml)
-- 2026-06-29 23:28 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/035857.shtml)
-- 2026-06-29 23:10 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/2326945.shtml)
+- 2026-06-29 23:34 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/334165.shtml)
+- 2026-06-29 23:20 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/476021731458.shtml)
+- 2026-06-29 23:14 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/39631564.shtml)
+- 2026-06-29 23:09 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/553738064037.shtml)
+- 2026-06-29 23:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/49601235658.shtml)
+- 2026-06-29 23:11 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/4175416.shtml)
+- 2026-06-29 23:30 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/29948.shtml)
+- 2026-06-29 23:17 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/630851370.shtml)
+- 2026-06-29 23:22 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/39178105.shtml)
+- 2026-06-29 23:24 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/960452.shtml)
+- 2026-06-29 23:24 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/538375941.shtml)
+- 2026-06-29 23:32 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/17309828.shtml)
+- 2026-06-29 23:17 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/015732.shtml)
+- 2026-06-29 23:30 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/55728.shtml)
+- 2026-06-29 23:06 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/78312811969.shtml)

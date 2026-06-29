@@ -1,57 +1,59 @@
-# 普京：俄中是国际关系稳定极重要因素
+# 酒价内参5月29日价格发布：五粮液1618小幅上涨1元/瓶
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科5月9日电 (记者 田冰)俄罗斯总统普京9日举行记者会，就红场阅兵的考量、乌克兰问题、伊朗战事、俄欧关系、俄中关系等回答俄罗斯媒体的提问。 阅兵不展示装备不仅是为安全 普京表示，俄罗斯决定举行胜利日阅兵活动，但不展示军事装备，这不仅是出于安全考虑，更主要的是因为武装部队必须集中精力，全力以赴开展特别军事行动，最终击败对方。 普京说，对于乌方针对俄纪念胜利日活动的挑衅
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月29日整体小幅走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9929元，较昨日小幅下跌8元，跌至近三天最低点。市场在前一日低位整理后再度回落，终端交投情绪整体仍显平淡，但核心单品的涨跌分化依然显著。 今日白酒市场11大单品四涨五
 
 ## 正文
 
-中新社莫斯科5月9日电 (记者 田冰)俄罗斯总统普京9日举行记者会，就红场阅兵的考量、乌克兰问题、伊朗战事、俄欧关系、俄中关系等回答俄罗斯媒体的提问。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月29日整体小幅走弱。
 
-阅兵不展示装备不仅是为安全 普京表示，俄罗斯决定举行胜利日阅兵活动，但不展示军事装备，这不仅是出于安全考虑，更主要的是因为武装部队必须集中精力，全力以赴开展特别军事行动，最终击败对方。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9929元，较昨日小幅下跌8元，跌至近三天最低点。
 
-普京说，对于乌方针对俄纪念胜利日活动的挑衅性言论，俄国防部、外交部都已作出回应，并与主要伙伴和朋友讨论了乌方可能发动袭击导致的后果。
+市场在前一日低位整理后再度回落，终端交投情绪整体仍显平淡，但核心单品的涨跌分化依然显著。
 
-美国总统特朗普提出延长停火并交换战俘的提议，俄方立即表示同意。
+今日白酒市场11大单品四涨五跌两平，输家略占上风。
 
-因为这是一个合理提议，是基于对共同战胜纳粹主义的尊重，且具有人道主义性质。
+上涨方面，精品茅台涨幅居前，上涨5元/瓶，创下5月19日以来日涨幅之最；国窖1573上涨4元/瓶，重返890元上方；五粮液1618与习酒君品均小幅上涨1元/瓶。
 
-而且早在该提议之前的5月5日，俄方即已向乌方提出过包含500人的换俘方案。
+下跌方面，古井贡古20跌幅居前，下跌8元/瓶，连续两天大涨后显著回调；青花郎下跌7元/瓶，回落至700元关口；青花汾20下跌2元/瓶，创月内新低；普五八代与水晶剑南春均下跌1元/瓶，其中前者亦再创月内新低。
 
-但到目前为止，俄方还未收到乌方任何回应。
+飞天茅台与洋河梦之蓝M6+的价格环比保持不变。
 
-与泽连斯基会面不应是为了谈判 普京说，斯洛伐克总理菲佐向他提及其与乌克兰总统泽连斯基会面的情况，并再次听到泽连斯基希望会晤的口信。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 23:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 23:06 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 23:19 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 23:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 23:02 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 23:29 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 23:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 23:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 23:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 23:08 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 23:19 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 23:25 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 23:07 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 23:20 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 23:12 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 23:32 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 23:13 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 23:22 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 23:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 23:28 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 23:08 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 23:34 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 23:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 23:19 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:08 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/37921152364.shtml)
-- 2026-06-29 23:04 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/83157364601.shtml)
-- 2026-06-29 23:05 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/44131335578.shtml)
-- 2026-06-29 23:28 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/08731902056.shtml)
-- 2026-06-29 23:17 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/3084706526.shtml)
-- 2026-06-29 23:12 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/370980763.shtml)
-- 2026-06-29 23:02 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/81433.shtml)
-- 2026-06-29 23:15 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/907740424413.shtml)
-- 2026-06-29 23:18 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/3419031.shtml)
-- 2026-06-29 23:14 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/76088371.shtml)
-- 2026-06-29 23:00 - [刘念回应](http://www.blog.minike.top/Article/details/665417.shtml)
-- 2026-06-29 23:08 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/0681857.shtml)
-- 2026-06-29 23:18 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/99176920.shtml)
-- 2026-06-29 23:18 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/14420.shtml)
-- 2026-06-29 23:08 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/575034626151.shtml)
+- 2026-06-29 23:29 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/17230100.shtml)
+- 2026-06-29 23:19 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/04710692.shtml)
+- 2026-06-29 23:29 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/685424818.shtml)
+- 2026-06-29 23:18 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/744721771252.shtml)
+- 2026-06-29 23:16 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/64274.shtml)
+- 2026-06-29 23:15 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/4018381.shtml)
+- 2026-06-29 23:08 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/965013.shtml)
+- 2026-06-29 23:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/235715726.shtml)
+- 2026-06-29 23:10 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/3083745370.shtml)
+- 2026-06-29 23:23 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/4154056148.shtml)
+- 2026-06-29 23:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/6364004741.shtml)
+- 2026-06-29 23:12 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/7330859789.shtml)
+- 2026-06-29 23:10 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/7380682.shtml)
+- 2026-06-29 23:23 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/14366.shtml)
+- 2026-06-29 23:34 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/9989066515.shtml)

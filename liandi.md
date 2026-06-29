@@ -1,60 +1,58 @@
-# 意大利裕信银行高管将会见欧盟官员，欧洲银行业跨国并购博弈加剧
+# 江汽集团项兴初：全面对标华为、学习华为
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-据欧盟委员会日程安排显示，意大利裕信银行（UniCredit）首席执行官安德烈亚·奥塞尔拟于周一在布鲁塞尔会见欧盟委员会竞争事务委员特蕾莎·里韦拉及金融服务委员玛丽亚·路易莎·阿尔布克尔克。此次会晤正值欧盟方面就成员国阻挠区域内银行并购活动表达关切之际。 近期，裕信银行意图提高其在德国商业银行（Commerzbank）的持股比例并推进收购计划，此举遭到德国方面强烈反对。德国总理
+专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行。江汽集团董事长项兴初出席并演讲。 项兴初指出，行业有四大变革趋势。一是技术创新变革加速迭代，众多技术路线正逐步走向收敛。二是产业边界不断扩大，但组织边界需要聚焦收敛。三是传统燃油汽车品牌加速淘汰，新汽车、新生态、新分工快速形成。四是中国品牌迎来历史性崛起的黄金机遇。 他提到，近
 
 ## 正文
 
-据欧盟委员会日程安排显示，意大利裕信银行（UniCredit）首席执行官安德烈亚·奥塞尔拟于周一在布鲁塞尔会见欧盟委员会竞争事务委员特蕾莎·里韦拉及金融服务委员玛丽亚·路易莎·阿尔布克尔克。
+专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行。
 
-此次会晤正值欧盟方面就成员国阻挠区域内银行并购活动表达关切之际。
+江汽集团董事长项兴初出席并演讲。
 
-近期，裕信银行意图提高其在德国商业银行（Commerzbank）的持股比例并推进收购计划，此举遭到德国方面强烈反对。
+项兴初指出，行业有四大变革趋势。
 
-德国总理弗里德里希·梅尔茨本月曾明确指出，德方坚决反对银行业内的恶意与激进收购行为，该表态直指裕信银行针对德国商业银行的并购动向。
+一是技术创新变革加速迭代，众多技术路线正逐步走向收敛。
 
-此外，欧盟委员会与意大利在银行业并购审查规则上的分歧亦在凸显。
+二是产业边界不断扩大，但组织边界需要聚焦收敛。
 
-针对涉及国家战略利益的企业交易，意大利设定了“黄金权力”法律框架进行审查与干预。
+三是传统燃油汽车品牌加速淘汰，新汽车、新生态、新分工快速形成。
 
-尽管罗马方面此前已对该法案进行初步修订，但并未消除欧盟关于其审查机制违反欧盟内部市场规则的疑虑。
+四是中国品牌迎来历史性崛起的黄金机遇。
 
-目前，欧盟正敦促意大利政府对该法案进行进一步修改。
+他提到，近年来面对行业价值战、价格战及增收不增利的困境，江淮汽车反复思考自身出路，最终明确必须跳出低水平竞争，走向高价值赛道。
 
 ## 相关推荐
 
-- 2026-06-29 23:27 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 23:21 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 23:02 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 23:16 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 23:03 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 23:24 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 23:14 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 23:15 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 23:17 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 23:00 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 23:01 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 23:10 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-29 23:18 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 23:03 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 23:29 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 23:18 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 23:35 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 23:24 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 23:13 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 23:29 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 23:12 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 23:13 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 23:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 23:33 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 23:34 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 23:22 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:18 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/54758.shtml)
-- 2026-06-29 23:19 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/37339.shtml)
-- 2026-06-29 23:11 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/831863.shtml)
-- 2026-06-29 23:06 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/589549331288.shtml)
-- 2026-06-29 23:00 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/74953.shtml)
-- 2026-06-29 23:06 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/92367981.shtml)
-- 2026-06-29 23:26 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/6485215045.shtml)
-- 2026-06-29 23:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/29993154.shtml)
-- 2026-06-29 23:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/09109.shtml)
-- 2026-06-29 23:27 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/123067.shtml)
-- 2026-06-29 23:10 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/6896765.shtml)
-- 2026-06-29 23:01 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/612679895.shtml)
-- 2026-06-29 23:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/74281207.shtml)
-- 2026-06-29 23:10 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/4960115098.shtml)
-- 2026-06-29 23:11 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/931834879.shtml)
+- 2026-06-29 23:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/04610849.shtml)
+- 2026-06-29 23:30 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/6925645899.shtml)
+- 2026-06-29 23:22 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/8658522753.shtml)
+- 2026-06-29 23:28 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/157279.shtml)
+- 2026-06-29 23:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/5117449799.shtml)
+- 2026-06-29 23:27 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/128457902158.shtml)
+- 2026-06-29 23:26 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/83730371.shtml)
+- 2026-06-29 23:11 - [时光音乐会](https://www.share.minike.top/Article/details/816647.shtml)
+- 2026-06-29 23:11 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/44329924.shtml)
+- 2026-06-29 23:33 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/01869455355.shtml)
+- 2026-06-29 23:27 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/118622743108.shtml)
+- 2026-06-29 23:34 - [一生一世](http://www.blog.kurohicncr.top/Article/details/939272.shtml)
+- 2026-06-29 23:35 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/726777286.shtml)
+- 2026-06-29 23:18 - [一生一世](https://www.blog.kurohicncr.top/Article/details/07037705338.shtml)
+- 2026-06-29 23:33 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/84204560.shtml)

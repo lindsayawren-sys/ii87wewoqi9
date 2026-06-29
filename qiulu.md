@@ -1,54 +1,61 @@
-# 见者好运！洛阳千年菩提树再开花
+# 美方官员：美伊已达成协议 尚待特朗普最终批准
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 10:02 来源：中国新闻网 5月8日，河南洛阳栾川县重渡沟景区，一棵千年菩提树悄然绽放，引来游客驻足观赏。只见一串串花序高耸如塔，洁白如雪，掩映在绿叶之间，清风拂过，更显素雅清新。 据介绍，这棵菩提树已有上千年树龄，每年五月开花，花期仅有短短半个月。每到花开时节，不少游客专程前来祈福“打卡”，希望沾一沾千年古树的“福气”。当地还流传着“见菩提
+两名美国官员透露，美国与伊朗谈判代表已达成一份为期60天的谅解备忘录。该备忘录旨在延长停火状态，并就伊朗核问题展开谈判，不过特朗普总统尚未对此作出最终批准。 这份谅解备忘录的签署，将是冲突爆发以来最重大的外交突破。但想要达成满足特朗普核问题诉求的最终协议，双方仍需开展多轮密集谈判。 美国官员表示，协议条款在本周二就已基本敲定，但当时双方均需报请高层审批。 美方官员称，伊朗方面随
 
 ## 正文
 
-发布时间：2026年05月11日 10:02 来源：中国新闻网 5月8日，河南洛阳栾川县重渡沟景区，一棵千年菩提树悄然绽放，引来游客驻足观赏。
+两名美国官员透露，美国与伊朗谈判代表已达成一份为期60天的谅解备忘录。
 
-只见一串串花序高耸如塔，洁白如雪，掩映在绿叶之间，清风拂过，更显素雅清新。
+该备忘录旨在延长停火状态，并就伊朗核问题展开谈判，不过特朗普总统尚未对此作出最终批准。
 
-据介绍，这棵菩提树已有上千年树龄，每年五月开花，花期仅有短短半个月。
+这份谅解备忘录的签署，将是冲突爆发以来最重大的外交突破。
 
-每到花开时节，不少游客专程前来祈福“打卡”，希望沾一沾千年古树的“福气”。
+但想要达成满足特朗普核问题诉求的最终协议，双方仍需开展多轮密集谈判。
 
-当地还流传着“见菩提花开，好运自然来”的说法。
+美国官员表示，协议条款在本周二就已基本敲定，但当时双方均需报请高层审批。
 
-(记者 李超庆 视频来源 重渡沟景区） 责任编辑：【李季】
+美方官员称，伊朗方面随后反馈已完成内部审批、准备签署协议，不过伊朗官方尚未对此予以证实。
+
+美方谈判代表已向特朗普汇报最终协议的全部细节，特朗普表示需要数日时间斟酌。
+
+一名美国官员表示：“总统已告知斡旋方，他希望留出几天时间考虑此事。
 
 ## 相关推荐
 
-- 2026-06-29 23:11 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 23:14 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 23:29 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 23:12 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 23:27 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 23:17 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 23:23 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 23:10 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 23:12 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 23:09 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 23:19 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 23:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 23:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 23:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 23:08 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 23:11 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 23:30 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 23:25 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 23:33 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 23:23 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 23:33 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 23:07 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 23:10 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 23:34 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 23:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 23:17 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 23:29 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:01 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/233833773785.shtml)
-- 2026-06-29 23:16 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/952769245.shtml)
-- 2026-06-29 23:25 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/0929414815.shtml)
-- 2026-06-29 23:29 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/01224884.shtml)
-- 2026-06-29 23:24 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/099366249526.shtml)
-- 2026-06-29 23:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/8871049.shtml)
-- 2026-06-29 23:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/41369571184.shtml)
-- 2026-06-29 23:24 - [美人鱼](https://www.blog.minike.top/Article/details/27179.shtml)
-- 2026-06-29 23:00 - [周生如故](https://www.share.minike.top/Article/details/533616.shtml)
-- 2026-06-29 23:15 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/6202923785.shtml)
-- 2026-06-29 23:11 - [乌克兰发广告全球征兵](http://www.share.minike.top/Article/details/90366.shtml)
-- 2026-06-29 23:00 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/22398675449.shtml)
-- 2026-06-29 23:01 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/039342592.shtml)
-- 2026-06-29 23:15 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/85117294439.shtml)
-- 2026-06-29 23:28 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/442183.shtml)
+- 2026-06-29 23:32 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/57869992.shtml)
+- 2026-06-29 23:28 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/0703374584.shtml)
+- 2026-06-29 23:23 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/89097521.shtml)
+- 2026-06-29 23:08 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/416084.shtml)
+- 2026-06-29 23:26 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/253024721.shtml)
+- 2026-06-29 23:32 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/9019689.shtml)
+- 2026-06-29 23:16 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/772734338504.shtml)
+- 2026-06-29 23:29 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/633566548.shtml)
+- 2026-06-29 23:35 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/089363421.shtml)
+- 2026-06-29 23:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/16106661523.shtml)
+- 2026-06-29 23:27 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/59572.shtml)
+- 2026-06-29 23:09 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/7692099585.shtml)
+- 2026-06-29 23:25 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/0344689.shtml)
+- 2026-06-29 23:34 - [炽夏](http://www.blog.kurohicncr.top/Article/details/3053327712.shtml)
+- 2026-06-29 23:31 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/76734650.shtml)

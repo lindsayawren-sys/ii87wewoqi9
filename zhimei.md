@@ -1,58 +1,55 @@
-# 对话：资本赋能・智创未来：机器人产业投融资热点与商业化破局
+# 谌贻琴在山东调研时强调 坚定不移实施就业优先战略 多措并举做好稳就业促就业工作
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日-9日在北京举行。凯联资本硬科技行业合伙人姚宁波，启银资本董事长、启智具身智能科技创始人宋炎，融创投资执行合伙人、天津大学博士生导李翔宇出席并围绕“资本赋能・智创未来：机器人产业投融资热点与商业化破局”展开讨论，鼎旭投资管理合伙人，中关村高企协会副会长，创投委专职副主任郭海涛担任主持
+新华社济南5月28日电 国务委员谌贻琴近日在山东调研就业工作，强调要深入学习贯彻习近平总书记重要指示精神，认真落实党中央、国务院决策部署，牢固树立和践行正确政绩观，坚定不移实施就业优先战略，强化服务支撑，以更大力度、更实举措稳就业、促就业。5月26日至28日，谌贻琴先后来到济南市、淄博市，深入企业、社区、就业服务机构、大学生创新创业孵化基地和招聘活动现场等，调研重点行业用工、基
 
 ## 正文
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日-9日在北京举行。
+新华社济南5月28日电 国务委员谌贻琴近日在山东调研就业工作，强调要深入学习贯彻习近平总书记重要指示精神，认真落实党中央、国务院决策部署，牢固树立和践行正确政绩观，坚定不移实施就业优先战略，强化服务支撑，以更大力度、更实举措稳就业、促就业。
 
-凯联资本硬科技行业合伙人姚宁波，启银资本董事长、启智具身智能科技创始人宋炎，融创投资执行合伙人、天津大学博士生导李翔宇出席并围绕“资本赋能・智创未来：机器人产业投融资热点与商业化破局”展开讨论，鼎旭投资管理合伙人，中关村高企协会副会长，创投委专职副主任郭海涛担任主持。
+5月26日至28日，谌贻琴先后来到济南市、淄博市，深入企业、社区、就业服务机构、大学生创新创业孵化基地和招聘活动现场等，调研重点行业用工、基层就业创业服务、重点群体就业帮扶、职业技能提升培训等情况。
 
-以下为对话实录： 主持人/郭海涛：各位来宾，大家下午好！
+谌贻琴指出，就业是最大的民生。
 
-我是鼎旭投资的管理合伙人，同时担任中关村高新技术企业协会副会长及中关村创投协会创投委副主任。
+当前就业形势总体稳定，要持续强化就业优先导向，加快推进稳岗扩容提质行动，有效激发创业带动就业效能，不断推动高质量充分就业取得新进展。
 
-本次展会，我们在2062展位设立了展台，携手中关村众多优秀的人工智能企业共同参展。
+要织密就业服务网络，加强地方经验总结推广，推动“15分钟就业服务圈”与“一刻钟便民生活圈”融合，支持社区“微就业”、“微创业”，加强数智就业服务，帮助劳动者在家门口好就业、就好业。
 
-非常荣幸能够主持本场《资本赋能・智创未来：机器人产业投融资热点与商业化破局》圆桌会议。
+要做好高校毕业生等青年群体就业政策支持和服务保障，加强农民工、就业困难人员精准帮扶，不断增进民生福祉。
 
-刚才通过嘉宾的分享，我们看到从合十思维赵普做的仿脑机器人，再到非夕科技胡总，包括思灵的陈尉总做的力控的机器人，在百花齐放的过程中，我们今天开始这一次圆桌的交流。
-
-有请各位嘉宾先介绍一下自身机构的情况，包括谈一谈对当前机器人产业投融资现状的看法，大家做一个简要的三分钟的解读，先从姚宁波总开始。
+要深化大规模职业技能提升培训，强化产教评、订单式、项目制培训模式，进一步提升培训的针对性和有效性，支持劳动者提技增收，更好服务经济社会发展大局。
 
 ## 相关推荐
 
-- 2026-06-29 23:27 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 23:13 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 23:20 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 23:04 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 23:08 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 23:13 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 23:29 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 23:09 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 23:28 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 23:13 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 23:09 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 23:09 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 23:27 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 23:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 23:17 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 23:23 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 23:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 23:17 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 23:09 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 23:06 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 23:33 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 23:26 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 23:22 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:24 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/656323810.shtml)
-- 2026-06-29 23:00 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/7896513322.shtml)
-- 2026-06-29 23:12 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/4972832825.shtml)
-- 2026-06-29 23:28 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/49023905373.shtml)
-- 2026-06-29 23:22 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/8561795864.shtml)
-- 2026-06-29 23:09 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/0122547.shtml)
-- 2026-06-29 23:13 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/588346.shtml)
-- 2026-06-29 23:12 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/07196327521.shtml)
-- 2026-06-29 23:23 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/405807573.shtml)
-- 2026-06-29 23:23 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/76382.shtml)
-- 2026-06-29 23:07 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/584579517954.shtml)
-- 2026-06-29 23:09 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/755427994685.shtml)
-- 2026-06-29 23:22 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/9758933072.shtml)
-- 2026-06-29 23:08 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/32983690139.shtml)
-- 2026-06-29 23:01 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/187198294140.shtml)
+- 2026-06-29 23:20 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/757542.shtml)
+- 2026-06-29 23:06 - [乔家的儿女](http://www.share.minike.top/Article/details/57998679276.shtml)
+- 2026-06-29 23:07 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/619296.shtml)
+- 2026-06-29 23:34 - [速度与激情9](http://www.share.minike.top/Article/details/97236.shtml)
+- 2026-06-29 23:16 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/97679.shtml)
+- 2026-06-29 23:25 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/196934594.shtml)
+- 2026-06-29 23:26 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/07851735.shtml)
+- 2026-06-29 23:23 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/537778760.shtml)
+- 2026-06-29 23:10 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/1770984624.shtml)
+- 2026-06-29 23:13 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/2776442929.shtml)
+- 2026-06-29 23:08 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/62765312374.shtml)
+- 2026-06-29 23:35 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/737142.shtml)
+- 2026-06-29 23:13 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/4648759150.shtml)
+- 2026-06-29 23:35 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/7820513639.shtml)
+- 2026-06-29 23:30 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/910742504.shtml)

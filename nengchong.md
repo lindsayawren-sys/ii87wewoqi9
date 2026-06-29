@@ -1,58 +1,57 @@
-# 中国官方：截至2025年底全国注册护士总量超606万
+# 四大证券报头版头条内容精华摘要_2026年5月28日_财经新闻
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-中新社北京5月11日电 中国国家卫生健康委员会网站11日公布了全国护理工作发展情况。据其介绍，截至2025年底，全国注册护士总量达到606.2万，较2020年增加约135万。 国家卫健委表示，护理工作是卫生健康事业的重要组成部分，护士队伍是卫生健康战线上一支重要力量，在维护人民健康、推进健康中国建设中发挥着重要作用。 关于中国护理工作发展取得的成效，国家卫健委表示，护士队伍不断
+专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月28日（星期四），今日报刊头条主要内容精华如下： 中国证券报 前4个月规上工业企业利润同比增长18.2% 国家统计局5月27日发布数据显示，1—4月份，全国规模以上工业企业利润同比增长18.2%。其中，4月份，全国规模以上工业企业利润增长24.7%。 李强在浙江舟山宁波调研时强调
 
 ## 正文
 
-中新社北京5月11日电 中国国家卫生健康委员会网站11日公布了全国护理工作发展情况。
+专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据其介绍，截至2025年底，全国注册护士总量达到606.2万，较2020年增加约135万。
+5月28日（星期四），今日报刊头条主要内容精华如下： 中国证券报 前4个月规上工业企业利润同比增长18.2% 国家统计局5月27日发布数据显示，1—4月份，全国规模以上工业企业利润同比增长18.2%。
 
-国家卫健委表示，护理工作是卫生健康事业的重要组成部分，护士队伍是卫生健康战线上一支重要力量，在维护人民健康、推进健康中国建设中发挥着重要作用。
+其中，4月份，全国规模以上工业企业利润增长24.7%。
 
-关于中国护理工作发展取得的成效，国家卫健委表示，护士队伍不断发展壮大，截至2025年底，全国注册护士总量达到606.2万，较2020年增加约135万，增幅约29%，每千人口注册护士数从2020年的3.34人提升至2025年的4.32人。
+李强在浙江舟山宁波调研时强调 加快建设大宗商品资源配置枢纽 为统筹发展和安全提供可靠保障 中共中央政治局常委、国务院总理李强5月25日至27日在浙江省舟山市、宁波市调研。
 
-护士队伍专业素质能力不断提升，具有大专以上学历护士占比超过80%，康复、老年、儿科、重症监护、传染病等紧缺薄弱护理专业护士参加培训比例超过90%。
+他强调，要深入贯彻落实习近平总书记关于构建大国储备体系的重要论述和指示精神，坚持政府主导、社会共建、多元互补，做好大宗商品和重要物资储备调节，强化战略保障、宏观调控和应对急需功能，持续提升产业链供应链韧性，加快建设大宗商品资源配置枢纽，为统筹发展和安全提供可靠保障。
 
-护理服务持续优化，实施改善护理服务行动计划，全国二级及以上公立医院中，约94%开展优质护理服务，二级及以上医院提供延续性护理服务的病区占比超85%，解决患者出院后的常规护理、专病护理问题。
+DRAM龙头过会 多元资本合力托举国产存储 5月27日，国产DRAM龙头企业长鑫科技成功过会，成为科创板开板以来极具分量的IPO项目之一。
 
-一些医疗机构积极探索开展免陪照护服务试点，解决“一人住院、全家受累”的难题。
+作为中国第一大DRAM厂商，长鑫科技乘着AI（人工智能）的东风第一季度业绩一举扭亏，并给出了上半年归母净利润超500亿元的预期。
 
-护理内涵领域丰富拓展，加快落实老年护理发展举措，实施老年护理提升行动，扩大“互联网+护理服务”覆盖面、推动发展老年居家护理服务。
+业绩反转背后，是市场对国产DRAM突围的翘首以盼，也是国资、产业资本与金融机构联合发力的结果。
 
 ## 相关推荐
 
-- 2026-06-29 23:18 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 23:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 23:14 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 23:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 23:00 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 23:22 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 23:13 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 23:16 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 23:19 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 23:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 23:01 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 23:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 23:34 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 23:15 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 23:22 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 23:18 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 23:08 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 23:20 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 23:08 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 23:35 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 23:16 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 23:26 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 23:24 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:05 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/885456871.shtml)
-- 2026-06-29 23:20 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/6067226198.shtml)
-- 2026-06-29 23:23 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/5391002.shtml)
-- 2026-06-29 23:23 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/62690376.shtml)
-- 2026-06-29 23:03 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/24615.shtml)
-- 2026-06-29 23:26 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/1580389.shtml)
-- 2026-06-29 23:11 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/5671425320.shtml)
-- 2026-06-29 23:15 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/1123393239.shtml)
-- 2026-06-29 23:12 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/536880791197.shtml)
-- 2026-06-29 23:11 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/769274107414.shtml)
-- 2026-06-29 23:16 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/5525677.shtml)
-- 2026-06-29 23:22 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/7203582311.shtml)
-- 2026-06-29 23:16 - [巴西10号球衣是天才传承史](http://www.blog.minike.top/Article/details/938570015.shtml)
-- 2026-06-29 23:29 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/717922.shtml)
-- 2026-06-29 23:15 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/556934.shtml)
+- 2026-06-29 23:16 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/422525930624.shtml)
+- 2026-06-29 23:19 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/06654.shtml)
+- 2026-06-29 23:27 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/1995358.shtml)
+- 2026-06-29 23:20 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/356176016.shtml)
+- 2026-06-29 23:32 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/553543007598.shtml)
+- 2026-06-29 23:26 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/984762.shtml)
+- 2026-06-29 23:20 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/36983.shtml)
+- 2026-06-29 23:35 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/85042836.shtml)
+- 2026-06-29 23:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/9230343.shtml)
+- 2026-06-29 23:30 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/178353.shtml)
+- 2026-06-29 23:10 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/887880214563.shtml)
+- 2026-06-29 23:08 - [毒液2](http://www.blog.kurohicncr.top/Article/details/8308497428.shtml)
+- 2026-06-29 23:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/46543.shtml)
+- 2026-06-29 23:19 - [曼城官宣马雷斯卡出任主教练](https://www.share.minike.top/Article/details/55623769.shtml)
+- 2026-06-29 23:25 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/83076578.shtml)

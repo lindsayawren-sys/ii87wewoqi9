@@ -1,56 +1,60 @@
-# 违背初心使命：财通基金投资运作违规被罚，绩差产品仍在收取高额收费
+# 跨境金融严监管从券商到银行，港险提前调整求适应
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-来源：面包财经 编者按：公募基金行业在监管“长牙带刺”、推动高质量发展的大背景下，进入了强监管、严问责的时期。去年至今，共有超过25家公募基金管理人被监管部门处罚。 面包财经基于信披数据，分批透视主要基金公司相关事宜。本篇案例为财通基金。 作为国资背景的公募基金公司，财通基金合规失守、部分产品业绩长期跑输基准，是否已然偏离了行业初心与国资使命？ 根据近期财报披露，2025年1月
+来源：中保新知 短短几天内，跨境金融监管重拳出击，从券商到银行。 5月28日，中保新知获得的一份香港本地银行有关《中国内地投资者开立投资账户之说明书》显示，需要对资金来源、文件真确性及过往记录等进行承诺，其中资金来源一项显示，“用于支持本人于XX银行香港投资账户之投资活动及相关结算之所有资金，均为来自中国内地以外的合法来源”。 就在一周前的5月22日，证监会等八部门联合印发《综
 
 ## 正文
 
-来源：面包财经 编者按：公募基金行业在监管“长牙带刺”、推动高质量发展的大背景下，进入了强监管、严问责的时期。
+来源：中保新知 短短几天内，跨境金融监管重拳出击，从券商到银行。
 
-去年至今，共有超过25家公募基金管理人被监管部门处罚。
+5月28日，中保新知获得的一份香港本地银行有关《中国内地投资者开立投资账户之说明书》显示，需要对资金来源、文件真确性及过往记录等进行承诺，其中资金来源一项显示，“用于支持本人于XX银行香港投资账户之投资活动及相关结算之所有资金，均为来自中国内地以外的合法来源”。
 
-面包财经基于信披数据，分批透视主要基金公司相关事宜。
+就在一周前的5月22日，证监会等八部门联合印发《综合整治非法跨境证券期货基金经营活动实施方案》，明确经过2年集中整治，全面取缔境外证券期货基金经营机构非法跨境经营活动，坚决查处严重违法机构，形成严打高压态势。
 
-本篇案例为财通基金。
+围绕非法展业全链条开展整治，分阶段逐步压降非法存量境内投资者账户及资产规模，实现“坚决取缔非法、稳妥清理存量”的整治目标。
 
-作为国资背景的公募基金公司，财通基金合规失守、部分产品业绩长期跑输基准，是否已然偏离了行业初心与国资使命？
+几乎同一时间，香港金管局在5月22日发布相关文件，要求银行倒查内地个人投资者在港投资账户，新开账户将实施更严格的核查。
 
-根据近期财报披露，2025年1月，财通基金因投资运作问题被中国证监会上海监管局采取责令改正的行政监管措施。
+市场纷纷猜测：跨境保险会是下一个更严监管的领域吗？
 
-除合规管理存在薄弱环节外，公司旗下部分产品长期业绩表现不佳。
+跨境金融监管出重拳 《综合整治非法跨境证券期货基金经营活动实施方案》发布的同时，证监会还对3家机构进行了处罚。
 
-根据《基金管理公司绩效考核管理指引》中关于薪酬与业绩挂钩的硬性规定，财通优势行业轮动A等产品已触发降薪红线。
+证监会宣布，Tiger Brokers（NZ）Limited、富途证券国际（香港）有限公司、长桥证券（香港）有限公司的非法跨境展业行为，违反了我国证券基金期货法律法规，破坏了市场秩序，必须坚决予以打击。
 
 ## 相关推荐
 
-- 2026-06-29 23:25 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 23:20 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 23:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 23:15 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 23:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 23:20 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 23:13 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 23:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 23:23 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 23:10 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 23:32 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 23:13 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 23:08 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 23:18 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 23:20 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 23:06 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 23:15 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 23:20 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 23:26 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 23:35 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 23:26 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 23:09 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 23:17 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 23:24 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:14 - [青春环游记第三季](https://www.share.minike.top/Article/details/74230.shtml)
-- 2026-06-29 23:03 - [一生一世](https://www.share.minike.top/Article/details/1541606.shtml)
-- 2026-06-29 23:04 - [房价什么时候能涨](https://www.share.minike.top/Article/details/1281462.shtml)
-- 2026-06-29 23:14 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.minike.top/Article/details/762040.shtml)
-- 2026-06-29 23:17 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/315112.shtml)
-- 2026-06-29 23:19 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/4160271536.shtml)
-- 2026-06-29 23:11 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/755115.shtml)
-- 2026-06-29 23:13 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/75538594136.shtml)
-- 2026-06-29 23:20 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/15370838.shtml)
-- 2026-06-29 23:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/6665651332.shtml)
-- 2026-06-29 23:19 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/94791035.shtml)
-- 2026-06-29 23:16 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/38528.shtml)
-- 2026-06-29 23:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/906191788.shtml)
-- 2026-06-29 23:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/14704983.shtml)
-- 2026-06-29 23:16 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.minike.top/Article/details/23087.shtml)
+- 2026-06-29 23:08 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/78673.shtml)
+- 2026-06-29 23:23 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/528566779819.shtml)
+- 2026-06-29 23:27 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/39550574162.shtml)
+- 2026-06-29 23:31 - [金牌调解](http://www.share.minike.top/Article/details/104779967.shtml)
+- 2026-06-29 23:32 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/416668841.shtml)
+- 2026-06-29 23:29 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/66305135275.shtml)
+- 2026-06-29 23:17 - [一见倾心](https://www.blog.minike.top/Article/details/63453719408.shtml)
+- 2026-06-29 23:20 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/61966.shtml)
+- 2026-06-29 23:12 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/18728.shtml)
+- 2026-06-29 23:27 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/09500.shtml)
+- 2026-06-29 23:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/481332941099.shtml)
+- 2026-06-29 23:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/2017130.shtml)
+- 2026-06-29 23:15 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.kurohicncr.top/Article/details/932625.shtml)
+- 2026-06-29 23:30 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/28149.shtml)
+- 2026-06-29 23:07 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/5148659778.shtml)

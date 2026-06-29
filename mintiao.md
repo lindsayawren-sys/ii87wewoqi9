@@ -1,60 +1,59 @@
-# 网购常规扣款变“贷款” 支付捆绑乱象如何整治？
+# 2026年初市场波动冲击养老储蓄，大批储户资产跌出百万美元行列
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-你是否有这样的经历？本来是常规网购，在一些App的支付环节看到有优惠，就点选付了钱，结果过了一个月才发现自己开通了某某月付的小额贷款。记者在一些互联网投诉平台查询发现，这种一不小心就“被贷款”的情况非常普遍。“扣款支付”变“借贷消费”，平台是如何套路用户的？看起来便利的背后，它们又打的是什么算盘？江苏的徐先生介绍，此前他在汽水音乐App上看到“一分钱开通会员”的广告，出于好奇花
+2026 年开年，养老储蓄群体遭遇不小冲击。 富达投资最新报告显示，截至 3 月末，美国 401 （k） 退休账户平均余额较年初下滑 4%，降至 14.1 万美元；个人退休账户（IRA）平均余额同样下跌 4%，为 13.14 万美元。随着账户资产缩水，账户资产达到百万美元及以上的养老投资者人数也随之减少。 账户余额回落，反映出美国股市一季度走势疲软：标普 500 指数累计下跌
 
 ## 正文
 
-你是否有这样的经历？
+2026 年开年，养老储蓄群体遭遇不小冲击。
 
-本来是常规网购，在一些App的支付环节看到有优惠，就点选付了钱，结果过了一个月才发现自己开通了某某月付的小额贷款。
+富达投资最新报告显示，截至 3 月末，美国 401 （k） 退休账户平均余额较年初下滑 4%，降至 14.1 万美元；个人退休账户（IRA）平均余额同样下跌 4%，为 13.14 万美元。
 
-记者在一些互联网投诉平台查询发现，这种一不小心就“被贷款”的情况非常普遍。
+随着账户资产缩水，账户资产达到百万美元及以上的养老投资者人数也随之减少。
 
-“扣款支付”变“借贷消费”，平台是如何套路用户的？
+账户余额回落，反映出美国股市一季度走势疲软：标普 500 指数累计下跌 4.3%，纳斯达克综合指数跌幅达 7%，罗素 2000 小盘股指数基本持平。
 
-看起来便利的背后，它们又打的是什么算盘？
+不过纵向对比来看，401 （k） 账户平均余额较去年同期仍上涨 11%；403 （b） 账户平均余额同比增长 13%；个人退休账户平均余额较去年一季度攀升 7%。
 
-江苏的徐先生介绍，此前他在汽水音乐App上看到“一分钱开通会员”的广告，出于好奇花一分钱注册了会员，后来才发现他开通了抖音月付，每个月都要扣8元钱。
+富达投资副总裁柯尔斯滕・亨特・彼得森在接受雅虎财经采访时表示：“尽管本季度市场出现波动，但选择提高储蓄比例的参与者有所增加，调整资产配置的人数则有所减少。
 
-记者搜索黑猫投诉平台发现，抖音、美团、京东白条、花呗等几大支付平台都有大量月付相关投诉，很多人都像徐先生一样反映自己被低价产品吸引，稀里糊涂开通了借贷服务。
+这两点都有助于为退休生活筑牢财务根基。
 
-贵州的吴先生反映，他在今年5月7日收到京东白条提醒，自己去年开通的PLUS会员已经使用完毕，并扣费67.44元，但他记不起来去年5月是怎么开通的会员，更不知道怎么就借了白条。
+” 储蓄比例创下历史新高 近五分之一的账户参与者上调了储蓄比例，这一现象很大程度上得益于企业养老金计划自带的年度自动提存机制。
 
 ## 相关推荐
 
-- 2026-06-29 23:08 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 23:28 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 23:25 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 23:14 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 23:29 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 23:28 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 23:17 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 23:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 23:07 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 23:18 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 23:06 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 23:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 23:04 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 23:18 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 23:32 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 23:13 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 23:07 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 23:24 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 23:08 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 23:24 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 23:25 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 23:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 23:18 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 23:12 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 23:25 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 23:22 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 23:24 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/3126047.shtml)
-- 2026-06-29 23:25 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/04771819172.shtml)
-- 2026-06-29 23:06 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.minike.top/Article/details/41985020.shtml)
-- 2026-06-29 23:10 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/284929642.shtml)
-- 2026-06-29 23:07 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/32632036344.shtml)
-- 2026-06-29 23:08 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/957112978548.shtml)
-- 2026-06-29 23:11 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/78570382.shtml)
-- 2026-06-29 23:07 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/444561.shtml)
-- 2026-06-29 23:02 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/49081059.shtml)
-- 2026-06-29 23:25 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/129364322110.shtml)
-- 2026-06-29 23:20 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/19091521.shtml)
-- 2026-06-29 23:01 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/17955232.shtml)
-- 2026-06-29 23:22 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/814117167.shtml)
-- 2026-06-29 23:05 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/1477769.shtml)
-- 2026-06-29 23:28 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/1412256981.shtml)
+- 2026-06-29 23:23 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/7401272.shtml)
+- 2026-06-29 23:19 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.kurohicncr.top/Article/details/71116469328.shtml)
+- 2026-06-29 23:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/333651.shtml)
+- 2026-06-29 23:20 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/911135245614.shtml)
+- 2026-06-29 23:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/98297.shtml)
+- 2026-06-29 23:08 - [起风了](http://www.share.kurohicncr.top/Article/details/678445567.shtml)
+- 2026-06-29 23:23 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/488338657061.shtml)
+- 2026-06-29 23:20 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/85573877272.shtml)
+- 2026-06-29 23:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/64675403794.shtml)
+- 2026-06-29 23:08 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/01664.shtml)
+- 2026-06-29 23:33 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/44445503.shtml)
+- 2026-06-29 23:32 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/83129866965.shtml)
+- 2026-06-29 23:14 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/429883560.shtml)
+- 2026-06-29 23:13 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/1548029076.shtml)
+- 2026-06-29 23:14 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/1964155.shtml)

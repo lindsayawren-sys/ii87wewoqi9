@@ -1,57 +1,61 @@
-# 巴基斯坦西北部发生自杀式爆炸袭击致3名警察死亡
+# 尾盘：原油价格走低 道指上涨240点
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-中新社北京5月10日电 伊斯兰堡消息：巴基斯坦西北部开伯尔-普什图省本努地区一处警方检查站当地时间9日晚遭遇自杀式爆炸袭击。警方称，袭击造成至少3名警察死亡。 美联社援引当地警方官员发言报道称，据信袭击还造成一些警察受伤并被困在瓦砾下。 有消息人士向巴基斯坦《黎明报》透露，事发时，袭击者驾驶一辆装满爆炸物的车辆撞向检查站，随后传出多次爆炸声与激烈枪声。爆炸导致检查站屋顶坍塌，也
+北京时间5月28日凌晨，美股周三尾盘继续上扬。道指上涨240点。油价因市场对美伊停火抱有希望而下跌。 道指涨241.11点，涨幅为0.48%，报50702.79点；纳指涨23.74点，涨幅为0.09%，报26679.92点；标普500指数涨7.35点，涨幅为0.10%，报7526.47点。 油价的下跌为市场提供了一定支撑。据报道，伊朗国家电视台称该国承诺在一个月内将霍尔木兹海峡
 
 ## 正文
 
-中新社北京5月10日电 伊斯兰堡消息：巴基斯坦西北部开伯尔-普什图省本努地区一处警方检查站当地时间9日晚遭遇自杀式爆炸袭击。
+北京时间5月28日凌晨，美股周三尾盘继续上扬。
 
-警方称，袭击造成至少3名警察死亡。
+道指上涨240点。
 
-美联社援引当地警方官员发言报道称，据信袭击还造成一些警察受伤并被困在瓦砾下。
+油价因市场对美伊停火抱有希望而下跌。
 
-有消息人士向巴基斯坦《黎明报》透露，事发时，袭击者驾驶一辆装满爆炸物的车辆撞向检查站，随后传出多次爆炸声与激烈枪声。
+道指涨241.11点，涨幅为0.48%，报50702.79点；纳指涨23.74点，涨幅为0.09%，报26679.92点；标普500指数涨7.35点，涨幅为0.10%，报7526.47点。
 
-爆炸导致检查站屋顶坍塌，也对检查站附近的平民区造成严重破坏。
+油价的下跌为市场提供了一定支撑。
 
-据报道，本次事件同时造成平民受伤。
+据报道，伊朗国家电视台称该国承诺在一个月内将霍尔木兹海峡的商业通航恢复至战前水平后，美国原油期货下跌逾3%，至每桶91美元下方。
 
-警方消息人士告诉路透社，袭击者还在此次袭击中使用了无人机。
+然而，白宫否认了伊朗官方媒体的这一报道，称其为“完全捏造”。
 
-据《黎明报》报道，在本次袭击事件发生前一日，一架四旋翼无人机在本努地区坠毁后发生爆炸，造成包括妇女在内8人受伤。
+周二飙升19%、市值首次突破1万亿美元的美光科技，周三上涨不到1%。
 
 ## 相关推荐
 
-- 2026-06-29 23:13 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 23:29 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 23:03 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 23:29 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 23:16 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 23:16 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 23:06 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 23:02 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 23:14 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 23:03 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 23:14 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 23:32 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 23:10 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 23:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 23:17 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 23:13 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 23:22 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 23:15 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 23:09 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 23:23 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 23:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 23:28 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 23:13 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 23:13 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 23:29 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 23:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:14 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/9042033.shtml)
-- 2026-06-29 23:24 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/43855914.shtml)
-- 2026-06-29 23:01 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/06595893.shtml)
-- 2026-06-29 23:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/33477.shtml)
-- 2026-06-29 23:19 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/3294910.shtml)
-- 2026-06-29 23:04 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/8706731394.shtml)
-- 2026-06-29 23:29 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/8638194.shtml)
-- 2026-06-29 23:29 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/380931439141.shtml)
-- 2026-06-29 23:16 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/08582213209.shtml)
-- 2026-06-29 23:09 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/16047.shtml)
-- 2026-06-29 23:26 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/83358181.shtml)
-- 2026-06-29 23:04 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/86573.shtml)
-- 2026-06-29 23:06 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.kurohicncr.top/Article/details/130648028086.shtml)
-- 2026-06-29 23:28 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/91764.shtml)
-- 2026-06-29 23:04 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/2553307393.shtml)
+- 2026-06-29 23:15 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/06909.shtml)
+- 2026-06-29 23:09 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/658386939237.shtml)
+- 2026-06-29 23:35 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/2706004095.shtml)
+- 2026-06-29 23:07 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/6420478896.shtml)
+- 2026-06-29 23:32 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/84130.shtml)
+- 2026-06-29 23:13 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/7370599.shtml)
+- 2026-06-29 23:09 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/067992062.shtml)
+- 2026-06-29 23:30 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/453732717110.shtml)
+- 2026-06-29 23:16 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/54174128.shtml)
+- 2026-06-29 23:19 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/77839779835.shtml)
+- 2026-06-29 23:07 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/346508.shtml)
+- 2026-06-29 23:29 - [起风了](http://www.blog.minike.top/Article/details/482832.shtml)
+- 2026-06-29 23:22 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/452622.shtml)
+- 2026-06-29 23:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/4326679307.shtml)
+- 2026-06-29 23:22 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/891942213.shtml)

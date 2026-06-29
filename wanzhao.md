@@ -1,56 +1,45 @@
-# 工商银行全新推出“工盈研选”品牌 博时多只优质产品入选
+# 2026年01月-04月广西进出口商品贸易方式总值表（人民币值、美元值）
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。 “工盈研选”从客户能理解、基层易营销的角度，定制“收益、回撤”等量化标准，提出权益仓位建议，与合作机构共同建设维护系列产品池。首期推出“安盈”“智盈”两个产品系列，精准
+2026年01月-04月广西进出口商品贸易方式总值表(人民币值、美元值).xls
 
 ## 正文
 
-近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。
-
-“工盈研选”从客户能理解、基层易营销的角度，定制“收益、回撤”等量化标准，提出权益仓位建议，与合作机构共同建设维护系列产品池。
-
-首期推出“安盈”“智盈”两个产品系列，精准匹配不同客户投资需求。
-
-其中“安盈”系列聚焦固收、固收+产品，通过严控回撤风险，力争助力客户资产稳健增长。
-
-智盈系列则精选权益指数及指数增强产品，力争为追求收益弹性的客户提供进攻性工具。
-
-经过层层精选，博时基金旗下博时恒泰债券基金成功入选“安盈”系列，博时恒生高股息ETF联接基金、博时恒生科技ETF联接基金双双入选“智盈”系列。
-
-基金2026年一季报显示，过去一年（2025/4/1-2026/3/31），博时恒泰债券基金A类、C类收益率分别为6.09%、5.72%，同期业绩比较基准收益率为0.95%。
-
-基金2026年一季报显示，过去一年（2025/4/1-2026/3/31），博时恒生高股息ETF联接A类、C类收益率均为23.14%，同期业绩比较基准收益率为20.00%。
+2026年01月-04月广西进出口商品贸易方式总值表(人民币值、美元值).xls
 
 ## 相关推荐
 
-- 2026-06-29 23:00 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 23:11 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 23:16 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 23:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 23:17 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 23:29 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 23:29 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 23:19 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 23:12 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 23:15 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 23:24 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 23:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 23:25 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 23:30 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 23:33 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 23:10 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 23:35 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 23:07 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 23:32 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 23:07 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 23:16 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 23:25 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 23:28 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:07 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/1062138180.shtml)
-- 2026-06-29 23:27 - [女心理师](http://www.share.kurohicncr.top/Article/details/65351920.shtml)
-- 2026-06-29 23:01 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/5447168605.shtml)
-- 2026-06-29 23:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/195496.shtml)
-- 2026-06-29 23:23 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/2588693640.shtml)
-- 2026-06-29 23:21 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/2949928.shtml)
-- 2026-06-29 23:25 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/6731630402.shtml)
-- 2026-06-29 23:07 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/209036437194.shtml)
-- 2026-06-29 23:25 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/96805463646.shtml)
-- 2026-06-29 23:25 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/08071.shtml)
-- 2026-06-29 23:03 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/55722779835.shtml)
-- 2026-06-29 23:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/96029853825.shtml)
-- 2026-06-29 23:03 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/14686871.shtml)
-- 2026-06-29 23:18 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/263120.shtml)
-- 2026-06-29 23:14 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/567240864.shtml)
+- 2026-06-29 23:24 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/937301673.shtml)
+- 2026-06-29 23:27 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/81407.shtml)
+- 2026-06-29 23:25 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/1312586277.shtml)
+- 2026-06-29 23:13 - [男子称在京东买到“同仁堂”假药](http://www.blog.minike.top/Article/details/4550098.shtml)
+- 2026-06-29 23:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/618144095.shtml)
+- 2026-06-29 23:06 - [炽夏](https://www.blog.minike.top/Article/details/863742631814.shtml)
+- 2026-06-29 23:16 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/2904822.shtml)
+- 2026-06-29 23:33 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/633402884.shtml)
+- 2026-06-29 23:14 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/300784.shtml)
+- 2026-06-29 23:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/77907828550.shtml)
+- 2026-06-29 23:24 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/30794.shtml)
+- 2026-06-29 23:08 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/9468286.shtml)
+- 2026-06-29 23:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/22245948348.shtml)
+- 2026-06-29 23:19 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/25603304.shtml)
+- 2026-06-29 23:26 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/066620644.shtml)

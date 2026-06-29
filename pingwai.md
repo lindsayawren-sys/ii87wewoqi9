@@ -1,48 +1,47 @@
-# 宝宝意外从桌上跌落 71岁姥姥反应迅速飞身接住 稳稳垫在宝宝身下 孩子妈妈：妈妈爱我 所以也爱我的孩子
+# 江苏宁沪高速公路遭STATE STREET CORPORATION减持201.6万股 每股作价约10.55港元
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月10日 20:49 来源：中国新闻网 宝宝意外从桌上跌落，71岁姥姥反应迅速飞身接住，稳稳垫在宝宝身下。孩子妈妈：妈妈爱我，所以也爱我的孩子。 责任编辑：【魏聪聪】
+香港联交所最新资料显示，5月21日，STATE STREET CORPORATION减持江苏宁沪高速公路（00177）201.6万股，每股作价10.5463港元，总金额约为2126.13万港元。减持后最新持股数目约为5923.07万股，最新持股比例为4.85%。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年05月10日 20:49 来源：中国新闻网 宝宝意外从桌上跌落，71岁姥姥反应迅速飞身接住，稳稳垫在宝宝身下。
+香港联交所最新资料显示，5月21日，STATE STREET CORPORATION减持江苏宁沪高速公路（00177）201.6万股，每股作价10.5463港元，总金额约为2126.13万港元。
 
-孩子妈妈：妈妈爱我，所以也爱我的孩子。
+减持后最新持股数目约为5923.07万股，最新持股比例为4.85%。
 
-责任编辑：【魏聪聪】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:08 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 23:07 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 23:29 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 23:03 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 23:07 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 23:29 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 23:22 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 23:09 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 23:13 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 23:27 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 23:00 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 23:06 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 23:30 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 23:29 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 23:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 23:06 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 23:13 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 23:35 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 23:29 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 23:34 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 23:33 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 23:22 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 23:34 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/0399757735.shtml)
-- 2026-06-29 23:15 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/2262785462.shtml)
-- 2026-06-29 23:18 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/01082123854.shtml)
-- 2026-06-29 23:25 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/429163.shtml)
-- 2026-06-29 23:12 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/69601833.shtml)
-- 2026-06-29 23:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/2069471900.shtml)
-- 2026-06-29 23:14 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/8832046.shtml)
-- 2026-06-29 23:11 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/39494.shtml)
-- 2026-06-29 23:09 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/628215093.shtml)
-- 2026-06-29 23:19 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/85281031989.shtml)
-- 2026-06-29 23:00 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/6202898.shtml)
-- 2026-06-29 23:05 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/19221263313.shtml)
-- 2026-06-29 23:08 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/171884005.shtml)
-- 2026-06-29 23:28 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/018610763043.shtml)
-- 2026-06-29 23:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/36698818138.shtml)
+- 2026-06-29 23:25 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/62840313690.shtml)
+- 2026-06-29 23:22 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/482854681132.shtml)
+- 2026-06-29 23:30 - [记者：预计热火将追求小哈达威和康利](https://www.share.minike.top/Article/details/79373.shtml)
+- 2026-06-29 23:35 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/755937.shtml)
+- 2026-06-29 23:15 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/151573896853.shtml)
+- 2026-06-29 23:20 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/26144.shtml)
+- 2026-06-29 23:31 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/704548082.shtml)
+- 2026-06-29 23:07 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/242596121.shtml)
+- 2026-06-29 23:34 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/845260.shtml)
+- 2026-06-29 23:19 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/39539.shtml)
+- 2026-06-29 23:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/32583.shtml)
+- 2026-06-29 23:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/790901644.shtml)
+- 2026-06-29 23:25 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/685300149364.shtml)
+- 2026-06-29 23:16 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/80383293588.shtml)
+- 2026-06-29 23:27 - [爱很美味](http://www.blog.minike.top/Article/details/859161383.shtml)

@@ -1,57 +1,55 @@
-# 广西南宁水果市场榴莲热销 民众“开盲盒”体验消费热潮
+# 东岳集团午后涨超13% 本年内股价累计涨幅已近60%
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-国乒“新答卷”：立于高处，从无安逸可言酒店“逢假就涨” 多重约束缘何管不住“任性定价”？全球气候变暖导致飞机颠簸变多？专家解疑情绪易怒、爱走神是前额叶受损吗？如何科学改善？专家解读一纸侨批跨越山海，《给阿嬷的情书》如何感动全网？曾经的“高端王者”，在中国为啥打不动了？母亲节催热“带妈游”，两代人怎么玩更融洽？“中式生活”何以出海：华裔朱溪瑞的“中国人守则”英国政坛地震，斯塔默“
+东岳集团（00189）盘中涨超19%，高见18.10港元，本年内股价累计涨幅已近60%。截至发稿，股价上涨13.65%，现报17.23港元，成交额17.70亿港元。 开源证券指出，欧美此前过于严苛和激进的HFCs削减计划、HFO替代品推进不及预期、国际货源以及本土库存紧张，叠加旺季需求到来，引发了本次海外制冷剂价格大幅调涨，并促使其放宽HFCs的合规期限，事实上延长了HFCs的
 
 ## 正文
 
-国乒“新答卷”：立于高处，从无安逸可言酒店“逢假就涨” 多重约束缘何管不住“任性定价”？
+东岳集团（00189）盘中涨超19%，高见18.10港元，本年内股价累计涨幅已近60%。
 
-全球气候变暖导致飞机颠簸变多？
+截至发稿，股价上涨13.65%，现报17.23港元，成交额17.70亿港元。
 
-专家解疑情绪易怒、爱走神是前额叶受损吗？
+开源证券指出，欧美此前过于严苛和激进的HFCs削减计划、HFO替代品推进不及预期、国际货源以及本土库存紧张，叠加旺季需求到来，引发了本次海外制冷剂价格大幅调涨，并促使其放宽HFCs的合规期限，事实上延长了HFCs的生命周期。
 
-如何科学改善？
+我们认为本质就是欧美高GWP的HFCs制冷剂出现供给短缺，需要从政策上放宽要求以保障国内需求。
 
-专家解读一纸侨批跨越山海，《给阿嬷的情书》如何感动全网？
+直接证明了HFCs制冷剂的需求旺盛，难以被快速替代。
 
-曾经的“高端王者”，在中国为啥打不动了？
+需求坚挺、库存不足、价格上涨，全球制冷剂补库行情或在酝酿。
 
-母亲节催热“带妈游”，两代人怎么玩更融洽？
-
-“中式生活”何以出海：华裔朱溪瑞的“中国人守则”英国政坛地震，斯塔默“首相生涯面临终结”？
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 23:07 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 23:00 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 23:04 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 23:27 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-29 23:25 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 23:20 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 23:08 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 23:21 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 23:12 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 23:28 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 23:08 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 23:29 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 23:07 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 23:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 23:22 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 23:12 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 23:35 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 23:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 23:06 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 23:20 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 23:07 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:25 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/90708681432.shtml)
-- 2026-06-29 23:04 - [炽夏](http://www.blog.kurohicncr.top/Article/details/6042230.shtml)
-- 2026-06-29 23:17 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/4207239.shtml)
-- 2026-06-29 23:20 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/131524.shtml)
-- 2026-06-29 23:07 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/968739972.shtml)
-- 2026-06-29 23:29 - [新官上任三把火](https://www.share.minike.top/Article/details/59161.shtml)
-- 2026-06-29 23:09 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/0336447066.shtml)
-- 2026-06-29 23:27 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/9695177.shtml)
-- 2026-06-29 23:23 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/367267695284.shtml)
-- 2026-06-29 23:10 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/0621192.shtml)
-- 2026-06-29 23:15 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/8495431.shtml)
-- 2026-06-29 23:25 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/78994582499.shtml)
-- 2026-06-29 23:28 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/32966348634.shtml)
-- 2026-06-29 23:09 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/11266959967.shtml)
-- 2026-06-29 23:09 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/14437518044.shtml)
+- 2026-06-29 23:21 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/586368719.shtml)
+- 2026-06-29 23:23 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/92712359.shtml)
+- 2026-06-29 23:09 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/1689895545.shtml)
+- 2026-06-29 23:28 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/2832286701.shtml)
+- 2026-06-29 23:18 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/54031547917.shtml)
+- 2026-06-29 23:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/8795100847.shtml)
+- 2026-06-29 23:28 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/4243452185.shtml)
+- 2026-06-29 23:28 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/155851263089.shtml)
+- 2026-06-29 23:20 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/026905.shtml)
+- 2026-06-29 23:35 - [急先锋](https://www.share.kurohicncr.top/Article/details/84064.shtml)
+- 2026-06-29 23:23 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/19910077.shtml)
+- 2026-06-29 23:32 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/306031286980.shtml)
+- 2026-06-29 23:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/022509662557.shtml)
+- 2026-06-29 23:25 - [急先锋](http://www.share.kurohicncr.top/Article/details/1017175.shtml)
+- 2026-06-29 23:32 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/05360371.shtml)

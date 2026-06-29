@@ -1,57 +1,57 @@
-# “文化中国·水立方杯”中文歌曲大赛印尼总决赛举行
+# 金条加税！外储保卫战打响，又一国出手！对国际金价有何影响？
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-中新社雅加达5月9日电 (记者 李志全)第十六届“文化中国·水立方杯”中文歌曲大赛印度尼西亚赛区总决赛9日在雅加达举行。经层层选拔，从100多名参赛者中脱颖而出的34位选手齐聚决赛舞台，以歌会友、以声传情，为现场观众献上一场精彩演出。本次活动由北京海外联谊会主办、印尼雅加达华文教育协调机构(简称“雅协”)承办。中国驻印尼使馆公参兼总领事郑杰、雅协辅导委员会主席胡素丹、印尼福建社
+中新经纬5月27日电 (李自曼)为稳汇率、保外储，继印度之后，马来西亚上调黄金进口关税。 据彭博社26日援引贸易商的说法，至少从5月初开始，马来西亚已悄然对部分金条进口征收10%的关税。 马来西亚对黄金进口长期实行零关税。此次政策突然调整，也冲击了当地的黄金贸易。 据彭博社报道，受此影响，部分货物遭海关暂扣，也有货主将货品转运至其他地区。由于当地金价并未同步上涨，额外税负导致这
 
 ## 正文
 
-中新社雅加达5月9日电 (记者 李志全)第十六届“文化中国·水立方杯”中文歌曲大赛印度尼西亚赛区总决赛9日在雅加达举行。
+中新经纬5月27日电 (李自曼)为稳汇率、保外储，继印度之后，马来西亚上调黄金进口关税。
 
-经层层选拔，从100多名参赛者中脱颖而出的34位选手齐聚决赛舞台，以歌会友、以声传情，为现场观众献上一场精彩演出。
+据彭博社26日援引贸易商的说法，至少从5月初开始，马来西亚已悄然对部分金条进口征收10%的关税。
 
-本次活动由北京海外联谊会主办、印尼雅加达华文教育协调机构(简称“雅协”)承办。
+马来西亚对黄金进口长期实行零关税。
 
-中国驻印尼使馆公参兼总领事郑杰、雅协辅导委员会主席胡素丹、印尼福建社团联谊总会总主席俞雨龄、雅协执行主席蔡昌杰等出席活动，并为获奖选手颁奖。
+此次政策突然调整，也冲击了当地的黄金贸易。
 
-郑杰表示，希望选手们通过这一平台充分展示音乐与演唱才华，并以中文歌曲大赛为桥梁，更好传承中华文化，促进两国文明交流互鉴。
+据彭博社报道，受此影响，部分货物遭海关暂扣，也有货主将货品转运至其他地区。
 
-蔡昌杰表示，“水立方杯”早已超越一场普通歌唱比赛的意义。
+由于当地金价并未同步上涨，额外税负导致这类进口业务陷入亏损。
 
-它以音乐为纽带，连接不同族群与文化背景的心灵；同时也是一个窗口，让更多印尼民众特别是年轻一代，通过学唱中文歌曲这一生动有趣的方式，深入感知中华文化的博大精深。
+马来西亚Muamalat银行是当地一家提供黄金投资产品的银行。
 
-胡素丹表示，这项赛事不仅为青年搭建展示自我、交流切磋的平台，也在润物无声中传承中华文脉，让中华文化魅力跨越山海。
+该银行本周发表声明称，一旦金条被加征10%进口税，相关成本将转嫁给消费者。
 
 ## 相关推荐
 
-- 2026-06-29 23:09 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 23:12 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 23:04 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 23:11 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 23:24 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 23:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 23:17 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 23:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 23:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 23:20 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 23:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 23:29 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 23:28 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 23:28 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 23:08 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 23:31 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 23:20 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 23:32 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 23:17 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 23:31 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 23:25 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 23:19 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:28 - [金牌调解](http://www.share.minike.top/Article/details/753900742.shtml)
-- 2026-06-29 23:25 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/579257668.shtml)
-- 2026-06-29 23:17 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/60049378439.shtml)
-- 2026-06-29 23:03 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/370892832433.shtml)
-- 2026-06-29 23:09 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/1986835.shtml)
-- 2026-06-29 23:03 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/291658.shtml)
-- 2026-06-29 23:08 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/767283798798.shtml)
-- 2026-06-29 23:12 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/6716589.shtml)
-- 2026-06-29 23:01 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/3046012.shtml)
-- 2026-06-29 23:11 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/5386099851.shtml)
-- 2026-06-29 23:05 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/084602210.shtml)
-- 2026-06-29 23:10 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/71107.shtml)
-- 2026-06-29 23:18 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/67972636.shtml)
-- 2026-06-29 23:26 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/79981429.shtml)
-- 2026-06-29 23:27 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/0928707.shtml)
+- 2026-06-29 23:26 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/4956415835.shtml)
+- 2026-06-29 23:32 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/524679380430.shtml)
+- 2026-06-29 23:09 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/27468837.shtml)
+- 2026-06-29 23:25 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/362298.shtml)
+- 2026-06-29 23:13 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/73215906.shtml)
+- 2026-06-29 23:25 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/99300085.shtml)
+- 2026-06-29 23:31 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/627835341504.shtml)
+- 2026-06-29 23:17 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/13782446308.shtml)
+- 2026-06-29 23:18 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/03836089139.shtml)
+- 2026-06-29 23:09 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/541664.shtml)
+- 2026-06-29 23:19 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/842842.shtml)
+- 2026-06-29 23:15 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/8824434333.shtml)
+- 2026-06-29 23:16 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/52026756543.shtml)
+- 2026-06-29 23:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/403466806.shtml)
+- 2026-06-29 23:30 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/4030123.shtml)

@@ -1,58 +1,46 @@
-# “哈尔滨俄语之春”中俄学生俄语竞赛落幕 以语为桥深化中俄青年交流
+# 暴雨蓝色预警：9省区市有大到暴雨 贵州等地部分地区有大暴雨
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月11日电 (记者 史轶夫)11日，第九届“哈尔滨俄语之春”中俄大学生、中学生俄语竞赛落幕。本届赛事以语言为纽带、以文化为桥梁，中俄两国学生在朗诵、歌曲、戏剧、舞蹈四大赛场同台竞技，展现出中俄青年学子的青春风采与深厚情谊。 本届赛事采取线上线下相结合的形式，设团队赛与个人赛，吸引21所中俄高校线下参赛、6所院校线上参赛，来自30多个国家的300余名选手角逐个人奖项
+中新网5月28日电 据中央气象台网站消息，中央气象台5月28日10时继续发布暴雨蓝色预警：预计，5月28日14时至29日14时，重庆中东部、湖北西南部、四川西南部、贵州东部和中南部、湖南西部、云南东部、广西西北部、江西南部、福建等地部分地区有大到暴雨，其中，贵州南部等地部分地区有大暴雨(100～180毫米)。上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过6
 
 ## 正文
 
-中新网哈尔滨5月11日电 (记者 史轶夫)11日，第九届“哈尔滨俄语之春”中俄大学生、中学生俄语竞赛落幕。
+中新网5月28日电 据中央气象台网站消息，中央气象台5月28日10时继续发布暴雨蓝色预警：预计，5月28日14时至29日14时，重庆中东部、湖北西南部、四川西南部、贵州东部和中南部、湖南西部、云南东部、广西西北部、江西南部、福建等地部分地区有大到暴雨，其中，贵州南部等地部分地区有大暴雨(100～180毫米)。
 
-本届赛事以语言为纽带、以文化为桥梁，中俄两国学生在朗诵、歌曲、戏剧、舞蹈四大赛场同台竞技，展现出中俄青年学子的青春风采与深厚情谊。
+上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过60毫米)，局地有雷暴大风等强对流天气。
 
-本届赛事采取线上线下相结合的形式，设团队赛与个人赛，吸引21所中俄高校线下参赛、6所院校线上参赛，来自30多个国家的300余名选手角逐个人奖项，赛事规模与影响力持续提升。
-
-赛场上，中俄青年以声传情、以艺通心。
-
-朗诵比赛中，黑龙江大学、俄罗斯布拉戈维申斯克国立师范大学分获不同组别一等奖；歌曲、戏剧、舞蹈赛场亮点纷呈，布拉戈维申斯克国立师范大学包揽多项一等奖，展现扎实艺术功底。
-
-从赛事交流到文化互鉴，本届竞赛不仅激发青年学子俄语学习热情，更筑牢中俄青年友好根基。
-
-该赛事已入选“中俄文化年”系列活动，获评黑龙江省数字教育“走出去”典型案例，品牌效应持续彰显。
-
-(完)
+防御指南： 1、政府及相关部门按照职责做好防暴雨准备工作； 2、学校、幼儿园采取适当措施，保证学生和幼儿安全； 3、驾驶人员应当注意道路积水和交通阻塞，确保安全； 4、检查城市、农田、鱼塘排水系统，做好排涝准备。
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 23:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 23:17 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 23:10 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 23:05 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 23:11 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 23:17 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 23:22 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 23:26 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 23:07 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 23:03 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 23:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 23:15 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 23:27 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 23:28 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 23:08 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 23:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 23:12 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 23:06 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 23:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 23:09 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 23:09 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:17 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/9111308417.shtml)
-- 2026-06-29 23:11 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/1610874.shtml)
-- 2026-06-29 23:13 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/7449009967.shtml)
-- 2026-06-29 23:01 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/30241.shtml)
-- 2026-06-29 23:05 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/439266.shtml)
-- 2026-06-29 23:18 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/51085894446.shtml)
-- 2026-06-29 23:12 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/4609868.shtml)
-- 2026-06-29 23:10 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/12444950928.shtml)
-- 2026-06-29 23:01 - [金牌调解](http://www.blog.minike.top/Article/details/867816357075.shtml)
-- 2026-06-29 23:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/57327671.shtml)
-- 2026-06-29 23:10 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/98422913.shtml)
-- 2026-06-29 23:23 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/90494.shtml)
-- 2026-06-29 23:22 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/517548405809.shtml)
-- 2026-06-29 23:01 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/2426124402.shtml)
-- 2026-06-29 23:02 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/115211.shtml)
+- 2026-06-29 23:30 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/4962767.shtml)
+- 2026-06-29 23:32 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/024196.shtml)
+- 2026-06-29 23:34 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/796347.shtml)
+- 2026-06-29 23:07 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/577877554768.shtml)
+- 2026-06-29 23:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/93915992.shtml)
+- 2026-06-29 23:33 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/3002507757.shtml)
+- 2026-06-29 23:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/40241410753.shtml)
+- 2026-06-29 23:07 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/1170018201.shtml)
+- 2026-06-29 23:13 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/31967010.shtml)
+- 2026-06-29 23:24 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/8952777.shtml)
+- 2026-06-29 23:26 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/86180.shtml)
+- 2026-06-29 23:13 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/677247861.shtml)
+- 2026-06-29 23:28 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/30266.shtml)
+- 2026-06-29 23:17 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/751854.shtml)
+- 2026-06-29 23:34 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/04667486.shtml)

@@ -1,49 +1,61 @@
-# 黑芝麻智能根据首次公开发售前股份计划发行1000股
+# 欧洲央行会议纪要：如果加息作为选项 一些官员不会反对4月行动
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-黑芝麻（维权）智能（02533）发布公告，于2026年5月8日，该公司根据首次公开发售前股份计划发行1000股。责任编辑：卢昱君
+欧洲央行的会议纪要显示，该行一些官员在上个月的政策会议上不会反对加息。 欧洲央行4月29日至30日会议的纪要显示：“一些成员指出，最终决策是一个势均力敌的决定。如果此次会议上加息被列为选项，那么他们不会反对加息。” 在政策会议之后，一些欧洲央行官员开始宣扬6月份加息的可能性，其中包括管理委员会中一些立场较鸽派的成员。他们担心，目前为3%且仍在攀升的通胀将推升工资要求，并使未来物
 
 ## 正文
 
-黑芝麻（维权）智能（02533）发布公告，于2026年5月8日，该公司根据首次公开发售前股份计划发行1000股。
+欧洲央行的会议纪要显示，该行一些官员在上个月的政策会议上不会反对加息。
 
-责任编辑：卢昱君
+欧洲央行4月29日至30日会议的纪要显示：“一些成员指出，最终决策是一个势均力敌的决定。
+
+如果此次会议上加息被列为选项，那么他们不会反对加息。
+
+” 在政策会议之后，一些欧洲央行官员开始宣扬6月份加息的可能性，其中包括管理委员会中一些立场较鸽派的成员。
+
+他们担心，目前为3%且仍在攀升的通胀将推升工资要求，并使未来物价上涨预期脱锚，而这些趋势一旦形成，逆转起来代价高昂。
+
+即便最初由伊朗战争引发的能源冲击开始逆转，欧洲央行首席经济学家Philip Lane在周四依旧表示，第二轮效应将“伴随我们一段时间”。
+
+经济学家和投资者预计欧洲央行今年至少会加息两次。
+
+以下是官员们4月份的其他看法： 关于利率： “能源价格冲击及相关供应中断给货币政策带来了两难处境。
 
 ## 相关推荐
 
-- 2026-06-29 23:20 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 23:29 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 23:19 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 23:18 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 23:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 23:25 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 23:08 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 23:16 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 23:10 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 23:05 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 23:03 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 23:00 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 23:21 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 23:19 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 23:24 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 23:08 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 23:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 23:17 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 23:12 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 23:22 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 23:24 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 23:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 23:09 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 23:28 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 23:15 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 23:21 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 23:33 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 23:26 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 23:25 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 23:33 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:23 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/4310878817.shtml)
-- 2026-06-29 23:10 - [我和我的家乡](http://www.blog.minike.top/Article/details/465725109890.shtml)
-- 2026-06-29 23:03 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/2158180.shtml)
-- 2026-06-29 23:16 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/503101385338.shtml)
-- 2026-06-29 23:10 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/09570876740.shtml)
-- 2026-06-29 23:06 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/345417043060.shtml)
-- 2026-06-29 23:04 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/972166924.shtml)
-- 2026-06-29 23:29 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/912532927898.shtml)
-- 2026-06-29 23:04 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/30433.shtml)
-- 2026-06-29 23:28 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/4511265407.shtml)
-- 2026-06-29 23:15 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/7016096.shtml)
-- 2026-06-29 23:21 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/87300537.shtml)
-- 2026-06-29 23:29 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/31814016.shtml)
-- 2026-06-29 23:19 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/873995591001.shtml)
-- 2026-06-29 23:08 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/8933354487.shtml)
+- 2026-06-29 23:07 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/8283347310.shtml)
+- 2026-06-29 23:15 - [男子称在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/047145893.shtml)
+- 2026-06-29 23:22 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/78244431.shtml)
+- 2026-06-29 23:22 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/37725800.shtml)
+- 2026-06-29 23:10 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/2007051511.shtml)
+- 2026-06-29 23:18 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/13724982.shtml)
+- 2026-06-29 23:15 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/7112096533.shtml)
+- 2026-06-29 23:24 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/7056789.shtml)
+- 2026-06-29 23:23 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/6924773817.shtml)
+- 2026-06-29 23:23 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/37400312186.shtml)
+- 2026-06-29 23:26 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/8159334.shtml)
+- 2026-06-29 23:24 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/15286.shtml)
+- 2026-06-29 23:20 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.minike.top/Article/details/896717159.shtml)
+- 2026-06-29 23:14 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/4576257.shtml)
+- 2026-06-29 23:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/738117631115.shtml)

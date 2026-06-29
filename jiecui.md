@@ -1,57 +1,58 @@
-# 北京-东盟科技产业推介洽谈会举办 共享合作新机遇
+# 2025年山东法院新收行政案件约5.4万件 呈现“一升三降”态势
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-中新网北京5月9日电 (记者 吕少威)由北京市贸促会主办的第二十八届北京科博会北京-东盟科技产业推介洽谈会8日在国家会议中心二期举办。来自马来西亚、老挝、缅甸、印尼、越南驻华大使馆官员，东盟经济贸易促进会、中国-东盟产业合作发展促进会、中国东盟中心等中外商协会及企业代表，共150余人参加活动。 东盟经济贸易促进会会长波尚琅在致辞中指出，科技是驱动发展的硬实力，也是北京与东盟最具
+中新网济南5月27日电(周艺伟)山东省高级人民法院审判委员会专职委员、一级高级法官黄伟东27日表示，2025年，山东法院新收各类行政案件53903件，同比上升1.53%；审结53012件，同比上升0.15%；收案情况呈现“一升三降”态势，一审行政案件收案24752件，同比上升7.52%，在连续两年收案量下降之后有所反弹，行政案件二审、申请再审、非诉执行审查收案量下降。 当日，山
 
 ## 正文
 
-中新网北京5月9日电 (记者 吕少威)由北京市贸促会主办的第二十八届北京科博会北京-东盟科技产业推介洽谈会8日在国家会议中心二期举办。
+中新网济南5月27日电(周艺伟)山东省高级人民法院审判委员会专职委员、一级高级法官黄伟东27日表示，2025年，山东法院新收各类行政案件53903件，同比上升1.53%；审结53012件，同比上升0.15%；收案情况呈现“一升三降”态势，一审行政案件收案24752件，同比上升7.52%，在连续两年收案量下降之后有所反弹，行政案件二审、申请再审、非诉执行审查收案量下降。
 
-来自马来西亚、老挝、缅甸、印尼、越南驻华大使馆官员，东盟经济贸易促进会、中国-东盟产业合作发展促进会、中国东盟中心等中外商协会及企业代表，共150余人参加活动。
+当日，山东省高级人民法院召开新闻发布会，发布2025年山东法院行政审判白皮书。
 
-东盟经济贸易促进会会长波尚琅在致辞中指出，科技是驱动发展的硬实力，也是北京与东盟最具活力的增长极，务实合作、开放共赢是双方面向未来的共同选择。
+黄伟东介绍，2025年，山东法院一审行政案件中，公安领域案件量稳居首位，公安类收案4158件，占比16.80%，同比增长15.18%，主要涉及治安管理处罚、道路交通管理等事项。
 
-参会各方要共同发挥桥梁纽带作用，助力更多企业跨越山海，共享区域一体化带来的巨大机遇。
+劳动和社会保障类收案2311件，占比9.34%，同比增长33.66%，成为案件量增长最快的领域，主要涉及工伤认定、社保缴纳、劳动监察等争议。
 
-中国-东盟产业合作发展促进会常务会长廖斌在致辞中表示，希望与会嘉宾积极参与打造“北京技术+东盟应用”“北京方案+东盟场景”的协同发展模式，共同打造北京硬核科技与东盟广阔市场的互利共赢生态，深化交流，共建生态，共享商机。
+同时，山东法院一审行政案件所涉行政行为类型相对集中，行政复议类收案4293件，同比增长60.79%，成为增幅最大的行政行为类型。
 
-在实务分享环节，中国-东盟中心贸易投资部副主任伍开河深入讲述了东盟历史沿革和区域发展现况，对未来东盟以数字经济与绿色经济转型为中心，迈向韧性、创新、活力、以人为本的东盟共同体作了展望。
+涉行政处罚、不履行职责、工伤保险确认、政府信息公开案件保持高位运行，行政处罚类收案5642件，同比增长9.32%，居各行政行为类型收案量首位。
 
-中关村发展集团以“使命、生态、网络、未来”为主线，系统阐述了中关村作为中国科技创新出发地、原始创新策源地和自主创新主阵地，在科技创新领域的核心功能和开放合作意向，以及与全球伙伴共创未来的愿景。
+“2025年，山东法院一审行政案件中，行政机关败诉1103件，败诉率为4.67%，维持在较低水平。
 
-在推介环节，来自越南大使馆、香港投资推广署、北京数字经济企业出海创新服务基地等机构以及泰国万浦投资(中国)、东升智联、优刻得科技、合康新能源等重点企业作了推介，与现场嘉宾从宏观层面的地区发展，到中观层面的园区孵化再到微观层面的重点企业推介，形成不同层面的交流与对话，在对地区环境和产业发展推介的基础上，为企业在出海服务和务实合作方面提供了有力支撑。
+”黄伟东说，败诉案件呈现“层级下沉、基层集中”的特征，区县政府和职能部门败诉占比58.07%，乡镇政府及街道办事处败诉占比34.03%，两类基层机关合计败诉1015件，成为败诉高发主体，而市级机关败诉占比5.73%，省级机关败诉占比为2.17%。
 
 ## 相关推荐
 
-- 2026-06-29 23:11 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 23:07 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 23:13 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 23:27 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 23:22 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 23:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 23:05 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 23:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 23:28 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 23:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 23:16 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 23:13 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 23:21 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 23:07 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 23:21 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 23:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 23:32 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 23:24 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 23:09 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 23:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 23:07 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 23:12 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 23:27 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:21 - [扬名立万](https://www.share.minike.top/Article/details/659028205542.shtml)
-- 2026-06-29 23:13 - [速度与激情9](http://www.share.minike.top/Article/details/096014599574.shtml)
-- 2026-06-29 23:27 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/54486074.shtml)
-- 2026-06-29 23:14 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/34787141.shtml)
-- 2026-06-29 23:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/13538660373.shtml)
-- 2026-06-29 23:23 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/266749813830.shtml)
-- 2026-06-29 23:05 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/36878774.shtml)
-- 2026-06-29 23:27 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/907706415372.shtml)
-- 2026-06-29 23:10 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/313151768.shtml)
-- 2026-06-29 23:27 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/4873473.shtml)
-- 2026-06-29 23:04 - [一生一世](https://www.share.minike.top/Article/details/315704888249.shtml)
-- 2026-06-29 23:09 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/1978037015.shtml)
-- 2026-06-29 23:00 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/65211.shtml)
-- 2026-06-29 23:14 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/903330545068.shtml)
-- 2026-06-29 23:20 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/36952832995.shtml)
+- 2026-06-29 23:31 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/09181256740.shtml)
+- 2026-06-29 23:23 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/35779591.shtml)
+- 2026-06-29 23:18 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/956126.shtml)
+- 2026-06-29 23:17 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/26383596.shtml)
+- 2026-06-29 23:25 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/60579857.shtml)
+- 2026-06-29 23:07 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/294056.shtml)
+- 2026-06-29 23:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/8671023411.shtml)
+- 2026-06-29 23:29 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/3383229.shtml)
+- 2026-06-29 23:08 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/432308483680.shtml)
+- 2026-06-29 23:32 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/6049690717.shtml)
+- 2026-06-29 23:18 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/2351110.shtml)
+- 2026-06-29 23:24 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/45936997487.shtml)
+- 2026-06-29 23:12 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/2178391941.shtml)
+- 2026-06-29 23:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/68070274.shtml)
+- 2026-06-29 23:12 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/9350956.shtml)

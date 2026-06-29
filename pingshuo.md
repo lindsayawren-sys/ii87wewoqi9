@@ -1,58 +1,60 @@
-# 韩国男子称拿120万元“租房钱”重仓一股票，因入狱被迫持股，6年后狂涨至4.9亿元
+# 内蒙古脑特盖遗址获新发现 实证红山古国核心区域文明脉络
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-据报道，韩国男子A先生近日讲述了自己“被迫”持股大赚数百倍的“传奇经历”。目前尚无媒体能独立核实此事。据该男子晒出的账户记录，他2020年3月用2.61亿韩元（约人民币120万元）买进“晓星重工”股票，此后他面临牢狱之灾。最近当他终于出狱后，发现这笔投资现在已经价值1052.1亿韩元（约合人民币4.9亿元）。这笔收益超过402倍的“天才投资”引发韩国全网“羡慕嫉妒恨”。不过A先
+中新网赤峰5月28日电 (记者 陈峰 奥蓝)近日，中国社会科学院考古研究所联合多家单位发布最新考古成果，内蒙古赤峰市巴林右旗脑特盖遗址重大发现正式对外公布。该遗址是目前经科学调查确认的面积最大的红山文化聚落之一，为红山古国的形成及西辽河流域进入文明社会提供了重要的考古实证，也由此证实巴林草原是红山古国的核心区之一。 脑特盖遗址坐落于西拉木伦河主河道沿岸，地处西辽河流域史前文化核
 
 ## 正文
 
-据报道，韩国男子A先生近日讲述了自己“被迫”持股大赚数百倍的“传奇经历”。
+中新网赤峰5月28日电 (记者 陈峰 奥蓝)近日，中国社会科学院考古研究所联合多家单位发布最新考古成果，内蒙古赤峰市巴林右旗脑特盖遗址重大发现正式对外公布。
 
-目前尚无媒体能独立核实此事。
+该遗址是目前经科学调查确认的面积最大的红山文化聚落之一，为红山古国的形成及西辽河流域进入文明社会提供了重要的考古实证，也由此证实巴林草原是红山古国的核心区之一。
 
-据该男子晒出的账户记录，他2020年3月用2.61亿韩元（约人民币120万元）买进“晓星重工”股票，此后他面临牢狱之灾。
+脑特盖遗址坐落于西拉木伦河主河道沿岸，地处西辽河流域史前文化核心地带，文化序列完整，留存有兴隆洼文化、赵宝沟文化、红山文化遗存，文明延续时长近三千年。
 
-最近当他终于出狱后，发现这笔投资现在已经价值1052.1亿韩元（约合人民币4.9亿元）。
+脑特盖遗址在红山文化晚期步入鼎盛阶段，聚落面积近300万平方米，是继那斯台遗址后，巴林草原发现的又一处红山文化超大规模中心性聚落。
 
-这笔收益超过402倍的“天才投资”引发韩国全网“羡慕嫉妒恨”。
+考古勘探显示，该遗址功能布局规整，集居住区与祭祀区于一体，房址成排分布。
 
-不过A先生讲述，自己完全不是投资天才。
+遗址北部发现两处石砌祭坛，形制特征与牛河梁、东山嘴等知名红山文化祭祀遗存高度契合，印证当时已形成成熟的天地崇拜信仰与祭祀礼仪体系。
 
-倘若不是因为坐牢无法操作，他很可能在股票稍有获利时就已全部卖出。
+从采集的陶器标本来看，遗存以红山文化中、晚期器物为主，其中筒形罐数量最多，同时出土一定数量的斜口器、瓮、钵、壶等器物。
 
-当初投入的2.61亿韩元是他准备的“全屋租赁金”。
+其器形、纹饰与西台遗址、兴隆沟遗址第二地点出土的同类器物高度相似，年代基本吻合，判定为红山文化中、晚期遗存。
 
 ## 相关推荐
 
-- 2026-06-29 23:22 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 23:10 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 23:04 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 23:29 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 23:01 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 23:12 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 23:03 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 23:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 23:00 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 23:22 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 23:11 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 23:26 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 23:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 23:17 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 23:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 23:20 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 23:32 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 23:29 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 23:15 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 23:15 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 23:11 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 23:28 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 23:09 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 23:20 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 23:19 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 23:18 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:05 - [日防卫省正考虑引进美企人工智能系统](https://www.share.kurohicncr.top/Article/details/442499.shtml)
-- 2026-06-29 23:15 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/99386.shtml)
-- 2026-06-29 23:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/15843992645.shtml)
-- 2026-06-29 23:04 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/5305644419.shtml)
-- 2026-06-29 23:14 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.kurohicncr.top/Article/details/43981851.shtml)
-- 2026-06-29 23:03 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/371692067.shtml)
-- 2026-06-29 23:29 - [恋与深空致歉](http://www.blog.minike.top/Article/details/0989546.shtml)
-- 2026-06-29 23:15 - [美以这对亲密盟友要掰了吗](http://www.blog.kurohicncr.top/Article/details/00627671.shtml)
-- 2026-06-29 23:19 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/7919262.shtml)
-- 2026-06-29 23:11 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/1173567580.shtml)
-- 2026-06-29 23:21 - [千与千寻](http://www.share.kurohicncr.top/Article/details/81695241696.shtml)
-- 2026-06-29 23:20 - [金牌调解](https://www.blog.minike.top/Article/details/133911717.shtml)
-- 2026-06-29 23:06 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/6268031.shtml)
-- 2026-06-29 23:19 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/293087.shtml)
-- 2026-06-29 23:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/386427.shtml)
+- 2026-06-29 23:25 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/757793937302.shtml)
+- 2026-06-29 23:21 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/2138480136.shtml)
+- 2026-06-29 23:06 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/25882007.shtml)
+- 2026-06-29 23:34 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/4071455135.shtml)
+- 2026-06-29 23:08 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/519284.shtml)
+- 2026-06-29 23:24 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/871840400917.shtml)
+- 2026-06-29 23:18 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/22184507707.shtml)
+- 2026-06-29 23:19 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/28650.shtml)
+- 2026-06-29 23:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/394273766.shtml)
+- 2026-06-29 23:21 - [月亮](http://www.blog.minike.top/Article/details/0221001.shtml)
+- 2026-06-29 23:12 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/932476912282.shtml)
+- 2026-06-29 23:16 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/528227183823.shtml)
+- 2026-06-29 23:25 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/7038819109.shtml)
+- 2026-06-29 23:11 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/312888.shtml)
+- 2026-06-29 23:17 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/4739262.shtml)

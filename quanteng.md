@@ -1,60 +1,57 @@
-# 糖果公司阿麦斯赴港IPO：超七成收入来自海外，上市前突击十倍分红
+# 全球规模最大声光视讯展在穗开幕 预计吸引超11万名专业观众到场
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-近日，糖果公司阿麦斯食品（集团）股份有限公司（下称“阿麦斯”）向港交所正式递交上市申请书。美银证券（BofA Securities）、招商证券国际及摩根大通担任联席保荐人。这家起步于深圳的糖果企业，是一家主打创意糖果与营养软糖的中国食品企业，旗下拥有“阿麦斯”“贝欧宝”两大自有品牌。按2025年零售额计，弗若斯特沙利文数据显示，阿麦斯为最大的中国糖果公司、全球第五大软糖公司。自
+中新网广州5月28日电(王华 秦小雅)2026第二十四届广州国际专业灯光、音响展览会(以下简称：灯光音响展)28日在广交会展馆启幕。作为全球规模最大的声光视讯行业展会，本届展会展览面积达22万平方米，汇聚2227家海内外参展企业，预计吸引超11万名全球专业观众到场参观采购、交流合作。 本届灯光音响展面积增至22万平方米，居全球同类展会首位，并成功入选“广东省会展项目百强”和“广
 
 ## 正文
 
-近日，糖果公司阿麦斯食品（集团）股份有限公司（下称“阿麦斯”）向港交所正式递交上市申请书。
+中新网广州5月28日电(王华 秦小雅)2026第二十四届广州国际专业灯光、音响展览会(以下简称：灯光音响展)28日在广交会展馆启幕。
 
-美银证券（BofA Securities）、招商证券国际及摩根大通担任联席保荐人。
+作为全球规模最大的声光视讯行业展会，本届展会展览面积达22万平方米，汇聚2227家海内外参展企业，预计吸引超11万名全球专业观众到场参观采购、交流合作。
 
-这家起步于深圳的糖果企业，是一家主打创意糖果与营养软糖的中国食品企业，旗下拥有“阿麦斯”“贝欧宝”两大自有品牌。
+本届灯光音响展面积增至22万平方米，居全球同类展会首位，并成功入选“广东省会展项目百强”和“广州市重点品牌展会”。
 
-按2025年零售额计，弗若斯特沙利文数据显示，阿麦斯为最大的中国糖果公司、全球第五大软糖公司。
+本届展会呈现国际化、高端化、专业化特征，汇聚哈曼国际、雅马哈、铁三角、Bose Professional等国际知名品牌，以及海康威视、ITC保伦电子、浩洋、音王、汇丰音响、星网视易等国内行业龙头。
 
-自有品牌收入占比超七成这家公司的前身是2004年9月在深圳注册成立的深圳市金多多食品有限公司，2026年3月改制为股份有限公司，并正式更名为阿麦斯食品（集团）股份有限公司。
+海外参展品牌上百个，来自共建“一带一路”沿线和欧美地区的采购团数量连年增加。
 
-从阿麦斯的发展来看，其最初是依托广交会等平台做糖果外贸代工，后来为与国内同行进行差异化竞争开启自主品牌并进军欧美中高端市场。
+本届灯光音响展还打破传统布展模式，实现从单品展示到场景体验、从设备销售到方案输出的全面升级。
 
-阿麦斯联合创始人、董事长马恩多曾在受访时回忆，公司创业之初发展重心集中于亚洲与非洲市场，主打中低端糖果贸易。
+展馆布局精准适配产业融合趋势，形成“前台演出场景+后台系统集成”的完整产业闭环。
 
-彼时的金多多尚未建立生产设施，而是采用OEM（原始设备制造商）模式，通过广交会等交易平台获取订单，随后将产品的制造任务外包给第三方生产厂家。
+此外，本届展会同期举办的Visual X光影显示元宇宙展，对接XR虚拟技术、AI智能交互等新兴消费需求。
 
 ## 相关推荐
 
-- 2026-06-29 23:28 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 23:22 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 23:23 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 23:18 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 23:09 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 23:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 23:15 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 23:15 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 23:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 23:11 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 23:18 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 23:02 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 23:04 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 23:04 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 23:24 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 23:35 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 23:31 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 23:12 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 23:10 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 23:15 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 23:30 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 23:22 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 23:30 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 23:09 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 23:33 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:19 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/9223469668.shtml)
-- 2026-06-29 23:28 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/3511756945.shtml)
-- 2026-06-29 23:11 - [金刚川](https://www.share.minike.top/Article/details/950073.shtml)
-- 2026-06-29 23:07 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/767696.shtml)
-- 2026-06-29 23:25 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/6762807816.shtml)
-- 2026-06-29 23:14 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/41960.shtml)
-- 2026-06-29 23:19 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/22012.shtml)
-- 2026-06-29 23:20 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/2112956.shtml)
-- 2026-06-29 23:29 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/45334.shtml)
-- 2026-06-29 23:07 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/76040554408.shtml)
-- 2026-06-29 23:04 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/4637607661.shtml)
-- 2026-06-29 23:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/23972.shtml)
-- 2026-06-29 23:03 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/858713962.shtml)
-- 2026-06-29 23:22 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/50747897.shtml)
-- 2026-06-29 23:14 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/20110619824.shtml)
+- 2026-06-29 23:23 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/276330.shtml)
+- 2026-06-29 23:06 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/7880191086.shtml)
+- 2026-06-29 23:08 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/39699.shtml)
+- 2026-06-29 23:33 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/4229679.shtml)
+- 2026-06-29 23:21 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/87233579252.shtml)
+- 2026-06-29 23:06 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/9471782.shtml)
+- 2026-06-29 23:28 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/74929479908.shtml)
+- 2026-06-29 23:11 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/46596251.shtml)
+- 2026-06-29 23:09 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/96936823.shtml)
+- 2026-06-29 23:33 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/1112302088.shtml)
+- 2026-06-29 23:21 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/620592997.shtml)
+- 2026-06-29 23:23 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/795817.shtml)
+- 2026-06-29 23:31 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/375325.shtml)
+- 2026-06-29 23:30 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/37343065.shtml)
+- 2026-06-29 23:14 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/34534.shtml)

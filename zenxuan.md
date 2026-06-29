@@ -1,56 +1,58 @@
-# 张精科即将入主董事会，杭州银行2026年业绩目标曝光
+# 前4月中国电力市场交易电量同比增长25.6%
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-来源：银瑞社 上个月，以“浙里创新，智领未来”为主题的第十届万物生长大会举行，杭州银行行长张精科受邀为大会发布了祝福视频。 张精科自年初成为杭州银行行长以来，对外发声增多，备受市场瞩目。 最新的2025年年度股东会会议材料，透露了张精科即将进入杭州银行董事会，又会多一个职务。 该股东会议，将审议关于选举张精科为杭州银行第八届董事会董事的相关议案，任期至公司第八届董事会届满之日止
+中新社北京5月28日电(记者 王梦瑶)据中国国家能源局28日消息，2026年1-4月，全国累计完成电力市场交易电量24307亿千瓦时，同比增长25.6%。 从交易范围看，省内交易电量19456亿千瓦时，同比增长29.4%；跨省跨区交易电量4851亿千瓦时，同比增长12.2%。从交易品种看，中长期交易电量21180亿千瓦时；现货交易电量3128亿千瓦时。绿电交易电量1053亿千瓦
 
 ## 正文
 
-来源：银瑞社 上个月，以“浙里创新，智领未来”为主题的第十届万物生长大会举行，杭州银行行长张精科受邀为大会发布了祝福视频。
+中新社北京5月28日电(记者 王梦瑶)据中国国家能源局28日消息，2026年1-4月，全国累计完成电力市场交易电量24307亿千瓦时，同比增长25.6%。
 
-张精科自年初成为杭州银行行长以来，对外发声增多，备受市场瞩目。
+从交易范围看，省内交易电量19456亿千瓦时，同比增长29.4%；跨省跨区交易电量4851亿千瓦时，同比增长12.2%。
 
-最新的2025年年度股东会会议材料，透露了张精科即将进入杭州银行董事会，又会多一个职务。
+从交易品种看，中长期交易电量21180亿千瓦时；现货交易电量3128亿千瓦时。
 
-该股东会议，将审议关于选举张精科为杭州银行第八届董事会董事的相关议案，任期至公司第八届董事会届满之日止。
+绿电交易电量1053亿千瓦时，同比增长3.2%。
 
-张精科担任公司董事的任职资格，尚待监管核准。
+2026年4月，全国完成电力市场交易电量5883亿千瓦时，同比增长25.5%。
 
-市场对张精科关注实属正常。
+从交易范围看，省内交易电量4730亿千瓦时，同比增长29.4%；跨省跨区交易电量1153亿千瓦时，同比增长11.9%。
 
-他是杭州银行行长职位空缺十个月之后选出的人才，而且2026年是该行成立30周年的关键节点，市场好奇新的领导会有哪些新的经营思路。
+从交易品种看，中长期交易电量5223亿千瓦时；现货交易电量660亿千瓦时。
 
-从股东会议文件来看，2025年，杭州银行预算执行基本超额完成。
+绿电交易电量297亿千瓦时，同比增长3.6%。
 
 ## 相关推荐
 
-- 2026-06-29 23:28 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 23:16 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 23:27 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 23:13 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 23:25 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 23:13 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 23:06 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 23:11 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 23:16 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 23:29 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 23:08 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 23:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 23:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 23:16 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 23:17 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 23:22 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 23:34 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 23:16 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 23:08 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 23:29 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 23:31 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 23:10 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/04811206.shtml)
-- 2026-06-29 23:19 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/397556931783.shtml)
-- 2026-06-29 23:06 - [天道](http://www.share.minike.top/Article/details/10985233.shtml)
-- 2026-06-29 23:03 - [我们的少年时代2](http://www.blog.minike.top/Article/details/9702439341.shtml)
-- 2026-06-29 23:23 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/7979111074.shtml)
-- 2026-06-29 23:12 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/6644342.shtml)
-- 2026-06-29 23:26 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/225819755960.shtml)
-- 2026-06-29 23:08 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/48114.shtml)
-- 2026-06-29 23:05 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/5460682313.shtml)
-- 2026-06-29 23:19 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/188406690285.shtml)
-- 2026-06-29 23:20 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/006731.shtml)
-- 2026-06-29 23:25 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/467278903.shtml)
-- 2026-06-29 23:02 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/22824.shtml)
-- 2026-06-29 23:16 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/50553.shtml)
-- 2026-06-29 23:11 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/4657123.shtml)
+- 2026-06-29 23:13 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/415125.shtml)
+- 2026-06-29 23:18 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/93104.shtml)
+- 2026-06-29 23:17 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/718359.shtml)
+- 2026-06-29 23:26 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/71618092177.shtml)
+- 2026-06-29 23:16 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/7614310580.shtml)
+- 2026-06-29 23:15 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/476895497.shtml)
+- 2026-06-29 23:10 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/14355.shtml)
+- 2026-06-29 23:21 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/05474.shtml)
+- 2026-06-29 23:08 - [记者：预计热火将追求小哈达威和康利](http://www.blog.kurohicncr.top/Article/details/570604733648.shtml)
+- 2026-06-29 23:23 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/896270773316.shtml)
+- 2026-06-29 23:34 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/147217210453.shtml)
+- 2026-06-29 23:17 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/53272047.shtml)
+- 2026-06-29 23:26 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/226586153710.shtml)
+- 2026-06-29 23:28 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/36157127.shtml)
+- 2026-06-29 23:34 - [小娘惹](http://www.blog.minike.top/Article/details/52511.shtml)

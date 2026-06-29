@@ -1,60 +1,61 @@
-# “互联网＋”上门护士 打通居家照护的“最后一公里”
+# 光大期货：农产品类日报5.29
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-如何让高龄、失能、半失能等行动不便的人群足不出户就能享受到专业、便捷、安全的护理服务，一直都是社会关注的焦点。而“互联网+护理服务”作为一种便民的创新模式，正悄然改变着传统医疗服务的格局。在5月12日国际护士节前夕，记者走进江苏省多家医院，跟随“上门护士”的脚步，记录下她们从“云端”到“床头”的温情守护。扬子晚报/紫牛新闻记者 许倩倩 一键让专科护士上门服务 “叮，您有新订单。
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周四，CBOT大豆收高，受原油走强提振。霍尔木兹海峡通航预期反复，引发原油波动。阿根廷工人罢工也提振美豆市场，不过阿根廷工人罢工已经接近，该提振有限。国内方面，蛋白粕震荡。美豆、巴西大豆基差报价稳中走高，全球大豆进口成本仅小幅下调。大豆上周压榨超过200万吨，大豆库存攀升，豆粕库存拐点确认。现
 
 ## 正文
 
-如何让高龄、失能、半失能等行动不便的人群足不出户就能享受到专业、便捷、安全的护理服务，一直都是社会关注的焦点。
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周四，CBOT大豆收高，受原油走强提振。
 
-而“互联网+护理服务”作为一种便民的创新模式，正悄然改变着传统医疗服务的格局。
+霍尔木兹海峡通航预期反复，引发原油波动。
 
-在5月12日国际护士节前夕，记者走进江苏省多家医院，跟随“上门护士”的脚步，记录下她们从“云端”到“床头”的温情守护。
+阿根廷工人罢工也提振美豆市场，不过阿根廷工人罢工已经接近，该提振有限。
 
-扬子晚报/紫牛新闻记者 许倩倩 一键让专科护士上门服务 “叮，您有新订单。
+国内方面，蛋白粕震荡。
 
-”在东南大学附属中大医院护理服务的手机端口，一则来自南京栖霞区李先生的“腹膜透析护理”订单被迅速接收并分配，肾脏内科余卫卫护士长和血液净化专科护士丁世云主管护师带着工具和材料如约上门。
+美豆、巴西大豆基差报价稳中走高，全球大豆进口成本仅小幅下调。
 
-李先生的父亲今年92岁，居家腹膜透析已超过8年，每3~6个月就需要更换腹膜透析外接短管。
+大豆上周压榨超过200万吨，大豆库存攀升，豆粕库存拐点确认。
 
-“以前我们带他去医院都要开车，再推轮椅，很麻烦，老人年纪大了，经不起折腾。
+现货市场成交低迷，成交价格跌至10个月新低。
 
-现在只要在手机上通过医院小程序一键下单，专科护士就会上门服务，真的解决了我们的大难题。
+国内豆粕无供应担忧，进口成本走高给豆粕支撑。
 
 ## 相关推荐
 
-- 2026-06-29 23:26 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 23:26 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 23:25 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 23:25 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 23:14 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 23:25 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 23:14 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 23:24 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 23:10 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 23:00 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 23:03 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 23:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 23:25 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 23:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 23:20 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 23:20 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 23:13 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 23:08 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 23:30 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 23:10 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 23:23 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 23:07 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 23:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 23:20 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 23:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 23:07 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 23:18 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 23:21 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 23:14 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:14 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/5634317.shtml)
-- 2026-06-29 23:13 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/3114356.shtml)
-- 2026-06-29 23:00 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/10518268075.shtml)
-- 2026-06-29 23:01 - [毒液2](https://www.share.minike.top/Article/details/0196353.shtml)
-- 2026-06-29 23:12 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/100743902.shtml)
-- 2026-06-29 23:07 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/604792670.shtml)
-- 2026-06-29 23:18 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/360099307618.shtml)
-- 2026-06-29 23:01 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/365992.shtml)
-- 2026-06-29 23:15 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/3110727525.shtml)
-- 2026-06-29 23:13 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/6634478.shtml)
-- 2026-06-29 23:23 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/46394.shtml)
-- 2026-06-29 23:26 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/9413355784.shtml)
-- 2026-06-29 23:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/48569940824.shtml)
-- 2026-06-29 23:01 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/147188366118.shtml)
-- 2026-06-29 23:13 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/86590319.shtml)
+- 2026-06-29 23:25 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/81980.shtml)
+- 2026-06-29 23:14 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/6017255.shtml)
+- 2026-06-29 23:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/62588282671.shtml)
+- 2026-06-29 23:25 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/37842.shtml)
+- 2026-06-29 23:26 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/96933.shtml)
+- 2026-06-29 23:24 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/285028.shtml)
+- 2026-06-29 23:06 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/027898.shtml)
+- 2026-06-29 23:14 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/92960248328.shtml)
+- 2026-06-29 23:14 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/62877488237.shtml)
+- 2026-06-29 23:28 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/229988562.shtml)
+- 2026-06-29 23:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/5932364562.shtml)
+- 2026-06-29 23:10 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/498011.shtml)
+- 2026-06-29 23:25 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/14802072213.shtml)
+- 2026-06-29 23:21 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/81829333649.shtml)
+- 2026-06-29 23:08 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/70191717.shtml)

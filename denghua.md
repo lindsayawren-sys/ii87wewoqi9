@@ -1,60 +1,55 @@
-# 韵达股份2025年营收515亿：净利11.7亿，同比降39%
+# 小新在国新办见到了五位民营企业家
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷递 雷递网 雷建平 5月10日 韵达控股集团股份有限公司（证券代码：002120 证券简称：韵达股份）日前发布2025年的财报。财报显示，韵达股份2025年营收为514.75亿，较上年同期的485.43亿增长6%。 其中：韵达股份2025年快递服务收入507.64 亿元，同比增长 6.01%。 韵达
+发布时间：2026年05月28日 16:52 来源：中国新闻网 5月28日中新社记者在国务院新闻办的发布厅内，见到了台上的主角——五位民营企业家。 到场的五位可是各有来头：泡泡玛特的王宁让中国潮玩走向世界；稀宇科技闫俊杰刷新AI公司上市纪录；卧龙控股陈嫣妮带领制造业全球布局；晶峰晶体高青突破“卡脖子”技术；飞尚科技刘文峰深耕物联网安全。 2026年是“十五五”开局之年，也是《民
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年05月28日 16:52 来源：中国新闻网 5月28日中新社记者在国务院新闻办的发布厅内，见到了台上的主角——五位民营企业家。
 
-来源：雷递 雷递网 雷建平 5月10日 韵达控股集团股份有限公司（证券代码：002120 证券简称：韵达股份）日前发布2025年的财报。
+到场的五位可是各有来头：泡泡玛特的王宁让中国潮玩走向世界；稀宇科技闫俊杰刷新AI公司上市纪录；卧龙控股陈嫣妮带领制造业全球布局；晶峰晶体高青突破“卡脖子”技术；飞尚科技刘文峰深耕物联网安全。
 
-财报显示，韵达股份2025年营收为514.75亿，较上年同期的485.43亿增长6%。
+2026年是“十五五”开局之年，也是《民营经济促进法》施行一周年。
 
-其中：韵达股份2025年快递服务收入507.64 亿元，同比增长 6.01%。
+民营经济是推进中国式现代化的生力军，它贡献了90%以上的城镇就业，完成了70%以上的技术创新成果。
 
-韵达股份2025年净利为11.71亿，较上年同期的19.14亿下降38.79%；扣非后净利为11.45亿，较上年同期的16.43亿下降30%。
+今天出席发布会的五位企业家，既是中国民营企业界高质量发展的缩影，也是展示中国经济的鲜活名片。
 
-韵达控股2026年第一季度营收为125.76亿，较上年同期的121.89亿元增长3.18%。
-
-韵达控股2026年第一季度净利为4.87亿，较上年同期的3.21亿增长51.67%；扣非后净利为4.56亿，较上年同期的3.08亿增长47.7%。
-
-韵达股份向全体股东每 10 股派发现金红利 2.00 元（含税），送红股 0 股（含税），不以公积金转增股本。
+(郎佳慧 董语飞 陶思阅 制作 徐妙巧) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 23:21 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 23:28 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 23:28 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 23:04 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 23:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 23:04 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 23:18 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 23:19 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 23:07 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 23:26 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 23:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 23:26 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 23:09 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 23:19 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 23:23 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 23:06 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 23:15 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 23:16 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 23:35 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 23:35 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 23:10 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 23:31 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 23:27 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 23:21 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 23:28 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 23:22 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 23:27 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:10 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/01079.shtml)
-- 2026-06-29 23:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/19406323.shtml)
-- 2026-06-29 23:14 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/3301137.shtml)
-- 2026-06-29 23:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/7410343235.shtml)
-- 2026-06-29 23:28 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/486678396148.shtml)
-- 2026-06-29 23:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/55796.shtml)
-- 2026-06-29 23:29 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/78729.shtml)
-- 2026-06-29 23:11 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/3282540.shtml)
-- 2026-06-29 23:15 - [炽夏](https://www.share.kurohicncr.top/Article/details/683268611.shtml)
-- 2026-06-29 23:20 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/847432.shtml)
-- 2026-06-29 23:06 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/88928350552.shtml)
-- 2026-06-29 23:01 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/395870775.shtml)
-- 2026-06-29 23:01 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/567890.shtml)
-- 2026-06-29 23:16 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/44045443.shtml)
-- 2026-06-29 23:11 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.kurohicncr.top/Article/details/8778015.shtml)
+- 2026-06-29 23:20 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/67456501031.shtml)
+- 2026-06-29 23:15 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/79676041107.shtml)
+- 2026-06-29 23:30 - [毒液2](https://www.blog.kurohicncr.top/Article/details/34115878715.shtml)
+- 2026-06-29 23:13 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/6262343.shtml)
+- 2026-06-29 23:17 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/59675685252.shtml)
+- 2026-06-29 23:36 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/6108479071.shtml)
+- 2026-06-29 23:24 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/837949299.shtml)
+- 2026-06-29 23:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/33123413576.shtml)
+- 2026-06-29 23:07 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/0778539337.shtml)
+- 2026-06-29 23:34 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/3216341.shtml)
+- 2026-06-29 23:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/33379929084.shtml)
+- 2026-06-29 23:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/19573.shtml)
+- 2026-06-29 23:23 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/7557954.shtml)
+- 2026-06-29 23:26 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/807661010.shtml)
+- 2026-06-29 23:32 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/004718367.shtml)

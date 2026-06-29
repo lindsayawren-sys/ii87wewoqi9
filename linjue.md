@@ -1,56 +1,59 @@
-# 强降雨持续影响云南 多地连发暴雨预警
+# 从120美元暴跌至72美元，白银还没跌完？三大投行发出警告
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-中新网昆明5月11日电(李嘉娴)5月11日至14日，江南、华南等地新一轮较强降水过程来袭，其中云南将自西向东迎来中到大雨天气，部分地区有暴雨，并伴有短时强降水等强对流天气，防汛防灾形势严峻。 截至5月11日20时10分，云南多地密集发布、更新各类气象灾害预警。本轮降雨过程中，红河、丽江、普洱等多地气象部门陆续发布暴雨黄色、橙色预警，部分区域监测到明显短时强降水，预判未来时段雨势
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：华尔街见闻 白银价格在经历2025年的狂飙之后，正面临来自多方的看空压力。 周四，白银现货价格跌至约73.28美元/盎司，较今年1月28日触及的120美元历史高点累计跌幅接近40%。 与此同时，汇丰、瑞银和麦格理三家机构相继发布研究报告，警告白银价格存在进一步下行风险，核心逻辑指向同一方向：高价反噬需
 
 ## 正文
 
-中新网昆明5月11日电(李嘉娴)5月11日至14日，江南、华南等地新一轮较强降水过程来袭，其中云南将自西向东迎来中到大雨天气，部分地区有暴雨，并伴有短时强降水等强对流天气，防汛防灾形势严峻。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-截至5月11日20时10分，云南多地密集发布、更新各类气象灾害预警。
+来源：华尔街见闻 白银价格在经历2025年的狂飙之后，正面临来自多方的看空压力。
 
-本轮降雨过程中，红河、丽江、普洱等多地气象部门陆续发布暴雨黄色、橙色预警，部分区域监测到明显短时强降水，预判未来时段雨势持续，辖区内多个乡镇暴雨灾害风险较高。
+周四，白银现货价格跌至约73.28美元/盎司，较今年1月28日触及的120美元历史高点累计跌幅接近40%。
 
-同时，部分区域发布雷电黄色预警，预计将出现持续雷电天气，存在一定雷击安全隐患，大范围强对流天气风险突出。
+与此同时，汇丰、瑞银和麦格理三家机构相继发布研究报告，警告白银价格存在进一步下行风险，核心逻辑指向同一方向：高价反噬需求正在加剧，而白银缺乏黄金所具备的央行购买这一战略性需求支撑。
 
-结合最新气象监测，云南省发布地质灾害气象风险预警，5月11日20时至12日20时，红河州元阳、绿春、金平三县滑坡、泥石流灾害风险高；红河州南部、文山州西南部、普洱市东西部、丽江市中部、临沧市西南部地质灾害风险较高，需重点防范。
+汇丰在周四发布的报告中直言白银“基本面上被高估”，并预计金银比价将进一步扩大，即便黄金上涨，白银也可能继续承压。
 
-云南省最新天气预报显示，11日白天云南多个州市被降雨覆盖，丽江、昆明、红河、文山、普洱、临沧等地多区域出现小到中雨，局部大雨、暴雨。
+这一判断意味着，白银与黄金的价格走势或将出现明显背离，对持有白银多头头寸的投资者构成直接警示。
 
-11日夜间至12日，全省降水逐步减弱，12日夜间起，降雨范围大幅收缩，仅省内西部、南部边缘有零星阵雨，大部地区天气逐步转好。
+需求侵蚀：高价正在反噬工业买家 白银有别于黄金的关键特征在于其广泛的工业属性——从电脑、手机到太阳能板和汽车，白银是众多工业品的核心原材料。
 
-气象部门特别提醒，本轮降雨暖区对流特征明显，突发性强、变化快、局地性显著，强降水极易诱发城市内涝、山洪、滑坡、泥石流等地质灾害。
+这一特性使其对经济周期的敏感度远高于黄金，也令其在价格大幅攀升后更容易遭遇需求端的主动收缩。
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 23:01 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 23:29 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 23:16 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 23:15 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 23:20 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 23:27 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 23:25 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 23:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 23:21 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 23:08 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 23:31 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 23:19 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 23:15 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 23:30 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 23:17 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 23:34 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 23:10 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 23:22 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 23:15 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 23:13 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 23:07 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 23:15 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:04 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/596087994351.shtml)
-- 2026-06-29 23:18 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/902667.shtml)
-- 2026-06-29 23:19 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/2424836739.shtml)
-- 2026-06-29 23:25 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/76349658.shtml)
-- 2026-06-29 23:07 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/06477.shtml)
-- 2026-06-29 23:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/62229873052.shtml)
-- 2026-06-29 23:24 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/122003.shtml)
-- 2026-06-29 23:09 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/047526010347.shtml)
-- 2026-06-29 23:15 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/805464495635.shtml)
-- 2026-06-29 23:23 - [85花告别古偶](https://www.blog.minike.top/Article/details/65570.shtml)
-- 2026-06-29 23:11 - [女心理师](https://www.blog.kurohicncr.top/Article/details/78590073570.shtml)
-- 2026-06-29 23:02 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/205647084.shtml)
-- 2026-06-29 23:01 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/38220824561.shtml)
-- 2026-06-29 23:13 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/97729.shtml)
-- 2026-06-29 23:17 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/70856011.shtml)
+- 2026-06-29 23:22 - [《贺子珍》](https://www.blog.minike.top/Article/details/237742107426.shtml)
+- 2026-06-29 23:23 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/842844.shtml)
+- 2026-06-29 23:25 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/5062554500.shtml)
+- 2026-06-29 23:09 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/54401653.shtml)
+- 2026-06-29 23:15 - [巴西10号球衣是天才传承史](http://www.blog.minike.top/Article/details/47009600780.shtml)
+- 2026-06-29 23:09 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/38133.shtml)
+- 2026-06-29 23:15 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/5943229822.shtml)
+- 2026-06-29 23:34 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/72863829.shtml)
+- 2026-06-29 23:27 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/78169.shtml)
+- 2026-06-29 23:06 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/33984.shtml)
+- 2026-06-29 23:33 - [恋与深空 日服](https://www.share.minike.top/Article/details/25775495.shtml)
+- 2026-06-29 23:25 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/612618116.shtml)
+- 2026-06-29 23:26 - [千与千寻](http://www.blog.minike.top/Article/details/06315563.shtml)
+- 2026-06-29 23:10 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/035474.shtml)
+- 2026-06-29 23:35 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/879009352699.shtml)

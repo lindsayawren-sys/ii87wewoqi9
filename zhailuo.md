@@ -1,59 +1,56 @@
-# 伊朗战事持续之际，第二艘卡塔尔液化天然气油轮经霍尔木兹海峡驶往巴基斯坦
+# 凯捷：人工智能拓宽客户支出范围
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-第二艘卡塔尔液化天然气油轮正穿越霍尔木兹海峡。数日前，首艘同类型货船已依托伊朗与巴基斯坦达成的安排顺利通航。这一情况凸显：在冲突风险持续的背景下，各类航运货船正以个案逐单审批的方式通行这条水道。 据伦敦证券交易所集团航运数据显示，“米赫泽姆号”液化天然气船容积17.4万立方米，从卡塔尔拉斯拉凡港起航，正向东北方向驶往巴基斯坦卡西姆港，预计5月12日抵达。 这也是伊朗战事爆发以来
+法国科技服务集团凯捷于周四表示，人工智能正推动客户把投入从传统信息技术预算拓展至更多领域。此举意在打消投资者的顾虑 —— 市场曾担忧人工智能会冲击公司现有商业模式。 首席执行官艾曼・埃扎特在公司资本市场日活动上称，如今客户不再将人工智能视作常规信息技术升级，而是把它当成一场全面的运营变革，这也为凯捷在各大业务板块创造了新机遇。 “最终来看，凯捷的抗风险能力与业务多元性都得到提升
 
 ## 正文
 
-第二艘卡塔尔液化天然气油轮正穿越霍尔木兹海峡。
+法国科技服务集团凯捷于周四表示，人工智能正推动客户把投入从传统信息技术预算拓展至更多领域。
 
-数日前，首艘同类型货船已依托伊朗与巴基斯坦达成的安排顺利通航。
+此举意在打消投资者的顾虑 —— 市场曾担忧人工智能会冲击公司现有商业模式。
 
-这一情况凸显：在冲突风险持续的背景下，各类航运货船正以个案逐单审批的方式通行这条水道。
+首席执行官艾曼・埃扎特在公司资本市场日活动上称，如今客户不再将人工智能视作常规信息技术升级，而是把它当成一场全面的运营变革，这也为凯捷在各大业务板块创造了新机遇。
 
-据伦敦证券交易所集团航运数据显示，“米赫泽姆号”液化天然气船容积17.4万立方米，从卡塔尔拉斯拉凡港起航，正向东北方向驶往巴基斯坦卡西姆港，预计5月12日抵达。
+“最终来看，凯捷的抗风险能力与业务多元性都得到提升，我们与客户的联结也变得更加紧密。
 
-这也是伊朗战事爆发以来，第二艘成功穿越霍尔木兹海峡的卡塔尔液化天然气运输船。
+” 埃扎特在活动中说道。
 
-上周六，液化天然气船**“海拉提亚特号”**沿伊朗许可的北线航道驶入霍尔木兹海峡，并于周日顺利通航。
+投资者一直存有一大担忧：代码编写等工作实现自动化后，企业对外包技术服务商的需求会随之下降。
 
-5月9日，两名知情人士透露，这批液化天然气由卡塔尔售予巴基斯坦——巴基斯坦是此次伊朗战事的调停方，双方采用政府间协议方式交易。
+对此凯捷表示，人工智能反而拓宽了自身可承接的业务范畴。
 
-知情人士称，伊朗批准这批船运通行，意在同卡塔尔、巴基斯坦建立互信。
+公司待签约订单情况，也印证了业务布局的全面拓展。
 
 ## 相关推荐
 
-- 2026-06-29 23:06 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 23:15 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 23:02 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 23:11 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 23:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 23:15 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 23:12 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 23:09 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 23:03 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 23:28 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 23:17 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 23:07 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 23:02 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 23:16 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 23:11 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 23:35 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 23:20 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 23:18 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 23:16 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 23:07 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 23:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 23:24 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 23:11 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:05 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/65029.shtml)
-- 2026-06-29 23:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/57507.shtml)
-- 2026-06-29 23:21 - [巴西队主帅称日本队是世界最佳之一](http://www.share.kurohicncr.top/Article/details/37844918684.shtml)
-- 2026-06-29 23:30 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/87834.shtml)
-- 2026-06-29 23:12 - [乔家的儿女](https://www.share.minike.top/Article/details/977105113.shtml)
-- 2026-06-29 23:13 - [急先锋](https://www.blog.kurohicncr.top/Article/details/4551126.shtml)
-- 2026-06-29 23:19 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/80231758.shtml)
-- 2026-06-29 23:20 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/069695.shtml)
-- 2026-06-29 23:30 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/44678128805.shtml)
-- 2026-06-29 23:06 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/1718979434.shtml)
-- 2026-06-29 23:00 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/92120.shtml)
-- 2026-06-29 23:07 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/033123.shtml)
-- 2026-06-29 23:29 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/85190520.shtml)
-- 2026-06-29 23:14 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/51366511115.shtml)
-- 2026-06-29 23:28 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/9049286.shtml)
+- 2026-06-29 23:13 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/313779979731.shtml)
+- 2026-06-29 23:10 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/43123782.shtml)
+- 2026-06-29 23:33 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/059421.shtml)
+- 2026-06-29 23:33 - [美股](https://www.share.minike.top/Article/details/9591989810.shtml)
+- 2026-06-29 23:15 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/8879456.shtml)
+- 2026-06-29 23:08 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/556029.shtml)
+- 2026-06-29 23:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/454793607793.shtml)
+- 2026-06-29 23:20 - [金刚川](https://www.share.minike.top/Article/details/895128.shtml)
+- 2026-06-29 23:27 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/83417842585.shtml)
+- 2026-06-29 23:24 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/71444298178.shtml)
+- 2026-06-29 23:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/29781.shtml)
+- 2026-06-29 23:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/0511455.shtml)
+- 2026-06-29 23:33 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/7000843912.shtml)
+- 2026-06-29 23:23 - [网约车出事故平台拒赔称只是中介](https://www.blog.minike.top/Article/details/5979278.shtml)
+- 2026-06-29 23:28 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/1397547799.shtml)

@@ -1,60 +1,58 @@
-# 菲律宾众议院将就针对副总统萨拉·杜特尔特的弹劾案进行投票
+# FDIC：美国银行业一季度关键指标改善 但账面损失略增
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-菲律宾副总统萨拉·杜特尔特最早可能在周一面临第二次弹劾，这可能成为她昔日盟友、如今的对手——小费迪南德·马科斯总统的胜利，并可能会加剧该国的政治和经济动荡。 国会众议院318名成员中需要三分之一的议员支持才能对她进行弹劾，弹劾程序随后会提交参议院，参议院24名成员中需要三分之二的议员支持才能定罪。 若参议院判决弹劾罪名成立，她将被终身禁止参政，并被免去公职，当然目前这一点还远无
+美国联邦存款保险公司（FDIC）报告称，尽管面临中东战争和利率上升，美国银行业的关键指标在第一季度有所改善，不过行业的账面损失出现小幅增加。 根据FDIC对全美4278家受保银行进行的季度评估，银行业第一季度的净利润环比增长3.6%，达到805亿美元。贷款和租赁总余额较上一季度增长1.6%，较上年同期增长7.1%，创下2023年第二季度以来的最快年度增速。 FDIC表示，季度盈
 
 ## 正文
 
-菲律宾副总统萨拉·杜特尔特最早可能在周一面临第二次弹劾，这可能成为她昔日盟友、如今的对手——小费迪南德·马科斯总统的胜利，并可能会加剧该国的政治和经济动荡。
+美国联邦存款保险公司（FDIC）报告称，尽管面临中东战争和利率上升，美国银行业的关键指标在第一季度有所改善，不过行业的账面损失出现小幅增加。
 
-国会众议院318名成员中需要三分之一的议员支持才能对她进行弹劾，弹劾程序随后会提交参议院，参议院24名成员中需要三分之二的议员支持才能定罪。
+根据FDIC对全美4278家受保银行进行的季度评估，银行业第一季度的净利润环比增长3.6%，达到805亿美元。
 
-若参议院判决弹劾罪名成立，她将被终身禁止参政，并被免去公职，当然目前这一点还远无定论。
+贷款和租赁总余额较上一季度增长1.6%，较上年同期增长7.1%，创下2023年第二季度以来的最快年度增速。
 
-众议院副议长珍妮特·加林表示，众议院周一将就针对萨拉·杜特尔特的弹劾案进行投票，但未提供更多细节。
+FDIC表示，季度盈利增长主要受到大型银行非利息收入强劲增长的推动。
 
-众议员特里·里东在X上发帖表示，至少有215票支持弹劾这位副总统。
+FDIC称，银行业的净息差收窄至3.31%，银行持仓资产的未实现“账面”损失较上一季度增加6.2%，达到3251亿美元，3月住房贷款利率的上行导致抵押贷款支持证券的估值缩水。
 
-里东说：“目前，证据已明确指向存在背叛公众信任和严重违反宪法的情况。
+第一季度用于在银行倒闭时为储户提供赔付的FDIC存款保险基金规模增加36亿美元，至1574亿美元。
 
-” 萨拉·杜特尔特面临四项指控，包括滥用公款和威胁刺杀马科斯。
+受到监管机构额外审查的“问题银行”数量减少6家至54家，处于历史正常水平。
 
-她否认有任何不当行为，声称这些指控是出于政治动机。
+当季FDIC仅记录了一起银行倒闭事件。
 
 ## 相关推荐
 
-- 2026-06-29 23:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 23:13 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 23:18 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 23:26 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 23:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 23:26 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 23:27 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 23:00 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 23:24 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 23:29 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 23:00 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 23:15 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 23:15 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 23:07 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 23:33 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 23:27 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 23:11 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 23:34 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 23:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 23:35 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 23:14 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 23:32 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 23:35 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 23:07 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 23:13 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 23:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:04 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/985386472093.shtml)
-- 2026-06-29 23:17 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/533163951.shtml)
-- 2026-06-29 23:12 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/7147546.shtml)
-- 2026-06-29 23:02 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/037867133044.shtml)
-- 2026-06-29 23:28 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/26454965.shtml)
-- 2026-06-29 23:06 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/7124734.shtml)
-- 2026-06-29 23:02 - [小娘惹](https://www.blog.minike.top/Article/details/193525194.shtml)
-- 2026-06-29 23:08 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/4851867437.shtml)
-- 2026-06-29 23:23 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/1771173.shtml)
-- 2026-06-29 23:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/10948417.shtml)
-- 2026-06-29 23:21 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/8683250.shtml)
-- 2026-06-29 23:13 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/37585323.shtml)
-- 2026-06-29 23:13 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/974849.shtml)
-- 2026-06-29 23:06 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/229613474287.shtml)
-- 2026-06-29 23:26 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/435598705811.shtml)
+- 2026-06-29 23:07 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/17945028.shtml)
+- 2026-06-29 23:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/314188.shtml)
+- 2026-06-29 23:23 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/9556928959.shtml)
+- 2026-06-29 23:17 - [田曦薇没招了](https://www.blog.minike.top/Article/details/0782880.shtml)
+- 2026-06-29 23:12 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/2206537.shtml)
+- 2026-06-29 23:32 - [美股](https://www.share.minike.top/Article/details/90828278.shtml)
+- 2026-06-29 23:18 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/362015672.shtml)
+- 2026-06-29 23:21 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/624169623.shtml)
+- 2026-06-29 23:17 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/12560.shtml)
+- 2026-06-29 23:20 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/56639.shtml)
+- 2026-06-29 23:35 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/908363399706.shtml)
+- 2026-06-29 23:26 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/6728919.shtml)
+- 2026-06-29 23:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/70016694794.shtml)
+- 2026-06-29 23:30 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/219737315479.shtml)
+- 2026-06-29 23:07 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/08241.shtml)

@@ -1,58 +1,56 @@
-# 一季度个税收入怎么看
+# 法国卫生部长：从6月中旬起将报销减肥药费用
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-一季度个税收入怎么看(锐财经) 财政部近日公布的数据显示，今年一季度，个人所得税收入5018亿元，同比增长10.5%。 横向看，各主要税种中，国内增值税、消费税、企业所得税同期分别增长4.9%、下降4.5%、下降5.6%。纵向看，去年一季度个人所得税累计增速为7.1%。如何看待今年一季度的个税收入规模和增速？ 月度增速受错月效应影响考察个税收入，首先要看居民收入。今年一季度，全
+法国卫生部长里斯特 （Stephanie Rist） 周四在接受TF1电视台采访时表示，从6月中旬起，法国将为重度肥胖患者报销减肥药费用。 诺和诺德的Wegovy和礼来公司的Mounjaro是两种注射剂，作为抗肥胖治疗药物已在全球范围内引起广泛关注。 相关审批程序正在最后敲定，预计报销政策将于6月中旬生效。 适用对象为：身体质量指数（BMI） ≥35且至少伴有一种并发症的患者，
 
 ## 正文
 
-一季度个税收入怎么看(锐财经) 财政部近日公布的数据显示，今年一季度，个人所得税收入5018亿元，同比增长10.5%。
+法国卫生部长里斯特 （Stephanie Rist） 周四在接受TF1电视台采访时表示，从6月中旬起，法国将为重度肥胖患者报销减肥药费用。
 
-横向看，各主要税种中，国内增值税、消费税、企业所得税同期分别增长4.9%、下降4.5%、下降5.6%。
+诺和诺德的Wegovy和礼来公司的Mounjaro是两种注射剂，作为抗肥胖治疗药物已在全球范围内引起广泛关注。
 
-纵向看，去年一季度个人所得税累计增速为7.1%。
+相关审批程序正在最后敲定，预计报销政策将于6月中旬生效。
 
-如何看待今年一季度的个税收入规模和增速？
+适用对象为：身体质量指数（BMI） ≥35且至少伴有一种并发症的患者，或BMI≥40（无论是否伴有并发症）的患者。
 
-月度增速受错月效应影响考察个税收入，首先要看居民收入。
+多达1000000人可能受益于此项报销政策，处方权仍由医生酌情决定。
 
-今年一季度，全国居民人均可支配收入12782元，比上年同期名义增长4.9%，扣除价格因素，实际增长4%。
+里斯特表示，报销比例为65%，但在实际操作中，由于合并症的存在，绝大多数符合条件的患者可享受100%的报销。
 
-居民收入稳定增长，是个税收入增长的基础性支撑。
+里斯特估计，全面实施后，该政策每年将给国家带来约1亿欧元的支出。
 
-分税种看，由于今年一季度消费税收入4990亿元、同比下降4.5%，个人所得税超越消费税，成为继增值税、企业所得税之后的税收收入第三大税种。
+在法国，患者每月需为这些药物支付约300欧元。
 
 ## 相关推荐
 
-- 2026-06-29 23:21 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 23:17 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 23:24 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 23:14 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 23:16 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 23:08 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 23:19 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 23:16 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 23:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 23:27 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 23:14 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 23:27 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 23:20 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 23:14 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 23:16 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 23:20 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 23:18 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 23:27 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 23:15 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 23:26 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 23:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 23:19 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/910190293204.shtml)
-- 2026-06-29 23:00 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/50559686.shtml)
-- 2026-06-29 23:27 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/487876.shtml)
-- 2026-06-29 23:18 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/681879064202.shtml)
-- 2026-06-29 23:25 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/688004761255.shtml)
-- 2026-06-29 23:18 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/23872.shtml)
-- 2026-06-29 23:15 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/77471.shtml)
-- 2026-06-29 23:24 - [周生如故](http://www.share.kurohicncr.top/Article/details/18132990.shtml)
-- 2026-06-29 23:23 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/4601352953.shtml)
-- 2026-06-29 23:28 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/125092.shtml)
-- 2026-06-29 23:25 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/010910.shtml)
-- 2026-06-29 23:07 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/982115380706.shtml)
-- 2026-06-29 23:03 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/9290338.shtml)
-- 2026-06-29 23:01 - [恋与深空 巧合](http://www.share.minike.top/Article/details/9023740440.shtml)
-- 2026-06-29 23:11 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/78940.shtml)
+- 2026-06-29 23:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/38041109664.shtml)
+- 2026-06-29 23:30 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/523273809082.shtml)
+- 2026-06-29 23:27 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/854929700140.shtml)
+- 2026-06-29 23:27 - [流金岁月](http://www.share.minike.top/Article/details/64924705676.shtml)
+- 2026-06-29 23:20 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/4086052.shtml)
+- 2026-06-29 23:16 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/3996006732.shtml)
+- 2026-06-29 23:11 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/1386779925.shtml)
+- 2026-06-29 23:35 - [巴西队主帅称日本队是世界最佳之一](http://www.share.kurohicncr.top/Article/details/780005.shtml)
+- 2026-06-29 23:31 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/995145.shtml)
+- 2026-06-29 23:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/2506961720.shtml)
+- 2026-06-29 23:10 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/006687.shtml)
+- 2026-06-29 23:35 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/55855912598.shtml)
+- 2026-06-29 23:12 - [金刚川](https://www.blog.minike.top/Article/details/76128.shtml)
+- 2026-06-29 23:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/018480810.shtml)
+- 2026-06-29 23:33 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/38356.shtml)

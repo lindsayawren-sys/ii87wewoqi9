@@ -1,56 +1,58 @@
-# 大跌37%，金饰卖不动了
+# 国防部回应美国暂缓对台军售案：美方应慎之又慎处理台湾问题
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！作者丨曾静娇 吴金铎 编辑丨陆跃玲 金条金币热卖，金饰不香了？ 5月9日，据中国黄金协会最新发文，受国际金价高位运行且大幅波动的影响，一季度国内黄金首饰消费持续承压，黄金首饰消费量继续下滑。与此同时，黄金投资需求强劲，金条、金币成为市场热门投资品类，银行销售渠道金条销量大幅增长。 具体来看，2026年一季度
+中新社北京5月28日电 (记者 郭超凯)中国国防部28日举行例行记者会。针对美国正暂缓一项价值140亿美元的对台军售案，国防部新闻发言人蒋斌在会上表示，美方应兑现对中方所作承诺和表态，慎之又慎处理台湾问题。会上有记者提问，美国代理海军部长日前公开表示，美国正暂缓一项价值140亿美元的对台军售案，引发岛内舆论关注。美国会众议院近日公布2027财年《国防授权法案》部分内容，其中“台
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京5月28日电 (记者 郭超凯)中国国防部28日举行例行记者会。
 
-作者丨曾静娇 吴金铎 编辑丨陆跃玲 金条金币热卖，金饰不香了？
+针对美国正暂缓一项价值140亿美元的对台军售案，国防部新闻发言人蒋斌在会上表示，美方应兑现对中方所作承诺和表态，慎之又慎处理台湾问题。
 
-5月9日，据中国黄金协会最新发文，受国际金价高位运行且大幅波动的影响，一季度国内黄金首饰消费持续承压，黄金首饰消费量继续下滑。
+会上有记者提问，美国代理海军部长日前公开表示，美国正暂缓一项价值140亿美元的对台军售案，引发岛内舆论关注。
 
-与此同时，黄金投资需求强劲，金条、金币成为市场热门投资品类，银行销售渠道金条销量大幅增长。
+美国会众议院近日公布2027财年《国防授权法案》部分内容，其中“台湾安全合作倡议”涉及10亿美元，用于协助提升台“防卫能力”。
 
-具体来看，2026年一季度，我国黄金消费量303.292吨，同比增长4.41%。
+请问发言人对此有何评论？
 
-其中：黄金首饰84.62吨，同比下降37.1%；金条及金币202.062吨，同比增长46.4%；工业及其他用金16.61吨，同比下降7.43%。
+蒋斌表示，中方坚决反对美国向中国台湾地区出售武器的立场是一贯、明确的。
 
-国际金价方面，Wind数据显示，2026年一季度，现货黄金走势震荡，最高一度逼近5600美元/盎司，最低下探至4098美元/盎司，区间振幅高达34.75%，仍累计涨约8%。
+美方应恪守一个中国原则和中美三个联合公报特别是“八·一七”公报规定，落实好中美元首会晤重要共识，兑现对中方所作承诺和表态，慎之又慎处理台湾问题，以实际行动维护中美两国两军关系稳定、健康、可持续发展。
 
-国内金饰方面，多家品牌金饰克价最新报价约1432元—1438元，其中周生生、老凤祥为1438元/克，周六福报1432元/克。
+另有记者提问，据报道，美国总统特朗普访华期间接受采访时表示，不希望台湾“独立”，美方无意为台湾远渡9500英里打一场战争。
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 23:04 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 23:13 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 23:17 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 23:17 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 23:24 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 23:14 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 23:25 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 23:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 23:06 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 23:07 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 23:35 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 23:18 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 23:31 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 23:14 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 23:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 23:35 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 23:16 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 23:35 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 23:16 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 23:07 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 23:34 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/392394586931.shtml)
-- 2026-06-29 23:04 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/17948178.shtml)
-- 2026-06-29 23:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/891405014.shtml)
-- 2026-06-29 23:12 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/55458.shtml)
-- 2026-06-29 23:29 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/91312622551.shtml)
-- 2026-06-29 23:08 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/2304824.shtml)
-- 2026-06-29 23:11 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/05988.shtml)
-- 2026-06-29 23:19 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/3825904557.shtml)
-- 2026-06-29 23:01 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/4978756.shtml)
-- 2026-06-29 23:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/0416401.shtml)
-- 2026-06-29 23:10 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/033029315163.shtml)
-- 2026-06-29 23:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/528172170378.shtml)
-- 2026-06-29 23:10 - [斗破苍穹](http://www.share.minike.top/Article/details/889700942938.shtml)
-- 2026-06-29 23:09 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/33748239.shtml)
-- 2026-06-29 23:21 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/240583547.shtml)
+- 2026-06-29 23:10 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/418432051.shtml)
+- 2026-06-29 23:31 - [张凌赫 客串](https://www.share.minike.top/Article/details/579435368.shtml)
+- 2026-06-29 23:23 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/9333277.shtml)
+- 2026-06-29 23:10 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/50764550172.shtml)
+- 2026-06-29 23:18 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/013693492.shtml)
+- 2026-06-29 23:06 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/239704776.shtml)
+- 2026-06-29 23:13 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/6111919.shtml)
+- 2026-06-29 23:16 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/49097322062.shtml)
+- 2026-06-29 23:13 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/79999080862.shtml)
+- 2026-06-29 23:28 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/6884068758.shtml)
+- 2026-06-29 23:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/84509.shtml)
+- 2026-06-29 23:34 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/58461496.shtml)
+- 2026-06-29 23:15 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/3305074757.shtml)
+- 2026-06-29 23:28 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/39301885890.shtml)
+- 2026-06-29 23:33 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/569178574812.shtml)

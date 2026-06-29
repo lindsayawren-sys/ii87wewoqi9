@@ -1,56 +1,59 @@
-# 欧洲央行Guindos呼吁对利率保持“谨慎” 称战争会冲击经济
+# 大基金，减持00981、688126、688035
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-欧洲央行副行长Luis de Guindos表示，在考虑提高利率时应谨慎，因为伊朗战争对经济扩张的全面影响尚未显现。 Guindos在周一发表的采访中表示，能源冲击通常会更快地反映在通胀指标上，而不是经济增长指标上，并说他预计即将公布的经济活动数据“情况不会好”。 “所以我呼吁保持谨慎：未来几周，对经济增长的影响将更加明显。”这位西班牙官员说道，“而且，我们需要这场冲突有更清晰
+【导读】国家大基金出了三条减持消息 来源：中国基金报 记者：泰勒 大家好啊，今晚国家大基金出现了三条减持消息。一起看看。 5月28日晚间，据港交所文件披露，国家集成电路产业投资基金股份有限公司对中芯国际（HK：00981）的多头持仓比例于2026年5月26日从8.08%降至7.99%。 另外，沪硅产业（SH：688126）公告显示，公司于2026年5月28日收到股东国家集成电路
 
 ## 正文
 
-欧洲央行副行长Luis de Guindos表示，在考虑提高利率时应谨慎，因为伊朗战争对经济扩张的全面影响尚未显现。
+【导读】国家大基金出了三条减持消息 来源：中国基金报 记者：泰勒 大家好啊，今晚国家大基金出现了三条减持消息。
 
-Guindos在周一发表的采访中表示，能源冲击通常会更快地反映在通胀指标上，而不是经济增长指标上，并说他预计即将公布的经济活动数据“情况不会好”。
+一起看看。
 
-“所以我呼吁保持谨慎：未来几周，对经济增长的影响将更加明显。
+5月28日晚间，据港交所文件披露，国家集成电路产业投资基金股份有限公司对中芯国际（HK：00981）的多头持仓比例于2026年5月26日从8.08%降至7.99%。
 
-”这位西班牙官员说道，“而且，我们需要这场冲突有更清晰的结论。
+另外，沪硅产业（SH：688126）公告显示，公司于2026年5月28日收到股东国家集成电路产业投资基金股份有限公司出具的告知函，国家集成电路产业投资基金股份有限公司于2026年5月20日至2026年5月28日期间，通过大宗交易方式累计减持公司股份33050230股，其所持有公司股份比例由13.89%减少至12.89%。
 
-”他的任期将于本月结束。
+公告称，本次权益变动为国家集成电路产业投资基金股份有限公司履行已披露的减持股份计划，截至本公告披露日，减持计划尚未实施完毕。
 
-在问及6月会议时Guindos表示，他从不试图在利率决定方面抢跑，并重申霍尔木兹海峡的重新开放“非常重要”。
+德邦科技（SH：688035）发布公告称，公司于2026年5月28日收到国家集成电路产业投资基金股份有限公司出具的《关于股东减持权益变动跨越1%的整数倍的告知函》。
 
-“让我们看看未来几周的数据，看看预测，看看冲突的走向。
+2026年5月19日至2026年5月28日，国家集成电路产业投资基金股份有限公司通过集中竞价及大宗交易方式合计减持公司股份1422400股，其中通过集中竞价方式减持711200股，通过大宗交易方式减持711200股。
 
-”他说，“即使我们很快有停火或和平协议，冲突也会留下痕迹，因为一些基础设施已被摧毁。
+国家集成电路基金持有公司股份数量由18349454股减少至16927054股，占公司总股本的比例由12.90%减少至11.90%。
 
 ## 相关推荐
 
-- 2026-06-29 23:18 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 23:02 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 23:16 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 23:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 23:10 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 23:28 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 23:16 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 23:00 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 23:21 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 23:01 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 23:09 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 23:06 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 23:20 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 23:26 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 23:20 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 23:23 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 23:25 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 23:08 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 23:24 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 23:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 23:15 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 23:06 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 23:27 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:09 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/015428131371.shtml)
-- 2026-06-29 23:24 - [把邻居裸体发群算维权还是侵权](http://www.blog.minike.top/Article/details/602701889.shtml)
-- 2026-06-29 23:03 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/6960117320.shtml)
-- 2026-06-29 23:23 - [第一炉香](http://www.share.kurohicncr.top/Article/details/585037.shtml)
-- 2026-06-29 23:22 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/72159.shtml)
-- 2026-06-29 23:29 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/29883787.shtml)
-- 2026-06-29 23:06 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/2896443300.shtml)
-- 2026-06-29 23:11 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/86566317.shtml)
-- 2026-06-29 23:29 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/76349004345.shtml)
-- 2026-06-29 23:14 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/3527997221.shtml)
-- 2026-06-29 23:13 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/0310199.shtml)
-- 2026-06-29 23:00 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/348428.shtml)
-- 2026-06-29 23:26 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/97324718126.shtml)
-- 2026-06-29 23:02 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/87658.shtml)
-- 2026-06-29 23:07 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/18709782.shtml)
+- 2026-06-29 23:13 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/8029681.shtml)
+- 2026-06-29 23:33 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/3246612997.shtml)
+- 2026-06-29 23:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/0977067.shtml)
+- 2026-06-29 23:20 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/9562910997.shtml)
+- 2026-06-29 23:17 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/428603.shtml)
+- 2026-06-29 23:25 - [青春环游记第三季](https://www.share.minike.top/Article/details/6220144776.shtml)
+- 2026-06-29 23:27 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/2465065681.shtml)
+- 2026-06-29 23:28 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/63845.shtml)
+- 2026-06-29 23:06 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/234631150173.shtml)
+- 2026-06-29 23:18 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/039667961.shtml)
+- 2026-06-29 23:20 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/476924878.shtml)
+- 2026-06-29 23:26 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/41074.shtml)
+- 2026-06-29 23:15 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/9102904550.shtml)
+- 2026-06-29 23:20 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/4885190.shtml)
+- 2026-06-29 23:14 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/091678706.shtml)

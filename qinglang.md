@@ -1,59 +1,61 @@
-# 时政微视频丨家国情 寸草心
+# 珠江委专题研究国家水网调度中心流域（区域）分中心建设工作
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-视频：时政微视频丨家国情 寸草心来源：央视新闻客户端 “慈母手中线，游子身上衣。临行密密缝，意恐迟迟归。谁言寸草心，报得三春晖。”习近平总书记这段深情吟诵，道出了他与母亲的深厚感情。 习近平的母亲齐心是经历战火考验的共产党员，她重言传、重身教，以优良家风培养教育子女。在革命家庭中成长的习近平始终重视家庭、珍视亲情，严于律己、不忘初心。 从陕北小村庄的村支书到党和国家的最高领导人
+中新网广州5月28日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)28日消息，该委近日举行会议，专题研究东南区域(珠江流域)水网调度分中心建设方案，提出成果完善意见和下阶段工作要求。 珠江委介绍，建设国家水网调度中心流域(区域)分中心(简称：调度分中心)，是落实国家水网建设战略部署、完善国家水网调度指挥体系的重要举措。珠江委党组书记、主任吴小龙对此高度重视，要求深入
 
 ## 正文
 
-视频：时政微视频丨家国情 寸草心来源：央视新闻客户端 “慈母手中线，游子身上衣。
+中新网广州5月28日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)28日消息，该委近日举行会议，专题研究东南区域(珠江流域)水网调度分中心建设方案，提出成果完善意见和下阶段工作要求。
 
-临行密密缝，意恐迟迟归。
+珠江委介绍，建设国家水网调度中心流域(区域)分中心(简称：调度分中心)，是落实国家水网建设战略部署、完善国家水网调度指挥体系的重要举措。
 
-谁言寸草心，报得三春晖。
+珠江委党组书记、主任吴小龙对此高度重视，要求深入贯彻落实《国家水网建设规划纲要》和全国水利工作会议精神，强化全委一盘棋，加快推进调度分中心建设。
 
-”习近平总书记这段深情吟诵，道出了他与母亲的深厚感情。
+会议强调，调度分中心是强化流域治理管理、构建“全流域统筹协调、上下游协同联动”的调度管理新格局的重要支撑，各部门各单位要通力协作，共同推进调度分中心建设工作。
 
-习近平的母亲齐心是经历战火考验的共产党员，她重言传、重身教，以优良家风培养教育子女。
+要提高政治站位，各部门各单位要主动担当、协同配合，积极参与调度分中心建设工作，凝聚建设合力，确保各项工作高效有序推进。
 
-在革命家庭中成长的习近平始终重视家庭、珍视亲情，严于律己、不忘初心。
+同时，要把准工作方向，紧扣调度分中心建设的总体要求和职能定位，明确调度分中心的主要业务需求和对象范围，聚焦流域治理管理需求，打造具有流域特色的典型应用场景。
 
-从陕北小村庄的村支书到党和国家的最高领导人，从人民中走来的习近平始终心怀家国、躬身为民，把自己当作人民的勤务员。
+此外，要做好统筹安排，广泛吸纳各方意见建议，不断优化完善建设方案，细化重点任务措施及分工，明确关键节点，确保各项建设任务有序推进、高效落实。
 
-“党中央制定的政策好不好，要看乡亲们是哭还是笑”“共产党就是为人民服务的，就是给老百姓办事的”……为人民做实事，已深深烙在习近平总书记治国理政的思想和实践中。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:01 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 23:03 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 23:12 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 23:19 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 23:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 23:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 23:17 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 23:01 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 23:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 23:20 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 23:28 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 23:23 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 23:10 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 23:29 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 23:13 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 23:30 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 23:32 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 23:30 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 23:25 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 23:14 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 23:14 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 23:14 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 23:20 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 23:15 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 23:07 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 23:33 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 23:27 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 23:23 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:23 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/74230136198.shtml)
-- 2026-06-29 23:08 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/9716298823.shtml)
-- 2026-06-29 23:12 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/1489914.shtml)
-- 2026-06-29 23:28 - [一汽大众黄金超混技术来袭](https://www.share.minike.top/Article/details/51285524.shtml)
-- 2026-06-29 23:02 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/442841106118.shtml)
-- 2026-06-29 23:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/1758541680.shtml)
-- 2026-06-29 23:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/55580.shtml)
-- 2026-06-29 23:14 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/4881772530.shtml)
-- 2026-06-29 23:08 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/7953749.shtml)
-- 2026-06-29 23:00 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/595569293755.shtml)
-- 2026-06-29 23:05 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/364803606002.shtml)
-- 2026-06-29 23:09 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/20023741.shtml)
-- 2026-06-29 23:06 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/33207699049.shtml)
-- 2026-06-29 23:13 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/58452260891.shtml)
-- 2026-06-29 23:27 - [这一刀 会很帅](http://www.share.minike.top/Article/details/53833.shtml)
+- 2026-06-29 23:08 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/6826335859.shtml)
+- 2026-06-29 23:12 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/4165017.shtml)
+- 2026-06-29 23:32 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/2378779872.shtml)
+- 2026-06-29 23:19 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/9310597.shtml)
+- 2026-06-29 23:33 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/20142571.shtml)
+- 2026-06-29 23:30 - [乔家的儿女](https://www.share.minike.top/Article/details/41506.shtml)
+- 2026-06-29 23:12 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/2896407256.shtml)
+- 2026-06-29 23:18 - [金牌调解](http://www.share.minike.top/Article/details/3592898.shtml)
+- 2026-06-29 23:26 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/54746864128.shtml)
+- 2026-06-29 23:17 - [第一炉香](http://www.blog.minike.top/Article/details/1782088388.shtml)
+- 2026-06-29 23:12 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/39041183.shtml)
+- 2026-06-29 23:33 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/5825243087.shtml)
+- 2026-06-29 23:16 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/737669136326.shtml)
+- 2026-06-29 23:13 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/3532044.shtml)
+- 2026-06-29 23:10 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/93699.shtml)

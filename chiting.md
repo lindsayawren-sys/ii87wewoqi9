@@ -1,57 +1,59 @@
-# 第十四届柏林 “中国杯” 围棋大赛落幕
+# 浪潮数字企业午前涨超17% 公司已入选首批智能体互联协议国家级试点
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-中新社柏林5月10日电 (记者 马秀秀)第十四届柏林“中国杯”围棋大赛10日在柏林中国文化中心落幕。 本届赛事为期两天，参赛人数创新高，共汇聚德国、英国、法国、比利时、瑞士、荷兰、乌克兰、中国、韩国等多国68名棋手同台对弈。 参赛阵容既有资深好手，也有青年新锐，业余初段及以上高水平棋手占比近半。赛事同步启用电子棋盘全程实况直播，吸引全球众多围棋爱好者在线观赛。 比赛采用积分赛制
+浪潮数字企业（00596）盘中涨超21%，截至发稿，股价上涨17.34%，现报3.18港元，成交额1.71亿港元。 近日，国家网信办等三部门近日联合印发《智能体规范应用与创新发展实施意见》。明确我国智能体发展的基本原则，并提出在19个典型场景推动智能体应用落地，同时要求加快智能体互联协议（AIP）等关键国家标准的实施推广。据悉，浪潮数字企业此前获批成为智能体互联协议（AIP）首
 
 ## 正文
 
-中新社柏林5月10日电 (记者 马秀秀)第十四届柏林“中国杯”围棋大赛10日在柏林中国文化中心落幕。
+浪潮数字企业（00596）盘中涨超21%，截至发稿，股价上涨17.34%，现报3.18港元，成交额1.71亿港元。
 
-本届赛事为期两天，参赛人数创新高，共汇聚德国、英国、法国、比利时、瑞士、荷兰、乌克兰、中国、韩国等多国68名棋手同台对弈。
+近日，国家网信办等三部门近日联合印发《智能体规范应用与创新发展实施意见》。
 
-参赛阵容既有资深好手，也有青年新锐，业余初段及以上高水平棋手占比近半。
+明确我国智能体发展的基本原则，并提出在19个典型场景推动智能体应用落地，同时要求加快智能体互联协议（AIP）等关键国家标准的实施推广。
 
-赛事同步启用电子棋盘全程实况直播，吸引全球众多围棋爱好者在线观赛。
+据悉，浪潮数字企业此前获批成为智能体互联协议（AIP）首批试点应用单位。
 
-比赛采用积分赛制，经过多轮激烈角逐，留英中国学生李元贞勇夺桂冠。
+开源证券此前指出，当前公司AI业务发展已出具成效，2026年公司将坚定贯彻“1321”业务发展战略，AI业务收入期望增长100%，智算中心收入期望增长50%。
 
-乌克兰棋手瓦列里·克鲁舍尔尼茨基、中国选手鲍一凡分列亚、季军。
+基于海岳大模型，公司逐步推动AI业务升级，目前已经积累如数智业财、智能审核协同、盐化工智控融合等成功案例，智能体数量已从100+增长至300+，覆盖场景从60+增长至100+。
 
-德国棋手亚当·多丹、中国棋手黄尧艺分别获18岁以下青少年组、60岁以上长者组最佳成绩奖。
-
-中国驻德国使馆文化处参赞李琦与柏林中国文化中心副主何文波、柏林围棋协会主席安德里亚斯·乌尔班一同为获奖选手颁奖。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:13 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 23:20 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 23:28 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 23:25 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 23:08 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 23:00 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 23:00 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 23:10 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 23:28 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 23:17 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 23:20 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 23:35 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 23:12 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 23:17 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 23:09 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 23:08 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 23:34 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 23:30 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 23:24 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 23:19 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 23:22 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 23:17 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 23:23 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 23:23 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 23:22 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 23:35 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:08 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/85616.shtml)
-- 2026-06-29 23:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/94856.shtml)
-- 2026-06-29 23:10 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/843677856.shtml)
-- 2026-06-29 23:17 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/35866271.shtml)
-- 2026-06-29 23:12 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/59427780.shtml)
-- 2026-06-29 23:25 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/868622866.shtml)
-- 2026-06-29 23:07 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/3665240610.shtml)
-- 2026-06-29 23:07 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/4754046.shtml)
-- 2026-06-29 23:25 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/6781669.shtml)
-- 2026-06-29 23:11 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/305133399.shtml)
-- 2026-06-29 23:03 - [第一炉香](https://www.share.kurohicncr.top/Article/details/993599.shtml)
-- 2026-06-29 23:11 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/044576122.shtml)
-- 2026-06-29 23:05 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/0624969.shtml)
-- 2026-06-29 23:28 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/635736684.shtml)
-- 2026-06-29 23:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/97872213.shtml)
+- 2026-06-29 23:13 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/071601280.shtml)
+- 2026-06-29 23:18 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/86639.shtml)
+- 2026-06-29 23:19 - [沙丘](https://www.blog.kurohicncr.top/Article/details/5260556076.shtml)
+- 2026-06-29 23:07 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/07060706.shtml)
+- 2026-06-29 23:19 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/62624911.shtml)
+- 2026-06-29 23:26 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/198266119312.shtml)
+- 2026-06-29 23:06 - [扬名立万](http://www.share.minike.top/Article/details/83563689324.shtml)
+- 2026-06-29 23:24 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/85466.shtml)
+- 2026-06-29 23:27 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/535847336.shtml)
+- 2026-06-29 23:09 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/9508594418.shtml)
+- 2026-06-29 23:18 - [世界杯](http://www.share.minike.top/Article/details/72616.shtml)
+- 2026-06-29 23:20 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/219836884.shtml)
+- 2026-06-29 23:22 - [天道](http://www.blog.minike.top/Article/details/120304965.shtml)
+- 2026-06-29 23:32 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/661846864234.shtml)
+- 2026-06-29 23:24 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/458304901933.shtml)

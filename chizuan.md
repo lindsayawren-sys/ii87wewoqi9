@@ -1,52 +1,58 @@
-# 湖南湘潭：高校师生集体“充电”学急救 为突发状况“续航”生命
+# 美伊同意延长停火，韩国股市大幅高开
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 18:01 来源：中国新闻网 近日，湖南湘潭，800名湘潭大学师生在红十字会工作人员和志愿者的带领下集体“充电”，接受心肺复苏应急救护技能培训，增强突发状况下的应对能力，为病患伤员生命紧急“续航”。其间，培训考核合格者将获得中国红十字会颁发的心肺复苏(CPR+AED)培训证书。据悉，作为全国急救教育试点学校，目前，湘潭大学已有3000余名师生获
+韩国股市周五开盘大幅走高，此前有报道称，美国和伊朗已达成协议，延长目前的停火协议。 韩国综合股价指数（KOSPI）开盘上涨199.02点，涨幅2.43%，报8384.31点。 该指数周四下跌0.53%，此前两天收盘曾突破8200点大关。 投资者受到隔夜报道的提振，该报道称华盛顿和德黑兰已同意签署一份谅解备忘录，将停火期限延长60天，并重启伊朗核计划谈判。 在华尔街，受中东局势乐
 
 ## 正文
 
-发布时间：2026年05月09日 18:01 来源：中国新闻网 近日，湖南湘潭，800名湘潭大学师生在红十字会工作人员和志愿者的带领下集体“充电”，接受心肺复苏应急救护技能培训，增强突发状况下的应对能力，为病患伤员生命紧急“续航”。
+韩国股市周五开盘大幅走高，此前有报道称，美国和伊朗已达成协议，延长目前的停火协议。
 
-其间，培训考核合格者将获得中国红十字会颁发的心肺复苏(CPR+AED)培训证书。
+韩国综合股价指数（KOSPI）开盘上涨199.02点，涨幅2.43%，报8384.31点。
 
-据悉，作为全国急救教育试点学校，目前，湘潭大学已有3000余名师生获得该证书。
+该指数周四下跌0.53%，此前两天收盘曾突破8200点大关。
 
-(徐志雄 余欣雨 刘雨轩） 责任编辑：【李季】
+投资者受到隔夜报道的提振，该报道称华盛顿和德黑兰已同意签署一份谅解备忘录，将停火期限延长60天，并重启伊朗核计划谈判。
+
+在华尔街，受中东局势乐观情绪的推动，三大股指均创下历史新高。
+
+道琼斯工业平均指数上涨0.05%，标普500指数上涨0.58%，纳斯达克综合指数上涨0.91%。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 23:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 23:23 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 23:27 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 23:22 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 23:14 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 23:23 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 23:00 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 23:15 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 23:24 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 23:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 23:26 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 23:21 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 23:25 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 23:17 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 23:08 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 23:11 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 23:10 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 23:11 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 23:11 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 23:20 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 23:31 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 23:06 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 23:07 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 23:12 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 23:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 23:25 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 23:24 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 23:26 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:25 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/48285405.shtml)
-- 2026-06-29 23:08 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/746772.shtml)
-- 2026-06-29 23:18 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/56493.shtml)
-- 2026-06-29 23:16 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/702362625.shtml)
-- 2026-06-29 23:02 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/917105.shtml)
-- 2026-06-29 23:24 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/029970664.shtml)
-- 2026-06-29 23:22 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/94645.shtml)
-- 2026-06-29 23:01 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/8509313.shtml)
-- 2026-06-29 23:03 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/6995486.shtml)
-- 2026-06-29 23:25 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/49343228.shtml)
-- 2026-06-29 23:21 - [明星大侦探第四季](https://www.share.minike.top/Article/details/86361030.shtml)
-- 2026-06-29 23:19 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/7703913351.shtml)
-- 2026-06-29 23:14 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/81549.shtml)
-- 2026-06-29 23:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/1385073831.shtml)
-- 2026-06-29 23:08 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/0949887261.shtml)
+- 2026-06-29 23:26 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/0044509582.shtml)
+- 2026-06-29 23:09 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/5908395.shtml)
+- 2026-06-29 23:15 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/97218411492.shtml)
+- 2026-06-29 23:19 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/236550.shtml)
+- 2026-06-29 23:06 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/4237959.shtml)
+- 2026-06-29 23:06 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/660896.shtml)
+- 2026-06-29 23:30 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/10412.shtml)
+- 2026-06-29 23:16 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/86187230796.shtml)
+- 2026-06-29 23:19 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/05391191.shtml)
+- 2026-06-29 23:24 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/04246245.shtml)
+- 2026-06-29 23:08 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/720217912425.shtml)
+- 2026-06-29 23:18 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/95667178.shtml)
+- 2026-06-29 23:08 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/3564318712.shtml)
+- 2026-06-29 23:06 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/15192461591.shtml)
+- 2026-06-29 23:12 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/74174.shtml)

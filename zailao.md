@@ -1,54 +1,61 @@
-# 海内外妈祖敬仰者赴福建湄洲妈祖祖庙春祭妈祖 台胞坦言一定要来
+# 雪花股价暴涨35%，创史上最大单日涨幅，带动软件板块集体走强
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 21:20 来源：中国新闻网 5月9日，农历三月廿三，时值妈祖诞辰日，纪念妈祖诞辰1066周年大会暨春祭妈祖大典在福建莆田湄洲妈祖祖庙天后广场举行。海内外妈祖文化机构代表、妈祖敬仰者及各界人士等近万人齐聚妈祖故里，同谒妈祖，缅怀妈祖立德、行善、大爱的精神。 据统计，在台湾，来自大陆分灵的妈祖宫庙超过3000座。每年妈祖诞辰日前后，许多来自台湾的
+专题：聚焦美股2026年第一季度财报 核心要点 雪花上调业绩指引，并宣布与亚马逊达成人工智能算力合作，股价有望创下历史最佳单日表现。 公司首席财务官布莱恩・罗宾斯表示，Cortex Code 等工具让人工智能业务的营收潜力实现阶跃式提升，同时显著提高运营效率。 近期市场担忧人工智能工具会引发 “SaaS 行业危机”，而雪花的业绩表现打消了这一顾虑。 雪花（SNOW）：上涨 58
 
 ## 正文
 
-发布时间：2026年05月09日 21:20 来源：中国新闻网 5月9日，农历三月廿三，时值妈祖诞辰日，纪念妈祖诞辰1066周年大会暨春祭妈祖大典在福建莆田湄洲妈祖祖庙天后广场举行。
+专题：聚焦美股2026年第一季度财报 核心要点 雪花上调业绩指引，并宣布与亚马逊达成人工智能算力合作，股价有望创下历史最佳单日表现。
 
-海内外妈祖文化机构代表、妈祖敬仰者及各界人士等近万人齐聚妈祖故里，同谒妈祖，缅怀妈祖立德、行善、大爱的精神。
+公司首席财务官布莱恩・罗宾斯表示，Cortex Code 等工具让人工智能业务的营收潜力实现阶跃式提升，同时显著提高运营效率。
 
-据统计，在台湾，来自大陆分灵的妈祖宫庙超过3000座。
+近期市场担忧人工智能工具会引发 “SaaS 行业危机”，而雪花的业绩表现打消了这一顾虑。
 
-每年妈祖诞辰日前后，许多来自台湾的信众回到湄洲祖庙谒祖，参加祭典。
+雪花（SNOW）：上涨 58.50 美元，涨幅 33.38% 周四，数据软件厂商雪花宣布将斥资 60 亿美元采购亚马逊算力，同时凭借人工智能业务利好交出超预期财报，带动整个软件板块走高。
 
-他们将在台湾供奉的妈祖神像恭送到湄洲，与祖庙的妈祖塑像供奉在一起，意为“回娘家”和“团圆”。
+该股盘中大涨 35%，有望创下上市以来最大单日涨幅。
 
-不少台湾信众在接受记者采访时表示，要弘扬妈祖精神，传承妈祖信俗，加强两岸交流合作。
+公司将扩大采用亚马逊自研芯片用于人工智能相关业务。
 
-记者 吴晟炜 福建莆田报道 责任编辑：【卢岩】
+与此同时，雪花发布的财年一季度财报显示，调整后每股收益与营收均超出华尔街预期。
+
+公司首席财务官布莱恩・罗宾斯在周三面向分析师的沟通会上表示，Cortex Code 等人工智能产品，推动公司 AI 业务营收潜力实现阶跃式增长。
 
 ## 相关推荐
 
-- 2026-06-29 23:03 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 23:25 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 23:07 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 23:02 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 23:28 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 23:07 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 23:28 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 23:02 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 23:26 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 23:15 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 23:12 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 23:29 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 23:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 23:11 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 23:25 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 23:32 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 23:16 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 23:21 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 23:08 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 23:34 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 23:13 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 23:34 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 23:27 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 23:26 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 23:31 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/45046.shtml)
-- 2026-06-29 23:09 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/426483962480.shtml)
-- 2026-06-29 23:14 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/40396108.shtml)
-- 2026-06-29 23:08 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/711168493.shtml)
-- 2026-06-29 23:10 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/28866124122.shtml)
-- 2026-06-29 23:24 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/772207.shtml)
-- 2026-06-29 23:24 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/14186624.shtml)
-- 2026-06-29 23:26 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/153694167.shtml)
-- 2026-06-29 23:02 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/5618150.shtml)
-- 2026-06-29 23:15 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/0814576.shtml)
-- 2026-06-29 23:25 - [东方风云榜](http://www.share.minike.top/Article/details/1950032089.shtml)
-- 2026-06-29 23:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/730784053537.shtml)
-- 2026-06-29 23:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/434283203.shtml)
-- 2026-06-29 23:25 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/0146874074.shtml)
-- 2026-06-29 23:03 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/717652733309.shtml)
+- 2026-06-29 23:29 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/86376543.shtml)
+- 2026-06-29 23:27 - [扬名立万](http://www.share.kurohicncr.top/Article/details/607029245401.shtml)
+- 2026-06-29 23:15 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/334842807.shtml)
+- 2026-06-29 23:34 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/565948073.shtml)
+- 2026-06-29 23:14 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/513697350163.shtml)
+- 2026-06-29 23:29 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/872452.shtml)
+- 2026-06-29 23:29 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/412619206.shtml)
+- 2026-06-29 23:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/4187052.shtml)
+- 2026-06-29 23:34 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/72035530.shtml)
+- 2026-06-29 23:24 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/430186158709.shtml)
+- 2026-06-29 23:17 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/872898841257.shtml)
+- 2026-06-29 23:08 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/5910452.shtml)
+- 2026-06-29 23:06 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/93505.shtml)
+- 2026-06-29 23:32 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/031261337.shtml)
+- 2026-06-29 23:20 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/580795272.shtml)

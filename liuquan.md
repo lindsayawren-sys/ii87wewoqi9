@@ -1,61 +1,54 @@
-# 莫迪呼吁民众“禁金”一年应对外汇危机，印度卢比汇率创历史新低
+# 75载风雨同舟，中巴“铁杆情谊” 坚如磐石
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-受中东地区局势紧张导致国际油价飙升影响，印度能源进口成本激增，外汇储备持续承压。印度总理莫迪日前公开呼吁全国民众在未来一年内停止购买黄金，以减少外汇流出。此举引发市场对政府上调黄金进口关税的强烈担忧，印度珠宝零售板块大幅下挫，本币卢比汇率亦于11日跌至历史新低。 据统计，印度作为全球第二大黄金消费国，其黄金需求几乎全部依赖进口。受莫迪此番表态影响，印度珠宝行业股票周一遭遇抛售。
+中新网5月28日电 “巴基斯坦人民最尊敬、最喜爱中国人民。自1951年5月21日建交以来，巴中友好关系逐步发展为全天候战略合作伙伴关系。” 中巴建交75周年之际，巴基斯坦总理夏巴兹就此发表书面致辞，代表巴基斯坦政府、并以个人名义，向两国人民表示衷心祝贺。 75载风雨同舟，中巴战略互信愈发深厚。作为山水相连、命运与共的好朋友和全天候战略合作伙伴，两国赓续传统友谊，深化全方位合作。
 
 ## 正文
 
-受中东地区局势紧张导致国际油价飙升影响，印度能源进口成本激增，外汇储备持续承压。
+中新网5月28日电 “巴基斯坦人民最尊敬、最喜爱中国人民。
 
-印度总理莫迪日前公开呼吁全国民众在未来一年内停止购买黄金，以减少外汇流出。
+自1951年5月21日建交以来，巴中友好关系逐步发展为全天候战略合作伙伴关系。
 
-此举引发市场对政府上调黄金进口关税的强烈担忧，印度珠宝零售板块大幅下挫，本币卢比汇率亦于11日跌至历史新低。
+” 中巴建交75周年之际，巴基斯坦总理夏巴兹就此发表书面致辞，代表巴基斯坦政府、并以个人名义，向两国人民表示衷心祝贺。
 
-据统计，印度作为全球第二大黄金消费国，其黄金需求几乎全部依赖进口。
+75载风雨同舟，中巴战略互信愈发深厚。
 
-受莫迪此番表态影响，印度珠宝行业股票周一遭遇抛售。
+作为山水相连、命运与共的好朋友和全天候战略合作伙伴，两国赓续传统友谊，深化全方位合作。
 
-泰坦公司（Titan）、Senco Gold及Kalyan Jewellers等主要零售商股价跌幅均在6%至9%之间。
+相信双方将以更大智慧与魄力，共同打造新时代更加紧密的中巴命运共同体，继续成为促进区域稳定发展和国际合作的积极力量。
 
-印度金银珠宝协会（IBJA）秘书长梅塔指出，业界普遍担忧政府为抑制进口，可能将关税水平重新上调至近年高位。
-
-此前，印度政府曾于2024年将黄金关税由15%大幅调降至6%以遏制走私，市场预期该政策或将发生逆转。
+(“图览天下”栏目) 文案：甘甜 设计：陈善坤 策划及审校：孟湘君 孔庆玲 谷丽萍 文字来源：中华人民共和国外交部、新华社、人民日报、光明日报、中新网等
 
 ## 相关推荐
 
-- 2026-06-29 23:08 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 23:08 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 23:16 - [炽夏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 23:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 23:10 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 23:24 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 23:01 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 23:25 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 23:26 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 23:07 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 23:02 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 23:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 23:17 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 23:22 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 23:18 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 23:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 23:06 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 23:33 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 23:22 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 23:10 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 23:32 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 23:20 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 23:19 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 23:33 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 23:34 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.minike.top/Article/details/0362971.shtml)
-- 2026-06-29 23:22 - [起风了](https://www.blog.kurohicncr.top/Article/details/49453504.shtml)
-- 2026-06-29 23:24 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/839652230.shtml)
-- 2026-06-29 23:06 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/13199.shtml)
-- 2026-06-29 23:01 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/6477584974.shtml)
-- 2026-06-29 23:05 - [欧洲缘何成为变暖最快的大洲](http://www.blog.kurohicncr.top/Article/details/50641876.shtml)
-- 2026-06-29 23:17 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/2151728656.shtml)
-- 2026-06-29 23:18 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/099469134.shtml)
-- 2026-06-29 23:28 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/7381073488.shtml)
-- 2026-06-29 23:23 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/001698691196.shtml)
-- 2026-06-29 23:02 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/776259009.shtml)
-- 2026-06-29 23:15 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/89744961556.shtml)
-- 2026-06-29 23:25 - [美人鱼](https://www.share.minike.top/Article/details/6792984725.shtml)
-- 2026-06-29 23:08 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/8075285304.shtml)
-- 2026-06-29 23:11 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/3345400.shtml)
+- 2026-06-29 23:15 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/33506286595.shtml)
+- 2026-06-29 23:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/88427.shtml)
+- 2026-06-29 23:34 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/0907256.shtml)
+- 2026-06-29 23:16 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/69543.shtml)
+- 2026-06-29 23:18 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/44947639.shtml)
+- 2026-06-29 23:35 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/23492495616.shtml)
+- 2026-06-29 23:13 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/705554476436.shtml)
+- 2026-06-29 23:19 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/4084744.shtml)
+- 2026-06-29 23:23 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/12949201.shtml)
+- 2026-06-29 23:10 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/0196716283.shtml)
+- 2026-06-29 23:19 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.minike.top/Article/details/106619268576.shtml)
+- 2026-06-29 23:09 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/5110878.shtml)
+- 2026-06-29 23:15 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/661248648.shtml)
+- 2026-06-29 23:08 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/07446384072.shtml)
+- 2026-06-29 23:23 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/81039205.shtml)

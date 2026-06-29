@@ -1,58 +1,57 @@
-# 人民论坛网评 | “八纵八横”，带你提囊归乡和奔赴山海
+# 东西问｜德国汉学家培高德：德国社会如何更好理解当代中国？
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-每逢假日，归乡与远行是神州大地不变的底色。步履匆匆的行人、穿梭往来的列车，承载着万千家庭的期盼，勾勒出流动中国真切的模样。2026年“五一”假期，全国铁路累计发送旅客1.17亿人次，运输安全平稳有序。飞驰列车穿梭城乡，载着提囊归乡的游子、奔赴山海的旅人，盛满团圆期盼与山海向往，绘就流动中国暖意融融的生动图景。人享其行、物畅其流。这1.17亿人次的假日奔赴，正是“十五五”开局之年
+中新社柏林5月28日电 题：德国社会如何更好理解当代中国？——专访德国汉学家、历史学家、波恩大学教授培高德 中新社记者 马秀秀 德国汉学家、历史学家、波恩大学教授培高德(Cord Eberspächer)长期聚焦中国近代史、中德关系及西方对中国认知等研究议题。他近日在接受中新社“东西问”专访时指出，中国在德国公共话语中的形象呈现出历史阶段性变化，而德国社会对华认知的差异，很大程
 
 ## 正文
 
-每逢假日，归乡与远行是神州大地不变的底色。
+中新社柏林5月28日电 题：德国社会如何更好理解当代中国？
 
-步履匆匆的行人、穿梭往来的列车，承载着万千家庭的期盼，勾勒出流动中国真切的模样。
+——专访德国汉学家、历史学家、波恩大学教授培高德 中新社记者 马秀秀 德国汉学家、历史学家、波恩大学教授培高德(Cord Eberspächer)长期聚焦中国近代史、中德关系及西方对中国认知等研究议题。
 
-2026年“五一”假期，全国铁路累计发送旅客1.17亿人次，运输安全平稳有序。
+他近日在接受中新社“东西问”专访时指出，中国在德国公共话语中的形象呈现出历史阶段性变化，而德国社会对华认知的差异，很大程度上源于“距离”的影响。
 
-飞驰列车穿梭城乡，载着提囊归乡的游子、奔赴山海的旅人，盛满团圆期盼与山海向往，绘就流动中国暖意融融的生动图景。
+在培高德看来，德国在“中国能力”建设方面仍具潜力。
 
-人享其行、物畅其流。
+为帮助德国社会更好理解当代中国，既需要改进传播方式，也有赖于两国在更加平等、开放的基础上加强交流互动，缩小认知差距。
 
-这1.17亿人次的假日奔赴，正是“十五五”开局之年，交通服务民生、温暖民心的生动实践，既是铁路事业稳步前行的丰硕成果，也为长远发展留下更多思考。
+现将访谈实录摘要如下： 中新社记者：历史上，中国在德国公共话语中的形象主要经历了哪些阶段性变化？
 
-庞大客流平稳有序流转，映照出我国铁路综合运输体系日趋成熟完善。
+这如何影响德国社会，尤其是普通民众对中国的认知？
 
-“八纵八横”高速铁路网四通八达，不断缩短地域时空距离。
+培高德：近代以前，德国对中国缺乏清晰概念，那时认知多为想象。
 
 ## 相关推荐
 
-- 2026-06-29 23:19 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 23:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 23:03 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 23:17 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 23:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 23:14 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 23:05 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 23:19 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 23:06 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 23:06 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 23:00 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 23:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 23:30 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 23:06 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 23:27 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 23:30 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 23:31 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 23:35 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 23:10 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 23:11 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 23:16 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 23:11 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 23:16 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:14 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/952031757.shtml)
-- 2026-06-29 23:14 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/04291032.shtml)
-- 2026-06-29 23:00 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/812579.shtml)
-- 2026-06-29 23:22 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/513871639772.shtml)
-- 2026-06-29 23:14 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/32139.shtml)
-- 2026-06-29 23:05 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/53590197.shtml)
-- 2026-06-29 23:18 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/7863708.shtml)
-- 2026-06-29 23:17 - [毒液2](https://www.share.minike.top/Article/details/915266.shtml)
-- 2026-06-29 23:06 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/08024083370.shtml)
-- 2026-06-29 23:21 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/827499026.shtml)
-- 2026-06-29 23:15 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/7039263.shtml)
-- 2026-06-29 23:10 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/09001026.shtml)
-- 2026-06-29 23:10 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/0401434.shtml)
-- 2026-06-29 23:10 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/2766081377.shtml)
-- 2026-06-29 23:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/97255173080.shtml)
+- 2026-06-29 23:10 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/8383534.shtml)
+- 2026-06-29 23:08 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/31050.shtml)
+- 2026-06-29 23:35 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/314129452703.shtml)
+- 2026-06-29 23:23 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/05619315.shtml)
+- 2026-06-29 23:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/707960549869.shtml)
+- 2026-06-29 23:27 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/303175286.shtml)
+- 2026-06-29 23:32 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/7108106.shtml)
+- 2026-06-29 23:20 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/68131.shtml)
+- 2026-06-29 23:10 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/4629898.shtml)
+- 2026-06-29 23:20 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/045168235.shtml)
+- 2026-06-29 23:28 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/488024.shtml)
+- 2026-06-29 23:09 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/99946.shtml)
+- 2026-06-29 23:28 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/013709065094.shtml)
+- 2026-06-29 23:18 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/46343977501.shtml)
+- 2026-06-29 23:25 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/07698445827.shtml)

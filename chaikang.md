@@ -1,49 +1,57 @@
-# 4月我国新能源汽车新车销量占有率达53.2%
+# 新疆民众欢庆古尔邦节 海外游客解锁祥和之旅
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-中新网5月11日电 据“中汽协会数据”微信公众号消息，中国汽车工业协会5月11日发布数据显示，4月份我国新能源汽车产销量及出口量均实现稳定增长。 数据显示，4月份我国新能源汽车产销量分别为132万辆和134.4万辆，同比分别增长5.5%和9.7%，新能源汽车新车销量达到汽车新车总销量的53.2%。 整体来看，前4个月，汽车产销分别完成961.4万辆和957.4万辆，其中新能源汽
+中新社乌鲁木齐5月27日电 (苟继鹏)2026年5月27日是古尔邦节，恰逢新疆旅游旺季，位于乌鲁木齐市主城区的新疆国际大巴扎景区内人流如织。 “95后”古丽米热·阿布里米提在此经营一家咖啡店，推出的特色饮品“馕咖啡”成景区爆款。“为迎接激增的客流量，我们从一周前就开始准备，预计今天能卖出600多杯。” 斯洛文尼亚游客内伊奇·诺瓦克点了一杯“馕咖啡”尝鲜。“馕是新疆特色，与咖啡在
 
 ## 正文
 
-中新网5月11日电 据“中汽协会数据”微信公众号消息，中国汽车工业协会5月11日发布数据显示，4月份我国新能源汽车产销量及出口量均实现稳定增长。
+中新社乌鲁木齐5月27日电 (苟继鹏)2026年5月27日是古尔邦节，恰逢新疆旅游旺季，位于乌鲁木齐市主城区的新疆国际大巴扎景区内人流如织。
 
-数据显示，4月份我国新能源汽车产销量分别为132万辆和134.4万辆，同比分别增长5.5%和9.7%，新能源汽车新车销量达到汽车新车总销量的53.2%。
+“95后”古丽米热·阿布里米提在此经营一家咖啡店，推出的特色饮品“馕咖啡”成景区爆款。
 
-整体来看，前4个月，汽车产销分别完成961.4万辆和957.4万辆，其中新能源汽车产销分别完成428.5万辆和430.4万辆；汽车出口312.7万辆，同比增长61.5%，其中新能源汽车出口138.4万辆，同比增长1.2倍。
+“为迎接激增的客流量，我们从一周前就开始准备，预计今天能卖出600多杯。
+
+” 斯洛文尼亚游客内伊奇·诺瓦克点了一杯“馕咖啡”尝鲜。
+
+“馕是新疆特色，与咖啡在一起是一种奇妙的组合。
+
+”他常听在中国的朋友提起新疆的多元文化，这次专门在古尔邦节期间来景区体验。
+
+“整个街区给人一种热闹、祥和之感，当地民众与中外游客一起载歌载舞，充满节日氛围。
+
+” “我非常喜欢这里的建筑风格，当地民众也很开放、热情。
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 23:08 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 23:04 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 23:06 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 23:22 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 23:27 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 23:10 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 23:07 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 23:04 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 23:05 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 23:29 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 23:10 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 23:18 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 23:17 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 23:35 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 23:21 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 23:31 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 23:30 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 23:31 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 23:28 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 23:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 23:21 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 23:33 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 23:07 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:06 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/6544677646.shtml)
-- 2026-06-29 23:06 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/702778683936.shtml)
-- 2026-06-29 23:05 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/84371927.shtml)
-- 2026-06-29 23:00 - [多人将马路护栏当球网打羽毛球](http://www.blog.kurohicncr.top/Article/details/089567394.shtml)
-- 2026-06-29 23:20 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/70961589.shtml)
-- 2026-06-29 23:07 - [返利科技盘中上演“天地板”](https://www.blog.kurohicncr.top/Article/details/471203871353.shtml)
-- 2026-06-29 23:09 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/3228236205.shtml)
-- 2026-06-29 23:14 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/661943.shtml)
-- 2026-06-29 23:24 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/54402045338.shtml)
-- 2026-06-29 23:17 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/818883309.shtml)
-- 2026-06-29 23:15 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/963322981413.shtml)
-- 2026-06-29 23:04 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/1024531097.shtml)
-- 2026-06-29 23:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/60101038962.shtml)
-- 2026-06-29 23:27 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/3665429553.shtml)
-- 2026-06-29 23:08 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/11538.shtml)
+- 2026-06-29 23:21 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/62705871854.shtml)
+- 2026-06-29 23:07 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/623247638.shtml)
+- 2026-06-29 23:19 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/6601368.shtml)
+- 2026-06-29 23:07 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/47965.shtml)
+- 2026-06-29 23:22 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/35391681904.shtml)
+- 2026-06-29 23:31 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/8870278.shtml)
+- 2026-06-29 23:07 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/34654.shtml)
+- 2026-06-29 23:30 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/404702169.shtml)
+- 2026-06-29 23:23 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/435672982682.shtml)
+- 2026-06-29 23:29 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/73204.shtml)
+- 2026-06-29 23:16 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/042686.shtml)
+- 2026-06-29 23:12 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/976412086255.shtml)
+- 2026-06-29 23:25 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/343664315214.shtml)
+- 2026-06-29 23:28 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/65207950110.shtml)
+- 2026-06-29 23:20 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/729351.shtml)

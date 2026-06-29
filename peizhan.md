@@ -1,59 +1,57 @@
-# 白帆竞展吴淞口 上海宝山邮轮港打造水上运动高地
+# 孙晓宇出任小康人寿总精算师！人事拼图渐合，后重生时代续写新章
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-中新网上海5月9日电(记者 张亨伟 李佳佳)5月9日，吴淞口江面白帆竞展，2026上海邮轮港帆船赛在宝山滨江正式启幕。赛事采用统一J80专业帆船组别，吸引海内外20支专业及业余船队、百余名选手参赛。 作为连续第六年落地举办的品牌赛事，上海邮轮港帆船赛自2019年扎根宝山滨江以来，依托“三江交汇、通江达海”的区位优势，推动帆船运动普及、邮轮经济提质与滨江文旅深度融合，已成长为上海
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：机构之家 机构之家注意到，孙晓宇已出任小康人寿保险有限责任公司（以下简称“小康人寿”）总精算师。对于这家总经理悬空十年、高管团队长期精干到近乎单薄的险企而言，总精算师岗位的补齐，无异于补上了一块重要拼图。 总精算师到位，首席投资官仍悬空 回溯公司总精算师一职变动轨迹，原总精算师黄符春自2021年10月起履职，当时正值小康人
 
 ## 正文
 
-中新网上海5月9日电(记者 张亨伟 李佳佳)5月9日，吴淞口江面白帆竞展，2026上海邮轮港帆船赛在宝山滨江正式启幕。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：机构之家 机构之家注意到，孙晓宇已出任小康人寿保险有限责任公司（以下简称“小康人寿”）总精算师。
 
-赛事采用统一J80专业帆船组别，吸引海内外20支专业及业余船队、百余名选手参赛。
+对于这家总经理悬空十年、高管团队长期精干到近乎单薄的险企而言，总精算师岗位的补齐，无异于补上了一块重要拼图。
 
-作为连续第六年落地举办的品牌赛事，上海邮轮港帆船赛自2019年扎根宝山滨江以来，依托“三江交汇、通江达海”的区位优势，推动帆船运动普及、邮轮经济提质与滨江文旅深度融合，已成长为上海颇具影响力的本土水上品牌赛事。
+总精算师到位，首席投资官仍悬空 回溯公司总精算师一职变动轨迹，原总精算师黄符春自2021年10月起履职，当时正值小康人寿更名重组之初，百废待兴。
 
-赛事期间，宝山滨江岸线同步推出水上飞人特技表演、水上拳击对抗、船模操控展示、航海绳艺体验等多元互动活动，实现水上竞技与岸线文旅体验深度融合，丰富市民观赛与参与体验。
+作为公司精算条线的负责人，黄符春同时担纲首席风险官，将产品定价与风险管理集于一身。
 
-借赛事契机，现场正式发布长江口水上运动体验中心全球招商计划。
+2025年7月，黄符春同时卸去总精算师与首席风险官双重职务。
 
-未来，宝山将深挖三江交汇的优质航道资源，打造集专业赛事与大众体验于一体的综合性水上运动目的地。
+接棒精算条线的，是本就身兼执行董事、财务负责人、首席投资官三职的霍康，他以“精算临时负责人”身份顶上，开启了一人横跨精算、投资、财务三大核心职能的超负荷运转期。
 
-目前，宝山已连续两年承办世界F1H2O摩托艇锦标赛中国上海大奖赛，并成为该赛事永久举办地。
+由于总经理一职已悬空近十年，霍康事实上承担着经营主心骨的角色。
 
-2026年，宝山还将引进国际A类赛事——国际摩托艇联合会世界水上摩托锦标赛，同步落地桨板、水上飞人等大众水上休闲项目，为上海北部转型发展和国际消费中心城市建设注入水上经济新动能。
+这一高度集权的人事安排，在特殊时期保证了决策链条不中断，却也暴露出核心人才储备的捉襟见肘。
 
 ## 相关推荐
 
-- 2026-06-29 23:26 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 23:25 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 23:24 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 23:22 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 23:21 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 23:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 23:23 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 23:19 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 23:07 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 23:07 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 23:20 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 23:27 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 23:17 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 23:26 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 23:08 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 23:10 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 23:06 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 23:24 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 23:08 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 23:14 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 23:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 23:18 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 23:09 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 23:21 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/212573291894.shtml)
-- 2026-06-29 23:16 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/70271698679.shtml)
-- 2026-06-29 23:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/7664903.shtml)
-- 2026-06-29 23:11 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/06205131.shtml)
-- 2026-06-29 23:27 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/723738.shtml)
-- 2026-06-29 23:24 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/75993350351.shtml)
-- 2026-06-29 23:08 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/63083938.shtml)
-- 2026-06-29 23:21 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/34336259869.shtml)
-- 2026-06-29 23:25 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/94351097.shtml)
-- 2026-06-29 23:17 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/0164110.shtml)
-- 2026-06-29 23:28 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/617254192.shtml)
-- 2026-06-29 23:18 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/133881100.shtml)
-- 2026-06-29 23:04 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/4098995.shtml)
-- 2026-06-29 23:21 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/9060655.shtml)
-- 2026-06-29 23:15 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/525724107.shtml)
+- 2026-06-29 23:26 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/71138615427.shtml)
+- 2026-06-29 23:32 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/2695701945.shtml)
+- 2026-06-29 23:20 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/4574571.shtml)
+- 2026-06-29 23:10 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/60930.shtml)
+- 2026-06-29 23:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/12274.shtml)
+- 2026-06-29 23:25 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/29024507723.shtml)
+- 2026-06-29 23:35 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/957467000235.shtml)
+- 2026-06-29 23:22 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/85849.shtml)
+- 2026-06-29 23:30 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/576152693.shtml)
+- 2026-06-29 23:06 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/437336456978.shtml)
+- 2026-06-29 23:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/743522204.shtml)
+- 2026-06-29 23:21 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/321898403649.shtml)
+- 2026-06-29 23:24 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/88084597047.shtml)
+- 2026-06-29 23:19 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/72671448.shtml)
+- 2026-06-29 23:21 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/677023348053.shtml)

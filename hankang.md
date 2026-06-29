@@ -1,61 +1,61 @@
-# 加州油价飙升引发政策争议，州长纽森拒绝暂停汽油税
+# 折价超四成！两次流拍，万达小贷股权第三次摆上“货架”
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-近期，美国加利福尼亚州汽油价格持续飙升，全州平均油价位居全美首位。面对日益增加的舆论压力，加州州长加文·纽森于当地时间周五明确拒绝了暂停征收州汽油税的提议，并将高油价归咎于美国前总统特朗普的中东政策。 数据显示，周五加州地区汽油平均价格已攀升至每加仑6.16美元，远高于全美4.54美元的平均水平。受本土炼油厂关闭、对外部石油的高度依赖以及中东地区地缘政治局势持续紧张等多重因素叠
+日前，大连万达集团股份有限公司持有的上海万达小额贷款有限公司（以下称“上海万达小贷”）70%股权，正式进入司法变卖程序。 根据变卖公告，上海市第二中级人民法院将于2026年5月26日10时至2026年7月25日10时止（延时除外），在京东网司法拍卖平台公开进行设有最低变卖价的增价变卖活动，最低变卖底价为4.09亿元，对应标的评估价7.31亿元，较评估价折价约44%，处置进程与定
 
 ## 正文
 
-近期，美国加利福尼亚州汽油价格持续飙升，全州平均油价位居全美首位。
+日前，大连万达集团股份有限公司持有的上海万达小额贷款有限公司（以下称“上海万达小贷”）70%股权，正式进入司法变卖程序。
 
-面对日益增加的舆论压力，加州州长加文·纽森于当地时间周五明确拒绝了暂停征收州汽油税的提议，并将高油价归咎于美国前总统特朗普的中东政策。
+根据变卖公告，上海市第二中级人民法院将于2026年5月26日10时至2026年7月25日10时止（延时除外），在京东网司法拍卖平台公开进行设有最低变卖价的增价变卖活动，最低变卖底价为4.09亿元，对应标的评估价7.31亿元，较评估价折价约44%，处置进程与定价安排均已明确。
 
-数据显示，周五加州地区汽油平均价格已攀升至每加仑6.16美元，远高于全美4.54美元的平均水平。
+截至5月27日15：00，本次变卖活动共有0人报名，69人关注，2522人围观。
 
-受本土炼油厂关闭、对外部石油的高度依赖以及中东地区地缘政治局势持续紧张等多重因素叠加影响，加州本已脆弱的燃料供应网络正面临严峻挤压。
+事实上，此次变卖是该笔股权第三次司法处置，此前两次拍卖均以流拍告终。
 
-部分批评人士警告称，加州政府现行的能源政策正将该州推向危机临界点。
+2026年1月19日至2月1日，标的首次挂牌拍卖，起拍价5.11亿元，因无人出价流拍；3月5日启动二次拍卖，起拍价下调至4.09亿元，降幅近20%，但仍未吸引到竞买者，再次流拍。
 
-针对外界要求实施“汽油税假期”以缓解民众经济压力的呼声，纽森予以否决。
+而此次最新启动的变卖，沿用二次拍卖保留价作为最低底价，采用增价方式处置，不再设置降价空间，符合当前司法资产处置中，网络拍卖两次流拍后转入变卖的通行流程。
 
-他强调，加州政府并未调整燃料的基线成本，当前民众面临的高昂油价并非州政府政策所致。
+据了解，司法变卖属于特殊资产处置方式，本次为设有最低底价的增价变卖模式，以最低底价锁定、允许竞价、成交周期相对固定为主要特点，多用于资产易贬值、权属关系复杂或债权人亟需回笼资金的情形；变卖最低底价通常参照二次拍卖保留价设定，避免资产价值进一步缩水。
 
-纽森指出，导致当前局面的根本原因是前总统唐纳德·特朗普在对伊问题上采取的鲁莽行动。
+此次处置的70%股权归属于大连万达集团，其背后是一起未履行的执行案件——因上海万达小贷未能履行生效法律文书确定的义务，且未承担迟延履行期间的加倍债务利息，法院依法裁定拍卖、变卖该股权以清偿债务。
 
 ## 相关推荐
 
-- 2026-06-29 23:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 23:18 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 23:14 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 23:28 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 23:12 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 23:28 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-29 23:22 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 23:12 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-29 23:29 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 23:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 23:06 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 23:02 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 23:04 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 23:28 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 23:13 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 23:12 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 23:08 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 23:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 23:09 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 23:12 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 23:25 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 23:27 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 23:15 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 23:10 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 23:26 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 23:35 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 23:21 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 23:19 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 23:35 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 23:11 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:11 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/79482489491.shtml)
-- 2026-06-29 23:25 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/1473040011.shtml)
-- 2026-06-29 23:26 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/223636.shtml)
-- 2026-06-29 23:06 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/8979896.shtml)
-- 2026-06-29 23:09 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/108233.shtml)
-- 2026-06-29 23:12 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/705627161.shtml)
-- 2026-06-29 23:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/37806.shtml)
-- 2026-06-29 23:01 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/825166.shtml)
-- 2026-06-29 23:03 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/164996759.shtml)
-- 2026-06-29 23:27 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/0530392.shtml)
-- 2026-06-29 23:04 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/7541232861.shtml)
-- 2026-06-29 23:06 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/4985664890.shtml)
-- 2026-06-29 23:29 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/3010008203.shtml)
-- 2026-06-29 23:27 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/99729.shtml)
-- 2026-06-29 23:09 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/849416414216.shtml)
+- 2026-06-29 23:14 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/792017795964.shtml)
+- 2026-06-29 23:11 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/996596428.shtml)
+- 2026-06-29 23:31 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.minike.top/Article/details/07057504.shtml)
+- 2026-06-29 23:25 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/194803355.shtml)
+- 2026-06-29 23:28 - [恋与深空7天掉粉超50万](http://www.blog.minike.top/Article/details/4340865806.shtml)
+- 2026-06-29 23:24 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/889294040955.shtml)
+- 2026-06-29 23:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/455582294.shtml)
+- 2026-06-29 23:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/934777998657.shtml)
+- 2026-06-29 23:34 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/189918980.shtml)
+- 2026-06-29 23:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/56102996952.shtml)
+- 2026-06-29 23:06 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/6619233.shtml)
+- 2026-06-29 23:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/116521.shtml)
+- 2026-06-29 23:27 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/547947.shtml)
+- 2026-06-29 23:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/191357531018.shtml)
+- 2026-06-29 23:16 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/55926727296.shtml)

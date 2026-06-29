@@ -1,52 +1,57 @@
-# 在轨一年、载荷数量创新高 天舟十号“带货”再添新看点
+# Marvell预计定制芯片业务2029财年营收超100亿美元
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 15:21 来源：中国新闻网 5月11日，在长征七号运载火箭托举下，天舟十号货运飞船在文昌航天发射场发射升空，这是中国空间站迎来的第20艘飞船。作为中国空间站的物资补给“后勤官”，此次任务装载了哪些货物？有何新看点？ 记者 李佳悦 马帅莎 陈英清 责任编辑：【刘湃】
+Marvell Technology周三预测，随着云公司扩展人工智能数据中心，并投资定制芯片以减少对英伟达处理器的依赖，其定制芯片业务2029财年的营收将超过100亿美元。 人工智能的广泛应用推动了对专用芯片的需求，这些芯片与Marvell的互连技术一起，在先进的数据中心中发挥着至关重要的作用，它们连接着用于训练和运行人工智能模型的数千个处理器。 该公司股价今年迄今已上涨超过一
 
 ## 正文
 
-发布时间：2026年05月11日 15:21 来源：中国新闻网 5月11日，在长征七号运载火箭托举下，天舟十号货运飞船在文昌航天发射场发射升空，这是中国空间站迎来的第20艘飞船。
+Marvell Technology周三预测，随着云公司扩展人工智能数据中心，并投资定制芯片以减少对英伟达处理器的依赖，其定制芯片业务2029财年的营收将超过100亿美元。
 
-作为中国空间站的物资补给“后勤官”，此次任务装载了哪些货物？
+人工智能的广泛应用推动了对专用芯片的需求，这些芯片与Marvell的互连技术一起，在先进的数据中心中发挥着至关重要的作用，它们连接着用于训练和运行人工智能模型的数千个处理器。
 
-有何新看点？
+该公司股价今年迄今已上涨超过一倍。
 
-记者 李佳悦 马帅莎 陈英清 责任编辑：【刘湃】
+晨星分析师威廉·克尔温表示，Marvell的定制芯片收入预期“意味着仅一项业务就能在2028财年至2029财年带来50亿美元的新增收入，预示着2029财年将再次实现强劲增长”。
+
+Marvell目前预计2028财年营收将增长至约165亿美元，高于此前预测的150亿美元。
+
+Marvell预计第二季度营收为27亿美元，上下浮动5%，高于LSEG调查的分析师平均预期的26亿美元。
+
+调整后每股收益预计为93美分，上下浮动5美分，高于预期的90美分。
+
+Marvell和规模更大的竞争对手博通 （Broadcom） 帮助云计算公司设计定制芯片，以满足其特定的数据中心需求。
 
 ## 相关推荐
 
-- 2026-06-29 23:23 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 23:26 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 23:06 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 23:02 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 23:20 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 23:23 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 23:00 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 23:27 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 23:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 23:02 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 23:17 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 23:02 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 23:15 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 23:00 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 23:34 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 23:07 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 23:29 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 23:16 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 23:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 23:10 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 23:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 23:30 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 23:27 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 23:12 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 23:15 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:21 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/7152240.shtml)
-- 2026-06-29 23:12 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/550598.shtml)
-- 2026-06-29 23:16 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/0384129.shtml)
-- 2026-06-29 23:07 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/456566.shtml)
-- 2026-06-29 23:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/67755125.shtml)
-- 2026-06-29 23:04 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/998230789184.shtml)
-- 2026-06-29 23:05 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/2091961819.shtml)
-- 2026-06-29 23:10 - [欧洲缘何成为变暖最快的大洲](https://www.share.minike.top/Article/details/5565650.shtml)
-- 2026-06-29 23:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/8201924.shtml)
-- 2026-06-29 23:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/083746706212.shtml)
-- 2026-06-29 23:08 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/292147014.shtml)
-- 2026-06-29 23:16 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/823913609822.shtml)
-- 2026-06-29 23:07 - [千与千寻](http://www.share.minike.top/Article/details/2182601.shtml)
-- 2026-06-29 23:27 - [金刚川](http://www.blog.minike.top/Article/details/1847959039.shtml)
-- 2026-06-29 23:21 - [恋与深空7天掉粉超50万](http://www.blog.kurohicncr.top/Article/details/7535974.shtml)
+- 2026-06-29 23:17 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/69699.shtml)
+- 2026-06-29 23:32 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/76046.shtml)
+- 2026-06-29 23:25 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/59012822.shtml)
+- 2026-06-29 23:30 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/5319632.shtml)
+- 2026-06-29 23:13 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/678636044424.shtml)
+- 2026-06-29 23:19 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/53294828739.shtml)
+- 2026-06-29 23:12 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/6710295098.shtml)
+- 2026-06-29 23:18 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/6174422238.shtml)
+- 2026-06-29 23:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/19569.shtml)
+- 2026-06-29 23:26 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/250708814139.shtml)
+- 2026-06-29 23:15 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/346732.shtml)
+- 2026-06-29 23:28 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/30369108168.shtml)
+- 2026-06-29 23:19 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/2477335.shtml)
+- 2026-06-29 23:09 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/282202841789.shtml)
+- 2026-06-29 23:15 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/95014368.shtml)

@@ -1,44 +1,57 @@
-# 新思想引领新征程丨长三角一体化发展不断取得新突破
+# 东西问｜武契奇到访中共一大纪念馆，这处红色地标何以越来越吸引国际目光？
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 21:51 来源：央视新闻客户端 责任编辑：【李太源】
+中新社上海5月28日电 题：武契奇到访中共一大纪念馆，这处红色地标何以越来越吸引国际目光？ 中新社记者 许婧 2026年5月28日，正在对中国进行国事访问的塞尔维亚总统武契奇，在上海参观中共一大纪念馆。他表示，被中国人勤奋努力与持之以恒的品质所打动。 武契奇的到访，令中共一大会址这一见证历史起点的红色地标再次受到国际关注。越来越多外国政要、学者与游客正将这里作为读懂中国的必到一
 
 ## 正文
 
-发布时间：2026年05月11日 21:51 来源：央视新闻客户端 责任编辑：【李太源】
+中新社上海5月28日电 题：武契奇到访中共一大纪念馆，这处红色地标何以越来越吸引国际目光？
+
+中新社记者 许婧 2026年5月28日，正在对中国进行国事访问的塞尔维亚总统武契奇，在上海参观中共一大纪念馆。
+
+他表示，被中国人勤奋努力与持之以恒的品质所打动。
+
+武契奇的到访，令中共一大会址这一见证历史起点的红色地标再次受到国际关注。
+
+越来越多外国政要、学者与游客正将这里作为读懂中国的必到一站。
+
+中共一大纪念馆何以突破地域与文化隔阂，持续吸引全球目光？
+
+中共一大纪念馆相关负责人近日接受中新社“东西问”采访时说，红色地标的国际吸引力根植于其不可复制的历史价值与精神内核。
+
+精神内核构筑跨域吸引力 这份精神共鸣与价值契合，在日益频繁的国际交流中充分彰显。
 
 ## 相关推荐
 
-- 2026-06-29 23:17 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 23:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 23:21 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 23:05 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 23:21 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 23:24 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 23:22 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 23:28 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 23:29 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 23:08 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 23:14 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 23:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 23:20 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 23:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 23:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 23:16 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 23:18 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 23:18 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 23:25 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 23:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 23:18 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 23:25 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 23:28 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:15 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/266900546150.shtml)
-- 2026-06-29 23:19 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/35576.shtml)
-- 2026-06-29 23:29 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/51266683.shtml)
-- 2026-06-29 23:03 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/8757074.shtml)
-- 2026-06-29 23:25 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/3511342.shtml)
-- 2026-06-29 23:21 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/76237716.shtml)
-- 2026-06-29 23:17 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/0065177003.shtml)
-- 2026-06-29 23:29 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/75591250285.shtml)
-- 2026-06-29 23:06 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/0887261764.shtml)
-- 2026-06-29 23:14 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/40320022.shtml)
-- 2026-06-29 23:17 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/19087.shtml)
-- 2026-06-29 23:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/9876586.shtml)
-- 2026-06-29 23:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/306836345245.shtml)
-- 2026-06-29 23:17 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/07373151775.shtml)
-- 2026-06-29 23:15 - [扫黑风暴](https://www.blog.minike.top/Article/details/3043534430.shtml)
+- 2026-06-29 23:17 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/61894.shtml)
+- 2026-06-29 23:14 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/1214803961.shtml)
+- 2026-06-29 23:11 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/4906620.shtml)
+- 2026-06-29 23:20 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/23829331.shtml)
+- 2026-06-29 23:18 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/352609652.shtml)
+- 2026-06-29 23:12 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/462086668.shtml)
+- 2026-06-29 23:29 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/97942781329.shtml)
+- 2026-06-29 23:20 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/284448918653.shtml)
+- 2026-06-29 23:21 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/5471396709.shtml)
+- 2026-06-29 23:20 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/0331909866.shtml)
+- 2026-06-29 23:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/280619.shtml)
+- 2026-06-29 23:19 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/387685.shtml)
+- 2026-06-29 23:26 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/1759623.shtml)
+- 2026-06-29 23:28 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/6918004447.shtml)
+- 2026-06-29 23:20 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/59670014.shtml)

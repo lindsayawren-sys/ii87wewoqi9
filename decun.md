@@ -1,58 +1,59 @@
-# 中国互联网金融协会互联网贷款自律工作委员会筹备组第一次会议在京召开
+# 王毅会见土库曼斯坦副总理兼外长梅列多夫
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-来源：中国互联网金融协会 近日，中国互联网金融协会互联网贷款自律工作委员会筹备组（简称筹备组）第一次会议在京召开。协会党委书记、秘书长马超主持会议并讲话，度小满、蚂蚁科技、腾讯、京东科技、抖音等会员单位负责互联网信贷业务的相关负责人出席会议。 会议审议通过了筹备组工作规则，明确筹备期主要工作任务是：研究提出工作委员会首届委员建议名单；制定引领行业高质量发展、树立行业良好形象的相
+新华社纽约5月27日电 当地时间27日，中共中央政治局委员、外交部长王毅在纽约会见土库曼斯坦副总理兼外长梅列多夫。 王毅感谢梅列多夫专程来纽约出席安理会高级别会议，表示国际形势越是复杂多变，越要坚守多边主义，维护联合国权威，否则全球南方国家将首当其冲受到影响。联合国是中土合作的重要舞台。双方要进一步密切协作，相互支持对方提出的重大倡议，彰显中土全面战略伙伴关系的高水平。 王毅表
 
 ## 正文
 
-来源：中国互联网金融协会 近日，中国互联网金融协会互联网贷款自律工作委员会筹备组（简称筹备组）第一次会议在京召开。
+新华社纽约5月27日电 当地时间27日，中共中央政治局委员、外交部长王毅在纽约会见土库曼斯坦副总理兼外长梅列多夫。
 
-协会党委书记、秘书长马超主持会议并讲话，度小满、蚂蚁科技、腾讯、京东科技、抖音等会员单位负责互联网信贷业务的相关负责人出席会议。
+王毅感谢梅列多夫专程来纽约出席安理会高级别会议，表示国际形势越是复杂多变，越要坚守多边主义，维护联合国权威，否则全球南方国家将首当其冲受到影响。
 
-会议审议通过了筹备组工作规则，明确筹备期主要工作任务是：研究提出工作委员会首届委员建议名单；制定引领行业高质量发展、树立行业良好形象的相关举措，并在行业内倡导实施；代表行业及时报告有关息费压降、明示工作和营销、催收等活动面临的风险、问题、困难，提出政策建议；起草相关自律公约、规则、指引等自律规范性文件等。
+联合国是中土合作的重要舞台。
 
-筹备组议事采取现场会议形式，在“充分讨论、协商一致”的基础上形成决议。
+双方要进一步密切协作，相互支持对方提出的重大倡议，彰显中土全面战略伙伴关系的高水平。
 
-会议审议通过了筹备组成员标准，从符合性指标、基础分指标和加减分指标等三方面构建筹备组成员综合评价遴选体系。
+王毅表示，土民族领袖、人民委员会主席别尔德穆哈梅多夫3月成功访华，两国领导人互信与友谊持续深化，为双边关系发展提供强有力战略保障。
 
-其中，符合性指标是加入筹备组必须满足的前置条件，包括应是协会会员、主体资质完备、承诺遵守自律规则、按要求报送数据、未出现严重影响行业声誉和形象的负面事件等；基础分指标和加减分指标采用评分制，包括运营指标类、风险防控类、消费者保护类和履职情况类、行业表率类、行业影响类等。
+中方愿同土方一道，落实好两国领导人共识，推进大项目合作，助力土多元化发展，推动中土关系展现新活力。
 
-有关从业机构申请加入筹备组的，应满足符合性指标要求且综合评分较高，并经协会秘书处审核后按照工作规则提请筹备组批准。
+梅列多夫表示，感谢中方倡议举办安理会高级别会议并邀请土方出席。
 
-会议讨论了关于“引领行业健康发展、树立行业良好形象”的系列举措。
+当前国际形势下，维护联合国宪章、改革完善全球治理尤为重要。
 
 ## 相关推荐
 
-- 2026-06-29 23:03 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 23:06 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 23:02 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 23:21 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 23:08 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 23:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 23:13 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 23:15 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 23:26 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 23:12 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 23:01 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 23:28 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 23:30 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 23:15 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 23:29 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 23:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 23:22 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 23:12 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 23:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 23:09 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 23:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 23:12 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 23:29 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 23:14 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 23:34 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:25 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/917880.shtml)
-- 2026-06-29 23:21 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/963067.shtml)
-- 2026-06-29 23:22 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/501642393.shtml)
-- 2026-06-29 23:16 - [一生一世](http://www.blog.minike.top/Article/details/4146503618.shtml)
-- 2026-06-29 23:14 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/1825161.shtml)
-- 2026-06-29 23:20 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/53436514104.shtml)
-- 2026-06-29 23:02 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/77344102508.shtml)
-- 2026-06-29 23:18 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/4209900217.shtml)
-- 2026-06-29 23:08 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/34297528120.shtml)
-- 2026-06-29 23:24 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/324720970.shtml)
-- 2026-06-29 23:27 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/1159136.shtml)
-- 2026-06-29 23:22 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/8057923.shtml)
-- 2026-06-29 23:19 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/51655.shtml)
-- 2026-06-29 23:07 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/57991426.shtml)
-- 2026-06-29 23:18 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/1464392432.shtml)
+- 2026-06-29 23:22 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/56329.shtml)
+- 2026-06-29 23:10 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/710906890.shtml)
+- 2026-06-29 23:13 - [女心理师](http://www.share.minike.top/Article/details/596320485867.shtml)
+- 2026-06-29 23:27 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/86816.shtml)
+- 2026-06-29 23:18 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/08634906.shtml)
+- 2026-06-29 23:16 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/448949139456.shtml)
+- 2026-06-29 23:33 - [存储三巨头被告了](https://www.share.minike.top/Article/details/24765808105.shtml)
+- 2026-06-29 23:24 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/71649.shtml)
+- 2026-06-29 23:06 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/74630828.shtml)
+- 2026-06-29 23:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/292100456004.shtml)
+- 2026-06-29 23:07 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/44516068.shtml)
+- 2026-06-29 23:10 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/00207937.shtml)
+- 2026-06-29 23:32 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/56330043322.shtml)
+- 2026-06-29 23:27 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/677945690.shtml)
+- 2026-06-29 23:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/341715740109.shtml)

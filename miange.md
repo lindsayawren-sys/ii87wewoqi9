@@ -1,58 +1,59 @@
-# 2026国际青春诗会（中阿专场）嘉宾探访广州 中外诗人邂逅岭南文脉
+# 建筑系统解决方案公司Limbach将出席Stifel波士顿跨行业一对一会议
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-拓年画、品荔枝、赴诗约……国际青春诗会(中阿专场)嘉宾深度探访广州 中外诗人邂逅岭南文脉 2026国际青春诗会(中国—阿拉伯国家专场)开幕，中外诗人及特邀嘉宾开启广州深度探访之旅。 5月9日至10日，一行人先后走进广东文学馆、广东非遗馆、小鹏科技园与广州市文化馆，以岭南沃土为媒介，沉浸式品读广州千年文脉、非遗匠心底蕴与前沿科创活力，在一步一景的深度体验中，真切感受花城的包容温情
+建筑系统解决方案公司Limbach Holdings近日宣布，将出席2026年6月2日举行的Stifel第九届波士顿跨行业一对一会议。公司管理层将在会议当天与投资者进行一对一的交流，介绍业务进展及战略规划。 Q1业绩：营收增长，盈利承压 就在此次会议宣布前约三周，Limbach刚刚公布了2026年第一季度财报。公司当季营收为1.389亿美元，同比增长4.3%，符合管理层预期。然
 
 ## 正文
 
-拓年画、品荔枝、赴诗约……国际青春诗会(中阿专场)嘉宾深度探访广州 中外诗人邂逅岭南文脉 2026国际青春诗会(中国—阿拉伯国家专场)开幕，中外诗人及特邀嘉宾开启广州深度探访之旅。
+建筑系统解决方案公司Limbach Holdings近日宣布，将出席2026年6月2日举行的Stifel第九届波士顿跨行业一对一会议。
 
-5月9日至10日，一行人先后走进广东文学馆、广东非遗馆、小鹏科技园与广州市文化馆，以岭南沃土为媒介，沉浸式品读广州千年文脉、非遗匠心底蕴与前沿科创活力，在一步一景的深度体验中，真切感受花城的包容温情与多元魅力，深深爱上这座诗意盎然的岭南之城。
+公司管理层将在会议当天与投资者进行一对一的交流，介绍业务进展及战略规划。
 
-文、图/广州日报全媒体记者吴波体悟书法之美 写下“诗意永存” 在广东文学馆，诗人们循着百年文学脉络，逐一探访“海上明月：广东古代文学展厅”“鲁迅家”特展、红色经典展等核心展区，系统梳理岭南文学的发展轨迹，体悟中国文学蕴藏的山海襟怀与人文风骨。
+Q1业绩：营收增长，盈利承压 就在此次会议宣布前约三周，Limbach刚刚公布了2026年第一季度财报。
 
-伊拉克诗人穆罕默德·贾米勒驻足古籍手抄本前久久凝望，细细比对中阿书法的艺术异同，赞叹两种文字各有风致。
+公司当季营收为1.389亿美元，同比增长4.3%，符合管理层预期。
 
-他表示，诗歌与语言是跨越山海的文化纽带，让异域友人读懂中国、亲近广州，这场双向奔赴的文学相遇珍贵而深刻，期待未来中阿诗人能够深耕交流、常来常往，碰撞出更多诗意火花。
+然而，盈利端出现明显下滑：净利润降至440万美元，较上年同期的1020万美元下降57.1%；调整后EBITDA为870万美元，较上年同期的1490万美元下降41.7%。
 
-参观尾声，中外诗人齐聚留言墙，提笔抒怀、以墨寄情，用不同文字书写对广州的喜爱与对文学的赤诚。
+盈利下滑主要归因于三方面因素：ODR业务收入下降导致的固定成本吸收不足、上年度高额净项目调增的缺失，以及新收购的Pioneer Power业务利润率偏低。
 
-埃及诗人、小说家穆尼尔·阿提巴深情留言，坦言沉醉于厚重隽永的中国文化，并为此落笔成诗，愿这份跨越国界的文化热爱纯粹如初、岁岁绵长。
+业主直接关系业务：战略转型的核心 Limbach近年来的核心战略是向业主直接关系业务转型，即直接服务于拥有关键基础设施的建筑业主，而非依赖新建项目的总承包商关系业务。
 
-中国诗人希贤挥笔写下“诗意永存”四字，字句简约却意蕴悠远，寄托着文脉永续、友谊长青的美好期许。
+2024年，ODR业务已贡献了公司约67%的收入和约75%的毛利润。
 
 ## 相关推荐
 
-- 2026-06-29 23:24 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 23:15 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 23:02 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 23:02 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 23:18 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 23:27 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 23:26 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 23:12 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 23:06 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 23:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 23:12 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 23:25 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 23:14 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 23:30 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 23:23 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 23:12 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 23:08 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 23:19 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 23:30 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 23:22 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 23:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 23:10 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 23:34 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 23:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 23:20 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:07 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/67481.shtml)
-- 2026-06-29 23:22 - [欧洲缘何成为变暖最快的大洲](https://www.blog.minike.top/Article/details/74711238685.shtml)
-- 2026-06-29 23:04 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/60745239053.shtml)
-- 2026-06-29 23:19 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/34728863.shtml)
-- 2026-06-29 23:27 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/59331.shtml)
-- 2026-06-29 23:29 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/564185011488.shtml)
-- 2026-06-29 23:23 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/03066131466.shtml)
-- 2026-06-29 23:00 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/356846699362.shtml)
-- 2026-06-29 23:05 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/96164859.shtml)
-- 2026-06-29 23:29 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/985854901114.shtml)
-- 2026-06-29 23:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/2891655.shtml)
-- 2026-06-29 23:24 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/091810.shtml)
-- 2026-06-29 23:04 - [周生如故](http://www.blog.minike.top/Article/details/2724070584.shtml)
-- 2026-06-29 23:20 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/885090107146.shtml)
-- 2026-06-29 23:13 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/121411193.shtml)
+- 2026-06-29 23:33 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/9652345.shtml)
+- 2026-06-29 23:23 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/744489.shtml)
+- 2026-06-29 23:14 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/537354202.shtml)
+- 2026-06-29 23:09 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/35409017.shtml)
+- 2026-06-29 23:19 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/8292319.shtml)
+- 2026-06-29 23:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/98257803596.shtml)
+- 2026-06-29 23:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/7762388190.shtml)
+- 2026-06-29 23:35 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/57601288.shtml)
+- 2026-06-29 23:33 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/363653.shtml)
+- 2026-06-29 23:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/7693751146.shtml)
+- 2026-06-29 23:23 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/150990725887.shtml)
+- 2026-06-29 23:10 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/853735037.shtml)
+- 2026-06-29 23:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/60432236.shtml)
+- 2026-06-29 23:27 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/847433919.shtml)
+- 2026-06-29 23:24 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/4307657.shtml)

@@ -1,58 +1,57 @@
-# 知名房企巨头华夏幸福被*ST，巨亏226亿元，股价大跌94%
+# 深交所理事长沙雁：让优质创新企业“进得来” 让创新价值“成长快” 让投资创新“共赢多”
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-来源：21财经网 “五一”假期过后的首个交易日，上市15年的华夏幸福，股票简称变成了*ST华幸，退市风险凸显。 假期前的4月30日，华夏幸福在2025年年报中披露了详情。根据年报，去年华夏幸福的归母净资产为-177.43亿元，即资不抵债。 同时，去年华夏幸福的扣非净利润为-226.04亿元，较2024年的-115.80亿元扩大近一倍，且已连续三年亏损。 按照规定，华夏幸福的股票
+专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月28日，深交所2026全球投资者大会举行，深圳证券交易所理事长沙雁致辞。沙雁指出，当前全球科技创新快速演进，各主要资本市场都在积极推进改革适应产业创新发展需要，构建更加高效包容的创新资本生态。我们也将深入落实“十五五”
 
 ## 正文
 
-来源：21财经网 “五一”假期过后的首个交易日，上市15年的华夏幸福，股票简称变成了*ST华幸，退市风险凸显。
+专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-假期前的4月30日，华夏幸福在2025年年报中披露了详情。
+5月28日，深交所2026全球投资者大会举行，深圳证券交易所理事长沙雁致辞。
 
-根据年报，去年华夏幸福的归母净资产为-177.43亿元，即资不抵债。
+沙雁指出，当前全球科技创新快速演进，各主要资本市场都在积极推进改革适应产业创新发展需要，构建更加高效包容的创新资本生态。
 
-同时，去年华夏幸福的扣非净利润为-226.04亿元，较2024年的-115.80亿元扩大近一倍，且已连续三年亏损。
+我们也将深入落实“十五五”规划要求，持续深化资本市场投融资综合改革，更好适配新兴产业和未来产业的发展需要，更好服务科技创新和新质深交所理事长沙雁：中国新兴产业和未来产业发展以及传统产业转型升级，蕴藏着巨生产力发展。
 
-按照规定，华夏幸福的股票被实施退市风险警示，公司股票将在风险警示板交易，股票价格日涨跌幅限制为5%。
+她表示，我们坚信，包容创新的上市环境能让优质创新企业“进得来”，全链条监管服务体系能让创新价值“成长快”，持续向好的市场生态能让投资创新“共赢多”。
 
-同时，若2026年度公司净资产仍为负值，股票将被终止上市。
-
-截至5月8日收盘，华夏幸福股价报1.1元/股，市值43亿元，股东总户数18.2万，昔日环京地产巨头，最新股价距离上市高峰期跌去94%。
-
-责任编辑：张恒星
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 23:08 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 23:15 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 23:12 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 23:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 23:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 23:18 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 23:07 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 23:27 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 23:29 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 23:19 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 23:10 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 23:29 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 23:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 23:12 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 23:30 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 23:16 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 23:35 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 23:29 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 23:27 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 23:06 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 23:21 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 23:11 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 23:07 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 23:23 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 23:28 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 23:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 23:23 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:02 - [急先锋](http://www.blog.minike.top/Article/details/47474.shtml)
-- 2026-06-29 23:16 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/95969.shtml)
-- 2026-06-29 23:11 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/4282699.shtml)
-- 2026-06-29 23:15 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/616551.shtml)
-- 2026-06-29 23:17 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/48274960.shtml)
-- 2026-06-29 23:02 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/638648319.shtml)
-- 2026-06-29 23:08 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/7961514.shtml)
-- 2026-06-29 23:10 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/5890454458.shtml)
-- 2026-06-29 23:20 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/456803655.shtml)
-- 2026-06-29 23:23 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/722216.shtml)
-- 2026-06-29 23:26 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/878687397734.shtml)
-- 2026-06-29 23:21 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/64306.shtml)
-- 2026-06-29 23:09 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/44791.shtml)
-- 2026-06-29 23:27 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/28038920199.shtml)
-- 2026-06-29 23:24 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/401800.shtml)
+- 2026-06-29 23:07 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/3062691.shtml)
+- 2026-06-29 23:33 - [急先锋](http://www.blog.minike.top/Article/details/989348498.shtml)
+- 2026-06-29 23:29 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/913971.shtml)
+- 2026-06-29 23:20 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/289482279.shtml)
+- 2026-06-29 23:14 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/8266598.shtml)
+- 2026-06-29 23:23 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/351470.shtml)
+- 2026-06-29 23:11 - [新官上任三把火](https://www.share.minike.top/Article/details/4674908774.shtml)
+- 2026-06-29 23:24 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/628885.shtml)
+- 2026-06-29 23:17 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/9473376.shtml)
+- 2026-06-29 23:28 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/34656.shtml)
+- 2026-06-29 23:23 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/726861887435.shtml)
+- 2026-06-29 23:34 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/06230009.shtml)
+- 2026-06-29 23:19 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/336169854.shtml)
+- 2026-06-29 23:06 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/25620.shtml)
+- 2026-06-29 23:34 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/667022551355.shtml)

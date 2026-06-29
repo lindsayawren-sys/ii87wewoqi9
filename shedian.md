@@ -1,61 +1,53 @@
-# 存储超级周期持续发力，澜起科技飙升16%创新高！华宝基金科创芯片ETF（589190）冲高4%，国产算力进入爆发期
+# 超120件广东艺术精品亮相香港艺术馆
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-5月11日早盘，国产芯片再起攻势，澜起科技一度涨超16%再创历史新高，现涨逾13%；中船特气涨超12%同步创下新高。海光信息、佰维存储涨超4%，华虹公司涨超3%。全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格涨幅一度冲高4%，现涨3.06%。 受生成式AI爆发式增长的驱动，AI服务器对存储需求呈现指数级的增长。根据DRAMexchange数据，DRAM（DDR
+中新网香港5月28日电 “粤艺远洋——沐文堂广东及外销艺术捐赠展”预展及开幕典礼28日在香港艺术馆举行，展出香港艺术收藏家关善明捐赠的超120件广东艺术精品。 香港特区政府文化体育及旅游局局长罗淑佩在致辞时表示，这批文物体系完整，门类丰富，如今落户香港，有助于巩固香港艺术馆在外销艺术收藏及研究领域的全球领导地位，也正好呼应香港作为中外文化交流中心的重要角色。 关善明表示，非常欣
 
 ## 正文
 
-5月11日早盘，国产芯片再起攻势，澜起科技一度涨超16%再创历史新高，现涨逾13%；中船特气涨超12%同步创下新高。
+中新网香港5月28日电 “粤艺远洋——沐文堂广东及外销艺术捐赠展”预展及开幕典礼28日在香港艺术馆举行，展出香港艺术收藏家关善明捐赠的超120件广东艺术精品。
 
-海光信息、佰维存储涨超4%，华虹公司涨超3%。
+香港特区政府文化体育及旅游局局长罗淑佩在致辞时表示，这批文物体系完整，门类丰富，如今落户香港，有助于巩固香港艺术馆在外销艺术收藏及研究领域的全球领导地位，也正好呼应香港作为中外文化交流中心的重要角色。
 
-全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格涨幅一度冲高4%，现涨3.06%。
+关善明表示，非常欣慰将超2000件藏品悉数捐赠予香港艺术馆以进行研究、修复、出版、贮存和展览等重要工作，助力香港艺术馆更具代表性地展示广东文化，进一步弘扬岭南艺术。
 
-受生成式AI爆发式增长的驱动，AI服务器对存储需求呈现指数级的增长。
+展览展出的超120件广东艺术精品涵盖外销画、画珐琅、银器、扇具等，展示清代广东工匠如何兼顾宫廷审美、外销需求与本地风尚，见证了广东工艺全球化的黄金时代。
 
-根据DRAMexchange数据，DRAM（DDR3 4GB 512Mx8，1600MHz）现货2025年大涨超410%，2026年以来持续大涨近120%。
+展览同时设置互动体验区，通过互动屏幕把观众带回19世纪的广东，“亲身”体验清代广东独有的玻璃画工艺。
 
-截至当前，存储芯片价格已创下历史新高。
-
-中信证券研报指出，3月以来存储价格再度上调，证明存储行业景气度维持高位。
-
-该机构判断供不应求将持续至2027年，涨价贯穿2026年全年，坚定看好存储产业趋势。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 23:17 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 23:28 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 23:05 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 23:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 23:08 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 23:03 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 23:15 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 23:24 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 23:02 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 23:19 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 23:26 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 23:26 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 23:18 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 23:01 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 23:34 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 23:18 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 23:21 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 23:14 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 23:27 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 23:29 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 23:27 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 23:14 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 23:08 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 23:10 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 23:15 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:14 - [多人将马路护栏当球网打羽毛球](http://www.blog.kurohicncr.top/Article/details/1072245.shtml)
-- 2026-06-29 23:01 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/150848.shtml)
-- 2026-06-29 23:02 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/40605097.shtml)
-- 2026-06-29 23:13 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/552659044723.shtml)
-- 2026-06-29 23:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/41131993207.shtml)
-- 2026-06-29 23:17 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/0527817987.shtml)
-- 2026-06-29 23:07 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/90208370.shtml)
-- 2026-06-29 23:21 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/624569636.shtml)
-- 2026-06-29 23:02 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/75490.shtml)
-- 2026-06-29 23:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/575248350945.shtml)
-- 2026-06-29 23:03 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/73563.shtml)
-- 2026-06-29 23:04 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/11240.shtml)
-- 2026-06-29 23:18 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/48310.shtml)
-- 2026-06-29 23:20 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/184821.shtml)
-- 2026-06-29 23:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/5238441707.shtml)
+- 2026-06-29 23:34 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/23838797976.shtml)
+- 2026-06-29 23:17 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/278273893004.shtml)
+- 2026-06-29 23:15 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/17913336.shtml)
+- 2026-06-29 23:09 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/07764535.shtml)
+- 2026-06-29 23:34 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/167831.shtml)
+- 2026-06-29 23:32 - [沉睡花园](https://www.blog.minike.top/Article/details/218887.shtml)
+- 2026-06-29 23:07 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/712724.shtml)
+- 2026-06-29 23:20 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/82968298.shtml)
+- 2026-06-29 23:06 - [起风了](https://www.share.kurohicncr.top/Article/details/762014761279.shtml)
+- 2026-06-29 23:20 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/510578013959.shtml)
+- 2026-06-29 23:07 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/3681619101.shtml)
+- 2026-06-29 23:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/314850197.shtml)
+- 2026-06-29 23:15 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/575291054.shtml)
+- 2026-06-29 23:15 - [毒液2](https://www.share.minike.top/Article/details/553832380.shtml)
+- 2026-06-29 23:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/45207085137.shtml)

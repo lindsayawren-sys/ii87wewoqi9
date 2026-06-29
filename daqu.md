@@ -1,61 +1,58 @@
-# 卖掉布加迪后，保时捷又将关停三家子公司
+# 行情分化加剧检验专业能力成色 广发基金为持有人创造良好回报
 
-> 更新时间：2026-06-29 23:30:02 UTC+8
+> 更新时间：2026-06-29 23:36:02 UTC+8
 
 ## 摘要
 
-豪华汽车品牌保时捷继续“瘦身”。 当地时间5月9日，保时捷宣布公司正在围绕战略重组进一步落实多项举措，包括将终止运营旗下Cellforce Group GmbH、Porsche eBike Performance GmbH以及Cetitec GmbH三家子公司，预计岗位裁减共计影响超过500名员工。 保时捷执行董事会主席骆明楷（Dr． Michael Leiters）表示：“我
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 自3月底以来，随着地缘冲突影响逐步弱化，叠加科技板块上市公司一季报业绩兑现，A股科技成长行情持续升温。在此轮行情的演绎中，一些具备专业投研能力、能够敏锐捕捉结构性机遇的基金管理人，正通过专业的资产管理能力，为持有人创造良好的投资回报和盈利体验。 Wind数据显示，截至5月25日，广发基金旗
 
 ## 正文
 
-豪华汽车品牌保时捷继续“瘦身”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当地时间5月9日，保时捷宣布公司正在围绕战略重组进一步落实多项举措，包括将终止运营旗下Cellforce Group GmbH、Porsche eBike Performance GmbH以及Cetitec GmbH三家子公司，预计岗位裁减共计影响超过500名员工。
+来源：中国基金报 自3月底以来，随着地缘冲突影响逐步弱化，叠加科技板块上市公司一季报业绩兑现，A股科技成长行情持续升温。
 
-保时捷执行董事会主席骆明楷（Dr． Michael Leiters）表示：“我们必须重新聚焦核心业务，这是战略重组取得成功所不可或缺的基石。
+在此轮行情的演绎中，一些具备专业投研能力、能够敏锐捕捉结构性机遇的基金管理人，正通过专业的资产管理能力，为持有人创造良好的投资回报和盈利体验。
 
-为此，我们不得不做出艰难取舍，包括精简旗下子公司。
+Wind数据显示，截至5月25日，广发基金旗下共计148只基金（不同份额仅统计主份额）近一年复权单位净值增长率突破30%。
 
-” 据保时捷介绍，在公司的战略重组以及技术开放的动力系统战略框架下，Cellforce GmbH已不再具备可持续的长期发展前景。
+其中，近一年涨幅超50%的产品达89只，涨幅超80%的产品44只，更诞生了25只“翻倍基”以及2只“2倍基”，彰显出公司在复杂市场环境中的综合投资实力。
 
-因此，管理层将与职工委员会启动关停公司的协商。
+主动权益强势领跑 11只产品近一年业绩翻倍 近一年来，A股市场呈现出明显的科技成长主导特征。
 
-Porsche eBike Performance GmbH成立的初衷是研发高性能电动自行车驱动系统并向全球市场发售。
+Wind数据显示，截至5月25日，万得偏股混合型基金指数近一年累计上涨46.85%，而同期沪深300指数收益率为26.77%，相比之下，主动管理基金的超额收益创造能力得到充分验证。
 
-由于电动自行车驱动系统的市场环境已发生根本性变化，这家合资企业的业务活动即将终止。
+广发基金长期深耕主动权益领域，在本轮结构性行情中，公司旗下多只产品凭借对产业趋势的深刻理解和精准布局，取得了突出的业绩表现。
 
 ## 相关推荐
 
-- 2026-06-29 23:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 23:07 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 23:16 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 23:27 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 23:26 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 23:28 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 23:04 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 23:10 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 23:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 23:07 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 23:10 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 23:03 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 23:00 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 23:15 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 23:27 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 23:29 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 23:32 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 23:28 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 23:11 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 23:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 23:12 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 23:07 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 23:12 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 23:31 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 23:31 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 23:19 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 23:31 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:20 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/11502536.shtml)
-- 2026-06-29 23:03 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/360834.shtml)
-- 2026-06-29 23:12 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/20985873.shtml)
-- 2026-06-29 23:14 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/992130.shtml)
-- 2026-06-29 23:05 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/212792461.shtml)
-- 2026-06-29 23:04 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/49024.shtml)
-- 2026-06-29 23:22 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/54248.shtml)
-- 2026-06-29 23:27 - [流金岁月](https://www.share.minike.top/Article/details/544616.shtml)
-- 2026-06-29 23:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/42600516.shtml)
-- 2026-06-29 23:14 - [沉睡花园](https://www.blog.minike.top/Article/details/61296.shtml)
-- 2026-06-29 23:23 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/373899199.shtml)
-- 2026-06-29 23:08 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/08852208050.shtml)
-- 2026-06-29 23:20 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/23807696293.shtml)
-- 2026-06-29 23:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/93531273.shtml)
-- 2026-06-29 23:10 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/824369956.shtml)
+- 2026-06-29 23:23 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/54581172.shtml)
+- 2026-06-29 23:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/551248746786.shtml)
+- 2026-06-29 23:10 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/6066828.shtml)
+- 2026-06-29 23:11 - [返利科技盘中上演“天地板”](http://www.blog.kurohicncr.top/Article/details/77690.shtml)
+- 2026-06-29 23:35 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/58071405.shtml)
+- 2026-06-29 23:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/00413662.shtml)
+- 2026-06-29 23:21 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/034389951.shtml)
+- 2026-06-29 23:27 - [国际清算银行警告AI投资热潮](http://www.share.minike.top/Article/details/23128.shtml)
+- 2026-06-29 23:31 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/28323298.shtml)
+- 2026-06-29 23:32 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/13493.shtml)
+- 2026-06-29 23:29 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/06162.shtml)
+- 2026-06-29 23:11 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/397631470.shtml)
+- 2026-06-29 23:13 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/17381991.shtml)
+- 2026-06-29 23:13 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/202845373049.shtml)
+- 2026-06-29 23:29 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/980317738862.shtml)
